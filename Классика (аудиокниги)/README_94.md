@@ -1,3 +1,30 @@
+###  Публикация: 373959   (28518) от 06.02.2025
+
+Александр Куприн | Гранатовый браслет. Избранное (2003) [MP3, Вячеслав Герасимов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28518.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: XX век. Русская проза.
+В аудиокнигу вошли лучшие сочинения Александра Ивановича Куприна (1870–1938) и наиболее яркие произведения начала XX века, когда писатель стал не только известным, но и знаменитым. Его называли самым человечным писателем. Сам же Куприн плакал над рукописью «Гранатового браслета» и говорил, что ничего более целомудренного он не писал.Жанр: Русская литература, классика, повесть, рассказИздательство: Студия «АРДИС»Продолжительность: 08:36:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BE65AB51CC3E496F1F472F97CF40BE4683DB3BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 395291   (28510) от 06.02.2025
 
 Александр Куприн | Повести и рассказы (2007) [MP3, Николай Трифилов]
@@ -6,7 +33,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28510.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28359.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27782.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27772.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27752.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27682.jpg" />
 </div>
 
 
@@ -166,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27676.jpg" />
 </div>
 
 
@@ -194,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27381.jpg" />
 </div>
 
 
@@ -222,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27358.jpg" />
 </div>
 
 
@@ -250,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27356.jpg" />
 </div>
 
 
@@ -278,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27307.jpg" />
 </div>
 
 
@@ -304,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27305.jpg" />
 </div>
 
 
@@ -330,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26891.jpg" />
 </div>
 
 
@@ -358,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26617.jpg" />
 </div>
 
 
@@ -384,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25779.jpg" />
 </div>
 
 
@@ -412,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25733.jpg" />
 </div>
 
 
@@ -440,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25732.jpg" />
 </div>
 
 
@@ -469,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25726.jpg" />
 </div>
 
 
@@ -497,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25605.jpg" />
 </div>
 
 
@@ -525,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25569.jpg" />
 </div>
 
 
@@ -553,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25001.jpg" />
 </div>
 
 
@@ -582,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24999.jpg" />
 </div>
 
 
@@ -611,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24997.jpg" />
 </div>
 
 
@@ -640,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24996.jpg" />
 </div>
 
 
@@ -669,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24975.jpg" />
 </div>
 
 
@@ -682,36 +709,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6570620C52F8777227CCBC01A447FD59EE47FB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 392297   (24329) от 18.03.2025
-
-Лев Толстой | Война и мир (2009) [MP3, Ефим Каменецкий]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: «Школьная библиотека».
-«Война и мир» – шедевр гениального русского писателя Льва Николаевича Толстого. Эта книга из разряда «вечных», потому что она обо всем – о жизни и смерти, о любви и чести, о мужестве и героизме, о славе и подвиге, о войне и мире. Одно из величайших произведений мировой литературы, потрясающее своей масштабностью, психологической (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: АудиокнигаПродолжительность: 80:06:41 (18:59:03 + 20:44:33 + 21:45:46 + 18:37:29)
-
-Первый том знакомит с высшим обществом России XIX века. Показаны взаимоотношения между родителями и детьми в семье Ростовых, сватовство у Болконских, интриги у Безуховых, вечера в салоне фрейлины А.П. Шерер, балы в Москве и Петербурге.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E43E8CE1890320D9C346B6B0F27FDDC5991DE33
 ```
 
 https://mybot314.ru/tekegram_catalog/

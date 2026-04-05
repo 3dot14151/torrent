@@ -1,3 +1,55 @@
+###  Публикация: 1713872   (111815) от 07.04.2024
+
+Четыре сестры / Shimaizaka (1985) BDRip [H.264] [JP / RU Sub]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111815.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четырёх сводных сестёр связывает необычайно тесная связь в бурные времена послевоенной Японии...Производство: Япония / Toho PicturesЖанр: драмаРежиссер: Нобухико ОбаясиАктеры: Мисако Конно, Ацуко Асано, Ясуко Савагути, Ясуко Томита, Юмико Фудзита, Вакаба Ириэ, Акико Китамура, Тору Минэгиси, Итирота Миякава, Тосинори ОмиПеревод: субтитры (DanuuJI)Язык озвучки: японскийПродолжительность: 01:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1995A72A016DEADF6E09C938B2DBFF2E6978F0C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715961   (111483) от 13.04.2024
+
+Лающие собаки никогда не кусают / Peullandaseuui gae / Barking Dogs Never Bite (2000) BDRip [H.264]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм про неработающего лектора колледжа, которого раздражает лай собак в его многоквартирном доме, и он прибегает к похищению и убийству их. Тем временем, молодая женщина, работающая в жилом комплексе, решает расследовать это дело после того, как она начинает получать уведомления от арендаторов о пропавших собаках.Производство: Южная Корея / CJ Entertainment, Cinema Service, Uno FilmЖанр: комедияРежиссер: Чжун Хо ПонАктеры: Сон Чжэ Ли, Ду На Пэ, Хо Чон Ким, Хи Бон Бён, Су Хи Го, Рве Ха Ким, Хёк Пун Квон, Джин Гу Ким, Джон Сон СонПеревод: дублированныйЯзык озвучки: русский, корейскийСубтитры: русские, английскиеПродолжительность: 01:50:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADB2358B988EE1DE1737DA70C8658290F9B02426
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719026   (110770) от 27.04.2024
 
 Дом / Hausu (1977) BDRip [H.264] [MVO]
@@ -6,7 +58,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110770.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110505.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110252.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110176.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110124.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109919.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109815.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109794.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109053.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108946.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108515.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108428.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108080.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107814.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106001.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105637.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105457.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105390.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105079.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104962.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104866.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104833.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104734.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104651.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2327DE5776ED59B063B16E5ECEA2146CB3B1092
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748556   (104543) от 10.09.2024
-
-Музыка Гиона / Гейша / Gion bayashi (1953) BDRip [H.264] [AVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104543.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на романе Мацутаро Кавагути... Мать Эйко умирает, и 16-летняя девушка преезжает к её подруге Миёхару, гейше, работающей в «весёлых домах» в Гионе (район Киото). Эйко тоже собирается стать гейшей, для этого ей необходимо обучиться пению и танцу, овладеть искусством икебаны. Миёхару готова помочь девушке и заплатить за её обучение...Производство: Япония / Daiei StudiosЖанр: драмаРежиссер: Кэндзи МидзогутиАктеры: Митиё Когурэ, Аяко Вакао, Сэйдзабуро Кавадзу, Сабуро Датэ, Сумао Ишихара, Мидори Комацу, Кандзи Кошиба, Кикуэ Мори, Тиэко Нанива, Эйтаро СиндоПеревод: авторскийЯзык озвучки: русский, японскийСубтитры: русские, английскиеПродолжительность: 01:24:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC978320B4CB2C069633D22234508D79875ED8DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749685   (104294) от 15.09.2024
-
-Поэзия / Shi / Poetry (2010) BDRip [H.264]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104294.jpg" />
-</div>
-
-
-###  Подробнее
-
-В провинциальном городе живёт эксцентричная пенсионерка Ми-джа с внуком-школьником и посещает курсы стихосложения в местном доме культуры. Впервые в жизни Ми-джа пишет стихотворение и ищет красоту в обычном, на что никогда не обращала особого внимания. Ей кажется, что теперь она наконец заметила то, что раньше просто не видела, и приходит в восторг. Однако неожиданные (   Читать дальше...   )Производство: Южная Корея / UniKorea Pictures, Pine House FilmЖанр: драма, криминалРежиссер: Чан Дон ЛиАктеры: Чжон Хи Юн, Да Вит Ли, Хи Ра Ким, Нэ Сан Ан, Мин Син Пак, Ён Тхэк Ким, Чжон Гу Ким, Мин Чжэ Ким (I)Перевод: профессиональный многоголосый, любительский одноголосыйЯзык озвучки: русский, корейскийСубтитры: русские, английскиеПродолжительность: 02:19:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08324E10ED6170D7DB5A258FA78663517A64DB81
 ```
 
 https://mybot314.ru/tekegram_catalog/

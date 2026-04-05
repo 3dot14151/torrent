@@ -1,117 +1,3 @@
-###  Публикация: 1065075   (421305) от 22.10.2016
-
-Dee D. Jackson - Automatic Lover [New Digital Version] (1977) Maxi-Single, 1988, Jupiter Records [FLAC|Lossless|image + .cue] <Disco, Italo-Disco, Euro-Disco, Hi-NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421305.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Automatic Lover - Remix '88 (Long Version) (6:52)
-2. Automatic Lover - Remix '88 (Club-Mix) (6:41)Жанр: Disco, Italo-Disco, Euro-Disco, Hi-NRGПродолжительность: 00:13:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAEA190928F66B75DB3E883EC4E0C454504922F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947710   (417816) от 17.10.2015
-
-Pupo - Аллея Звёзд (2005) [FLAC|image+.cue]<Pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Celato Al Cioccolato
-02. Forse
-03. Su Di Noi
-04. Chissa Se Domani(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:18:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B13559A42C14D731F566706A5FC75B3E839DE812
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251139   (415240) от 02.10.2018
-
-Nile Rodgers & Chic - It’s About Time (2018) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/10. Till The World Falls (5:18)
- 02/10. Boogie All Night (3:30)
- 03/10. Sober (3:08)
- 04/10. Do You Wanna Party (3:22)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97C2E355D21B3B2FB532366F6642A58B6BFB9A9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 248646   (415191) от 22.10.2010
-
-Arabesque - II, III - Japan (1979, 1980) [FLAC|Lossless]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_415191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peppermint Jack
-02. In The Heat Of A Disco Night
-03. Rock Me After Midnight
-04. Lucifer's Lover(   Читать дальше...   )Жанр: Disco |Продолжительность: 01:10:37
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167791   (414709) от 21.09.2017
 
 VA - Retro Futurism - Italo Is Still Alive (2017) Compilation [FLAC|Lossless|image + .cue] <Italo-Disco, Synthwave, Nu-Disco>
@@ -120,7 +6,7 @@ VA - Retro Futurism - Italo Is Still Alive (2017) Compilation [FLAC|Lossless|ima
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414709.jpg" />
 </div>
 
 
@@ -149,7 +35,7 @@ VA - I Love Success, Vol. 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Hi-NRG, Italo-
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412436.jpg" />
 </div>
 
 
@@ -178,7 +64,7 @@ VA - ZYX Italo Disco: Doubles Vol. 1 (2011) 2CD, Compilation [FLAC|Lossless|imag
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411734.jpg" />
 </div>
 
 
@@ -207,7 +93,7 @@ VA - Euro Disco - The Lost Legends Vol. 30 (2019) [FLAC|Lossless|tracks + .cue] 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408341.jpg" />
 </div>
 
 
@@ -236,7 +122,7 @@ VA - Platinum 80s (2002) [FLAC|Lossless]<Pop, Rock, Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_405178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_405178.jpg" />
 </div>
 
 
@@ -271,7 +157,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401510.jpg" />
 </div>
 
 
@@ -300,7 +186,7 @@ Donna Summer - 8 Albums (1975-1979) /2012, SHM-CD Universal Music Japan/ [FLAC|L
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_396697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_396697.jpg" />
 </div>
 
 
@@ -335,7 +221,7 @@ Cerrone - Hysteria (2002) [FLAC|Lossless|tracks + .cue] <Disco, House>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395585.jpg" />
 </div>
 
 
@@ -364,7 +250,7 @@ Lili & Susie - The Sisters (1990) [FLAC|Lossless|image + .cue] <Europop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393947.jpg" />
 </div>
 
 
@@ -393,7 +279,7 @@ Cerrone - Red Lips (2016) [FLAC|Lossless|WEB-DL|tracks] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386987.jpg" />
 </div>
 
 
@@ -422,7 +308,7 @@ Gazebo - Lunatic (2013) Compilation, 2CD [FLAC|Lossless|image + .cue] <Italo-Dis
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386976.jpg" />
 </div>
 
 
@@ -451,7 +337,7 @@ VA - Italo Disco - The Lost Legends Vol. 31 (2020) [FLAC|Lossless|tracks + .cue]
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385498.jpg" />
 </div>
 
 
@@ -480,7 +366,7 @@ A La Carte - Greatest Hits (2004) [FLAC|Lossless]<Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_384333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_384333.jpg" />
 </div>
 
 
@@ -515,7 +401,7 @@ Italo Disco - Moscow Lady (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Eur
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383411.jpg" />
 </div>
 
 
@@ -544,7 +430,7 @@ Fancy - Sail Away (2020) Compilation [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383306.jpg" />
 </div>
 
 
@@ -573,7 +459,7 @@ Italo Disco - Angel of the Night (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Dis
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383300.jpg" />
 </div>
 
 
@@ -602,7 +488,7 @@ Fun Fun - Color My Love (2017) Limited Edition, RE. [FLAC|Lossless|tracks + .cue
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383243.jpg" />
 </div>
 
 
@@ -631,7 +517,7 @@ Fancy - Greatest Hits & More (2019) Compilation [FLAC|Lossless|WEB-DL|tracks] <I
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383089.jpg" />
 </div>
 
 
@@ -660,7 +546,7 @@ VA - Italo Disco - The Lost Legends Vol. 29 (2019) [FLAC|Lossless|tracks + .cue]
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376685.jpg" />
 </div>
 
 
@@ -689,7 +575,7 @@ Giorgio And Chris - Love’s In You, Love’s In Me (1978) Remaster, 2010, Gold 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373104.jpg" />
 </div>
 
 
@@ -718,7 +604,7 @@ VA - Italo Disco - The Lost Legends Vol. 23 (2018) [FLAC|Lossless|tracks + .cue]
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369541.jpg" />
 </div>
 
 
@@ -747,7 +633,7 @@ Video Kids - The Invasion Of The Spacepeckers (1995) Unofficial Release [FLAC|im
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362755.jpg" />
 </div>
 
 
@@ -761,6 +647,125 @@ Video Kids - The Invasion Of The Spacepeckers (1995) Unofficial Release [FLAC|im
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97F8AB092056A3EB14BF6C25FE0772F31D5B5E84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071404   (361701) от 09.11.2016
+
+Cerrone - Red Lips (2016) [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Therapy
+02. Move Me
+03. Illuminate Me
+04. Ain't No Party (Like Monday Night)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:53:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3803E1218A479251AFD52B91748DDC100074C27A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 407642   (360799) от 07.11.2011
+
+Collage - Raccolta Di Successi (1995) [FLAC|Lossless]<Italo-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_360799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Italo-popПродолжительность: 00:42:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 407646   (360313) от 07.11.2011
+
+Al Bano & Romina Power - Vincerai (Their Greatest Hits) (1991) [FLAC|Lossless]<Italo-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_360313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vincerai
+02. Tu Soltanto Tu
+03. We'll Live It All Again
+04. Dialogo
+05. Ci Sara
+06. Makassar
+07. Sempre, Sempre
+08. Cara Terra Mia
+09. Il Poeta (Yunus Emre)
+10. Che Angelo Sei(   Читать дальше...   )Жанр: Italo-popПродолжительность: 01:03:52
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328990   (359065) от 02.10.2019
+
+Mozzart - Devil's Randezvous: Greatest Hits & More (2019) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Money (Maxi Version)
+02. Jasmin China Girl (Maxi Version)
+03. Devil's Rendezvous (12" Version)
+04. Malice & Vice (12" Version)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:30:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6376B51BDCC63B9EF1680C255DB895A0A0400238
 ```
 
 https://mybot314.ru/tekegram_catalog/

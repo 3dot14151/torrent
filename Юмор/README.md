@@ -1,19 +1,20 @@
 https://t.me/izofen
-###  Публикация: 1862042   (1062964) от 
+###  Публикация: 1862732   (1063470) от 
 
-Нобелевскую премию по математике пообещали дать программисту, который придумает способ обойти «белые списки»
+Как отмечают 1 апреля в 2026 году
 
 >>След.
 >>Юмор
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063470.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Заместитель главы Нобелевского комитета Видкун Квислинг призвал всех программистов мира разработать технологию, позволяющую россиянам получить доступ в Интернет во время ограничений или полного отключения мобильного интернета. (   Читать дальше...   )
+
+Ежегодно в России 1 апреля отмечают День смеха, или День дурака. Хотя этот праздник не является государственным, он довольно популярен, а одной из главных его традиций считаются всевозможные розыгрыши. «Лента.ру» рассказывает, как появился праздник, посвященный дуракам, когда его начали отмечать в России и как стоит провести этот день в 2026 году.(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -33,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Юмор
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060428.jpg" />
 </div>
 
 
@@ -59,7 +60,7 @@ Cloudflare: многочисленные сбои в работе сервиса
 >>Юмор
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047702.jpg" />
 </div>
 
 
@@ -85,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Юмор
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_128607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_128607.jpg" />
 </div>
 
 
@@ -111,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Юмор
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57248.jpg" />
 </div>
 
 
@@ -138,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Юмор
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39382.jpg" />
 </div>
 
 
@@ -165,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Юмор
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36203.jpg" />
 </div>
 
 
@@ -191,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Юмор
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28810.jpg" />
 </div>
 
 
@@ -217,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Юмор
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28430.jpg" />
 </div>
 
 
@@ -243,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Юмор
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26109.jpg" />
 </div>
 
 
@@ -269,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Юмор
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23342.jpg" />
 </div>
 
 
@@ -295,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Юмор
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23138.jpg" />
 </div>
 
 
@@ -321,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Юмор
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21015.jpg" />
 </div>
 
 
@@ -347,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Юмор
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14657.jpg" />
 </div>
 
 
@@ -373,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Юмор
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12992.jpg" />
 </div>
 
 
@@ -399,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Юмор
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12407.jpg" />
 </div>
 
 
@@ -425,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Юмор
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_898.jpg" />
 </div>
 
 

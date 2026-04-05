@@ -1,3 +1,61 @@
+###  Публикация: 1052143   (529277) от 13.09.2016
+
+VA - LUXEmusic - Dance Super Chart Vol.85 (2016) [MP3|192~320 Kbps] <House, Electro House, Mash Up, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crew 7 & Geeno Smith  -  Ghostbusters (Moombahton Mix)  4:13
+02. Quintino & Yves V feat. Gia Koka  -  Unbroken (DJ Richard Noise Remix)  5:36
+03. Artik & Asti  -  Я твоя (DJ Denis Rublev & DJ Prezzplay Remix)  4:46
+04. Юлианна Караулова feat. ST  -  Море (Astero Remix)  3:15(   Читать дальше...   )Жанр: House, Electro House, Mash Up, Club, DanceПродолжительность: 03:54:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EF810C8F00C6950F27647FCED4C43AC13EB17B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927577   (528694) от 13.08.2015
+
+VA - Sexy & Deep Feelings (2015) [MP3|320 кб/с]<Deep House, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diario - Solar Eclipse (Original Mix) [05:37]
+02. Mighty Real - Around Town (Original Mix) [06:18]
+03. Chiffre 100 - Skies (Original Mix) [06:34]
+04. Real & Cay - Upgrading (Original Mix) [05:53](   Читать дальше...   )Жанр: Deep House, ChilloutПродолжительность: 02:54:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AEB2FAD967CDEB8A2CA6DF5BB002797C7D93554
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927569   (528684) от 13.08.2015
 
 VA - Funny and Sexy Chill Out (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -6,7 +64,7 @@ VA - Funny and Sexy Chill Out (2015) [MP3|320 кб/с]<Downtempo, Chillout, Loun
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528684.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Летний Хаус Калейдоскоп Топ 50 (Соmріled bу Z�
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528500.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Summer Night: Creaton Soft House Electro Mix (2019) [MP3|320 Kbps] <House, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528230.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Empire Records - Fake 7 (2019) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528223.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Make Live Loud Primes (2016) [MP3|256~320 Kbps] <House, Electro House, Dirt
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528192.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Дискотека 2019 Immersion In Electronics Vol.1 [MP3|320 Kbps] <Prog
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528164.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Mix 100 Deep House (2016) [MP3|320 Kbps] <Deep House, Mash Up>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528132.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Свежаки Radio Record Сентябрь (2016) [MP3|320 Kbps] <House, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528007.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Aural Lounge (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527725.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Beatport Trance Pack (15.09.) (2016) [MP3|320 Kbps] <Trance, Melodic, Energ
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526736.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Beatport Trance Pack (13.09.) (2016) [MP3|320 Kbps] <Trance, Melodic, Energ
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526734.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - 200th Release Anniversary (2016) [MP3|320 Kbps] <Minimal, Deep, Funky, Tech
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526128.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Empire Outside 75 (2016) [MP3|225-320 Kbps] <House, New wave, Futurepop, Dr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526123.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - 100% Ibiza - The Closing (2016) [MP3|320 Kbps] <Funky, Club, Tech House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526121.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Traxsource Top 100 July (2016) [MP3|320 Kbps] <UK Jackin, Indie Dance, Nu D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526119.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Cafe Del Mar - Cafe del Mar ChillWave 2 (2016) [MP3|320 Kbps] <Downtempo, C
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526001.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Bolero By Trance: Uplifting And Vocal Trance (2017) [MP3|320 Kbps] <Uplifti
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525867.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - The Whisper Of The Ocean: Classic Chillout (2017) [MP3|320 Kbps] <Downtempo
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524767.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Record Super Chart 548 (2018) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524534.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Beach House: 130 DJ Selection Progressive Mix (2017) [MP3|320 Kbps] <Progre
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524489.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Cool and Sexy Deluxe Lounge: Selected Premium Lounge and Hotel Bar del Mar 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524350.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Sambass Top 40 (Brazilian Style Drum'n'Bass) [Compiled by Zebyte] (2016) [M
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524273.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Осенний Хаус Калейдоскоп Топ 50 [Compiled by Zebyt
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524265.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Top 150 Deep House Tracks Vol.3 (2019) [MP3|320 Kbps] <Deep House, Club Hou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524223.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Top 150 Deep House Tracks Vol.3 (2019) [MP3|320 Kbps] <Deep House, Club Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAF47ABC4A7A7D8430CAE7CEF3B43283A09DAD34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240578   (524156) от 12.08.2018
-
-VA - Deep House Collection Vol.181 (2018) [MP3|320 Kbps] <House, Deep House, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524156.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Deep Parliament feat. Jessie Wagner - ON And ON (Original Mix) 3:18
-002. Themba - Exodus (Original Mix) 6:38
-003. 1979 - Once I Saw The Sky (Original Mix) 7:39
-004. Adam K, Soha vs. Breathe feat. HALIENE & Matthew Steeper - Twilight (Jack Trades Extended Remix) 4:53(   Читать дальше...   )Жанр: House, Deep House, Club HouseПродолжительность: 14:06:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52D3DA41AEC53DE94C0895DD35196360FC1B9D8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927843   (524122) от 14.08.2015
-
-VA - The Very Best of Summer (2015) [MP3|320 кб/с]<Deep House, Chill Out>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kaxamalka - You Take My Breath Away
-02. Aqua Mundi - Mindfulness
-03. Chiffre 100 - Skies
-04. Diario - Solar Eclipse(   Читать дальше...   )Жанр: Deep House, Chill OutПродолжительность: 02:27:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB796675278DEC6477F5EA2B82CC2D9B25D4FB69
 ```
 
 https://mybot314.ru/tekegram_catalog/

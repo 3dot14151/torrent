@@ -1,3 +1,29 @@
+###  Публикация: 947545   (417878) от 17.10.2015
+
+Главная дорога (17.10.2015) SATRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417878.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Главная дорога» — первая на российском телевидении информационная программа обо всем, что происходит на дорогах страны. Это полчаса полезной информации не только для автолюбителей, но и для пешеходов. В постоянной рубрике «Испытано на себе» зрителей ждут наглядные советы, как вести себя в сложных ситуациях на дорогах. Сложнейший курс контраварийной подготовки, адаптированный (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: ~ 00:28:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D48B8EB4B0758F3FEDC718B6EA458461E45FFC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 947867   (415967) от 18.10.2015
 
 Первая передача на НТВ. Автомобильная передача. Выпуск №223 (18.10.2015) SATRip
@@ -6,7 +32,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415967.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414472.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412727.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409672.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408426.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407668.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407546.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407542.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406925.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400449.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393106.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387239.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387228.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385313.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384254.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383218.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381184.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381083.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378840.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375393.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374962.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374840.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373366.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372733.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372419.jpg" />
 </div>
 
 
@@ -652,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BBF22153AC89EC167A40B507573167B38780C38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176243   (371932) от 21.10.2017
-
-Главная дорога (2017.10.21) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371932.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Главная дорога» — первая на российском телевидении информационная программа обо всем, что происходит на дорогах страны. Это полчаса полезной информации не только для автолюбителей, но и для пешеходов. В постоянной рубрике «Испытано на себе» зрителей ждут наглядные советы, как вести себя в сложных ситуациях на дорогах. Сложнейший курс контраварийной подготовки, адаптированный (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: ~ 00:32:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8800D84E0A2E073B9B5D2F277B7E82025828B73C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1137988   (26547) от 25.02.2025
+
+Возмездие / Солдатами не рождаются (1967) HDTV [H.264/1080i]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26547.jpg" />
+</div>
+
+
+###  Подробнее
+
+Генерал Серпилин, капитан Синцов, "маленькая докторша" Таня Овсянникова - о судьбах этих героев ранее созданного фильма "Живые и мёртвые" продолжен рассказ в картине, посвященной героям Сталинградской битвы, их неповторимым судьбам, которые связаны общим стремлением к победе (1942-1943).Производство: СССР, киностудия "Мосфильм"Жанр: Военный, ДрамаРежиссер: Александр СтолперАктеры: Кирилл Лавров, Анатолий Папанов, Людмила Крылова, Александр Плотников, Юрий Стосков, Юрий Визбор, Григорий Гай, Сергей Шакуров, Александр Граве, Владимир Седов, Олег ХабаловПродолжительность: 01:01:41+00:57:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57399A52E6CCD34205BEF0CA0A2C7269CA401FB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143494   (26537) от 25.02.2025
+
+Александр Невский (1938) BDRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26537.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Александр Невский» — советский художественный исторический фильм о древнерусском князе, одержавшем победу в битве с рыцарями Тевтонского ордена на Чудском озере 5 апреля 1242 года. Относится к плеяде классических советских исторических фильмов 30-х годов и считается одной из лучших работ Сергея Эйзенштейна. Музыку к фильму написал знаменитый композитор Сергей Прокофьев. (   Читать дальше...   )Производство: СССР, киностудия "Мосфильм"Жанр: Военный, Исторический, ДрамаРежиссер: Сергей Эйзенштейн, Дмитрий ВасильевАктеры: Николай Черкасов, Андрей Абрикосов, Дмитрий Орлов, Николай Охлопков, Варвара Массалитинова, Владимир Ершов, Сергей Блинников, Иван Лагутин, Лев Фенин, Наум Рогожин, Василий Новиков, Вера Ивашова, Александра Данилова, Николай АрскийСубтитры: отсутствуютПродолжительность: 01:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D81F061BEEA35331647643E168E63C89A4D2B9EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427382   (26422) от 26.02.2025
 
 Бриллиантовая рука (1968) BDRemux [H.264/1080p]
@@ -6,7 +58,7 @@
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26422.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26326.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25993.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25953.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25882.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25389.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25269.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24525.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24497.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23813.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23782.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23748.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23712.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23702.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23687.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23293.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23187.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23072.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22981.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22951.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22876.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22870.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22759.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22756.jpg" />
 </div>
 
 
@@ -619,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AC9584B4DA10361E60CAA8312E0C5C69AA606B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570223   (22732) от 02.04.2025
-
-Семь невест ефрейтора Збруева (1970) HDTV [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотография Кости попала на обложку журнала «Умелый воин», и особы женского пола засыпали его письмами со всех сторон нашей обширной Родины. Пришло время демобилизации и Костя отправился в длительное путешествие от украинских степей до дальневосточной тайги выбирать невесту.Производство: СССР / ЛенфильмЖанр: комедия, мелодрамаРежиссер: Виталий МельниковАктеры: Семён Морозов, Наталья Варлей, Марианна Вертинская, Ирина Куберская, Елена Соловей, Татьяна Фёдорова, Наталья Четверикова, Юрий Епифанов, Юрий Балашов и др.Субтитры: русскиеПродолжительность: 01:31:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E48D545E378353416FFE6CCD2F48421F9F591D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545875   (22432) от 05.04.2025
-
-Невероятные приключения итальянцев в России (1973) BDRemux [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22432.jpg" />
-</div>
-
-
-###  Подробнее
-
-В одной из римских больниц скончалась русская эмигрантка. Старая дама, некогда эмигрировавшая из России, поведала своей внучке Ольге, что все ее огромное состояние спрятано в Ленинграде «под львом». Это обстоятельство явилось причиной срочного отлета в Ленинград всех тех, кто случайно или специально был посвящен в эту тайну.Производство: СССР, Италия / Мосфильм, Dino de Laurentiis Cinematografica, Produzioni Cinematografiche Inter. Ma. Co.Жанр: Комедия, приключения, криминалРежиссер: Эльдар РязановАктеры: Андрей Миронов, Нинетто Даволи, Антония Сантилли, Алигьеро Носкезе, Тано Чимароза, Джиджи Баллиста, Евгений Евстигнеев, Ольга Аросева, Лариса Виккел, Александр ЛукьяновСубтитры: русскиеПродолжительность: 01:42:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD7B390DB00D9852291A6699878B03A820661909
 ```
 
 https://mybot314.ru/tekegram_catalog/

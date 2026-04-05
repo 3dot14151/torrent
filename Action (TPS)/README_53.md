@@ -6,7 +6,7 @@ Marvel’s Spider-Man Remastered (2022) [Ru/Multi] (3.618.0.0/dlc) Repack Wanter
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6167.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Days Gone (2021) [Ru/Multi] (1.13/dlc) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5874.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Metal Gear Solid Delta: Snake Eater (2025) [Ru/Multi] (1.1.1/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5777.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Gears of War Reloaded (2025) [Ru/Multi] (1.0.1.3689997) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5749.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Days Gone (2021) [Ru/Multi] (1.13/dlc) Repack Wanterlude [Remastered]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5478.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ The Last of Us: Part I / Одни из нас: Часть I (2023) [Ru/En] (1.1.
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5308.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Gears of War Reloaded (2025) [Ru/Multi] (1.0.1.3689997/1.0.1.3725653 Update 1) R
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5295.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Dead Rising Deluxe Remaster (2024) [Ru/Multi] (1.3.0.0/dlc) Repack Let'sРlay [D
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4879.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Gears of War Reloaded (2025) [Ru/En] (1.0.1.3725653) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4510.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Dead Rising Deluxe Remaster (2024) [Ru/Multi] (1.3.0.0/dlc) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4195.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Mindseye (2025) [Ru/Multi] (5302548/dlc) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3820.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Metal Gear Solid Delta: Snake Eater (2025) [Ru/Multi] (1.1.3/dlc) Repack Wanterl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3684.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Tunguska: The Visitation (2021) [Ru/Multi] (1.94-5/dlc) Repack Let'sРlay [Enhan
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3535.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Ready or Not (2023) [Ru/Multi] (94572/dlc) Repack Let'sРlay [LSPD Bundle]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2855.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ KIBORG (2025) [Ru/Multi] (20 2.50.9_15:1:60) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2427.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Echoes of the End (2025) [Ru/Multi] (1.05) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2271.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Daemon X Machina (2020) [Ru/Multi] (1.0.6/dlc) Repack Let'sРlay [Complete]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2238.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ El Paso, Elsewhere (2024) [En] (2025.p1) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2235.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Metal Gear Solid Delta: Snake Eater (2025) [Ru/Multi] (1.1.3 Build 19869727/dlc)
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1937.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Dead Rising Deluxe Remaster (2024) [Ru/Multi] (1.3.0.0/dlc) Repack seleZen [Digi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1717.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Dead Rising Deluxe Remaster (2024) [Ru/Multi] (1.3.0.0/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1648.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Gears of War Reloaded (2025) [Ru/Multi] (1.0.1.3781977) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1514.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Echoes of the End (2025) [Ru/Multi] (1.05) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1507.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Orcs Must Die! Deathtrap (2025) [Ru/Multi] (2.1.1/dlc) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1401.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Gears of War Reloaded (2025) [Ru/Multi] (1.0.1.3816947) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1252.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ METAL GEAR SOLID Δ SNAKE EATER (2025) [Ru/Multi] (1.1.4/dlc) Repack Let'sРlay 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1116.jpg" />
 </div>
 
 

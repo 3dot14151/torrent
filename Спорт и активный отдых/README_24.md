@@ -1,3 +1,245 @@
+###  Публикация: 1463416   (1020466) от 18.04.2021
+
+Смешанные единоборства. UFC on ESPN 22: Роберт Уиттакер - Келвин Гастелум / UFC on ESPN 22: Whittaker vs. Gastelum. Prelims & Main Card (18.04.2021) IPTVRip [H.264/1080p-LQ]
+
+>>Спорт и активный отдых
+>>Единоборства, Бои без правил
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020466.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 апреля в Лас-Вегасе (Невада, США) на фирменной арене «UFC APEX» состоялся турнир UFC on ESPN 22. Главным событием которого стал бой в среднем весе: Роберт Уиттакер – Келвин Гастелум. Бойцы уже должны были встретиться ранее на турнире UFC 234 два года назад, но из-за травмы Уиттакера бою не суждено было состояться. За прошедшее время австралиец успел потерять титул (   Читать дальше...   )Телекомпания: UFC ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 05:01:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A507202385F1194AEA38E3BBC37723EC2B197DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463537   (1020411) от 18.04.2021
+
+MotoGP. Этап 03. Гран-При Португалии. Гонка (18.04.2021) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020411.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 апреля 2021, воскресенье. 15:00 МСК.
+Этап 3, Портиман. Гран-при Португалии. ГонкаЖанр: Спорт, мотогонкиЯзык озвучки: Русский (Евгений Маслёнков)Субтитры: ОтсутствуютПродолжительность: 01:13:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:546EA5A38F7EC1C25B1154C32CD02F893F4B03DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463417   (1020408) от 18.04.2021
+
+Хоккей. НХЛ 2020-2021. Питтсбург Пингвинз - Баффало Сэйбрз (17.04.2021) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020408.jpg" />
+</div>
+
+
+###  Подробнее
+
+17 апреля 2021, суббота. 22:00 МСК
+Стадион: Кибэнк-центр (Баффало, США). Матч прошёл без зрителей
+Главный судья: Фредерик Л'Экюйе (Сен-Тит, Канада); Главный судья: Брайан Почмара (Детройт, США)Телекомпания: NBCЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:26:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2932142C745CB0290C03560C93A522241FB171B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463413   (1020396) от 18.04.2021
+
+Хоккей. НХЛ 2020-2021. Вашингтон Кэпиталз - Филадельфия Флайерз (17.04.2021) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020396.jpg" />
+</div>
+
+
+###  Подробнее
+
+17 апреля 2021, суббота. 19:30 МСК
+Стадион: Уэллс Фарго-центр (Филадельфия, США), 3 430 зрителей (17 % при вместимости 20 011)
+Главный судья: Стив Козари (Пентиктон, Канада); Главный судья: Дэн О'Рурк (Калгари, Канада)Телекомпания: NBCS-WAЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:42:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE97D6A5674147D45AFDD53209CA93540A326688
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463459   (1020392) от 18.04.2021
+
+Хоккей. НХЛ 2020-2021. Флорида Пантерз - Тампа-Бэй Лайтнинг (17.04.2021) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020392.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 апреля 2021, воскресенье. 02:00 МСК
+Стадион: Амали-Арена (Тампа, США), 3 800 зрителей (19 % при вместимости 19 500)
+Главный судья: Фурман Саут (Сьюикли, США); Главный судья: Питер Макдугалл (Реджайна, Канада)Телекомпания: BS-SunЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:36:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4272BA6A5E0DA1FA6992B063430FA16B16B7A658
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463245   (1020385) от 18.04.2021
+
+Формула 1. Сезон 2021. Этап 2. Гран-при Эмилии-Романьи. Квалификация (17.04.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020385.jpg" />
+</div>
+
+
+###  Подробнее
+
+17 апреля 2021, суббота. 15:00 МСК
+Этап 2, Имола, Италия. Гран-при Эмилии-Романьи. КвалификацияТелекомпания: Матч!Жанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: отсутствуютПродолжительность: 01:14:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:640D09F5BEEE0A023EA0E00B2635E38AA9E3F223
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463584   (1020316) от 19.04.2021
+
+Австралийский чемпионат суперкаров. Этап 3. Тасмания Суперспринт, Гонка 1-3 / Repco Supercars Championship. Beaurepaires Tasmania SuperSprint, Race 1-3 (17-18.04.2021) (2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Австралийский чемпионат по шоссейно-кольцевым автогонкам среди легковых автомобилей сезона 2021 года — Этап 3.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:22:04 + 01:15:19 + 01:27:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86A51878168D25E2EED6A2C1D9AE185A79EFC11C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463582   (1020315) от 19.04.2021
+
+Мотоспорт. Чемпионат США по мотокроссу. Сезон 2021. Атланта 2 / AMA Supercross Championship. Atlanta 2 (2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020315.jpg" />
+</div>
+
+
+###  Подробнее
+
+AMA Supercross Championship — американская гоночная серия. Гонки AMA Supercross Championship, основанные Американской ассоциацией мотоциклистов в 1974 году, проводятся с января по начало мая.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 02:30:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA62BC48466C1E21E9238C2BD149322E91102D43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463586   (1020269) от 19.04.2021
+
+Чемпионат мира по шоссейно-кольцевым мотогонкам в классе MotoGP 2021. Гран-При Португалии / MotoGP 2021. Portugal GP (2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020269.jpg" />
+</div>
+
+
+###  Подробнее
+
+MotoGP — главное престижное соревнование по шоссейно-кольцевым мотогонкам на гоночных мотоциклах.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:49:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08D4FBDC80A61B78BF8AD4C590F22CBE7304D8E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463680   (1020238) от 19.04.2021
 
 Хоккей. НХЛ 2020-2021. Вашингтон Кэпиталз - Баффало Сэйбрз (18.04.2021) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
@@ -6,7 +248,7 @@
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020238.jpg" />
 </div>
 
 
@@ -34,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020229.jpg" />
 </div>
 
 
@@ -62,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020210.jpg" />
 </div>
 
 
@@ -90,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020137.jpg" />
 </div>
 
 
@@ -116,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019994.jpg" />
 </div>
 
 
@@ -142,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019991.jpg" />
 </div>
 
 
@@ -168,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019926.jpg" />
 </div>
 
 
@@ -196,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019587.jpg" />
 </div>
 
 
@@ -224,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019491.jpg" />
 </div>
 
 
@@ -250,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019441.jpg" />
 </div>
 
 
@@ -278,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019434.jpg" />
 </div>
 
 
@@ -306,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019425.jpg" />
 </div>
 
 
@@ -334,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019423.jpg" />
 </div>
 
 
@@ -362,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019346.jpg" />
 </div>
 
 
@@ -391,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019318.jpg" />
 </div>
 
 
@@ -420,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019304.jpg" />
 </div>
 
 
@@ -446,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Единоборства, Бои без правил
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019292.jpg" />
 </div>
 
 
@@ -457,253 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C97442BBB5D6502BFDDA798A04BA7651BB04853
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465294   (1019268) от 25.04.2021
-
-Смешанные единоборства. UFC 261: Камару Усман - Хорхе Масвидаль 2 / UFC 261: Usman vs. Masvidal 2. Prelims & Main Card (25.04.2021) IPTVRip [H.264/1080p-LQ]
-
->>Спорт и активный отдых
->>Единоборства, Бои без правил
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019268.jpg" />
-</div>
-
-
-###  Подробнее
-
-25 апреля в Джэксонвилл (Флорида, США) на спортивной арене «VyStar Veterans Memorial Arena» состоялся номерной турнир UFC 261. Главным событием которого стал чемпионский бой в полусреднем весе: Камару Усман - Хорхе Масвидаль. Год назад бойцы уже встречались в качестве хедлайнеров турнира UFC 251. Тогда Масвидаль принял бой на коротком уведомление и уступил единогласным (   Читать дальше...   )Телекомпания: UFC ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 04:15:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:766678BC5197CE77C6AED8A57C897ACAA57C23FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465158   (1019235) от 25.04.2021
-
-Хоккей. НХЛ 2020-2021. Нью-Джерси Дэвилз - Питтсбург Пингвинз (24.04.2021) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019235.jpg" />
-</div>
-
-
-###  Подробнее
-
-24 апреля 2021, суббота. 19:30 МСК
-Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 4 672 зрителя (25 % при вместимости 18 673)
-Главный судья: Стив Козари (Пентиктон, Канада); Главный судья: Франсис Шаррон (Оттава, Канада)Телекомпания: AT&TЖанр: СпортПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A22590CAB702E4CFDD581F96246CBAAC034D492E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465183   (1019218) от 25.04.2021
-
-Хоккей. НХЛ 2020-2021. Вашингтон Кэпиталз - Нью-Йорк Айлендерс (24.04.2021) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019218.jpg" />
-</div>
-
-
-###  Подробнее
-
-25 апреля 2021, воскресенье. 02:00 МСК
-Стадион: Нассау Колизеум (Нью-Йорк, США), 1 400 зрителей (9 % при вместимости 16 297)
-Главный судья: Кайл Реман (Стеттлер, Канада); Главный судья: Вес Макколи (Джорджтаун, Канада)Телекомпания: NBCS-WAЖанр: СпортПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDB06314FA67EDF7C00F34FB2235405CCA33816B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465623   (1019145) от 26.04.2021
-
-Серия Кубков NASCAR 2021. Этап 10. Талладега. Гонка / NASCAR Cup Series 2021. Geico 500 (2021) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Кубков Nascar 2021 года — 73 сезон американских профессиональных гонок сток-каров и 50 сезон кубка современной эры. Сезон стартует на международном треке Дайтона Интернейшнл Спидвей внезачетным этапом Busch Clash. 2021 год станет первым, когда гонка-открытие чемпионата пройдет на дорожной трассе. Следом пройдут две квалификационные гонки Bluegreen Vacations (   Читать дальше...   )Жанр: СпортПродолжительность: 03:49:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB0C436F35A916A60786F954CFB8BF2C2D2AFF9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465399   (1019140) от 26.04.2021
-
-Серия Индикар. Сезон 2021. Этап 2. Сент-Питерсберг / NTT Indycar Series 2021. Round 2. Grand Prix Of St. Petersburg (25.04.2021) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Индикар — главная серия гонок на машинах с открытыми колёсами в Северной Америке. Чемпионат был создан под именем Indy Racing League владельцем Индианаполис Мотор Спидвей Тони Джорджем, как более дешёвая и полностью американская альтернатива серии CART. Чемпионат проводится с 1996 года.Телекомпания: 36Racing / A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 02:59:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C9598EB0F7C849E01139823D1CDD5F2F0EA85EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465397   (1019139) от 26.04.2021
-
-Чемпионат мира по шоссейно-кольцевым гонкам Формула Е. Сезон 2021. Этап 6. Испания. Квалификация 2, Гонка 2 / Formula E. 2021. R6. Valencia E-Prix. Quali 2, Race 2 (25.04.2021) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019139.jpg" />
-</div>
-
-
-###  Подробнее
-
-6 этап электрической формулы Formula E в Валенсии, Испания.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:24:48 + 01:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38C0A717E9C80AF829426D7C641EB7110426E8E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465728   (1018976) от 27.04.2021
-
-Хоккей. КХЛ 2020-2021. Кубок Гагарина. Финал. 5-й матч. ЦСКА (Москва) - Авангард (Омск) (26.04.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хоккей. КХЛ 2020-2021. Кубок Гагарина. Финал. 5-й матч. ЦСКА (Москва) - Авангард (Омск) (26.04.2021)
-СУДЬИ Оленин Константин (Москва, Россия) Раводин Алексей (Москва, Россия)
-
-СТАДИОН «ЦСКА Арена (Парк Легенд)» (Москва) Зрителей: 7272Телекомпания: KHL HDЖанр: СпортЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:14:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC2C5BF7290E70688BDD59F5EF48A2E1D7D25EFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465535   (1018946) от 27.04.2021
-
-Футбол. Кубок Английской футбольной лиги 2020-2021. Финал. Манчестер Сити - Тоттенхэм Хотспур / Carabao Cup 2020-21. Final. Manchester City FC - Tottenham Hotspur FC (25.04.2021) IPTV [H.264/1080p-LQ]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Финал Кубка Английской футбольной лиги сезона 2020-2021 между "Манчестер Сити" и "Тоттенхэмом" состоялся 25 апреля 2021 года в Лондоне на "Уэмбли" в 18:25.
-
-Матч обслуживали:
-Рефери: Пол Тирни(   Читать дальше...   )Телекомпания: Setanta Sports UkraineЖанр: Спорт, ФутболЯзык озвучки: Украинский, РусскийСубтитры: отсутствуютПродолжительность: 01:54:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:391EA681FFA913C10B236B1AB272E780F1B85EB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465968   (1018775) от 28.04.2021
-
-Футбол. Лига Чемпионов 2020-2021. 1/2 финала. Реал (Мадрид, Испания) - Челси (Англия) (27.04.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018775.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Лига Чемпионов 2020-2021. 1/2 финала. Реал (Мадрид, Испания) - Челси (Англия) (27.04.2021)
-СУДЬЯ Маккели Данни (Нидерланды)
-Судья на линии 1: Стегстра Хессел (Нидерланды)
-Судья на линии 2: де Врис Ян (Нидерланды)(   Читать дальше...   )Телекомпания: Матч!Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:50:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:425EE552F7C7F79F534D0B21952EC768D0B4E148
 ```
 
 https://mybot314.ru/tekegram_catalog/

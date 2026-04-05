@@ -1,3 +1,55 @@
+###  Публикация: 1670726   (171468) от 23.10.2023
+
+Маск: Надо создать издание "Правда"
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171468.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Все, что писала газета „Правда", оказалось правдой!"Название уже занято. Да и сама идея тухлая - как показывают примеры разных киносайтов, где за фильмы голосуют зрители, любой обсуждаемый проект может очень легко искажаться либо пользователями, которые накручивают едииницы или десятки за любой фильм, либо администрацией такого сайта, которая подкручивает (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670720   (171460) от 23.10.2023
+
+Заблокируют ли нам VPN с помощью DPI?
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171460.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сети стали появляться новости о том, что провайдеры закупают DPI оборудование, для того чтобы блокировать VPN. В этой статье я хочу поделиться своим мнением в целом о блокировках и конкретно о DPI.Как у нас происходят блокировки сейчас?Роскомнадзор вносит нежелательный ресурс в черный список. Провайдеры вынуждены подчиняться и не пропускать запросы к такому ресурсу. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1671462   (171280) от 24.10.2023
 
 F-Secure Freedome VPN 2.69.35.0 RePack by elchupacabra [Multi/Ru]
@@ -6,7 +58,7 @@ F-Secure Freedome VPN 2.69.35.0 RePack by elchupacabra [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171280.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171278.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171123.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170727.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ City Car Driving (2016) [Ru/Multi] (1.5.9) Repack Other s [Home Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170723.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170619.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170568.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ The Lord of the Rings: Return to Moria (2023) [Ru/Multi] (1.0.0.112055) Repack O
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170554.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ Cloudflare, Apple и Fastly объявили о создании нового п
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_170236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_170236.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170100.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_169730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_169730.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169406.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ Rolls-Royce полагается на малые ядерные реакторы
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_169398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_169398.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_168638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_168638.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168605.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ Adobe Premiere Pro 2023 23.1.0.86 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168542.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168539.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168534.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168422.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168403.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168381.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_168335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_168335.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ KissXsis / Поцелуй Сестёр [2010, TV, 12 серий] HDTV 720p raw +
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168117.jpg" />
 </div>
 
 
@@ -607,67 +659,13 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_168065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_168065.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Разрешение на въезд выдается только высшим руководством, а на территории комплекса установлены камеры видеонаблюдения.Журналисты издания The Wall Street Journal узнали о существовании секретной лаборатории компании Intel, расположенной в Коста-Рике. На этом предприятии компания хранит тысячи единиц различного старого компьютерного оборудования, чтобы с его помощью (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345149   (167659) от 13.12.2019
-
-JetBrains PyCharm Professional 2019.3 [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167659.jpg" />
-</div>
-
-
-###  Подробнее
-
-PyCharm – это одна из самых интеллектуальных Python IDE с полным набором средств для эффективной разработки на языке Python. Выпускается в двух вариантах – бесплатная версия PyCharm Community Edition и поддерживающая больший набор возможностей PyCharm Professional Edition. PyCharm выполняет инспекцию кода на лету, автодополнение, в том числе основываясь на информации, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F24B8358D37FC44F8C404D6F237AD03E27FC716A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596964   (167269) от 13.12.2022
-
-Очередное достижение: 1000 релизов от sergejj-a5
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_167269.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередное достижение: 1000 релизов от sergejj-a5!!!Уважаемые одноклубники,
-рад сообщить Вам о возможности поздравить нашего товарища и активнейшего релизёра с его первой тысячей релизов!
-(   Читать дальше...   )
 
 ## Скачать торент
 ```bash

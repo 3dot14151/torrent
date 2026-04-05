@@ -1,32 +1,3 @@
-###  Публикация: 1810693   (17032) от 05.08.2025
-
-The Krugers - Outlaw Rock'n'Roll (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Long Way Down (5:01)
-02.  I'm Gone (3:00)
-03.  Upside Down (4:05)
-04.  Dead Man Boogie (4:25)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF2395403E303E9906EE39008F3E1D6E399B3119
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1586285   (17002) от 25.05.2025
 
 Onslaught - Studio & Live Albums (10 releases) (1985-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
@@ -35,7 +6,7 @@ Onslaught - Studio & Live Albums (10 releases) (1985-2025) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17002.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16971.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Arabtronic 2025 - The Best Eastern Rhythms, Arabic Electro House, Ethnic Ch
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16967.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Tush - Thunder Road (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16945.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Slaughter To Prevail - Studio Albums (4 releases) (2016-2025) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16921.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ W.A.S.P. - First Blood..Last Cuts (1993) Compilation, Unofficial Release [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16753.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Shadecrown - Studio Albums (4 releases) (2016-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16752.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Ozzy Osbourne - Blizzard of Ozz (1980) Released, 2011, Sony Music [FLAC|24/192|i
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16721.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Sarah Connor - Freigeistin (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Rh
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16672.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Jeff McMillan - Being Bad Feels So Good (2025) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16538.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Pepe Bueno & os Estranhos - Confissoes e Outros Blues (2025) [FLAC 24/48|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16537.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Radio One Experience - Free Spirit (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16535.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Henrik Sundqvist - Thoughts Of Sand (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16534.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Richard Cagle & the Voodoo Choir - Zia Blues (2025) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16533.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ The Mat Day Band - The Mat Day Band (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16532.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Matt Schofield Trio - Many Moons, Vol. 1 (2025) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16531.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Wreckless James - Train of hurt (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16529.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Early Times & the High Rollers - Fallen Angels (2025) [FLAC 24/48|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16526.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Southbound Snake Charmers - Bonnie vs Clyde (2025) [FLAC 24/48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16525.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Slayer (& Kerry King) - Studio Albums (15 releases) (1983-2024) hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16454.jpg" />
 </div>
 
 
@@ -616,7 +587,7 @@ Bonded - Studio Albums (2 releases) (2020-2021) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16229.jpg" />
 </div>
 
 
@@ -643,7 +614,7 @@ Garbage - Let All That We Imagine Be The Light (2025) [FLAC 24/96|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16223.jpg" />
 </div>
 
 
@@ -672,7 +643,7 @@ Wolfskull - Studio Albums (3 releases) (2019-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16201.jpg" />
 </div>
 
 
@@ -699,7 +670,7 @@ Andreas Vollenweider - The Best Of Vol. 1 (1994) Compilation, Unofficial Release
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16200.jpg" />
 </div>
 
 
@@ -728,7 +699,7 @@ Peter Bjargo (Bjärgö, Arcana, Onus) - Studio Albums (10 releases) (2005-2024) 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16142.jpg" />
 </div>
 
 
@@ -743,6 +714,35 @@ Peter Bjärgö - шведский музыкант, вокалист.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFB643FCF6AC24ADC72AC9FA213B66495EDAA7B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811374   (16141) от 10.08.2025
+
+Cradle of Filth - Existence Is Futile (2021) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Black Metal, Extreme Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16141.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Fate Of The World On Our Shoulders
+A2 Existential Terror
+A3 Necromantic Fantasies
+A4 Crawling King Chaos(   Читать дальше...   )Жанр: Symphonic Black Metal, Extreme Gothic MetalПродолжительность: 01:10:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F031FE3B26D502E91ED370A97AECEE2E56AA4B85
 ```
 
 https://mybot314.ru/tekegram_catalog/

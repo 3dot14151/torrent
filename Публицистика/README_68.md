@@ -1,3 +1,29 @@
+###  Публикация: 1335561   (286342) от 03.11.2019
+
+В. А. Горохов | I Интернационал и русский социализм (1925) [DJVU, PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286342.jpg" />
+</div>
+
+
+###  Подробнее
+
+В конце 60-х и в начале 70-х годов в Швейцарских кружках русской эмиграции и учащейся молодежи подводился итог социалистическим движениям 60-х годов и залагались основы нового социально-революционного движения. Как ни малочисленны были эти кружки, сколько ни примешивались к идейным разногласиям фракций личные столкновения, мы не можем отказать теоретической работе (   Читать дальше...   )Жанр: История, политология, публицистикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30B7A4AA8589661B03B008E1D19AE88D9F7D42D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1335560   (286338) от 03.11.2019
 
 Б. Тихомиров | Рабочий класс под игом белогвардейщины 1918-1920 гг. (1928) [DJVU]
@@ -6,7 +32,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286338.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286186.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286182.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285904.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285737.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284561.jpg" />
 </div>
 
 
@@ -169,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284445.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284314.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283795.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283279.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282367.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282183.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280786.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280597.jpg" />
 </div>
 
 
@@ -380,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279566.jpg" />
 </div>
 
 
@@ -406,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279395.jpg" />
 </div>
 
 
@@ -434,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275910.jpg" />
 </div>
 
 
@@ -460,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275648.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274486.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273250.jpg" />
 </div>
 
 
@@ -539,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271649.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_270087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270087.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_270085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270085.jpg" />
 </div>
 
 
@@ -619,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_270076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270076.jpg" />
 </div>
 
 
@@ -645,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_270049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270049.jpg" />
 </div>
 
 
@@ -656,34 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2DE54C4120FC5F5B1C5B5F5E9EC61601A8EBE4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266562   (270048) от 02.12.2018
-
-Л. Е. Поляков | Цена войны: Демографический аспект (1985) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_270048.jpg" />
-</div>
-
-
-###  Подробнее
-
-На большой статистическом и документальном материале автор убеждает в необходимости активной борьбы против войн глобальных и локальных, против гонки вооружений и холодной войны. Войне - нет!
-
-Книга рассчитана на широкий круг читателей, интересующихся проблемами борьбы за мир, демографии, санитарно - демографических последствий современных войн.Жанр: История, политология, экономика, демография, социология, публицистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2883D31551FE6669F733E93B1D200CDD639B6EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

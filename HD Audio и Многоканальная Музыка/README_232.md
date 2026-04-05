@@ -1,33 +1,3 @@
-###  Публикация: 1648817   (38123) от 06.11.2024
-
-Sonata Arctica - Studio Albums (16 releases) (1999-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sonata Arctica — пауэр-метал-группа из Кеми, Финляндия, действующая с 1999 года.
-Первоначально основанная в 1996 году как хард-рок-группа Tricky Beans (позже Tricky Means), группа остановилась на названии Sonata Arctica в 1999 году, поскольку их музыкальный стиль изменился на пауэр-метал, вдохновленный Stratovarius.1999 - Ecliptica
-2001 - Silence
-2003 - Winterheart's Guild
-2004 - Reckoning NightЖанр: Power MetalПродолжительность: 16:10:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:255B3A5253A42123A7784089EF934C2F28358006
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684807   (37977) от 07.11.2024
 
 Astral Doors - Studio Albums (10 releases) (2003-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
@@ -36,7 +6,7 @@ Astral Doors - Studio Albums (10 releases) (2003-2024) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37977.jpg" />
 </div>
 
 
@@ -65,7 +35,7 @@ Eldest 11 - Studio Albums (10 releases) (2009-2024) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37910.jpg" />
 </div>
 
 
@@ -94,7 +64,7 @@ Neal Morse - No Hill For A Climber (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37877.jpg" />
 </div>
 
 
@@ -123,7 +93,7 @@ Delain - Studio Albums (11 releases) (2006-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37797.jpg" />
 </div>
 
 
@@ -152,7 +122,7 @@ Depressive Witches - Studio Albums (3 releases) (2021-2024) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37774.jpg" />
 </div>
 
 
@@ -180,7 +150,7 @@ Paragon - Studio Albums (13 releases) (1995-2024) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37759.jpg" />
 </div>
 
 
@@ -209,7 +179,7 @@ Jean Michel Jarre - Zoolook (1984) 40th Anniversary - new mastering, 2024, Sony 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37757.jpg" />
 </div>
 
 
@@ -238,7 +208,7 @@ Primal Scream - Come Ahead (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alterna
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37670.jpg" />
 </div>
 
 
@@ -267,7 +237,7 @@ Annalisa - E Poi Siamo Finiti Nel Vortice (2023)  [DSD64 2.0|1bit/2822,4kHz |SAC
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37656.jpg" />
 </div>
 
 
@@ -296,7 +266,7 @@ Crippled Black Phoenix - The Wolf Changes Its Fur But Not Its Nature (2024) [FLA
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37577.jpg" />
 </div>
 
 
@@ -325,7 +295,7 @@ Shaka Ponk - Shaka Ponk (2023) Deluxe Edition, 2024, Tot Ou Tard [FLAC 24/44.1|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37570.jpg" />
 </div>
 
 
@@ -354,7 +324,7 @@ Blind Guardian - Studio Albums (13 releases) (1988-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37545.jpg" />
 </div>
 
 
@@ -384,7 +354,7 @@ Kreator - Studio Albums (9 releases) (1995-2022) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37507.jpg" />
 </div>
 
 
@@ -413,7 +383,7 @@ Citizen Soldier - Icarus (2024) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Alt.Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37370.jpg" />
 </div>
 
 
@@ -442,7 +412,7 @@ The Black Keys - Ohio Players (Trophy Edition) (2024) [FLAC 24/96|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37313.jpg" />
 </div>
 
 
@@ -471,7 +441,7 @@ di liberta - Dictum (2020) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indi Folk, Dar
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37312.jpg" />
 </div>
 
 
@@ -500,7 +470,7 @@ Linkin Park - From Zero (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37302.jpg" />
 </div>
 
 
@@ -529,7 +499,7 @@ Lionville - Supernatural (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37293.jpg" />
 </div>
 
 
@@ -558,7 +528,7 @@ As I Lay Dying - Through Storms Ahead (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37291.jpg" />
 </div>
 
 
@@ -587,7 +557,7 @@ Starchaser - Into The Great Unknown (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37290.jpg" />
 </div>
 
 
@@ -616,7 +586,7 @@ Abc - 2 Albums (2022, 2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37289.jpg" />
 </div>
 
 
@@ -645,7 +615,7 @@ George Harrison - Living in the Material World (50th Anniversary) (1973) Reissue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37284.jpg" />
 </div>
 
 
@@ -674,7 +644,7 @@ Nickelback - Live From Nashville (Live From Nashville) (2024) [FLAC 24/96|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37278.jpg" />
 </div>
 
 
@@ -703,7 +673,7 @@ Trapeze - Lost Tapes, Vol. 2 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37271.jpg" />
 </div>
 
 
@@ -732,7 +702,7 @@ Grey Attack - Back to Greysland (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Mo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37269.jpg" />
 </div>
 
 
@@ -746,6 +716,35 @@ Grey Attack - Back to Greysland (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Mo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B478457299A7E2BE2014388B87AB29ABBB454519
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760630   (37231) от 15.11.2024
+
+Godsmack - IV (2006) Reissue, 2024, Universal Records [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative metal, hard rock, heavy metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Livin In Sin (4:40)
+02. Speak (New Version) (3:57)
+03. The Enemy (4:07)
+04. Shine Down (5:01)(   Читать дальше...   )Жанр: Alternative metal, hard rock, heavy metalПродолжительность: 01:01:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7877EC77C7DE4C21FAF358A1217C8DE8E223AFF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

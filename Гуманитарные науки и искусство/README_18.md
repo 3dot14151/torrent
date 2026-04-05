@@ -1,82 +1,3 @@
-###  Публикация: 1365820   (927068) от 09.03.2020
-
-Г. Шнейкерт | Тайна преступника и пути к ее раскрытию. Выпуск II [К учению о судебных доказательствах] (1925) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Печатаемая в русском переводе книжка начальника берлинского бюро по идентификации и преподавателя криминалистки в берлинском университете Ганса Шиейкерта Verheimlichte Tatbestände und ihre Erforschung (Berlin, 1924) представляет собою в развитом виде доклад, прочитанный автором в начале 1924 года в берлинском Психологическом Обществе. Автор ставит своею задачей (   Читать дальше...   )Жанр: История, политология, правоведение, социология, криминалистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E690A94C5C3F4D5964899C7CC5EBDFEC420B6FA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365766   (927004) от 09.03.2020
-
-Скотт Беркун | Откровения оратора (2019) [EPUB]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Благодаря этой книге каждый желающий сможет освоить непростое искусство ораторства и научиться выступать перед публикой так, чтобы все не просто слушали, но и слышали оратора.
-Автор подробно рассказывает о самых важных составляющих публичных выступлений. Как преодолеть страхи? Как работать со сложной аудиторией? О чем следует помнить во время выступления с микрофоном? (   Читать дальше...   )Жанр: Ораторское искусствоПеревод: Татьяна ЗемлерубФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A25F859C4F29DD58964802AA66668630B4D5C16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095374   (926192) от 20.01.2017
-
-Т.В. Симашко (сост.) | Проблемы концептуализации действительности и моделирования языковой картины мира: [Выпуск 6] (2013) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлены статьи лингвистов, литературоведов, философов и педагогов, принявших участие в VI Международной конференции, проведенной в октябре 2013 года в г. Северодвинске. На основе различных подходов раскрывается семантика разнообразных единиц в лингвокогнитивном, лингвокультурологическом, в этнокультурном аспектах. Значительное внимание уделяется описанию актуальной (   Читать дальше...   )Жанр: Лингвистика, филология, философияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29F634D0432ABB8EB03872FDC8BC433911BC281A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095356   (925957) от 20.01.2017
 
 Подборка книг | Антология гуманной педагогики [42 книги] (2000 - 2012) [PDF]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925957.jpg" />
 </div>
 
 
@@ -112,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925842.jpg" />
 </div>
 
 
@@ -138,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924547.jpg" />
 </div>
 
 
@@ -164,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924496.jpg" />
 </div>
 
 
@@ -192,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924461.jpg" />
 </div>
 
 
@@ -218,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924460.jpg" />
 </div>
 
 
@@ -244,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924403.jpg" />
 </div>
 
 
@@ -270,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924390.jpg" />
 </div>
 
 
@@ -298,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924380.jpg" />
 </div>
 
 
@@ -326,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923842.jpg" />
 </div>
 
 
@@ -352,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923723.jpg" />
 </div>
 
 
@@ -379,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923449.jpg" />
 </div>
 
 
@@ -406,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922885.jpg" />
 </div>
 
 
@@ -432,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922536.jpg" />
 </div>
 
 
@@ -458,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921743.jpg" />
 </div>
 
 
@@ -484,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921442.jpg" />
 </div>
 
 
@@ -511,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_921424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_921424.jpg" />
 </div>
 
 
@@ -537,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921000.jpg" />
 </div>
 
 
@@ -563,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920987.jpg" />
 </div>
 
 
@@ -589,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920982.jpg" />
 </div>
 
 
@@ -617,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920921.jpg" />
 </div>
 
 
@@ -643,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920850.jpg" />
 </div>
 
 
@@ -671,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919943.jpg" />
 </div>
 
 
@@ -682,6 +603,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5F8C6F196067B308109B3062641A471133228C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096057   (919342) от 24.01.2017
+
+В. С. Нерсесянц (отв. ред.) | История политических и правовых учений. Средние века и Возрождение (1986) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919342.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге исследуются основные направления развития политико-правового знания в эпоху средневековья и Возрождения. Предпринят анализ взглядов ведущих мыслителей и позиций наиболее влиятельных школ рассматриваемой эпохи. Выявляются закономерности формирования и эволюции политических и юридических воззрений данного времени, особенности их функционирования. Освещаются (   Читать дальше...   )Жанр: История, политология, правоведениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5CF52FC1DCA4969EF6289196D8EDD469DCF2131
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096029   (919323) от 24.01.2017
+
+Д. Бориско | Что такое социализм? (1915) [PDF] [Ua]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Социализм есть то общество, которое вырастает из капитализма непосредственно, есть первый вид нового общества. Коммунизм же есть более высокий вид общества, и он может развиваться лишь тогда, когда вполне упрочится социализм.Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA6876E64F0E3F87A13A3744A1F5863D73B94FEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988777   (918955) от 21.02.2016
+
+Т.Я. Хабриева (ред.) | Коррупция: природа, проявления, противодействие (2013) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монография посвящена исследованию институтов и механизмов правовой системы Российской Федерации, направленных на предупреждение и борьбу с коррупцией.
+Раскрываются сущность и фундаментальные демократические принципы антикоррупционной политики в России, формы проявления коррупции в различных сферах жизни общества и государства. Впервые проведен комплексный анализ (   Читать дальше...   )Жанр: Право, борьба с коррупцией, государство и бизнесФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17EC1064983B5F4213E771ACE5A72925827778A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

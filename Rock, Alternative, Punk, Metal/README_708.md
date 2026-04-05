@@ -1,3 +1,32 @@
+###  Публикация: 1329603   (350391) от 06.10.2019
+
+7th Circle - Collective Minds (2000) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Collective Minds
+02. Broken Jar
+03. Silent Sentence
+04. Black Feathers(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0383F7FD58CCC770D1CC546B2FED50E7745ABD84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329609   (350389) от 06.10.2019
 
 Crystal Eyes - In Silence They March (2000) [FLAC|Lossless|image + .cue] <Power Metal>
@@ -6,7 +35,7 @@ Crystal Eyes - In Silence They March (2000) [FLAC|Lossless|image + .cue] <Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350389.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Creepmime - Shadows (1993) [FLAC|Lossless|image + .cue] <Thrash, Prog Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350308.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Warhog - Call Of The Voyager (2022) [MP3|320 Kbps] <Heavy, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350307.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Destrage - So Much. Too Much (2022) [MP3|320 Kbps] <Avantgarde, Progressive Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350306.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Atan - Ugly Monster (2022) [MP3|320 Kbps] <Progressive Rock, Djent, Prog-Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350305.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350304.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Nemo - Les nouveaux mondes (2002) Remaster, 2022, Quadrifonic [FLAC|Lossless|WEB
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350302.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Tallah - 2 Albums (2020-2022) [MP3|219-271 kbps VBR/320 kbps] <Nu Metal, Metalco
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350300.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ White Hills - 3 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350299.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Rocking Horse Music Club - Circus of Wire Dolls (2022) 2CD [FLAC|Lossless|WEB-DL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350297.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350295.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Blond Viper - Crash (2021) [MP3|320 Kbps] <Classic Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350294.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Nautilus - A Floating City (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350289.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Crystal Eyes - Chained (2008) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350287.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Aftermath - Eyes Of Tomorrow (1994) [FLAC|Lossless|image + .cue] <Technical Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350286.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ As I Lay Dying - Shaped by Fire (2019) [FLAC|Lossless|tracks + .cue] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350272.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Lita Ford - Dangerous Curves (1991) Japanese Edition [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350269.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Roger Taylor - 5 albums (1981-2013) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_350232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_350232.jpg" />
 </div>
 
 
@@ -534,7 +563,7 @@ Marillion - Holidays In Eden (1991) 3CD, Deluxe Edition, 2022 [MP3|320 Kbps] <Pr
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350165.jpg" />
 </div>
 
 
@@ -563,7 +592,7 @@ Shanghai - Shanghai (1982) LP [MP3|320 Kbps] <Rock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350156.jpg" />
 </div>
 
 
@@ -592,7 +621,7 @@ VA - Rock Sound: Sound Check No. 126 (2009) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350142.jpg" />
 </div>
 
 
@@ -621,7 +650,7 @@ God's Army - Demoncracy (2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350141.jpg" />
 </div>
 
 
@@ -650,7 +679,7 @@ VA - Rock Sound: Sound Check No. 122 (2009) [FLAC|Lossless|tracks + .cue] <Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350140.jpg" />
 </div>
 
 
@@ -679,7 +708,7 @@ VA - Rock Sound: Sound Check No. 124 (2009) [FLAC|Lossless|tracks + .cue] <Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350139.jpg" />
 </div>
 
 
@@ -708,7 +737,7 @@ Khraken - Podredumbre (2016) [MP3|320 Kbps] <Death Metal, Grindcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350134.jpg" />
 </div>
 
 
@@ -722,35 +751,6 @@ Khraken - Podredumbre (2016) [MP3|320 Kbps] <Death Metal, Grindcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77DCB5FA9089E78851CA1F182C010E67C4CD7FC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072854   (350132) от 14.11.2016
-
-Three Thirteen - Dawn of the Shred (2016) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (Welcome to Hell) Devil in the Flesh 05:33
-02. Brain Damage (Undead) 04:13
-03. American Massacre 04:31
-04. Evilution 04:28(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:793AB9157528A08E193BE9FDEF213385E7FE897E
 ```
 
 https://mybot314.ru/tekegram_catalog/

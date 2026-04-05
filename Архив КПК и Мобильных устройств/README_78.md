@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355097.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Docs To Go - Premium Office Suite v4.002 build 1508 [Ru/Multi]  -
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354925.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Doom 3 : BFG Edition v1.1.9 [Multi+Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354918.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Daydream 1.0.161019143 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354692.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_354393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_354393.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Drivemode: Driving interface 4.12.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354360.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ GO Speed (Cleaner & Boost) 2.7.6 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354246.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Adobe Photoshop Lightroom 2.2 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354015.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ WhatsApp Messenger 2.16.352 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354012.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Slender Man Origins 1 HD v1.03 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353404.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Slender Man Saga v0.7.5 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353402.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Slender Man! Chapter 1: Alone / Тонкий человек Эпизод 1 v7.04
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353326.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Slender Man Origins 2 Saga v1.0.5+Mod Money [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353304.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Prune v1.0.33 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353301.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Stick Stunt Biker (1.3) [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_353221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_353221.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353174.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ SlenderMan Origins 3 Full Paid V1.15 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353165.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Spirit HD v1.5.8 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_352937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_352937.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Autostarts v1.9.7 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351043.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ AIDA64 for Android 1.30 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350872.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Lab of the Dead v1.7 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_350767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_350767.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Microsoft Selfie 1.0.2 [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349732.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ LOCKit 1.1.98_ww [Ru/Multi] Mod
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349725.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ TV Apps Drawer 1.0.7.5 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349541.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349242.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348984.jpg" />
 </div>
 
 

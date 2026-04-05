@@ -1,3 +1,133 @@
+###  Публикация: 1696909   (119172) от 05.02.2024
+
+На старт! / Chage & Aska: On Your Mark (1995) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119172.jpg" />
+</div>
+
+
+###  Подробнее
+
+В будущем все заражено радиацией и люди живут в огромном защищенном мегаполисе. Полиция во время штурма здания, принадлежащего секте, находит девушку с крыльями ангела, но ученые тут же помещают ее в лабораторию под стражу. Но для двух полицейских, нашедших ее, это кажется неправильным и они пытаются ее спасти.Производство: Япония / Studio GhibliЖанр: аниме, мультфильм, короткометражка, фантастика, музыка, драма, приключенияРежиссер: Хаяо МиядзакиПеревод: Не требуется (нет диалогов и озвученных комментариев)Язык озвучки: Японский, АнглийскийСубтитры: русскиеПродолжительность: 00:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8EA3A1CC9B67C892EA589ACB029F288C8DA817C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697134   (119166) от 05.02.2024
+
+Хулиганка Тиэ / Jarinko Chie / Chie the Brat (1981) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пятикласснице Тиэ некогда корпеть над уроками, у нее есть заботы поважнее. Ей надо вести семейный бизнес – хозяйничать в маленькой распивочной-закусочной (жарить шашлыки, наливать саке, мыть посуду, принимать оплату и сверять баланс), а также приглядывать за отцом, великовозрастным разгильдяем, который только и горазд заключать идиотские пари, играть в карты да кости, (   Читать дальше...   )Производство: Япония / TMS Entertainment, Toho CompanyЖанр: аниме, мультфильм, комедия, семейныйРежиссер: Исао ТакахатаПеревод: Одноголосый любительский (Юки)Язык озвучки: Русский, ЯпонскийСубтитры: русскиеПродолжительность: 01:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABAABF6CFF243131CE9871A6B4C0FE3F6E97F58D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697487   (118781) от 07.02.2024
+
+Объяснялкины (2023) WEB-DLRip (1 сезон, серии 1-8 из 8)
+
+>>Мультфильмы
+>>Отечественные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семья, которая снимает образовательное шоу, подписывает контракт со стримингом, и согласно договору персонажи не могут стареть и умирать, а также должны жить в квартире пожилых родителей. Батёк, Мамуля, Дед и Бабуля в каждой серии отвечают на вопрос, который им задаёт Сынуля. Когда-то семья считала это шоу ламповым и получала удовольствие от съёмок, но теперь им (   Читать дальше...   )Производство: Россия, Nerds, Плюс СтудияЖанр: мультсериал для взрослых, кoмедия, рисованныйРежиссер: Евгений БлинниковАктеры: Дмитрий Сыендук, Виктория Зайцева, Полина Авдеенко, Егор Лоскутов, Александр Васильев, Александр Койгеров, Алексей Макрецкий, Валерий Чеботаев, Елизавета Чабан, Иван ЧабанПеревод: Не требуется (Русский)Продолжительность: 8 x ~ 00:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:371BCDB54B32A9E81810D319D007B44B53D430C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697477   (118779) от 07.02.2024
+
+Объяснялкины (2023) WEB-DL [H.264/1080p] (1 сезон, серии 1-8 из 8)
+
+>>Мультфильмы
+>>Отечественные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семья, которая снимает образовательное шоу, подписывает контракт со стримингом, и согласно договору персонажи не могут стареть и умирать, а также должны жить в квартире пожилых родителей. Батёк, Мамуля, Дед и Бабуля в каждой серии отвечают на вопрос, который им задаёт Сынуля. Когда-то семья считала это шоу ламповым и получала удовольствие от съёмок, но теперь им (   Читать дальше...   )Производство: Россия, Nerds, Плюс СтудияЖанр: мультсериал для взрослых, кoмедия, рисованныйРежиссер: Евгений БлинниковАктеры: Дмитрий Сыендук, Виктория Зайцева, Полина Авдеенко, Егор Лоскутов, Александр Васильев, Александр Койгеров, Алексей Макрецкий, Валерий Чеботаев, Елизавета Чабан, Иван ЧабанПеревод: Не требуется (Русский)Субтитры: Русские (Full)Продолжительность: 8 x ~ 00:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21C2FB653047D74A96E31FF8F9F682E243BD7871
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698299   (118684) от 08.02.2024
+
+Плохой кот / Kotu Kedi Serafettin / Bad Cat (2016) WEBRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кот Шерафеттин — смелый и ироничный, веселый и нелепый. А ещё очень независимый кот, который старается решать все свои проблемы самостоятельно. Часто из этого вырастает еще больше неприятностей.Производство: Турция / Anima Istanbul, Kare Kare Film YapimЖанр: мультфильм, фэнтези, боевик, комедия, приключенияРежиссер: Мехмет Куртулуш, Айше УналАктеры: Угур Юджель, Демет Эвгар, Окан Ялабык, Гювен Кырач, Гёкче Озиоль, Ахмет Мюмтаз Тайлан, Йекта Копан, Айшен Груда, Джезми Баскын, Озан КуртулушПеревод: Дублированный (Back Board Cinema)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:22:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75318365157B9A2675E9133F63F4944093B0EC70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697646   (118669) от 08.02.2024
 
 Великолепная пятерка (2023) WEB-DL [H.264/1080p]
@@ -6,7 +136,7 @@
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118669.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118613.jpg" />
 </div>
 
 
@@ -59,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118479.jpg" />
 </div>
 
 
@@ -85,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118459.jpg" />
 </div>
 
 
@@ -112,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118359.jpg" />
 </div>
 
 
@@ -138,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118190.jpg" />
 </div>
 
 
@@ -164,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118181.jpg" />
 </div>
 
 
@@ -190,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118179.jpg" />
 </div>
 
 
@@ -216,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118166.jpg" />
 </div>
 
 
@@ -244,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118164.jpg" />
 </div>
 
 
@@ -271,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118153.jpg" />
 </div>
 
 
@@ -297,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118132.jpg" />
 </div>
 
 
@@ -323,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118053.jpg" />
 </div>
 
 
@@ -349,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118032.jpg" />
 </div>
 
 
@@ -375,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118020.jpg" />
 </div>
 
 
@@ -403,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118013.jpg" />
 </div>
 
 
@@ -429,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117999.jpg" />
 </div>
 
 
@@ -455,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117981.jpg" />
 </div>
 
 
@@ -481,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117825.jpg" />
 </div>
 
 
@@ -507,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117739.jpg" />
 </div>
 
 
@@ -533,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117636.jpg" />
 </div>
 
 
@@ -544,136 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69EA65803CB8AA9146188CD68E695772A7592914
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823142   (117545) от 10.10.2025
-
-Ацтекский Бэтмен: Столкновение империй / Batman Azteca: Choque De Imperios (2025) BDRip [H.264/1080p] [MVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117545.jpg" />
-</div>
-
-
-###  Подробнее
-
-События мультфильма разворачиваются во времена Ацтекской империи и рассказывают историю мальчика по имени Йоуалли Коатль, который переживает страшную утрату: его отец и вождь поселения Толтекацин убит испанскими конкистадорами. Ведомый местью и желанием защитить свой народ от захватчиков, Йоуалли обустраивает храм бога летучих мышей Цинакана в качестве логова и начинает (   Читать дальше...   )Производство: Мексика, США / Anima Estudios, DC Entertainment, Particular Crowd, Warner Bros. AnimationЖанр: мультфильм, фантастика, фэнтези, боевик, приключенияРежиссер: Хуан Хосе Меса-ЛеонАктеры: Альваро Морте, Омар Чапарро, Хорхе Р. Гутьеррес, Горасио Гарсиа Рохас, Хосе Карлос ИльянесПеревод: Многоголосый (HDRezka Studio, LostFilm)Язык озвучки: Русский, ИспанскийСубтитры: Русские (Forced, Full), Испанские,Английские (Forced, Full)Продолжительность: 01:29:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82F89D0C8854DCCEFBC0A690A774A76518517C39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700055   (117415) от 15.02.2024
-
-Снежные истории / Snowsnaps (2018) WEB-DL (1 сезон, серии 1-52 из 52)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вайолет, Томас, Сэмми и Кики — друзья не разлей вода. Им всего по 6 лет, но они уже готовы к борьбе с окружающим миром. Ведь их воображение не знает границ! Друзья постоянно изобретают и пробуют что-то новое. То устроят сверхскоростные снежные гонки, чтобы выиграть самый вкусный на свете капкейк. То решат потренировать свои балетные способности. А то вообще начнут (   Читать дальше...   )Производство: Канада, Treehouse TVЖанр: приключения, детскийРежиссер: Ричард ДюмонАктеры: Сатине Скарлет Монтас, Кимиа Эсфахани, Элла Роуз КодеррПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 52 x ~ 00:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2608BB5B26419E46478D92BA765660BFF9C3E5AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700191   (117329) от 16.02.2024
-
-Тролли 3 / Trolls Band Together (2023) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Розочка узнает, что её возлюбленный Цветан когда-то был частью её любимого бойз-бэнда «Братаны» вместе со своими четырьмя братьями. Группа распалась, когда Цветан был ещё младенцем, и с тех пор он не видел своих братьев, но когда одного из них похищают неизвестные злодеи, Цветан и Розочка отправляются в путешествие, чтобы наконец-то воссоединить семью с помощью волшебной (   Читать дальше...   )Производство: США, DreamWorks AnimationЖанр: мультфильм, фэнтези, комедия, приключения, семейный, музыкаРежиссер: Уолт Дорн, Тим ХейцАктеры: Анна Кендрик, Джастин Тимберлейк, Камила Кабейо, Эрик Андре, Кид Кади, Кенан Томпсон, Уолт Дорн, Андерсон Паак, Рон Фанчес, Кунал НэйэрПеревод: Дублированный (Bravo Records Georgia / Movie Dubbing)Субтитры: Русские (форсированные на песни, полные без песен), английскиеПродолжительность: 01:31:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E984858118578F1F227804A35D6CB1C194C533DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700336   (117322) от 16.02.2024
-
-Три богатыря и Пуп Земли (2023) WEB-DLRip [H.264]
-
->>Мультфильмы
->>Отечественные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117322.jpg" />
-</div>
-
-
-###  Подробнее
-
-По сказкам мы знаем, что было давным-давно, но что было еще давным-давнее? Трем богатырям предстоит узнать ответ на этот вопрос, хоть они его и не задавали. Тут такое началось, что игогошеньки! Горыныч вдруг находит динозаврика, а Алеша Попович с Князем и конем Юлием буквально проваливаются сквозь землю. Теперь надо срочно понять, как вернуть их назад в будущее. (   Читать дальше...   )Производство: Россия / Кинокомпания CTB / СТВ, Анимационная студия «Мельница»Жанр: мультфильм, приключения, семейныйРежиссер: Константин ФеоктистовАктеры: Олег Куликович, Валерий Соловьев, Дмитрий Быковский-Ромашов, Сергей Маковецкий, Дмитрий Высоцкий, Анатолий Петров, Михаил Черняк, Алиса Боярская, Лия Медведева, Юлия ЗоркинаСубтитры: ОтсутствуютПродолжительность: 01:25:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7087CC8874785C08841B7A87A9B9B772D50E8E3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700247   (117292) от 16.02.2024
-
-Три богатыря и Пуп Земли (2023) WEB-DL [H.264/720p]
-
->>Мультфильмы
->>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117292.jpg" />
-</div>
-
-
-###  Подробнее
-
-По сказкам мы знаем, что было давным-давно, но что было еще давным-давнее? Трем богатырям предстоит узнать ответ на этот вопрос, хоть они его и не задавали. Тут такое началось, что игогошеньки! Горыныч вдруг находит динозаврика, а Алеша Попович с Князем и конем Юлием буквально проваливаются сквозь землю. Теперь надо срочно понять, как вернуть их назад в будущее. (   Читать дальше...   )Производство: Россия / Кинокомпания CTB / СТВ, Анимационная студия «Мельница»Жанр: мультфильм, приключения, семейныйРежиссер: Константин ФеоктистовАктеры: Олег Куликович, Валерий Соловьев, Дмитрий Быковский-Ромашов, Сергей Маковецкий, Дмитрий Высоцкий, Анатолий Петров, Михаил Черняк, Алиса Боярская, Лия Медведева, Юлия ЗоркинаСубтитры: отсутствуютПродолжительность: 01:25:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BA31BB343B445F6467A6820EA7DF88F46668179
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,137 +1,3 @@
-###  Публикация: 1014065   (776939) от 06.05.2016
-
-Владимир Бойко | Черноморский Подплав, 1907–1935 (2016) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая книга об истории становления Черноморского Подплава впервые наиболее полно рассказывает о Подводных Силах Черноморского флота за период с 1907 по 1935 года.
-
-Эта книга своего рода обращение к памяти прошлого, на страницах которой вы увидите людей необычной и очень рискованной профессии – подводников, узнаете историю создания Подводного Флота, получите интересную (   Читать дальше...   )Жанр: История, Военная документалистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6DDE5183E82A7A56E12577286E059E54799367A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013579   (776922) от 06.05.2016
-
-Я. Буриан, Б. Моухова | Загадочные этруски (1970) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этрурия — древнее государство в центре Италии, достигшее расцвета еще до возникновения Рима. Впоследствии римляне, желая доказать, что они произошли от богов, постарались изгладить следы этрусков из памяти человечества. Двести лет назад перед изумленным миром предстали великолепные произведения искусства древнего мира, о котором до сих пор почти ничего не известно. (   Читать дальше...   )Жанр: ИсторияПеревод: П. Н. АнтоновФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED289DA4FFAC97CF4611EDE6EAB7827D4E0A68B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013395   (776919) от 06.05.2016
-
-Р. Д. Лэйнг | Феноменология переживания. Райская птичка. О важном (2005) [PDF, DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776919.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книгу знаменитого психиатра-экзистенциалиста, философа феноменологической школы и поэта включены две этапные работы, в которых подвергаются пересмотру традиционные ценности современной культуры.Жанр: ФилософияПеревод: Е. Н. Махнычева, С. В. ПоповФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18F4D482BED770A025E0CF932ADBF72C2DE97E5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211764   (776908) от 09.03.2018
-
-Э. Миловидова | Женский вопрос и женское движение. Хрестоматия (1929) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776908.jpg" />
-</div>
-
-
-###  Подробнее
-
-При составлении хрестоматии мы преследовали цель — дать товарищам, интересующимся вопросами теории и практики женского движения, возможность проследить эти вопросы по основным этапам развития. Хрестоматия заключает в себе основные разделы по обзору социального и экономического положения женщины во всех важнейших общественных формациях, буржуазные, мелкобуржуазные (   Читать дальше...   )Жанр: История, политология, экономика, правоведение, социология, хрестоматияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2775BE5CF321290404B536756EC530838EA005DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211740   (776905) от 09.03.2018
-
-М. М. Литвинов | Против агрессии (1938) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776905.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящей книге собраны основные выступления т. Литвинова и документы, характеризующие борьбу Советского Союза против агрессии. Выступления наркома иностранных дел т. Литвинова и договоры, заключаемые Советским Союзом в целях предотвращения военной опасности, представляют собой важнейшие элементы внешней политики Советского Союза.
-
-Документы, содержащиеся в настоящей (   Читать дальше...   )Жанр: История, политология, экономика, дипломатия, документалистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E981D479D80EE6B638612CF48E2E0A2252C8562B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1013598   (776896) от 06.05.2016
 
 А. Д. Гусаков, И. А. Дымшиц | Денежное обращение и кредит СССР (1951) [DJVU]
@@ -140,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776896.jpg" />
 </div>
 
 
@@ -167,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776895.jpg" />
 </div>
 
 
@@ -194,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776880.jpg" />
 </div>
 
 
@@ -220,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776866.jpg" />
 </div>
 
 
@@ -246,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776856.jpg" />
 </div>
 
 
@@ -272,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776853.jpg" />
 </div>
 
 
@@ -298,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776845.jpg" />
 </div>
 
 
@@ -324,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776844.jpg" />
 </div>
 
 
@@ -350,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776840.jpg" />
 </div>
 
 
@@ -379,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776835.jpg" />
 </div>
 
 
@@ -408,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776824.jpg" />
 </div>
 
 
@@ -434,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776804.jpg" />
 </div>
 
 
@@ -460,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776794.jpg" />
 </div>
 
 
@@ -486,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776790.jpg" />
 </div>
 
 
@@ -512,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776787.jpg" />
 </div>
 
 
@@ -538,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776777.jpg" />
 </div>
 
 
@@ -564,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776770.jpg" />
 </div>
 
 
@@ -590,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776754.jpg" />
 </div>
 
 
@@ -617,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776407.jpg" />
 </div>
 
 
@@ -643,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776400.jpg" />
 </div>
 
 
@@ -672,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776373.jpg" />
 </div>
 
 
@@ -683,6 +549,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4644F687C17692DD1AA1A338FB160B8883AAC30F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212160   (776350) от 10.03.2018
+
+Н.В. Белов | Моя профессия электрик (2004) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга знакомит читателя с самыми распространенными работами, связанными с электричеством, которые можно выполнять в домашних условиях. Даются ценные рекомендации по приобретению и использованию материалов и инструментов.Жанр: ЭлектротехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF9ABDB5D59AC61FFDEA598B3407AB73F00DDE88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014118   (776297) от 07.05.2016
+
+Дина Никуличева | Говорим, читаем, пишем: лингвистические и психологические стратегии полиглотов (2013) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга является второй в авторской серии, посвященной практическому применению лингводидактических стратегий полиглотов – наших современников (Дмитрия Петрова, Ирины Шубиной, Вилли Мельникова, Тимоти Донера и др.). Обсуждаются конкретные стратегии и техники того, как самостоятельного совершенствовать речевые навыки – как на начальном, так и на продвинутом уровне, (   Читать дальше...   )Жанр: Английский языкФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C57D30184A25C3AD7BC7A82EAC7B64346D185DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014046   (776173) от 08.05.2016
+
+Владимир Бойко | История бухты Голландия в Севастополе (2016) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776173.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга об одном из удивительных уголков города Севастополя – бухте Голландия. Читатель найдет здесь много редких и даже уникальных фактов из истории как самой бухты Голландия, учебных заведений, воинских частей, дислоцировавшихся в бухте, так и всего Севастополя. Прочитав вы узнаете – почему в Европе считали, что самые вкусные устрицы из бухты Голландия? Как и (   Читать дальше...   )Жанр: История, ПутеводителиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3EA5527753925C1661182200EAE8990101DCB5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014507   (776072) от 08.05.2016
+
+Л. Н. Колосова (ред.) | Коста-Рика, Панама. Справочная карта (1988) [JPG, PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776072.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данное издание входят:
+1) Подробная справочная карта двух государств — Коста-Рики и Панамы с административным делением (масштаб 1:1 500 000).
+2) Указатель географических названий в алфавитном порядке.
+3) Обложка с выходными данными.(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8150E7FC469B8B8AFD1389C4FECA0A2AA31D6FD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014789   (776025) от 08.05.2016
+
+Книжная серия | Титаны XX века [18 книг] (2011-2014) [FB2, DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776025.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия «Титаны ХХ века» собрала в себе книги великих мировых философов, политиков, революционеров: Махатма Ганди, Эрнесто Че Гевара, Франклина Рузвельта и других...Жанр: Биографии и Мемуары, ИсторияФормат: FB2, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F034926905EF9E264F518F166EF5CED164FA95FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

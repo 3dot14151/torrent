@@ -1,133 +1,3 @@
-###  Публикация: 1690365   (124084) от 06.01.2024
-
-В.И. Рейзлин | Язык С++ и программирование на нём (2021) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124084.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии изложены основы программирования на популярном языке высокого уровня C++. Отражены следующие темы: структура программы, типы данных, операции, операторы, функции, классы хранения и видимость переменных, указатели и работа с массивами, классы, основы объектно ориентированного программирования, списки, стеки, очереди, двоичные деревья, потоки ввода-вывода. (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Томский политехнический университетФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:083B840EC8152DE99B6A5DC5C59BDC98DD9650BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690238   (124073) от 06.01.2024
-
-В.Н.Цуканов, М.Я.Яковлев | Волоконно-оптическая техника. Практическое руководство 4-е изд., испр. и доп. (2019) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрена отечественная волоконно-оптическая компонентная база, предназначенная для жестких условий эксплуатации. Приведены основные технические характеристики волоконно-оптических компонентов и методы их измерения. Предложены методы контроля параметров безотказности с учетом принципиальных отличий волоконно-оптических компонентов от электронных. Даны практические (   Читать дальше...   )Жанр: ЭлектроникаИздательство: Инфра-инженерияФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16E9079EBE488272293FF76B5AABF1C7733EE318
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690261   (124057) от 06.01.2024
-
-В.В. Павлоградский, В.В. Пальчиковский | C++Builder Учебный курс (2014) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124057.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассматриваются вопросы разработки приложений для операционной системы Windows в среде программирования C++Builder. Рассмотрены особенности компонентного подхода к проектированию программ и визуальной технологии программирования. Большое внимание уделено практическому аспекту разработки приложений, дан обзор основных компонентов C++Builder, приведены примеры их использования (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Пермский НИПУФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B5FD219679374F353DC0BED84A142489BEB13B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690564   (123974) от 07.01.2024
-
-Андрей Харитонов, Екатерина Мартинович | Мифы и легенды гастроэнтерологии. Гастрит не болит и другие разоблачения (2023) [EPUB]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга развенчивает популярные заблуждения, связанные со здоровьем желудка и кишечника. Например, что суп улучшает пищеварение, нет яда страшнее чипсов, глютен -зло, а желчь необходимо гнать. Гастроэнтеролог, кандидат медицинских наук Андрей Харитонов знает, как мифы снижают качество жизни: приводят к запретам в еде, ненужным ритуалам с пищей, бесполезным обследованиям (   Читать дальше...   )Жанр: Здоровье, Популярно о медицинеИздательство: ИД Комсомольская правдаФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6489071AA5C4F5AF524C91A4567135EF61F95DF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690517   (123966) от 07.01.2024
-
-Т.И. Родионова | Технологии программирования (2018) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123966.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии рассматривается история развития языков программирования и технологий программирования. В работе приведены этапы жизненного цикла программного обеспечения и описание документации на программный продукт. Подробно изложены принципы объектно-ориентированного программирования. В учебном пособии приведено большое количество примеров для иллюстрации излагаемого (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: УлГТУФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8BA1EB5D12CF1F5F280884EF94B6546628D0555
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690404   (123957) от 07.01.2024
 
 Т.Е. Родионова | Программирование на языке Си (2013) [PDF]
@@ -136,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123957.jpg" />
 </div>
 
 
@@ -162,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123854.jpg" />
 </div>
 
 
@@ -188,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123833.jpg" />
 </div>
 
 
@@ -214,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123822.jpg" />
 </div>
 
 
@@ -240,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123818.jpg" />
 </div>
 
 
@@ -267,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123675.jpg" />
 </div>
 
 
@@ -296,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123601.jpg" />
 </div>
 
 
@@ -323,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123458.jpg" />
 </div>
 
 
@@ -351,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123285.jpg" />
 </div>
 
 
@@ -378,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123174.jpg" />
 </div>
 
 
@@ -404,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123099.jpg" />
 </div>
 
 
@@ -430,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122976.jpg" />
 </div>
 
 
@@ -456,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122956.jpg" />
 </div>
 
 
@@ -482,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122944.jpg" />
 </div>
 
 
@@ -508,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122941.jpg" />
 </div>
 
 
@@ -534,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122833.jpg" />
 </div>
 
 
@@ -560,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122820.jpg" />
 </div>
 
 
@@ -587,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122817.jpg" />
 </div>
 
 
@@ -613,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122784.jpg" />
 </div>
 
 
@@ -640,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122779.jpg" />
 </div>
 
 
@@ -667,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122676.jpg" />
 </div>
 
 
@@ -678,6 +548,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A97E3B15A0C1B9019C1FF753A42FF45E1990395A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692408   (122613) от 16.01.2024
+
+Алина Аксёнова | История искусств. Просто о важном. Стили, направления и течения (2019) [EPUB]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы хотите научиться разбираться в искусстве – эта книга для вас. Она поможет вам понять, как искусство развивается, как оно устроено, и заговорить на языке искусства. С ней вы сможете разобраться в истории европейского искусства, научиться различать стили, направления и течения, а также понимать причины появления в искусстве тех или иных тенденций.
+Книга написана (   Читать дальше...   )Жанр: Искусствоведение, История искусстваИздательство: ЭксмоФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32EBDEA7C86A67565CAF2D0C1F1A0F2F8360AA10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692399   (122598) от 16.01.2024
+
+Егор Сартаков | Русская литература. Просто о важном. Писатели, жанры, произведения (2019) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если у образованного европейца или американца спросить, что он знает о русской культуре, обычно назовут два явления: великая русская литература и великий русский балет. Произведения Гоголя, Толстого, Достоевского, Чехова читают по всему миру. Эти писатели стоят в одном ряду с Гомером, Данте и Шекспиром и являются частью мировой культуры. Книга литературоведа Егора (   Читать дальше...   )Жанр: ЛитературоведениеИздательство: Эксмо, БомбораФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AA8DA3AD54FF858084BF6F294B2013D4CE79BF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692402   (122594) от 16.01.2024
+
+Алина Аксёнова | Искусство XX века. Ключи к пониманию: события, художники, эксперименты (2021) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Презираемое и окруженное насмешками или до крайности интеллектуальное искусство XX века изменило парадигмы, взорвало коды и избавилось от правил. Прошлый век, отличающийся ускоренной сменой авангардных движений, распространением новых практик, пулом единичных произведений, манифестов и заявлений художников, кажется одним из самых богатых и плодотворных моментов в (   Читать дальше...   )Жанр: Искусствоведение, история искусстваИздательство: ЭксмоФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:255374D918E8173C0E5BBC70B07DBC7381DBA91F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692590   (122410) от 17.01.2024
+
+Д.Ю. Косицин | Язык программирования Python (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное учебно-методическое пособие является дополнением к дисциплине «Скриптовые языки программирования (Python)» и содержит лекции с примерами и пояснениями. Материал разбит на главы, после которых помещены задачи для отработки изложенного материала. В издании рассматривается Python 3.x как основная версия языка, но приводится сравнение с Python 2.x и отличия между (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БГУФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:139D3CA2C8DE4545A2A77C54E766F450A483F885
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692941   (122254) от 18.01.2024
+
+Семён Федосеев, Алексей Ардашев | Снайперы. Самая полная энциклопедия (2021) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122254.jpg" />
+</div>
+
+
+###  Подробнее
+
+САМАЯ ПОЛНАЯ ЭНЦИКЛОПЕДИЯ СНАЙПЕРСКОГО ИСКУССТВА. Не ремесла, а именно искусства! – ведь точность выстрела зависит от десятков факторов: времени суток и температуры воздуха, скорости и направления ветра, расстояния до цели, как падает свет, куда перемещаются тени…
+Искусство боевого снайпера окружено целым ворохом мифов и легенд и часто граничит с мистикой. Эффект (   Читать дальше...   )Жанр: Военное делоИздательство: ЯузаФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CD16E4A99C6767C0CD237A734A91108062F1026
 ```
 
 https://mybot314.ru/tekegram_catalog/

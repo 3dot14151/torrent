@@ -6,7 +6,7 @@ NG. Тайны истории. Леонардо да Винчи / Mystery Files.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641596.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NGW: Скала леопардов / The Leopard Rocks (2017) HDTV [H.264/1080i-
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641069.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BBC. Горы - жизнь над облаками / Mountains: Life Above The C
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641033.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NGW: Дикие земли Европы / Europe's Great Wilderness (2015) HDTV 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640934.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Discovery: Бесстрашная планета (6 серий) / Fearless Plane
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640853.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ NG. Фри-соло / Free Solo (2018) HDTVRip [MVO]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640639.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Viasat History: Загадка исчезновения неандертальц
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640523.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Animal Planet. Аквариумный бизнес / Tanked (2011-2014) SATRip, 
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640504.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ National Geographic. Смертельный бой динозавров / Dino D
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639533.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ NG. Тираннозавр: чемпион по выживанию / T.Rex: Ulti
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639023.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ NG: С точки зрения науки. Экспедиция "Виски" / N
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638985.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Animal Planet: Живой или вымерший. Додо Севера / Extin
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638929.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ NGW: Африканские охотники / Africa's Hunters. (2018) HDTV [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638833.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ DV: Галилео Галилей - борьба за небо / Galileos Battle
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638641.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Discovery: Телескоп / Discovery: Telescope (2016) HDTVRip [H.264/720p-LQ
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637851.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ NG. В поисках правды / The Truth Behind (2011) HDTVRip [H.264/720p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637433.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ NGW: Крупные рыбы Зэба: огромный сом / Monster Fish. Z
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637380.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Discovery: Земля восходов. Секреты Солнца / Sunrise Ea
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637353.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ NG: Затерянная гробница Александра Великого 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637266.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Discovery. Вирусы / Virus: Invisible Killers (2017) HDTVRip [H.264/720p-LQ
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637226.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ NG. Фри-соло / Free Solo (2018) BDRemux [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636970.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ NG: Испытайте свой мозг / Test Your Brain (Brain Games, Teste d
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636693.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ NG: Нефтяное загрязнение столетия / Oil Spill of the 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635371.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ NG: Осушить океан: глубокое погружение. Шторм
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635360.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ BBC: В краю муссонов / Wonders of the Monsoon (2014) [BDRip/720p] (
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634977.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ PBS: Природа - Невероятные лягушки / PBS: Nature - Fabu
 >>PBS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634766.jpg" />
 </div>
 
 

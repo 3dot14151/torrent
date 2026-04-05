@@ -1,55 +1,3 @@
-###  Публикация: 1208836   (779641) от 24.02.2018
-
-Опасный квартал / The Son of No One (2011) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой — молодой полицейский, приписанный к участку в районе, где в основном проживает рабочий класс. Герой вырос в этом районе, и теперь, когда он вернулся сюда стражем закона, на поверхности оказался некий секрет, который может уничтожить как семью копа, так и его самого.Производство: СШАЖанр: Триллер, Драма, КриминалРежиссер: Дито МонтиельАктеры: Ченнинг Татум, Аль Пачино, Трэйси Морган, Кэти Холмс, Рэй Лиотта, Жюльетт Бинош, Джеймс Рэнсон, Брайан Гилберт, Джейк ЧерриПеревод: Дублированный (Blu-ray RUS)Субтитры: русские (форсированные, полные)Продолжительность: 01:33:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8A37C91A977B9BCE3CECD917785C178F0748C62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208757   (779624) от 24.02.2018
-
-Опасный квартал / The Son of No One (2011) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой — молодой полицейский, приписанный к участку в районе, где в основном проживает рабочий класс. Герой вырос в этом районе, и теперь, когда он вернулся сюда стражем закона, на поверхности оказался некий секрет, который может уничтожить как семью копа, так и его самого.Производство: СШАЖанр: Триллер, Драма, КриминалРежиссер: Дито МонтиельАктеры: Ченнинг Татум, Аль Пачино, Трэйси Морган, Кэти Холмс, Рэй Лиотта, Жюльетт Бинош, Джеймс Рэнсон, Брайан Гилберт, Джейк ЧерриПеревод: Дублированный (Blu-ray RUS)Субтитры: русские (форсированные, полные), английские (полные)Продолжительность: 01:33:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7836A3D753C9E0F8CCE19C700621B1A562D9B216
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208751   (779621) от 24.02.2018
 
 Опасный квартал / The Son of No One (2011) BDRip [H.264]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779621.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779562.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779422.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779362.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779304.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779173.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779086.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779050.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779041.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779031.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779028.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778953.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778913.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778910.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778909.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778887.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778788.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778772.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778753.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778744.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778735.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778616.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778462.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778457.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:600915DFCB839F4E87B6EC40180A672E6A76AD94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210858   (778445) от 04.03.2018
+
+Убийство в Восточном экспрессе / Murder on the Orient Express (2017) HDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Путешествие на одном из самых роскошных поездов Европы неожиданно превращается в одну из самых стильных и захватывающих загадок в истории. Фильм рассказывает историю тринадцати пассажиров поезда, каждый из которых находится под подозрением. И только сыщик должен как можно быстрее разгадать головоломку, прежде чем преступник нанесет новый удар.Производство: США, Великобритания, Мальта, Канада, 20th Century Fox, Genre Films, Kinberg GenreЖанр: Драма, Криминал, ДетективРежиссер: Кеннет БранаАктеры: Кеннет Брана, Пенелопа Крус, Уиллем Дефо, Джуди Денч, Джонни Депп, Джош Гэд, Дерек Джекоби, Лесли Одом мл., Мишель Пфайффер, Дэйзи Ридли, Том Бейтман, Марван Кензари, Оливия Колман, Люси Бойнтон, Мануэль Рульфо, Сергей Полунин, Миранда Рэйсон, Эллиот Леви, Дэвид Эннэн, Джозеф Лонг, Энди Аполло, Хэдли Фрайзер, Зиад Абаза, Нари Блэр-Мангат, Джерард Хоран, Ричард Клиффорд, (   Читать дальше...   )Перевод: Дублированный (Лицензия)Субтитры: Русские (полные + форс.)Продолжительность: 01:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A49436CAD33E0ED57E9132920A4904A4412BB457
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145610   (778433) от 04.03.2018
+
+Гора девственности / Fusi (2015) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778433.jpg" />
+</div>
+
+
+###  Подробнее
+
+43-летний мужчина всё ещё живёт со своей матерью. Он словно в спячке идёт туда, куда его ведёт монотонная жизнь. Появление деятельной Альмы и 8-летней Херы нарушает его холостяцкие привычки.Производство: Исландия, ДанияЖанр: ДрамаРежиссер: Дагюр КауриАктеры: Вальтер Гримссон, Фридрик Тоур Фридрикссон, Торстейнн Гуннарссон, Аднар Йоунссон, Маргрет Хельга Йоханнсдоттир, Сигюрйоун Кьяртанссон, Ильмюр Кристьяунсдоуттир, Гуннар ЙонссонПеревод: Одноголосый закадровыйСубтитры: отсутствуютПродолжительность: 01:35:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDE77BA24689AE67689CD49CCB9E6A13B1609F29
 ```
 
 https://mybot314.ru/tekegram_catalog/

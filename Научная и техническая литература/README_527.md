@@ -1,137 +1,3 @@
-###  Публикация: 1390844   (203024) от 06.02.2023
-
-Н.Г. Тактаров | Справочник по высшей математике для студентов вузов (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203024.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящий справочник содержит все главные разделы высшей математики - от математического анализа и алгебры до математической логики и дифференциальной геометрии, включая аналитическую геометрию, теорию функций комплексной переменной, теорию дифференциальных уравнений, вариационное исчисление, векторный и тензорный анализ, теорию вероятностей, математическую статистику, (   Читать дальше...   )Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDBE9A39A2C82D8660EA63966F059554C6F40C3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610394   (202997) от 07.02.2023
-
-Диего Маттарелли и др.| Экскурсия в прошлое: динозавры. Самая реалистичная энциклопедия (2023) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга-экскурсия в прошлое, которая проведет вас по мезозойской эре и познакомит с 60 видами вымерших ящеров.
-Эта объемная энциклопедия ответит на все вопросы о динозаврах. А реалистичные иллюстрации отправят читателей прямиком в фантастический древний мир, где гуляют огромные ящеры.
-Для каждого животного – отдельный разворот с кратким описанием, инфографиками и любопытными (   Читать дальше...   )Жанр: ЭнциклопедииФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4060544CAFBCE1F7A4F2C7AD29BB9E8E68C9F066
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611725   (202781) от 12.02.2023
-
-Л.Т. Левина | Современный телефон для любимых чайников (2022) [PDF]
-
->>Научная и техническая литература
->>Нормативная документация
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новое издание «Современного телефона для любимых чайников» — это настоящий путеводитель в мире смартфонов. Благодаря многочисленным иллюстрациям подружиться с гаджетом сможет даже самый «ржавый чайник»!
-
-Эта книга просто бесценна для тех, у кого рядом нет никого, кто помог бы разобраться с вновь приобретенным устройством. А я расскажу про то, какой сухой остаток (   Читать дальше...   )Жанр: Информационные технологии, руководства по пользованию программамиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C99B6F8162681687EB2C08F740C7C3D893F02558
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656810   (202770) от 01.09.2023
-
-С.Н. Бурмистров | Задачи по физической кинетике (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202770.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга содержит 40 задач различной степени сложности, в основе которых лежат материалы семинарских занятий по курсу Физическая кинетика со студентами Факультета Общей и Прикладной Физики МФТИ. Всем задачам даны подробные решения, а в комментариях отражена их связь с вопросами и методами современной физической кинетики. Краткое введение содержит необходимые сведения (   Читать дальше...   )Жанр: ФизикаИздательство: ИД ИнтеллектФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:523D2AFDBD66048F2A09EA34B76477B9094FE316
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611577   (202752) от 12.02.2023
-
-Дэнни Грегори | Все, что нужно сейчас, – рисовать. Просто начните с ручкой, бумагой и этой книгой (2023) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие из нас с детства убеждены, что для рисования нужен особый талант, а если его нет, то и пробовать не стоит. Автор творческих бестселлеров и основатель Sketchbook Skool Дэнни Грегори вас в этом переубедит. Он расскажет, с чего начать, и покажет, что ничего волшебного или сложного в рисовании нет – достаточно желания и самых простых материалов и инструментов. (   Читать дальше...   )Жанр: РисованиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAE75595EF39CB1AFB36673B066B80A4D4BB0786
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611699   (202738) от 13.02.2023
 
 Сборник | Logics textbooks - Учебники по Логике [216 книг] (1879-2017) [PDF, DJVU] [EN]
@@ -140,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202738.jpg" />
 </div>
 
 
@@ -166,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202195.jpg" />
 </div>
 
 
@@ -192,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202091.jpg" />
 </div>
 
 
@@ -220,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202011.jpg" />
 </div>
 
 
@@ -247,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201961.jpg" />
 </div>
 
 
@@ -273,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201954.jpg" />
 </div>
 
 
@@ -299,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201935.jpg" />
 </div>
 
 
@@ -326,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201854.jpg" />
 </div>
 
 
@@ -352,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201674.jpg" />
 </div>
 
 
@@ -378,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201663.jpg" />
 </div>
 
 
@@ -406,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201602.jpg" />
 </div>
 
 
@@ -432,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201589.jpg" />
 </div>
 
 
@@ -458,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201565.jpg" />
 </div>
 
 
@@ -485,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201552.jpg" />
 </div>
 
 
@@ -513,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201548.jpg" />
 </div>
 
 
@@ -539,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201472.jpg" />
 </div>
 
 
@@ -565,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201462.jpg" />
 </div>
 
 
@@ -591,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201448.jpg" />
 </div>
 
 
@@ -617,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201406.jpg" />
 </div>
 
 
@@ -643,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201299.jpg" />
 </div>
 
 
@@ -670,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201297.jpg" />
 </div>
 
 
@@ -681,6 +547,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28C12D0A3F6100859DACE03A16A710AD71EFBAE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619293   (201293) от 15.03.2023
+
+Йэн Стюарт | Невероятные числа профессора Стюарта (2016) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201293.jpg" />
+</div>
+
+
+###  Подробнее
+
+По сути математика — это цифры, наш основной инструмент для понимания мира. В своей книге самый известный британский популяризатор математики профессор Иэн Стюарт предлагает восхитительное знакомство с числами, которые нас окружают, начиная с привычных для нас комбинаций символов и заканчивая более экзотическими — факториалами, фракталами или постоянной Апери. На (   Читать дальше...   )Жанр: Зарубежная образовательная литература, зарубежная прикладная, научно-популярная литература, МатематикаПеревод: Наталия ЛисоваФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30E1566D36A46A898A9FC4D449A3274EEF1A5BBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619458   (201282) от 16.03.2023
+
+В.Ф. Ляхович и др. | Основы информатики (2016) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Излагается процесс разработки основных видов алгоритмов и программ на базе оригинальной общей методики построения алгоритмов, не имеющей аналогов в России. Общая методика построения алгоритмов позволяет быстро осваивать различные языки программирования, в том числе и высокого уровня. Отражены принципы построения и развития компьютерных сетей.
+Соответствует действующему (   Читать дальше...   )Жанр: Компьютерная литератураФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A52FA374FF94F011D86B5023EFDEFF6A4C428F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619284   (201243) от 15.03.2023
+
+К.Н. Лунгу | Линейное программирование: Руководство к решению задач 2-е изд. испр. и доп. (2009) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201243.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии отражен многолетний опыт чтения лекций и проведения практических занятий по линейному программированию. Особое внимание уделено симплексному методу и его реализации наиболее экономным способом при помощи таблиц Гаусса, а также методу наименьших тарифов, обеспечивающему быстрое получение оптимального плана для транспортной задачи.
+Для студентов всех форм (   Читать дальше...   )Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93CC0B272D031913CF19B060A44CA31AF8D907FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619311   (201242) от 15.03.2023
+
+Р.Я. Штейнман | Пространство и время (1962) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201242.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге дается анализ представлений о пространстве и времени в современной физике и космологии. В первой главе излагается история развития этих представлений в классической физике, начиная с Ньютона и Лейбница. Книга предназначена для читателей, интересующихся философскими проблемами современного естествознания. Предполагается, что читатель знаком с основами физики (   Читать дальше...   )Жанр: ФизикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B4904D5C114B9B8CC77889256327A291ABC8C34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619110   (201231) от 17.03.2023
+
+Н.М. Изюмов | Курс радиотехники (1958) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотя в книге даётся в большинстве ламповая схемотехника, но даже прочитав часть этого труда, любой старшеклассник, студент любой специальности, просто любознательный не только научится разбираться в радиоволнах, но и освоит основы радиотехники, антенн и многого другого.
+Книга предназначена для будущих техников-связистов, готовящихся к эксплуатации средств радиосвязи. (   Читать дальше...   )Жанр: Учебная,РадиотехникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D0D5F31E5D3BC625004D2E13C33DAD2305C2D7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

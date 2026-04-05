@@ -1,3 +1,29 @@
+###  Публикация: 1445666   (1033492) от 06.02.2021
+
+Steven Knipping | Applied Houdini Rigids IV (2016) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033492.jpg" />
+</div>
+
+
+###  Подробнее
+
+pplied Houdini ("практический Houdini", "Houdini в практическом использовании") - это серия видеоуроков, заточенных под использование Houdini в продакшне, за авторством Стивена Ниппинга, старшего technical-директора по Rigid Body/FX в ILM (проекты: Звездные войны: Пробуждение Силы, Мстители: Эра Альтрона, Земля будущего). Эта серия сочетает в (   Читать дальше...   )Производство: CGcircuitЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:17:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41381CE83811A6BE3CA3BCD67E5160B41F028C55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445747   (1033462) от 06.02.2021
 
 Алина Каютина | Видео-курс по художественной обработке зимних снимков (2016) PCRec
@@ -6,7 +32,7 @@
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033462.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Michael Shainblum | Photography Masterclass (2020) PCRec [En]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033460.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033459.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033447.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033446.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ Udemy, Maximilian Schwarzmüller | React Native - The Practical Guide [2021 Edit
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033441.jpg" />
 </div>
 
 
@@ -170,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033439.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033429.jpg" />
 </div>
 
 
@@ -224,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033423.jpg" />
 </div>
 
 
@@ -250,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033422.jpg" />
 </div>
 
 
@@ -276,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033420.jpg" />
 </div>
 
 
@@ -304,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033419.jpg" />
 </div>
 
 
@@ -332,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033416.jpg" />
 </div>
 
 
@@ -358,7 +384,7 @@ Udemy, Andrei Neagoie и др. | Complete React Developer in 2021 (w/ Redux, Hoo
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033415.jpg" />
 </div>
 
 
@@ -385,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033406.jpg" />
 </div>
 
 
@@ -414,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033380.jpg" />
 </div>
 
 
@@ -443,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033370.jpg" />
 </div>
 
 
@@ -469,7 +495,7 @@ Udemy | After Effects "ОТ НОВИЧКА ДО ЭКСПЕРТА" за 2 мес�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033365.jpg" />
 </div>
 
 
@@ -498,7 +524,7 @@ Udemy, Артём Воров | Java с полного нуля + ДЗ + тест
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033361.jpg" />
 </div>
 
 
@@ -524,7 +550,7 @@ Greg Williams | Candid Photography Skills (2020) PCRec [En]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033358.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033349.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ HTML Academy | HTML и CSS. Адаптивная вёрстка и автома�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033343.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ Udemy, Dzianis Matveyenka | Apache Maven (2023) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033337.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ Udemy, Konstantin Kokorin | Изучаем Dart (2023) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033329.jpg" />
 </div>
 
 
@@ -663,7 +689,7 @@ Udemy, Maksim Zhashkevych | GOLANG NINJA - Разработка Веб-Прил�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033323.jpg" />
 </div>
 
 
@@ -674,35 +700,6 @@ Udemy, Maksim Zhashkevych | GOLANG NINJA - Разработка Веб-Прил�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C8F07DB42722D5CC410F77A91856DE86907F451
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445939   (1033242) от 07.02.2021
-
-Keda.Z | Post-Processing Online Class 1.0 (2020) PCRec [En]
-
->>Обучающие видеоматериалы
->>Фотография и Видео (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свадебный и портретный онлайн-класс постобработки KEDA.Z для
-членов Z-Global Group.
-Мастер KEDA.Z делится навыками, знаниями, опытом с каждым участником Z.Global! Это будет практично, эффективно, результативно.
-Растем вместе в Z.Global Group!Производство: kedazglobalЖанр: Обработка фотоЯзык озвучки: АнглийскийПродолжительность: 03:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02F26CA7B62721083637A4886916B8852875600E
 ```
 
 https://mybot314.ru/tekegram_catalog/

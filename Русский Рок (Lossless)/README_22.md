@@ -1,61 +1,3 @@
-###  Публикация: 902962   (658685) от 30.05.2015
-
-АнимациЯ - Продано не всЁ (2013) [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слушать «Продано не всЁ» - значит отпускать саркастичные шуточки в адрес нашей многострадальной страны, высмеивать её минусы, обличать её недостатки - но верить в неё, глубоко сопереживать, страстно любить её - свою Родину.01. Псих
-02. Спички
-03. Если война
-04. Ванька(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50704F61E6664C27E584C01B4B36E51B594E0B54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539410   (657204) от 26.03.2022
-
-Август - Демон (1987) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657204.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Демон
-2. Как болит голова
-3. Осень
-4. Ночь(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0244CBB9C91277BF7423F9DA0987129E00C1AAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904328   (655244) от 02.06.2015
 
 BrainStorm - 7 Steps Of Fresh Air (2015) [FLAC|Lossless]<Brit-pop, pop-rock>
@@ -64,7 +6,7 @@ BrainStorm - 7 Steps Of Fresh Air (2015) [FLAC|Lossless]<Brit-pop, pop-rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655244.jpg" />
 </div>
 
 
@@ -93,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655182.jpg" />
 </div>
 
 
@@ -122,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654848.jpg" />
 </div>
 
 
@@ -153,7 +95,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_653721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_653721.jpg" />
 </div>
 
 
@@ -188,7 +130,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653386.jpg" />
 </div>
 
 
@@ -217,7 +159,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652539.jpg" />
 </div>
 
 
@@ -246,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651443.jpg" />
 </div>
 
 
@@ -275,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650193.jpg" />
 </div>
 
 
@@ -304,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_649376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_649376.jpg" />
 </div>
 
 
@@ -339,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644916.jpg" />
 </div>
 
 
@@ -366,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643337.jpg" />
 </div>
 
 
@@ -395,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643123.jpg" />
 </div>
 
 
@@ -424,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642851.jpg" />
 </div>
 
 
@@ -453,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641507.jpg" />
 </div>
 
 
@@ -482,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641502.jpg" />
 </div>
 
 
@@ -511,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_639387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_639387.jpg" />
 </div>
 
 
@@ -546,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639181.jpg" />
 </div>
 
 
@@ -575,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_638364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_638364.jpg" />
 </div>
 
 
@@ -610,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637418.jpg" />
 </div>
 
 
@@ -639,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637393.jpg" />
 </div>
 
 
@@ -668,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633975.jpg" />
 </div>
 
 
@@ -697,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633465.jpg" />
 </div>
 
 
@@ -726,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633286.jpg" />
 </div>
 
 
@@ -755,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632810.jpg" />
 </div>
 
 
@@ -769,6 +711,69 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CF8BBA0A5F68EA4D43635E502715322737909A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 218012   (631017) от 15.07.2010
+
+Автоматические Удовлетворители - Альбом тел. 1979-1994. Претензии не принимаются и сингл Огуречный лосьон (2009 переиздание) [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_631017.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Огуречный лосьон
+2. Удовольствие
+3. БуржуиЖанр: RockПродолжительность: 00:11:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 218594   (630782) от 15.07.2010
+
+Гарик Сукачев - Любимые песни.RU (2003) [FLAC|Lossless]<Рок>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_630782.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Дроля
+2. Напои меня водой
+3. Ритка Дорофеева
+4. Playboy
+5. Дорожная
+6. Банька по белому
+7. 10000 км
+8. Ольга
+9. Горит Огонь
+10. Моя бабушка курит трубку(   Читать дальше...   )Жанр: РокПродолжительность: 01:15:49
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

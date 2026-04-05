@@ -6,7 +6,7 @@ Povarovo - Tchernovik (2007) Reissue, 2012, Denovali  [FLAC|Lossless|Web-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244409.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Jimmy Giuffre 3 - Trav'lin' Light (1958) Remaster, 2012, Warner[FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244401.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ McCoy Tyner - Sama Layuca (1974) 2002, Milestone [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244381.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Peter Fernandes - The New Me (2011) [FLAC|Lossless|image + .cue] <Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244361.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Laurent Coq Trio - Spinnin' (2005) Cristal Records[FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244337.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Thelonious Monk - The Best of Thelonious Monk (1955 - 1960) 2004, Riverside Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244336.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ The Tony Kofi Quartet - The Silent Truth (2008) Specific Jazz[FLAC|Lossless|imag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244330.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Guido Manusardi Trio - No More No Less (2006) SoundHills Records[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244313.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Count Basie & Joe Williams - Count Basie Swings, Joe Williams Sings (1955) 1993,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244307.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Louie Bellson And His Big Band - Live From New York (1994) Telarc [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244304.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Nancy Wilson - Hollywood-My Way (1963) 2006, Capitol Jazz[FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244300.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Dj Para - Fallen On Def Ears (2009) [FLAC|Lossless|tracks + .cue] <Funk, Nu Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244287.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Francisco "Paquito" Hechavarria - Frankly (2009) [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244279.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Steve Khan - Backlog (2017) Tone Center [FLAC|Lossless|tracks + .cue] <Jazz Fusi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244274.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Tony Kofi Quartet - Plays Monk (2004) Specific Jazz[FLAC|Lossless|image + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244266.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Gary Burton - Country Roads & Other Places (1969) 1998, Koch Jazz[FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244236.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Pamela Rose & The Nate Ginsberg Trio - On the Jazzy Side of Blue (1993) [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244190.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Ladies In Blue (1934 - 1954) 2CD, 2005, Nocturne [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244185.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Jay Migliori And Dick Twardzik - Jazz Workshop Quintet (1954) 2020, Fresh Sound 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244177.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Benny Carter - 4 Albums From The MusicMasters Catalogue - Set 2 (1990-1995) 4CD,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244175.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Lou Mecca - Bridging The Gap (1999) 2003, Jazzbank [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244173.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Nancy Wilson - From Broadway With Love & Tender Loving Care (1966) 1993, EMI[FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244167.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Nancy Wilson - The Sound Of Nancy Wilson & Nancy (1968, 1969) 2013, SoulMusic Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244154.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Dave Grusin - Discovered Again (1976), Mountain Dance (1979), 2CD [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244098.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Rob Van Bavel, Vincent Koning, Frans Van Geest - Trilogy: The Ghost, The King & 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244090.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Mammoth - Deviations (2016) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz-Rock>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244080.jpg" />
 </div>
 
 

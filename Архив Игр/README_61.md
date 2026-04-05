@@ -1,3 +1,56 @@
+###  Публикация: 837076   (358021) от 02.11.2014
+
+Deadly Premonition (2013) [Ru/Multi] (1.1b) Repack R.G. Catalyst [The Director's Cut]
+
+>>След.
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой - секретный агент Френсис Морган, который был послан на расследование жестокого убийства местной красавицы. Среди заснеженных гор и городов, заселенных эксцентричными туземцами, агенту Моргану предстоит разгадать тайну этих убийств и выжить в месте, заселенном сверхестественными существами и маньяками-убийцами, которые добиваются прекращения этого расследования раз и навсегда.
+(   Читать дальше...   )Тип издания: RepackРазработчик: Access GamesЖанр: Action (Survival horror) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B603F48EA7F5B85E51FCEE317425344264D48465
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 408120   (357752) от 08.11.2011
+
+Pro Evolution Soccer 2012 [Wii] [Multi3] [PAL] (2011)
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357752.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новом сезоне Pro Evolution Soccer станет еще более реалистичным, чем раньше благодаря существенным улучшениям системы управления и искусственного интеллекта. В игре, лицензированной Лигой чемпионов УЕФА и Европейской Лигой УЕФА, представлены все звезды мирового футбола с учетом всех особенностей их игрового стиля и набором финтов. Усовершенствованная анимация и техника освещения, широкий выбор стилей игры и тактик, новые возможности для настройки пасов и розыгрыша стандартных положений — PES 2012 предоставляет игрокам возможность приобщиться к настоящему профессиональному футболу.Разработчик: KonamiЖанр: SportЯзык интерфейса: DE,GRE,FR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1DDF75C5056AA8C899771FDD0368261DF2BEF6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950740   (357553) от 31.10.2015
 
 Skullgirls 2nd Encore (2012) [Xbox360] [RegionFree] [FreeBoot] [License] [En]
@@ -6,7 +59,7 @@ Skullgirls 2nd Encore (2012) [Xbox360] [RegionFree] [FreeBoot] [License] [En]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357553.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Minecraft [Ru/En/Multi56] (L/1.3.2) 2012 l sOka!
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356997.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ NASCAR Kart Racing [Wii] [NTSC2PAL] [Eng] (2009)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356958.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ Assassin's Creed 3 [Ru] (Rip) 2012 l R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356849.jpg" />
 </div>
 
 
@@ -114,7 +167,7 @@ Tyranny (2016) [Ru/Multi] (1.0.0008) License RELOADED
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356079.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ The Banner Saga (2014) [Ru/En] (2.7.01) RePack Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355594.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.9.0-f5/dlc) Repack R.G. Revenants
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355260.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ ELEX (2017) [Ru/Multi] (1.0.2) License BAT [patch]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355247.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354759.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ Assassin's Creed III/3 [Ru] (Rip/1.01) 2012 l ShTeCvV
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354639.jpg" />
 </div>
 
 
@@ -274,7 +327,7 @@ Minecraft [Ru/En/Multi56] (L/1.4.4) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354629.jpg" />
 </div>
 
 
@@ -300,7 +353,7 @@ Assassin's Creed 3 [Ru] (Rip) 2012 l R.G. REVOLUTiON
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354624.jpg" />
 </div>
 
 
@@ -330,7 +383,7 @@ Hitman Absolution: Professional Edition [Ru/En/Multi8] (Steam-Rip/1.0.433.1) 201
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354488.jpg" />
 </div>
 
 
@@ -356,7 +409,7 @@ Call of Duty: Black Ops II - Digital Deluxe Edition [Ru] (RePack) 2012 | Luminou
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354339.jpg" />
 </div>
 
 
@@ -382,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_352463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_352463.jpg" />
 </div>
 
 
@@ -408,7 +461,7 @@ Assassin's Creed 3 [Ru] (RePack/1.01) 2012 | Scorp1oN
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352098.jpg" />
 </div>
 
 
@@ -436,7 +489,7 @@ Assassin's Creed 3 [Ru] (L/1.01) 2012 | 4xDVD5
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351960.jpg" />
 </div>
 
 
@@ -464,7 +517,7 @@ Assassin's Creed III/3 [Ru] (RePack/1.01) 2012 l Fenixx
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351953.jpg" />
 </div>
 
 
@@ -494,7 +547,7 @@ Assassin's Creed III/3 [En/Ru/Multi18] (L/1.01) 2012 l SKiDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351951.jpg" />
 </div>
 
 
@@ -524,7 +577,7 @@ Call of Duty: Black Ops 2/II (2012) [Ru/En] (1.0.0.1) Rip R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351942.jpg" />
 </div>
 
 
@@ -550,7 +603,7 @@ This War of Mine (2014) [Ru/Multi] (3.0.0) License PROPHET [Anniversary Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351583.jpg" />
 </div>
 
 
@@ -576,7 +629,7 @@ Lucius II: The Prophecy (2015) [Ru/Multi] (1.0.151029.b) Repack R.G. Механ�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350852.jpg" />
 </div>
 
 
@@ -602,7 +655,7 @@ Sword Coast Legends (2015) [Ru/Multi] (1.0/upd2) Repack R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350547.jpg" />
 </div>
 
 
@@ -628,7 +681,7 @@ Party of Sin (2012) [Ru/Multi] (1.0.0.5766) Rip FAS
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350226.jpg" />
 </div>
 
 
@@ -640,60 +693,6 @@ Party of Sin - игра в которой нам предстоит очутит
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59536A22BA462E7B1A498BD0799B801AB14E0B50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 579190   (349967) от 22.11.2012
-
-Hitman Absolution: Professional Edition [Ru] (RePack/1.0.433.1) 2012 l DangeSecond
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hitman: Absolution – долгожданное продолжение серии стелс-экшенов Hitman. Агент 47, преданный своим начальством, оказывается в центре зловещего заговора. Теперь ему предстоит отправиться на поиски истины по коррумпированному и испорченному миру. Игра создана на движке Glacier 2, который позволяет добиться невероятного качества изображения и отображения в одной сцене до нескольких тысяч персонажей. Благодаря этому реализованы самые безумные идеи дизайнеров, а Агент 47 может буквально слиться с толпой в людных местах. Большое количество режимов сложности позволяют настроить игровой процесс под свой уровень мастерства. На самом легком пройти сюжет смогут даже люди, первый раз севшие за видеоигры, а самый высокий уровень сложности бросит вызов даже хардкорным геймерам. Кроме однопользовательского режима, состоящего из множества вариативных миссий, в Hitman: Absolution представлен режим контрактов, где каждый игрок выступает в роли сценариста. Выбрав цели и убрав ее с определенными условиями, можно предоставить другим игрокам шанс добиться лучших результатов в ваших миссиях.(   Читать дальше...   )Тип издания: RePackРазработчик: IO InteractiveЖанр: Action (Shooter) / 3D / 3rd Person / StealthЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4AF17B76AD046C622D22207435199643CC4F72A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 579193   (349957) от 22.11.2012
-
-Family Guy: Back to the Multiverse [En/Multi4] (RePack) 2012 l R.G. ILITA
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семья Гриффинов возвращается в новой игре Family Guy: Back to the Multiverse. История основана на 1 серии 8 сезона, Road to the Multiverse, а главными героями выступают Стьюи и Брайан, которым предстоит спасти город от Бертрама, злобного двойника Стьюи. На своем пути они сразятся с другими персонажами сериала, используя уникальные умения и оружие.
-
-В Family Guy: Back to the Multiverse присутствуют многопользовательские уровни как для кооперативного, так и соревновательного прохождения.Тип издания: RepackЖанр: Action / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Немецкий, Испанский, Итальянский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EA52B04EDC103EFD78C80DD0044BD1C23F92E80
 ```
 
 https://mybot314.ru/tekegram_catalog/

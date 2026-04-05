@@ -1,3 +1,29 @@
+###  Публикация: 1217733   (740245) от 07.04.2018
+
+К. Сэндберг | Линкольн (1961) [DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Имя выдающегося государственного деятеля, президента США Авраама Линкольна уже более ста лет справедливо связывается с лучшими демократическими традициями американского народа. Его жизнь сама по себе представляет увлекательный роман. Безграмотный дровосек, сплавщик леса, он овладевает знаниями, становится крупнейшим политическим деятелем, выступая защитником интересов (   Читать дальше...   )Жанр: История, политология, биография, публицисткаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6A732153A3E04F0B7898CB1D11B2D9938792863
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217934   (740244) от 07.04.2018
 
 Г. И. Серебрякова | Женщины эпохи французской революции (1958) [PDF]
@@ -6,7 +32,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740244.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740205.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740110.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740038.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739836.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739787.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739728.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739721.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739603.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738349.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737551.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736116.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733086.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731526.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731478.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728419.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727552.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727308.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725725.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724782.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723405.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722776.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722770.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722391.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720331.jpg" />
 </div>
 
 
@@ -654,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE2125740B5EB8D85238041C932DA38B8F8AF777
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285938   (716815) от 28.02.2019
-
-Андрей Колесников | Дом на Старой площади (2019) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Андрей Колесников — эксперт Московского центра Карнеги, автор нескольких книг, среди которых «Спичрайтеры», «Семидесятые и ранее», «Холодная война на льду». Его отец — Владимир Колесников, работник аппарата ЦК КПСС — оставил короткие воспоминания. И сын «ответил за отца» — написал комментарии, личные и историко-социологические, к этим мемуарам. Довоенное детство, (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4933B1FE187A4EBCCD67F020938F4031B8BBF2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

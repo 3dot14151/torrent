@@ -1,32 +1,3 @@
-###  Публикация: 1311369   (206695) от 03.10.2022
-
-Middle Of The Road - Middle Of The Road (1972/1977) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock, Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206695.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	The Talk Of All The USA
-A2	Samson And Delilah
-A3	Try A Little Understanding
-A4	Louise(   Читать дальше...   )Жанр: Pop Rock, Classic RockПродолжительность: Pop Rock, Classic Rock
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDE1ED0C9C05634CFAF60E03361524E05D29FEE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1650659   (206467) от 12.08.2023
 
 Eleine - Studio Albums (5 releases) (2015-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
@@ -35,7 +6,7 @@ Eleine - Studio Albums (5 releases) (2015-2023) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206467.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Pink Floyd - Animals (1977) 2022 -2018 remix- [DTS 5.1 CD-DA|44.1/16|image+.cue|
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206427.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ AC/DC - Studio Albums (7 releases) (1990 - 2020) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206229.jpg" />
 </div>
 
 
@@ -123,7 +94,7 @@ ELO (Electric Light Orchestra) - Time (1981) [FLAC 2.0|24/192|image + .cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206046.jpg" />
 </div>
 
 
@@ -152,7 +123,7 @@ Ozzy Osbourne - Patient Number 9 (2022) [WavPack|32/192|image + .cue|Vinyl-Rip]<
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205984.jpg" />
 </div>
 
 
@@ -181,7 +152,7 @@ Quo Vadis (Canada) - Studio Albums (4 releases) (1996-2004) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205759.jpg" />
 </div>
 
 
@@ -210,7 +181,7 @@ Warlock - Burning the Witches (1984) [APE|24/96|image + .cue|Vinyl-Rip] <Heavy M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205374.jpg" />
 </div>
 
 
@@ -239,7 +210,7 @@ Sonic Boom - Reset in Dub (Adrian Sherwood 'Reset In Dub' Version) (2023) [FLAC|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205196.jpg" />
 </div>
 
 
@@ -268,7 +239,7 @@ Manowar - Battle Hymns (1982) Japanese Edition [FLAC|24/192|image + .cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205144.jpg" />
 </div>
 
 
@@ -297,7 +268,7 @@ Kreator - Violent Revolution (2001) Nuclear Blast, Reissue 2022 [FLAC 24/192|tra
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205122.jpg" />
 </div>
 
 
@@ -326,7 +297,7 @@ Mastodon - Remission (2002) [FLAC|24/96|tracks|Vinyl-Rip] <Progressive, Sludge M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204616.jpg" />
 </div>
 
 
@@ -355,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204462.jpg" />
 </div>
 
 
@@ -384,7 +355,7 @@ Felix Jaehn - Happy Rave (2023) [FLAC|24/44.1|tracks|WEB-DL] <Electronic, Dance>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204452.jpg" />
 </div>
 
 
@@ -413,7 +384,7 @@ SPAN - Studio Albums (2 releases) (2004-2005) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204295.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ The Cars - The Cars (1978) Remastered, 2015, Mobile Fidelity Sound Lab  [DSD64 2
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204287.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Kreator - Hate Uber Alles (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Me
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204266.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204160.jpg" />
 </div>
 
 
@@ -527,7 +498,7 @@ Vanessa-Mae - The Violin Player (1995) 2004 [DTS 5.1 CD-DA|44.1/16|image+.cue|SA
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204069.jpg" />
 </div>
 
 
@@ -553,7 +524,7 @@ Emerson, Lake & Powell - Эмерсон, Лейк И Пауэлл (1987) ВФГ 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203795.jpg" />
 </div>
 
 
@@ -582,7 +553,7 @@ Norther - Studio Albums (7 releases) (2002-2011) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203748.jpg" />
 </div>
 
 
@@ -611,7 +582,7 @@ Katz - Дуэт Katz. Швеция (1987) Лицензия от World Record Mus
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203631.jpg" />
 </div>
 
 
@@ -640,7 +611,7 @@ The Shocking Blue - Golden Hits (1991) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203599.jpg" />
 </div>
 
 
@@ -669,7 +640,7 @@ Muse - Studio Albums (10 releases) (1999 - 2022) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203562.jpg" />
 </div>
 
 
@@ -699,7 +670,7 @@ Legion of the Damned (f.k.a. Occult) - Studio Albums (12 releases) (1994-2023) h
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203527.jpg" />
 </div>
 
 
@@ -728,7 +699,7 @@ Turbo - Heavy Waters (1985) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock, Cla
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203370.jpg" />
 </div>
 
 
@@ -742,6 +713,34 @@ A4 Wake Me(   Читать дальше...   )Жанр: Hard Rock, Classic Rock�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23F2395F15CECEDD3EC5C0D21159D9AC9E6F83E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656497   (203349) от 30.08.2023
+
+Haggard - Studio Albums (3 releases) (2000-2008) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Classical/Orchestral/Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Haggard — немецкий музыкальный проект, исполняющий симфонический метал. Основан в 1989 году гитаристом, вокалистом и композитором Азизом Нассери, который является автором всей музыки и текстов Haggard. Группа фактически представляет собой оркестр, состоящий из множества музыкантов, играющих на разных инструментах, характерных как для рока, так и для классической (   Читать дальше...   )2000 - Awaking the Centuries
+2004 - Eppur Si Muove
+2008 - Tales of IthiriaЖанр: Classical/Orchestral/Symphonic MetalПродолжительность: 02:28:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:797F95D5B116B6390A84A57163CE1955E99D3179
 ```
 
 https://mybot314.ru/tekegram_catalog/

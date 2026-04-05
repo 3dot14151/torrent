@@ -1,183 +1,3 @@
-###  Публикация: 283856   (936958) от 19.01.2011
-
-VA - Italo Disco Hits (collectors edition) vol. 1, vol. 2 (2010) [FLAC|Lossless]<Italo Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - Jimmy & Susy - Come Back
-02. - Beat Band - Dancer Now
-03. - Mark Tower - Fall In Love
-04. - Tom Spencer - Ferrary
-05. - Garland - Heartbeat
-06. - Blue Russel - I Wanne Fly Away
-07. - Lala - Johnny
-08. - Paul Faber - Only One
-09. - Scorta - Pertini Dance
-10. - Laser Cowboys - The Final Conflict(   Читать дальше...)Жанр: Italo DiscoПродолжительность: 01:14:43
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 284435   (936803) от 19.01.2011
-
-Профессор Лебединский - 4 Альбома (1997 - 2007) [FLAC|Lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессор Лебединский (Алексей Игоревич Лебединский) - певец, композитор, фотохудожник и артист. Говорят, что вызывая такси (не будучи ещё столь известным) он представлялся как Профессор Лебединский - отсюда и псевдоним.
-Сочинять начал, ещё учясь в средней школе. В 1996 году, после выхода собственной песни «Я убью тебя, лодочник» и совместного с группой «Русский (   Читать дальше...   )Альбомы:
-1997 - Хеллоу-Гудбай
-1998 - Смеяться Или Плакать
-2000 - Танцы-Шманцы, Кныш И Смородина(   Читать дальше...   )Жанр: PopПродолжительность: 03:25:58
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364500   (936301) от 03.03.2020
-
-Владимир Маркин - Мои лучшие сбережения. Выпуски 3 и 4 (2008-2009) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тополя
-02. Авиатор
-03. Колыбельная
-04. От зари до зари(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06CBDDB9A4B779A2433C34AFC5F915B23B2C513E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 88540   (935639) от 03.03.2020
-
-F.R. David - 5 Альбомов (1982-2007) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Описание:
-Ф. Р. Дэвид (фр. F. R. David, по-французски произносится «Эф Эр Дави́д»; настоящее имя — Эли́ Робе́р Фитусси́ (фр. Elli Robert Fitoussi), род. 1 января 1947 года в Тунисе) — французский певец тунисского происхождения, исполняющий песни на английском языке.
-Музыкальную карьеру в конце 1960-х он начинал как аккомпаниатор (бас) различных (   Читать дальше...   )Жанр: Pop, Pop rock, Euro disco, SynthpopПродолжительность: 00:40:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD88E16CC0125EB8DA6B63D8BBDBBAA2140F63AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985494   (935548) от 11.02.2016
-
-Monica Naranjo - 4.0 (2014) [MP3|~245 кб/с (V0)] <Latin, Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935548.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Desatame / Intro 6:29
-2.Solo Se Vive Una Vez 4:14
-3. Todo Mentira 4:01
-4. Entender El Amor 6:16(   Читать дальше...   )Жанр: Latin, Rock, PopПродолжительность: 00:55:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5244A812FB686EFDF0F4A1BF267EA57C8A34524
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985502   (935543) от 11.02.2016
-
-Ronan Keating - Time of My Life (2016) [MP3|320 кб/с] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let Me Love You
- 02. As Long As We're In Love
- 03. Breathe
- 04. She Knows Me(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAE562544056DC69DAAD585BE3AC358F057FE55D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 985257   (935528) от 11.02.2016
 
 VA - Kuschelrock 17 (2003) [FLAC|Lossless|tracks + .cue] <Pop, Pop Rock>
@@ -186,7 +6,7 @@ VA - Kuschelrock 17 (2003) [FLAC|Lossless|tracks + .cue] <Pop, Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935528.jpg" />
 </div>
 
 
@@ -215,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935394.jpg" />
 </div>
 
 
@@ -244,7 +64,7 @@ Corona X - And Me U (2000) [MP3|256 Kbps] <Europop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935321.jpg" />
 </div>
 
 
@@ -273,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935118.jpg" />
 </div>
 
 
@@ -302,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935114.jpg" />
 </div>
 
 
@@ -331,7 +151,7 @@ Meghan Trainor - Title (Deluxe Edition) (2015) [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934613.jpg" />
 </div>
 
 
@@ -360,7 +180,7 @@ Joe Dassin - Поёт Джо Дассен (1980) [FLAC|Lossless|image + .cue] <P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934332.jpg" />
 </div>
 
 
@@ -389,7 +209,7 @@ VA - Megaspot 2004 (2003) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934128.jpg" />
 </div>
 
 
@@ -418,7 +238,7 @@ VA - It Started With A Kiss (2000) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934119.jpg" />
 </div>
 
 
@@ -447,7 +267,7 @@ VA - Everlasting Love (2000) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934110.jpg" />
 </div>
 
 
@@ -476,7 +296,7 @@ VA - Love Is All Around (2000) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934100.jpg" />
 </div>
 
 
@@ -505,7 +325,7 @@ VA - Global Hits 2002 (2002) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934093.jpg" />
 </div>
 
 
@@ -534,7 +354,7 @@ In Search Of Orchestra - In Search Of... (1977) [MP3|320 Kbps] <Electronic, Soun
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933844.jpg" />
 </div>
 
 
@@ -563,7 +383,7 @@ Vanessa Daou - Welcome to My Blues: An Anthology (1994-2017) (2017) Compilation 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933710.jpg" />
 </div>
 
 
@@ -592,7 +412,7 @@ Baccara - I Belong To Your Heart (2017) Single [FLAC|Lossless|WEB-DL|tracks] <Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933613.jpg" />
 </div>
 
 
@@ -618,7 +438,7 @@ VA - Retro 80s Pop (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933555.jpg" />
 </div>
 
 
@@ -647,7 +467,7 @@ Alex Christensen & The Berlin Orchestra - Classical 90s Dance 3 (2019) [FLAC|Los
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933410.jpg" />
 </div>
 
 
@@ -676,7 +496,7 @@ VA - GRAMMY 2015 Nominees Album (2015) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933046.jpg" />
 </div>
 
 
@@ -706,7 +526,7 @@ VA - EGB: La musica de una generacion (2014) 2CD [FLAC|Lossless|tracks + .cue] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932531.jpg" />
 </div>
 
 
@@ -735,7 +555,7 @@ Ronan Keating - Time of My Life (2016) [FLAC|Lossless|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932522.jpg" />
 </div>
 
 
@@ -749,6 +569,177 @@ Ronan Keating - Time of My Life (2016) [FLAC|Lossless|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44BD138989DA6331DF0BB0F177728CDA5D586D53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986008   (932474) от 13.02.2016
+
+Ирина Климова - Я так устала ждать.. (1998) [MP3|320 кб/с] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я так устала ждать...
+02. Детский сон
+03. Ветер любви
+04. Далеко(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB3CEE83B1963325EC6742045A3C635C2D6B5E42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093836   (932366) от 16.01.2017
+
+VA - The Disco Sessions (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Discotron - Disco Power (Original Mix) 04:49
+02. Audio Jacker - You Say (Original Mix) 06:17
+03. Boogie Freaks - The Mean Green (Original Mix) 07:02
+04. Discotron - I Got This (Original Mix) 06:13(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:11:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD95F75A2DE4F71C38F1899CC5E4E520E76A6F84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093880   (932272) от 16.01.2017
+
+Red Box - The Circle & The Square (1986) Reissue, 2008, Cherry Pop [APE|Lossless|image + .cue] <Alternative Pop, New Wave, World Music>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932272.jpg" />
+</div>
+
+
+###  Подробнее
+
+На мой взгляд (и не только) шедевр 80-ых во многом опередивший своё время и, возможно поэтому, недостаточно оцененный современниками.01. For America
+02. Heart Of The Sun
+03. Billy's Line
+04. Bantu(   Читать дальше...   )Жанр: Alternative Pop, New Wave, Choral, Orchestral, Art Rock, World MusicПродолжительность: 01:13:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BBC1C8608F6F00960313B1202057FAADD2B5CAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365190   (932238) от 06.03.2020
+
+Наталья Подольская - Плачь (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932238.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Феникс
+2. Сильная слабая
+3. Плачь
+4. Ни много, ни мало(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68F7A000073D6A3C1ACC5C4DC71EB7D7D42821D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365189   (932115) от 06.03.2020
+
+Филипп Киркоров - Романы, Часть 1 (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932115.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Романы
+2. Это была любовь
+3. Любимые люди
+4. Улети(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D609EB6848F9619BB688D0FDD9719E1F7032108
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 629864   (931274) от 13.03.2013
+
+Justin Timberlake - The 20/20 Experience (Deluxe Edition) (2013) [FLAC (tracks+cue)|Lossless]<Pop, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, R&BПродолжительность: 01:19:26
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

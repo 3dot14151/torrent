@@ -1,3 +1,29 @@
+###  Публикация: 1431613   (166993) от 14.12.2020
+
+AweEraser 4.5 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166993.jpg" />
+</div>
+
+
+###  Подробнее
+
+AweEraser - это безопасный «ластик» данных Mac. Он может безопасно и навсегда удалить данные с жесткого диска / носителя, окончательно удалить файлы Mac, стереть жесткий диск и стереть уже удаленные данные в Mac OS. Он также предлагает инструменты для пакетного удаления приложений на вашем Mac и очистки истории браузеров, кэшей, конфиденциальности и т. д.Тип издания: macOS SoftwareРелиз состоялся: 12.12.2020Разработчик: MagoshareПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA9F6B021330DA41411A7C280A792CD59E3C1127
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345344   (166669) от 15.12.2019
 
 FilePane 1.10.7 [Multi]
@@ -6,7 +32,7 @@ FilePane 1.10.7 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166669.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Debookee v.8.1.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166404.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166316.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166219.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ TechTool Pro 12 v12.0.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166141.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Adobe Zii 2020 - Universal Patcher 5.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166066.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Irvue 2023.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165616.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Serial Box & SerialSeeker 10-2023 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165545.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ MacCleanse 9.0.5 Pre-Release [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165473.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ Serial 2 v.2.0.16 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165425.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ Duplicate Photos SweeperOff 3.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165405.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ AirRadar 6 v6.0.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165402.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ PlistEdit Pro 1.9.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165353.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ uBar 4 v.4.2.2  [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165325.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ Unclutter 2.1.25 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165233.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ Deltopia DeltaWalker Oro Edition 2.5.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165022.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ Screen Snapshot 4.1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164545.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ Smooze 1.9.23 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164511.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ FonePaw Android Data Recovery for Mac 5.7.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164493.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ Araxis Merge Pro Edition 2023.5976 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164456.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ Aiseesoft Mac FoneLab for iOS 10.3.92 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164416.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ SFTPCommander 2.4.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164407.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ ArchCommander 2.3.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164397.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ MacBooster 8 Pro 8.0.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164377.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ HazeOver 1.9.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164292.jpg" />
 </div>
 
 
@@ -653,32 +679,6 @@ HazeOver 1.9.3 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33B4D24C7E0CAE34061ACB2255B195ED9464F11D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432546   (164268) от 17.12.2020
-
-Cocktail Catalina Edition 13.2.6 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cocktail - комплекс утилит по всестороннему обслуживанию вашего Mac, который помогает каждый день получить от своего компьютера максимальную отдачу. Приложение позволяет: исправить права доступа к файлам, оптимизировать сетевое соединение, очистить всевозможные кэши (системные и пользовательские), воспользоваться скрытыми настройками, автоматизировать выбранные процессы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: MaintainПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7269F45BFE841E6920857E77013DCD18D509855
 ```
 
 https://mybot314.ru/tekegram_catalog/

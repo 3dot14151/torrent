@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350011.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kreator - Dying Alive 2012 (2013) BDRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349051.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Avantasia - The Flying Opera: Around The World In Twenty Days (2011) BDRip [H.26
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348902.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ ZZ Top - Definitely Then (Double Down) 1980 (2008) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348423.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Lady Gaga - Marry The Night / MTV EMA 2011  (2011) HDTVRip [1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348212.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ The Rolling Stones: Sweet Summer Sun - Hyde Park Live (2013) Blu-ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347882.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347839.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Accept - Rock Hard Festival (2022) HDTV [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347605.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Joe Cocker / Fire it Up Live (2013) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347464.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346683.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Eagles: Live from the Forum MMXVIII (2020) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346437.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345694.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Rico Rossi - Take Em Down (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345434.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345255.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344945.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344868.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_344866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_344866.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Suicidal Angels - Division Of Blood (Bonus DVD) (2016) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344455.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ VA - Осенний марафон № 202 / Видеоклипы (Дискот�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344068.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Dave Gahan - Live Monsters (2004) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343621.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Sensation White - Celebrate Life Amsterdam (THE SHOW) (2010) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343344.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ P!nk (Pink)  Rock in Rio (05.10.2019) HDTV [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343257.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Led Zeppelin - Celebration Day(2007)  DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_342464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_342464.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Yanni - Live At El Morro, Puerto Rico (2011) H264  HDTVRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_342321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_342321.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342174.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Stereo Palma Feat. Craig David - Our Love (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341230.jpg" />
 </div>
 
 

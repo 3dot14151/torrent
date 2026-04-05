@@ -1,3 +1,119 @@
+###  Публикация: 1340371   (263933) от 23.11.2019
+
+VA - A State Of Trance: Future Favorite Best Of 2019 (2019) Extended Version [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren - Turn It Up (Extended Mix) 6:45
+02. Gareth Emery & Emma Hewitt - Take Everything (STANDERWICK Extended Remix) 5:17
+03. Ferry Corsten & Gouryella - Surga (Extended Mix) 8:03
+04. Above & Beyond vs. Armin van Buuren - Show Me Love (Extended Mix) 6:40(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Progressive Trance, Vocal TranceПродолжительность: 02:33:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C914506CD1B099094C706391F5386E92E2B08723
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191988   (263898) от 15.12.2017
+
+VA - Ori Uplift - Uplifting Only 253 (All Instrumental) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carl Daylim - Stay With Me (Intro Mix)
+02. Manuel Rocca - Amortentia
+03. Ahmed Romel - Vanaheim
+04. Reconceal & Andy Blueman - The World to Come (Andy Blueman Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:02:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC67738FCB4E4305B5018A633ED689F402236C50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191774   (263895) от 15.12.2017
+
+VA - The Best Of Suanda Voice (Mixed by Dennis Graft) (2017) [MP3|320 Kbps] <Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Shawn Davis & Roman Messer  -  Tonight (Original Mix)  3:40
+02.  Vadim Spark & Cari  -  Beat Of My Heart (Original Mix)  3:39
+03.  Maria Milewska & Dennis Graft  -  Until (Original Mix)  2:42
+04.  Jan Johnston & Feel  -  Skysearch (Ruslan Radriges Radio Edit)  3:05(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 02:00:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0765A679D5A9919C66A47C3F09201CA9A8D86D18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191697   (263893) от 15.12.2017
+
+Isorinne - Speechless Malison (2017) Northern Electronics [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 9:21 (09:21)
+ 02. 3:29 (03:29)
+ 03. 4:05 (04:05)
+ 04. 4:55 (04:55)(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 00:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D461233CEE6764747EEC8E175BF1D9B147DEB724
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191778   (263888) от 15.12.2017
 
 Velvet Dreamer - Different World (2017) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -6,7 +122,7 @@ Velvet Dreamer - Different World (2017) [FLAC|Lossless|WEB-DL|tracks] <Balearic,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263888.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Parks (The Parks, Парки) - Discography 12 Releases (1991-2016) Elektrus, Ф
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263857.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Chillout Winter 2018 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263854.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Gabriel & Dresden - The Only Road (2017) [MP3|320 Kbps] <Trance,Progressive Hous
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263842.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Synthwave Dreams, Vol. 3 (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263746.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Synthwave Dreams, Vol. 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263745.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Synthwave Dreams, Vol. 4 (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263744.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Synthwave Dreams, Vol. 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263742.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Scooter - 100% Scooter (25 Years Wild & Wicked) (2017) [MP3|320 Kbps] <Hard Tran
 >>Hardstyle, Jumpstyle, Hardcore
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263688.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Live @ Trance Sanctuary pres. Kearnage, Fabric London, United Kingdom 2019-
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263614.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Anton Belov (of Kauan) - Piano Works II (2019) [FLAC|Lossless|Web-DL|tracks] <Am
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263600.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Inspectrum Recordings Best Of (Mixed by DJ Chris) (2017) [MP3|320 Kbps] <Up
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263537.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - Best of Trance (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263529.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ The Chi Factory - Red Lantern At The Kallikatsou (2017) Astral Industries [FLAC|
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263519.jpg" />
 </div>
 
 
@@ -410,7 +526,7 @@ VA - Winter Chillout Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263493.jpg" />
 </div>
 
 
@@ -439,7 +555,7 @@ Alexandroid - Discography 5 Releases (2001-2004) [FLAC|Lossless|tracks+.cue, tra
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263480.jpg" />
 </div>
 
 
@@ -468,7 +584,7 @@ VA - Indian Rhythm (2013) [MP3|~247-266 Kbps ] <Psychedelic, Psytrance, Goa Tran
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263412.jpg" />
 </div>
 
 
@@ -497,7 +613,7 @@ Gabriel & Dresden - The Only Road (2017) [FLAC|Lossless|tracks] <Trance,Progress
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263404.jpg" />
 </div>
 
 
@@ -526,7 +642,7 @@ nAo (Não, nÄo, Näo) - Discography 5 Releases (2009-2016) [FLAC|Lossless|track
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263383.jpg" />
 </div>
 
 
@@ -555,7 +671,7 @@ ScAnDroid Experiment's - A Trap For The Traveller (2017) Авторская ра
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263380.jpg" />
 </div>
 
 
@@ -584,7 +700,7 @@ VA - A State Of Trance Year Mix (Mixed by Armin Van Buuren) (2017) [MP3|320 Kbps
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263378.jpg" />
 </div>
 
 
@@ -613,7 +729,7 @@ VA - Pop Ambient Series (2001-2019) Kompakt [FLAC|Lossless|tracks+.cue, tracks] 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263267.jpg" />
 </div>
 
 
@@ -627,122 +743,6 @@ VA - Pop Ambient Series (2001-2019) Kompakt [FLAC|Lossless|tracks+.cue, tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E403C83041036EDC76C91FB7B4148A3DD66DC5F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192539   (263256) от 17.12.2017
-
-VA - Alter Ego: Best Of 2017 (Mixed by Luigi Palagano & Duncan Newell) (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BRKDWN X Joel Freck - Because Of Love (feat Amy Kirkpatrick - Nathan Red radio edit/Remixes)
-02. Joaquin Limon & Straight Up - Voices (Michael Fearon radio edit)
-03. Anden State - Tranquility (radio edit)
-04. Vast Vision - Hello Sunshine (Ander One radio edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:22:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:101136174F3DA1379828C19CAA56BA5EBD0808A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192461   (263254) от 17.12.2017
-
-VA - Outburst Presents: Prism Vol. 2 (Mixed by Tempo Giusto & Mark Sherry) (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Thick As Thieves - Any Time (Original Mix)
-02 Mark Sherry - Imbecile (Original Mix)
-03 Stuart Ferguson - Rellik (Original Mix)
-04 Ikorus - Suplex (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 06:59:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63F2EBD110BD5FDCAC3D566C992E110701B93FAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192522   (263251) от 17.12.2017
-
-VA - The Best Of Pulsar (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andy Groove - Thunderstorm (original mix)
-02. AEG - Always In My Memories (original mix)
-03. Volmax - Near Reality (James Kitcher remix)
-04. Sound Apparel - Dream (2017 Remaster)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 04:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4237E13B119A3790B45DA7A61F046A834E8C505E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192577   (263246) от 17.12.2017
-
-VA - Alter Ego: Progressive Best Of 2017 (Mixed by Luigi Palagano) (2017) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hanski - Sirens (radio edit)
-02. Varun & Inge Lemon - Velour (radio edit)
-03. ARChima - Skyfall (radio edit)
-04. Metroom - Inside (radio edit)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 03:18:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFD5904988E99E3E5A81D5476EBDBD923B49CECC
 ```
 
 https://mybot314.ru/tekegram_catalog/

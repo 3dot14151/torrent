@@ -6,7 +6,7 @@ BBC: Пингвин: Шпион под прикрытием / Penguins - Spy In 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377373.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BBC: Цивилизация / Civilisation (1969) BDRip [H.264/720p-LQ] (Сер�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372647.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BBC. В краю муссонов: Народы муссонов / Wonders of th
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372586.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BBC: Как преуспеть ... / How to Get Ahead (2014) HDTVRip [H.264/720p
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371468.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ BBC: Океанская одиссея / BBC: Deep Ocean (2006) DVDRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_368330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_368330.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ BBC: Голубая планета (Голубая бездна) / The Blue Plan
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366431.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ BBC: Авиакатастрофа в Мюнхене / The Munich Air Disaster (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366049.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ BBC. Человеческая Вселенная / Human Universe (2014) BDRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365203.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ BBC: Враги разума [2 серии] / The Enemies of Reason (2007) DVDRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364802.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362461.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ BBC: Начало и конец Вселенной / The Beginning and End of th
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359969.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357673.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ BBC: Калигула. Что это было / Caligula with Mary Beard (2013) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356141.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ BBC: Мари Тюссо. Восковая легенда / Madame Tussaud: A Le
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353700.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ BBC:Атлантика: Самый необузданный океан на Зе
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352889.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ BBC: Инопланетяне. Мозговой штурм / Aliens: The Big Thi
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349706.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ BBC: Зачем нам Луна? / Do We Really Need the Moon? (2011) WEB-DL [H.
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349700.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ BBC: Тайны атомной эры / Secret of Our Nuclrear Age (Britains Nuc
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346588.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ BBC: Волшебные числа: таинственный мир матема
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343842.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ BBC: Питомцы - дикие в душе / Pets: Wild at Heart (2016) HDTVRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343119.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ BBC: Гении современного мира / Genius Of The Modern World (
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342922.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341638.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ BBC: Подземная одиссея / Ancient Invisible Cities (2018) DVB (с
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341002.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ BBC: Дикая природа Новой Зеландии / Wild New Zealand (N
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340511.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ BBC: Поразительные чудеса мира / Weird Wonders of the Wor
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336378.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ BBC: Поразительные чудеса мира / Weird Wonders of the Wor
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336375.jpg" />
 </div>
 
 

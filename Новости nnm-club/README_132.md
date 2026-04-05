@@ -1,3 +1,55 @@
+###  Публикация: 1148015   (604211) от 05.07.2017
+
+Внедрение «пакета Яровой» могут отложить на пять лет
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_604211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вступление в силу пакета антитеррористических поправок Ирины Яровой и Виктора Озерова может быть перенесено на пять лет – с 2018 на 2023 г. Правительственная комиссия по законопроектной деятельности рассматривает положительный отзыв на соответствующий законопроект сенатора Антона Белякова и депутата Олега Шеина.О том, что комиссия вчера рассмотрела проект положительного (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218526   (604075) от 19.06.2018
+
+Властелин колец: Трилогия / The Lord of the Rings: Trilogy (2001-2003) Blu-Ray [H.264/1080p] [Limited Extended Edition] [Custom]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тихая деревня, где живут хоббиты. Волшебник Гэндальф, придя на 111-й день рождения к своему старому другу Бильбо Бэггинсу, начинает вести разговор о кольце, которое Бильбо нашел много лет назад. Это кольцо принадлежало когда-то темному властителю Средиземья Саурону, и оно дает большую власть своему обладателю. Теперь Саурон хочет вернуть себе власть над Средиземьем. (   Читать дальше...   )Производство: США, Новая Зеландия, New Line Cinema, The Saul Zaentz Company, WingNut FilmsЖанр: Фэнтези, приключения, экранизацияРежиссер: Питер ДжексонАктеры: Мартин Фриман, Иэн МакКеллен, Ричард Армитедж, Джеймс Несбитт, Кен Стотт, Грэм МакТавиш, Дин О’Горман, Эйдан ТернерПеревод: Дублированный, Многоголосый х2Субтитры: Русские, английские, китайские, корейские, чешские, польские, ивритПродолжительность: 02:07:40 + 02:15:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35728E9F240A561B6AA4A33B3495469E118C3356
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297375   (604011) от 22.04.2019
 
 Остановивший WannaCry исследователь признался в создании вредоносного ПО
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_604011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_604011.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ World War Z (2019) [Ru/Multi] (1.0) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603992.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Operation Flashpoint Антология [Ru] (L) 2001-2003
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603735.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ Symantec Endpoint Protection 14.2 Build 758 (14.2.758.0000) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603630.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_603519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_603519.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ Shadows of Kurgansk (2016) [Ru/Multi] (0.1.51) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603503.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603502.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_603224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_603224.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ Windows 11 21H2 x64 Rus by OneSmiLe [22000.652]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603209.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603117.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ Nvidia DriverPack v.430.39 RePack by CUTA [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603043.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ Business Insider составил рейтинг 20 лучших смартфо�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_603040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_603040.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602747.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ S7 Space намерена возобновить производство сов
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_602703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_602703.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602684.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602293.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_602203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_602203.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ Subnautica: Below Zero (2019) [Ru/Multi] (13140) Repack xatab [Early Access]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602062.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601929.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ Max Payne 2: The Fall of Max Payne (2003) [Ru] (1.1.102.0) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601924.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_601193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_601193.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_600996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_600996.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ Malwarebytes Anti-Malware Premium 2.1.8.1057 Final Portable by PortableAppZ [Mul
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600786.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ Planetary Annihilation (2014) [Ru/Multi] (build 83391) Unofficial ALI213
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600778.jpg" />
 </div>
 
 
@@ -623,58 +675,6 @@ Planetary Annihilation  представляет из себя масштабн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0F857B72D05608C15255D884B1C40A6AE63E527
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913680   (600772) от 30.06.2015
-
-Астрал 3 / Insidious: Chapter 3 (2015) WEBRip [H.264/1080p-LQ] [Line]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600772.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о том, как одаренный экстрасенс Элис Рейнер неохотно соглашается использовать свои способности для установления связи с мертвыми, чтобы помочь девочке-подростку, которая стала мишенью для опасной сверхъестественной сущности.Производство: Канада, США / Automatik Entertainment, Blumhouse Productions, Entertainment OneЖанр: УжасыРежиссер: Ли УоннеллАктеры: Стефани Скотт, Дермот Малруни, Энгус Сэмпсон, Ли Уоннелл, Лин Шэй, Тейт Берни, Майкл Рид МакКей, Стив Култер, Хейли КийокоПеревод: Дублированный (чистый звук)Субтитры: Вшитые неотключаемыеЯзык субтитров: КитайскиеПродолжительность: 01:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A584C805DE3E6FE950ADF0F76E3DA393B5E4B8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298600   (600655) от 30.04.2019
-
-Робот 2.0 / 2.0 (2018) WEBRip [MVO] [AD]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Миру угрожает монструозный крылатый злодей, покусившийся на самое святое, что есть у человечества — мобильные телефоны. Бессовестное чудовище в прямом смысле слова подчиняет себе устройства и создаёт из них могучую армию, способную трансформироваться во что угодно. Так и проиграли бы люди этот неравный бой, если бы не другое важное изобретение — робот Читти.Производство: ИндияЖанр: Фантастика, Боевик, ТриллерРежиссер: С. ШанкарАктеры: Раджиникант, Акшай Кумар, Эми Джексон, Адиль Хуссэйн, Суданшу Пандей, Kalabhavan Shajohn, Анант Нараян Махадеван, Майилсами, Ishari Ganesh, Кайзаад КотвальПеревод: Любительский (двухголосный) - КолобокСубтитры: Китайские, английские,  не отключаемыеПродолжительность: 02:23:21Реклама: Присутствуют вставки видео голосовой и текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93950A5FC252CF2ACFD2DE923004F3133D5E3522
 ```
 
 https://mybot314.ru/tekegram_catalog/

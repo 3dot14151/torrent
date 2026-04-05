@@ -1,3 +1,55 @@
+###  Публикация: 559174   (409235) от 12.10.2012
+
+Bad Piggies [En] (RePack/1.0.0) 2012 | Repack by R.G. UPG
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_409235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Внешне игра очень смахивает на оригинальную Angry Birds множеством элементов — анимацией, звуковым оформлением и настроением. В новой аркаде Вам необходимо будет собрать из подручных материалов средство для передвижения, на котором «плохие поросята» смогут добраться до заветных звёздочек. Это может быть забавный трехколёсный автомобиль с крыльями, летающий на двух шариках ящик или гибрид велотренажера с дирижаблем.Тип издания: RepackЖанр: Arcade, Logic, PuzzleЯзык озвучки: -/-Язык субтитров: -/-Язык интерфейса: Английский (перевод не требуется)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066807   (409140) от 27.10.2016
+
+Kyurinaga's Revenge (2016) [Multi] (1.0) License SKIDROW
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kyurinaga’s Revenge является 2D платформером , задача игрока решать множество головоломок и загадок. Место действия Феодальная Япония где главный герой сражается вместе с Broccoli Joe - самурай который поможет в трудную минутку. Игрок когда это необходимо может переключатся между персонажами это необходимо для решения многих задач и является частью геймплея. Так (   Читать дальше...   )Тип издания: LicenseРазработчик: Recotechnology S.L.Жанр: Action, Adventure, PlatformerЯзык субтитров: Английский, Испанский, ЯпонскийЯзык интерфейса: Английский, Испанский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3FE1A99FFD45C1F99B42DC5D8736BB8D8A3F9CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1067147   (407783) от 28.10.2016
 
 Through the Woods (2016) [Ru/Multi] (1.0) License GOG [Collector's Edition]
@@ -6,7 +58,7 @@ Through the Woods (2016) [Ru/Multi] (1.0) License GOG [Collector's Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407783.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Borderlands 3 (2019) [Ru/Multi] (Build 5382210/dlc) SteamRip InsaneRamZes [Super
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407753.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Control (2020) [Ru/Multi] (1.13/upd2) License GOG [Ultimate Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407737.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407655.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_406532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_406532.jpg" />
 </div>
 
 
@@ -143,7 +195,7 @@ Saints Row The Third + 19 DLC [Ru/En] (RePack/1.0.0.1u4) 2011 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406473.jpg" />
 </div>
 
 
@@ -172,7 +224,7 @@ Dishonored [Ru/En] (L) 2012 | RELOADED 2xDVD5
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406468.jpg" />
 </div>
 
 
@@ -200,7 +252,7 @@ Dishonored [Ru/En] (RePack/1.0) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406463.jpg" />
 </div>
 
 
@@ -228,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_406299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_406299.jpg" />
 </div>
 
 
@@ -254,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_406284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_406284.jpg" />
 </div>
 
 
@@ -280,7 +332,7 @@ XCOM: Enemy Unknown [Ru/En] (P/1.0.0.5443) 2012 l FairLight 3xDVD5
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406252.jpg" />
 </div>
 
 
@@ -310,7 +362,7 @@ Doom 3 BFG Edition [En] (RePack) 2012 | R.G Repacker's
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406072.jpg" />
 </div>
 
 
@@ -342,7 +394,7 @@ DOOM 3 BFG Edition [Xbox 360] [ENG] [Pal] (LT+3.0/15574) (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406010.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ Magicka / Magicka: Ну очень эпическая игра + 19 DLC [Ru/En] 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406009.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ Halo 4 [Xbox 360] [RegionFree] [Rus] [LT+2.0/15574] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406000.jpg" />
 </div>
 
 
@@ -435,7 +487,7 @@ Mark of the Ninja [MULTi6/-] (Steam-Rip) 2012 | R.G. Origins
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405999.jpg" />
 </div>
 
 
@@ -461,7 +513,7 @@ Viking: Battle for Asgard [Ru/En/Multi7] (RePack/1.0.u.1) 2012 | R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405482.jpg" />
 </div>
 
 
@@ -488,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_405437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_405437.jpg" />
 </div>
 
 
@@ -514,7 +566,7 @@ The Testament of Sherlock Holmes / Последняя воля Шерлока Х
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405364.jpg" />
 </div>
 
 
@@ -546,7 +598,7 @@ Spec Ops: The Line + 2 DLC [Ru/En] (RePack/1.0.6890.0) 2012 l R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405359.jpg" />
 </div>
 
 
@@ -573,7 +625,7 @@ Viking: Battle for Asgard [Ru/En/Multi7] (RePack/1.0.u.1) 2012 | SEYTER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405239.jpg" />
 </div>
 
 
@@ -600,7 +652,7 @@ Viking: Battle for Asgard [Ru/En] (RePack/1.0.u.1) 2012 | Luminous
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405216.jpg" />
 </div>
 
 
@@ -627,7 +679,7 @@ Euro Truck Simulator 2 [Ru/Multi4] (RePack) 2012 | R.G. Revenants
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405141.jpg" />
 </div>
 
 
@@ -655,7 +707,7 @@ No Man’s Sky (2016) [Ru/Multi] (1.37/dlc) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404526.jpg" />
 </div>
 
 
@@ -666,59 +718,6 @@ No Man's Sky научно-фантастический космический с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24F02A31F675399FCE0996011B871CEC5C7A29CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 563249   (404354) от 21.10.2012
-
-NBA 2K13 [En] (RePack/1.0.1.1) 2012 | R.G. Shift
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404354.jpg" />
-</div>
-
-
-###  Подробнее
-
-NBA 2K13 является продолжением серии баскетбольных симуляторов от компании 2K. В новом сезоне был улучшен режим карьеры MyCareer, переработана система быстрых пасов, у всех спортсменов, воссозданных с реальных баскетболистов, появились свои уникальные качества и способности. Кроме этого появилась возможность столкнуть между собой в одном матче лучших баскетболистов в истории NBA с талантливыми новичками. (   Читать дальше...   )Тип издания: RepackЖанр: Sport (Basketball) / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E110CB258BA267D190583B40FCFE19D49FED70D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562681   (404271) от 21.10.2012
-
-Viking: Battle for Asgard [Ru/En/Multi7] (P/1.0.u.1) 2012
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Викинги, беспощадные и яростные воины, всю свою жизнь посвящали сражениям. Умереть на поле боя — высшая честь для скандинавского воина, ведь павших храбрецов ждет вечная жизнь в Валгалле, где они будут готовиться к новым подвигам, но уже в битвах богов! Близится роковое противостояние высших существ. Реки наполнятся кровью, небесное царство Асгард превратится в руины, а мир погрузится в лютый холод и тьму — грядет Рагнарек.
-  Скандинавы оставили после себя богатую мифологию, и благодаря новому проекту от создателей серии Total War вы лично можете принять участие в противостоянии древних богов. Ареной для сражений станет мир простых смертных, беззащитных перед жерновами всесокрушающей войны. Остановить «апокалипсис» способен только Скарин — выдающийся бесстрашный герой. Именно ему предстоит отправиться в опасное путешествие, собрать войско для последней битвы и лицом к лицу столкнуться с опасным врагом. (   Читать дальше...   )Тип издания: ПираткаЖанр: Action (Slasher) / 3D / 3rd PersonЯзык озвучки: Английский, французский, итальянский, испанскийЯзык интерфейса: Английский, немецкий, французский, итальянский, испанский, русский, польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55A1508E369BE3849596FC3D9E5C5737474B7ED0
 ```
 
 https://mybot314.ru/tekegram_catalog/

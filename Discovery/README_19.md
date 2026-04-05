@@ -6,7 +6,7 @@ Discovery Scienceу: НАСА. Необъяснимые материалы / NAS
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328026.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Discovery Scienceу: НАСА. Необъяснимые материалы / NAS
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327315.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Discovery: Инородные тела / Body Invaders (2014) HDTVRip (Сери�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324671.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Discovery. Дороги России: Трасса Лена (2016) HDTVRip [720p
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323137.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Discovery. Дикие эксперименты Адама Сэвиджа / Savag
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322366.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Discovery: Инородные тела / Body Invaders (2014) HDTVRip (Сери�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321478.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Discovery: Разрушители легенд. Звёздные войны: О�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321099.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Discovery: Вечера науки с Константином Хабенски�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320678.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Discovery: Вечера науки с Константином Хабенски�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320664.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Discovery Scienceу: НАСА. Необъяснимые материалы / NAS
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318487.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Discovery: Смертоносные эпидемии / Killer outbreaks (2011) H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316395.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Discovery: Вот это странно / Williams Shatner's Weird or What (2012
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316170.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Discovery: Инородные тела / Body Invaders (2014) HDTVRip (Сери�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311503.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Discovery. Инженерия невозможного / Impossible Engineering 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309702.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Discovery. На краю Аляски  / Edge of Alaska (2014) HDTVRip (1-8 се
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308473.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Discovery. Дороги России: Трасса Колыма (2016) HDTVRip [
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306324.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Discovery. Северная Америка / North America (2013) BDRemux [H.264
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300968.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Discovery Scienceу: НАСА. Необъяснимые материалы / NAS
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299711.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Discovery. Гонка на вымирание / Racing Extinction (2015) HDTVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296711.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Discovery: Шерпа / Sherpa (2015) HDTVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295718.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Discovery Scienceу: НАСА. Необъяснимые материалы / NAS
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288054.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Discovery. Священная сталь / Sacred Steel Bikes (2016) HDTVRip [H.
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286082.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Discovery: Невидимые миры. Вода / Invisible Worlds. Water (2010
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285723.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Discovery Channel Россия. Техногеника. Русский колл�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282185.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Discovery: Аляска: Семья из леса / Alaskan Bush People (2018) H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279030.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Discovery: Забытая инженерия / Abandoned Engineering (2018) HDTV
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278906.jpg" />
 </div>
 
 

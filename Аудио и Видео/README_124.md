@@ -6,7 +6,7 @@
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685491.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685458.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684914.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684808.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ VA - Buddha Spirit, vol. 1 (Compiled by Salvo Migliorini) (2022) [AAC|~320 Kbps]
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684306.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684266.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684119.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683901.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683850.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683716.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683598.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683503.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683335.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683331.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682743.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ VA - Audioholic (Groovy Deep-House Tunes), Vol. 3 (2022) [AAC|~329 Kbps] <House,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682648.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Darren Rahn - Speechless (2012) [AAC|~364 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682640.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ VA - Chillout Finest Background Music (2022) [AAC|~301 Kbps] <Lounge, Chill Out,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682635.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ VA - Deep Lounge Beats (2022) [AAC|~295 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682630.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Marga Sol - Earth (Ethnic Ambient Sounds of the Earth) (2014) [AAC|~329 Kbps] <L
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682625.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Marga Sol - Butterflies (Sophisticated Lounge Music) (2014) [AAC|~338 Kbps] <Lou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682620.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Darren Rahn - Sonic Boom (2016) [AAC|~337 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682615.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ VA - Absolutely Brilliant (2022) [AAC|~307 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682608.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Darren Rahn - Rock The World (2022) [AAC|~352 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682604.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Bryan Adams - Pretty Woman - The Musical (2022) [AAC|~309 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682510.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682387.jpg" />
 </div>
 
 

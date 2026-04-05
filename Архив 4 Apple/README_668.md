@@ -6,7 +6,7 @@ OmniGraffle Pro 7.22.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120803.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Tower Pro 10 v.10.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120801.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Text Workflow 1.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120782.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ uDock 4.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120778.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Fork 2.39 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120776.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Notebooks – Write and Organize 3.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120762.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Adobe Premiere Pro 2024 for Mac v.24.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120758.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120625.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120616.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ iA Writer 7.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120606.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ PDF Expert 3.9.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120501.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ AirMail Pro 5 v.5.6.16 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120450.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Navicat for SQL Server on Mac 16.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120418.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Navicat for MongoDB on Mac 16.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120413.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Navicat for PostgreSQL on Mac 16.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120407.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ JetBrains IntelliJ IDEA Ultimate for Mac 2023.3.3 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120366.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ CrossOver 24.0-b1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120320.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ FxFactory Pro 8.0.12 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120272.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Noir – Dark Mode for Safari 2024.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120264.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ EdgeView 4.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120261.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Boxy SVG 4.23.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120260.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ doubleTake 2.6.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120258.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ GraphicConverter 12 for Mac 12.1 Beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120257.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ PullTube 1.8.5.24 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120255.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ iReal Pro 2024.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120253.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Mimestream 1.2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120247.jpg" />
 </div>
 
 

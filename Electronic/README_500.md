@@ -1,3 +1,135 @@
+###  Публикация: 486288   (89844) от 21.04.2012
+
+Anosphere - Nation of Love (2009) [MP3|320 кб/с]<Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nation Of Love (7:59)
+02. Horizon Of The Galactic Zone (5:47)
+03. Summer Angel (5:06)
+04. Expanding Cosmic Awareness (8:49)
+05. Fire Of Emotion (Ambientmix) (6:26)
+06. Star Convention (Part II The Universe) (3:49)
+07. Epsilon Hunter (Discomix) (8:58)
+08. Space Affair (Discomix) (5:21)
+09. Mutant Generation (Dancemix) (5:34)
+10. Fire Of Emotion (Extended Spacemix) (6:29)(   Читать дальше...   )2009Жанр: SpacesynthПродолжительность: 01:12:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E08842AB22395B1520D59BC29354A47BBB3916A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486008   (89837) от 21.04.2012
+
+VA - Galaxy (2011) [MP3|256 кб/с]<Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intru.der - Galaxy (5:50)
+02. Synthaurion - No Return From Here (6:23)
+03. Lahniz - Troubled Loser (5:19)
+04. Phobotrax - On Cloud Nine (3:03)
+05. Synthaurion - Rebelion (7:20)
+06. Marcel De Van - Melody Of Dance (3:59)
+07. Wojtekopole - On Border Of The Worlds (6:28)
+08. Synth Void - Starfire (5:22)
+09. Jsc - Codetalkers (5:20)
+10. Synthesis - Secret Energy (4:02)(   Читать дальше...   )2011Жанр: SpacesynthПродолжительность: 01:18:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4160D594876CFB752C0B452602CA6F9E5C5456D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483670   (88942) от 17.04.2012
+
+Abakus - We Share The Same Dreams (2008) [FLAC|Lossless]<Chillhouse / Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88942.jpg" />
+</div>
+
+
+###  Подробнее
+
+Abakus - We Share The Same Dreams (2008)
+Год: 2008
+Жанр: Chillhouse / Downtempo
+Продолжительность: 01:03:05Кодек: FLAC
+Битрейт: Lossless
+Тип рипа: tracks+.cueТрек лист:
+01.  We share the same dreams (Intro) [00:57]
+02.  Sliding SH [08:42](   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483026   (88430) от 14.04.2012
+
+Space - The Very Best Of Space (2011) [FLAC|Lossless|image + .cue] <Electronic, Synth-Pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Running In The City (04:16)
+02. Air Force (04:23)
+03. Ballad For Space Lovers (02:17)
+04. Inner Voices (06:51)(   Читать дальше...   )Жанр: Electronic, Synth-PopПродолжительность: 01:17:11
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 483107   (88365) от 14.04.2012
 
 LюK - 5 Альбомов (2003-2009) Дискография [FLAC|Lossless]<Rock, Easy Listening, Dub, Trip-hop, Instrumental>
@@ -6,7 +138,7 @@ LюK - 5 Альбомов (2003-2009) Дискография [FLAC|Lossless]<Roc
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88365.jpg" />
 </div>
 
 
@@ -41,7 +173,7 @@ Elsiane - Mechanics of Emotion (2012) [MP3|320 кб/с]<Trip-Hop, Dream-Pop, Dow
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87989.jpg" />
 </div>
 
 
@@ -76,7 +208,7 @@ VA - Simply Erotica (2011) [FLAC|tracks+.cue]<Lounge, Chillout, Relax>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87968.jpg" />
 </div>
 
 
@@ -105,7 +237,7 @@ Kato - Discolized (2010) [FLAC|Lossless]<Electronic, House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87513.jpg" />
 </div>
 
 
@@ -140,7 +272,7 @@ Androcell - Efflorescence (2006) [FLAC|Lossless]<New Age, Ambient, Electronic, C
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87156.jpg" />
 </div>
 
 
@@ -173,7 +305,7 @@ Jam & Spoon - Remixes & Club Classics (2CD) (2006) [APE|Lossless]<Trance, Techno
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86918.jpg" />
 </div>
 
 
@@ -208,7 +340,7 @@ Sweet DJs - Happy New Year Mix (2006-2010) [MP3|128-320 кб/с] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85989.jpg" />
 </div>
 
 
@@ -238,7 +370,7 @@ Orbital - Wonky (2012) [FLAC|Lossless]<Electronic/Leftfield/Dubstep/Techno/Elect
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85980.jpg" />
 </div>
 
 
@@ -267,7 +399,7 @@ VA - Erotic Chill Vol. 1 - Sweet And Sexy (2012) [MP3|320 кб/с]<Ambient, Down
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85928.jpg" />
 </div>
 
 
@@ -302,7 +434,7 @@ The Chemical Brothers - Don't Think (2012) [MP3|320 кб/с]<Electronic, Breakbe
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85763.jpg" />
 </div>
 
 
@@ -337,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85590.jpg" />
 </div>
 
 
@@ -372,7 +504,7 @@ VA - The Ultimate Chilled Album (2008) [FLAC|Lossless]<Chillout, Lounge, Ambient
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85471.jpg" />
 </div>
 
 
@@ -407,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84902.jpg" />
 </div>
 
 
@@ -436,7 +568,7 @@ Maxim (Prodigy) - Hell's Kitchen (2000) [APE|Lossless]<Big Beat>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84584.jpg" />
 </div>
 
 
@@ -471,7 +603,7 @@ Oliver Koletzki - Grossstadtmarchen (2009) [FLAC|Lossless]<Tech House, Disco, Nu
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84536.jpg" />
 </div>
 
 
@@ -506,7 +638,7 @@ Markus Schulz - Global DJ Broadcast Top 20 March (2012) [MP3|320 кб/с]<Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84445.jpg" />
 </div>
 
 
@@ -541,7 +673,7 @@ VA - Best Of Chillout Ibiza - Sunset Lounge (2012) [FLAC|Lossless]<Lounge, Chill
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83704.jpg" />
 </div>
 
 
@@ -576,7 +708,7 @@ VA - 50 Miami Tunes 2012 WEB [FLAC|Lossless]<Trance, House, Progressive House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83485.jpg" />
 </div>
 
 
@@ -609,7 +741,7 @@ Bertine Zetlitz - Electric Feet (2012) [MP3|320 кб/с]<Synth-Pop, Acid Jazz, E
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83246.jpg" />
 </div>
 
 
@@ -644,7 +776,7 @@ Triangle Sun - 3Albums (2007-2008-2009) [MP3|320 kbps]<Chillout / Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82526.jpg" />
 </div>
 
 
@@ -670,7 +802,7 @@ The Internet - Purple Naked Ladies (2012) [FLAC|Lossless]<Electronic, Funk, Trip
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82224.jpg" />
 </div>
 
 
@@ -705,7 +837,7 @@ DJ JIM - Spring Colors (2012) [MP3|320 кб/с] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82054.jpg" />
 </div>
 
 
@@ -725,134 +857,6 @@ DJ JIM - Spring Colors (2012) [MP3|320 кб/с] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05B2346876707875E86D7E55BFB0674AE2A32572
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465701   (81213) от 10.03.2012
-
-Барто - Привет! Тоталитаризм (2012) [MP3|320 Kbps]<Electronic, Electroclash>
-
->>Electronic
->>Experimental Electronic
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Привет тебеЖанр: Electronic, ElectroclashПродолжительность: 00:40:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16D285917E7F692BF9A9C33ABC060F1D8FF40A69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 463815   (80998) от 09.03.2012
-
-VA - Paul Oakenfold - Never Mind The Bollocks (2011) [FLAC|Lossless]<Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc one:
-Продолжительность: 01:15:07
-
-01. Rocky & Nok - Green Sector (Neelix Remix) (2:27)
-02. Zyce - Basic (3:18)
-03. Liquid Soul - Adrenaline (3:14)
-04. Earsugar - Beat It) (1:51)
-05. DJ Danila - Let The Music (Belocca Remix) (3:35)
-06. Ivan Nikusev & Wav-E - Aurora (Airwave Breaks Remix) (4:10)
-07. The Doppler Effect - Beauty Hides In The Deep (Ronski Speed Remix) (5:47)(   Читать дальше...   )2011Жанр: TranceПродолжительность: 02:33:05
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462492   (80453) от 06.03.2012
-
-Gesaffelstein - Original (2010 -2011) [MP3|320 кб/с]<Techno>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80453.jpg" />
-</div>
-
-
-###  Подробнее
-
-_________________________________________________
-1. Gesaffelstein & The Hackerr - Crainte (Original Mix) (6:40)
-2. Gesaffelstein - A Lost Era (9:20)
-3. Gesaffelstein - Atmosphere (original mix) (6:27)
-4. Gesaffelstein - Aufstand (7:59)
-5. Gesaffelstein - Glass (7:02)
-6. Gesaffelstein - Hatred (6:47)
-7. Gesaffelstein - Modern Walk (Marc Houle Remix) (7:00)
-8. Gesaffelstein - Opr (3:54)
-9. Gesaffelstein - The Lack Of Hope (6:24)(   Читать дальше...   )2010 -2011Жанр: TechnoПродолжительность: 01:36:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DD92B87347CB27048788572CEB0BA511E7AB0A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 460559   (79660) от 02.03.2012
-
-VA - Progressive Goa Trance 1-9 (2002-2009) [MP3|~238 кб/с (V0)]<Psychedelic / Progressive>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79660.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01 - Duran and Aytek - Monsoon 08:17
-02 - Metrobasement - New Economy 07:01
-03 - Minilogue - Pixelised 08:36
-04 - Peter Gun - Main Attraction 06:26
-05 - DJ Nukem - Instinct 07:49
-06 - Chrome - Ritmo Del Mundo2002-2009Жанр: Psychedelic / ProgressiveПродолжительность: 02:26:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9283A3DB4C0CD0194245BAA896B09964697CAB0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

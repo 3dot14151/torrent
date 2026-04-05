@@ -1,3 +1,33 @@
+###  Публикация: 606400   (994710) от 22.01.2013
+
+Ника Андреева | На старт, внимание...резюме! [2006] [FB2]
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994710.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассказывается о приемах построения успешной карьеры, начиная с этапа составления резюме. Способы поиска работы, планирование первых шагов, приобретение минимального опыта, ресурсы молодого специалиста, его востребованность в компаниях, возможность получения грантов и стипендий - вся эта практическая информация поможет правильно ориентироваться на рынке труда, выбирать вакансии, продумывать стратегию общения с кадровыми агентствами и подготавливаться к переговорам с работодателем.
+
+В книге пять глав, каждая из которых содержит примеры и способы действия на конкретном этапе поиска работы.
+
+Книга адресована вчерашним студентам и молодым специалистам.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41880868381D69BCBEA58BB8AAA7324112685C88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 606670   (994629) от 22.01.2013
 
 Экспресс-фитнес с Данилой Михайловским и Натальей Лебедевой [2010] SATRip
@@ -6,7 +36,7 @@
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994629.jpg" />
 </div>
 
 
@@ -39,7 +69,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994593.jpg" />
 </div>
 
 
@@ -65,7 +95,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993973.jpg" />
 </div>
 
 
@@ -98,7 +128,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991908.jpg" />
 </div>
 
 
@@ -124,7 +154,7 @@ Udemy | Создание Sci-Fi ассетов в Blender 2.81 и Substance Pain
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991623.jpg" />
 </div>
 
 
@@ -150,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991484.jpg" />
 </div>
 
 
@@ -177,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990947.jpg" />
 </div>
 
 
@@ -206,7 +236,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990892.jpg" />
 </div>
 
 
@@ -241,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990764.jpg" />
 </div>
 
 
@@ -269,7 +299,7 @@ Lynda.com | JavaScript: Замыкания / JavaScript: Closures (2018) PCRec [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990686.jpg" />
 </div>
 
 
@@ -295,7 +325,7 @@ Lynda.com | JavaScript: Шаблоны / JavaScript: Patterns (2018) PCRec [H.26
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990597.jpg" />
 </div>
 
 
@@ -321,7 +351,7 @@ Steve Krenz | Gibson's Learn & Master Guitar [2006] DVDRip
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990456.jpg" />
 </div>
 
 
@@ -350,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989784.jpg" />
 </div>
 
 
@@ -376,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988843.jpg" />
 </div>
 
 
@@ -411,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988316.jpg" />
 </div>
 
 
@@ -438,7 +468,7 @@ Google Analytics Academy | Основы аналитики мобильных п
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988255.jpg" />
 </div>
 
 
@@ -467,7 +497,7 @@ Google Analytics Academy | Основы цифровой аналитики / Go
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988246.jpg" />
 </div>
 
 
@@ -493,7 +523,7 @@ Google Analytics Academy | Аналитика в электронной торг
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988219.jpg" />
 </div>
 
 
@@ -519,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988211.jpg" />
 </div>
 
 
@@ -545,7 +575,7 @@ smmconfa | Суровый Питерский SMM (2015) PCRec [H.264/720p]
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988206.jpg" />
 </div>
 
 
@@ -574,7 +604,7 @@ Convert Monster | Таргетированная реклама в Facebook и �
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988163.jpg" />
 </div>
 
 
@@ -603,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988157.jpg" />
 </div>
 
 
@@ -629,7 +659,7 @@ Udemy | Полный курс французского от А1 до С2 (2019) 
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986743.jpg" />
 </div>
 
 
@@ -655,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985826.jpg" />
 </div>
 
 
@@ -682,7 +712,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985312.jpg" />
 </div>
 
 
@@ -693,34 +723,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F83AE3EDDBE63A3868E609CD69594E40FEA5067E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611415   (985186) от 02.02.2013
-
-Живи TV | Гибкая сила 3 сезон [2010] SATRip
-
->>Обучающие видеоматериалы
->>Здоровье и Спорт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплекс упражнений, заимствованных из пилатеса, йоги и цигуна, развивает одновременно подвижность суставов и мышечную силу.
-Занимаясь фитнесом, зачастую встаешь перед выбором: либо силовые упражнения, либо уроки на растяжку. Впервые мысль о том, чтобы соединить эти два вида тренировок, пришла в голову Джозефу Пилатесу в начале ХХ века. Сегодня его методика — база, на которой возникают новые стили и направления, например калланетика и босу.
-Благодаря разным степеням нагрузки этот комплекс подходит любому человеку. В основе программы — статические асаны из хатха-йоги, силовые упражнения из пилатеса, а также динамические комплексы на выносливость и балансировку. По словам Юлии, цель ее методики — здоровый позвоночник. «Я считаю позвоночник столпом нашего организма, — объясняет тренер. — Отличительная особенность моей гимнастики — тщательное вытягивание и укрепление мышц спины. Ведь наше здоровье во многом зависит от того, насколько правильно сформирован позвоночник».Жанр: ВидеоурокПродолжительность: 33 x 0:52:00 (всего 28:40:00)
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

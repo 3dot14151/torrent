@@ -1,3 +1,163 @@
+###  Публикация: 1117563   (816368) от 23.03.2017
+
+Гуляй, Вася! (2017) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816368.jpg" />
+</div>
+
+
+###  Подробнее
+
+В истории было немало случаев, когда за счастливый брак приходилось прикладывать много усилий. Но то, что произошло с Митей, удивило бы даже искушенного Дон Жуана. Он наконец-то встретил ту единственную, с которой готов связать оставшуюся жизнь. Вот только есть одна проблема - бывшая жена Василиса. Вася - настоящая стерва. которая не хочет дать развод просто так. (   Читать дальше...   )Производство: Россия, Фильмы навсегда, Инвада фильм, Yellow, Black and WhiteЖанр: КомедияРежиссер: Роман КаримовАктеры: Ефим Петрунин, Любовь Аксенова, Роман Курцын, Софья Райзман, Борис Дергачев, Сергей Аброскин, Светлана Степанковская, Вера Панфилова, Наталья Тетенова, Давид ПетросянПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B6F9AD9B1E0FC2DEB5F1E882F34A0138F2DE00A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117636   (816366) от 23.03.2017
+
+Windows 7 SP1 RUS-ENG x86-x64 -8in1- KMS-activation v3 (AIO)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная сборка не является чем-то новым и революционным. Это лишь небольшая переработка сборки Windows 7 SP1 RUS-ENG x86-x64 -8in1- KMS-activation v2 (AIO). Изменений немного, но они достаточно существенны и, по моему мнению, весьма полезны. Впрочем, ниже вы сами можете с ними ознакомиться и сделать для себя вывод, нужно ли оно лично вам!
+
+Работоспособность сборки (   Читать дальше...   )Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54B76FA97409F29C702428E622E93C7DBE81F4D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 882906   (816283) от 29.03.2015
+
+А зори здесь тихие... (2015) DCPRip [2K] [Трейлер]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816283.jpg" />
+</div>
+
+
+###  Подробнее
+
+Май 1942 года. В самый разгар Великой Отечественной Войны вдалеке от линии фронта, у забытого богом разъезда, фашисты выбрасывают десант с целью пробраться на Кировскую железную дорогу и Беломорско-Балтийский канал. Это не обычные солдаты-пехотинцы, это опытные, тренированные диверсанты, элита войск СС, «сверхлюди». А против них — старшина Васков и пятеро девчонок-зенитчиц. Казалось бы, бой местного значения, но на кону — стратегически важная транспортная артерия, соединяющая значимые центры страны. Смогут ли (   Читать дальше...   )Производство: РоссияЖанр: Драма, Военный, ИсторияРежиссер: Ренат ДавлетьяровАктеры: Петр Федоров, Кристина Асмус, Евгения Малахова, Анастасия Микульчина, Софья Лебедева, Агния КузнецоваПеревод: Не требуетсяПродолжительность: 00:01:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FB20A5D769D6EA3789172E56042DF266DC0929B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 883066   (816270) от 29.03.2015
+
+Resident Evil 4 / Biohazard 4 (2014) [Ru/Multi] (1.06) Repack R.G. Catalyst [Ultimate HD Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816270.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Resident Evil 4 специальному агенту Леону С. Кеннеди поручается спасти похищенную дочь президента США. Расследование приводит его в захолустную европейскую деревню, населенную агрессивными фанатиками таинственной секты Лос Иллюминадос, стоящей за похищением. Леону предстоит столкнуться с чудовищными мутантами и враждебными селянами, разум которых порабощен паразитами Лас-Плагас. Эти враги весьма отличаются от неповоротливых зомби из предыдущих игр серииТип издания: RepackРазработчик: CapcomЖанр: Action (Survival horror) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий, Испанский, ИтальянскийЯзык интерфейса: Русский, Английский, Французский, Немецкий, Испанский, Итальянский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5356074201B103DC08A913F443A4BC6F8B5CCDC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 883067   (816268) от 29.03.2015
+
+Pillars of Eternity (2015) [Ru/Multi] (1.0.2.0508/dlc) Repack R.G. Механики [Royal Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pillars of Eternity поприветствует вас в очаровательном мире, где каждое принятое решение и каждый выбранный путь оказывают влияние на вашу судьбу.
+
+Приготовьтесь, ибо вас ожидает головокружительное приключение, наполненное новыми открытиями и опасностями. Отправляйтесь вместе с товарищами по оружию в глубокие населенные демонами подземелья, отыщите потерянные сокровища и раскройте древние тайны.Тип издания: RepackРазработчик: Obsidian EntertainmentЖанр: Role-playing, Adventure, Fantasy (Isometric)Язык озвучки: АнглийскийЯзык субтитров: Английский, русский, немецкий, испанский, итальянский, французский, польскийЯзык интерфейса: Английский, русский, немецкий, испанский, итальянский, французский, польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CF9142A4ECE00C34838BDECC3A5A07032B5D65D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 776697   (815644) от 13.04.2014
+
+Рейд / Serbuan maut / The Raid: Redemption (2011) BDRip [1080p] [hand made 60fps]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Боевик, Триллер, КриминалРежиссер: Гарет ЭвансАктеры: Ико Ювайс, Джо Таслим, Дони Аламсях, Яян Рухьян, Пьер Грюно, Рэй Сахетапи, Тегар Сатрия, Ианг Дармаван, Эка «Пиранья» Рахмадия, Верди СолайманПеревод: ДублированныйЯзык субтитров: Rus (полные), Eng (полные)Продолжительность: 01:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D20EFF5083AFBA5F4F732A205E5928A4B3BEE825
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 727270   (815643) от 13.04.2014
 
 Аватар легенда о Корре / Legend of Korra Book 2 (2013) WEB-DL [H.264/1080i-LQ] (Сезон 2, Серии 14 из 14)
@@ -6,7 +166,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815643.jpg" />
 </div>
 
 
@@ -32,7 +192,7 @@ Parallels Desktop for Mac 9.0.24229 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815642.jpg" />
 </div>
 
 
@@ -58,7 +218,7 @@ BBC: Грета Тунберг. Год, чтобы изменить мир / Gre
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815551.jpg" />
 </div>
 
 
@@ -86,7 +246,7 @@ Universal Media Creation Tool 20.10.2021 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815404.jpg" />
 </div>
 
 
@@ -112,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815229.jpg" />
 </div>
 
 
@@ -138,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814948.jpg" />
 </div>
 
 
@@ -164,7 +324,7 @@ Poweramp 2.0.9 Build 529 + Skins - Музыкальный плеер (05.2013) <
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814944.jpg" />
 </div>
 
 
@@ -191,7 +351,7 @@ Life is Strange: Before the Storm (2017) [Ru/Multi] (1.0/dlc) SteamRip R.G. Orig
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814866.jpg" />
 </div>
 
 
@@ -217,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814862.jpg" />
 </div>
 
 
@@ -243,7 +403,7 @@ AAct Network v1.0.1 Portable by Ratiborus [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814861.jpg" />
 </div>
 
 
@@ -269,7 +429,7 @@ AdClear v8.0.0.506603 [Ru/Multi]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814854.jpg" />
 </div>
 
 
@@ -295,7 +455,7 @@ KMS Tools Portable 07.01.2018 by Ratiborus [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814852.jpg" />
 </div>
 
 
@@ -321,7 +481,7 @@ TNod User & Password Finder 1.6.4.0 Final + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814850.jpg" />
 </div>
 
 
@@ -347,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814816.jpg" />
 </div>
 
 
@@ -373,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814721.jpg" />
 </div>
 
 
@@ -400,7 +560,7 @@ Autodesk AutoCAD Architecture 2017 HF1 x86-x64 RUS-ENG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814697.jpg" />
 </div>
 
 
@@ -426,7 +586,7 @@ SAMOLIOTIK (2016) [Ru/En] (1.0) Rip Unleashed
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814694.jpg" />
 </div>
 
 
@@ -452,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814692.jpg" />
 </div>
 
 
@@ -478,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814688.jpg" />
 </div>
 
 
@@ -504,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814687.jpg" />
 </div>
 
 
@@ -515,164 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD973A38BFDCCBAB21ED0C5403A152185490AC30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985132   (814686) от 18.04.2016
-
-Firewatch (2016) [Ru/En] (1.0/upd13) Repack R.G. Механики
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814686.jpg" />
-</div>
-
-
-###  Подробнее
-
-1989-й год. Тебя зовут Генри, и ты уехал от тяжелой жизни в леса Вайоминга, чтобы работать там дозорным. Расположившись на самой вершине горы, ты должен следить за сохранностью окружающей природы. Особо жаркое, сухое лето заставляет всех беспокоиться. Твой начальник, женщина по имени Делайла, всегда поддерживает с тобой контакт с помощью небольшой ручной рации - (   Читать дальше...   )Тип издания: RepackРазработчик: Campo SantoЖанр: Adventure, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E7C80BCAEAB9E7B274C9EE5F06DB110F3CBDEDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 213038   (814685) от 18.04.2016
-
-Губка Боб Квадратные Штаны  / SpongeBob SquarePants (1999-2012) DVDrip + SATrip + TVRip (9 сезонов + полнометражный мультфильм + документальный фильм)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Square Roots: The Story of SpongeBob SquarePants является документальным фильмом производства Патрик Кридон и Кристин O'Маллей, который был показан на VH1 14 июля 2009 года. Документальная хроника о поп-культуре успешного мультсериала Губка Боб Квадратные Штаны, включая его влияние на президента США Барак Обама, обитателей Сан-Квентин в государственной тюрьме, и (   Читать дальше...   )Жанр: документальныйРежиссер: Патрик Кридон, Кристин O'МаллейПерсонажи: Алек Болдуин, Джерри Бек, Эрнест Боргнайн, Клэнси Браун, Роджер Бампасс, Нат Кэш, Тим Конуэй, Розарио ДоусонПеревод: Профессиональный (многоголосый, закадровый)Субтитры: отсутствуютПродолжительность: 00:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37A2F555C1B1305EA39521E01B39F4205E3AA815
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382929   (814663) от 13.05.2020
-
-Windows 10 Enterprise x64 lite 2004 build 19041.264 by Zosma [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на официальном образе Microsoft:
-ru_windows_10_business_editions_version_2004_x64_dvd_278397a0
-Сборка делается для личных целей и в том составе, в котором необходимо автору. Пользователям предлагается в том виде в каком есть. Пожелания и предложения по составу удаленных и отключенных компонентов не требуются, принимаются только баг-репортыЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:938A4A80217B8C905EBA192DC4A7F932E0F248AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114277   (814419) от 24.03.2017
-
-Охота на дьявола (2016) SATRip [H.264] (серии 1-16 из 16)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814419.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основу истории легло реальное научное открытие российского физика Михаила Филиппова, которое он совершил в начале XX века. Учёный исследовал электромагнитные волны и проводил опыты по передаче энергии взрыва на расстоянии. Это явление получило название «гипотетический луч Филиппова». Сериал покажет, чем могла бы обернуться для человечества Вторая мировая война, (   Читать дальше...   )Производство: Россия / "Киностудия КИТ", IKa filmЖанр: детективРежиссер: Давид ТкебучаваАктеры: Сергей Безруков, Мария Луговая, Евгений Стычкин, Артём Ткаченко, Илья Любимов, Наталья Швец, Дмитрий Поднозов, Андрей Руденский, Петар Зекавица, Евгений Карпов и др.Продолжительность: ~00:48:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C81EE477A0F64BB07F11E75406D3E88C4A2A0C0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117911   (814417) от 24.03.2017
-
-WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2017.03.24 [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузочный диск на базе Windows 10 и 8 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2561722481244C9AC69CC887241324AAA6EB50BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117894   (814413) от 24.03.2017
-
-Изгой-один: Звёздные войны. Истории / Rogue One: A Star Wars Story (2016) BDRip [H.264/1080p]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сопротивление собирает отряд для выполнения особой миссии — надо выкрасть чертежи самого совершенного и смертоносного оружия Империи. Возглавляет бойцов неуправляемая и бесстрашная Джин Эрсо, у которой в этом самоубийственном задании есть и личные мотивы. Не всем суждено вернуться домой, но герои готовы к этому, ведь на кону судьба Галактики.Производство: США, Allison Shearmur Productions, Black Hangar Studios, Lucasfilm Ltd., Walt Disney Studios Motion PicturesЖанр: Фантастика, Боевик, ПриключенияРежиссер: Гарет ЭдвардсАктеры: Фелисити Джонс, Мадс Миккельсен, Алан Тьюдик, Донни Йен, Бен Мендельсон, Форест Уитакер, Диего Луна, Джонатан Арис, Риз Ахмед, Артур Л. БернштейнПеревод: Дублированный (iTunes)Субтитры: Русские (форс, полные), английские (полные, SDH)Продолжительность: 02:14:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7563A66DF65C1CA2481455D1D6359E5010BFB4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

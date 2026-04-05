@@ -6,7 +6,7 @@ History Channel. Островное помешательство Гитлера 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817461.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ History Channel. Наследие кельтов / The Celtic Legacy (2011) HDTV
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817454.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NG: Гибель морского монстра / Death of a Sea Monster (2010)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817132.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ NGW: Самая большая в мире белая акула / World's Bigge
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817090.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Discovery. Северная Америка / North America (2013) HDTVRip [H.264
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816993.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ BBC. "Испанка". Грипп, унесший 50 миллионов жизн
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816943.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Discovery. Как устроена Вселенная / How the Universe Works (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816857.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ NGW: Пумы на краю света / Pumas At The End of The World (2020) WE
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815852.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ NG: Секреты гробницы Христа: специальный реп�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815280.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814797.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ BBC. Полиамория: Любовь без границы / Louis Theroux's 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814675.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Discovery. Аполлон: найденные видео / Apollo: The Forgotten
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813844.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813517.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ BBC. Купи моего ребенка / Louis Theroux's Altered States: Take M
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813457.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ NGW: Дикие животные Японии / Japan's Wild Year (2014) HDTV [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813451.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ NG: Солнечное затмение / Eclipse (2010) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813311.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ NG. Наука рукопашного боя / Fight Science (2006) HDTV [H.264/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813102.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ BBC: Восхождение нацистов / Rise of the Nazis (2019) WEBRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811699.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ BBC: Завтра нашего мира / Tomorrow's World: A Horizon Special (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811639.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811534.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811462.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ BBC. Тропические островки Земли / Earth's Tropical Islan
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811399.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811184.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ BBC: Эти загадочные животные / Weird Nature (2002) HDTVRip 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810963.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ BBC: 80 Чудес света (все 10 серий) / Around the World in 80 Tr
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810274.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ BBC Radio 1's Big Weekend Hull 2017 / BBC Radio 1's Big Weekend Hull 2017 (2017)
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809988.jpg" />
 </div>
 
 

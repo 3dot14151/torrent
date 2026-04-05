@@ -1,32 +1,3 @@
-###  Публикация: 927215   (529929) от 12.08.2015
-
-Marco Beltrami & Philip Glass - The Fantastic Four (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Soundtracks>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fantastic Four Prelude
-02. The Garage
-03. The Unveiling
-04. Baxter(   Читать дальше...   )Жанр: SoundtracksПродолжительность: 01:12:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84AF5B133D712339D04EF0EBACA5FFD319FEBFCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1157274   (525466) от 11.08.2017
 
 Two Steps From Hell - Nero Anthology (2017) [MP3|320 Kbps|CBR] <Soundtrack, Instrumental, Epic Orchestral>
@@ -35,7 +6,7 @@ Two Steps From Hell - Nero Anthology (2017) [MP3|320 Kbps|CBR] <Soundtrack, Inst
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525466.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Grimwater - Silvermoor (2018) [MP3|320 Kbps] <Medieval Neofolk, Instrumental, Sy
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522189.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Don Davis - The Matrix Trilogy (Сomplete original motion picture soundtrack) (1
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520309.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Atom Music Audio - Urban Warfare: Action Sci-Fi Epic Tracks (2018) [MP3|320 Kbps
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519197.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA, Hans Zimmer - The Lion King / Король Лев (Original Motion Picture S
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518170.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ VA, Hans Zimmer - The Lion King / Король Лев (Оригинальный 
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518071.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Wilbert Roget, II - Mortal Kombat 11 (Original Game Soundtrack) (2019) [MP3|320 
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516955.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ VA - BEST of 100 OST (2015) [MP3|320 кб/с]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514763.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Various artists - The Muppets Original Motion Picture Soundtrack (2011) [MP3|320
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511469.jpg" />
 </div>
 
 
@@ -302,7 +273,7 @@ Nino Rota & Carmine Coppola & Al Martino - OST - Крестный отец / The
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506102.jpg" />
 </div>
 
 
@@ -337,7 +308,7 @@ VA - Minions (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Score
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505271.jpg" />
 </div>
 
 
@@ -366,7 +337,7 @@ Marilyn Monroe - Marilyn Monroe Sings! (2CD) (2012) [MP3|320 кб/с]<OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504743.jpg" />
 </div>
 
 
@@ -396,7 +367,7 @@ VA - Teenage Mutant Ninja Turtles: Shredder's Revenge (Original Game Soundtrack)
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500499.jpg" />
 </div>
 
 
@@ -425,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498048.jpg" />
 </div>
 
 
@@ -460,7 +431,7 @@ Marcelo Zarvos & Paul Hartnoll - Ультраамериканцы / American Ult
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490071.jpg" />
 </div>
 
 
@@ -489,7 +460,7 @@ Two Steps From Hell - Power of Darkness Anthology (2017) [MP3|320 Kbps] <Soundtr
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487725.jpg" />
 </div>
 
 
@@ -518,7 +489,7 @@ Atom Music Audio - Legion (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic 
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486809.jpg" />
 </div>
 
 
@@ -547,7 +518,7 @@ Atom Music Audio - Singularity (2019) [MP3|320 Kbps] <Soundtrack, Synthwave, Cyb
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486692.jpg" />
 </div>
 
 
@@ -576,7 +547,7 @@ VA - A Love Song For Bobby Long (2004) Original Motion Picture Soundtrack [MP3|3
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484053.jpg" />
 </div>
 
 
@@ -605,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483491.jpg" />
 </div>
 
 
@@ -634,7 +605,7 @@ VA - Mortal Kombat Soundtrack Compilation (1993-1999) [MP3|320 кб/с]<Techno, 
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482234.jpg" />
 </div>
 
 
@@ -660,7 +631,7 @@ The Soundtrack Studio Stars - Sounds of Tarantino (2014) [MP3|320 Kbps] <Soundtr
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477192.jpg" />
 </div>
 
 
@@ -689,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475882.jpg" />
 </div>
 
 
@@ -718,7 +689,7 @@ Apocalyptica - Aquarela (2019) [MP3|320 Kbps] <OST, Cello Metal>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475071.jpg" />
 </div>
 
 
@@ -747,7 +718,7 @@ Ramin Djawadi - Игра престолов / Game of Thrones, Сезон 4 (201
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473540.jpg" />
 </div>
 
 
@@ -761,6 +732,32 @@ Ramin Djawadi - Игра престолов / Game of Thrones, Сезон 4 (201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCDD0F70C2EF9D02EE528C6E3FAA285B3D10F71A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 548961   (464362) от 19.09.2012
+
+Joel Nielsen - Black Mesa Source Soundtrack (2012) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ScoreПродолжительность: 00:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D49FF2007F203724193D6D550894766B9E023C3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

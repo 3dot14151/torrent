@@ -1,3 +1,111 @@
+###  Публикация: 1455229   (1025802) от 18.03.2021
+
+Ирина Кавинская | Каникулы (2021) [EPUB]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сестры-двойняшки Рая и Катя приезжают в студенческий лагерь в Южной Корее, не подозревая, что попали в общину деструктивной секты. Когда секта затягивает Катю, Рая пытается спасти сестру, но вступает в неравную схватку, даже не догадываясь о том, что они обе оказались в этом лагере неспроста.Жанр: Современные детективы, Мистика, ТриллерыФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91AFECA24ABAA00B04B321A1EEF4F82DC123CA55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455227   (1025765) от 18.03.2021
+
+Хуан Гомес-Хурадо | Красная королева (2021) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025765.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Антонии Скотт эйдетическая память. Она помнит все, что читала или слышала. Она никогда не носила значок и не пользовалась оружием, но за свою карьеру раскрыла десятки преступлений.
+После тог как муж пострадал по ее вине, Антония отошла от дел. Теперь она живет в пустой квартире и питается тем, что приносят соседи. Дважды в день она созванивается с бабушкой, а ночи (   Читать дальше...   )Жанр: Зарубежные детективы, ТриллерыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41C8A50F63097DFDCC5921FF1CF3536D29CAB247
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455832   (1025450) от 20.03.2021
+
+Наталья Платонова и др. | Приключения Шерлока Холмса и доктора Ватсона в России [сборник] (2018) [EPUB]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025450.jpg" />
+</div>
+
+
+###  Подробнее
+
+По личной просьбе посла Великобритании в России Шерлок Холмс и Джон Ватсон прилетают в Москву, чтобы расследовать тройное убийство, совершенное в Новогоднюю ночь страшным и необычным способом. Друзья и не предполагали, что это преступление – только начало хитрой и сложной игры, в которую они окажутся втянуты и в которой им определена главная роль. Холмс и Ватсон (   Читать дальше...   )Жанр: Классические детективыФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0F4C088BEAD94C7C552E4FE009C255C4BE06B53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455836   (1025435) от 20.03.2021
+
+Юлия Фаро и др. | Новые приключения Шерлока Холмса и доктора Ватсона в России. Дело «Медного всадника» [сборник] (2021) [EPUB]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключения Шерлока Холмса и доктора Ватсона в России продолжаются!
+Давно захороненное в семейном склепе кольцо вдруг оказывается на прилавке известного ювелирного дома.
+Успешный журналист становится свидетелем убийства девушки в соседнем номере отеля. Администрация гостиницы утверждает, что номер пустует уже несколько недель и о пропаже людей никто не заявлял…
+Знаменитый (   Читать дальше...   )Жанр: Классические детективыФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E5BF91F419B443DE4DDFA7E3D316C46E6E78071
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456189   (1025262) от 21.03.2021
 
 Мария Воронова | Из хорошей семьи (2021) [EPUB]
@@ -6,7 +114,7 @@
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025262.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025225.jpg" />
 </div>
 
 
@@ -59,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025108.jpg" />
 </div>
 
 
@@ -85,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025103.jpg" />
 </div>
 
 
@@ -113,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025062.jpg" />
 </div>
 
 
@@ -139,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024752.jpg" />
 </div>
 
 
@@ -165,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024614.jpg" />
 </div>
 
 
@@ -193,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024557.jpg" />
 </div>
 
 
@@ -220,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024423.jpg" />
 </div>
 
 
@@ -247,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024063.jpg" />
 </div>
 
 
@@ -276,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024058.jpg" />
 </div>
 
 
@@ -304,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024048.jpg" />
 </div>
 
 
@@ -332,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024047.jpg" />
 </div>
 
 
@@ -360,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024031.jpg" />
 </div>
 
 
@@ -389,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024023.jpg" />
 </div>
 
 
@@ -415,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023894.jpg" />
 </div>
 
 
@@ -441,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023293.jpg" />
 </div>
 
 
@@ -468,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023277.jpg" />
 </div>
 
 
@@ -496,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022922.jpg" />
 </div>
 
 
@@ -522,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022920.jpg" />
 </div>
 
 
@@ -548,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022781.jpg" />
 </div>
 
 
@@ -574,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022062.jpg" />
 </div>
 
 
@@ -585,112 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B53115CB3A63C988B3F60995CEAE9CBDF0AC8ED7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460150   (1022059) от 08.04.2021
-
-Наталья Тимошенко | Кошки-мышки (2021) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маргарита Андреева тридцати восьми лет от роду была вынуждена сменить место жительства несколько раз. Все дело в том, что уважаемая белая ведьма однажды отказалась навести порчу на соперницу весьма влиятельной посетительницы. Женщина не привыкла к отказам и приложила максимум усилий, чтобы отравить Рите жизнь, напрочь лишив клиентов и, как следствие, заработка.
-Выбрав (   Читать дальше...   )Жанр: Детектив, мистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:110ECC7F3A0CDC717B1EC19CBB769EFDF4FCF041
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461611   (1021804) от 10.04.2021
-
-Александр Куревин | Ставка на любовь (2021) [EPUB]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Человеческие чувства в иных делах – слабости. И мы знаем, как спецслужбы всего мира умеют ловко использовать эти слабости в своих целях.
-Главный инженер российского оборонного завода Николай Зеленов в загранкомандировке влюбляется в переводчицу и попадает в ловушку. Он обвинен в изнасиловании и оказывается перед выбором: стать агентом ЦРУ или сгинуть в японской тюрьме.Жанр: Современные детективыФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFEEF77F6EF318408D58D62CD894E0A6722AA63D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461605   (1021787) от 10.04.2021
-
-Марина Серова | Принеси меня в жертву (2021) [EPUB]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021787.jpg" />
-</div>
-
-
-###  Подробнее
-
-В тот день все пошло не так с самого утра! Частный детектив Татьяна Иванова даже подумала, что обстоятельства против ее поездки на далекую ферму. Так и оказалось: любимая и преданная машина заглохла на обратном пути, и если бы не помощь удачно встреченного на дороге бывшего коллеги Василия Шумского, то ночевать Татьяне пришлось бы на трассе. Василий пригласил Таню (   Читать дальше...   )Жанр: Современные детективыФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B26A9CA494BE513ED37C8B271CCC211489791ECC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461606   (1021781) от 10.04.2021
-
-Марина Серова | Преступление высшей пробы (2021) [EPUB]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Частного детектива Татьяну Иванову в этот раз ждет непростое дело – ей предстоит расследовать смерть матери Олега Солодовникова. Интеллигентную старушку Елену Григорьевну обнаружил с пробитой головой в собственной квартире ее внук Саша. Зачем убивать пожилую женщину и кому она могла открыть дверь? Татьяна Иванова собирается искать убийцу в далеком прошлом Солодовниковой…Жанр: Современные детективыФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BFA743D039B37C728CB245550205515A8AAD098
 ```
 
 https://mybot314.ru/tekegram_catalog/

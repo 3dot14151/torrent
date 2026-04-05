@@ -6,7 +6,7 @@ FAST Racing Neo (2015) [WiiU] [EUR] 5.3.2 [WUP Installer] [License / 1.2 / DLC] 
 >>Wii U
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305989.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Spelunky (2012) [Xbox360] [RegionFree] [FreeBoot] [XBLA] [En] | R.G. X360CLUB
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304798.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Ace Combat: Assault Horizon (2011) [Xbox360] [RegionFree] [FreeBoot] [License] [
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304788.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Ranko Tsukigime's Longest Day / Short Peace: Ranko Tsukigime's Longest Day (2014
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302970.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ The Incredible Hulk (2008) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru] | R.
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302719.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Tak And The Guardians Of Gross [Wii] [Eng] [PAL] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302316.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Zack & Wiki: Quest for Barbaros' Treasure [Wii] [PAL] [Multi 5] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301627.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Man vs. Wild (2011) [PS3] [USA] 3.56 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300956.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Marvel Super Hero Squad: The Infinity Gauntlet (2010) [PS3] [EUR] 3.41 [Cobra OD
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300819.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Need For Speed: Hot Pursuit (Limited Edition) (2010) [PS3] [EUR] 3.50 [Cobra ODE
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300653.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Demon's Souls (2009) [PS3] [USA] 3.41 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298325.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Kung Fu Panda: Showdown of Legendary Legends (2015) [Xbox360] [RegionFree] FreeB
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298272.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Ultra Street Fighter 4: The Complete Edition (2014) [Xbox360] [RegionFree] FreeB
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298270.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Sonic and the Secret Rings [Wii] [PAL] [Multi 5] (2007)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297093.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Raven Squad: Operation Hidden Dagger / Отряд "Ворон" (2009) [Xbox360] 
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296634.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Dark Void (2010) [Xbox360] [RegionFree] FreeBoot [License] [Ru] | R.G. X360CLUB
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296632.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Conflict: Denied Ops (2008) [PS3] [EUR] 2.01 [Cobra ODE / E3 ODE PRO ISO] [Licen
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296565.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Enemy Territory: Quake Wars (2008) [PS3] [EUR] 2.30 [Cobra ODE / E3 ODE PRO ISO]
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296474.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Pikmin 2 [Wii] [PAL] [Multi 5] (2009)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294967.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ X-Men: The Official Game (2006) [Xbox360] [RegionFree] FreeBoot [License] [Ru] |
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294495.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Endless Ocean [Wii] [PAL] [Multi 5] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293379.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ The Swapper (2014) [PS3] [EUR] 4.21 [Repack] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293263.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Ratatouille / Рататуй (2007) [PS3] [EUR] 1.80 [Cobra ODE / E3 ODE PRO ISO
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292558.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Nobunaga's Ambition: Sphere of Influence (2015) [PS3] [USA] 4.21 [Repack] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291566.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Rogue Warrior (2009) [PS3] [USA] 3.01 [Cobra ODE / E3 ODE PRO ISO] [License] [En
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290723.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Bound by Flame (2014) [Xbox360] [RegionFree] FreeBoot [Unofficial] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290488.jpg" />
 </div>
 
 

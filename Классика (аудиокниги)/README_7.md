@@ -1,3 +1,87 @@
+###  Публикация: 178277   (924642) от 25.02.2010
+
+И.С. Тургенев | Записки охотника (1962, 1968) [MP3, Дмитрий Журавлев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из архивов "Фирмы Мелодия". Записи 1962 и 1968 годов.
+Дмитрий Николаевич Журавлев - русский актер, мастер художественного слова, народный артист СССР, лауреат Государственной премии СССР.
+С именем Ивана Сергеевича Тургенева связана не одна страница творческой жизни великого артиста. "В самом начале работы над прозой Ивана Сергеевича Тургенева - рассказчика (   Читать дальше...   )Жанр: Рассказы
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 756352   (922845) от 13.02.2014
+
+О.Генри | Короли и капуста (2014) [MP3, Александр Бордуков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922845.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новеллы О.Генри (настоящее имя Уильям Сидней Портер, 1862-1910) на протяжении вот уже ста лет привлекают читателя добрым юмором, оптимизмом, любовью к «маленькому американцу», вызывая интерес и сочувствие к жизненным перипетиям клерков, продавщиц, бродяг, безвестных художников, поэтов, актрис, ковбоев, мелких авантюристов, фермеров.
+Ярким примером оригинального стиля (   Читать дальше...   )Жанр: Юмористическая проза, классикаИздательство: Союз, Покидышевъ и сыновья
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F43B132F50C59B7E3222DA1EA8E39FAB1AC97EF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 82668   (919753) от 29.01.2015
+
+А.Кристи, В.Шекспир | Золотой фонд радиоспектаклей часть 5 [1993] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уильям Шекспир «Ромео и Джульетта» — постановка А.Баталова.
+В ролях: А.Баталов, А.Джигарханян, Е.Герасимов, И.Костолевский и другие заслуженные и народные артисты
+
+Агата Кристи «Происшествие в старом замке»(   Читать дальше...   )Жанр: Радио Спектакль
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 289084   (918441) от 31.01.2011
 
 Стендаль, Бальзак, Мериме и др. | Неведомый шедевр. Рассказы французских писателей (1984) [MP3, Николай Козий]
@@ -6,7 +90,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918441.jpg" />
 </div>
 
 
@@ -32,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917512.jpg" />
 </div>
 
 
@@ -58,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916115.jpg" />
 </div>
 
 
@@ -85,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915824.jpg" />
 </div>
 
 
@@ -111,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915688.jpg" />
 </div>
 
 
@@ -137,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915542.jpg" />
 </div>
 
 
@@ -163,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915010.jpg" />
 </div>
 
 
@@ -189,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914935.jpg" />
 </div>
 
 
@@ -215,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914286.jpg" />
 </div>
 
 
@@ -241,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912224.jpg" />
 </div>
 
 
@@ -267,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911135.jpg" />
 </div>
 
 
@@ -296,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910757.jpg" />
 </div>
 
 
@@ -322,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910107.jpg" />
 </div>
 
 
@@ -348,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909847.jpg" />
 </div>
 
 
@@ -374,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908651.jpg" />
 </div>
 
 
@@ -400,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908640.jpg" />
 </div>
 
 
@@ -426,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908022.jpg" />
 </div>
 
 
@@ -452,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908007.jpg" />
 </div>
 
 
@@ -478,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906550.jpg" />
 </div>
 
 
@@ -504,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906188.jpg" />
 </div>
 
 
@@ -532,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905492.jpg" />
 </div>
 
 
@@ -558,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905142.jpg" />
 </div>
 
 
@@ -584,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904246.jpg" />
 </div>
 
 
@@ -598,85 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:182BF2582ADF6E3E38E2BA563C36FE47298131A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991861   (902605) от 01.03.2016
-
-Александр Куприн | Впотьмах. Жанета (2011) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902605.jpg" />
-</div>
-
-
-###  Подробнее
-
-А.И. Куприн - колоритнейшая фигура русской культуры. Он был жаден до жизни, перепробовал едва ли не все возможные профессии, старался заглянуть во все уголки Земли. Потому-то так роскошно богато и полновесно все, что он оставил нам в литературе. Яркость его книг сравнима разве что с картинами Кустодиева. Но эти два рассказа - особенные. Они о сломленных людях. И (   Читать дальше...   )Жанр: КлассикаПродолжительность: 05:36:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C593409417E5D31E9C2AF47B66C4E0C2AC77037
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099493   (901476) от 03.02.2017
-
-Антон Чехов и др. | Игорный дом Радио России (2014) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию представлена подборка инсценированных рассказов Игорного дома Радио России. Тут и русская классика и зарубежная.Жанр: Классика, современная прозаПродолжительность: 09:02:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3F0D996FADD2BCB89A3C983C5DA78438D78031B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 293751   (901466) от 10.02.2011
-
-Алексей Константинович Толстой | Встреча через триста лет (2004) [MP3, Виктор Рудниченко]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901466.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: XX век. Русская проза.
-«Упырь» – фантастическая повесть. Действие ее происходит в России, но истоки происшествия ведут в Италию, куда слушателей переносит рассказ одного из персонажей. Упырь – славянское название кровожадных вампиров. Упыри повсюду, они вокруг нас. И даже любимая девушка может оказаться упырем. Романтической фантастикой проникнуты повести (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Студия «АРДИС»Продолжительность: 06:51:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8C02108FAB443901E98D06CCCDA63BE23B5263B
 ```
 
 https://mybot314.ru/tekegram_catalog/

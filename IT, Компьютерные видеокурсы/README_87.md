@@ -1,30 +1,3 @@
-###  Публикация: 1652090   (194493) от 09.08.2023
-
-Stepik, Shultais Education, Никита Шультайс | Проектирование баз данных (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194493.jpg" />
-</div>
-
-
-###  Подробнее
-
-В курсе в простой форме рассказывается теория проектирования баз данных, а также даются практические инструменты на примере учебной базы данных автосалона.
-В ходе небольшой серии уроков рассматриваются варианты логического и концептуального проектирования, нормализация базы до формы 4НФ, а также денормализация таблиц.Производство: Stepik, Shultais EducationЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 01:09:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E1FAFD2E00E1B096B43D9C1F9E62D580B659DD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652724   (194313) от 13.08.2023
 
 Stepik, Илья Фофанов | React - Полное руководство (2023) WEB-DL [RU]
@@ -33,7 +6,7 @@ Stepik, Илья Фофанов | React - Полное руководство (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194313.jpg" />
 </div>
 
 
@@ -61,7 +34,7 @@ Andrii Piatakha | Software Architecture and Clean Code Design in OOP (2022) WEBR
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194269.jpg" />
 </div>
 
 
@@ -90,7 +63,7 @@ Infostart, Николай Бондаренко | Видеокурс «1C - Пр�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194268.jpg" />
 </div>
 
 
@@ -119,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194159.jpg" />
 </div>
 
 
@@ -148,7 +121,7 @@ Stepik, Павел Коган | Google-таблицы. от А до Я (2023) WE
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193472.jpg" />
 </div>
 
 
@@ -177,7 +150,7 @@ Udemy, Sebastian Glöckner | Der Komplette Excel Kurs - Vom Anfänger zum Profi 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193225.jpg" />
 </div>
 
 
@@ -206,7 +179,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193141.jpg" />
 </div>
 
 
@@ -235,7 +208,7 @@ Adrian Cantrill | AWS Certified Advanced Networking - Specialty (2022) WEB-DL [E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193092.jpg" />
 </div>
 
 
@@ -264,7 +237,7 @@ Academind Pro, Udemy, Maximilian Schwarzmüller | GitHub Actions - The Complete 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193089.jpg" />
 </div>
 
 
@@ -292,7 +265,7 @@ Adrian Cantrill | AWS Certified SysOps Administrator - Associate [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193064.jpg" />
 </div>
 
 
@@ -321,7 +294,7 @@ Udemy, Dzianis Matveyenka | JUnit 5 (2022) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193044.jpg" />
 </div>
 
 
@@ -350,7 +323,7 @@ Filab, Діма Малєєв, Кріс Косик | Engineering Management (2023
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192592.jpg" />
 </div>
 
 
@@ -376,7 +349,7 @@ Udemy, Dzianis Matveyenka (DMdev) | Beginner's Guide to Groovy for Java Devs (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192524.jpg" />
 </div>
 
 
@@ -404,7 +377,7 @@ Skillfactory, Михаил Королев | Data Engineering (2023) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192500.jpg" />
 </div>
 
 
@@ -433,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192492.jpg" />
 </div>
 
 
@@ -461,7 +434,7 @@ Udemy, Dzianis Matveyenka (DMdev) | Computer Science on Java for Beginners (2023
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192490.jpg" />
 </div>
 
 
@@ -487,7 +460,7 @@ QA.GURU, Артём Eрошенко, Aлексей Виноградов, Ром�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192488.jpg" />
 </div>
 
 
@@ -516,7 +489,7 @@ Fillthegaps, Яковлева Диана | Многопоточное прогр
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192482.jpg" />
 </div>
 
 
@@ -545,7 +518,7 @@ OTUS, Александр Ключев | C++ Developer. Professional. Углуб�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192477.jpg" />
 </div>
 
 
@@ -572,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192469.jpg" />
 </div>
 
 
@@ -599,7 +572,7 @@ Amy Dutton | Everything Svelte (Complete package) (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192097.jpg" />
 </div>
 
 
@@ -627,7 +600,7 @@ Udemy, Ines Ivanova-Kenova | Complete FastAPI REST course + AWS + Emails + Payme
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192050.jpg" />
 </div>
 
 
@@ -653,7 +626,7 @@ Talkpython | Подборка курсов по FastAPI (2021-2022) WEB-DL [EN /
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192038.jpg" />
 </div>
 
 
@@ -680,7 +653,7 @@ Yan Cui | AppSync Masterclass (Premium) (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191839.jpg" />
 </div>
 
 
@@ -707,7 +680,7 @@ Udemy, Learn IT University, Andrii Piatakha | Object Oriented Programming - Basi
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191745.jpg" />
 </div>
 
 
@@ -719,6 +692,34 @@ All code examples in the course are written in Java but that's doesn't mean you 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:387B5DBA87FE8FD7D2F2107323922DA2D7494ED6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657994   (191721) от 06.09.2023
+
+Thinknetica Pro, Анна Буянова | Старый Добрый Код: как жить с существующим кодом (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Воркшоп для разработчиков, которые хотят рационально подходить к улучшению существующего кода и научиться оптимально и безопасно рефакторить его "под прикрытием" тестов.
+Результат:Научитесь определять проблемные места в коде, который нужно изменить
+Поймёте как находить компромиссы между желанием написать "красивый" 100% покрытый тестами код и (   Читать дальше...   )Производство: Thinknetica ProЖанр: Онлайн-воркшопЯзык озвучки: РусскийПродолжительность: 05:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AED485B8898C9924A138F58ADA0D46CB4E27987D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,133 @@
+###  Публикация: 1036682   (619250) от 21.07.2016
+
+Журнал | Дачный клуб №7 (Июль 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619250.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом журнале собрана яркая и наглядная информация о том, как ухаживать за садом, огородом, цветником, раскрываются хитрости ландшафтного дизайна, даются оригинальные рецепты заготовок и блюд из урожая.Жанр: Дача, сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC8D28D3E8C2C5767D2B03B540CFB55D0DE38F82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036603   (619244) от 21.07.2016
+
+Журнал | Огородыч №6 (51) (2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дачники и дачницы, огородники и огородницы, садовники и садовницы, опытом, знаниями и полезной информацией о том, как выбрать семена и рассаду, победить сорняки и вредителей, вырастить и сохранить богатый урожай, щедро делится с вами журнал «Огородыч» — лучший друг и незаменимый советчик современного дачника. Дача, сад, огород – уход без хлопот!Жанр: дача, сад, огород, урожайФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CE7C72CC3E9BBCC6DCE4740D4966B22CBA10FBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523343   (619233) от 15.07.2012
+
+Журнал | 8-БИТ №11 [июль 2012] [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619233.jpg" />
+</div>
+
+
+###  Подробнее
+
+"8-БИТ" - Журнал создавался чтобы информировать народ о новинках информационных технологий, которые будут собраны в одном месте, а не раскиданы по всему рунету, потом пришли идеи создать другие рубрики, такие как юмор, обзор программ, делаем сайты, которые делают журнал более интересным.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F1811C7F24EDA8E303D95DC4C403984413E844D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036695   (619140) от 21.07.2016
+
+Журнал | Садовод и огородник №13 (336) (июль 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для садоводов и дачников, владельцев загородных участков, который предлагает множество практических советов по садоводству и огородничеству, содержанию животных, ландшафтному дизайну. Издание расскажет как обустроить свой садовый участок, поделится секретами выращивания яблонь, груш, винограда, других плодовых деревьев и ягодных кустарников.Жанр: Сад и ОгородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D780580743952A09DE2CF440F375010BEB83D114
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523277   (619042) от 15.07.2012
+
+Журнал | Лиза. Гороскоп № 08 [2012] [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619042.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Лиза Гороскоп» — глянцевый журнал для женщин, которые сверяют свою жизнь со звездами и любят получать положительные эмоции. Как стать хозяйкой своей судьбы? Звезды Вам советуют. Ежемесячные прогнозы для всех знаков Зодиака. Любовь: ее психология и выбор партнера. Погода на завтра. Исцели себя сама. Великие маги и пророки.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF581F1B9A5D90A6DC05D5F597D5AFCD9F4B34BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 803605   (618941) от 10.07.2014
 
 Журнал | Кухни и ванные комнаты. Спецвыпуск Ванные комнаты (2014) [PDF]
@@ -6,7 +136,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618941.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618937.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618831.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618813.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618812.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618810.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618809.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618807.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618806.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618803.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618795.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618529.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618440.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618413.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618326.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618320.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618173.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618156.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617799.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617534.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617396.jpg" />
 </div>
 
 
@@ -537,137 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBE486E9E6DDCCCFF86CFE0310B3988E7C7AF162
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036968   (617278) от 22.07.2016
-
-Журнал | Вязание ваше хобби №8 (2016) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617278.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Вязание – ваше хобби» предназначен для женщин, которые любят проводить свободное время за вязание на спицах и крючком. Каждый номер журнала содержит 30 суперхитов вязаной моды каждого сезона – классические и спортивные женские модели, сочетающие в себе комфорт и практичность. Наряду со сложными в исполнении моделями, требующими мастерства и терпения, есть модели (   Читать дальше...   )Жанр: ВязаниеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C468FFB2A8B74F1BA33C35498007148BDE71013
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036970   (617180) от 22.07.2016
-
-Журнал | Сабрина беби. Вязание для малышей №3 (2016] [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617180.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом номере вы найдете очаровательные модели для самых маленьких, а также множество подходящих к ним аксессуаров. Самое лучшее для новичков - начать практиковаться в вязании детских вещей. Так что на этих страницах есть все, чтобы успешно справиться с поставленной задачей.Жанр: 2016Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A80275C71DB9E147350F556439ADE24415FFD4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036885   (617179) от 22.07.2016
-
-Журнал | Хозяин № 6 (937) (июнь 2016) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современный «Хозяин» — это современный массовый научно-производственный журнал с многотысячной читательской аудиторией, ведь его выписывают белорусы уже в четвертом поколении.  «Хозяин» — это отвечающее требованиям времени полноцветное печатное издание на 48 страницах, выходящее тиражом около 35 тысяч экземпляров. Нас читают не только в Беларуси, но и в России, Украине, (   Читать дальше...   )Жанр: сад, огород, цветы, дизайн участка урожайФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A81169BDE79EAB778BD8015E9ADDAD6A859BCE20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037031   (617175) от 22.07.2016
-
-Журнал | Загадки истории. Золотая серия №14 (2016) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему экспедиция Магеллана стала первой, обогнувшей земной шар? Какой ценой оплачены восхождение на высочайшие горные вершины и покорение полюсов Земли? Кто может выжить в непроходимых джунглях Африки? И как на самом деле звали легендарного путешественника и археолога Индиану Джонса?
-Об этом и многом другом читайте в новом номере "Золотой серии".Жанр: Популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98393EB84CBE92C73FD94D994C0CE14F4DD5CC49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036952   (617166) от 22.07.2016
-
-Журнал | Урожайные сотки №6 (июнь 2016) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Более 20 лет ежемесячный журнал «Урожайные сотки» пользуется широкой популярностью у дачников, садоводов-профессионалов и любителей, хозяев приусадебных участков. При его издании наша редакция ориентируется на климатические условия Беларуси и учитывает специфику всех ее регионов.Жанр: Сад, огород, цветы, дизайн участка, урожайФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:552D0FA5D0D7D0BDF3A2F7A79AEF5D600CD12A79
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,31 @@
+###  Публикация: 1423667   (299085) от 13.11.2020
+
+Udemy, Dr. Ryan Ahmed и др. | Программирование на Python 3. От новичка до профессионального мастера / Python 3 Programming: Beginner to Pro Masterclass (2020) PCRec [En / En, Ru Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299085.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наша миссия - создать самое полное в мире руководство по программированию на Python.
+Этот мастер-класс предоставляет вам все необходимое, от основ Python до методов, используемых профессионалами, для начала создания и применения Python.
+Мастер-класс «Python от новичка до профессионального уровня» - это наш флагманский курс Python, который предлагает уникальное обучение (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 22:37:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DD1A6935E2A1A5F7551C90C5D7FB8F5CDF6B899
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961431   (298462) от 02.12.2015
 
 Мирзакарим Норбеков | Мастерская успеха - Москва - Ноябрь (2009) DVDRip
@@ -6,7 +34,7 @@
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298462.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ Udemy, Evgenii Puzakov | Check Point Sandblast Course (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297340.jpg" />
 </div>
 
 
@@ -59,7 +87,7 @@ Udemy, Samuel Hinton | Python для статистического анализ
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297331.jpg" />
 </div>
 
 
@@ -87,7 +115,7 @@ Udemy, 365 Careers Team | Statistics for Data Science and Business Analysis (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297330.jpg" />
 </div>
 
 
@@ -116,7 +144,7 @@ Udemy, Imtiaz Ahmad | Master SQL For Data Science (2020) PCRec [En / En, Pl, Ro 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297329.jpg" />
 </div>
 
 
@@ -142,7 +170,7 @@ Udemy, Денис Пугачев | Docker Swarm на практике (2020) PCR
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297186.jpg" />
 </div>
 
 
@@ -169,7 +197,7 @@ Udemy, Валерий Жданов | Как создать сайт на Node JS
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297064.jpg" />
 </div>
 
 
@@ -198,7 +226,7 @@ Udemy, Alexandr Tyurin | Интерактивная веб-анимация 2020
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297063.jpg" />
 </div>
 
 
@@ -224,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296525.jpg" />
 </div>
 
 
@@ -250,7 +278,7 @@ Movie Park | Видеокурс по видеопродакшену, съёмк�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296373.jpg" />
 </div>
 
 
@@ -276,7 +304,7 @@ Udemy, Narayana Walters | Как делать стилизованную пло�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295318.jpg" />
 </div>
 
 
@@ -302,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294740.jpg" />
 </div>
 
 
@@ -328,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294486.jpg" />
 </div>
 
 
@@ -357,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294384.jpg" />
 </div>
 
 
@@ -383,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294375.jpg" />
 </div>
 
 
@@ -411,7 +439,7 @@ Daily Burn | 8 эффективных тренировок от различны
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293754.jpg" />
 </div>
 
 
@@ -437,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292474.jpg" />
 </div>
 
 
@@ -464,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292393.jpg" />
 </div>
 
 
@@ -492,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291389.jpg" />
 </div>
 
 
@@ -518,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291198.jpg" />
 </div>
 
 
@@ -546,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290890.jpg" />
 </div>
 
 
@@ -575,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290541.jpg" />
 </div>
 
 
@@ -601,7 +629,7 @@ Digital-Tutors | UV Mapping Workflows in Blender (2015) PCRec [H.264/720p-LQ] [R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289395.jpg" />
 </div>
 
 
@@ -629,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287787.jpg" />
 </div>
 
 
@@ -656,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287578.jpg" />
 </div>
 
 
@@ -667,32 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D267EF4EBF3A7C6315E7044F65EAA214D99E668B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079609   (287382) от 07.12.2016
-
-ITVDN | SharePoint Администрирование (2015) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс является первой ступенькой в подготовке начинающих администраторов SharePoint. Тренинг создан на основе материалов официальных тренингов Microsoft и дает первоначальные сведения о том, что такое SharePoint, какие функциональные возможности предоставляет, как его установить, подготовить к работе и минимально сконфигурировать. В курсе не рассматриваются вопросы, (   Читать дальше...   )Производство: ITVDNЖанр: ПрограммированиеПродолжительность: 07:21:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8389C06DF4CD317ABD8017D120AC0534271969C
 ```
 
 https://mybot314.ru/tekegram_catalog/

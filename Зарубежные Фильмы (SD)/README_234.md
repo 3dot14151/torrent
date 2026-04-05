@@ -1,107 +1,3 @@
-###  Публикация: 1282964   (740875) от 15.02.2019
-
-Зятек / Son in Law (1993) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ребекка — молодая студентка, которая отправляется в свой родной городок, чтобы встретить с родными День Благодарения. Вместе с собой она берет своего лучшего друга Кроула, довольно странного паренька, у которого огромное количество причуд. Приехав к родителям, девушка представляет его родным, как своего жениха. Семье Ребекке не нравится ее выбор, поскольку парень (   Читать дальше...   )Производство: США. Hollywood PicturesЖанр: Комедия, МелодрамаРежиссер: Стив РашАктеры: Поли Шор, Карла Гуджино, Лейн Смит, Синди Пикетт, Мейсон Эдамс, Патрик Ренна, Деннис Бёркли, Тиффани Тиссен, Дэн Готье, Риа ПавиаПеревод: Многоголосый закадровый, авторскийСубтитры: Русские, английскиеПродолжительность: 01:35:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AB62AA3D36992CE38778350789164A0C355D21E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 784255   (740717) от 07.05.2014
-
-Каратель / The Punisher (2004) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: боевик, триллер, драма, криминалРежиссер: Джонатан ХенслиАктеры: Томас Джейн, Джон Траволта, Уилл Пэттон, Эдди Джемисон, Ребекка Ромин, Бен Фостер, Джон Пинетт, Лора Хэрринг, Джеймс Карпинелло, Марко Ст. Джон, Энтони Короне, Бен Фостер, Рик ЭлмхурстПеревод: Многоголосый закадровыйПродолжительность: 02:03:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E25B2B2FB63991308150F26C5AF1C6ED9AC8D0B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126949   (740699) от 20.04.2017
-
-Дьявол в нем / Le diable dans la peau (2011) DVDRip [H.264] [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740699.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ксавье и его младший брат - Жак, живут в сельской местности, полной ущелий, плато и огромных просторов. Эта щедрая величественная природа контрастирует с их темной и жестокой повседневной жизнью. Накануне летних каникул Ксавье узнает, что их хотят разлучить: Жака отправляют учиться в специальную школу для одаренных детей...Производство: Франция (Noodles Production)Жанр: ДрамаРежиссер: Gilles MartinerieАктеры: Кантен Гроссе, Поль Франсуа, Джианн Бурно, Орфео Кампанелла, Августин Куэр, Жозефин Деренне, Орели Мерьель, Франсис РеноПеревод: Одноголосый закадровый (Семен Ващенко)Субтитры: русские, английские неотключаемыеПродолжительность: 01:23:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9805338F9471447F35E8013C1BD35ADF884F2468
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127192   (740697) от 20.04.2017
-
-Челюсти 3D / Shark Night 3D (2011) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет фильма вращается вокруг группы подростков, учащихся колледжа, которые проводят свои выходные на воде в большом озере. Вскоре они обнаруживают, что зубастая опасность скрывается под ними, в непроглядной глубине.Производство: США / Incentive Filmed Entertainment, Next Films, Sierra Pictures (III), Silverwood FilmsЖанр: Триллер, УжасыРежиссер: Дэвид Р. ЭллисАктеры: Сара Пэкстон, Дастин Миллиган, Крис Кармак, Кэтрин МакФи, Донал Лог, Джоэль Мур, Джошуа Леонард, Синква Уоллс, Алисса Диас, Крис ЗилкаПеревод: Дублированный (BD 3D)Субтитры: АнглийскиеПродолжительность: 01:30:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:797DFF86B0BE69F229F475A6A3776A9C3BAABB38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282954   (740655) от 15.02.2019
 
 Жил-был Дэдпул / Once Upon A Deadpool (2018) BDRip
@@ -110,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740655.jpg" />
 </div>
 
 
@@ -136,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740649.jpg" />
 </div>
 
 
@@ -163,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740634.jpg" />
 </div>
 
 
@@ -189,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740600.jpg" />
 </div>
 
 
@@ -217,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740597.jpg" />
 </div>
 
 
@@ -243,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740541.jpg" />
 </div>
 
 
@@ -269,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740534.jpg" />
 </div>
 
 
@@ -295,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740527.jpg" />
 </div>
 
 
@@ -321,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740521.jpg" />
 </div>
 
 
@@ -347,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740520.jpg" />
 </div>
 
 
@@ -373,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740505.jpg" />
 </div>
 
 
@@ -399,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740496.jpg" />
 </div>
 
 
@@ -425,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740486.jpg" />
 </div>
 
 
@@ -451,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740480.jpg" />
 </div>
 
 
@@ -477,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740308.jpg" />
 </div>
 
 
@@ -503,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740158.jpg" />
 </div>
 
 
@@ -529,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740072.jpg" />
 </div>
 
 
@@ -555,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740016.jpg" />
 </div>
 
 
@@ -581,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739650.jpg" />
 </div>
 
 
@@ -607,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739512.jpg" />
 </div>
 
 
@@ -633,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739478.jpg" />
 </div>
 
 
@@ -659,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739475.jpg" />
 </div>
 
 
@@ -670,6 +566,110 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:077A02CC89147AED69ADF5DF24D347064C046A9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521067   (738769) от 23.01.2022
+
+Жизнь за кадром / State and Main (2000) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738769.jpg" />
+</div>
+
+
+###  Подробнее
+
+В поисках идеальной съёмочной площадки в маленький тихий городок "Старая Мельница" приезжают именитые кинематографисты. Здесь они намереваются дёшево и быстро снять свой новый шедевр, действие которого разворачивается на фоне ветхой водяной мельницы. Но... Мельница давно сгорела; исполнитель главной роли, любитель малолетних девочек, и здесь не может забыть (   Читать дальше...   )Производство: Франция, США, El Dorado Pictures, Filmtown Entertainment, Green/RenziЖанр: драма, комедияРежиссер: Дэвид МэметАктеры: Филип Сеймур Хоффман, Уильям Х. Мэйси, Дэвид Пэймер, Алек Болдуин, Ребекка Пиджон, Сара Джессика Паркер, Кларк Грегг, Джулия Стайлз, Чарльз Дёрнинг, Патти ЛюПонПеревод: профессиональный многоголосый (CP Дистрибуция)Субтитры: русские, английскиеПродолжительность: 01:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5D39233981CE94DF902998CBE67ED088D334A53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526218   (738746) от 23.01.2022
+
+Чёрный ангел / Lange noir (1994) BDRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738746.jpg" />
+</div>
+
+
+###  Подробнее
+
+В роскошном загородном особняке, где проживает состоятельный и почтенный судья, произошло убийство. Его прекрасная супруга расстреляла из пистолета немолодого мужчину, который, якобы, пытался её изнасиловать. По просьбе судьи, защищать взятую под арест женщину берется известный адвокат метр Поль Дерольм. Чтобы доказать факт самообороны, Поль начинает скрупулёзно (   Читать дальше...   )Производство: Франция, Canal+ (fr), La Sorcière Rouge, Les Films Alain SardeЖанр: драма, криминал, триллерРежиссер: Жан-Клод БриссоАктеры: Сильви Вартан, Мишель Пикколи, Чеки Карио, Александра Виниски, Мария Луиза Гарсия, Филипп Торретон, Бернар Верле, Клод Фаральдо, Клод Жиро, Клод ВинтерПеревод: профессиональный многоголосыйСубтитры: нетПродолжительность: 01:38:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDB8D734E6E67166D36DCB548C59234DA5D9CC1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521038   (738692) от 23.01.2022
+
+Секс по дружбе / Friends with Benefits (2011) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738692.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главная героиня – сотрудник кадрового агентства, которую преследуют фобии в отношениях с обязательствами. Однако, эти проблемы оказываются надуманными, после того как она встречает редактора глянцевого журнала. Он, в свою очередь, устал от женщин, которые мечтают вступить с ним в связь. Таким образом, созданы все условия для бурного романа и столкновения характеров (   Читать дальше...   )Производство: США / Castle Rock EntertainmentЖанр: мелодрама, комедия, драмаРежиссер: Уилл ГлакАктеры: Джастин Тимберлейк, Мила Кунис, Патриша Кларксон, Дженна Элфман, Вуди Харрельсон, Ричард Дженкинс, Брайан Гринберг, Нолан Гоулд, Шон Уайт, Катрин РейтманПеревод: ДублированныйСубтитры: русские (forced, full), английские (full)Продолжительность: 01:49:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAAD002EB703E79ECA9294B69780BB73764128CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526252   (738618) от 23.01.2022
+
+Охота на ведьм / Военная охота / WarHunt (2021) WEBRip [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Военный грузовой самолет США внезапно теряет управление и падает глубоко в тылу врага посреди немецкого Шварцвальда. Майор Джонсон отправляет отряд своих самых храбрых солдат на спасательную миссию, чтобы забрать сверхсекретные материалы, которые перевозил самолет. Во главе с сержантом Брюэром солдаты отправляются вглубь леса рядом с местом крушения. Вскоре они обнаруживают (   Читать дальше...   )Производство: США / Forma Pro Films, RNG EntertainmentЖанр: Ужасы, боевик, триллерРежиссер: Мауро БорреллиАктеры: Микки Рурк, Роберт Неппер, Джексон Рэтбоун, Полина Пушкарева, Джош Бердетт, Алекс Миллс, Фредерик Вагнер, Тимо Уиллман, Бен Маккьюн, Мэтт МеллаПеревод: Любительский одноголосый (Datynet) без цензурыСубтитры: Русские, АнглийскиеПродолжительность: 01:32:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6FE55DEEA04EDA88ABEFED0224518B318136612
 ```
 
 https://mybot314.ru/tekegram_catalog/

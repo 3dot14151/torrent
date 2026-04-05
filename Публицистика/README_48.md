@@ -1,3 +1,29 @@
+###  Публикация: 932562   (509176) от 29.08.2015
+
+Виктор Ульяненко | Шокирующие китайцы. Все, что вы не хотели о них знать (2011) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509176.jpg" />
+</div>
+
+
+###  Подробнее
+
+Китай окутан массой домыслов, легенд и предрассудков. Хотя Россия и Поднебесная империя живут рядом друг с другом уже сотни лет, наши представления о восточных соседях часто крайне далеки от истины. В сознании рядового россиянина Китай представляет собой нечто среднее между идеальным носителем мирового культурного наследия, страной дворцов, пагод и небоскребов и (   Читать дальше...   )Жанр: Путешествия и география, ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72ABC4E21EB6E9D4B12FF2EF73CB1C15304501CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932530   (509084) от 29.08.2015
 
 Виктор Ульяненко | Китай: версия 2.0. Разрушение легенды (2014) [FB2, RTF]
@@ -6,7 +32,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509084.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509002.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508711.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507748.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507167.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505909.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505894.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505776.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504513.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504508.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504507.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504473.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504470.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504466.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504408.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503521.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503282.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501300.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501146.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500627.jpg" />
 </div>
 
 
@@ -538,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500582.jpg" />
 </div>
 
 
@@ -564,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500543.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500517.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499305.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499009.jpg" />
 </div>
 
 
@@ -655,33 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:926ED3D68E4CC6140303917D5D32E9946A92E973
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542191   (498898) от 02.09.2012
-
-Тило Саррацин | Германия. Самоликвидация [2012] [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498898.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основываясь на обширной статистике и собственных расчетах и прогнозах, Тило Саррацин, известный политик и бывший сенатор Берлина, убедительно показывает, что мусульманское сообщество в Германии не стремится к интеграции в немецкую жизнь. Уровень образования и участие в трудовой деятельности иммигрантов остается гораздо ниже уровня коренного населения, что при традиционно высокой рождаемости у мусульман представляет реальную угрозу для страны.
- Автор высказывается за жесткую миграционную политику и показывает пути выхода из кризиса.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7561B85EB298789A97C0615F2B118B32E5D72C37
 ```
 
 https://mybot314.ru/tekegram_catalog/

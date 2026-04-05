@@ -1,3 +1,29 @@
+###  Публикация: 965266   (227353) от 13.12.2015
+
+Митио Каку | Космос Эйнштейна. Как открытия Альберта Эйнштейна изменили наши представления о пространстве и времени (2016) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_227353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описывая жизнь Альберта Эйнштейна, Митио Каку погружает нас в бурлящую атмосферу первой половины XX в. – две мировые войны, революция в Германии, создание атомной бомбы. Он показывает читателю невидимый обычно за триумфальной стороной открытий и озарений мир ученого – этапы становления, баталии в научном мире, зачастую непростые отношения с близкими. В книге представлен (   Читать дальше...   )Жанр: Биографии и мемуары, история наукиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70503059C90B3D7359E65EB4772EC7F34090B872
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 965812   (224098) от 15.12.2015
 
 Александр Дугин | Философия войны (2004) [FB2]
@@ -6,7 +32,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224098.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223797.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223713.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223462.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223027.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222457.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222193.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221663.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220660.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220017.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220010.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219916.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219805.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219770.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219734.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219255.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218511.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218346.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218223.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218209.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218165.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218019.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217902.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217858.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217661.jpg" />
 </div>
 
 
@@ -650,33 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73FE0F3B65C2CA521D3E60836C00ABB63C4C245C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269796   (217618) от 16.12.2018
-
-Александр Шуйский, Макс Фрай | Все о мире Ехо и немного больше. Чашка Фрая (2018) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга – проект искусствоведа, художника и писателя Александра Шуйского. Она представляет собой 33 интервью с Максом Фраем, сделанные на протяжении трех лет. Вопросы задавал не только автор, но и читатели книг Макса Фрая и блога Александра Шуйского; благодаря им, разговор вышел за рамки диалога.
-Формально каждая глава посвящена одной книге, фактически – всему (   Читать дальше...   )Жанр: ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:777A706EED3966969D529AFFFE06890FBE24EF19
 ```
 
 https://mybot314.ru/tekegram_catalog/

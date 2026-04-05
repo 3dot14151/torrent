@@ -1,4 +1,82 @@
 https://t.me/izofen
+###  Публикация: 1862778   (1063525) от 
+
+Анджела Акерман, Бекк Пульизи | Тезаурус конфликтов. Руководство для писателей и сценаристов (2026) [MP3, Екатерина Осоченко]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конфликт – двигатель любой истории. Но как придумать оригинальное и захватывающее противостояние, которое раскроет характер героя и будет держать читателя в напряжении до последней страницы? «Тезаурус конфликтов» – уникальное руководство для писателей и сценаристов, которое поможет создавать по-настоящему глубокие и многогранные сюжеты. Эксперты по писательскому (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: Альпина нон-фикшнПродолжительность: 28:01:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A52938DAD467FE879748372B18E16DC01D2DD0AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862574   (1063312) от 
+
+Анастасия Семихатских | Пиши больше. Книга-тренажер для тех, кто думает, что их тексты все еще недостаточно хороши (2026) [MP3, Анна Сказко]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы хорошо писать, нужно тренироваться. Умение создавать блестящие тексты – такой же навык, как игра на гитаре или бег трусцой. С одной стороны, важно быть в курсе ключевых принципов копирайтинга, с другой – регулярно их применять. Именно из этого исходила Настя Семихатских, создавая целостную систему обучения копирайтингу. Каждый ее тезис снабжен упражнениями, (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: БомбораПродолжительность: 04:17:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C9F729E0BA1EB042B59797DA96ACB95E64E33A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862385   (1063126) от 
+
+Дэвид Андерсон | Природа зверя: Как эмоции управляют людьми и другими животными (2026) [MP3, Андрей Троммельман]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое эмоции и зачем они нужны? За столетия изучения этого вопроса ученые так и не нашли на него ответ. Более того, они даже не могут договориться, как этот ответ должен выглядеть. Нейробиолог Дэвид Андерсон убежден, что объективный и эмпирический подход к изучению эмоций может предложить нейронаука. Она позволяет искать ответы на сложные вопросы об эмоциях, (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: Альпина нон-фикшнПродолжительность: 08:55:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDA9ACCE031FA943FFDF038991FEEC7D5F951CFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861753   (1062790) от 
 
 Фез Инкрайт | Яды и проклятия. Теневая жизнь растений (2022) [MP3, Игорь Гмыза]
@@ -7,7 +85,7 @@ https://t.me/izofen
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062790.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062533.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062375.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062374.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062233.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062232.jpg" />
 </div>
 
 
@@ -166,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062224.jpg" />
 </div>
 
 
@@ -194,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061726.jpg" />
 </div>
 
 
@@ -223,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061660.jpg" />
 </div>
 
 
@@ -249,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061659.jpg" />
 </div>
 
 
@@ -277,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061657.jpg" />
 </div>
 
 
@@ -305,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061654.jpg" />
 </div>
 
 
@@ -331,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061484.jpg" />
 </div>
 
 
@@ -358,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061483.jpg" />
 </div>
 
 
@@ -385,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061450.jpg" />
 </div>
 
 
@@ -411,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061351.jpg" />
 </div>
 
 
@@ -438,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061160.jpg" />
 </div>
 
 
@@ -464,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061058.jpg" />
 </div>
 
 
@@ -491,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060575.jpg" />
 </div>
 
 
@@ -518,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060348.jpg" />
 </div>
 
 
@@ -545,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060210.jpg" />
 </div>
 
 
@@ -572,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060107.jpg" />
 </div>
 
 
@@ -598,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059706.jpg" />
 </div>
 
 
@@ -609,88 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C377B488283937AF66954BD80EF04A4FC2A1D2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856039   (1058764) от 26.02.2026
-
-Тим Райхель | Учись как в Гарварде. Секреты самоорганизации для студентов и не только (2025) [MP3, Андрей Паньшин]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учиться и планировать эффективно проще, чем кажется.
-Это подтвердят студенты Гарварда, где тайм-менеджмент – самый важный предмет. Они умеют распределять время так, чтобы успевать все: готовиться к экзаменам, вести проекты, заниматься спортом и отдыхать, не жертвуя качеством работы.
-«Учись как в Гарварде» раскрывает проверенные стратегии, которые помогают студентам (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: БомбораПродолжительность: 02:22:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D01FF1E192696643CE01DB3D64E3D118E163B6BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855876   (1058350) от 25.02.2026
-
-Сергей Поварнин | Введение в логику (2025) [MP3, Евгений Шокин]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Философское исследование о природе логики: является ли она самостоятельной наукой или частью теории познания? Анализ позиций крупнейших мыслителей.
-Что такое логика – самостоятельная наука или лишь часть более обширного философского знания, такого как гносеология? Этот вопрос стал ключевым для многих мыслителей, и ответы на него до сих пор неоднозначны. В книге С.И. (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: АСТПродолжительность: 03:34:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9859590C7CE90A64BFDC3BF4F85FAEFA67F08A2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855524   (1058278) от 23.02.2026
-
-Михаил Шевченко | Луна. Наблюдая за самым знакомым и невероятным небесным объектом (2024) [MP3, Михаил Шевченко]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058278.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаем ли мы что-то о земном спутнике на самом деле? В аудиокниге воссоздается полная история изучения Луны, а также всех лунных путешествий: от первого полета древнегреческого героя Мениппа до современных космических миссий – и дальше, за горизонт сегодняшнего дня.
-29 дней тратит Луна, чтобы пройти весь круг смены своих фаз. 29 емких и увлекательных историй об огромной (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: ЛёдПродолжительность: 03:06:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EB6FFBBC90F69A26BCF23AE38EA329A55853431
 ```
 
 https://mybot314.ru/tekegram_catalog/

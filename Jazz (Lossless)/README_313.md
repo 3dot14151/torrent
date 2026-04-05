@@ -6,7 +6,7 @@ Cedar Walton Trio - Ironclad (1989) 1995, Monarch Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113948.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Lionel Hampton - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113947.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Barry Harris - Live at Maybeck Recital Hall, Vol. 12 (1991) Concord Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113946.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Branford Marsalis Quartet - Crazy People Music (1990) CBS [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113945.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Tim Hegarty - Tribute (2014) Miles High Records [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113943.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Scott Hamilton - Plays Ballads (1989) Concord Jazz [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113941.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Stephane Grappelli - Parisian Thoroughfare (1973) 1989, Black Lion [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113940.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Eddie "Lockjaw" Davis - On Prestige (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113939.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Dick Haymes - Till The End Of Time (1940 - 1950) 2CD, 2004, Living Era [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113860.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Stephane Grappelli - Just One Of Those Things (1973) 1992, Black Lion [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113859.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Wynton Marsalis & The Lincoln Center Jazz Orchestra - Experience Jazz Like Never
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113852.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ V.A. - In Paris Highlights. CD, Compilation (1995) [FLAC|Lossless|image + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113846.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Lionel Hampton - Hot Mallets, Vol. 1 (1937 - 1939) 1987, BMG [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113840.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Cedar Walton - Naima (1973) 2003, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Hard
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113837.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Cedar Walton - Firm Roots (1972 - 1990) 2СD, 1999, Camden [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113777.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Brother Jack McDuff Quartet With Grant Green - Goodnight, It's Time to Go + The 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113774.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Chuck Wayne - String Fever (1957) 2001, Euphoria [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113773.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Wynton Marsalis - Marsalis Standard Time, Vol. 1 (1987) Columbia [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113771.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Stephane Grappelli - Shades Of Django (1975) 1989, MPS Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113766.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Jack Jezzro & Star City Symphony - Guitar at the Symphony (2024) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113758.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ The Joe La Barbera Quintet - Mark Time (2003) Jazz Compass [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113749.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Branford Marsalis Quartet - Coltrane's A Love Supreme: Live In Amsterdam (2004) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113748.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Curtis Fuller - The Complete Blue Note / UA Sessions (1957 - 1962) 3CD, 1996, Mo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113747.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Ellis Marsalis - Ruminations In New York (2004) ESP-Disk' [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113746.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Stephane Grappelli - I Got Rhythm (1997) Delta Music [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113745.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Daes - D1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113719.jpg" />
 </div>
 
 

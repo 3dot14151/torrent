@@ -6,7 +6,7 @@ Mr. Big - Raw Like Sushi 114 (Live At Budokan 2014) (2015) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728579.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Lynyrd Skynyrd - Pronounced Leh - Nerd Skin - Nerd & Second Helping (2015) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727475.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726607.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726537.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Pink Floyd - Delicate Sound Of Thunder (1989) HDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726248.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724425.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724087.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Within Temptation - Black Symphony (2008) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723528.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722602.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ OneRepublic: One Night in Malibu (2021) WEBRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722600.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722476.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Pink Floyd: P. U. L. S. E. Live at Earls Court (1994) WEBRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720278.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Queen - Live At The Rainbow '74 (2014)  BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719196.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719078.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Led Zeppelin: The Song Remains The Same (2007) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_715304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_715304.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714046.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Arch Enemy - War Eternal Tour - Tokyo Sacrifice (2016) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713698.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ AC/DC: Live at Donington (1991) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_713549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_713549.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712657.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712592.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Arch Enemy - War Eternal Tour - Tokyo Sacrifice (2016) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711946.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ The Alan Parsons Symphonic Project - Live In Colombia (2016) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709437.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ The Alan Parsons Symphonic Project - Live In Colombia (2016) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709325.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ The Alan Parsons Symphonic Project - Live In Colombia (2016) Blu-ray [H.264/1080
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709322.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708974.jpg" />
 </div>
 
 
@@ -718,7 +718,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705325.jpg" />
 </div>
 
 

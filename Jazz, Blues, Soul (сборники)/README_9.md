@@ -6,7 +6,7 @@ VA - The Lyric Country and Blues (2019) [MP3|320 Kbps] <Country, Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766861.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Vocal Jazz Gold Compilation (2018) [MP3|320 Kbps] <Jazz, Vocal Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763071.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Relaxing Blues for a good meeting (2020) 5CD [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761982.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Play With Fire: Rock Blues Collection (2019) [MP3|320 Kbps] <Blues, Rock Bl
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760188.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Night And Day: Vocal Jazz Music (2020) [MP3|320 Kbps] <Jazz, Blues, Vocal J
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760114.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Rock Blues And Thousands Of Colors (2018) [MP3|320 Kbps] <Blues, Rock Blues
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759624.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Jazzy Instrumentals (Instrumental Tracks Contaminated by Jazz) (2016) [MP3|
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757549.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Jazz Classic: Wonderful Collection (2018) [MP3|192-320 Kbps] <Jazz, Classic
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_756340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_756340.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Colors Of Jazz Vol.1: Sexy Smooth Jazz Grooves For Perfect Relaxation (2016
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752186.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Country Night (2019) [MP3|320 Kbps] <Country, Folk Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749918.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Tea for Two: Cafe Jazz (2016) [MP3|320 кб/с] <Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748461.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Blues Rock Drive 5  (2018) 4CD, от DON Music[MP3|320 Kbps] <Blues Rock, B
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748054.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Pink Floyd - Blues (2019) [MP3|320 Kbps] <Blues, Progressive & Art-Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745952.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Rock Blues Swacc Night (2019) [MP3|320 Kbps] <Blues, Rock Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743609.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Another Moon Song (2018) [MP3|320 Kbps] <Jazz, Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743347.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Louisiana Red - 30 most slow Blues (2017) 2CD [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740800.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Summer Of Jazz: Smooth Beach Cafe Lounge Grooves For Easy Listening (2016) 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740781.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Sexy Midnight with a Saxophone (2020) 3CD [MP3|320 Kbps] <Easy Listening, J
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740306.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Walking To New Orleans (2019) [MP3|320 Kbps] <Blues, Rock Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739598.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - My Best Hammond Organ (2022) [MP3|320 Kbps] <Hammond Organ, Jazz, Fashion J
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737799.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - A New Word In Jazz (2022) [MP3|320 Kbps] <Jazz, Electro Jazz, Soul, Easy Li
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736904.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Beautiful Smooth Jazz (2022) [MP3|320 Kbps] <Smooth Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736395.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - My Sexy Blues (2022) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736339.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Sven Zetterberg - Compilation (2022) [MP3|320 Kbps] <Blues, Soul>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732655.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Total Eclipce: Sweet Sound Jazz (2016) [MP3|320 кб/с] <Swng, Smoth Jazz,
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730941.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - Blues Collection 8 (2017) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730701.jpg" />
 </div>
 
 

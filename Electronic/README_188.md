@@ -1,3 +1,61 @@
+###  Публикация: 1400208   (719146) от 05.08.2020
+
+VA - Nothing But... Funky Groove, Vol. 10 (2020) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. WeAreTwo - Could Have Been Us (Dreamell Remix) [05:09]
+02. Bruce Sheroy - Bai Fen Bai (DJ Tecklogix Remix) [05:00]
+03. Walter Gardini - In The Deep [04:51]
+04. JoioDJ - Sensuality (H@K Club Mix) [07:52](   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2BD710A9F700313E981BDA65E6287D24B20B88E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400427   (719145) от 05.08.2020
+
+The Violent Youth - Там, где нас нет (2020) [MP3|320 Kbps] <New Wave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Хорошо одному [00:03:27]
+02. Танцуй [00:02:55]
+03. Свободно [00:03:36]
+04. Там, где нас нет [00:03:19](   Читать дальше...   )Жанр: New WaveПродолжительность: 00:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36F8F7971BF5F6644943D66472AA699C0C6A2E4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1400364   (719144) от 05.08.2020
 
 VA - Beach Grooves Maretimo Vol.1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Beach House, Lounge>
@@ -6,7 +64,7 @@ VA - Beach Grooves Maretimo Vol.1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Beach Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719144.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719143.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - This Is Deep House, Vol. 6 (2020) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719134.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Digi Beat Ltd - Love Electronic Music (2019) [MP3|320 Kbps] <House, Tech Ho
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719065.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Pure Energy Records Vol. 1 (Incl.Exclusive Mixed by Trance Arts) (2018) [MP
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719063.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Voin Oruwu - Etudes From A Starship (2019) Kvitnu [FLAC|Lossless|WEB-DL|tracks] 
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719062.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - LNG Music: Nick Skitz - Skitzmix 55 (2019) [MP3|320 Kbps] <House, Progressi
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719060.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Auralization (Mixed by OzzyXPM) (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719052.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Uplifting Trance Sessions Vol.12 (2019) [MP3|320 Kbps] <Trance, Uplifting T
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719050.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Ibiza Lounge (2020) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719036.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719031.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Devotion Island - Critical Mass (2020) Cold Tear Records [FLAC|Lossless|WEB-DL|t
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719026.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Turbo Drive, Vol. 1 (2020) [MP3|320 Kbps] <Synthpop, New Wave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719023.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Minced Meat (2020) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719018.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Time Limit (2020) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719015.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Night Abduction (2020) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719009.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Urban Party Alarm 2 (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719000.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Trance Maschine Vol.1 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718998.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Italo Dance Lignano Beach (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718992.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Retro Drive: The Soundtrack (2020) [MP3|320 Kbps] <Synthpop, New Wave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718874.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Keosz - Ava (2017) [MP3|320 Kbps] <Ambient, Dark Ambient, Drone>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718839.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Chilli Vanilli Vol.4 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718835.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Alina Baraz & Galimatias - Urban Flora (2015) [MP3|320 Kbps] <Electronic, R&B, D
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718830.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Trifonic - Discography 11 Releases (2008-2019) Trifonic Music LLC [FLAC|Lossless
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718811.jpg" />
 </div>
 
 
@@ -684,64 +742,6 @@ Trifonic - Discography 11 Releases (2008-2019) Trifonic Music LLC [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D127D49D28F2E33296154E7CCAE0729C91F6C7F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984165   (718718) от 05.08.2020
-
-Spatialize - Discography 9 Releases (2004-2020) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo, Dub, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scarlet Sundown (06:31)
- 02. Fluid Blue (05:11)
- 03. Clarity (Original Version) (06:10)
- 04. Praise (04:07)(   Читать дальше...   )Тип издания: WEBЖанр: Psychill, Downtempo, Dub, Ambient •Продолжительность: 06:09:35 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A355761571A799DDCEC088ED6D4AF51BC811731
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129852   (718709) от 30.04.2017
-
-Sverre Knut Johansen - Contact (2017) [MP3|320 Kbps] <Electronic, Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Contact 4:18
-02 Hope 4:43
-03 Journey Through Space 6:44
-04 Apocalypse 6:44(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 01:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD441574E24BB018995CC754FCFEAFD0226B96D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

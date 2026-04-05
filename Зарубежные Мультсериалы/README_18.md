@@ -1,3 +1,55 @@
+###  Публикация: 1285518   (718587) от 27.02.2019
+
+Даллас и Робо / Dallas & Robo (2018) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-8 из 8) NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718587.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дерзкая космическая дальнобойщица Даллас и самопровозглашённый воин-поэт Робо, должны обходить байкеров-каннибалов, траки конкурентов и торговые автоматы с буррито, пытаясь выгадать лишний бакс в этом захудалом мире межпланетного сговора на торгах.Производство: СШАЖанр: Комедия, Приключения, фантастикаРежиссер: Джон Сина, Кэт Деннингс, Стивен Рут, Тим Блейк Нельсон, Дэна Снайдер, Милана Вайнтруб, Джанкарло Эспозито, Джейн ЛинчПеревод: Двуголосый закадровый, любительский (NewStation)Субтитры: нетПродолжительность: ~00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BDB19A8BA399869484BC05656DF31C9CC793FEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276631   (718382) от 27.02.2019
+
+Шахерезада. Нерассказанные истории / Sherazade: The Untold Stories (2017-2019) WEB-DLRip [H.264/720p-LQ] (сезон 1, серии 1-26 из 26) [Обновляемая]
+
+>>След.
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718382.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отважная девушка Шахерезада должна помочь своему другу принцу Кариму вернуться на его законный трон. Карим был свергнут своим братом и с помощью злых заклинаний превращен в синего монстра. Шахерезада и ее преданный друг вынуждены покинуть Золотой Город, чтобы найти волшебное средство — Древо Жизни, которое помогло бы принцу вновь стать человеком. Путешествие друзей (   Читать дальше...   )Производство: Австралия, Германия, ИндияЖанр: Приключенческий мультсериалРежиссер: Джоди Гэннон, Стив Бристов, Люк ДжуревисиусАктеры: Юлия Довганишина, Григорий Сиятвинда, Сергей Смирнов, Александр Зачиняев, Татьяна Шитова...Персонажи: Шахерезада, Принц Карим, Джинн Халил, Аладдин, Синдбад, Али-Баба...Перевод: Русский / Дублированный / CLS MЕDIAСубтитры: ОтсутствуютПродолжительность: ~00:24:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C47641167767AEF85507355ACD72A02E7FD56C1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023805   (717364) от 08.06.2016
 
 Лего Рыцари Нексо / Lego Nexo Knights (2015) WEB-DL [H.264/1080p-LQ] (10 серий из 10) [UKR]
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717364.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717237.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716625.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716568.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716553.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715543.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714592.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714209.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713125.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712281.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_710906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_710906.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710084.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708335.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707818.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707743.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702979.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_700861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_700861.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698910.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698194.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697824.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697737.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697611.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697550.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697057.jpg" />
 </div>
 
 
@@ -624,58 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAEA9FF86A1151AF3B9B09B3A00820B49E13F503
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120699   (696359) от 11.05.2017
-
-Пора Приключений (Время Приключений) / Adventure Time (2010-2012) BDRip [H.264/1080p] (Сезон: 1-3, Серии: 1-39 из 39) [EN, RU Sub] [Обновляемая]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696359.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пора Приключений - американский анимационный сериал, созданный Пендлтоном Вордом. Сериал повествует о необыкновенных и весёлых приключениях двух лучших друзей: мальчика Финна и его собаки Джейка. Действие сериала происходит в волшебной стране Ууу. Финн - 13-летний мальчик, который обожает путешествовать и спасать принцесс из лап ужасных монстров и злодеев, населяющих (   Читать дальше...   )Жанр: Рисованная анимация, Приключения, КомедияРежиссер: Ларри ЛэйчлитерПерсонажи: Jeremy Shada - Finn the Human, John DiMaggio - Jake the Dog, Hynden Walch - Princess Bubblegum, Niki Yang - Lady Rainicorn, Tom Kenny - The Ice King, Olivia Olson - Marceline the Vampire QueenПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские (отдельным файлом), перевод Павел Самойлов aka TanisПродолжительность: ~00:22:00 х Серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DC217B44C1443217E0EF590944A21D82C6104FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533497   (695516) от 01.03.2022
-
-Южный Парк / South Park Uncensored (2021) WEBRip [H.264/1080p] (Сезон 24, Серии 1-4 из 4) Paramount
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Южный Парк / South Park — американский мультсериал, созданный Мэттом Стоуном и Треем Паркером. Иногда название переводится также как «Саут-Парк» или «Саус-Парк». Выпускается кабельным телеканалом Comedy Central с 1997 года. Основу сюжета составляют приключения четырёх мальчиков и их друзей, живущих в маленьком городке Саут-Парк, штат Колорадо. Сериал высмеивает недостатки (   Читать дальше...   )Производство: США, Braniff, Comedy Central, Comedy PartnersЖанр: Комедия, Рисованная анимация, Для взрослыхРежиссер: Трей Паркер, Эрик Сточ, Мэтт СтоунПеревод: Дублированный (Paramount)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~00:47:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81BC2C3ACA211E926C9C797E943B0098058AF4B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ SlitterHead (2024) [Ru/Multi] (1.02.2-r00065826) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18678.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SlitterHead (2024) [Ru/Multi] (1.02.2-r00065826) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18540.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Blades of Fire (2025) [Ru/Multi] (1.0.0.1) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17329.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Blades of Fire (2025) [Ru/Multi] (1.0.0.1) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17324.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Blades of Fire (2025) [Ru/Multi] (1.0.0.1) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17227.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Armored Core VI Fires of Rubicon (2023) [Ru/Multi] (1.09.1/dlc) Repack Let'sРla
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17225.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Blades of Fire (2025) [Ru/Multi] (1.0.0.1) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17080.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ ARMORED CORE VI FIRES OF RUBICON (2023) [Ru/Multi] (1.09.1/dlc) Scene Tenoke [De
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17067.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ The Last Hero of Nostalgaia (2022) [Ru/Multi] (3.3.6.7/dlc) Repack Let'sРlay [D
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17025.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Red Dead Redemption (2024) [Ru/Multi] (1.0.42.49788435) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16489.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Captain Blood / Приключения Капитана Блада (2025) [Ru/Mu
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15694.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ KIBORG (2025) [Ru/Multi] (20 2.50. 5_31: 0:01) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15582.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Hitman 2: Silent Assassin (2002) [En] (1.01) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15510.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ SlitterHead (2024) [Ru/Multi] (1.02.2-r00065826) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15407.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Captain Blood / Приключения Капитана Блада (2025) [Ru/Mu
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15221.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Mindseye (2025) [Multi] (4598223/dlc) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14671.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Outlast (2013) [Ru/En] (1.0.12046.0/dlc) Repack EXROW
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14645.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Mindseye (2025) [Ru/Multi] (4598223) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14391.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Devil May Cry HD Collection (2018) [Multi] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14032.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Devil May Cry 4 (2015) [Multi] (1.0/dlc) License GOG [Special Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13999.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Drug Dealer Simulator 2 (2024) [Ru/Multi] (1.1/dlc) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13898.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ DARK (2013) [Ru/Multi] (1.1.19.29571/dlc) Scene FAiRLiGHT
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13860.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Vivat Slovakia (2024) [Multi] (1.0b12) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13628.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Days Gone (2021) [Ru/Multi] (1.08/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13228.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Manhunt (2004) [Ru] (1.1) Repack EXROW
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13203.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Control (2020) [Ru/Multi] (1.31 HotFix/dlc) License GOG [Ultimate Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13023.jpg" />
 </div>
 
 

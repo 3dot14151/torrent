@@ -1,3 +1,58 @@
+###  Публикация: 1847727   (1052346) от 14.01.2026
+
+Ник Брэдли | Loft. Путешествие по Японии. Четыре сезона в Японии (2025) [MP3, Юрий Красиков]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052346.jpg" />
+</div>
+
+
+###  Подробнее
+
+От автора бестселлера «„Кошка и Токио“»
+ЧТО БУДЕТЕ ДЕЛАТЬ, ИСПОЛНИВ СВОЮ САМУЮ ЗАВЕТНУЮ МЕЧТУ?
+***
+Пережив момент триумфа, Фло впадает в апатию, но найденная в метро книга становится новой целью – она настолько перекликается с тем, что происходит в душе у девушки, что Фло решает во что бы то ни стало отыскать автора. Даже если придется ехать в далекую провинцию на (   Читать дальше...   )Жанр: Современная зарубежная литератураИздательство: INSPIRIA (Эксмо)Продолжительность: 13:23:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6D244AAA3CF29D156C63DDEDDACFAB399631BAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847542   (1052167) от 12.01.2026
+
+Майкл Крайтон | Пожиратели мёртвых [13-й воин] (2025) [MP3, Евгений Никитин]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вельможа и поэт Ахмад Ибн Фадлан, подданный арабского халифа, отправлен с поручением к богатому купцу. Но события складываются так, что Ахмад бежит из халифата и оказывается на Севере в плену у скандинавских викингов. Ночью во тьме появляются потомки неандертальцев — демоны с медвежьими головами и лапами львов, нападающие на людей, убивающие их и поедающие мертвых. (   Читать дальше...   )Жанр: Проза, история, приключенияИздательство: Аудиокнига своими рукамиПродолжительность: 07:37:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06B4F43ABF5DE528A33AAAF3B332229D452E780E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1847313   (1052063) от 12.01.2026
 
 Джеймс Баллард | Империя Солнца. Доброта женщин (2025) [MP3, Максим Ушаков]
@@ -6,7 +61,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052063.jpg" />
 </div>
 
 
@@ -33,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051800.jpg" />
 </div>
 
 
@@ -59,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051799.jpg" />
 </div>
 
 
@@ -85,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051687.jpg" />
 </div>
 
 
@@ -111,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051681.jpg" />
 </div>
 
 
@@ -137,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051674.jpg" />
 </div>
 
 
@@ -163,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051659.jpg" />
 </div>
 
 
@@ -192,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051657.jpg" />
 </div>
 
 
@@ -219,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051656.jpg" />
 </div>
 
 
@@ -245,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051528.jpg" />
 </div>
 
 
@@ -271,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051521.jpg" />
 </div>
 
 
@@ -297,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051520.jpg" />
 </div>
 
 
@@ -323,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051508.jpg" />
 </div>
 
 
@@ -350,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051507.jpg" />
 </div>
 
 
@@ -376,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051495.jpg" />
 </div>
 
 
@@ -402,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051489.jpg" />
 </div>
 
 
@@ -430,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051486.jpg" />
 </div>
 
 
@@ -456,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051485.jpg" />
 </div>
 
 
@@ -482,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051480.jpg" />
 </div>
 
 
@@ -508,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051399.jpg" />
 </div>
 
 
@@ -534,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051396.jpg" />
 </div>
 
 
@@ -562,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051301.jpg" />
 </div>
 
 
@@ -588,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051158.jpg" />
 </div>
 
 
@@ -614,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050976.jpg" />
 </div>
 
 
@@ -628,60 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E52B48554267E2F8B595FAB87FE4360BFD1E7BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845159   (1050462) от 30.12.2025
-
-Сантьяго Постегильо | Юлия Домна (Книга 1). Я, Юлия (2025) [MP3, Евгения Витте]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050462.jpg" />
-</div>
-
-
-###  Подробнее
-
-192 год. В Риме правит обезумевший император Коммод, который мнит себя новым Геркулесом, устраивает показательные выступления с демонстрацией своей нечеловеческой силы и держит в заложниках семьи наместников удаленных областей. Сенат теряет остатки терпения, и наступает один из тех периодов римской истории, когда быть императором особенно опасно для жизни.
-После (   Читать дальше...   )Жанр: Проза, история, приключенияИздательство: Азбука-АттикусПродолжительность: 23:01:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F95DE4CB31F7A9C5D24FC12A1FFA12E3518FF9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844806   (1050401) от 28.12.2025
-
-Генрих Манн | Учитель Гнус (2025) [MP3, Александр Васильев]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050401.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Учитель Гнус» – сатирический роман Генриха Манна с атмосферой немецкой провинции накануне исторических перемен.
-Главный герой, учитель Нусс, прозванный Гнусом, – мелкий бюргер, который с ранней юности стремится к карьерному успеху, беспрекословно подчиняясь власти и авторитетам. С детства он проявляет конформизм, трусость и стремление подчиняться сильным мира сего. (   Читать дальше...   )Жанр: Реализм, сатираИздательство: ЭксмоПродолжительность: 07:33:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D9AABBEF9DAA2B38E1D4E0FB4BC99A35E24D1D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

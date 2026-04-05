@@ -1,159 +1,3 @@
-###  Публикация: 559043   (410947) от 11.10.2012
-
-Бретт Маклафлин | PHP и MySQL. Исчерпывающее руководство (2012) [PDF]
-
->>Компьютерная литература
->>Веб-дизайн
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если у вас есть опыт разработки сайтов с помощью CSS и JavaScript, то эта книга переведет вас на новый уровень веб-разработки — создание динамических веб-сайтов на основе PHP и MySQL. С помощью практических примеров в книге вы узнаете все возможности серверного программирования. Вы прочитаете, как выстраивать базу данных, управлять контентом и обмениваться информацией (   Читать дальше...   )Жанр: WEB ДизайнФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5326C6A80BB581BEA0FFF3F570BF162F4093470B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948678   (410927) от 20.10.2015
-
-Андрей Солдатов, Ирина Бороган | Анонимность в Сети. Как защитить себя от Большого Брата (2014) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сегодня во многих странах мира граждане каждый день сталкиваются с необходимостью защищать свою информацию. Перехваты электронной переписки и телефонных переговоров политиков, общественных деятелей, знаменитостей регулярно выкладываются в Сеть. Журналистам, которым всегда было необходимо сохранять анонимность источников, с развитием технологий стало еще сложнее обеспечивать (   Читать дальше...   )Жанр: Интернет и обществоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBE13292A9A0514F76E4B3134EB6EFE022226961
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166598   (410431) от 23.09.2017
-
-Агус Курняван | OpenMV Development Workshop (2017) [EPUB, PDF] [En]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410431.jpg" />
-</div>
-
-
-###  Подробнее
-
-OpenMV - недорогая и расширяемая плата, предназначенная для самостоятельного изготовления системы технического зрения. Она стала как Arduino для компьютерного зрения. Эта книга поможет вам приступить к разработке проектов с OpenMV, используя Python. Ниже приведен список тем в книге: подготовка среды разработки, настройка OpenMV, программирование GPIO, универсальный (   Читать дальше...   )Жанр: Компьютерная литератураФормат: EPUB, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E16DA12DFA457AB9E6ED2113532103D857F74AF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168297   (410416) от 23.09.2017
-
-Джо Микаллеф | Основы проектирования для 3D-печати (2015) [PDF] [En]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основы проектирования для 3D-печати - это полноцветный путеводитель для создания практически любого 3D-принтера. Эта книга будет демистифицировать процесс проектирования для трехмерной печати, обеспечив надлежащие рабочие процессы для тех, кто занимается новой 3D-печатью, нетерпеливыми художниками, опытными инженерами, предпринимателями, занимающимися 3D-печатью, (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C5E8182ECCE73F4267564756D37E9EAEDC1CC8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168269   (410245) от 23.09.2017
-
-Евгений Макаров | Mathcad: Учебный курс (+CD) (2009) [DJVU, PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена работе в 14-й версии популярного математического пакета Mathcad. Издание имеет формат учебного курса и состоит из четырех частей. В первой части содержатся сведения, необходимые для начала работы в Mathcad и решения большинства практических задач. Вторая часть посвящена возможностям программы, здесь на конкретных примерах рассматриваются особенности (   Читать дальше...   )Жанр: Компьютерная литератураФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:220551741BD1113E16D6AD0D4A65C112374D937F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166586   (410243) от 23.09.2017
-
-Майкл Редкар | Raspberry Pi3: Будущее уже сейчас (2017) [EPUB, PDF, DJVU] [En]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410243.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящее время Raspberry Pi - это нечто большее, чем просто учебный инструмент для поощрения детей к обучению и наслаждению стандартными аппаратными навыками и программированием. Скачайте сегодня эту книгу и узнайте: что такое Raspberry Pi3, как настроить новый RP3, что такое Raspbian и как его можно использовать, программирование с помощью Raspberry Pi, программирование (   Читать дальше...   )Жанр: Компьютерная литератураФормат: EPUB, PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1DB586088D8187446B5266BA2EC88DAA95A2EFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167142   (410121) от 23.09.2017
 
 Дени Альдо | Raspberry Pi 3: 20 лучших проектов,которые вы можете попробовать с микрокомпьютером (2017) [EPUB, PDF] [En]
@@ -162,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410121.jpg" />
 </div>
 
 
@@ -188,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410118.jpg" />
 </div>
 
 
@@ -214,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409951.jpg" />
 </div>
 
 
@@ -241,7 +85,7 @@ William R. Stanek | Windows Server 2012 Pocket Consultant [2012] [PDF] [En]
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409487.jpg" />
 </div>
 
 
@@ -271,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409098.jpg" />
 </div>
 
 
@@ -299,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408551.jpg" />
 </div>
 
 
@@ -325,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406482.jpg" />
 </div>
 
 
@@ -353,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406472.jpg" />
 </div>
 
 
@@ -379,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406459.jpg" />
 </div>
 
 
@@ -408,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406273.jpg" />
 </div>
 
 
@@ -435,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404358.jpg" />
 </div>
 
 
@@ -461,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404275.jpg" />
 </div>
 
 
@@ -488,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404262.jpg" />
 </div>
 
 
@@ -523,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403757.jpg" />
 </div>
 
 
@@ -549,7 +393,7 @@ J. F. DiMarzio | Android. A Programmer’s Guide [2008] [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403518.jpg" />
 </div>
 
 
@@ -575,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403318.jpg" />
 </div>
 
 
@@ -604,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402708.jpg" />
 </div>
 
 
@@ -632,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402595.jpg" />
 </div>
 
 
@@ -658,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401989.jpg" />
 </div>
 
 
@@ -684,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401395.jpg" />
 </div>
 
 
@@ -695,6 +539,163 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F2F69FCA526AA0BEC716EE82AABA64646C9CA69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168226   (401128) от 29.09.2017
+
+П. Лузанов и др. | PostgreSQL для начинающих (2017) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401128.jpg" />
+</div>
+
+
+###  Подробнее
+
+В брошюре «PostgreSQL для начинающих» можно получить базовые сведения об устройстве и основных особенностях PostgreSQL, об истории его создания и планах развития, и практические сведения по установке PostgreSQL и начале работы с ним под Windows и Linux. Она предназначена для начинающих работать с PostgreSQL и просто интересующихся его возможностями.Жанр: Обучающая литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65E1B4936BCA803A31F4E89F905468D3106A684B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 566685   (397501) от 28.10.2012
+
+Джон Уокенбах | Excel 2010. Профессиональное программирование на VBA + CD [2012] [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучите возможности языка VBA (Visual Basic for Applications), и вы получите в свое распоряжение практически безграничные ресурсы Microsoft Excel 2010. Джон Уокенбах, один из крупнейших специалистов в области электронных таблиц, щедро поделится с вами своими знаниями и поможет профессиональными советами, которыми буквально переполнена эта великолепная книга.  Даже для опытных пользователей Excel книга станет бесценным источником знаний. Вы ознакомитесь с инновационным подходом к изучению Excel и с этапами разработки приложений электронных таблиц. Вы научитесь разрабатывать процедуры и функции VBA, изучите передовые методики программирования и освоите ряд приемов, знание которых сделает вас подлинным гуру в области VBA-программирования. Если же вы осуществляете переход с одной из предыдущих версий Excel, то благодаря книге сможете легко и быстро освоить новые возможности Excel 2010.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48897B105FA1A02532B55C79B181EDE1B458B89D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170960   (395510) от 05.10.2017
+
+Д.В. Чижиков | Методология внедрения Microsoft Active Directory (2016) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс является обобщением практики внедрения службы Active Directory. Даны необходимые термины, приведена архитектура Active Directory, а также необходимые модели и стратегии. Описаны процессы планирования, проектирования, развертывания и тестирования Active Directory, освещен вопрос миграции данных. В заключение отображены нюансы управления мониторингом Active Directory, (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50008C3476858BAC36960CF7259148FC8B79372A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 568146   (394472) от 31.10.2012
+
+С.Руби, Д.Томас, Д.Хэнссон | Гибкая разработка веб-приложений в среде Rails. 4-е изд [2012] [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами новое издание бестселлера «Agile web development with Rails», написанного Сэмом Руби — руководителем Apache Software Foundation и разработчиком формата Atom, Дэйвом Томасом — автором книги «Programming Ruby» и Дэвидом Хэнссоном — создателем технологии Rails. Rails представляет собой среду, облегчающую разработку, развертывание и обслуживание веб-приложений. За время, прошедшее с момента ее первого релиза, Rails прошла путь от малоизвестной технологии до феномена мирового масштаба и стала именно той средой, которую выбирают, чтобы создавать так называемые «приложения Web 2.0».Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09746B5A95FE2F0E88394545214F2B3C625CB63C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569153   (392855) от 02.11.2012
+
+Сергей Фрузоров | Бесплатные разговоры через Интернет [2008] [FB2]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказывается о самых популярных компьютерных программах, позволяющих бесплатно разговаривать с любой точкой мира, общаться на форумах, знакомиться и видеть друг друга, переговариваться в компьютерных играх, обмениваться файлами, звонить с компьютера на обычные и сотовые телефоны и др.
+ Особое внимание уделено мерам безопасности, которые нужно принять перед тем, как выйти в Интернет, а также быстрому восстановлению работоспособности компьютера после вирусной атаки или повреждения жесткого диска. Описаны программы удаленного управления компьютерами.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3FF59390918569BDD886B953C6B87E911C22CCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172484   (392746) от 08.10.2017
+
+Шри Марени | Лучший проект Raspberry PI "сделай сам" для домашней автоматизации [3 книги] (2017) [EPUB] [En]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392746.jpg" />
+</div>
+
+
+###  Подробнее
+
+На протяжении многих лет мы видели много проектов "сделай сам" для автоматизации дома, но здесь вы познакомитесь с одной из самых полных систем, которые мы видели. С ее помощью вы сможете контролировать практически все в своем доме. С этой системой вы можете следить за утечкой воды, видеть, открыта ли дверь гаража, проверять новую почту, следить за движением, (   Читать дальше...   )Жанр: ЭлектроникаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4FF8ED775044861D79A8D3BBDF4C727CD0E1CF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

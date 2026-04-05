@@ -1,3 +1,32 @@
+###  Публикация: 1634933   (240130) от 23.05.2023
+
+Salami Rose Joe Louis - Akousmatikous (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative & Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Akousmatikous (5:46)
+02. Dimensional Collapse (3:40)
+03. Always on my Mind (2:33)
+04. Fireflies (1:16)(   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:43:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE4342340A5549CD164713DD2C9FE935156BB814
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626776   (240126) от 17.04.2023
 
 From Fall to Spring - Rise (2023) [MP3|320 Kbps] <Alt.Metal, Rapcore>
@@ -6,7 +35,7 @@ From Fall to Spring - Rise (2023) [MP3|320 Kbps] <Alt.Metal, Rapcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240126.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Excalion - Once Upon a Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic-Power-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240124.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Galen & Paul, Galen Ayers, Paul Simonon - Can We Do Tomorrow Another Day? (2023)
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240107.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Lankester Merrin - Upon the Forgotten (2021) [MP3|320 Kbps] <Heavy Metal, Female
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240076.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Megaloceros - Megalophobia (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240057.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Maze of Sothoth - Extirpated Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Technic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240045.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Black Scum - .INI (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metalcore>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240028.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Kneipenterroristen - Infiziert (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240021.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Icxitonttli - Terra Existence (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240007.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - The Rock Collection: 80s Rock (1993) 2CD Compilation [FLAC|Lossless|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240001.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Arrival Of Autumn - Kingdom Undone (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalco
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239980.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Immortal - War Against All (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239975.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Tanlines - The Big Mess (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative,
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239971.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Perc3ption - Reason and Faith (2013) [FLAC|Lossless|WEB-DL|tracks] <Progressive,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239959.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Torch - Reignited (2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239958.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Rexoria - Imperial Dawn (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy, Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239956.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Hanging Garden - The Garden (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239948.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ DeVicious - Code Red (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239945.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Bloodgutter - Death Mountain (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239944.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Cruachan - The Living And The Dead (2023) [FLAC|Lossless|WEB-DL|tracks] <Celtic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239939.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Church of the Dead - Beyond Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239938.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ A Road To Damascus - Darker Places (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239932.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239926.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Noltem - Mannaz (2015) EP, Reissue Northern Silence 2016 [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239921.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Ne Obliviscaris - Exul (2023) [FLAC|Lossless|WEB-DL|tracks] <Extreme Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239910.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Ne Obliviscaris - Exul (2023) [FLAC|Lossless|WEB-DL|tracks] <Extreme Progressive
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04A8BEFEE7245F225CF490D39F9BD14F4A3F81D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637471   (239908) от 04.06.2023
-
-Czakan - Unreal (2023) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Free Line (3:15)
-02. Getting Hungry (3:47)
-03. Breaking All The Rules (4:54)
-04. Livin’ In A Nightmare (3:41)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D072CBF64D0B0C8738FA4187C98E883294D50BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

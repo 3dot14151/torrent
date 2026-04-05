@@ -1,3 +1,61 @@
+###  Публикация: 1114869   (830167) от 16.03.2017
+
+VA - Chill out Republic (20 Fresh Electronic Tunes) Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Deepland - Pils (Original Mix)  4:52
+02.  Lord Of Beat - Trip To Mars (Original Mix)  4:31
+03.  Niji Liquidium - Modern Times (Original Mix)  5:08
+04.  Cephalonya - Looking Back (Original Mix)  6:08(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9567F22B4AE1CAA289ED19505C90267BB8C2B70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114905   (830165) от 16.03.2017
+
+VA - Chilled Beach Vol.2 (No Hectic Just Chill) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bes & Meret - Morgenstund  3:01
+02.  Der Dienstleister - Crusty  6:18
+03.  Christos Fourkis - Come In My Life (Bes & Meret Remix)  4:10
+04.  Bildertal - Lost In Bloom  8:28(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:21:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8125125D164F56984DF3AA349BC4AA3A8DFEEC1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1115037   (830163) от 16.03.2017
 
 VA - Aruba Beach Lounge Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -6,7 +64,7 @@ VA - Aruba Beach Lounge Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830163.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Suite Lounge Vol.20 (Relaxing Lounge Tunes) (2017) [MP3|320 Kbps] <Downtemp
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830161.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - This Is My Church Vol.6 (The Lounge Edition) (2017) [MP3|320 Kbps] <Downtem
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830156.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Chillout Beats 1: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830107.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Never Miss A Beat (25 Crazy Deep-House Tunes) Vol.2 (2017) [MP3|320 Kbps] <
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830070.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Soundbar Deluxe Chill Lounge Vol.3 (Best Of Ibiza Chillout, Ambient & Downb
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830066.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Best Of Deep House 2017 Vol.02 (2017) [MP3|320 Kbps] <House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830065.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - The Fitness Series Vol. 2 (2017) [MP3|320 Kbps] <Hard House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830063.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Live  Creamfields UK, United Kingdom (2021) [MP3|320 Kbps] <Trance, Techno,
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830005.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Zhestyanshiki (Жестяньщики) - Luxury (2016) [FLAC|Lossless|WEB|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829973.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Best Of Progressive Vocal Trance (2017) [MP3|320 Kbps] <Trance, Vocal Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829898.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ XS Project - The New Pumping Attack (2016) [FLAC|Lossless|WEB|tracks] <Pumping H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829890.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Cygnus - Colecovisions (2020) Biosoft Records [FLAC|Lossless|WEB-DL|tracks] <Ele
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829844.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Night Sea - Still (2020) Silent Season [FLAC|Lossless|WEB-DL|tracks] <Ambient, D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829771.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Fatali - Retro (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829759.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Cell - Live in Corfu (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo>
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829745.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Richard Davis - Safety (2002) [FLAC|Lossless|tracks + .cue] <Deep House, Minimal
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829209.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Richard Davis - Details (2005) [FLAC|Lossless|tracks + .cue] <Deep House, Minima
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829207.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Pumping Storm from 2005 to 2015 (10 Years Bundle Pack) (Mixed by XS Project
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829103.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Hardwell feat. Jake Reese - Mad World: The Remixes (2016) [FLAC|Lossless|WEB-DL|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829079.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Mistresses Lounge Vol 1 (2016) [MP3|320 кб/с] <Lounge, Chillout, Easy Li
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829077.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Nu Chill (Cool & Lounge Rhythms) (2016) [MP3|320 кб/с] <Lounge, Chillout
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829071.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Boards Of Canada (BOC, b.o.c.) - Discography 35 Releases (1994-2019) Music70, Wa
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829048.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Azul Y Negro + Carlos Vaso - 22 Albums (1982-2012) [MP3|320 кб/с] <Electronic
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828716.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Azul y Negro, название для дуэта придумано продюс
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CF3D71C8744A9379211D704DEEA6AFBD9F2B716
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006369   (828384) от 11.04.2016
-
-U96 - Das Boot (1992) [FLAC|Lossless|image + .cue] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Das Boot (5:14)
-02. Come 2 Gether (3:49)
-03. Der Kommandant (3:12)
-04. No Control (4:30)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:41:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28B7A7B560E523F8F6DC3AF6F09302D81D2ADAA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006183   (828309) от 11.04.2016
-
-Depeche Mode - Black Celebration (1986) remastered 2007, collectors edition, CD+DVD [FLAC|Lossless|image + .cue] <New Vawe, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Black Celebration  4:57
-02.  Fly on the Windscreen (Final)  5:19
-03.  A Question of Lust  4:23
-04.  Sometimes  1:54(   Читать дальше...   )Жанр: New Vawe, Synth-popПродолжительность: 00:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E27E74FE7D2621777B16BADA74A31CB76936BA23
 ```
 
 https://mybot314.ru/tekegram_catalog/

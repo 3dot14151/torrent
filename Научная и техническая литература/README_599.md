@@ -1,136 +1,3 @@
-###  Публикация: 1752090   (104012) от 28.09.2024
-
-Галина Зеленская | Северное Возрождение (2016) [PDF, DOCX]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Северное Возрождение – термин, использующийся для описания эпохи Возрождения в северной Европе, или – во всей Европе за пределами Италии, к северу от Альп.
-Северное Возрождение тесно связано с итальянским, но имеет ряд характерных отличий, причем в каждой стране своих. Так, культурология и искусствоведение выделяют немецкое, нидерландское, французское, испанское, (   Читать дальше...   )Жанр: ЖивописьИздательство: Интернет издание «Mif-medyza»Формат: PDF, DOCXКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A420CBDF9463B6BEE24C2802CD605E8549834513
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752128   (104010) от 28.09.2024
-
-Вячеслав Бондаренко | 100 великих героев Великой Отечественной войны (2015) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104010.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Нет в России семьи такой, где бы не памятен был свой герой". В годы Великой Отечественной войны 1941-1945 гг. наш народ проявил массовые героизм и мужество, отстаивая свою страну от нашествия чудовищного врага. Золотыми буквами вписаны в летопись войны имена прославленных полководцев в маршальских и генеральских погонах и рядовых бойцов, верных долгу офицеров (   Читать дальше...   )Жанр: Биографии. История.Издательство: Москва: «Вече»Формат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34FD653E1CDC773B0D53D051AA8C7075096FFBAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752109   (104008) от 28.09.2024
-
-А.С. Литвак | Программированное обучение в судебной медицине (1970) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104008.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данном учебном пособии освещены основные разделы судебной медицины с использованием элементов программирования в виде информации, контроля и самоконтроля. Подобное пособие нацелено на оптимизацию учебного процесса. Оно обеспечивает изучение основ теории и практики судебной медицины и может оказать существенную помощь преподавателям и студентам. Допущено Главным (   Читать дальше...   )Жанр: Судебная медицина, учебная литератураИздательство: Москва: МедицинаФормат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD04177C2C9B39BEC93D111530F6BAB2E87681F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752018   (104003) от 28.09.2024
-
-Б. Серафин | Преобразование солнечной энергии (1982) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104003.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге написанной ведущими специалистами США, ФРГ, Франции, рассмотрены вопросы физики полупроводников, определяющие эффективность преобразователей солнечной энергии.
-Описаны исследования селективных оптических поверхностей и материалов тепловых коллекторов, фотолиза с полупроводниками в качестве электродов, времени жизни носителей в кремнии и его влияние на характеристики (   Читать дальше...   )Жанр: ФизикаИздательство: ЭнергоиздатФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17B3E496B979BE2E96BDA3AD98CFB64437D09EDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764589   (102710) от 07.12.2024
-
-Валерий Кравец | Розовая чайка (2005) [PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга действительного члена Русского географического общества, почетного полярника Валерия Кравца рассказывает о реальных людях и событиях, которые происходили в Арктической и Заполярной части Таймырского полуострова в 70-90-х годах прошлого столетия. Непосредственным участником этих событий был автор этих воспоминаний.
-Книга сформирована в виде серии репортажей, (   Читать дальше...   )Жанр: Путешествия, исследования АрктикиИздательство: Студия "Полярная звезда"Формат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F14EA0EED7FB46E9C45C31373280124A1196F634
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 490945   (102682) от 02.05.2012
 
 Е.И. Лазарева | Русско - китайский разговорник [2001] [DJVU]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102682.jpg" />
 </div>
 
 
@@ -167,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102509.jpg" />
 </div>
 
 
@@ -197,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102459.jpg" />
 </div>
 
 
@@ -223,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102442.jpg" />
 </div>
 
 
@@ -249,7 +116,7 @@ PHILEDS. Мощные светодиоды [2011] [PDF]
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102403.jpg" />
 </div>
 
 
@@ -275,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102262.jpg" />
 </div>
 
 
@@ -301,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102247.jpg" />
 </div>
 
 
@@ -327,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101583.jpg" />
 </div>
 
 
@@ -353,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101391.jpg" />
 </div>
 
 
@@ -381,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100993.jpg" />
 </div>
 
 
@@ -407,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100934.jpg" />
 </div>
 
 
@@ -433,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100930.jpg" />
 </div>
 
 
@@ -459,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100907.jpg" />
 </div>
 
 
@@ -486,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100719.jpg" />
 </div>
 
 
@@ -512,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100587.jpg" />
 </div>
 
 
@@ -539,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100578.jpg" />
 </div>
 
 
@@ -566,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100572.jpg" />
 </div>
 
 
@@ -592,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100571.jpg" />
 </div>
 
 
@@ -619,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100567.jpg" />
 </div>
 
 
@@ -646,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100566.jpg" />
 </div>
 
 
@@ -673,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100565.jpg" />
 </div>
 
 
@@ -685,6 +552,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC90642C70B1AA1B98776583C63BD61A8A73A31E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486320   (100233) от 22.04.2012
+
+Григорий Кириллов | Подводный разведчик [1957] [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга "Подводный разведчик" содержит ряд рассказов, повествующих о героизме подводников во время Великой Отечественной войны 1941–1945 годов.1957Жанр: Военно-историческийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3134C6B53B117128FB94AF26935BEDBDA4784E79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482919   (99659) от 14.04.2012
+
+Алексей Харузин | Славянское жилище в Северо-Западном крае [1907] [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Труд «Славянское жилище в Северо-Западном крае» Алексея Николаевича Харузина (1864 — 8 мая 1932), русского этнографа и антрополога, государственного деятеля, основан на шестилетних «личных наблюдениях над жилищами белорусов, великороссов, малороссов и поляков в губерниях: Виленской, Ковенской, Гродненской, Витебской, Могилевской и Минской, а равно в разных великоросских (   Читать дальше...   )Жанр: Этнография, история, раритетФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5871EB358012E8A29816463FB5F94E4F941DA34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479357   (98959) от 07.04.2012
+
+Евдокимъ Зябловскiй | География Российской Империи [1837] [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Евдоким Филиппович Зябловский (1763 - 1846) - русский профессор статистики, воспитанник Севской духовной семинарии и учительской гимназии в Санкт-Петербурге, в 1788 был отправлен на службу учителем Народного училища в Колывань, откуда на собственные скудные средства разъезжал по разным местам Колыванского наместничества и составил их описание. В 1797 Зябловский был (   Читать дальше...   )Жанр: История, раритеты, учебная литература, географияЯзык: Русский (старая орфография)Издательство: Россiйская Имперiя, С.Петербургъ, типографія Министерства Внутреннихъ ДелъФормат: PDFКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3292C904EEC8D99DE639FA5CA10BD50DD654527
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478159   (98614) от 04.04.2012
+
+В. Курносов | Царское золото [2011] [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98614.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге содержится информация о 17815,147 кг золота. Эти тонны исчезли из хранилища Казанского отделения Народного банка России в августе 1918 года. Ценности до сих пор не обнаружены. В МВД существует оперативно-розыскное дело «Золотое руно»; часть информации на эту тему хранится под грифом «совершенно секретно». В настоящее время к поиску царского золота подключились и кладоискатели. Автор впервые приводит данные двух рассекреченных фондов Национального архива Татарстана. Исторический контекст событий, развернувшихся одновременно с работами по эвакуации золотого запаса, воспроизводится на основе мемуаров и трудов историков.2011Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48B8E2E7831F312603D95EB7001356DD39D10FE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475351   (98112) от 30.03.2012
+
+Н.И. Яковкина | История русской культуры. XIX век [2002] [RTF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена наиболее яркому и плодотворному периоду культурной жизни России - XIX веку, освещает развитие образования, литературы, изобразительного искусства, театра. Особое место в изложении уделяется Петербургу, как крупнейшему культурному центру того времени.2002Формат: RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:932C344E1CF7201CB9F06DEDC95CF30D97DBCF4B
 ```
 
 https://mybot314.ru/tekegram_catalog/

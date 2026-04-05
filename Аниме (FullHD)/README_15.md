@@ -6,7 +6,7 @@ Darker Than Black: Ryuusei no Gemini | Darker Than Black: Gemini of the Meteor |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815892.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Bishoujo Senshi Sailor Moon | Pretty Soldier Sailor Moon | Красавица-в
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815710.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Ikkitousen / Ikki Tosen / Школьные войны (сезон первый) 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815086.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Ikkitousen: Extravaganza Epoch | Школьные войны Эпоха феер
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814975.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Love Live! School Idol Project (2014) / Love Live! 2 / Живая Любовь! 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814551.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Kero-chan ni Omakase! | Предоставьте это Кэро! [2000, Movie] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813878.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Cardcaptor Sakura: Clear Card Hen | Card Captor Sakura: Clear Card Hen | Сак�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813734.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Cardcaptor Sakura | Card Captor Sakura | Сакура - собирательни
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813601.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Rosario to Vampire Capu2 / Вампир + крестик 2 [2008, TV, 13] BDrip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812645.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Okusama ga Seitokaichou! Plus! / My Wife is the Student Council President+! / М
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811081.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810740.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Komori-san wa Kotowarenai! / Komori-san Can't Decline / Безотказная �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809274.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Pan de Peace! / Хлеб мира! [2016, TV, 13] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809158.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Kono Bijutsubu ni wa Mondai ga Aru! / This Art Club Has a Problem! / У этог
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809146.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Love Live! Sunshine!! / Живая любовь! Сияние!! [ТВ-3] [2016, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808878.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Strike the Blood: Kieta Seisou Hen | Удар крови: Потерянное �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807858.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Highlander: The Search for Vengeance | Горец: В поисках мести 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806153.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ High Score Girl II | Девчонка не промах [ТВ-2] [2019, TV, 9] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804164.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Otaku no Video / Фильм об отаку 1982 и 1985 [1991, OVA, 2 из 2] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803841.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Tytania | Титания [2008, TV, 26 эп.] BDrip 1080p Hi10P raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803711.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Shounen Maid / Парень-горничная [2016, TV, 12 + SP] BDRip 1080p 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803448.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Uchuu Senkan Yamato 2199: Hoshi-Meguru Hakobune | Odyssey of the Celestial Ark |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803417.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Heroman | Хиромен [2010, TV, 26 + 3] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802735.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Charlotte | Шарлотта [2015, TV, 14 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801926.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801805.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Gintama. / Гинтама [ТВ-5] [2017, TV, 12 эп.] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801791.jpg" />
 </div>
 
 

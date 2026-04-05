@@ -6,7 +6,7 @@ John McLean & Clark Sommers Band - Parts Unknown (2017) Origin Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522358.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Alexis French - The Cut (2014) Rattle [FLAC|Lossless|tracks + .cue] <Post-Bop, T
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522202.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Tommy Dorsey And His Orchestra Featuring Jimmy Dorsey - Three Classic Albums Plu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522174.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Willem Breuker Kollektief - Bob's Gallery (1988) /BV Haast Records/[FLAC|tracks+
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521796.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Tommy Flanagan - Confirmation (1977/1978) /2005, Landy Star/[FLAC|tracks+.cue]<J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521707.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Orrin Evans And The Captain Black Big Band - Presence (2018) Smoke Sessions Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521432.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Queen Bee And The Honeylovers - Asheville (2019) Self-Released [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521429.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Andrew McCormack - First Light (2014) Edition Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521274.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Adrian Cunningham & His Friends - Play Lerner & Loewe (2019) Arbors Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520984.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Buddy DeFranco - Mr. Lucky (1981) 1997, Original Jazz Classics [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520893.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ CeCe Gable - More Than A Song (2020) New York Jazz Project [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520884.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Pal Thowsen - Carnival (1981) Remastered, 2022, Norske Albumklassikere [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520750.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ David Benoit - A Midnight Rendezvous (2022) [FLAC|Lossless|tracks+.cue] <Smooth 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520739.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Franz Koglmann - Orte Der Geometrie (1989) /hat ART/[APE|tracks+.cue]<Jazz, Avan
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520640.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Dave Brubeck - The New Brubeck Quartet Live At Montreux (1977) /1989, Tomato/[FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520639.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Nat King Cole - The Trouble With Me Is You (1944) /1989, ORO/[FLAC|tracks+.cue]<
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520634.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Harlan Leonard - 1940 (1992) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520403.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ V.A. - Jazz Ambient Del Mar (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Nu Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519781.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Chris Botti - 14 albums (1995-2009) [FLAC|Lossless] <Smooth Jazz, Contemporary J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519652.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Stephan Kurmann Strings - Strings (1989) /TCB Records/[FLAC|tracks+.cue]<Jazz, C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519615.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Lester Young - Neenah (1938-1959) 3CD /2014, Le Chant Du Monde/[FLAC|tracks+.cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519610.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Marcio Faraco - Cajueiro (2014) [FLAC|tracks]<Vocal Jazz, World Fusion, Bossa No
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519607.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Miroslav Vitous - Majesty Music (2015) 1976, Wounded Bird Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519449.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Shakatak - In The Blue Zone (2019) Japan [FLAC|Lossless|image + .cue] <Smooth Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519279.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ Annie Ross - Four Classic Albums Plus (2010) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519183.jpg" />
 </div>
 
 
@@ -739,7 +739,7 @@ Cousin Joe - The Complete Recordings, Vol.1 (1945 - 1947) 1995, Blue Moon [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518874.jpg" />
 </div>
 
 

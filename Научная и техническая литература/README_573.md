@@ -1,135 +1,3 @@
-###  Публикация: 1435205   (145215) от 27.12.2020
-
-Елизавета Хейнонен | 365 дней английского [тетрадь 1-7] (2020) [EPUB]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книги предназначены для тех, кто в изучении английского языка не продвинулся дальше уровня «читаю со словарем» и желает научиться говорить (а не только читать и писать) по-английски. Обучение разговорной речи происходит параллельно с повторением грамматики − шаг за шагом, от самого простого к более сложному. При этом грамматика не является самоцелью, а только (   Читать дальше...   )Жанр: Иностранные языки, СамоучителиФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:691E17CE616C1BD76A6BBA58A35E80BFBD306198
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969468   (145185) от 28.12.2015
-
-Де Агостини | Физика низких температур. Ландау. Сверхтекучесть (Наука. Величайшие теории Т. 49) (2015) [DJVU]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145185.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лев Ландау — один из ученых, которые внесли наибольший вклад в развитие физики XX века. В период, когда квантовая физика только зарождалась как отдельная область науки, он применил эту новую теорию для решения множества конкретных вопросов и смог объяснить удивительные свойства материи. Его труды не теряют своей актуальности во многих областях физики, но самые главные (   Читать дальше...   )Жанр: Научно-популярная литератураФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F5A7E334D71A858B55F8EEE85DE380CD9F11148
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087752   (145159) от 28.12.2016
-
-Э. Эчеверриа и др. | Прогрессивные мыслители Латинской Америки [XIX - начало XX в.] (1965) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее издание включает впервые переведенные на русский язык произведения выдающихся представителей прогрессивной мысли Латинской Америки XIX — начала XX в.
-
-Предлагаемый читателю сборник охватывает период революционной борьбы народов Латинской Америки за национальную независимость, против испанского и португальского господства, период становления буржуазных отношений (   Читать дальше...   )Жанр: История, политология, философия, искусство, религиоведениеФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D1183AEE3977F5991969388EFEB03AF2B0E38F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520075   (145151) от 26.12.2021
-
-Наталья Конрадова | Археология русского интернета. Телепатия, телемосты и другие техноутопии холодной войны (2022) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга - увлекательное путешествие через культурные слои, предшествовавшие интернету. Перед читателем предстает масштабная картина: идеи русских космистов перемежаются с инсайтами калифорнийских хиппи, эксперименты с телепатией инициируют народную дипломатию и телемосты, а военные разработки Пентагона помогают создать единую компьютерную сеть. Это захватывающая (   Читать дальше...   )Жанр: Культурология, Популярно об историиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29B67F8F932BF9C0B0B31E523CD75EC206C017BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087575   (145064) от 28.12.2016
-
-Дж. Бернал | Мир без войны (1960) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагая эту книгу вниманию советского читателя, я не претендую на то, чтобы удивить его чем-либо потрясающе новым, так как новое в мире является отчасти отражением героических достижений советского народа. Я надеялся исчерпывающим образом показать, что советский народ использовал знания и изобретательность человеческого ума для созидания и улучшения своего благосостояния, (   Читать дальше...   )Жанр: История, политология, экономика, науковедениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B00DC59A849EA700BD2BED551B5208ACCA0948B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520006   (144967) от 26.12.2021
 
 Сверкер Йоханссон | Рассвет языка. Путь от обезьяньей болтовни к человеческому слову. История о том, как мы начали говорить (2022) [EPUB, PDF]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144967.jpg" />
 </div>
 
 
@@ -164,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144962.jpg" />
 </div>
 
 
@@ -190,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144954.jpg" />
 </div>
 
 
@@ -217,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144934.jpg" />
 </div>
 
 
@@ -243,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144830.jpg" />
 </div>
 
 
@@ -269,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144760.jpg" />
 </div>
 
 
@@ -295,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144752.jpg" />
 </div>
 
 
@@ -321,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144739.jpg" />
 </div>
 
 
@@ -348,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144660.jpg" />
 </div>
 
 
@@ -376,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144642.jpg" />
 </div>
 
 
@@ -402,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144624.jpg" />
 </div>
 
 
@@ -428,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144604.jpg" />
 </div>
 
 
@@ -454,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144543.jpg" />
 </div>
 
 
@@ -480,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144534.jpg" />
 </div>
 
 
@@ -506,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144525.jpg" />
 </div>
 
 
@@ -532,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144401.jpg" />
 </div>
 
 
@@ -559,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144373.jpg" />
 </div>
 
 
@@ -585,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144355.jpg" />
 </div>
 
 
@@ -611,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144300.jpg" />
 </div>
 
 
@@ -637,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144216.jpg" />
 </div>
 
 
@@ -663,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144198.jpg" />
 </div>
 
 
@@ -675,6 +543,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DB01961D59EF49DB2E8E5B3AA405DFA6DEC2BF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195286   (144094) от 28.12.2017
+
+Е.В. Афонасин, А.С. Афонасина | IATPIKH TEXNH. Очерки истории античной медицины (2017) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первая часть книги представляет собой серию очерков по истории античной медицины. Подробно рассматривается связь античной традиции врачевания с культом Асклепия, а также эволюция медицинской науки с древнейших времен до периода поздней античности. Во второй части публикуются переводы двух трактатов Галена (О толках, для начинающих и О моих воззрениях) и трактат Порфирия (   Читать дальше...   )Жанр: История медициныФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE9D1048D81BFFB5B83ACA235B41B371EFD153AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272131   (144078) от 27.12.2018
+
+Элис Робертс | Невероятная одиссея человека. История о том, как мы заселили планету (2018) [PDF]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы раскрыть неизвестные повороты захватывающей истории о том, как Homo sapiens расселились из Африки по всему миру, известный британский анатом, антрополог и популяризатор науки Элис Робертс объехала весь мир – от эфиопских пустынь до Малайского полуострова и от российских степей до бассейна Амазонки и испытала на себе те суровые условия, в которых жили наши первобытные (   Читать дальше...   )Жанр: Научпоп, АнтропологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBDDE202B0B0C258EDEDC8B03AEFA453E087D6BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195216   (144038) от 28.12.2017
+
+Е.В. Афонасин и др. | Античный космос. Очерки истории античной астрономии и космологии (2017) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144038.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена античной астрономии, метеорологии и космологии. В разделе Переводы публикуются три античные учебника астрономии – Введение в явления Гемина, Учение о круговращении небесных сфер Клеомеда и астрономический раздел Изложения математических предметов, полезных для изучения Платона Теона Смирнского. В разделе Исследования подробно рассматриваются античные (   Читать дальше...   )Жанр: Античность, астрономия, метеорология, космологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:705927EA60BD7194E18CB5277154E235041D8EE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272283   (144029) от 27.12.2018
+
+Лаура Магни | Легендарные фотографы современности и их шедевры (2018) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто-то из них говорил, что рожден фотографом, другие же выбирали этот путь позже. Они могут быть бесстрашными или эксцентричными, веселыми или грубыми, идеалистами. Но объединяет их одно: все они охвачены глубокой, непреходящей страстью к своей профессии. И они – величайшие фотографы своего времени. Фотография для них – это вся жизнь, а иногда и смерть.
+Эта книга (   Читать дальше...   )Жанр: Изобразительное искусство, Искусство фотографииФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:295B9A4167A8EB67F0FE974113CB54B6C7FE94C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195226   (143999) от 28.12.2017
+
+С.А. Васильев, И.В. Милованов | Промышленные контроллеры Twido (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены базовые контроллеры Twido и их модули расширения входов и выходов, принципы функционирования, языки программирования, среда программирования Twido Suite.
+Предназначено для студентов 3, 4 курса бакалавриата направления «Информатика и вычислительная техника» и «Информационные системы и технологии», изучающих дисциплины «Схемотехника», «Промышленные информационные (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF13F83F0A83F752B9388C23115DD022B1992DE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

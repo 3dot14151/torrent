@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657972.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657946.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657808.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657662.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ PBS: Радиоактивные волки Чернобыля / Radioactive wolv
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657620.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657611.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657234.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657231.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657129.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657087.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657083.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657079.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657035.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657007.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656967.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656094.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656067.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655954.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655950.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655946.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ NASCAR. Monster Energy Cup Series 2018. Food City 500 (15.04.2018) HDTVRip [H.26
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655857.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655853.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655852.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655848.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ NASCAR. Monster Energy Cup Series 2018. Toyota Owners 400 (21.04.2018) HDTVRip [
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655846.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655740.jpg" />
 </div>
 
 

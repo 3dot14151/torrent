@@ -1,32 +1,3 @@
-###  Публикация: 1796254   (18829) от 09.05.2025
-
-Believer - Extraction From Mortality (1989) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive, Technical Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unite
-02. Vile Hypocrisy
-03. D.O.S. (Desolation of Sodom)
-04. Tormented(   Читать дальше...   )Жанр: Progressive, Technical Thrash MetalПродолжительность: 00:41:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64D5F7BD4EBD85DBF55843CE0665AB233E1A419C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625439   (18767) от 10.05.2025
 
 Bad Boys Blue - The Fifth (1989) 2016 [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Pop>
@@ -35,7 +6,7 @@ Bad Boys Blue - The Fifth (1989) 2016 [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18767.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Sleep Token - Studio Albums (6 releases) (2016-2025) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18739.jpg" />
 </div>
 
 
@@ -91,7 +62,7 @@ Nemesea - Studio Albums (5 releases) (2004-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18737.jpg" />
 </div>
 
 
@@ -121,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18573.jpg" />
 </div>
 
 
@@ -150,7 +121,7 @@ INXS - Listen Like Thieves (1985) 40th Anniversary Deluxe, 2025, Petrol Records 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18402.jpg" />
 </div>
 
 
@@ -179,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18393.jpg" />
 </div>
 
 
@@ -208,7 +179,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18300.jpg" />
 </div>
 
 
@@ -237,7 +208,7 @@ Linkin Park - From Zero (Deluxe Edition) (2025) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18236.jpg" />
 </div>
 
 
@@ -266,7 +237,7 @@ Waltari - Nations' Neurosis (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18200.jpg" />
 </div>
 
 
@@ -295,7 +266,7 @@ Dire Straits - Brothers In Arms (40th Anniversary) (1985) 2 x CD, Reissue, 2025,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18108.jpg" />
 </div>
 
 
@@ -324,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18083.jpg" />
 </div>
 
 
@@ -353,7 +324,7 @@ Morgenshtern (Моргенштерн) - Alisher (2025) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17794.jpg" />
 </div>
 
 
@@ -382,7 +353,7 @@ Rodmir - Родмир (1990) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17669.jpg" />
 </div>
 
 
@@ -411,7 +382,7 @@ Professor Emeritus - A Land Long Gone (2025) [FLAC 24/96|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17657.jpg" />
 </div>
 
 
@@ -440,7 +411,7 @@ Orchestral Manoeuvres in the dark - Bauhaus Staircase (2023) The Complete Editio
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17558.jpg" />
 </div>
 
 
@@ -469,7 +440,7 @@ Mississippi Shakedown - Play You Now, Dig You Later (2025) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17536.jpg" />
 </div>
 
 
@@ -498,7 +469,7 @@ Omegaman - Pillow Talk (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17535.jpg" />
 </div>
 
 
@@ -527,7 +498,7 @@ Carolyn Wonderland - Truth Is (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17534.jpg" />
 </div>
 
 
@@ -556,7 +527,7 @@ Samael - Passage (1996) Released, 2011, Floga Records [FLAC|24/192|image + .cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17533.jpg" />
 </div>
 
 
@@ -585,7 +556,7 @@ Djrum - Under Tangled Silence (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Mode
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17532.jpg" />
 </div>
 
 
@@ -614,7 +585,7 @@ Resurrection Blues Band - GENESIS (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17531.jpg" />
 </div>
 
 
@@ -643,7 +614,7 @@ Ruzz Guitar's Blues Revue - Between Two Worlds (2025) [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17530.jpg" />
 </div>
 
 
@@ -672,7 +643,7 @@ The British Bluescasting Corporation - Saints & Sinners (2025) [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17514.jpg" />
 </div>
 
 
@@ -701,7 +672,7 @@ Atlantic Behind - Delusion (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17453.jpg" />
 </div>
 
 
@@ -730,7 +701,7 @@ Audiophile NBR Music - Speak Softly Love (Deluxe Edition) (2025) [FLAC 24/48|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17451.jpg" />
 </div>
 
 
@@ -744,6 +715,35 @@ Audiophile NBR Music - Speak Softly Love (Deluxe Edition) (2025) [FLAC 24/48|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9038CC3B4797A2B35AE750C1CD05BF9FECDD5FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810306   (17450) от 03.08.2025
+
+Extreme Tinnitus - Darlene - Extreme Tinnitus - Darlene (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Concepts of a plan (3:31)
+02.  Sociopathy (3:04)
+03.  Goodbye, Narccisus (3:59)
+04.  Screen Door Interlude (2:09)(   Читать дальше...   )Жанр: RockПродолжительность: 00:26:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC4CAA183CFF57114FC4E04BC969EB3EE537FF3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

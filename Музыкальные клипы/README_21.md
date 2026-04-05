@@ -6,7 +6,7 @@ Alex Kenji ft. Ron Carrol - Good Time (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487697.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486785.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Animusic HD (2010) BDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486504.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Осенний марафон № 190 / Видеоклипы (Осенни�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483720.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ I Like a Beautiful Dream 3 (2014) WEBRip [H.264/720p-LQ], [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479770.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ VA - Осенний марафон № 191 / Видеоклипы (Коктей�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479676.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ The Beatles - документальные ролики из ремастери�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479593.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Colonia - Laz za laz (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478713.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Igor Garnier feat. Malena - Feel Desire (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478696.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ DJ VJ Magrao Videomix Volume 10 (2011) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478526.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Nikita - Avocado (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478379.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ PEZET - Supergirl (Uncensored) (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478280.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ VA - Осенний марафон № 192 /  Видеоклипы (Сборни
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473086.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Beat Club - Progressive Times - Vol3. 1970 (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472731.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Beat Club - Progressive Times - Vol 2. 1970 (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472726.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Jelena Karleusa feat. Nesh - SO (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471962.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469518.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Avril Lavigne - Wish You Were Here (2011) HDRip [720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469420.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Beat Club - Progressive Times - Vol.4 1970-71 (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467982.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Beat Club - Progressive Times - Vol5. (1971-72) (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467961.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Secret - Poison (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467683.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ MC Yankoo feat. SHA - Afterparty (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467674.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ DJ King Serenity feat. Boonty Rayne Swagger - Body Dance (2012) [H.264/1080p] WE
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467209.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Beat Club - Progressive Times - Vol 6. 1971-72 (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465825.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ VA - Осенний марафон № 193 / Видеоклипы (Презен�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464299.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462962.jpg" />
 </div>
 
 

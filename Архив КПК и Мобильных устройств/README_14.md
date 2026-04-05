@@ -6,7 +6,7 @@ Pushbullet - SMS on PC v17.7.2 Pro [Ru/Multi] - Отправка файлов, �
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914999.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Shrek Kart HD 3.1.6 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914859.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Impossible Level Game [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914842.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Fran Bow (Chapter 1-5) 1.0.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914731.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ AudioTool v7.2.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914248.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Cross DJ Pro v3.5.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914086.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ ReTouch v1.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913937.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913760.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ iCare Eye Test Pro v2.9.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_913701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_913701.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Durango: Wild Lands v5.2.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913577.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913352.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Online-кинотеатр 5tv5 v1.0.7 [Ru] - онлайн просмотр фи�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912978.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Garmin TOPO Deluxe Chile 2.0 (март 2013) <En>
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912709.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Road Map of Latvia LM 2.1 & Road Map of Latvia TOPO LM 2.1 [Карта] (Garmin)
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912638.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ WannaDraw 21 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912262.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Cimo - Compound Interest Calculator 1.0.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912227.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ IsoPix - Pixel Art Editor v1.4.5 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912213.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ NT Converter - Unit Converter Premium v1.6.9 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912199.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Real Car Parking 2017 v2.6.1 + Mod (v2.5) [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912132.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Real Car Parking 2: Driving School 2020 6.0.0 + Mod (Unlimited Money) [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911895.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Arc Launcher Pro HD Themes, Wallpapers, Booster 10.4 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911894.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911650.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911574.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ BeeTalk v3.0.11 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910865.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Crypto Helper 1.5.3 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910781.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ TuneIn Radio Pro 23.9.1 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910281.jpg" />
 </div>
 
 

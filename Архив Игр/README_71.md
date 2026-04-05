@@ -1,3 +1,55 @@
+###  Публикация: 944700   (224866) от 14.12.2015
+
+Fragoria (2007) [Ru] (3.3.1019) License
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224866.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фрагория - имеет игровую вселенную созданную в жанре фэнтези в старославянском стиле. Игра сочетает в себе возможности таких игр, как Diablo и World of Warcraft (WOW). Игровой мир населён разнообразной живностью, в игре доступны как PVE (игрок против монстров), так и PVP (игрок против игрока) составляющие, которые дополняют друг друга. С девятого уровня игроку предстоит (   Читать дальше...   )Тип издания: LicenseРазработчик: РуСофтвареЖанр: MMORPGЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F9F51503D17CA03D6FE1F4DFF8E98BF85C02867
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940346   (223126) от 15.12.2015
+
+Aion: Эра Льда (2009) [Ru/En] (4.9.0715.39) License
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aion: Эра Льда — это виртуальный мир, в котором тысячи игроков отправляются на поиски приключений в компании верных друзей или в составе целого легиона. С помощью разнообразных настроек игроку в Aion предоставляется возможность создать уникального персонажа с неповторимой внешность. В момент генерации героя можно изменить множество параметров: от формы носа и разреза (   Читать дальше...   )Тип издания: LicenseРазработчик: NCSoftЖанр: MMORPG, 3rd Person, Online-onlyЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7B66EC58A381EF1814D18809DE07F4595518CCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 587103   (222730) от 10.12.2012
 
 Kane & Lynch 2: Dog Days [Ru/En] (L) 2010 2xDVD5
@@ -6,7 +58,7 @@ Kane & Lynch 2: Dog Days [Ru/En] (L) 2010 2xDVD5
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222730.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ Angry Birds Seasons [En] (L/3.1.1) 2011
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222598.jpg" />
 </div>
 
 
@@ -64,7 +116,7 @@ Cartel Tycoon (2021) [Ru/Multi] (0.9.3.2368/dlc) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221641.jpg" />
 </div>
 
 
@@ -90,7 +142,7 @@ art of rally (2020) [Ru/Multi] (1.3.3a) License GOG [Deluxe Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221602.jpg" />
 </div>
 
 
@@ -116,7 +168,7 @@ King's Quest: Chapter 1-2 (2015) [En/Fr/De] (1.0) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221479.jpg" />
 </div>
 
 
@@ -142,7 +194,7 @@ Dying Light (2015) [Ru/Multi] (1.6.2/dlc) Repack R.G. Catalyst [Ultimate Edition
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219303.jpg" />
 </div>
 
 
@@ -168,7 +220,7 @@ Endless Space - Emperor Special Edition (Steam-Rip/1.0.38) [En/Multi3] 2012 l R.
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219182.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ Dark Era (2015) [En] (15.12.15) License
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217263.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ SolSuite 2013 [En] (L/13.0) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217168.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ Test Drive: Ferrari Racing Legends (NoDVD/1.0) 2012 | SKiDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216899.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ Trine 2 / Trine 2: Триединство. Collector's Edition [Ru/En/Multi14] (
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_216274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_216274.jpg" />
 </div>
 
 
@@ -299,7 +351,7 @@ Mass Effect [PS3] [ENG] [PAL] [3.55 / 4.30] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216116.jpg" />
 </div>
 
 
@@ -329,7 +381,7 @@ Gamedec (2021) [Ru/Multi] (1.3.50.r47501/dlc) License GOG [Digital Deluxe Editio
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215963.jpg" />
 </div>
 
 
@@ -355,7 +407,7 @@ Dishonored: Death of the Outsider (2017) [Ru] (1.145.0.0) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214586.jpg" />
 </div>
 
 
@@ -381,7 +433,7 @@ Cabela's Big Game Hunter: Trophy Bucks (2007) [En] (1.0) Unofficial
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214202.jpg" />
 </div>
 
 
@@ -407,7 +459,7 @@ Ship Graveyard Simulator 2 (2023) [Ru/Multi] (4607) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213558.jpg" />
 </div>
 
 
@@ -433,7 +485,7 @@ Grand Tactician: The Civil War (1861-1865) (2021) [En] (1.09) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207172.jpg" />
 </div>
 
 
@@ -459,7 +511,7 @@ RIDE 5 (2023) [Multi] (1.0) Scene Rune
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202118.jpg" />
 </div>
 
 
@@ -485,7 +537,7 @@ Voltaire: The Vegan Vampire (2023) [En] (0.80.5) License GOG [Early Access]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201987.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ Dreadful River (2023) [En] (0.4.121.0) License GOG [Early Access]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201486.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ Spin Rhythm XD (2023) [Ru/Multi] (1.01) Scene TENOKE
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200619.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ Remnant II (2023) [Ru/Multi] (11760467/dlc) Repack DjDI [Ultimate Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195250.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ Victoria 3 (2022) [Ru/Multi] (1.0.5 Build 9861383/dlc) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_189509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189509.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ Somerville (2022) [Multi] (1.0) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187338.jpg" />
 </div>
 
 
@@ -626,58 +678,6 @@ Somerville (2022) [Multi] (1.0) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D38358B188554E0E9877526806D9A4D8C686A043
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426672   (185651) от 25.11.2020
-
-HAYDEE II (2020) [Ru/En] (1.0) Repack Other s
-
->>След.
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185651.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гайде II, как и ее предшественник, это игра о героине, запертой в странном комплексе без единого намека, что происходит или как из него выбраться. Это новый лабиринт из 6 тематических секций и 160 локаций, полный врагов, загадок и спрятанных предметов, где ваши единственные друзья - это пистолет, смекалка и менеджмент инвентаря. Вам брошен вызов. Примите его или (   Читать дальше...   )Тип издания: RepackРазработчик: Haydee InteractiveЖанр: Action, Puzzle, 3rd Person, 3DЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A807B675F2A472C58934E4831CF36361F5E5B35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413254   (181698) от 29.11.2020
-
-Crusader Kings III / Crusader Kings 3 (2020) [Ru/Multi] (1.2.1/dlc) Repack xatab [Royal Edition]
-
->>След.
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Paradox Development Studio представляет продолжение одной из самых популярных стратегических игр в истории. Crusader Kings III станет полноправной наследницей долгой традиции наших исторических стратегий: игроков ждет множество новых способов обеспечить процветание своему роду.Тип издания: RepackРазработчик: Paradox Development StudioЖанр: Strategy (Real-time, Grand strategy), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BB724F3599C1EF30028EBEA40BF881C9ABD0256
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1039319   (597165) от 31.07.2016
+
+Жемчужина Нила / The Jewel of the Nile (1985) BDRip [H.264/1080p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герои предыдущей части Джэк и Джоан живут спокойной, размеренной жизнью богатых бездельников. У них есть все, что могут позволить деньги: яхта, виллы, прислуга. Но им скучно. Скучно друг с другом, и этим обществом. Чтобы развлечь себя, Джоан принимает приглашение арабского шейха посетить его восточную резиденцию. Но сказка обернулась кошмаром: арабский красавец похищает (   Читать дальше...   )Производство: СШАЖанр: Боевик, Мелодрама, Комедия, ПриключенияРежиссер: Льюис ТигАктеры: Майкл Дуглас, Кэтлин Тёрнер, Дэнни ДеВито, Спирос Фокас, Эвнер Айзенберг, Пол Дэвид Магид, Ховард Джей Пэттерсон, Рэндал Эдвин Нельсон, Сэмюэл Росс Уильямс, Тимоти Дэниэл Фёрст, Холланд Тейлор, Гай Куэвас, Питер ДеПальма, Марк Дэйли Ричардс, Дэниэл Пикок, Алауи Хасен, Флора Альберти, Патриция Дэвидсон, Байи Абдельмаджид, Мохамед Аттифи, Хиляль АбделлатифПеревод: Многоголосый закадровый (Киномания)Продолжительность: 01:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32869A7B92728D8F0C7C704E125FDF6A44666A68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526693   (596795) от 24.07.2012
+
+Эммануэль / Emmanuelle (1974) [H.264/720p-LQ] BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый фильм о жрице любви Эммануэль. Сюжет служит канвой для описания сексуальных похождений героини в Юго-Восточной Азии.Муж Эммануэль, работающий в посольстве, поощряет в ней стремление к раскрепощенности в сексе, благо весь дипломатический корпус, особенно женщины, изнывают от скуки. За её воспитание берется уже пожилой специалист. Эммануэль делает большие успехи в искусстве любви.Жанр: Драма, ЭротикаРежиссер: Жюст ЖэкинАктеры: Ален Кюни, Сильвия Кристель, Марика Грин, Даниэль Сарки, Жанна Коллетен, Кристин Буассон, Саманта, Габриэль Бриан,ГрегориПеревод: ПрофессиональныйПродолжительность: 01:34:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7411720AB1E8CE31C1AF45B03F7B23442605A497
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146440   (596536) от 13.07.2017
+
+Бегство к Афине / Escape to Athena (1978) BDRip [H.265/1080p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма происходит во время Второй мировой войны в 1944 году на одном из греческих островов, окупированном нацистами. Американские и английские военнопленные под руководством своего лидера Зено осуществляют побег. При этом они спасают не только свои жизни, но и древнегреческие предметы искусства.Производство: Великобритания / Incorporated Television Company (ITC), Pimlico FilmsЖанр: Боевик, Комедия, Приключения, ВоенныйРежиссер: Джордж П. КосматосАктеры: Роджер Мур, Телли Савалас, Дэвид Нивен, Стефани Пауэрс, Клаудия КардиналеПеревод: Двуголосый закадровый (АО "Консул")Субтитры: отсутствуютПродолжительность: 01:59:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9EEA5E4922E5B4145ECA1C268386911189FDADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546140   (596180) от 04.05.2022
+
+Рожденная свободной / Born Free (1965) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596180.jpg" />
+</div>
+
+
+###  Подробнее
+
+История львицы Эльсы, ещё детенышем попавшей к супругам Адамсон. Они не только спасают малышку от неминуемой гибели, но и, вырастив её, возвращают назад в дикую природу, потому что она была рождена свободной.Производство: Великобритания / Open Road Films, Atlas, HighroadЖанр: приключения, семейный, драмаРежиссер: Джеймс Хилл, Том МакГоунАктеры: Вирджиния МакКенна, Билл Треверс, Джеффри Кин, Питер Лукойе, Омар Чамбати, Билл Годден, Брайан Эпсом, Роберт Читэм, Роберт С. Янг, Джеффри БестПеревод: Двуголосый профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:35:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C040FF634216345B4997DC095E1D929CA2FB0021
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 526480   (595463) от 25.07.2012
 
 Дикая банда / Кровавая банда / The Wild Bunch (1969) [1080p]BDRip
@@ -6,7 +110,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595463.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594729.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594630.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594548.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594543.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594396.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594195.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593913.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592067.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592004.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591815.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591596.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591548.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591355.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591059.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590311.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590257.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590106.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589717.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589690.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589502.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589494.jpg" />
 </div>
 
 
@@ -566,110 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3DF6F9478EDA0C7D28B932F0D51C26A1EB98C1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917638   (589068) от 12.07.2015
-
-Идиот в Париже / Un idiot a Paris (1967) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гоби – объект шуток в маленькой провинциальной деревне. Всех забавляет, что он мечтает побывать в самом романтическом городе – Париже. Для того, чтобы очередной раз над ним подшутить, насмешники кладут спящего Гоби в машину, которая должна отвезти его к мечте. Проснувшись, Гоби не пониманет, как он здесь очутился. Он начинает свое путешествие по своей мечте, и встречает (   Читать дальше...   )Производство: Франция | Gaumont InternationalЖанр: КомедияРежиссер: Серж КорберАктеры: Дани Каррель, Жан Лефевр, Бернар Блие, Робер Дальбан, Мишлин Люссьони, Фернан Берсе, Жан Карме, Альбер Реми, Бернадетт Лафон, Андре ПуссПеревод: Профессиональный многоголосыйПродолжительность: 01:28:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE0DD977F61EE396774E49D11AAA8B957A499AFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551966   (588907) от 18.05.2022
-
-След Сокола / Spur des Falken (1968) BDRip [H.264/1080p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588907.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во второй половине 19 века в Черных горах (Блэк-хиллс) было найдено золото. Весть об этой находке привлекает в Черные горы искателей приключений, бандитов, золотоискателей и дельцов, хотя согласно договору эти земли оставлены за индейцами племени Дакота. В числе дельцов прибыл и Бладжен ("Дубинка»), спекулирующий земельными участками — он пытается любыми средствами (   Читать дальше...   )Производство: Германия (ГДР), СССР / Knstlerische Arbeitsgruppe ''Roter Kreis'', Kinostudiya ''Gruziya-film'', VEB DEFA-Studio fr SpielfilmeЖанр: Драма, ВестернРежиссер: Готтфрид КольдицАктеры: Гойко Митич, Ханньо Хассе, Барбара Брыльска, Лейла Месхи, Рольф Хоппе, Хартмут Бер, Хельмут Шрайбер, Фред Дельмаре, Милан Яблонски, Хольгер МалихПеревод: Дублированный (со вставками Юрия Сербина)Субтитры: ОтсутствуютПродолжительность: 01:48:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFBD25DC71B44336E123F1E19BBE6308422F6181
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551581   (588871) от 18.05.2022
-
-Сыновья Большой медведицы / Die Sohne Der Grossen Barin / The Sons of Great Bear (1966) BDRip [H.264/1080p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Токей-Ито, вождь «сыновей Большой Медведицы» из племени дакота, приглашен лейтенантом Роучем в Форт-Смит. Токей-Ито опасается предательства белых и охотнее сражался бы против них вместе с верховным вождем Тачунка-Витко, но старейшины решили иначе. Когда он прибывает в Форт-Смит в сопровождении своего личного врага Фреда Кларка по кличке «Красный Лис», его подозрения (   Читать дальше...   )Производство: Германия (ГДР), Югославия / Bosna Film, DEFAЖанр: ВестернРежиссер: Йозеф МахАктеры: Гойко Митич, Иржи Врстяла, Рольф Рёмер, Ганс Хардт-Хардтлофф, Герхард Рахольд, Хорст Йонишкан, Йозеф Майерчик, Йозеф Адамович, Милан Яблонски, Ханньо ХассеПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 01:27:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A8FE1D5BFDB627BE5B3935A8831BFFE4FC853BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913605   (588627) от 13.07.2015
-
-Таверна Ямайка / Jamaica Inn (1939) BDRemux [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588627.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мэри, осиротев, приезжает на побережье Корнуолла к своим дяде и тётке, содержащим таверну «Ямайку». Вскоре Мэри понимает, что таверна является базой для банды, грабящей суда, разбившиеся о скалистый берег. Жизни сироты угрожает опасность, однако среди головорезов есть человек, готовый помочь девушке.Производство: Великобритания | Mayflower Pictures Corporation Ltd.Жанр: Драма, приключения, криминал, экранизацияРежиссер: Альфред ХичкокАктеры: Чарльз Лотон, Хорас Ходжес, Хэй Питри, Фредерик Пайпер, Херберт Ломас, Клер Грит, Уильям Дэвлин, Джейн Де Касалис, Мейбл Терри-Льюис, А. Бромли Девенпорт, Джордж Курзон, Бейзил Рэдфорд, Лесли Бэнкс, Мари Ней, Морин О’Хара, Эмлин Уилльямс, Вайли Уотсон, Морленд Грэм, Эдвин Гринвуд, Мервин Джонс, Роберт ЭдейрПеревод: Профессиональный многоголосыйЯзык субтитров: Русский, английскийПродолжительность: 01:39:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD0B984197B2E12874A4C2932B59B6E49188CCB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

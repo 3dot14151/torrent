@@ -1,3 +1,61 @@
+###  Публикация: 1142054   (643109) от 14.06.2017
+
+VA - Trance Runner - Episode Five (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Air-T - Moments Of Life (Radio Drive Mix)  3:09
+02.  Philip Mayer - Darkside (Radio Edit)  4:04
+03.  Surisan - Where Have You Gone (Trancephonic Radio Edit)  3:07
+04.  DJ Rosso - I Will Try (Radio Edit)  3:12(   Читать дальше...   )Жанр: TranceПродолжительность: 01:55:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD4C0C4ACF098D501C9666A93F5B8BA9A14444C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292770   (643085) от 31.03.2019
+
+VA - Back To The Trance (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ian Source - S.O.S. (Eddie Lung Remix)
+02. Mahaputra - I found you
+03. Paul Cry - Velvet (Anyosel Remix)
+04. Ula - Meruem (Icedream Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:58:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A4FB309DB4D15D475B5AF4E888F53A7806CE8B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228074   (641206) от 29.05.2018
 
 Guido Hermans - Against the Tide (2018) [MP3|320 Kbps] <Trance>
@@ -6,7 +64,7 @@ Guido Hermans - Against the Tide (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641206.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - High Contrast: Ibiza Trance (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641204.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Cathy Burton - Best Of Vocal Trance (The Radio Edits) (2018) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641203.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Redux Frankfurt Selection (Mixed by A-Tronix & Sven E) (2018) [MP3|320 Kbps
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639411.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - The Sound Of Trance Vol. 10 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639408.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Trance Runner - Episode Six (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639407.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Orjan Nilsen - Prism (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639403.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Trance Euphoria Vol.1 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance, Prog
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639396.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - 5 Years Suanda (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637523.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Trance Festival Ibiza (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635950.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - May Trance (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635513.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Ibiza Trance (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635510.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Uplifting Trance 2017 Vol.2 (2017) [MP3|320 Kbps] <Uplifting Trance, Vocal 
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635118.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Festival Trance Music Vol.6 (2016) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632684.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Progressive Vocal Trance Hits (2022) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631677.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - A State Of Trance Festival - Warm Up Sets (2016) [MP3|320 Kbps] <Trance, Pr
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631493.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Best Of Vocal Trance 2016 Vol. 2 (2016) [MP3|320 Kbps] <Trance, Uplifting T
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628623.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Trance 2018 Top 20 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624534.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Best of Progressive Vocal Trance (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624446.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Vocal Trance 2022 Vol 2 (2022) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623798.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Summer Hits (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622709.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Trance Runner - Episode Seven (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620969.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Amsterdam Trance Sessions Vol. 5 (2016) [MP3|320 Kbps] <Trance, Uplifting T
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618900.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Russian Trance 2018  [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive 
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617386.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Russian Trance 2018  [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6626EFA20606F9011D920DD843D468DB5509F94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295801   (617017) от 14.04.2019
-
-VA - Black Hole Trance Music (04-19) (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Gate & Foret - Need To Feel Loved (Extended Mix) 06:52
-02. Dustin Husain - Hour Of Twilight (Extended Mix) 07:15
-03. Eddie Murray feat. Veronica Moran - Adrift (Extended Mix) 06:43
-04. Formal One - Be Like Me (Extended Mix) 06:15(   Читать дальше...   )Жанр: TranceПродолжительность: 02:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78DD0C7E256DF3A66BEA6BF488B5ED7BCD97752B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230457   (615710) от 12.06.2018
-
-Syn Drome - Silence Vol. 40 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Syn Drome - Deserted City (Original Mix)
-02.Syn Drome - Afeeliya (Original Mix)
-03.Syn Drome - Dilemma (Original Mix)
-04.Syn Drome - Gravity (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:47:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09DCD864850527FB52AB1C916190D021D5AF4475
 ```
 
 https://mybot314.ru/tekegram_catalog/

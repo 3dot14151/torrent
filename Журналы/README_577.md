@@ -1,3 +1,143 @@
+###  Публикация: 447959   (92760) от 08.02.2012
+
+Подшивка журналов | 64-Шахматное обозрение [1970-1979] [DJVU]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_92760.jpg" />
+</div>
+
+
+###  Подробнее
+
+64 - Шахматы и шашки в рабочем клубе (1925, 1928)
+Популярный шахматно-шашечный журнал. Двухнедельный орган Шахм.-шаш. секции ВСФК и Шахбюро при ВЦСПС. Отв.ред. Н.В.Крыленко. В состав редколлегии входили также Н.Д.Григорьев, Б.С.Левман, С.С.Левман, И.Л.Майзелис, В.И.Нейштадт, Л.Я.Френкель и др.
+Со второго полугодия 1968 года в еженедельном приложении к газете "Советский (   Читать дальше...   )Формат: DJVU
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 446764   (92399) от 05.02.2012
+
+Подшивка журналов | 64-Шахматное обозрение [2010] [djvu]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_92399.jpg" />
+</div>
+
+
+###  Подробнее
+
+64 - Шахматы и шашки в рабочем клубе (1925, 1928)
+Популярный шахматно-шашечный журнал. Двухнедельный орган Шахм.-шаш. секции ВСФК и Шахбюро при ВЦСПС. Отв.ред. Н.В.Крыленко. В состав редколлегии входили также Н.Д.Григорьев, Б.С.Левман, С.С.Левман, И.Л.Майзелис, В.И.Нейштадт, Л.Я.Френкель и др.
+Со второго полугодия 1968 года в еженедельном приложении к газете "Советский (   Читать дальше...   )Жанр: Периодическое изданиеФормат: djvu
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 446943   (92397) от 05.02.2012
+
+Подшивка журналов | 64-Шахматное обозрение [2007] [DJVU]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_92397.jpg" />
+</div>
+
+
+###  Подробнее
+
+64 - Шахматы и шашки в рабочем клубе (1925, 1928)
+Популярный шахматно-шашечный журнал. Двухнедельный орган Шахм.-шаш. секции ВСФК и Шахбюро при ВЦСПС. Отв.ред. Н.В.Крыленко. В состав редколлегии входили также Н.Д.Григорьев, Б.С.Левман, С.С.Левман, И.Л.Майзелис, В.И.Нейштадт, Л.Я.Френкель и др.
+Со второго полугодия 1968 года в еженедельном приложении к газете "Советский (   Читать дальше...   )Формат: DJVU
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 446640   (92396) от 05.02.2012
+
+Подшивка журналов | 64-Шахматное обозрение [2009] [djvu, pdf]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_92396.jpg" />
+</div>
+
+
+###  Подробнее
+
+64 - Шахматы и шашки в рабочем клубе (1925, 1928)
+Популярный шахматно-шашечный журнал. Двухнедельный орган Шахм.-шаш. секции ВСФК и Шахбюро при ВЦСПС. Отв.ред. Н.В.Крыленко. В состав редколлегии входили также Н.Д.Григорьев, Б.С.Левман, С.С.Левман, И.Л.Майзелис, В.И.Нейштадт, Л.Я.Френкель и др.
+ Со второго полугодия 1968 года в еженедельном приложении к газете "Советский (   Читать дальше...   )Жанр: Периодическое изданиеФормат: djvu, pdf
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 446916   (92391) от 05.02.2012
+
+Подшивка журналов | 64-Шахматное обозрение [2008] [DJVU]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_92391.jpg" />
+</div>
+
+
+###  Подробнее
+
+64 - Шахматы и шашки в рабочем клубе (1925, 1928)
+Популярный шахматно-шашечный журнал. Двухнедельный орган Шахм.-шаш. секции ВСФК и Шахбюро при ВЦСПС. Отв.ред. Н.В.Крыленко. В состав редколлегии входили также Н.Д.Григорьев, Б.С.Левман, С.С.Левман, И.Л.Майзелис, В.И.Нейштадт, Л.Я.Френкель и др.
+Со второго полугодия 1968 года в еженедельном приложении к газете "Советский (   Читать дальше...   )Формат: DJVU
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 447626   (92328) от 05.02.2012
 
 Газета | Сезон у дачи №2 (2012) [DJVU]
@@ -6,7 +146,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_92328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_92328.jpg" />
 </div>
 
 
@@ -33,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91581.jpg" />
 </div>
 
 
@@ -59,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91384.jpg" />
 </div>
 
 
@@ -85,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91295.jpg" />
 </div>
 
 
@@ -112,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91294.jpg" />
 </div>
 
 
@@ -138,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90900.jpg" />
 </div>
 
 
@@ -164,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90871.jpg" />
 </div>
 
 
@@ -190,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90832.jpg" />
 </div>
 
 
@@ -216,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90824.jpg" />
 </div>
 
 
@@ -242,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90796.jpg" />
 </div>
 
 
@@ -268,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90759.jpg" />
 </div>
 
 
@@ -294,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90695.jpg" />
 </div>
 
 
@@ -320,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90621.jpg" />
 </div>
 
 
@@ -347,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90602.jpg" />
 </div>
 
 
@@ -373,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90573.jpg" />
 </div>
 
 
@@ -401,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90458.jpg" />
 </div>
 
 
@@ -427,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90379.jpg" />
 </div>
 
 
@@ -453,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89619.jpg" />
 </div>
 
 
@@ -480,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89344.jpg" />
 </div>
 
 
@@ -506,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88757.jpg" />
 </div>
 
 
@@ -532,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88752.jpg" />
 </div>
 
 
@@ -545,137 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65609C692748E705CC426A3EC0397B292B8BA603
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484030   (88741) от 16.04.2012
-
-Журнал | Хозяин. Спецвыпуск №6. Постройки на участке [2011 июнь] [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88741.jpg" />
-</div>
-
-
-###  Подробнее
-
-В предлагаемом спецвыпуске вы найдете подробные варианты строительства наиболее простых и доступных, необходимых в каждом дворе хозяйственных построек: типы и конструкции погребов, бани и летнего душа, парников и теплиц, колодцев, гаража, животноводческих помещений, коптильни и дворовых каминов, туалета, бассейнов и декоративных решеток.2011 июньФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:363B6C2294A73827B7A749A7B09C38C252D6EC18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482334   (88238) от 13.04.2012
-
-Подборка | Статьи из журнала «Прорез» [FB2][MHTML] [2012]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка статей на ножевую тему (приобретение, использование, уход, заточка и т.д.) С подборку входят 55 статей из журнала "Прорез" и 34 статьи с сайтов "Ножи" и "Комбат".2012Формат: FB2, MHTML
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3552278A43EE2FEA6FFA8AB3882CF537CE5F34F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482386   (88195) от 13.04.2012
-
-Журнал | Chip [Украина] №5 (2012) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88195.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chip — первый компьютерный журнал в Европе, сейчас он издается в 16 странах общим тиражом более 1 миллиона экземпляров.
- ЖурналФормат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481332   (87790) от 11.04.2012
-
-Журнал | Cosmopolitan [Россия] №206 (Май 2012) [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cosmopolitan – женский глянцевый журнал №1 в России. Сегодня невозможно встретить девушку, которая бы ни разу не читала или хотя бы не держала в руках номер Cosmo. Для своих постоянных читательниц журнал стал настоящей подругой, с которой можно поболтать о моде, косметике, отношениях, сексе и многом другом. СегодняФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:121823839CC4BB6718F10BE9B55568117497B5B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481535   (87713) от 11.04.2012
-
-Журнал | Детали мира №7 (9) [апрель 2012] [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87713.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научно-популярный журнал «Детали мира», выходит раз в 2 недели. Всё самое интересное, что происходит в мире собрано в одном журнале!апрель 2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B30A677D6BE68FC6AF9956EC284E0558B178D74
 ```
 
 https://mybot314.ru/tekegram_catalog/

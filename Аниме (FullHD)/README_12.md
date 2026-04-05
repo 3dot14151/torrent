@@ -6,7 +6,7 @@ Overlord | Повелитель [2015, TV, 13 + 8 sp] BDRip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887429.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Last Exile / Изгнанник [2003, TV, 26 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887090.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Death Parade / Парад смерти [2015, TV, 12 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887014.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Musekinin Kanchou Tylor: Tokubetsu Hen - Hitoribocchi no Senso | The Irresponsib
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886670.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Ai Tenchi Muyou! / Тэнти - лишний! Любовь [2014, TV, 50 + 10 SP
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885938.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Hai to Gensou no Grimgar / Гримгал пепла и иллюзий [2016, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885483.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Bungou Stray Dogs / Великий из бродячих псов [TV-1] [2016, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885349.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Ashita Sekai ga Owaru to Shite mo | The Relative Worlds | Связанные м�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883613.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Chihayafuru 3 | Игра Тихайи 3 | Яркая Тихайя [ТВ-3] [2019
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883612.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Re: Zero | Re: Zero kara Hajimeru Isekai Seikatsu | Re: Жизнь с нуля �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883024.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Gakkou Gurashi! | School-Live! | Школьная жизнь! [2015, TV, 12 эп
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882329.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Zombie Land Saga Revenge | Зомбиленд. Сага: Месть [2021, TV, 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_880615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_880615.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Daishizen no Majuu Bagi | Bagi, the Monster of Mighty Nature | Баги, мон�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880335.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Koukaku Kidoutai: Shin Gekijouban | Ghost in the Shell New Movie  | Призра
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880272.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Hitsugi no Chaika / Chaika the Coffin Princess / Чайка и гроб [2014, T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879004.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Overlord III | Повелитель [ТВ-3] [2018, TV, 13 эп. + 13 SP] BDrip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_876972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_876972.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Nekomonogatari (Kuro) | История кошки (чёрная глава) [201
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876778.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Bakemono no Ko | The Boy and The Beast | Мальчик и Зверь [2015, MV]
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872965.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Munou na Nana | Talentless Nana | Бездарная Нана [2020, TV, 13 эп
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872858.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Kanojo mo Kanojo | Girlfriend, Girlfriend | Мои девушки [2021, TV, 12 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870818.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ D4DJ First Mix | Первый микс [2020, TV, 13 из 13] BDRip 1080p 10-bit
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869790.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Ore, Tsushima | Я — Цусима [2021, TV, 12 эп.] WebRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869218.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Bakuman. 3 / Бакуман [ТВ-3] [2012, TV, 25] BDrip 1080p Hi10p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868881.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Tsuujou Kougeki ga Zentai Kougeki de Nikai Kougeki no Okaasan wa Suki Desuka? | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868614.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Moetan / Моэтан [2007, TV, 11 + 3SP] BDRip 1080p x265 raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868225.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Kuma Kuma Kuma Bear | The Bears Bear a Bare Kuma | Ми-ми-ми-мишка [Т
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867883.jpg" />
 </div>
 
 

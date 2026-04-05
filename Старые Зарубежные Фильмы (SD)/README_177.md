@@ -1,3 +1,134 @@
+###  Публикация: 1653048   (194355) от 14.08.2023
+
+Генри и Джун / Henry & June (1990) BDRip [H.264] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм снят по одноимённой книге французской писательницы Анаис Нин, рассказывающей о её взаимоотношениях с писателем Генри Миллером и его женой Джун... Место действия — Париж, 1931 год. История живописует любовный треугольник, сложившийся между четой Миллер и Анаис Нин. Анаис замужем за Хьюго, но ей скучно, тоскливо и хочется чего-то большего. А ещё она ведёт дневник, (   Читать дальше...   )Производство: США, Франция, Universal Pictures, Walrus & Associates, Ministère de la Culture de la Republique FrançaiseЖанр: драма, биографияРежиссер: Филип КауфманАктеры: Фред Уорд, Ума Турман, Мария ди Медейруш, Ричард Э. Грант, Кевин Спейси, Жан-Филипп Экоффе, Брюс Майерс, Хуан Луис Бунюэль, Феодор Аткин, Сильви ЮгельПеревод: профессиональный многоголосый, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: английскиеКачество: BDRipПродолжительность: 02:16:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89E7368EB14608E2B8EF00BFDC034C460E43AF30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653964   (194197) от 18.08.2023
+
+Человек, который упал на Землю / The Man Who Fell to Earth (1976) BDRip [H.264] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194197.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основанный на одноимённом романе 1963 года Уолтера Тевиса, фильм об инопланетянине, прибывшем на Землю в поисках воды для своей поражённой засухой планеты, где от жажды умирают его жена и дети. Инопланетянин берёт себе имя Томас Джером Ньютон, приходит в патентное бюро юриста Фарнсуорта и предлагает ему некоторое количество изобретений, при помощи которых можно заработать (   Читать дальше...   )Производство: Великобритания, British Lion Film Corporation, Cinema 5Жанр: фантастика, драмаРежиссер: Николас РоугАктеры: Дэвид Боуи, Рип Торн, Кэнди Кларк, Бак Генри, Берни Кейси, Джексон Д. Кэйн, Рик Риккардо, Тони Машиа, Линда Хаттон, Хилари Холланд, Эдриенна Ларусса, Джеймс ЛовеллПеревод: профессиональный многоголосый, авторскийЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:19:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA68B434709876095D1340FBDEDDD9E3D81399F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 76296   (194078) от 18.08.2023
+
+Любовь Свана / Un amour de Swann (1983) DVDRip [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_194078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация фрагмента из цикла романов Марселя Пруста "В поисках утраченного времени". Молодой богатый денди Шарль Сван занят поисками абсолютной любви и, женившись на прекрасной Одетте де Кресси, уверен, что нашел Ее. Но спустя одиннадцать лет, его постигает новое разочарование, а общение с бароном де Шарлюсом, сторонником однополой любви, только усугубляет (   Читать дальше...   )Производство: Франция, Германия / Gaumont, Bioskop Film, France 3 Cinéma, Les Films du Losange, Société Française de Production, Nicole Stéphane Production, Westdeutscher RundfunkЖанр: драма, мелодрама, экранизацияРежиссер: Фолькер ШлёндорфАктеры: Джереми Айронс, Ален Делон, Орнелла Мути, Фанни Ардан, Мари-Кристин Барро, Энн Беннент, Натали Жюве, Шарлотта Керр, Катрин Лашанс, Филиппина ПаскальПеревод: Многоголосый профессиональныйЯзык озвучки: РусскийПродолжительность: 01:46:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ED09563FB595D2384C2428F6D6EC0E3E9BBFFD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654955   (193929) от 24.08.2023
+
+Лорел и Харди. 45 минут от Голливуда / 45 Minutes from Hollywood (1926) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семья: дедушка, его дочь, внук и внучка получают извещение. Им срочно нужно заплатить один долг. Но где заплатить! В Голливуде. Дедушка в молодости видел парад «Купающихся красоток». Внучка мечтает стать великой актрисой, чтобы люди плакали, и о, да, ей это по силам. Внук же, хочет посмотреть, как кормят артистов. Мудрая мать решает отпустить в Голливуд их всех.Производство: США, Hal Roach StudiosЖанр: короткометражный, комедия, немое киноРежиссер: Фред ГиолАктеры: Гленн Трайон, Шарлотта Мино, Руб Клиффорд, Сэлли О’Нил, Оливер Харди, Эдна Мерфи, Джерри Мэнди, Теда Бара, Эд Бранденбург, Джо КоббПеревод: немой с интертитрами (bankolya)Субтитры: русские (интертитры)Продолжительность: 00:17:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDF545A6E2A1F959D25D0B461F13499E14DB6EFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1828033   (193697) от 23.10.2025
+
+Тайна Обервальда / Il mistero di Oberwald (1980) DVDRip [DVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193697.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация по произведению Жана Кокто
+ Молодая королева становится свидетелем убийства свого мужа сразу после свадьбы. Преследуемая судом, она совершает побег. Она тайно переезжает из одного своего замка в другой. В годовщину гибели мужа она приезжает в замок в Обервальде. Враги королевы нанимают для ее убийства молодого поэта Станислава. Но вместо воплощения задуманного (   Читать дальше...   )Производство: Италия, Германия (ФРГ) / Polytel International FilmЖанр: драма, мелодрама, экранизацияРежиссер: Микеланджело АнтониониАктеры: Моника Витти, Паоло Боначелли, Франко Бранчароли, Луиджи Диберти, Элизабетта Поцци, Амад Саа Алан, Карла Будзанка, Франко МосконПеревод: Двуголосый профессиональныйЯзык озвучки: Русский, ИтальянскийСубтитры: ОтсутствуютПродолжительность: 02:03:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2B772860D93408D5155369925C5C7C48A46E3B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1828028   (193649) от 23.10.2025
 
 Достигая Луны / Reaching for the Moon (1917) DVDRip
@@ -6,7 +137,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193649.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193549.jpg" />
 </div>
 
 
@@ -59,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193481.jpg" />
 </div>
 
 
@@ -85,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193027.jpg" />
 </div>
 
 
@@ -111,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192970.jpg" />
 </div>
 
 
@@ -137,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192959.jpg" />
 </div>
 
 
@@ -163,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192719.jpg" />
 </div>
 
 
@@ -189,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192710.jpg" />
 </div>
 
 
@@ -215,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192480.jpg" />
 </div>
 
 
@@ -242,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192407.jpg" />
 </div>
 
 
@@ -268,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192402.jpg" />
 </div>
 
 
@@ -295,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192347.jpg" />
 </div>
 
 
@@ -321,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192221.jpg" />
 </div>
 
 
@@ -347,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192209.jpg" />
 </div>
 
 
@@ -373,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192169.jpg" />
 </div>
 
 
@@ -399,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192162.jpg" />
 </div>
 
 
@@ -425,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192136.jpg" />
 </div>
 
 
@@ -451,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192084.jpg" />
 </div>
 
 
@@ -477,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191985.jpg" />
 </div>
 
 
@@ -504,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191941.jpg" />
 </div>
 
 
@@ -530,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191887.jpg" />
 </div>
 
 
@@ -541,142 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85753763D466F0224E3F45790397C9EE66979E26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588252   (191859) от 03.11.2022
-
-Чарли Чейз. Женитьба по заказу / Married To Order (1920) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герой Чарли влюблен в Розу, но ее отец, считающий Чарли хлюпиком, категорически против их брака. Намереваясь сбежать с женихом, Роза надевает одежду своего брата-близнеца. Отец желает перехитрить влюбленных...Производство: США, Reelcraft Pictures / Royal ComediesЖанр: комедия, короткометражный, немое киноРежиссер: Чарли ЧейзАктеры: Чарли Чейз, Оливер Харди, Розмарин Теби, Лео Уайт, Бад РоссПеревод: Немой с интертитрамиСубтитры: Русские интертитрыПродолжительность: 00:16:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61DC2F0AA1EECC2E7B3A46346CBF86D554543688
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588247   (191857) от 03.11.2022
-
-Мак Суэйн. Крест на крест / Double Crossed (1914) WEBRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191857.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два господина не очень благонравного поведения соперничают друг с другом за благосклонность местной красотки (та еще королева!). Ну, а в любовной войне, как известно, правил нет. Вот они и подставляют друг друга и прессуют как только можно. А ведь они вроде как приятели, а тут врагами стали. Поэтому и название такое. Дело в том, что в их американском языке выражение (   Читать дальше...   )Производство: США, Keystone Film CompanyЖанр: комедия, короткометражный, немое киноРежиссер: Форд СтерлингАктеры: Форд Стерлинг, Emma Clifton, Мак Суэйн, Честер Конклин, Гарри МакКой, Фрэнк Кули, Хэнк Манн, Руб Миллер, Аль Ст. ДжонПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские встроенные отключаемыеПродолжительность: 00:14:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC04350C3A0128CAD5B6D3D2B37939A8F011FB49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658061   (191739) от 06.09.2023
-
-Приключения частного детектива / Adventures of a Private Eye (1977) DVDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191739.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой человек, выдавая себя за частного детектива, ищет сексуальных приключений.
-Второй фильм из своеобразной трилогии:
-Первый фильм Приключения водителя такси / Adventures of a Taxi Driver (1976)Производство: Великобритания / Salon ProductionsЖанр: комедия, криминалРежиссер: Стэнли А. ЛонгАктеры: Кристофер Нил, Сьюзи Кендалл, Гарри Х. Корбет, Диана Дорс, Фред Эмни, Лиз Фрайзер, Айрин Хэндл, Йен Лавендер, Джулиан Орхард, Джон ПертуиПеревод: Авторский, А.ДольскийЯзык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: 01:32:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2795B9AFF96454F552D04A65FF82C6F57936F6CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658055   (191720) от 06.09.2023
-
-Приключения водителя такси / Adventures of a Taxi Driver (1976) DVDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой человек, выдавая себя за таксиста, ищет сексуальных приключений и проворачивает рискованные дела с похитителями драгоценностей.
-Первый фильм из своеобразной трилогии
-Второй фильм Приключения частного детектива /Adventures of a Private Eye (1977)Производство: Великобритания / Salon ProductionsЖанр: комедия, криминалРежиссер: Стэнли А. ЛонгАктеры: Бэрри Эванс, Джуди Гисон, Эдриэнн Поста, Диана Дорс, Лиз Фрайзер, Джейн Хейден, Йен Лавендер, Стивен Льюис, Роберт Линдсей, Генри МакГиПеревод: Авторский (А.Гаврилов, А.Дольский)Язык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: 01:26:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52D5AAAE256D0C71A33D0C21E858EFD3791104E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658071   (191679) от 06.09.2023
-
-Приключения приятеля сантехника / Adventures of a Plumber's Mate (1978) DVDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191679.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой человек, выдавая себя за сантехника, ищет сексуальных приключений и проворачивает рискованные дела с похитителями драгоценностей.
-Третий фильм из своеобразной трилогии
-Первый фильм Приключения водителя такси / Adventures of a Taxi Driver (1976)Производство: Великобритания / Salon ProductionsЖанр: комедия, криминалРежиссер: Стэнли А. ЛонгАктеры: Кристофер Нил, Артур Муллар, Анна Куэйл, Стивен Льюис, Кристофер Биггинс, Элейн Пейдж, Нина Уэст, Уильям Раштон, Пруденс Драдж, Питер КлиолПеревод: Авторский (А.Гаврилов, А.Дольский)Язык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: 01:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3E2B6B65FCABDFC2E01AB3B3E45D5C6C4E30AF2
 ```
 
 https://mybot314.ru/tekegram_catalog/

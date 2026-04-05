@@ -6,7 +6,7 @@ VA - Smooth Jazz 2 (2003) Universal Classics & Jazz [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285864.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Karen Souza - Essentials II (2014) Japan [FLAC|Lossless|image + .cue] <Bossa Nov
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285852.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Nanette Natal - Is Love Enough? (2002) Benyo Music[FLAC|image+.cue]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285799.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Rob Schneiderman - Radio Waves (1991) Reservoir [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284797.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Alex Riel & Stefan Pasborg - Drumfaces (2013) Stunt Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284793.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Stephane Wrembel - The Django Experiment: Live In Rochester (2016) 2CD, Water Is
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284685.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Lonnie Liston Smith - Love Is The Answer (1980) 2017, Sony Music [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284670.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ The Ramsey Lewis Trio - More Sounds of Christmas (1964) 2019, Argo/Verve [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284594.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Ray Charles - Cocktail Hour 1940-e - 1950-e (2000) 2CD, Allegro [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284577.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ VA - Take Five: Great Jazz Instrumentals (2017) [FLAC|Lossless|tracks + .cue] <B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284576.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Lou Donaldson - Birdseed (1992) Milestone[FLAC|tracks+.cue]<Hard Bop, Soul Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284146.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Karen Souza - Velvet Vault (2017) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nova, Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283887.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VA - A Jazz Christmas (2015) 2CD [FLAC|track+.cue]<Jazz, Christmas>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283792.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Ulf Wakenius - Vagabond (2012) [FLAC|Lossless]<Jazz, World Fusion, Contemporary 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283158.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Cedar Walton - Among Friends (1982) 1990, Bellaphon[FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283123.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Art Farmer - Soul Eyes: Live At The Blue Note (1992) Enja[FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283121.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Toshiko Akiyoshi & Charlie Mariano - Toshiko Mariano Quartet Live at Birdland (1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283120.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Michel Sajrawy - Writings On The Wall (2009) [FLAC|Lossless|tracks + .cue] <Main
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283117.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Benny Goodman - Swing, Swing, Swing (1935-1938) 1992, RCA Camden[FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283114.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ VA - Timeless 15th Anniversary Sampler (1991) Timeless Records[FLAC|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283078.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ The Jive Aces - Spread A Little Happines (2015) [FLAC|Lossless|image + .cue] <Ne
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283068.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Bert Kaempfert & sein Orchester - Seine größten Erfolge (1993) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283063.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Willie Colon & Ruben Blades - Siembra (1978) 1991, Musicavision[FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283034.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Isao Suzuki Trio / Quartet - Blow Up (1973) 2013, Think! Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282956.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Victor Goines - Joe's Blues (1998) Rosemary Joseph Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282731.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Joey Calderazzo - To Know One (1991) Blue Note [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282730.jpg" />
 </div>
 
 

@@ -1,3 +1,55 @@
+###  Публикация: 950334   (369272) от 26.10.2015
+
+HD Tune Pro 5.60 RePack (& portable) by KpoJIuK (25.10.2015) [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369272.jpg" />
+</div>
+
+
+###  Подробнее
+
+HD Tune Pro - программа для планомерного детального тестирования текущей работоспособности и производительности жестких дисков / SSD с различными интерфейсами (SCSI, SATA или IDE), а так же карт памяти и flash-дисков. Программа производит замер и наглядно отображает такие параметры накопителей, как скорость передачи данных, время чтения, записи и время доступа, уровень (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DD3573F94E404DDF3604F566412A0F7797D4129
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176667   (368969) от 22.10.2017
+
+Acronis BootCD 7PE x86/x64 by naifle (22.10.2017) [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Acronis BootCD WinPE - загрузочный диск, содержащий пакет последних версий двух наиболее популярных русскоязычных программ компании Acronis - Acronis True Image и Acronis Disk Director, предназначенных для резервного копирования, создания точных образов жесткого диска и его отдельных областей. В числе функций диска восстановления системы, управление разделами: создание, (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8EFA4C8EF399A48E1E58680FD1AC5C07493D9B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028835   (368962) от 22.10.2017
 
 Grim Dawn (2016) [Ru/En] (1.0.2.1/dlc) Repack xatab
@@ -6,7 +58,7 @@ Grim Dawn (2016) [Ru/En] (1.0.2.1/dlc) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368962.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ foobar2000 1.3.13 Stable Portable by LUR (06.11.16) [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368235.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_368134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_368134.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368127.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Adobe Premiere Pro CC 2017 (11.0.0) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368103.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368100.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367966.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367616.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367526.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367377.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ Acronis BootCD Collection 2012 Grub4Dos Edition 10 in 1 v5 (11.2012) [Русск
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_367362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_367362.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ Panzer Corps Afrika Korps [En] (L) 2012 l FLT
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367355.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_367193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_367193.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ Commandos Anthology (1998-2006) [Ru/En] (1.0/1.1/1.20/1.42/1.1) Repack/Rip R.G. 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367117.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367115.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_366527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_366527.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365785.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_365776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_365776.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ MAGIX Video Pro X8 15.0.3.107 (x64) + Content [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365736.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_365422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_365422.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ Respawn возрождает Medal of Honor — это полноценный ш
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_365363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_365363.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ Cooking Simulator (2019) [Ru/Multi] (1.8.0.4) License PLAZA
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365083.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ GRAPHISOFT ARCHICAD 23 (Build 3003) [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365076.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ Call of Duty: Black Ops 2 (Русификатор) [Ru] 2012 l Новый Дис
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364840.jpg" />
 </div>
 
 
@@ -622,58 +674,6 @@ Call of Duty: Black Ops 2 (Русификатор) [Ru] 2012 l Новый Дис
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC129ABFFE2737A1F08EFCAD6AD875BB52ECA59F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951080   (364713) от 28.10.2015
-
-Фантастическая четверка / Fantastic Four (2015) BDRip [H.264/1080p] [Line]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364713.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о четырех молодых астронавтах, которые отважились на авантюрное путешествие в параллельное измерение для исследования аномальной волны космической энергии. Вернувшись из путешествия, они обнаружили у себя суперспособности, которые навсегда изменили их жизни...Производство: США, 20th Century Fox Film Corporation, Marvel EntertainmentЖанр: Фантастика, Боевик, ПриключенияРежиссер: Джошуа ТранкАктеры: Майлз Теллер, Майкл Б. Джордан, Кейт Мара, Джейми Белл, Тоби Кеббелл, Рег Э. Кэти, Тим Блейк Нельсон, Джошуа Монтес, Дэн Кастелланета, Оуэн ДжаджПеревод: Дублированный (Чистый звук)Субтитры: Вшитые отключаемыеЯзык субтитров: АнглийскийПродолжительность: 01:39:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EDB4EFABE766DEF0B26BD01DC2B69F5AC7A323F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994992   (364677) от 24.10.2017
-
-XCOM 2 (2016) [Ru/Multi] (29.08.2017/dlc) License CODEX [Digital Deluxe Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364677.jpg" />
-</div>
-
-
-###  Подробнее
-
-XCOM 2 – это продолжение полюбившейся игрокам и критикам стратегии XCOM: Enemy Unknown, получившей в 2012 году титул «Игра года». Земля изменилась. Двадцать лет прошло, с тех пор как мировые лидеры подписали акт о безоговорочной капитуляции перед пришельцами. Организация XCOM, последний рубеж обороны Земли, уничтожена, а её остатки рассеяны по миру.Тип издания: LicenseРазработчик: Firaxis Games, Feral InteractiveЖанр: Strategy (Real-time, Turn-based, Tactical), 3DЯзык озвучки: Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F33CD503B0AAD120B9BD0E027C93AA762022B473
 ```
 
 https://mybot314.ru/tekegram_catalog/

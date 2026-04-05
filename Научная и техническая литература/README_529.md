@@ -1,133 +1,3 @@
-###  Публикация: 1624385   (200327) от 05.04.2023
-
-С.В. Громов | Энциклопедия элементарной физики (1995) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200327.jpg" />
-</div>
-
-
-###  Подробнее
-
-В энциклопедии приведены современные определения основных физических понятий и величин, используемых в элементарном курсе физики, сформулированы физические законы и разъяснена сущность описываемых ими явлений. Содержит свыше 700 терминов, расположенных в алфавитном порядке. В отличие от других энциклопедических словарей, многие формулы и законы приведены вместе с (   Читать дальше...   )Жанр: Справочная литература по физикеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD4D337824B95C7307601B3F105F7B034D54D32E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587535   (200315) от 04.04.2023
-
-К.К. Пономарёв | Составление дифференциальных уравнений (1973) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200315.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие для физико-математических факультетов педагогических институтов. Является руководством по составлению и решению дифференциальных уравнений. Цель автора — создание учебного пособия, которое широко охватило бы различные задачи естествознания и техники и способствовало овладению современной методикой составления дифференциальных уравнений прикладных (   Читать дальше...   )Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D572B83A80E1D7E132BC3CA5BD8F146EB8E9EF45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624530   (200310) от 06.04.2023
-
-Л.А. Кузнецов | Сборник заданий по высшей математике. Типовые расчеты (2023) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Важным фактором усвоения математики и овладения ее методами является самостоятельная работа учащегося. Система типовых расчетов (ТР), как показал опыт ряда вузов нашей страны, активизирует самостоятельную работу студентов и способствует более глубокому изучению курса высшей математики. Применение системы ТР рекомендовано программой по высшей математике для втузов. (   Читать дальше...   )Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12BFE27A7D67769E4152972CB1EDA65BDC71D0DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623667   (200306) от 04.04.2023
-
-Руководства пользователя и инструкции к частотным преобразователям [122 книги] (2005-2017) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200306.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данном сборнике вы найдете исчерпывающую информацию по частотным преобразователям от компаний: Danfoss, ABB, Santerno, Vacon, Schneider electric, Siemens, Triol, Mitsubishi, Веспер, ESQ, Delta electronics, Hyundai, Sew eurodrive, Omron, Invertek drives, Lenze, KEB, NORD, Hitachi, WEG, INVT, Fuji, Frecon, Instart и многих других, также мы предоставляем вам литературу, (   Читать дальше...   )Жанр: Техническая литература, пособия, инструкцииФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8FAFA3D921C3020F3B6A23C026AB78BE351F8D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624538   (200301) от 06.04.2023
-
-Т.И. Немцова и др. | Программирование на языке высокого уровня. Программирование на языке Object Pascal (2023) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие "Программирование на языке высокого уровня" представляет собой курс по изучению языка Object Pascal. Пособие предназначено для широкого круга читателей. как для начинающих программистов, так и для тех, кто уже знаком с основами программирования и в будущем собирается стать профессиональным программистом. Пособие состоит из двух частей. Часть (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8F551B55174431BBFC2C548685C00C55414A439
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1624593   (200293) от 06.04.2023
 
 Т.И. Немцова и др. | Программирование на языке высокого уровня. Программирование на языке С++ (2023) [PDF]
@@ -136,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200293.jpg" />
 </div>
 
 
@@ -162,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200185.jpg" />
 </div>
 
 
@@ -188,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200151.jpg" />
 </div>
 
 
@@ -214,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200132.jpg" />
 </div>
 
 
@@ -241,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200095.jpg" />
 </div>
 
 
@@ -268,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200083.jpg" />
 </div>
 
 
@@ -297,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200030.jpg" />
 </div>
 
 
@@ -323,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200027.jpg" />
 </div>
 
 
@@ -351,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_200015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_200015.jpg" />
 </div>
 
 
@@ -378,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199926.jpg" />
 </div>
 
 
@@ -404,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_199879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_199879.jpg" />
 </div>
 
 
@@ -431,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199848.jpg" />
 </div>
 
 
@@ -458,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199818.jpg" />
 </div>
 
 
@@ -484,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199708.jpg" />
 </div>
 
 
@@ -513,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199672.jpg" />
 </div>
 
 
@@ -539,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199615.jpg" />
 </div>
 
 
@@ -565,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199610.jpg" />
 </div>
 
 
@@ -591,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199575.jpg" />
 </div>
 
 
@@ -617,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199563.jpg" />
 </div>
 
 
@@ -643,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199558.jpg" />
 </div>
 
 
@@ -669,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199538.jpg" />
 </div>
 
 
@@ -680,6 +550,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:264A10721AB14E4762A296CA3373E862F0B8F4B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628532   (199468) от 23.04.2023
+
+Джон Рёскин | Семь светочей архитектуры. Камни Венеции. Лекции об искусстве. Прогулки по Флоренции (2022) [FB2]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199468.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джон Рёскин (1819-1900) – знаменитый английский историк и теоретик искусства, оригинальный и подчас парадоксальный мыслитель, рассуждения которого порой завораживают точностью прозрений. Искусствознание в его интерпретации меньше всего напоминает академический курс, но именно он был первым профессором изящных искусств Оксфордского университета, своими «исполненными (   Читать дальше...   )Жанр: Зарубежная литература о культуре и искусстве, Зарубежная образовательная литература, Искусствоведение, Научно-популярная литератураПеревод: Лариса Житкова, Аделаида Герцык и др.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AF21B1A5B01A6486F434ED4A08F3267142E02DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 247555   (199445) от 21.04.2023
+
+М.В. Коломиец | Фердинанд. Бронированный слон профессора Порше  (2007) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199445.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге на основе как немецких, так и советских документов рассказывается об истории создания, производстве и боевом применении «Фердинанда» – легендарной противотанковой самоходки вермахта. Впервые применённые в боях на Курской дуге летом 1943 года, они использовались вплоть до конца войны, несмотря на небольшое количество изготовленных машин. Эта САУ оставила свой (   Читать дальше...   )Жанр: ВоеннаяЯзык: РусскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CAE4A45D258E877B377BC4B98A06CB15AC22C42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628522   (199442) от 23.04.2023
+
+Эдвард Гиббон | Закат и падение Римской империи (2022) [FB2]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199442.jpg" />
+</div>
+
+
+###  Подробнее
+
+«История, в сущности, немногим отличается от списка преступлений, безрассудств и бедствий человеческого рода», — констатирует британский историк Эдуард Гиббон (1737–1794) в главном труде своей жизни — масштабном сочинении об упадке и разрушении великой Римской империи. В этой новаторской и вместе с тем провокационной для своего времени книге автор прослеживает процессы, (   Читать дальше...   )Жанр: ИсторияПеревод: Василий НеведомскийФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D42A8282088719AFB5FF88BEE58E4F055A3A6EA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628536   (199440) от 23.04.2023
+
+К.В. Балдин (ред.) | Краткий курс высшей математики (2020) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящий учебник содержит систематизированное изложение основ математики и написан на базе лекционных курсов, которые авторы преподавали в ряде вузов столицы.
+Для студентов бакалавриата экономических вузов.Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E8813DF0E64683C983F106C85379774C0393E69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628296   (199430) от 22.04.2023
+
+Геннадий Иванов | Техники гипноза. Обратная сторона сознания (2022) [FB2]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199430.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данном издании каждый вдумчивый читатель найдет ответы на большинство волнующих вопросов о способах введения в гипноз, действиях гипнотизера и реакциях организма до, после и во время сеанса. И чем глубже человек начнет понимать феномены гипноза и внушения, тем меньше останется места для страхов, мистики и сомнений. Зачем бояться того, что можно с пользой применять?! (   Читать дальше...   )Жанр: Научно-популярная литература, Состояния и явления психикиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B446A21346E99D7233F588440383B58A190374CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 226668   (554959) от 09.06.2019
+
+Теперь ты на флоте / You're in the Navy Now (1951) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается во время Второй Мировой войны. Глава экспериментального отдела военно-морского флота США ищет капитана на судно с новым, самым секретным, паровым двигателем. Отдел кадров предлагает назначенца по имени Джон Харкнесс. Командующий даже не подозревает, что этот парень совсем ничего не смыслит в военном деле: он только что прошел курс скоростного (   Читать дальше...   )Производство: США, Twentieth Century FoxЖанр: Комедия, ВоенныйРежиссер: Генри ХэтэуэйАктеры: Гэри Купер, Джейн Грир, Миллард Митчел, Эдди Альберт, Джон МакИнтайр, Рэй Коллинз, Джек Уэбб, Ричард Эрдман, Харви Лембек, Чарльз БронсонПеревод: Профессиональный многоголосый (Светла)Субтитры: ОтсутствуютПродолжительность: 01:32:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:614C5FA70CE489967FEE2D5B2CC00702EC8EC581
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266060   (551958) от 18.06.2019
+
+Это великое чувство / It's a Great Feeling (1949) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кинопродюссер Артур Трент, в затруднительном положении. В пятницу должны начаться съемки фильма «Мадемуазель Фифи», с участием актеров Дэнниса Моргана и Джека Карсона. Но никто из голливудских режиссеров, не желает работать с Карсоном. Тренту не остается ничего другого, как предложить Карсону самому снять фильм. Но это еще не все. Нужна исполнительница главной женской (   Читать дальше...   )Производство: США / Warner Bros. PicturesЖанр: Мюзикл, КомедияРежиссер: Дэвид БатлерАктеры: Дэннис Морган, Дорис Дэй, Джек Карсон, Билл Гудвин, Ирвинг Бэйкон, Клер Карлтон, Джин Андрен, Луис Остин, Ширли БаллардПеревод: Одноголосый закадровый (renege79)Субтитры: Русские, английскиеПродолжительность: 01:25:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CED0E2661A07689F8E4F4975A51D295B20508236
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1308631   (550923) от 19.06.2019
 
 Человек из Ларами / The Man from Laramie (1955) BDRip [H.264]
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550923.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550165.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549934.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549279.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549093.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548118.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547956.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547597.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547147.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546718.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546385.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545637.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545553.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545071.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545034.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544646.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544613.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542023.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541858.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541537.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540965.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540879.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540501.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540225.jpg" />
 </div>
 
 
@@ -623,59 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E47BE12C1947F97B8DFB31E475F1E525118F8EB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557678   (539072) от 16.06.2022
-
-Каждый за себя, а Бог против всех / Jeder fur sich und Gott gegen alle (1974) BDRip [H.264] [DVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм по роману Я.Вассермана «Каспар Хаузер, или Леность сердца» о судьбе известного в XIX веке найдёныша Каспара Хаузера. До 1828 года в городе N Каспар Хаузер, двадцати лет, жил в пещере, прикованный к полу цепями. Со времени своего рождения он ни с кем не общался, не умел ни говорить, ни читать, ни писать, а видел только одного человека, который время от времени (   Читать дальше...   )Производство: Германия (ФРГ), Filmverlag der Autoren, Werner Herzog Filmproduktion, Zweites Deutsches Fernsehen (ZDF)Жанр: драма, биография, историяРежиссер: Вернер ХерцогАктеры: Бруно Шлейнштайн, Вальтер Ладенгаст, Бригитте Мира, Вилли Земмельрогге, Михаэль Крёхер, Ганс Музэус, Маркус Уэллер, Глория Доэр, Фолькер Прехтель, Херберт АхтернбушПеревод: любительский двухголосый, любительский одноголосыйСубтитры: русские (hrlch), английскиеПродолжительность: 01:49:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3885B966BE9DEEAC76981F24DB9CD637706728A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557639   (539067) от 16.06.2022
-
-Вива Мария! / Viva Maria! (1965) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539067.jpg" />
-</div>
-
-
-###  Подробнее
-
-У малышки Марии было особое «счастливое детство». Вместе с папочкой-террористом она по всему миру - в Ирландии, в Англии, Гибралтаре, в Центральной Америке - устраивала взрывы английских крепостей, полицейских участков и мостов. Несколько поколений ирландских предков Марии сражались с англичанами, девочка бесстрашно продолжала семейную традицию.
-Однако во время проведения (   Читать дальше...   )Производство: Франция, Италия / Les Productions Artistes Associés. Nouvelles Éditions de Films, Vides CinematograficaЖанр: Мелодрама, Комедия, Приключения, ВестернРежиссер: Луи МальАктеры: Брижит Бардо, Жанна Моро, Джордж Хэмилтон, Полетт Дюбо, Грегор фон Реццори, Польдо Бенданди. Клаудио Брук, Карлос Лопес Моктесума, Джонатан Иден, Франсиско РейгероПеревод: Многоголосый профессиональный, двуголосый профессиональныйСубтитры: Русские, французскиеПродолжительность: 01:56:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BAD582BE539D6363805C4F08010FDECD06FAAEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

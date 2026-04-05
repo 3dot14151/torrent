@@ -6,7 +6,7 @@ Frank Sinatra - Sinatra Session (1999) 2CD, Castle Pie [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105387.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Bill Barron - Quintet & Sextet (1961 - 1962) 2CD, 2012, Fresh Sound [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105365.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Claus Ogerman - Featuring Michael Brecker (1991) GRP [APE|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105319.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Charlie Mariano - Boston All Stars (1951 - 1953) 1990, Original Jazz Classics [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105311.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Madeleine Peyroux - Let's Walk (2024) [FLAC|Lossless|image + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105157.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Chet Baker - Chet's Choice (1985) Criss Cross [APE|Lossless|image + .cue] <Cool>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105030.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Joe Pass - Whitestone (1985) 1987, Pablo [APE|Lossless|image + .cue] <Jazz Fusio
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105011.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Conte Candoli - Powerhouse Trumpet (1955) 1999, Bethlehem [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104973.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Kenny Drew & Hank Jones Great Jazz Trio - New York Stories (1990) Alfa Jazz [Wav
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104970.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ V.A. - Italian Jazz Lounge (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Pop Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104964.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Stan Getz - Scandinavian Days (1959) 1991, Fresh Sound [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104929.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Conte Candoli & Lee Morgan - Double or Nothin' (1957) 1992, Fresh Sound [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104892.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Loose Ends - Look How Long (1990) [FLAC|Lossless|tracks + .cue] <Contemporary R&
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104802.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Stan Getz - In Stockholm (1955) 2008, Verve [FLAC|Lossless|tracks + .cue] <Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104800.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Stan Getz - Blue Skies (1982) 1995, Concord Jazz [FLAC|Lossless|image + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104797.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Stan Getz - The Lyrical Stan Getz (1988) CBS [FLAC|Lossless|image + .cue] <Cool,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104751.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Al Cohn & Zoot Sims - Body And Soul (1973) 1997, 32 Jazz [WavPack|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104737.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Frank Wess - Wess Point (1954) 2007, Fresh Sound [FLAC|Lossless|image + .cue] <B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104701.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Bob Brookmeyer & Bill Evans - The Ivory Hunters (1959) 2003, Toshiba-EMI [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104617.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Richard Elliot - Straight Up Down (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104605.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Acid Jazz Instrumentals Vol. 2 (Jazz Funk Breaks Instrumental Tunes) (2024)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104602.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Peaceful Supreme Chill Lounge Happiness Playlist on Vacation (2024) [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104600.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Scott Hamilton - Jazz Signatures (2001) Concord [FLAC|Lossless|image + .cue] <Ma
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104590.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Enriching Peaceful Supreme Happiness Smooth Experience Playlist During Vaca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104588.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Lowell Hopper - Impulse (2024) [FLAC|Lossless|WEB-DL|tracks] <Smoonth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104587.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - Magical Breathtaking Relaxing Tunes for Calmness and Quiet Beauty of a Vaca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104586.jpg" />
 </div>
 
 

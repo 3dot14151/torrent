@@ -1,29 +1,3 @@
-###  Публикация: 1236539   (554183) от 18.07.2018
-
-MorphOS 3.11 [PowerPC] 1xCD
-
->>Linux, Unix и другие ОС
->>Другие ОС
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554183.jpg" />
-</div>
-
-
-###  Подробнее
-
-MorphOS — проприетарная многозадачная операционная система (ОС), предназначенная для линейки процессоров PowerPC. Основой MorphOS является микроядро Quark (англ.). Происхождение операционной системы уходит корнями в 1995 год, когда компания Phase5 озвучила собственный план обновления парка ПК Amiga, путём миграции на архитектуру PowerPC (решение, аналогичное принятому (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FE95160DB83A7D9C9535FE8C87316E7B32853B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1236787   (553802) от 20.07.2018
 
 Debian Live GNU/Linux 9.5.0 + nonfree Stretch [amd64] 12xDVD
@@ -32,7 +6,7 @@ Debian Live GNU/Linux 9.5.0 + nonfree Stretch [amd64] 12xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553802.jpg" />
 </div>
 
 
@@ -60,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552036.jpg" />
 </div>
 
 
@@ -86,7 +60,7 @@ Wing IDE Pro 7.0.3.0 [x64] (deb,rpm,tar.bz2)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549268.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ Manjaro Linux 0.8.7 (Arch + XFCE, openbox, net: легкий дистрибут�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549072.jpg" />
 </div>
 
 
@@ -140,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548001.jpg" />
 </div>
 
 
@@ -166,7 +140,7 @@ BlackArch Linux 2016.08.31 [Хакинг, аудит, безопасность] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547153.jpg" />
 </div>
 
 
@@ -192,7 +166,7 @@ Lubuntu 14.10 Beta I (легкий дистрибутив) [i386, amd64] 2xCD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546690.jpg" />
 </div>
 
 
@@ -220,7 +194,7 @@ Kubuntu 14.10 Utopic Unicorn Beta I [i386, amd64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546621.jpg" />
 </div>
 
 
@@ -246,7 +220,7 @@ Slackel Fluxbox 1.0 Live (Легкий дистрибутив) [x86, x86-64] 2xC
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545952.jpg" />
 </div>
 
 
@@ -274,7 +248,7 @@ Ubuntu Gnome 14.10 Utopic Unicorn Beta I [i386, amd64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545823.jpg" />
 </div>
 
 
@@ -302,7 +276,7 @@ Mageia 5 Alpha II [i586, x86-64] 7xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545813.jpg" />
 </div>
 
 
@@ -334,7 +308,7 @@ CentOS 7.5 (1804) [i386] 2xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545307.jpg" />
 </div>
 
 
@@ -362,7 +336,7 @@ ArchLabs Linux 2018.07.28 [x86-64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544353.jpg" />
 </div>
 
 
@@ -388,7 +362,7 @@ Tanglu 3.0 Chromodoris willani Live [Plasma KDE 5] [amd64] 2xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543000.jpg" />
 </div>
 
 
@@ -416,7 +390,7 @@ Tanglu 3.0 Chromodoris willani Live [Plasma KDE 5] [i686] 2xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542998.jpg" />
 </div>
 
 
@@ -444,7 +418,7 @@ Korora Linux (ex. Kororaa, Linux для начинающих) 22 Live [i386] 5xD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540686.jpg" />
 </div>
 
 
@@ -470,7 +444,7 @@ Korora Linux (ex. Kororaa, Linux для начинающих) 22 Live [x86-64] 5
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540682.jpg" />
 </div>
 
 
@@ -496,7 +470,7 @@ Abbyy FineReader 8.0 Professional 8.0.0.706 Repack The Hacker [x86-x64] (cxarchi
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540258.jpg" />
 </div>
 
 
@@ -522,7 +496,7 @@ Kubuntu 14.04.3 LTS [i386, amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538635.jpg" />
 </div>
 
 
@@ -548,7 +522,7 @@ Xubuntu 14.04.3 LTS (Легкий дистрибутив) [i386, amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538633.jpg" />
 </div>
 
 
@@ -574,7 +548,7 @@ Lubuntu 14.04.3 Trusty Tahr (Легкий дистрибутив) [i386, amd64] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538629.jpg" />
 </div>
 
 
@@ -600,7 +574,7 @@ KaOS Linux 2015.07 (Arch + Plasma KDE 5) [x86-64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537031.jpg" />
 </div>
 
 
@@ -628,7 +602,7 @@ CentOS 6.7 [i386] 2xDVD, 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537024.jpg" />
 </div>
 
 
@@ -654,7 +628,7 @@ CentOS 6.7 [x86-64] 2xDVD, 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536928.jpg" />
 </div>
 
 
@@ -680,7 +654,7 @@ Mageia 7  [i586] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536306.jpg" />
 </div>
 
 
@@ -691,6 +665,34 @@ Mageia 7  [i586] 2xDVD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:621C391A63F49C4DBED9658E56BF7A1D82EFAD2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926275   (535030) от 09.08.2015
+
+Debian GNU/Linux 9.0 Stretch (Testing, 03.08.2015) [i386] 3xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС *Nix (Alpha, Beta, RC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот выпуск начат как копия Jessie, и сейчас он находится в стадии "тестирования". Это означает, что сейчас ничего не должно сломаться как это бывает в нестабильном или экспериментальном дистрибутиве, так как пакеты попадают в дистрибутив только после определённого периода, и если они не содержат критических для всего выпуска ошибок.
+
+Заметим, что обновления (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5631147C5064EFB0268BA2AD6BDCFD8EA98A3714
 ```
 
 https://mybot314.ru/tekegram_catalog/

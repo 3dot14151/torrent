@@ -1,3 +1,32 @@
+###  Публикация: 1625449   (237938) от 09.04.2023
+
+Stan Bush & Barrage - Stan Bush & Barrage (1987) [FLAC|Lossless|image + .cue] <AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Temptation
+02. Love Don't Lie
+03. Primitive Lover
+04. Heart Vs. Head(   Читать дальше...   )Жанр: AORПродолжительность: 00:43:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AA65A8066CBE7F21519DDB43F5BB41030117952
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1638443   (237936) от 08.06.2023
 
 Wytch Hazel - IV: Sacrament (2023) [FLAC|Lossless|WEB-DL|tracks] <70's Hard, Heavy Metal>
@@ -6,7 +35,7 @@ Wytch Hazel - IV: Sacrament (2023) [FLAC|Lossless|WEB-DL|tracks] <70's Hard, Hea
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237936.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Jay Gruska - Which One of Us Is Me (1984) [MP3|320 Kbps] <AOR>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237931.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Prydain - The Gates of Aramore (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237929.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Unswabbed - 6 (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Nu Metal>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237924.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ The Dust - Underdogs (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Blues, Stoner>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237912.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Eloy - The Best Of Eloy, Vol. 1-2 (1994-1996) 2CD, Compilations [FLAC|Lossless|W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237907.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Random Earth Project - Airwaves (2023) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237901.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Inherus - Beholden (2023) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237900.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Royal Bliss - Survival (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, M
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237895.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Battlefield - We'll Rock Again (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237892.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ The Golden Grass - Life Is Much Stranger (2023) [FLAC|Lossless|WEB-DL|tracks] <V
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237888.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - Especial Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237887.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237886.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Ben Harper - Wide Open Light (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alter
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237865.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Submarine Silence - Did Swans Ever See God? (2020) [FLAC|Lossless|image + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237836.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Winterwar - Wizard of the North (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237826.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Wirethrone - Wirethrone (2018) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237822.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Disharmony - Gods Made of Flesh (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237816.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Joel Hoekstra's 13 - Running Games (2021) [FLAC|Lossless|image + .cue] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237808.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237807.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Planet On A Chain - 2 Albums (2022-2023) [MP3|320 Kbps] <Alternative, Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237804.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Vlatko Stefanovski - Cowboys & Indians (1994) [FLAC|Lossless|tracks + .cue] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237795.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Elvenking - Reader of the Runes - Rapture (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237792.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Lattermath - Lattermath (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237789.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Necrodeath - Singin' in the Pain (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237782.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Necrodeath - Singin' in the Pain (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, De
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A6B2D0FD5FE9311C85F03D3E7CC34ADD3634252
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638710   (237771) от 09.06.2023
-
-The Snuts - Burn The Empire (2023) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Alternative, Indie>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burn The Empire (3:08)
-02. Zuckerpunch (2:30)
-03. The Rodeo (3:04)
-04. 13 (3:10)(   Читать дальше...   )Жанр: Alternative, IndieПродолжительность: 00:32:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1D8A56B940B5F44F6D523D90FFF57A7C6F85303
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1751846   (42205) от 27.09.2024
-
-Karaone - Dragon (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dragon [00:03:12]
-02. Owl on the Hunt [00:03:42]
-03. My Dream [00:04:01]
-04. Morning at Dawn [00:06:53](   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:33:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:303751AEE99B630A2DAF041C6AC7CC2DA3A81A47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751835   (42190) от 27.09.2024
 
 Toni Braxton - Secrets (1997) Unofficial Release [FLAC 2.0|64/24|image +.cue|MC-Rip] <Pop Rock>
@@ -35,7 +6,7 @@ Toni Braxton - Secrets (1997) Unofficial Release [FLAC 2.0|64/24|image +.cue|MC-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42190.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42189.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Disturbed - Studio Albums (8 releases) (2000-2022) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42076.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Mylene Farmer - Nevermore (Live) (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41927.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Xiaoloulou - Brave Enough to Love Again (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41910.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ The Pszenny Project - Smokey Bourbon (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41892.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Tracy Stafford Platinum VIBES - NAWLIN'S BLUE VIBES (2024) [FLAC 24/48|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41891.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Tommy J Stewart - Turning up the Heat (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41890.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Tad Morose - Studio Albums (11 releases) (1993-2022) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41886.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Munarheim - Heimkehr (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Fol
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41885.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Urban Rivers - Rockin' The Blues Train (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41884.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Will Gunnell - I Dooz the Blooz (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41881.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Kiko & the Blues Refugees - Ghosts (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41877.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Serj Tankian - Foundations (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt.Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41873.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41834.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Alphaville - Forever! Best Of 40 Years (2024) [FLAC 16,24/44.1,96|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41788.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Helloween - Better Than Raw (1998) Remastered, 2024, Sanctuary Records [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41787.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Bryan Ferry (Roxy Music) - Retrospective (2024) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41687.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Darnell "Showcase" Taylor - Worth the Wait (2024) [FLAC 24/96|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41677.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Marigold Bachman Blackout - Phoenix Rise (2024) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41673.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Cigar Box Band - Time To Go (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41663.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ Pavlov's Dog - Essential Recordings 1974-2018 Pavlov's Dog (1974-2018) Remastere
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41662.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Cyber Beats Nexus - ROCK 1.0 (1.0) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41578.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ Jan Preston - Pianoland (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41573.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ Autumn Bride - Bedtime Stories (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Gothi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41570.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ Autumn Bride - Bedtime Stories (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Gothi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B48B534E6E457602744C4D13972CBFB1315B115
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753535   (41371) от 05.10.2024
+
+Coldplay - Moon Music (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - MOON MUSiC [4:37]
+02 - feelslikeimfallinginlove [3:57]
+03 - WE PRAY [3:54]
+04 - JUPiTER [4:01](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B93F7798D2C3D1702F13DFDE49664E12C5221A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

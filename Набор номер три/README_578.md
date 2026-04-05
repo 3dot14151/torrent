@@ -1,3 +1,215 @@
+###  Публикация: 1657132   (192462) от 03.09.2023
+
+FIFA 23 (2022) [Ru/Multi] (1.0.82.43747/dlc) Repack DjDI [Ultimate Edition]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192462.jpg" />
+</div>
+
+
+###  Подробнее
+
+В EA SPORTS FIFA 23 всемирная игра становится еще лучше: технология HyperMotion2 обеспечивает еще большую реалистичность игрового процесса, после выхода в игре в виде обновлений будут представлены как мужской, так и женский FIFA World Cup, добавлены женские команды, кроссплатформенная игра и многое другое. Оцените непревзойденную реалистичность - в FIFA 23 19 000+ (   Читать дальше...   )Тип издания: RepackРазработчик: EA Canada & EA RomaniaЖанр: Спорт, СимуляторЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FC5D7DE54213DCC92D8CE2B2E4BBDCF7A2D2711
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587492   (192438) от 31.10.2022
+
+HTC Home 2.4.223.1 RePack by BELOFF [Ru/En]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192438.jpg" />
+</div>
+
+
+###  Подробнее
+
+НТС Home - очень красивый виджет на рабочий стол ПК. Показывает в анимированном виде текущее время и погоду для вашего города, кроме того выводится текущий день недели, месяц и дата. Программу можно расположить в любом месте рабочего стола и при необходимости закрепить.
+В настройках виджета можно  настроить необходимые элементы и параметры: изменение размера, вкл./выкл. (   Читать дальше...   )Язык интерфейса: Русский, Английский.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC1794E2BB25E92A66B40C7F4F982F92C09BC01C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587116   (192426) от 31.10.2022
+
+Windows 10 Enterprise LTSB (x64) Elgujakviso Edition (v.28.10.22) [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана на основе оригинального образа от MSDN:
+ru_windows_10_enterprise_2016_ltsb_x64_dvd_9057886.iso
+
+   Интегрированы важные и рекомендуемые обновления по Октябрь 2022 года.(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97770C31C2FF8635C01D407E08880FB153BDECDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216425   (192422) от 31.10.2022
+
+Холодное лето пятьдесят третьего... (1987) WEB-DL [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двое бывших политзаключённых, недавно вышедших из лагеря, вступают в схватку с бандой амнистированных уголовников. Победу приходится оплатить дорогой ценой...Производство: СССРЖанр: драма, криминал, боевик, триллерРежиссер: Александр ПрошкинАктеры: Валерий Приёмыхов, Анатолий Папанов, Виктор Степанов, Нина Усатова, Зоя Буряк, Юрий Кузнецов, Владимир Кашпур, Сергей Власов, Борис Плотников, Виктор КосыхСубтитры: ОтсутствуютПродолжительность: 01:36:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F66A4DD5C71F0B1450C60282D888E02F824DA06D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471984   (192419) от 31.10.2022
+
+Saints Row: The Third Remastered (2021) [Ru/Multi] (1.0.6.1/dlc) License GOG
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192419.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Full Package Remastered — благодаря улучшенной графике, переработанному освещению, дополненным картам и новым спецэффектам Стилпорт и Святые с Третьей улицы смотрятся еще более впечатляюще, чем раньше.Тип издания: LicenseРазработчик: Deep Silver Volition, SperasoftЖанр: Экшн, От третьего лица, СовременностьЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D7F0CD4B6878A60FBA71D666DBFAC13B6743E6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526787   (192417) от 31.10.2022
+
+Serious Sam: Siberian Mayhem (2022) [Ru/Multi] (1.05b) License GOG
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192417.jpg" />
+</div>
+
+
+###  Подробнее
+
+С возвращением в мир «Serious Sam 4». Siberian Mayhem - это новая отдельная глава приключений «Крутого» Сэма Стоуна. Исследуйте просторы России в попытке настичь предателя генерала Брэнда, который всегда на шаг впереди Сэма. Путь будет долгим и ой каким занимательным. Дополнение Serious Sam: Siberian Mayhem разработано Timelock Studio совместно с Croteam и представляет (   Читать дальше...   )Тип издания: LicenseРазработчик: Croteam, Timelock StudioЖанр: Шутеры, Приключение, Shoot 'em UpЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B2EFC3686987474F4004A08150DA3AE8ACF9DEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656545   (192327) от 04.09.2023
+
+Intel грозит судебный иск из-за уязвимости Downfall — патч чрезмерно уронил производительность
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192327.jpg" />
+</div>
+
+
+###  Подробнее
+
+После раскрытия информации об уязвимости Downfall компания Intel может столкнуться с коллективным иском, сообщает ресурс Tom’s Hardware со ссылкой на данные агрегатора коллективных исков. Это неудивительно, поскольку проблема коснулась миллиардов процессоров, а патч в отдельных рабочих нагрузках может снижать их производительность на 39 %.Коллективный иск инициирован (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657543   (192314) от 04.09.2023
+
+Windows 11 Pro 22H2 22621.2134 x64 by SanLex [Lightweight] [Ru/En] (2023.09.03)
+
+>>3
+>>9
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на официальном оригинальном образе Windows_11_Pro_edition_22h2_x64 для оптимального и комфортного пользования. Цель данной сборки лёгкость в использовании для повседневного домашнего пользования, бизнес сферы и гейминга. Удалены, отключены или заблокированы нежелательные приложения / службы / процессы сбора телеметрических данных, рекламные модули, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFB109039F4BB56DDD3DD0146A77D92048C23B22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1586783   (192177) от 01.11.2022
 
 Zorin OS 16.2 Pro/Pro Lite [64-bit] 2xDVD
@@ -6,7 +218,7 @@ Zorin OS 16.2 Pro/Pro Lite [64-bit] 2xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192177.jpg" />
 </div>
 
 
@@ -34,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192171.jpg" />
 </div>
 
 
@@ -60,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_192023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_192023.jpg" />
 </div>
 
 
@@ -86,7 +298,7 @@ Windows 10 Pro 22H2 Build 19045.3324 x64 ReviOS (23.08.2023) [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191959.jpg" />
 </div>
 
 
@@ -112,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_191937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_191937.jpg" />
 </div>
 
 
@@ -140,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191866.jpg" />
 </div>
 
 
@@ -167,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_191690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_191690.jpg" />
 </div>
 
 
@@ -193,7 +405,7 @@ Parallels Desktop Business Edition 18.1.0 (build 53311) [Multi/Ru]
 >>13
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191673.jpg" />
 </div>
 
 
@@ -221,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191645.jpg" />
 </div>
 
 
@@ -248,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191503.jpg" />
 </div>
 
 
@@ -275,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_191221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_191221.jpg" />
 </div>
 
 
@@ -302,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_191186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_191186.jpg" />
 </div>
 
 
@@ -328,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191159.jpg" />
 </div>
 
 
@@ -354,7 +566,7 @@ SoundHound∞ v10.2 [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191157.jpg" />
 </div>
 
 
@@ -380,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191155.jpg" />
 </div>
 
 
@@ -406,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191039.jpg" />
 </div>
 
 
@@ -432,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191033.jpg" />
 </div>
 
 
@@ -458,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191027.jpg" />
 </div>
 
 
@@ -469,218 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E8CED45067C8F21F84BACB5AC72CB074FD50A7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587936   (190926) от 06.11.2022
-
-GoodbyeDPI 0.2.2. Launcher 5.7 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа Launcher for GoodbyeDPI для запуска утилиты GoodbyeDPI с понятным интерфейсом
-Утилита GoodbyeDPI предназначена для обхода систем глубокого анализа трафика (Deep Packet Inspection) и получения доступа к заблокированным сайтам.
-
-Работает с пассивными (подключенными с помощью оптического сплиттера или с зеркалированием трафика) и активными (подключенными последовательно) (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9DF961777A627655042717BAC39902E34E62745
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588291   (190712) от 07.11.2022
-
-Китайская мафия держит в заложниках 100 тысяч азиатов, заставляя их заниматься кибермошенничеством
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_190712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спасенные жертвы рассказали, в каких условиях они находились и чем они занимались.Китайские преступные синдикаты заманили 100 000 людей со всей Азии в Камбоджу обещанием хорошей высокооплачиваемой работы. По прибытию жертв, их паспорта изымаются, а их заставляют работать в «потогонных» условиях, проводя киберпреступные кампании.По данным издания The Los Angeles Times, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658652   (190707) от 09.09.2023
-
-WhatsApp 2.2326.10 Portable by OvArt 09.2023 [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190707.jpg" />
-</div>
-
-
-###  Подробнее
-
-WhatsApp Desktop - программа предназначена для прямого обмена сообщениями (c компьютера) на смартфон (компьютер) друзей без использования SMS. версии клиента для: IOS и Android. Поддерживается передача картинок, аудиозаписей, видео и (любые файлы, размером До 64-х мегабайт), а так же, местоположений на карте и контактных данных. Можно прикрепить как существующую (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC35782FBF4E341C2BDEC78DE6901D6B8DFA8C27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588906   (190477) от 08.11.2022
-
-Starlink вводит ограничения по использованию трафика в дневное время
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_190477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как сообщает The Verge, подразделение спутникового интернета компании SpaceX начнет ограничивать скорость домашнего интернета для клиентов, которые потребляют более 1 ТБ данных в месяц в часы пик, начиная с декабря. Это изменение внедряется в рамках новой «политики добросовестного использования» в США и Канаде.Клиенты теперь будут начинать каждый ежемесячный платежный (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 201186   (190442) от 08.11.2022
-
-Утомленные солнцем 2: Предстояние (2010) DVDRip
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190442.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение картины 1994 года. Героям первого фильма придется пройти сквозь пекло Великой Отечественной войны, чтобы найти друг друга и попытаться вновь стать счастливыми.
-Бывший комдив Котов, несправедливо осуждённый в 30-е годы как враг народа, чудом выжил и был отправлен на войну обычным рядовым бойцом штрафного батальона. Воевал, как все: в грязи, холоде и голоде, (   Читать дальше...   )Производство: Россия,  студия "ТриТэ", компания "Золотой орел" при поддержке Федерального агентства по культуре и кинематографииЖанр: Драма, военныйРежиссер: Никита МихалковАктеры: Никита Михалков, Олег Меньшиков, Надежда Михалкова, Виктория Толстоганова, Дмитрий Дюжев, Андрей Мерзликин, Максим Суханов, Артур Смольянинов, Александр Голубев, Евгений Миронов, Валерий Золотухин, Сергей Маковецкий, Евгений Стычкин, Сергей Гармаш, Наталья Суркова, Андрей Панин, Игорь Мулев, Ангелина Миримская, Сергей Ларин, Александр Пашутин, Сергей Серов, Игорь (   Читать дальше...   )Продолжительность: 02:53:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BD6696D3706B198BEA8A68757D15C5CE1AAC317
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124571   (190441) от 08.11.2022
-
-The Elder Scrolls V: Skyrim Legendary Edition (2013) [Ru] (1.9.32.0.8/dlc) Repack/Mod Mitradis [SLMP-GR 3.8]
-
->>3
->>98
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Skyrim: SLMP-GR (Simple Lore Mods Pack - Game Ready) - встречайте логическое продолжение развития SLMP-JG проекта SLMP! Проект кардинального, глубокого и лорного улучшения игры Skyrim! Новая версия (GR) выводит проект на новый уровень. Помимо серьезных различий по сравнению с JG, эта версия имеет куда более улучшенную совместимость модов внутри сборки между собой.Тип издания: Repack/ModРазработчик: Bethesda Game StudiosЖанр: RPG, 3D, 1st Person, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2EED076E9B0E769626FA5558FA9FFDDB1202F7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658382   (190280) от 10.09.2023
-
-В новых смартфонах Huawei действительно нашли 7-нм чипы, которые Китай научился делать в условиях санкций
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Возвращение Huawei в сегмент флагманских смартфонов с 5G, по мнению некоторых источников, стало возможно не за счёт использования накопленных до 2019 года запасов чипов, а благодаря сотрудничеству с китайской SMIC, которая уже научилась выпускать своими силами процессоры, сопоставимые с зарубежными 7-нм и 5-нм решениями. Один из них и лёг в основу Huawei Mate 60 (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658426   (190278) от 10.09.2023
-
-Хакерское устройство Flipper Zero научили ломать все iPhone вокруг
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190278.jpg" />
-</div>
-
-
-###  Подробнее
-
-Используя хакерское устройство Flipper Zero, которое стоит всего $169, злоумышленники научились атаковать iPhone нескончаемой чередой надоедливых всплывающих окон, предлагающих подключиться к AirTag, Apple TV, AirPods и другой продукции Apple. Пользоваться устройством в процессе атаки становится попросту невозможно. Единственное спасение от атаки — унести iPhone (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

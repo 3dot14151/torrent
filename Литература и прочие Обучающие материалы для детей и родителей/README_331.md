@@ -1,3 +1,59 @@
+###  Публикация: 1078862   (298145) от 02.12.2016
+
+В.А. Хомутов | Рыбаки на Волге (1927) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298145.jpg" />
+</div>
+
+
+###  Подробнее
+
+— А что это значит «ловить на приколе?
+— Это я вам в другой раз расскажу, когда сами поедем ловить язей. А пока я хочу вам вообще рассказать об обстановке, в которой рыбная ловля производится, и как надо добиться успеха.
+— Да, да, Сергей Павлович! —обратился к Зотову Шурик Ильинский. — Вы еще в городе нам
+обещали рассказать, как надо рыбу ловить. Помните, вы нам (   Читать дальше...   )Жанр: Рассказы о рыбаках, Рыболовство любительскоеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AA7E45BBCAB5D58ED37C0F38BE88CD168AC7CDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078857   (298130) от 02.12.2016
+
+Д.И. Тихомиров | Школа грамотности (1887) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298130.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга для первоначального обучения русскому и церковно-славянскому чтению, письму и арифметике.
+Предназначается для школ грамотности, для домашнего обучения и для церковно-приходских школ.Жанр: Образование, обучение и развитие детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E10949E5FD048816A471591D366FC6A8A4214D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078831   (298050) от 02.12.2016
 
 Всеволод Михайлович Гаршин | Собрание сочинений [12 книг] (1929—1987) [PDF, DJVU, FB2]
@@ -6,7 +62,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298050.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297957.jpg" />
 </div>
 
 
@@ -60,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297936.jpg" />
 </div>
 
 
@@ -86,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297896.jpg" />
 </div>
 
 
@@ -112,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297870.jpg" />
 </div>
 
 
@@ -140,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297806.jpg" />
 </div>
 
 
@@ -166,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297804.jpg" />
 </div>
 
 
@@ -192,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297791.jpg" />
 </div>
 
 
@@ -218,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297790.jpg" />
 </div>
 
 
@@ -246,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297788.jpg" />
 </div>
 
 
@@ -272,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297786.jpg" />
 </div>
 
 
@@ -298,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297784.jpg" />
 </div>
 
 
@@ -324,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297783.jpg" />
 </div>
 
 
@@ -350,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297782.jpg" />
 </div>
 
 
@@ -376,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297781.jpg" />
 </div>
 
 
@@ -402,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297780.jpg" />
 </div>
 
 
@@ -429,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297775.jpg" />
 </div>
 
 
@@ -456,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297694.jpg" />
 </div>
 
 
@@ -482,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297691.jpg" />
 </div>
 
 
@@ -508,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297676.jpg" />
 </div>
 
 
@@ -534,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297610.jpg" />
 </div>
 
 
@@ -560,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297573.jpg" />
 </div>
 
 
@@ -586,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297535.jpg" />
 </div>
 
 
@@ -612,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297532.jpg" />
 </div>
 
 
@@ -624,58 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F627E3A82A856F7DC79D6555A98F9BA574E5BA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 731529   (297402) от 07.12.2013
-
-Тод Штрассер | Волна (2013) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тод Штрассер (род. 1950) — американский писатель, журналист, автор более 120 произведений для детей и подростков. Всемирная известность пришла к автору после выхода его книги «Волна», которая произвела эффект разорвавшейся бомбы. Книга основана на реальных событиях, произошедших в 1967 году в одной из школ маленького калифорнийского городка. Учитель истории Бен Росс ставит социальный эксперимент, чтобы в игровой форме показать подросткам, что такое нацизм. Сначала все выглядело как непривычное и увлекательное приключение, игра в дисциплину и коллективизм. Однако спустя всего несколько дней Бен Росс осознает, что его ученики, по сути, превратились в образцовых граждан тоталитарного общества.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8D444715894764E3590ABAB44C6C1D141BDBFEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962083   (297236) от 03.12.2015
-
-Елена Кршижановская | Человек решает сам (1975) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ученик 5-го «а» класса Веня Фонарев сегодня занимается в одном кружке, завтра — в другом. Ничем он не интересуется серьезно. Кропотливый труд вызывает в нем скуку и отвращение к любому делу. Но вот мальчик подружился с сыном артиста цирка. Веня увлекается романтической профессией акробата. Но сколько упорства, смелости, ловкости должен проявить человек, желающий (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA0685BF294970C7B80CFE465C174EE2D90FCC2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

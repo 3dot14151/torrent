@@ -1,3 +1,60 @@
+###  Публикация: 1066563   (412248) от 26.10.2016
+
+Photo Batcher 1.2.4 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Batcher - программа для пакетной обработки цифровых фотографий и изображений. Позволяет конвертировать, вращать изображения, изменять их размер, корректировать цвета, накладывать спецэффекты и водяные знаки.
+
+Поддерживает форматы JPEG, JPEG2000, PNG, TIFF, TGA, GIF, BMP, PICT, PSD, PDF и др.Тип издания: OS X SoftwareРелиз состоялся: 2015Разработчик: osxbytesПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский, голландский, французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:076792FE33FA138A025EB177577B5B34B9C35C26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066600   (412242) от 26.10.2016
+
+SQLPro for MSSQL - Management studio for SQLServer 1.113 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412242.jpg" />
+</div>
+
+
+###  Подробнее
+
+SQLPro для MSSQL -  управление базами данных для Microsoft SQL Server
+SQL Client представляет собой легкий клиент базы данных Microsoft SQL Server, что позволяет получить быстрый и простой доступ к MSSQL серверам, в том числе через облачные сервисы, такие как SQL Azure или Amazon RDS.
+
+Особенности включают в себя:(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: октябрь 2016Разработчик: Hankinsoft Development, IncПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2B733466FF39A6F7F8D328D5913E7124FD1A89C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252183   (411167) от 04.10.2018
 
 Desktop Curtain 3.0.8 [En]
@@ -6,7 +63,7 @@ Desktop Curtain 3.0.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411167.jpg" />
 </div>
 
 
@@ -34,7 +91,7 @@ Org Chart Designer Pro 2 v2.28 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411165.jpg" />
 </div>
 
 
@@ -60,7 +117,7 @@ Mathworks Matlab R2015b (8.6.0.267246) [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410634.jpg" />
 </div>
 
 
@@ -88,7 +145,7 @@ Theine 3.4.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410412.jpg" />
 </div>
 
 
@@ -114,7 +171,7 @@ Bootstrap Studio 6.1.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410402.jpg" />
 </div>
 
 
@@ -142,7 +199,7 @@ Meta 2.1.5 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410315.jpg" />
 </div>
 
 
@@ -169,7 +226,7 @@ Fantastical 2.1.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409353.jpg" />
 </div>
 
 
@@ -196,7 +253,7 @@ PaintCode 2.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409350.jpg" />
 </div>
 
 
@@ -224,7 +281,7 @@ App Uninstaller 6.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409087.jpg" />
 </div>
 
 
@@ -252,7 +309,7 @@ FilmConvert Pro All Packs 2016 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409069.jpg" />
 </div>
 
 
@@ -280,7 +337,7 @@ DivX Pro 10.4.0  [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408976.jpg" />
 </div>
 
 
@@ -307,7 +364,7 @@ CrossFTP Enterprise 1.98.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408855.jpg" />
 </div>
 
 
@@ -333,7 +390,7 @@ Deliveries: a package tracker 3.0.5 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408850.jpg" />
 </div>
 
 
@@ -359,7 +416,7 @@ CounterPath Bria 5.0.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408448.jpg" />
 </div>
 
 
@@ -385,7 +442,7 @@ Templates for Pages 5.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408396.jpg" />
 </div>
 
 
@@ -414,7 +471,7 @@ NetWorker - Network Info App 5.1.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408063.jpg" />
 </div>
 
 
@@ -440,7 +497,7 @@ PaintCode 3 v3.4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408062.jpg" />
 </div>
 
 
@@ -466,7 +523,7 @@ Adobe Type Manager Deluxe 4.6.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407901.jpg" />
 </div>
 
 
@@ -493,7 +550,7 @@ Vertus Fluid Mask 3.3.18 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407689.jpg" />
 </div>
 
 
@@ -521,7 +578,7 @@ Sketch 58 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407282.jpg" />
 </div>
 
 
@@ -548,7 +605,7 @@ Radio Silence 2.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403809.jpg" />
 </div>
 
 
@@ -575,7 +632,7 @@ Boinx snippets: Music pack 1-6 1.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403107.jpg" />
 </div>
 
 
@@ -604,7 +661,7 @@ MailTags 5.1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402476.jpg" />
 </div>
 
 
@@ -630,7 +687,7 @@ Kite Compositor 1.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402403.jpg" />
 </div>
 
 
@@ -643,59 +700,6 @@ Kite предлагает ряд базовых строительных бло�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A8A26B20541DAC2D7B15F8726379577C9422511
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169650   (402353) от 28.09.2017
-
-uBar 4.0.3 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402353.jpg" />
-</div>
-
-
-###  Подробнее
-
-uBar — это полнофункциональная замена стандартному Доку в OS X. Внешний вид, работа приложения и его возможности сильно приближены к таковым из Windows. При первом запуске программы необходимо разрешить ей доступ к меню настроек “Конфиденциальность” в параметрах Защиты и безопасности. После этого нужно перезапустить само приложение. Теперь обратите внимание на самый (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.09.2017Разработчик: Brawer SoftwareПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8761D1C017071B9A8ADA6650A18F6C3461679FFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169628   (402292) от 28.09.2017
-
-WinZip 6.0.35.47 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402292.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinZip — мощный архиватор, который поможет легко и удобно сжимать и шифровать любые файлы, экономя место на диске и оптимизируя почтовые вложения. Архивация файлов не только позволяет уменьшить занимаемое файлами пространство, но и позволит отправлять архивы с комплектами документов по e-mail.
-WinZip предоставляет пользователям лучшие характеристики и функции WinZip (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.09.2017Разработчик: Corel CorporationПоддерживаемая ОС: macOS 10.8 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4914E720440C2153BA07C102DE7946AC55610D8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

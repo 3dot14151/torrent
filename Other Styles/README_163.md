@@ -1,3 +1,73 @@
+###  Публикация: 594217   (133923) от 25.12.2012
+
+Terry Oldfield (Ft. Mike Oldfield) - Journey Into Space (2012) [FLAC|Lossless]<New Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Origin (Guitar - Mike Oldfield)
+02. Traveller
+03. Flight Of The Eagle (Guitar - Mike Oldfield)
+04. Gayatri
+05. Shadow Dancer
+06. Jai Ram
+07. Moola Mantra
+08. Mangalam
+09. Dancer In The Void (Guitar - Mike Oldfield)
+10. Be StillЖанр: New Age, RelaxПродолжительность: 00:58:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594117   (133526) от 26.12.2012
+
+Судья Дредд / Dredd (2012) [MP3|320 кб/с]<soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She’s A Pass [3:16]
+02. Mega City One [3:13]
+03. The Plan [2:37]
+04. The Rise Of Ma-Ma [1:55]
+05. Anderson’s Theme [2:37]
+06. Lockdown [2:46]
+07. Cornered [2:17]
+08. Kay Escapes [3:17]
+09. Mini-Guns [2:02]
+10. Undefined Space [1:17](   Читать дальше...   )Жанр: soundtrackПродолжительность: 00:51:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCD1DE88CF89DDE0D980953C6EF786D4C32891C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 594102   (133511) от 26.12.2012
 
 Облачный атлас / Cloud Atlas  (2012) [MP3|320 кб/с]<soundtrack>
@@ -6,7 +76,7 @@
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_133511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_133511.jpg" />
 </div>
 
 
@@ -41,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133476.jpg" />
 </div>
 
 
@@ -76,7 +146,7 @@ James Last - Non Stop Dancing Box (2023) 20 CD, Polydor [ACC|360 Kbps] <Instrume
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133344.jpg" />
 </div>
 
 
@@ -105,7 +175,7 @@ Wychazel - A Brighter Dawn (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132372.jpg" />
 </div>
 
 
@@ -134,7 +204,7 @@ Wychazel - The Temple of Hathor (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132348.jpg" />
 </div>
 
 
@@ -163,7 +233,7 @@ Kitaro - Toyo's Camera (2009) [FLAC|Lossless|tracks + .cue] <Score, New Age>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132055.jpg" />
 </div>
 
 
@@ -192,7 +262,7 @@ Globus - Epicon (2006) [APE|Lossless]<New Age, Epic Music>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131948.jpg" />
 </div>
 
 
@@ -227,7 +297,7 @@ Deep Forest - Burning (2023) [MP3|320 Kbps] <New Age, Electro>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131718.jpg" />
 </div>
 
 
@@ -256,7 +326,7 @@ VA - 80's Club Classics Repress (2003) 2CD [FLAC|Lossless]<Hip Hop, Electro, Sou
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130836.jpg" />
 </div>
 
 
@@ -291,7 +361,7 @@ Ernesto Cortazar - Piano & Strings (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129244.jpg" />
 </div>
 
 
@@ -320,7 +390,7 @@ Kings of Convenience - Peace Or Love (2021) [FLAC|Lossless|tracks + .cue] <Indie
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129193.jpg" />
 </div>
 
 
@@ -349,7 +419,7 @@ Ernesto Cortazar - Paris by Night (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129190.jpg" />
 </div>
 
 
@@ -378,7 +448,7 @@ Lauluyhtye Rajaton - Nova (2001) [FLAC|Lossless]<A Capella, Harmonic Voices>
 >>Other
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128787.jpg" />
 </div>
 
 
@@ -407,7 +477,7 @@ VA - Doggy Style: Sexy Chillout Beats (2023) [FLAC|Lossless|WEB-DL|tracks] <Inst
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127854.jpg" />
 </div>
 
 
@@ -436,7 +506,7 @@ Sexy Chillout Music Specialists - Lustful Bubble Bath (2023) [FLAC|Lossless|WEB-
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127642.jpg" />
 </div>
 
 
@@ -465,7 +535,7 @@ TV Girl - Who Really Cares (2016) Digital Album[MP3|320 Kbps] <Hypnotic Pop>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127601.jpg" />
 </div>
 
 
@@ -494,7 +564,7 @@ Sex Music Zone - Bad Romance: Sexy Girl, Sensual Sounds for Erotic Massage (2023
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126967.jpg" />
 </div>
 
 
@@ -523,7 +593,7 @@ VA - The Orient Collective: Desert Tones (2025) [FLAC|Lossless|WEB-DL|tracks] <W
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126113.jpg" />
 </div>
 
 
@@ -552,7 +622,7 @@ Leo Rojas - Best Of (2023) [FLAC|Lossless|WEB-DL|tracks] <Panflute, Native ameri
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125612.jpg" />
 </div>
 
 
@@ -581,7 +651,7 @@ Sambodhi Prem - Sunlight Rain River (1995) [FLAC|Lossless|tracks + .cue] <New Ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125322.jpg" />
 </div>
 
 
@@ -610,7 +680,7 @@ VA - Бременские музыканты (Официальный саунд�
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125097.jpg" />
 </div>
 
 
@@ -639,7 +709,7 @@ VA - House M.D. - Original Television Soundtrack (2007) [FLAC|Lossless|tracks + 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124542.jpg" />
 </div>
 
 
@@ -668,7 +738,7 @@ Kirill Pokrovsky - Music from the Divinity Universe (2004) Limited Edition Sound
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124383.jpg" />
 </div>
 
 
@@ -697,7 +767,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124182.jpg" />
 </div>
 
 
@@ -711,64 +781,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F526C3D6DAFBE9CFB5FC799B7154F483D70F50B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690580   (123806) от 08.01.2024
-
-Deva Premal - Deva (2018) [FLAC|Lossless|tracks + .cue] <Mantras>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seven Chakra Gayatri Mantra
-02. Sarva Mangala
-03. Prabhujee
-04. Buddham Sharanam(   Читать дальше...   )Жанр: MantrasПродолжительность: 01:05:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:406CB4E6BF5E0073021EFB3C4D6327107EB6E4BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690160   (123585) от 10.01.2024
-
-VA - Бременские музыканты (2023) Официальный саундтрек к фильму [FLAC|Lossless|WEB-DL|tracks] <Films/Jeux vidéo / Musiques de films>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Серенада Трубадура. Детство [00:02:21]
-02. Песня маме [00:03:13]
-03. Серенада Трубадура (15 лет) [00:00:17]
-04. Дуэт Короля и Принцессы [00:01:03](   Читать дальше...   )Жанр: Films/Jeux vidéo / Musiques de filmsПродолжительность: 00:37:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEDD3329AD71B2C18C29FA728CD58F02B859D465
 ```
 
 https://mybot314.ru/tekegram_catalog/

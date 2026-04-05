@@ -1,32 +1,3 @@
-###  Публикация: 1664694   (184910) от 27.09.2023
-
-Fantasy - Das Beste (2023) Deluxe Edition [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dance Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_184910.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ein weisses Boot (2023)
-2. Darling (2023)
-3. Blinder Passagier (2023)
-4. Bonnie & Clyde (2023)(   Читать дальше...   )Жанр: Dance PopПродолжительность: 02:23:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2AEAC0C893165A6D9E5D4275AA771A44B0C381D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1664746   (184834) от 27.09.2023
 
 Adrenaline Mob - Studio Albums (4 releases) (2012-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Groove Metal>
@@ -35,7 +6,7 @@ Adrenaline Mob - Studio Albums (4 releases) (2012-2017) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184834.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Joel Corry - Another Friday Night (2023) [FLAC 16-24/44.1-48] Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184829.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Russell Allen collaborative projects: Allen - Lande; Allen - Olzon - Studio Albu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184797.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Autograf - Affirmations (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <House, Pro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184770.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ LP Giobbi - Light Places (2023) Deluxe Edition [FLAC 24/44.1/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184759.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Cee Muller - Spectrum of Emotions (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184006.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Lost Horizon - Studio Albums (2 releases) (2001-2003) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183997.jpg" />
 </div>
 
 
@@ -236,7 +207,7 @@ Secret Service/Сикрет Сервис - Two Albums: When The Night Closes In/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183669.jpg" />
 </div>
 
 
@@ -264,7 +235,7 @@ Possessed - Shadowcult (2019) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Death, Th
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183346.jpg" />
 </div>
 
 
@@ -293,7 +264,7 @@ Night In Gales - The Black Stream (2023) [FLAC 24/44.1|WEB-DL|tracks] <Death Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183341.jpg" />
 </div>
 
 
@@ -322,7 +293,7 @@ Vera Bloom - It's Me (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <garage rock, gr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183300.jpg" />
 </div>
 
 
@@ -351,7 +322,7 @@ Jethro Tull - RökFlöte (RokFlote) (Alternative Mixes) (2023) [FLAC 24/48|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183257.jpg" />
 </div>
 
 
@@ -380,7 +351,7 @@ Black Stone Cherry - Screamin' At The Sky (2023) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183253.jpg" />
 </div>
 
 
@@ -409,7 +380,7 @@ Vader - Studio Albums (19 releases) (1992-2020) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183203.jpg" />
 </div>
 
 
@@ -438,7 +409,7 @@ Cherry Glazerr - I Don't Want You Anymore (2023) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183178.jpg" />
 </div>
 
 
@@ -467,7 +438,7 @@ Toyah - The Changeling (1982) Deluxe Edition, Remastered, 2023, Cherry Red Recor
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183071.jpg" />
 </div>
 
 
@@ -496,7 +467,7 @@ Heavy Water - Dreams Of Yesterday (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182583.jpg" />
 </div>
 
 
@@ -525,7 +496,7 @@ Stepmother - Planet Brutalicon (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <pro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182578.jpg" />
 </div>
 
 
@@ -554,7 +525,7 @@ Nervosa - Jailbreak (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182548.jpg" />
 </div>
 
 
@@ -583,7 +554,7 @@ Don Letts - Outta Sync (2023) [FLAC 16-24/44.1|Lossless|WEB-DL|tracks] <punk reg
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182527.jpg" />
 </div>
 
 
@@ -612,7 +583,7 @@ Heldmaschine - Flachenbrand (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indust
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182519.jpg" />
 </div>
 
 
@@ -641,7 +612,7 @@ Jelusick - Follow The Blind Man (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182425.jpg" />
 </div>
 
 
@@ -670,7 +641,7 @@ Steven Wilson - The Harmony Codex (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_182423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_182423.jpg" />
 </div>
 
 
@@ -699,7 +670,7 @@ Code Orange - The Above (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metalcore, h
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182361.jpg" />
 </div>
 
 
@@ -728,7 +699,7 @@ Alter Bridge (Creed, Tremonti) - Studio Albums (7 releases) (2004 - 2022) hand m
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182296.jpg" />
 </div>
 
 
@@ -742,6 +713,35 @@ Alter Bridge — американская рок-группа из Орланд�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D246219CCD7C28187966639CE45A61F82177B0DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665422   (182286) от 30.09.2023
+
+Ed Sheeran - Autumn Variations (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magical (3:14)
+02. England (3:47)
+03. Amazing (4:06)
+04. Plastic Bag (3:50)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDF4D5DEE1B9AC1D57B7A923200420D1DB6A629B
 ```
 
 https://mybot314.ru/tekegram_catalog/

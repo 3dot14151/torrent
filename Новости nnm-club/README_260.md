@@ -1,3 +1,55 @@
+###  Публикация: 1200460   (137086) от 31.12.2018
+
+Научное расследование Сергея Малозёмова (Еда живая и мертвая) (2018) WEB-DL [H.264] (3 сезон: 42 выпуска из 42) [MP4|1920x1080]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137086.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Еда живая и мертвая» – новый научно-популярный цикл Сергея Малозёмова, репортера с медицинским образованием, автора и ведущего программы «Чудо техники» и научных расследований о климате, технологиях, бессмертии и экологии.Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: ~ 00:44:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8582EB0A3C551BE69BF8340264932505EAF82972
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347789   (137072) от 31.12.2019
+
+Семейка Аддамс / The Addams Family (2019) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Папа любит долгие прогулки в ненастную погоду. Мама считает, что черный цвет самый яркий. У детей кладбище - любимая площадка для игр. Бабушка выпивает пару капель яда перед сном. Вы все еще думаете, что ваши родственники странные? Знакомьтесь - семейка Аддамс.Производство: Канада, США / Metro-Goldwyn-Mayer (MGM), Cinesite AnimationЖанр: Мультфильм, ужасы, фэнтези, комедия, семейныйРежиссер: Грег Тирнан, Конрад ВернонАктеры: Оскар Айзек, Шарлиз Терон, Хлоя Грейс Морец, Финн Вулфард, Ник Кролл, Снуп Догг, Бетт Мидлер, Эллисон Джэнни, Мартин Шорт, Кэтрин О`ХараПеревод: Дублированный (Онлайн кинотеатр)Субтитры: АнглийскиеПродолжительность: 01:27:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36E2B3D2F748F0AA184B2C010F457D8DC2C35649
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338813   (137064) от 31.12.2019
 
 Мандалорец / The Mandalorian (2019) UHD WEB-DL [H.265/2160p-LQ] [4K, HDR, 10-bit] (сезон 1, серии 1-8 из 8) AMS [AD]
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137064.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137061.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137036.jpg" />
 </div>
 
 
@@ -89,7 +141,7 @@ Fade to Silence (2019) [Ru/Multi] (1.0.2025hf) Repack West4it
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137021.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137018.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_136914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_136914.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_136699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_136699.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ Ad Muncher 4.93.33707 [v1.3.1] Repack by Andron1975 [Русский / Англи
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_136316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_136316.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ Acronis BootCD Collection 2012 Grub4Dos Edition 11 in 1 v6 (12.2012) [Русск
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_136304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_136304.jpg" />
 </div>
 
 
@@ -247,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_136303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_136303.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_136041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_136041.jpg" />
 </div>
 
 
@@ -299,7 +351,7 @@ Ballance / Баланс [Ru/En] (P) 2004
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136036.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ ROSA Desktop Fresh 2012 (Национальная программная пла�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_136034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_136034.jpg" />
 </div>
 
 
@@ -353,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136030.jpg" />
 </div>
 
 
@@ -379,7 +431,7 @@ Realtek High Definition Audio Driver R3.60 (6.0.1.6788+6.0.1.6782 XP) [Multi/Р�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_135480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135480.jpg" />
 </div>
 
 
@@ -405,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135461.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135459.jpg" />
 </div>
 
 
@@ -457,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_135039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135039.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135029.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ Cerabyte показала работу неубиваемой системы х�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_134715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_134715.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ VA - BBC Radio One: Essential Mix (2023) [MP3|~245 Kbps (V0)] <House, Techno, Dr
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134673.jpg" />
 </div>
 
 
@@ -565,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134654.jpg" />
 </div>
 
 
@@ -592,7 +644,7 @@ Driver Genius 12.0.0.1211 RePack (& Portable) by KpoJIuK (24.12.2012) [Русс�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134298.jpg" />
 </div>
 
 
@@ -620,7 +672,7 @@ Pro Evolution Soccer 2013 [Ru/En/Multi6] (Repack/1.02/3 DLC) 2012 l Fenixx
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134284.jpg" />
 </div>
 
 
@@ -635,60 +687,6 @@ ProActive AI гарантирует реалистичность происхо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:001854516D46FA434729432CA592D7F4F47736F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593459   (134282) от 24.12.2012
-
-Need for Speed ProStreet [Ru/En] (Repack/1.1)  2007 l R.G. Games
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самые дорогие машины со всего света, умопомрачительный тюнинг, свет ксенона и нереальные скорости — нелегальные гонки всегда привлекали сорвиголов на самых быстрых шедеврах автопрома. Но со временем культура и мода меняются. Любители быстрой езды вышли в свет и перестали прятаться от полиции: новые соревнования проводятся официально на специальных трассах во всех частях планеты. Хобби «золотой молодежи» превратилось в самостоятельный вид спорта со своими правилами, спонсорами и чемпионами.
-
-Новая часть знаменитой гоночной серии Need for Speed меняется вслед за самими гонками. Больше не нужно прятаться от властей и рисковать в нелегальных заездах. Теперь самый опасный враг — не полиция, а хитрые и стремительные соперники. Они действуют агрессивно и в любой момент готовы подрезать машину оппонента или столкнуть ее в кювет, превратив в бесформенную груду железа. Эра бессмертных автомобилей прошла! Любого четырехколесного коня можно разбить вдребезги: мнется и отваливается буквально все — капот, бампера, спойлеры, крыша, крылья, стекла и даже колеса. ProStreet — не просто очередной эпизод сериала, это — новый уровень реализма и зрелищности, доступный всем!   (   Читать дальше...   )Тип издания: RepackРазработчик: EA Black BoxЖанр: Arcade / Racing (Cars) / 3DЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594076   (133802) от 25.12.2012
-
-ProDAD Mercalli V2 Stand Alone (SAL) 2.1.4700 + Plugin 2.0.105.1 RePack by PooShock [Английский]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mercalli - интуитивный и простой инструмент для программной стабилизации видео, незаменимый при видеомонтаже. Mercalli устанавливается плагином в большинство популярных видеоредакторов, кроме этого может работать как самостоятельное приложение. Mercalli обнаруживает и различает тряску между движениями (панорамирование и увеличение снимка, случайные удары или тряску). Программа Mercalli стабилизирует кадр, изменяя позицию всего изображения для компенсации пагубной тряски. Эта функция позволяет уменьшить тряску камеры и улучшает видимость объекта! В результате вы всегда получите значительные улучшения видеоряда и даже лучшую запись, которая может быть достигнута при редактировании после съемки!Название программы: ProDAD Mercalli V2 Stand Alone (SAL) + PluginЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

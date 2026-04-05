@@ -1,136 +1,3 @@
-###  Публикация: 1558634   (213192) от 21.06.2022
-
-Руперт Хёхляйтнер | Камни и минералы (2022) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Справочник практических навыков для тех, чьё хобби – геология. С помощью этого путеводителя по миру минералов и горных пород читатели смогут легко и безошибочно идентифицировать интересующие их камни, а также узнают всё самое удивительное о множестве их редких разновидностей. Книга содержит подробнейшие сведения об образовании, плотности, цвете черты, спайности, (   Читать дальше...   )Жанр: Атласы и энциклопедии. Иллюстрированный справочникПеревод: В.В. ДеминФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:264CB819177046D23DC5BC378FF4B614632BFD53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558745   (213168) от 22.06.2022
-
-Г.И. Левиев, М.Р. Трунин | Физика. Научись решать задачи сам (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие представляет собой сборник оригинальных задач, составленный в полном соответствии с учебной программой школьного курса физики. Особенность издания – в процедуре решения задач, развивающей у школьников способность самостоятельно думать. Большая часть задач составлена на основе реальных наблюдений и ситуаций, что позволяет ученику легко представить (   Читать дальше...   )Жанр: Задачники, ФизикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CE177CB607B79DEA09182831A025988D08EAE9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559019   (213140) от 23.06.2022
-
-Микаэль Лонэ | Теорема зонтика, или Искусство правильно смотреть на мир через призму математики (2022) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наше восприятие мира обманчиво. Наука часто ставит под сомнение наши самые сокровенные убеждения. Математика дает нам мощный инструмент для понимания механизмов Вселенной. Она учит нас мыслить шире и понимать больше, а главное, незримо сопровождает в нашей повседневной жизни.
-
-Автор книги – математик Микаэль Лонэ, популяризатор науки, создатель канала Micmaths (более (   Читать дальше...   )Жанр: Зарубежная образовательная литература, Математика, Научно-популярная литератураПеревод: И. СысоеваФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D544F1BE5612FB7044F80B7C33BDA7DFCDD32231
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559652   (213056) от 26.06.2022
-
-С.Г. Цыдыпов | Администрирование локально-вычислительных сетей под управлением MS Windows Server (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие содержит теоретическую информацию о базовых этапах настройки локально-вычислительной сети под управлением Windows Server.
- Предназначено  для  обучающихся  по  направлениям подготовки  09.03.03  «Прикладная  информатика», 02.03.03  «Математическое  обеспечение  и  администрирование информационных систем»  в рамках дисциплины «Администрирование информационных систем».Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19E5484B5A8C47AE5F23C6721E3AF04335F071CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559779   (213036) от 27.06.2022
-
-А.Е. Мамонтов | Лекции по дифференциальным уравнениям [8 книг] (2006 - 2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник книг по дифференциальным уравнениям доктора физико-математических наук из Новосибирского государственного университета А.Е. Мамонтова.Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18C4C157A6A91006BF4C63009CC2285CFBC1A6AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1559959   (213032) от 27.06.2022
 
 Кэвин П. Мэрфи | Вероятностное машинное обучение: введение (2022) [PDF]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213032.jpg" />
 </div>
 
 
@@ -166,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213031.jpg" />
 </div>
 
 
@@ -193,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213024.jpg" />
 </div>
 
 
@@ -219,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213021.jpg" />
 </div>
 
 
@@ -247,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212853.jpg" />
 </div>
 
 
@@ -276,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212794.jpg" />
 </div>
 
 
@@ -302,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212793.jpg" />
 </div>
 
 
@@ -328,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212259.jpg" />
 </div>
 
 
@@ -354,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212182.jpg" />
 </div>
 
 
@@ -381,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212124.jpg" />
 </div>
 
 
@@ -408,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212096.jpg" />
 </div>
 
 
@@ -435,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212071.jpg" />
 </div>
 
 
@@ -462,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211995.jpg" />
 </div>
 
 
@@ -488,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211774.jpg" />
 </div>
 
 
@@ -514,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211675.jpg" />
 </div>
 
 
@@ -540,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211671.jpg" />
 </div>
 
 
@@ -566,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211667.jpg" />
 </div>
 
 
@@ -592,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211666.jpg" />
 </div>
 
 
@@ -619,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211662.jpg" />
 </div>
 
 
@@ -648,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211641.jpg" />
 </div>
 
 
@@ -674,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211625.jpg" />
 </div>
 
 
@@ -685,6 +552,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:714991EAFC54E60FEB86C32255F0167A1B0E3A77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585825   (211623) от 23.10.2022
+
+Карл Циммер | Планета вирусов (2023) [EPUB]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211623.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вирусы – самые крошечные существа, известные науке, тем не менее в их подчинении вся наша планета. Каждому человеку хорошо известны вирусы простуды и гриппа, вместе с тем бывают вирусы, способные вызывать самые причудливые заболевания вроде такого, например, когда на коже человека развиваются древовидные наросты. Вирусы не просто часть нашей жизни: человеческий геном (   Читать дальше...   )Жанр: Научно-популярная литература, вирусологияПеревод: Мария ЕлифёроваФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63D9D56088F359E6B7EE8393E6E9B9971AC34EA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585810   (211602) от 23.10.2022
+
+Джеральд Лемоль | Лимфа и долголетие. Путь к укреплению иммунитета и предупреждению болезней (2022) [EPUB]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211602.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лимфатическая система – ключевой фактор долголетия и профилактики болезней. Именно лимфа защищает наши органы и кровеносные сосуды от клеточного мусора и токсинов, благодаря ей все системы нашего организма работают слаженно и эффективно. Поддерживая оптимальный ток лимфы, мы можем укрепить иммунитет, свести к минимуму воспалительные процессы, замедлить старение и (   Читать дальше...   )Жанр: Популярно о медицинеПеревод: Александр АнваерФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8F15CAA13A539B7100BBD12A474B6CCE0BDF2E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586048   (211581) от 24.10.2022
+
+Джон Джулиус Норвич | История Византийской империи. От основания Константинополя до крушения государства (2022) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Величие Византии заключалось в «тройном слиянии» – римского тела, греческого ума и мистического восточного духа (Р. Байрон). Византийцы были в высшей степени религиозным обществом, в котором практически отсутствовала неграмотность и в котором многие императоры славились ученостью; обществом, которое сохранило большую часть наследия греческой и римской Античности (   Читать дальше...   )Жанр: История Древнего мираПеревод: Оксана ПостниковаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB5C75C274E59A4655F7130A80E49BD3D0070C9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566832   (211475) от 31.07.2022
+
+Г.В. Федотов | Инженерная компьютерная графика в AutoCAD (2021) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приведены основы компьютерных технологий для обеспечения автоматизированного проектирования изделий машиностроения. Изложены сведения о CAD/CAM-системах. Рассмотрена структура графических систем для обеспечения технологии создания графических и текстовых документов. Изложены принципы конструирования на базе графических систем. Рассмотрены вопросы технического документооборота. (   Читать дальше...   )Жанр: Графика, машиностроениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34901E4383BF6C4ED5D3BB44204B9AD569A1E38F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639939   (211468) от 15.06.2023
+
+Крис Хайлман и др. | Основы JavaScript (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211468.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс посвящен основам программирования на языке javascript, рассмотрены его достоинства и недостатки и современные применения. Даются синтаксис языка, работа с объектами, объектная модель документа (DOM), скрытие и отображение элементов, регулярные выражения и создание HTML. Описываются работа с CSS, события и анимация.Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A401EF7B5322191BEC339176F7F88AF0F6E77B8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

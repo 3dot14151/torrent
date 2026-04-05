@@ -6,7 +6,7 @@ Gary Moore - Blues for Jimi (2007/2012) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502152.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ U.D.O. - Navy Metal Night (2014/2015) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502149.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Madonna - Sticky and Sweet Tour (2008) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502136.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Rammstein - Live @ Moscow (2019) WEBRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502114.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502093.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502016.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501967.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501113.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Pet Shop Boys - Pandemonium (2010) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500890.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500874.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500871.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500778.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Madonna - The MDNA Tour (2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500199.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500193.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Hi-Jakkers ft Tenny Ten, JP Tronik & Rodrigues - VIP (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499513.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499180.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ IKA - Москва Слезам Не Верит (DJ Sergey Fisun version) (2012)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499122.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499051.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Edguy - Live Wacken (2012) HDTV [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498347.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Steve Hackett - Genesis Revisited – Live at the Royal Albert Hall (2013) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497270.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496974.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496942.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Dream Theater - Live at Luna Park (2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496053.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ VA - Осенний марафон № 188 / Видеоклипы (Зарубе�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495788.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ The AIX All Star Band - Pachelbel Canon Acoustica (2012) BDRip [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495468.jpg" />
 </div>
 
 
@@ -715,7 +715,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494837.jpg" />
 </div>
 
 

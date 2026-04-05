@@ -1,3 +1,55 @@
+###  Публикация: 1528019   (735276) от 31.01.2022
+
+Bloody Spell (2022) [Multi] (1.0/dlc) License PLAZA
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bloody Spell – это экшен слешер, который имеет ряд сходств с играми серии Dark Souls, поэтому любителям этих жанров она придется по вкусу. Сюжет игры повествует о мире, который был захвачен легионом Бездны. Главный герой со своей сестрой является членами школы боевых искусств, которая противостоит силам захватчиков. Сестра протагониста была похищена, поэтому нам (   Читать дальше...   )Тип издания: LicenseРазработчик: Yi Long GamesЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: КитайскийЯзык субтитров: Английский, Китайский, ЯпонскийЯзык интерфейса: Английский, Китайский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCD9A0429AF37D72416F981B1B3CF0A3C04043D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399097   (734104) от 29.07.2020
+
+Monster Hunter: World (2018) (14.00.00/dlc) [Ru/Multi] Repack xatab
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Monster Hunter: World новейший выпуск популярной серии ролевых экшенов Monster Hunter, суммарные продажи которой насчитывают 40 миллионов копий, предлагает вам стать частью живой экосистемы и примерить на себя роль охотника, выслеживающего и уничтожающего свирепых чудовищ в напряженных битвах.Тип издания: RepackРазработчик: CAPCOM Co., Ltd.Жанр: ЭкшеныЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2B5A7BF48F1A207DF605E2B239753E7B2874916
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1529196   (733009) от 05.02.2022
 
 Xuan-Yuan Sword VII (2020) [Ru/Multi] (1.26/dlc) License GOG
@@ -6,7 +58,7 @@ Xuan-Yuan Sword VII (2020) [Ru/Multi] (1.26/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733009.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Reverie Knights Tactics (2022) [Ru/Multi] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733003.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Mary Skelter 2 (2022) [En] (1.05) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732999.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Megamagic: Wizards of the Neon Age (2016) [En/Multi] (1.05) License HI2U
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731270.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Hero Defense - Haunted Island (2016) [Ru/Multi] (1.4.4) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730469.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Cornerstone: The Song of Tyrim (2016) [En] (3.1.7) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729164.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Disciples III Дилогия [Ru] (Lossless Repack) 2009-2010 | R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729068.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ The Flame in the Flood (2016) [Ru/Multi] (24.04.2017) Repack R.G. Механик
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728096.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Diablo + Hellfire (L) [En] 1996/1997
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727948.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ The Incredible Adventures of Van Helsing: Final Cut (2015) [Ru/Multi] (1.0.8) Re
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725454.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Stories: The Path of Destinies (2016) [Ru/Multi] (0.0.13825) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725453.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Seven: The Days Long Gone (2017) [Ru/Multi] (1.1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724762.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Tokyo Xanadu eX+ (2017) [En] (1.08/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724757.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Kingdoms of Amalur: Reckoning (2012) [Ru] (1.0.0.2/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724039.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Stories: The Path of Destinies (2016) [Ru/Multi] (0.0.13825) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723431.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Ys: Memories of Celceta (2018) [Ru/Multi] (1.0.0.15) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722101.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Megamagic: Wizards of the Neon Age (2016) [En/Multi] (1.05) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719457.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ Stranger of Sword City (2016) [En/Ja] (1.0) License SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719306.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ SWORD ART ONLINE: Fatal Bullet (2018) [Ru/Multi] (1.1.2/dlc) License CPY [Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718984.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ Masters of Anima (2018) [Ru/En] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718980.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ Anima Gate of Memories (2016) [En/Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717238.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ SWORD ART ONLINE: Fatal Bullet (2018) [Ru/Multi] (1.1.2/dlc) Repack xatab [Delux
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716908.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ King's Bounty: The Legend / King's Bounty: Легенда о рыцаре (2008)
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713427.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ Pharaonic (2016) [Ru/Multi] (1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711114.jpg" />
 </div>
 
 
@@ -621,58 +673,6 @@ Pharaonic, увлекательная трехмерная игра, в кото
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C46E4418BDEFE52C37ADD46394F24D3A35CE25DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219743   (711112) от 15.04.2018
-
-Final Fantasy XIII / Final Fantasy 13 (2014) [Ru/Multi] (1.0.0.0) Repack R.G. Catalyst
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711112.jpg" />
-</div>
-
-
-###  Подробнее
-
-В свежеиспеченной части игрокам вновь предстоит посетить Кокон – небесный мир альтернативного будущего, переживающий не лучшие времена. Эре благополучия и всеобщего процветания под правлением Санктума приходит конец, и вот уже мир рушится на глазах.Тип издания: RepackРазработчик: SQUARE ENIXЖанр: RPG (Japanese-style), 3D, 3rd PersonЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:170C91885ED7E7C6066B675B5A54291B7E542BC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286569   (710461) от 03.03.2019
-
-Ashen (2018) [Ru/Multi] (1.0.12.0) Repack R.G. Механики
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ashen – экшен-РПГ с открытым миром, что рассказывает историю о страннике, который отправился на поиски места, где он мог бы чувствовать себя как дома. В мире, где разворачиваются события игры, солнце скрыто пеленой пепла. Это мир, где ничего долго не существует, независимо от того, насколько сильно вы привязались к этому. По своей сути, Ashen рассказывает о построении (   Читать дальше...   )Тип издания: RepackРазработчик: A44Жанр: Action, RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47E16B4D0A8657854E053A9E5B4B55C32B2490DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

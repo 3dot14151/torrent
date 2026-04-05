@@ -1,3 +1,61 @@
+###  Публикация: 1169816   (399479) от 01.10.2017
+
+VA - Trance Workout Hits (2017) [MP3|320 Kbps] <Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Aurosonic feat. Katty Heath - My Good Place (Progressive Mix)  7:28
+02.  The Blizzard feat.  Carol Lee - Always A Stranger (Extended Mix)  6:45
+03.  Karanda - Quest (Original Mix)  5:19
+04.  Cathy Burton & Ruslan Radriges - Hearts To Entwine (Extended Mix)  5:17(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 03:12:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:932DC91630FB11C278791E792931A1A902293A5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170400   (398745) от 02.10.2017
+
+VA - ADE Trance Festival (2017) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  LEVV - Collateral Damage (Noise Zoo Remix)  2:40
+02.  Daniel Kandi & Forion - Holy Cow (Original Mix)  4:07
+03.  Marcus Santoro - Nova Scotia (Original Mix)  3:22
+04.  Temple One - Reunited (Original Mix)  4:33(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:18:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D86A8C413F18062CE32F20B183708A26ADC759A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1170126   (398677) от 02.10.2017
 
 VA - Uplifting Trance Sessions Vol.3 (2017) [MP3|320 Kbps] <Uplifting Trance>
@@ -6,7 +64,7 @@ VA - Uplifting Trance Sessions Vol.3 (2017) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398677.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Macarize Autumn Essentials (2017) [MP3|320 Kbps] <Progressive Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394850.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - 5 Years of Saturate Audio (Mixed by Basil O'glue & Styller) (2017) [MP3|320
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392065.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - A State Of Trance Top 20 - October (Selected By Armin Van Buuren) ADE Speci
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388934.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Body Of Work - The Best Of Denise Rivera (The Radio Edits) (2018) [MP3|320 
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388030.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Best of Chill out Vocal Trance 2019 (2018) [MP3|320 Kbps] <Trance,Vocal Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387591.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Amsterdam Dance Essentials Trance (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385552.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - In Search of Sunrise 18 (Mixed by Markus Schulz & Matt Fax & Dennis Sheperd
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383746.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Ibiza Summer 2018: Trance (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383569.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Black Sunset Music: The Classics Collected (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381766.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - The Sound Of Progressive Trance Vol.15 (2022) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381545.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Suanda Classics, Vol. 2 (2017) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381260.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Markus Schulz Global DJ Broadcast: Top 20 October (2017) [MP3|320 Kbps] <Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381174.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Vocal Anthems Amsterdam (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379628.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Trance Favorites Episode #015 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377625.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Sync Diversity & Karl Schaap - Game of Trance (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377623.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - This Is 5 Years (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377622.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - ADE Trance Compilation (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377525.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Markus Schulz - We Are the Light (2018) [MP3|320 Kbps] <Trance,Downtempo>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377512.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Underground Trance Selections Vol.12 (2022) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377192.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Sensorica - 6 Albums , 7 Compilations (2007 - 2015) [MP3|320 кб/с]<Trance, Ch
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376874.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Ahmed Romel - RUYA (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376726.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Armin van Buuren Live At Ultra Mexico 2017 (Highlights) (2017) [MP3|320 Kbp
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376270.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Top 10 Secret Radio Weapons Vol.5 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376267.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Top 10 Secret Radio Weapons Vol.5 (2017) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B32EC9CCA2FDBE8CFDAA02B55CD63CA1B281A86E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175803   (374566) от 20.10.2017
-
-VA - Vocal Anthems Amsterdam (2017) [MP3|320 Kbps] <Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roman Messer & Betsie Larkin - Unite (Original Mix)  4:04
-02.  Bigtopo & Omar Diaz - Amazonas (Original Mix)  3:31
-03.  Frainbreeze & Cari - Stronger (Steve Allen & Enzo Remix)  3:59
-04.  Elite Electronic & John Swanson - Polaris (Original Mix)  3:56(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 01:15:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53C11278E111336B477E272E1E26485E5D8938F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176028   (374557) от 20.10.2017
-
-VA - Paul Oakenfold - DJ Box October (2017) [MP3|320 Kbps] <Trance,Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tilt - Deeper In Love (feat Ruby Turner)
-02. Daniel Wanrooy - Alpha (extended mix)
-03. Yahel & Tammy - Cloud 9 (Oraw remix)
-04. Blazer - Venom (original mix)(   Читать дальше...   )Жанр: Trance,Progressive HouseПродолжительность: 01:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B0856AE7270A54F7FC0C174036D7A142B71D417
 ```
 
 https://mybot314.ru/tekegram_catalog/

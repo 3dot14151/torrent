@@ -1,3 +1,59 @@
+###  Публикация: 1504887   (807811) от 25.10.2021
+
+Kalachevaschool, Анна Эгида и др. | Скетчинг «Каталог мини-курсов» (2016 - 2019) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807811.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коротко и ясно
+Лучшие сборники быстрых курсов для отработки одной техники, материала или сюжета.
+Концентрат практической полезности.
+Идеально для тех, кто находится в поисках любимой техники, жанра и материала.Производство: KalachevaschoolЖанр: РисованиеПродолжительность: 30:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD5B4B955DD807DF8515B55B0C24CE547CA7ECF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501638   (807670) от 25.10.2021
+
+WingFox, Huifeng Huang | Creating an Advanced Cinematic Character - Vagrant Knight (2018) PCRec [CN, RU / EN Sub]
+
+>>След.
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807670.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе мы погрузимся в процесс создания высокодетализированной и реалистичной модели персонажа, охватывая процесс сбора рефернсов, моделирование, лепку деталей лица, методы создания фотореалистичных волос, текстурирование кожи, волос и одежды.
+Вы узнаете, как создать кинематографического персонажа для CG с помощью нескольких 3D-программ. В конце этого курса (   Читать дальше...   )Производство: WingFoxЖанр: 3D моделированиеЯзык озвучки: Китайский, Русский (отдельным файлом)Субтитры: Английские (вшитые, не отключаемые)Продолжительность: 25:22:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44BCF89903A366FBC72FA3BA2121118EFE1720C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505123   (805707) от 26.10.2021
 
 Profileschool, Никита Чесноков | Cinema 4D. Продвинутый уровень (2019) PCRec
@@ -6,7 +62,7 @@ Profileschool, Никита Чесноков | Cinema 4D. Продвинутый
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805707.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805702.jpg" />
 </div>
 
 
@@ -61,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804659.jpg" />
 </div>
 
 
@@ -87,7 +143,7 @@ XYZ School, Константин Файзуллин | Нарративный д�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803851.jpg" />
 </div>
 
 
@@ -116,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801365.jpg" />
 </div>
 
 
@@ -143,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801349.jpg" />
 </div>
 
 
@@ -170,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801347.jpg" />
 </div>
 
 
@@ -196,7 +252,7 @@ Greyscalegorilla, Nik V | Topology Crash Course (2020) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800827.jpg" />
 </div>
 
 
@@ -223,7 +279,7 @@ Stan Prokopenko | How To Draw Gesture (En) (2013) WEB-DL [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800823.jpg" />
 </div>
 
 
@@ -249,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800762.jpg" />
 </div>
 
 
@@ -276,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800732.jpg" />
 </div>
 
 
@@ -304,7 +360,7 @@ Master Draw, Денис Крупчатников | Курс скетчинга �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800731.jpg" />
 </div>
 
 
@@ -330,7 +386,7 @@ Master Draw, Денис Крупчатников | Конструктивный 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800726.jpg" />
 </div>
 
 
@@ -357,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800723.jpg" />
 </div>
 
 
@@ -385,7 +441,7 @@ Pixel, Таня Климань | Персонажи в Adobe Illustrator (2020) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800681.jpg" />
 </div>
 
 
@@ -414,7 +470,7 @@ Cloudlessons, Инна Гревцева | Основы коммерческой 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800680.jpg" />
 </div>
 
 
@@ -442,7 +498,7 @@ Polygon Runway, Roman Klco | 3D персонажи и иллюстрации в 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800668.jpg" />
 </div>
 
 
@@ -470,7 +526,7 @@ Skillbox, Pic-o-matic, Денис Бобкин и др. | Книжная илл�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799756.jpg" />
 </div>
 
 
@@ -498,7 +554,7 @@ Yanetskaya, Светлана Янецкая | Ми-ми-мишная иллюс�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798603.jpg" />
 </div>
 
 
@@ -526,7 +582,7 @@ Yanetskaya, Светлана Янецкая | Цифровая книжная и
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798540.jpg" />
 </div>
 
 
@@ -552,7 +608,7 @@ Udemy, Алексей Кириченко (Alexey Kirichenko) | Персонаж�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798528.jpg" />
 </div>
 
 
@@ -581,7 +637,7 @@ Skillshare, Gesa Pickbrenner | Learn Blender 2.90: Creative and 3D Printable Jew
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798077.jpg" />
 </div>
 
 
@@ -608,7 +664,7 @@ Skillshare, Gesa Pickbrenner | Foundations of Blender 2.90: Jewelry Design in 3D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798067.jpg" />
 </div>
 
 
@@ -635,7 +691,7 @@ CG Cookie, Kent Trammell | Styling and Rendering Long Hair with Blender and Cycl
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797333.jpg" />
 </div>
 
 
@@ -646,61 +702,6 @@ CG Cookie, Kent Trammell | Styling and Rendering Long Hair with Blender and Cycl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:922E5D1F778FCC78AC14770E21CCEBDFBB42891B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508500   (797275) от 08.11.2021
-
-FlippedNormals, Konrad Hetko | Creating Hair for Games in Blender (2021) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Узнайте, как создавать реалистичные волосы для видеоигр с помощью Blender! В этом курсе вы познакомитесь с профессиональными техниками создания причёсок с использованием Blender и Marmoset. Вы научитесь сочетанию практических 3D-техник и основному пониманию того, как волосы работают в реальном мире. Объедините эти навыки, чтобы создать потрясающие прически для любой (   Читать дальше...   )Производство: FlippedNormalsЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 05:08:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2783296700B62AE97F6A6CAA428AAA8EA47B556
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010347   (797231) от 26.04.2016
-
-Highlights School | Основы веб-дизайна (2015) PCRec [H.264/720p]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс подойдет тем кто хочет научится создавать дизайн веб-сайтов и мобильных приложений с нуля!
-
-На каждом занятии вы не только узнаете новую и интересную информацию, но и попробуете все сами.
-(   Читать дальше...   )Жанр: Web, дизайнПродолжительность: 17:38:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:756BC00395F2563BEC853659F67FDDA83FFAFB24
 ```
 
 https://mybot314.ru/tekegram_catalog/

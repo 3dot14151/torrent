@@ -1,3 +1,61 @@
+###  Публикация: 1259098   (323409) от 02.11.2018
+
+VA - Ronski Speed - Evolve (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ronski Speed - Room 346 (Evolve Album Version)
+02. Ronski Speed & Ciaran Mcauley - Corellia (Evolve Album Version)
+03. Ronski Speed & Alan Morris - Night Time (Evolve Album Version)
+04. Ronski Speed - Sea U (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:41:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59C626CB87B2B03D538548F71F09B43BA382D3A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181597   (322021) от 08.11.2017
+
+VA - EPIC Ibiza - Trance Anthems Vol.3 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Carlos De La Garza - Atardecer (Original Mix)  7:54
+02.  Derek The Bandit - Joburg Sunrise (Original Mix)  8:00
+03.  Matthias Springer - The Art Of Dissociation (Original Mix)  7:45
+04.  Hanney Mackoll - Rave (Original Mix)  3:06(   Читать дальше...   )Жанр: TranceПродолжительность: 03:24:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75DCE5992D79D5E23FC479FA26F0431F23FC15CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1331875   (320316) от 17.10.2019
 
 VA - Beautiful Vocal Trance Chapter 4 (2019) [MP3|320 Kbps] <Trance, Vocal Trance>
@@ -6,7 +64,7 @@ VA - Beautiful Vocal Trance Chapter 4 (2019) [MP3|320 Kbps] <Trance, Vocal Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320316.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Trance Favorites Episode #009 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319440.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Vocal Trance Classics Top 40 (2017) [MP3|320 Kbps] <Trance, Uplifting Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319327.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Trance Top 1000 - The Anthems (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319215.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Chapter 1 Uplifting Trance (2022) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318925.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Thomas Datt - Trance Pioneers 003 (2022) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318921.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Daxson - Face The Future (2022) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318913.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Trance Vol.9 (2022) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318800.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Paul van Dyk & Alex M.O.R.P.H. - Hawkins Square (EP) (2022) [MP3|320 Kbps] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318793.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Trance Summer (2022) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318785.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Total Trance Selections Vol. 07 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317254.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Grotesque Reworked & Remixed - (Mixed By RAM) (2017) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317163.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Vocal Trance Classics Top 40 (2017) [MP3|320 Kbps] <Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317063.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Basil O'Glue - Depth Of Field (2017) [MP3|320 Kbps] <Trance,Progressive House>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317058.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Black Hole Trance Music 10-19 (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316662.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Global DJ Broadcast: Top 20 November (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315106.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Dark Rest Vol. 3 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310312.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ KGproject - Cold Eyes (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310311.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Aeden - Once Upon A Time EP (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310215.jpg" />
 </div>
 
 
@@ -556,7 +614,7 @@ VA - Grotesque Reworked & Remixed (Mixed By RAM) (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310199.jpg" />
 </div>
 
 
@@ -585,7 +643,7 @@ VA - Trance Hits Top 20 2016-11 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309493.jpg" />
 </div>
 
 
@@ -614,7 +672,7 @@ VA - Amsterdam Trance Sessions Vol.7 (2016) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309072.jpg" />
 </div>
 
 
@@ -643,7 +701,7 @@ Shakti - Psychedelic Experience (2016) [MP3|320 Kbps] <Psychedelic Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306156.jpg" />
 </div>
 
 
@@ -672,7 +730,7 @@ VA - A State Of Trance Classics Vol.13 (The Full Unmixed Versions)(2018) [MP3|32
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305570.jpg" />
 </div>
 
 
@@ -686,63 +744,6 @@ VA - A State Of Trance Classics Vol.13 (The Full Unmixed Versions)(2018) [MP3|32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D07A332962AE568261ED4B6C74F464734F320692
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564165   (304368) от 05.12.2012
-
-DJ Aligator - 7 Альбомов (2000 - 2012) [MP3|320 кб/с]<Trance , Progressive House>
-
->>След.
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_304368.jpg" />
-</div>
-
-
-###  Подробнее
-
-DJ Aligator - 7 Альбомов (2000 - 2012)
-Год: 2000 - 2012
-Жанр: Trance , Progressive House(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184460   (301506) от 17.11.2017
-
-VA - Trance The Annual 2018 (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Svenson & Gielen - We Know What You Did... (Alex M.O.R.P.H. remix)
-02. Marcel Woods - Tomorrow (M.I.K.E. Push remix - radio edit)
-03. Marco V - Switchim
-04. Jochen Miller - Head On(   Читать дальше...   )Жанр: TranceПродолжительность: 01:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD0E920F06948240FD84613CD8D2E6A982928B4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

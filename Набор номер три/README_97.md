@@ -1,3 +1,159 @@
+###  Публикация: 987621   (925476) от 17.02.2016
+
+Navitel / Навител Навигатор v9.6.2131 Full и другие  [Ru/Multi] - только программа навигации
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Навигационная программа Навител отображает текущее местоположение пользователя на карте и способна с помощью отображения маневра на экране навигатора и голосом подсказать водителю, когда и куда необходимо повернуть на автоматически проложенном маршруте для скорейшего прибытия в необходимое место. Также Навител может предсказать время прибытия в точку назначения, (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 16.02.2016Разработчик: NAVITEL ®Поддерживаемая ОС: Android 2.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30B0A4E318AEB5E84ACD2516787B94E435017F5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986894   (925475) от 17.02.2016
+
+Adobe Master Collection CC 2015 RUS/ENG Update 3
+
+>>3
+>>24
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как, надеюсь, вам известно, пакета Adobe Master Collection CC 2015 в природе не существует, компания Adobe его никогда не выпускала. Но, тем не менее, он перед вами! Я очень постарался, чтобы этот пакет появился на свет. Он представляет из себя сборник программ линейки Creative Cloud 2015, объединенный единым инсталлером. Выглядит все очень похоже на старый добрый (   Читать дальше...   )Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46E2D5230F5E7B5031615338ED7A3084C28F368A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 819128   (925474) от 17.02.2016
+
+Pillars Of Eternity (2015) [Ru/Multi] (3.00.967 PX1 PX2/dlc) SteamRip Let'sPlay [Champion Edition]
+
+>>3
+>>14
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pillars of Eternity – ролевая игра с изометрическим видом, действия которой развиваются в фэнтезийном мире. В проекте представлена тактическая боевая система, позволяющая в любой момент остановить действие и раздать приказы герою и его компаньонам. Карта мира содержит множество уникальных локаций и дополнительных зон с разнообразными квестами. Диалоговая система (   Читать дальше...   )Тип издания: SteamRipРазработчик: Obsidian EntertainmentЖанр: RPG, IsometricЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1257D5C02FAE26EBFCFAAB15D54CB30CA39700A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095119   (925470) от 20.01.2017
+
+Adobe After Effects CC 2017.1 14.1.0.57 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925470.jpg" />
+</div>
+
+
+###  Подробнее
+
+After Effects CC — это ведущая в отрасли программа для создания и компоновки анимированной графики, которую используют многие разработчики визуальных эффектов и анимированной графики. Она предлагает великолепные функции управления, широкий выбор инструментов для творчества, а также возможность интеграции с другими приложениями для постобработки видеоматериалов. Сделайте (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44CB9A5D3ED3D884F5872CA97EB6672EA7951B7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095112   (925462) от 20.01.2017
+
+Adobe Audition CC 2017.0.2 10.0.2.27 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для работы с аудио-данными Adobe Audition представляет собой профессиональный инструмент для специалистов, которые работают в сфере обработки аудио и видеопродукции, предлагая им практически неограниченные возможности. Простота использования прекрасно сочетается с гибкостью работы, позволяя создавать мастер-копии высочайшего класса, редактировать, микшировать, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68A0A0E6935B48270A09D499317BB8395CA9779F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095390   (925449) от 20.01.2017
+
+Arcanum: Of Steamworks and Magick Obscura (2001) [Ru/En] (1.3.0.x) Repack/Mod Multiverse Team [Arcanum Multiverse Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925449.jpg" />
+</div>
+
+
+###  Подробнее
+
+Arcanum: Of Steamworks and Magick Obscura - классическая ролевая игра от разработчиков первых двух игр в линейке Fallout. В основу игры ложится история, разворачивающаяся вокруг выжившего в трагедии дирижабля «Зефир», которому предстоит найти свою роль в мире увядающей магии и технологического прогресса. Насколько сильно он повлияет на события в мире Арканума, на (   Читать дальше...   )Тип издания: Глобальная модификацияРазработчик: Troika GamesЖанр: RPG, IsometricЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44E148C047D7FD7A8AD54E94893C5AF37E6D8E72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 558680   (925444) от 20.01.2017
 
 Лунный свет 2: Вселенная света / Lichtmond 2: Universe of Light (2012) Blu-ray [1080p] [3D]
@@ -6,7 +162,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925444.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Adobe Premiere Pro CC 2017 (v11.0.2) Multilingual Update 1
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925442.jpg" />
 </div>
 
 
@@ -60,7 +216,7 @@ Adobe Premiere Pro CC 2017.0.2 11.0.2.47 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925437.jpg" />
 </div>
 
 
@@ -86,7 +242,7 @@ Microsoft® Windows 10 Enterprise LTSB x86-x64 1607 RU Office16 by OVGorskiy® 0
 >>12
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925433.jpg" />
 </div>
 
 
@@ -112,7 +268,7 @@ Metal Gear Solid 5: The Phantom Pain / Metal Gear Solid V: The Phantom Pain (201
 >>14
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925431.jpg" />
 </div>
 
 
@@ -138,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925429.jpg" />
 </div>
 
 
@@ -164,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925059.jpg" />
 </div>
 
 
@@ -190,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>12
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924930.jpg" />
 </div>
 
 
@@ -216,7 +372,7 @@ WhatsApp 0.4.1299 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924904.jpg" />
 </div>
 
 
@@ -242,7 +398,7 @@ Wondershare Filmora Effect Packs RePack by elchupacabra [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924903.jpg" />
 </div>
 
 
@@ -268,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924902.jpg" />
 </div>
 
 
@@ -295,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924729.jpg" />
 </div>
 
 
@@ -321,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924516.jpg" />
 </div>
 
 
@@ -349,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924356.jpg" />
 </div>
 
 
@@ -379,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924355.jpg" />
 </div>
 
 
@@ -405,7 +561,7 @@ City Navigator Europe NT 2013.40 [Карта] (Garmin)
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924352.jpg" />
 </div>
 
 
@@ -431,7 +587,7 @@ Dr.Web вписался в цензуру интернета и блокиров
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924143.jpg" />
 </div>
 
 
@@ -458,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924139.jpg" />
 </div>
 
 
@@ -486,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924098.jpg" />
 </div>
 
 
@@ -513,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924010.jpg" />
 </div>
 
 
@@ -524,163 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095026   (923806) от 21.01.2017
-
-Торренты могут вывести из-под действия "пакета Яровой"
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из «закона Яровой» могут исключить торренты и потоковое видео
-Минкомсвязь России выступила с предложением вывести из-под действия «пакета Яровой» отдельные виды данных, хранение которых является достаточно трудоёмким процессом.В частности, к избыточной информации при реализации требований пакета предложили отнести онлайн-медиа, торрент-трекеры и IPTV. Несмотря на (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987628   (923727) от 18.02.2016
-
-Медведев зашел на заблокированный судом торрент-трекер
-
->>3
->>9
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Премьер-министр России Дмитрий Медведев смог зайти на заблокированный в России по решению суда торрент-трекер. Об этом пишут «Ведомости» со ссылкой на нескольких свидетелей! случившегося.Проверить доступность сайта Медведев решил во время заседания правительственного совета по кино, состоявшегося 17 февраля, после слов гендиректора Первого канала Константина Эрнста (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987909   (923714) от 18.02.2016
-
-Правда / Truth (2015) HDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923714.jpg" />
-</div>
-
-
-###  Подробнее
-
-В картине будет рассказываться о скандале, разразившемся после того, как суперпопулярный ведущий новостной программы на CBS Дэн Рэзер заявил в эфире о том, что Джордж Буш-мл. по блату попал в Национальную гвардию США, чтобы избежать отправки во Вьетнам (спасибо могучему папе Бушу-старшему, который на тот момент служил послом). После такой правды репутация Рэзера (   Читать дальше...   )Производство: США, АвстралияЖанр: ДрамаРежиссер: Джеймс ВандербилтАктеры: Кейт Бланшетт, Роберт Редфорд, Тофер Грейс, Деннис Куэйд, Элизабет Мосс, Брюс Гринвуд, Стейси Кич, Джон Бенжамин Хикки, Дэвид Лайонс, Дермот Малруни, Рэйчел Блейк, Эндрю МакФарлэйнПеревод: Двуголосый закадровый, любительскийПродолжительность: 02:05:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C8E267A1386F43A1008D33D43E2A1F4B92F73CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987689   (923686) от 18.02.2016
-
-Street Fighter V (2016) [Ru/Multi] (1.0) Repack SEYTER
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923686.jpg" />
-</div>
-
-
-###  Подробнее
-
-В легендарной бойцовской серии вышла новая игра - Street Fighter V! Потрясающая графика изображает новое поколение мира воинов в невиданных доселе подробностях, а динамичная и понятная боевая система позволяет как новичкам, так и опытным игрокам подолгу наслаждаться драками. Сыграйте с друзьями по сети, или сразитесь за честь и славу в турнире Capcom Pro Tour.Тип издания: RepackРазработчик: Capcom и DimpsЖанр: Arcade, Fighting, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16207CE0B2B513C06A8978324B13EAE6A994F1AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917330   (923685) от 18.02.2016
-
-Just Cause 2 (2010) [Ru/En] (1.0.0.2/dlc) Repack =nemos=
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Погрузитесь в полное адреналина свободное приключение. В качестве агента Рико Родригеза, вашей целью будет найти и убить вашего друга и наставника, который исчез на островном рае Панау. Здесь, на Панау, вы должны вызвать максимум хаоса на земле, воде и в воздухе, чтобы изменить баланс сил. Используя сочетание из уникального крюка-кошки и парашюта, вы сможете выполнять (   Читать дальше...   )Тип издания: RepackРазработчик: Avalanche StudiosЖанр: Action (Shooter), Racing, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:096A665D44C9D35D05B1656D98187FBBDEF77CE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987568   (923676) от 18.02.2016
-
-Рождество / The Night Before (2015) HDRip
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923676.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о веселых приключениях трех старых друзей, отправившихся на поиски лучшей рождественской вечеринки в Нью-Йорке..Производство: США, Columbia Pictures, Good Universe, LStar Capital, Point Grey PicturesЖанр: КомедияРежиссер: Джонатан ЛевинАктеры: Джозеф Гордон-Левитт, Сет Роген, Энтони Маки, Джиллиан Белл, Лиззи Каплан, Майкл Шеннон, Хелен Йорк, Илана Глейзер, Аарон Хилл, Трэйси Морган, Дэрри Лоуренс, Нэйтан ФилдерПеревод: Любительский, двухголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:41:39Реклама: Присутствуют голосовые вставки рекламы.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8E912422D8EC52DBCB6A52CA17629B3E0D8BCEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

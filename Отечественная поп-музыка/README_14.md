@@ -1,38 +1,3 @@
-###  Публикация: 526319   (599052) от 23.07.2012
-
-Алёна Винницкая - Полная коллекция хитов (2012) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 100 Лет Назад
- 02. Ветер Перемен
- 03. Видишь, Я Жива (Измученное Сердце)
- 04. Все Будет Хорошо
- 05. Давай Забудем Все
- 06. Золушка
- 07. Музыка Рок
- 08. Рассвет
- 09. Тайну Разгадаю
- 10. 007(   Читать дальше...   )Жанр: PopПродолжительность: 03:09:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:492DFC009C9744191A9A313355BCDFDE63590C49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 526005   (598803) от 23.07.2012
 
 Непара - The Best (2012) [MP3|320 кб/с]<Рор>
@@ -41,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598803.jpg" />
 </div>
 
 
@@ -76,7 +41,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596881.jpg" />
 </div>
 
 
@@ -111,7 +76,7 @@ O.C.A - Ночной дожор (2019) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593954.jpg" />
 </div>
 
 
@@ -140,7 +105,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593117.jpg" />
 </div>
 
 
@@ -169,7 +134,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592246.jpg" />
 </div>
 
 
@@ -198,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592222.jpg" />
 </div>
 
 
@@ -227,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591308.jpg" />
 </div>
 
 
@@ -256,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590303.jpg" />
 </div>
 
 
@@ -285,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589873.jpg" />
 </div>
 
 
@@ -314,7 +279,7 @@ Real Bodrit - Superman (2015) [MP3|320 кб/с]<Indie Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589597.jpg" />
 </div>
 
 
@@ -343,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587665.jpg" />
 </div>
 
 
@@ -372,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585860.jpg" />
 </div>
 
 
@@ -401,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585796.jpg" />
 </div>
 
 
@@ -430,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583683.jpg" />
 </div>
 
 
@@ -459,7 +424,7 @@ MONATIK (Монатик) - LOVE IT ритм (2019) [MP3|320 Kbps] <Dance-Pop, R&
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579135.jpg" />
 </div>
 
 
@@ -488,7 +453,7 @@ Amen 78 - Финифть (2017) Deluxe Edition [MP3|320 Kbps] <Alternative Pop, 
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577879.jpg" />
 </div>
 
 
@@ -517,7 +482,7 @@ VA - Легендарные песни - Коллекция (гр. Форум 20
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577378.jpg" />
 </div>
 
 
@@ -546,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576185.jpg" />
 </div>
 
 
@@ -575,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573267.jpg" />
 </div>
 
 
@@ -604,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572797.jpg" />
 </div>
 
 
@@ -633,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572587.jpg" />
 </div>
 
 
@@ -662,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572572.jpg" />
 </div>
 
 
@@ -691,7 +656,7 @@ VA - Хитовый 4 (2018) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572478.jpg" />
 </div>
 
 
@@ -720,7 +685,7 @@ MBAND - Грубый возраст (2018) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571013.jpg" />
 </div>
 
 
@@ -749,7 +714,7 @@ ALEKSEEV - Моя звезда (2019) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567263.jpg" />
 </div>
 
 
@@ -763,6 +728,35 @@ ALEKSEEV - Моя звезда (2019) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1879697F6959CBF083A9A854DEC205AF4140BBA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555826   (567172) от 05.06.2022
+
+Дора - MISS (2022) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567172.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Розовые волосы
+2. Автопилот
+3. Заставь
+4. La bohème(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74CF23AFB6D8371C4F7EFD9CC3F1CC0576681EE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

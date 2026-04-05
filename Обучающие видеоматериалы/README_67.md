@@ -1,3 +1,29 @@
+###  Публикация: 981879   (947796) от 03.02.2016
+
+PhLearn | A Dark Force Photoshop/Тёмная сила Photoshop. Части 1 - 3 из 3 (2015) PCRec [H.264/1080p]
+
+>>Обучающие видеоматериалы
+>>Фотография и Видео (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта легенда пришла к нам из глубин космоса… Много световых лет назад из далёкой-далёкой Галактики… Вы можете представить себе, как выглядели тогда эти далёкие миры? Какие животные и жители её населяли? Как они жили? Какие существа там разрывали своими криками жуткую тёмную ночь? И была ли там ночь? Тёмная Сила – это суперкурс по Photoshop, который поможет вам путешествовать (   Читать дальше...   )Жанр: ВидеоурокиПродолжительность: 04:25:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:010DD1A7DC74E1A5F0D5FE074F2E1F232B52E66B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972298   (947792) от 03.02.2016
 
 Hacking School, IT Security Academy | Взлом сайтов на практике (2015) PCRec [H.264/720p]
@@ -6,7 +32,7 @@ Hacking School, IT Security Academy | Взлом сайтов на практи�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947792.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ Webcademy | Сборка Gulp 4.0 (2019) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947680.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947620.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947562.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ PIXEL | Рисование в Adobe Photoshop (2018) PCRec [H.264/1080p-LQ]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946292.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945712.jpg" />
 </div>
 
 
@@ -169,7 +195,7 @@ DailyBurn | DB15 (2016) HDTVRip [H.264/720p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945673.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ Dmitry Tikhonkikh | OpenGL ES 2.0 (Части 1-17) (2018) HDRip
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945045.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944937.jpg" />
 </div>
 
 
@@ -250,7 +276,7 @@ Fotoshkola | Фотография в путешествии (2014) CamRip [H.264
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944887.jpg" />
 </div>
 
 
@@ -276,7 +302,7 @@ OTUS | Нейронные сети на Python (2019) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944756.jpg" />
 </div>
 
 
@@ -302,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944069.jpg" />
 </div>
 
 
@@ -331,7 +357,7 @@ Les Mills | COMBAT - Ultimate Warrior Kit (2012) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944001.jpg" />
 </div>
 
 
@@ -357,7 +383,7 @@ Pluralsight.com | Основы Cinema 4D Mograph / Cinema 4D Mograph Fundamental
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943495.jpg" />
 </div>
 
 
@@ -384,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943246.jpg" />
 </div>
 
 
@@ -413,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942811.jpg" />
 </div>
 
 
@@ -442,7 +468,7 @@ PentestIT | Корпоративные лаборатории тестирова
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941358.jpg" />
 </div>
 
 
@@ -471,7 +497,7 @@ ITVDN | Видео курс Unity3D Starter 2015 | PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941351.jpg" />
 </div>
 
 
@@ -497,7 +523,7 @@ Baswood Трейдинг | Профессиональный Дейтрейдин
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940948.jpg" />
 </div>
 
 
@@ -525,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940811.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940570.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ Udemy.com | InDesign CC 2019 MasterClass (2019) PCRec [H.264/720p-LQ] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940516.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940291.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ Mytrade Алексей Мартьянов | Мой личный опыт (2013) 
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939618.jpg" />
 </div>
 
 
@@ -660,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939547.jpg" />
 </div>
 
 
@@ -672,33 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7BFAE57967B4049BBB1DEC3FED2F7C09DFD5DD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983637   (939545) от 08.02.2016
-
-Роман Кротов | Как парсить сайты (2015) PCRec [H.264]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939545.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом видеокурсе Вы в мельчайших подробностях, по шагам научитесь парсить любые сайты и зарабатывать на этом деньги. Этот курс рассчитан на тех, кто уже владеет основами программирования на PHP и хочет повысить свою квалификацию и заработать на продаже дополнительных услуг по парсингу сайтов.
-Курс начинается с теоретических основ и уже после них мы работаем над (   Читать дальше...   )Жанр: ПарсингПродолжительность: 05:28:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07C6529990424B19479ED9CE7E1D71167514D4D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

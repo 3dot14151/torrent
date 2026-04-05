@@ -1,3 +1,119 @@
+###  Публикация: 1187816   (277385) от 30.11.2017
+
+VA - Best Of Deep House Vol.06 (2017) [FLAC|Lossless|WEB-DL|tracks] <House,Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Shingo Nakamura  -  Always (Extended Mix) 6:52
+02.  The Midnight  -  Endless Summer (Marsh Remix) 6:50
+03.  Eskai  -  Mimi (Extended Mix) 5:36
+04.  LTN & Attila Syah  -  Fata Morgana (Original Mix) 6:21(   Читать дальше...   )Жанр: House,Deep HouseПродолжительность: 01:33:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FE0B5A4E85B53839F7A72C06EC3755BDDC9A04E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187812   (277302) от 30.11.2017
+
+VA - Aly & Fila - Future Sound of Egypt 524 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fashion Victimz - Conga Conga (Original Mix)
+02. Kamilo Sanclemente & Golan Zocher - El Sol (Roger Martinez Remix)
+03. Kamilo Sanclemente - Azure (Original Mix)
+04. Gabriel Moraes & Rafael Cerato - Coda (NekliFF Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:58:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:337FE0BF7872698125D1F9E5FE9D3EADDAC90A9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187936   (277301) от 30.11.2017
+
+VA - Uplifting Only: Fan Favorites 2016-2017 (Mixed By Ori Uplift) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nicklifter – Dreams of Paradise (Original Mix - Ori Uplift Intro Edit)
+02. Braulio Stefield – Chain Of Memories (Original Mix)
+03. Ikerya Project, Danny Claire & O.B.M Notion – Goodbye (Original Mix)
+04. Voices – Dance Of The Snowflakes (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 04:57:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A226494A20B1083FF265B53BDE999A1008E516F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187837   (277300) от 30.11.2017
+
+VA - Venice Cafe Chillout Relax 2017 [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dubai Sunrise – Sorrow Melodies
+02. Claude Eagle – Digital Salinas (Radio Version
+03. Jimmy Freeplace – Color Dust (Radio Version)
+04. Tranquil Wellness Emotions of – Cream Flute(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:57:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:200592D9F1EDD7555B99F419F230EC5E5CF40E72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1187904   (277290) от 30.11.2017
 
 VA - Armada Winter Chill (2017) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -6,7 +122,7 @@ VA - Armada Winter Chill (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277290.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Vocal Trance Hits - Best Of (2017) [MP3|320 Kbps] <Trance,Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277157.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Armin van Buuren - Oldskool (Mini Album) (2016) [Scene] [FLAC|Lossless|tracks] <
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277128.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276975.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Caim - Flaneur (2018) Caim Records [FLAC|Lossless|WEB-DL|tracks] <Deep House, El
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276607.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Dirty South - Darko (2018) [MP3|320 Kbps] <House, Melodic House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276581.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Chill Out Empire (25 Smooth Anthems), Vol. 1 (2018) [FLAC|Lossless|WEB-DL|t
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276576.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Uplifting Trance 2019 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance, Voca
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276516.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - 90s The Collection Vol.1 (2018) 2CD [MP3|320 Kbps] <Euro House, Eurobeat, E
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276501.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Jan Blomqvist - Disconnected (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276491.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Kamasutra Erotic & Sexy Compilation (Love Making Lounge & Chillout) (2015) 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276463.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Eternalsun Residents Allstars - 40 Different Club Works! (2019) [MP3|320 Kb
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276370.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - Drive Radio Selection Vol. 2 (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthwav
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276314.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Va - Cafe Del Mar XVII-Volumen Diecisiete (2011) (2CD) [FLAC|Lossless|tracks + .
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276308.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ VA - Progressive Essentials Vol.7 (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276199.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - Chilling Process Vol.10 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276195.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ VA - Vocal Trance Anthems Vol. 3 (2017) [MP3|320 Kbps] <Trance,Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276163.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ VA - Vocal Dance Vol.3 (2017) [MP3|320 Kbps] <Vocal Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276156.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Lustmord - Hobart (June 12 2016) (2017) [FLAC|Lossless|tracks+.cue] <Dark Ambien
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276154.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Matt Darey - Wolf (Album Mixes) (2017) [MP3|320 Kbps] <House, Progressive, Deep 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276152.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - Buddha Del Mar (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276148.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Matt Darey - Wolf (Extended DJ Mixes) (2017) [MP3|320 Kbps] <House, Progressive,
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276145.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Matt Darey - Wolf (Extended DJ Mixes) (2017) [MP3|320 Kbps] <House, Progressive,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A01B712D64E27127E92E0C9FAE229D50E8825B22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187896   (276142) от 01.12.2017
-
-Matt Darey - Wolf (Extended DJ Mixes) (2017) [FLAC|Lossless|WEB-DL|tracks] <House, Progressive, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  One More Night In Stars (Intro Mix) 7:11
-02.  Ashamed (feat. Billie Fountain) (122 BPM Mix) 9:15
-03.  Promises (feat. Patchy) (122 BPM Intro Mix) 10:58
-04.  Dream Of Me (feat. The Ridgewalkers & Deepnite) (Extended Mix) 6:17(   Читать дальше...   )Жанр: House, Progressive, Deep HouseПродолжительность: 02:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E38DFA634937C87791E0151F77A473746F1F983
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337134   (276121) от 09.11.2019
-
-VA - Live @ Another Dimension, Transmission Prague, O2 Arena Prague, Czech Republic 2019-10-12 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Thomas Coastline @ Another Dimension, Transmission Prague, O2 Arena Prague, Czech Republic 2019-10-12
-
-01. Juan Pablo ft. Alessandro Di Rienzo - Nature (Remix)
-02. Matchy - Irreversible(   Читать дальше...   )Жанр: TranceПродолжительность: 08:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B68E4B1362401D35441A8DECD2F77222BDDE9B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188011   (276115) от 01.12.2017
-
-Thomas Lemmer - Ambitronic (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, Chillout>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A I (4:58)
- 02. A II (5:45)
- 03. A III (5:54)
- 04. A IV (4:14)(   Читать дальше...   )Жанр: Ambient, Downtempo, ChilloutПродолжительность: 00:59:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B29397A7D18ABEC87509EAB8F87FB14DFBB7830
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082991   (276100) от 14.12.2016
-
-VA - Midnight Lounge Vol.18: Deep Essential (2016) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Azket & Jay Hey - Manifest 6:59
-02. Alex & Chris - Back In Time 7:49
-03. Beat Ballistick - Deeper 5:51
-04. S.Poliugaev - Slow (Instrumentall Mix) 6:50(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:40:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E315FFDF2A2EB9AC5166FCB617FA6C3CC00B708A
 ```
 
 https://mybot314.ru/tekegram_catalog/

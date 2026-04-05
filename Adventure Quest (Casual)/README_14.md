@@ -6,7 +6,7 @@ Kronville: Stolen Dreams / Кронвилль: Украденные Сны (2015
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770112.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Haunted Hotel 11: The Axiom Butcher / Проклятый отель 11: Мань
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770067.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ The Last Dream (2015) [Ru/Multi] (1.0) Repack Other s [Developer's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769460.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Spirit Legends 3: Time for / Легенды Духов 3: Время перем�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769196.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Fatal Evidence 2: The Missing / Роковые улики 2: Пропавшие 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769185.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Hidden Expedition 19: The Price of Paradise (2020) [En] (1.0) Unofficial [Collec
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768913.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Demon Hunter V: Ascendance (2018) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768521.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ The Curious Expedition (2016) [Ru/Multi] (1.3.13.5) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768207.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Secrets of Great Queens 2: Regicide (2018) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767787.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Fear For Sale 12: Tiny Terrors (2018) [En] (1.0) Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767741.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Queen's Quest 5: Symphony of Death (2019) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767733.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Secret City 2: The Sunken Kingdom (2019) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767675.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Haunted Manor 5: Halloween's Uninvited Guest (2018) [En] (1.0) Unofficial [Colle
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766924.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Dark City 2: Munich (2018) [En] (1.0) Unofficial [Collector's Edition / Колл
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766920.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Queen's Quest: Tower of Darkness / Королевский квест: Тёмна
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766683.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Vermillion Watch 4: In Blood / Алый дозор 4: Ценою крови (201
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766552.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Halloween Chronicles: Monsters Among Us (2018) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766033.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Paranormal Files: Fellow Traveler / Паранормальные явления:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765956.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Greed 3: Old Enemies Returning / Жадность 3: Старые враги в�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765713.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Shadowplay 3: The Forsaken Island (2018) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764390.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Wanderlust: What Lies Beneath / Жажда странствий: Что утаи
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764387.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ PuppetShow 15: Porcelain Smile (2019) [En] (1.0) Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764373.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Greed 3: Old Enemies Returning (2017) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763646.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ The Christmas Spirit 5: Golden Ticket / Дух Рождества 5: Золот�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763333.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Grim Tales 21: Echo of the Past / Страшные сказки 21: Эхо пр�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763326.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Chronicles of Magic: Divided Kingdoms / Магические Хроники: Р�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762992.jpg" />
 </div>
 
 

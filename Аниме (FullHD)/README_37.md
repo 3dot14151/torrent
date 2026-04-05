@@ -6,7 +6,7 @@ Dagashi Kashi | Магазинчик дешёвых сладостей [2016, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366418.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Chou Kadou Girl 1/6 | Amazing Stranger | Ускоренная девушка [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366022.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Miru Tights | Созерцая колготки [2019, Web, 12 эп. + 1 SP] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365545.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Aragne no Mushikago | Aragne: Sign of Vermilion | Клетка с насеком
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365540.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Toaru Majutsu no Index III | A Certain Magical Index III | Индекс волш
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365529.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Tengen Toppa Gurren Lagann / Heavenly Breakthrough Gurren Lagann / Гуррен-
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364619.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Dance In The Vampire Bund | Танец на Вампирском берегу [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364127.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Jouran: The Princess of Snow and Blood | Смута. Принцесса снег
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364038.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Cyberpunk: Edgerunners | Киберпанк: Бегущие по краю [2022,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363287.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Beelzebub-jou no Oki ni Mesu Mama. | As Miss Beelzebub Likes. | Как госп�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361032.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Kikou Kai Galient | Panzer World Galient | Галиент [ТВ] [1984, TV, 25 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361025.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Ladies versus Butlers! / Ladies vs. Butlers! / Леди против Дворе�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359457.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Tensei Shitara Slime Datta Ken | That Time I Got Reincarnated as a Slime | О м
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358769.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Zero kara Hajimeru Mahou no Sho | Grimoire of Zero | Книга магии дл�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358309.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Gekijouban Soushuuhen Overlord | Повелитель (компиляция ТВ
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353002.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Log Horizon 2 | Лог Горизонтa  2 [TV-2][2014, TV, 25 эп.] BDrip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352902.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Mitsuami no Kamisama | Pigtails | Богиня с косичками [2015, Movi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351396.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Kemono Friends | Животные-друзья | Дикие друзья [2017, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351132.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Queen's Blade Unlimited | Клинок Королевы: Безграничны�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350650.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Queen's Blade: Rebellion | Клинок Королевы: Мятеж [2012, TV +
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350508.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Queen's Blade: Rurou no Senshi | Queen's Blade: Wandering Warriors | Клино�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350501.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Queen's Blade: Utsukushiki Toushitachi | Queen's Blade: Beautiful Warriors | К�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350497.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Queen's Blade: Vanquished Queens | Клинок королевы: Поверже
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350490.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Ame o Tsugeru Hyouryuu Danchi | Drifting Home | Плавучий дом [2022, M
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350163.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Sengoku Collection / Parallel World Samurai / Коллекции смутног�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345761.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Sakamichi no Apollon / Аполлон: Дети на холме [2012, TV, 12 с
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345759.jpg" />
 </div>
 
 

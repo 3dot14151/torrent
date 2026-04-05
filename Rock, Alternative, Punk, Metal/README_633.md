@@ -1,3 +1,32 @@
+###  Публикация: 1571177   (434049) от 21.08.2022
+
+Void Vator - Great Fear Rising (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can’t Take It (03:36)
+02. I Want More (03:23)
+03. There’s Something Wrong With Us (03:17)
+04. Losing Control (03:39)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:32:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14A616D554B10798FB94DC98DD9E5C5216FACC86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1571145   (434045) от 21.08.2022
 
 Bloody Heels - Rotten Romance (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -6,7 +35,7 @@ Bloody Heels - Rotten Romance (2022) [FLAC|Lossless|image + .cue] <Melodic Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434045.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Magic Dance - Remnants (2020) [FLAC|Lossless|image + .cue] <Melodic  Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434036.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Deaf Havana - The Present Is a Foreign Land (2022) [MP3|320 kbps] <Alternative R
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434034.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Bill Champlin - Livin' For Love (2021) Japanese Edition [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434032.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Seasons Of The Wolf - Lost In Hell (1999) [FLAC|Lossless]<Progressive Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433976.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Amon Amarth - The Great Heathen Army (2022) [MP3|320 kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433953.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ H.E.A.T - Force Majeure (2022) Japanese Edition [MP3|320 kbps] <Hard Rock, AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433950.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Generation Radio - Generation Radio (2022) Japanese Edition [FLAC|Lossless|image
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433945.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Liam Gallagher - C'mon You Know (2022) Deluxe CD [MP3|320 kbps] <Indie Rock, Bri
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433938.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Vreid - Solverv (2015) [MP3|320 кб/с]<Melodic Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433934.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Electric Hoodoo - Electric Hoodoo (2015) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433924.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Loverboy - Turn Me Loose (1999) [FLAC|image+.cue]<Hard Rock, AOR>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433915.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Arch Enemy - Deceivers (2022) [MP3|320 kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433848.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Deep Purple - Bombay Calling (Live in 95) (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433841.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433827.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ The Zombies - Still Got That Hunger (2015) [OGG| 450-508 кб/с]<Classic Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433820.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Bad Company - Rock 'N' Roll Fantasy: The Very Best Of Bad Company (2015) [MP3|32
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433814.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Bad Company - Rock 'N' Roll Fantasy: The Very Best Of Bad Company (2015) [FLAC|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433813.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433734.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ Smokie - Gold (2020) 3xCD [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433733.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ Manticora - Roots Of Eternity (1999) [APE|Lossless|image + .cue] <Progressive Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433611.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ Drakkar - X-Rated (1988) [FLAC|Lossless|image + .cue] <Power Metal, Speed Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433608.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ Urna - Mors Principium Est (2013) [FLAC|Lossless|image + .cue] <Funeral Doom Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433603.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ Sparta - Wiretap Scars (2002) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alterna
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433602.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ Trillium - Tectonic (2018) Japan [FLAC|Lossless|image + .cue] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433457.jpg" />
 </div>
 
 
@@ -717,35 +746,6 @@ Trillium - Tectonic (2018) Japan [FLAC|Lossless|image + .cue] <Symphonic Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09C5BB3368EB7E367BED33BF45692897DFB5383F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249709   (433455) от 24.09.2018
-
-Chaos Magic ) - Chaos Magic (Japanese Edition (2015) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Alive
-02. Dangerous Game
-03. One Drop Of Blood
-04. Seraphim(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:55:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8690428859AA8FAE056C2F84C0E3AB95F56A29F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

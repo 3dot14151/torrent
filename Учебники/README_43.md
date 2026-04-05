@@ -1,3 +1,57 @@
+###  Публикация: 1142645   (640662) от 15.06.2017
+
+С.К. Варлатая, М.В. Шаханова | Защита информационных процессов в компьютерных сетях (2015) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебно-методический комплекс содержит рабочую учебную программу, учебное пособие, а также актуальный материал справочно-аналитического характера по теме "Зашита информационных процессов в компьютерных сетях".
+ В учебном пособии отражаются основные методы защиты информации в компьютерных сетях и стандарты оценки защищенности таких сетей. Особое внимание уделено (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C49F1428D83E91FE5C20F8CB1576FB22F6A3437B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542098   (640603) от 05.04.2022
+
+Ю.П. Галишников | Трансформаторы и электрические машины (2021) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее издание отличается тем, что в нем описаны особенности работы, возможности и ограничения электрических машин как элементов сложных систем больше, чем «анатомия» самих машин. Для более полного раскрытия предмета рассмотрены переходные электро­магнитные и электромеханические процессы.
+Предназначено студентам, обучающимся по направлению 13.03.02 «Электроэнергетика (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06FFEF0FBD4018F3E6DD5D587299E5CE81AF01BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907099   (639730) от 11.06.2015
 
 Гопал Дюбей | Основные принципы устройства электроприводов (2009) [DJVU]
@@ -6,7 +60,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639730.jpg" />
 </div>
 
 
@@ -34,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639648.jpg" />
 </div>
 
 
@@ -62,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639552.jpg" />
 </div>
 
 
@@ -88,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639549.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639379.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639224.jpg" />
 </div>
 
 
@@ -168,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639173.jpg" />
 </div>
 
 
@@ -194,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639016.jpg" />
 </div>
 
 
@@ -220,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638900.jpg" />
 </div>
 
 
@@ -247,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638770.jpg" />
 </div>
 
 
@@ -275,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638764.jpg" />
 </div>
 
 
@@ -302,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638638.jpg" />
 </div>
 
 
@@ -329,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638040.jpg" />
 </div>
 
 
@@ -356,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637971.jpg" />
 </div>
 
 
@@ -382,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637939.jpg" />
 </div>
 
 
@@ -408,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637886.jpg" />
 </div>
 
 
@@ -436,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637762.jpg" />
 </div>
 
 
@@ -462,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637753.jpg" />
 </div>
 
 
@@ -488,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637743.jpg" />
 </div>
 
 
@@ -516,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637634.jpg" />
 </div>
 
 
@@ -542,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637627.jpg" />
 </div>
 
 
@@ -568,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637437.jpg" />
 </div>
 
 
@@ -594,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637430.jpg" />
 </div>
 
 
@@ -621,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637324.jpg" />
 </div>
 
 
@@ -633,59 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B72CD6A69AE4BFFB6DC609040F5A5D79BD7AFB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907946   (635962) от 13.06.2015
-
-М. М. Манаева, Ю. В. Николенко | Каменные и армокаменные конструкции (2013) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие составлено в соответствии с программой дисциплины «Железобетонные и каменные конструкции» - избранные главы - «Каменные и армокаменные конструкции» и отражает вопросы проектирования и возведения конструкций зданий, выполненных из каменной кладки.
-В пособии рассматриваются механические свойства материалов, применяемых для каменных и армокаменных конструкций; (   Читать дальше...   )Жанр: Учебники и учебные пособия для ВУЗов, СтроительствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D71A4CC00E7691D81F2B18287F72753490B9969D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907498   (635727) от 13.06.2015
-
-Н.Н. Никифоров | Учебник сержанта артиллерии. Книга первая (1947) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник предназначен в первую очередь для подготовки сержантов артиллерии. Он может быть применён также при подготовке учащихся артиллерийских подготовительных училищ и для первоначальной подготовки курсантов артиллерийских училищ, которые не прошли курса подготовительного училища.Жанр: учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB661CC0B9962F5E120283F3C6DA7A3CB5CCC542
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,134 +1,3 @@
-###  Публикация: 1645097   (233500) от 08.07.2023
-
-А.М. Кутепов и др. | Химическая гидродинамика: Справочное пособие (1996) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233500.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой краткий справочник по химической гидродинамике и смежным разделам гидродинамики, тепломассообмена, механики дисперсных систем и химической технологии. Исследуется движение и массоперенос в трубах, каналах, пленках, струях и пограничных слоях. Рассматривается обтекание и массо- и теплообмен частиц, капель и пузырей различной формы с поступательным (   Читать дальше...   )Жанр: ХимияИздательство: КвантумФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EA93C7CAEA7F1BC388A712B1607E79AA43E2E84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645008   (233479) от 08.07.2023
-
-А.Д. Полянин | Лекции по нелинейным уравнениям математической физики (2023) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Излагаются эффективные аналитические методы построения точных решений нелинейных уравнений математической физики и механики. Описаны методы обобщенного и функционального разделения переменных, прямой метод построения редукций (метод Кларксона — Крускала), метод поиска слабых симметрий, метод дифференциальных связей и некоторые другие методы. Показано, что точные (   Читать дальше...   )Жанр: МатематикаИздательство: ИПМех РАНФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFF0215E9D10E4614EB13006ECC27083669AF25F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645099   (233432) от 08.07.2023
-
-А.Д. Полянин, А.И. Журов | Методы разделения переменных и точные решения нелинейных уравнений математической физики (2020) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена описанию и применению методов обобщенного и функционального разделения переменных, используемых для поиска точных решений нелинейных уравнений с частными производными. Достаточно подробно рассматривается также прямой метод построения редукций (во многом родственный методам функционального разделения переменных) и его более общая версия, основанная (   Читать дальше...   )Жанр: МатематикаИздательство: ИПМех РАНФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FD2ECE2394CA41EAC8E75D3E5A285ACC766EFB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645004   (233424) от 08.07.2023
-
-А.Д. Полянин | Точные решения дифференциальных, интегральных, функциональных и других математических уравнений (2023) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена точным решениям математических уравнений различных типов (алгебраических, трансцендентных, обыкновенных дифференциальных, с частными производными первого порядка, математической физики, интегральных, функциональных, дифференциальных с запаздыванием, функционально-дифференциальных и др.). Особое внимание уделяется уравнениям, которые встречаются в (   Читать дальше...   )Жанр: МатематикаИздательство: ИПМех РАНФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B5098029750E3F8521D9FEA614B8A8264745791
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634504   (233413) от 20.05.2023
-
-Е.О. Степанов | Кросс-платформенные и многозвенные технологии (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233413.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящее время аппаратные и программные платформы и технологии стремительно развиваются, непрерывно появляются все новые и новые возможности. В то же время, налицо тенденция к интероперабельности (interoperability) платформ и совместимости технологий.
-В данном курсе рассматриваются основные тенденции этого развития, а также основные технологии, предназначенные (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:631B7A448324979398F0FF174981A3B19AF65750
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1634671   (233303) от 21.05.2023
 
 С.А. Немнюгин | Программирование на Intel Cilk Plus (2016) [PDF]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233303.jpg" />
 </div>
 
 
@@ -163,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233266.jpg" />
 </div>
 
 
@@ -190,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233185.jpg" />
 </div>
 
 
@@ -217,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232994.jpg" />
 </div>
 
 
@@ -243,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232936.jpg" />
 </div>
 
 
@@ -269,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232907.jpg" />
 </div>
 
 
@@ -296,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232897.jpg" />
 </div>
 
 
@@ -322,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232756.jpg" />
 </div>
 
 
@@ -349,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232728.jpg" />
 </div>
 
 
@@ -375,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232695.jpg" />
 </div>
 
 
@@ -401,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232667.jpg" />
 </div>
 
 
@@ -428,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232630.jpg" />
 </div>
 
 
@@ -455,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232585.jpg" />
 </div>
 
 
@@ -482,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232502.jpg" />
 </div>
 
 
@@ -511,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232471.jpg" />
 </div>
 
 
@@ -538,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232415.jpg" />
 </div>
 
 
@@ -564,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232387.jpg" />
 </div>
 
 
@@ -591,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232385.jpg" />
 </div>
 
 
@@ -618,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232373.jpg" />
 </div>
 
 
@@ -644,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232343.jpg" />
 </div>
 
 
@@ -671,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232113.jpg" />
 </div>
 
 
@@ -682,6 +551,142 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BEEEC009608122FAC283E95E1295DC9F6599E15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580564   (231966) от 01.10.2022
+
+П.В. Егоров | Пиво в СССР. Краткая энциклопедия сортов (2021) [FB2]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сколько сортов пива было в СССР? Один – «Жигулёвское» или два – «пиво есть» и «пива нет»? А может их было целых 350?
+Когда появилось «Жигулёвское» и «Рижское»? И насколько похоже современное «Жигулёвское» на то, что варили до войны?
+Было ли в СССР безалкогольное пиво и наоборот – очень крепкие сорта не уступающие нынешним по содержанию алкоголя?
+Варился ли в СССР (   Читать дальше...   )Жанр: Техническая литература, Наука и ОбразованиеЯзык: РусскийФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95DBFF5B99DBC315401300D0D3BABC6AA2156ECE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636040   (231908) от 28.05.2023
+
+Брюс Экер, Робин Тицик, Лорел Халли | Разблокирование эмоционального мозга. Окончательное устранение симптомов при помощи реконсолидации памяти (2023) [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231908.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагается новый, основанный на результатах новейших исследований в нейронауке подход, помогающий добиться глубинной трансформации губительных неявных эмоциональных представлений в работе с самыми разными проблемами и ситуациями. Отражены новейшие нейропсихологические исследования, описывающие способность мозга изменять давние болезненные воспоминания. Авторы обучают (   Читать дальше...   )Жанр: Психотерапия, нейробиология, психологияПеревод: Т.Е. КондратенкоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21C9B18F9F46676A0F0B629FE37FEE7FDE4FB1B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581029   (231568) от 03.10.2022
+
+Михаил Бажмин | Секс, смерть и галоперидол. Как работает мозг преступника. Судебная психиатрия как она есть (2022) [FB2]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231568.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сумасшедшие истории из практики судебного психиатра с точными и искрометными комментариями автора. Каждая история пробирает до мурашек и никого не оставит равнодушным.Жанр: Научно-популярная литература, Врачи о врачах и пациентах, Криминальная психологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38D00C8BAAB7F4327CED8E6AC9B95CEFD58091CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581187   (231492) от 04.10.2022
+
+Л.П. Финкельштейн | Домашний репетитор (1995) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия "Домашний репетитор. Избранные главы конкурсной математики в методах и задачах" состоит из четырех книг:
+- Уравнения, неравенства и системы в школьном курсе алгебры;
+- Тригонометрия. Доказательство тождеств, упрощение выражений, решение уравнений и систем;
+- Задачи с модулем; Задачи на построение;(   Читать дальше...   )Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69994DB8934A3E84BCD7E6ADBF6299976D6E3EB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636571   (231433) от 31.05.2023
+
+В.М. Пасецкий | Арктические путешествия россиян (1974) [DJVU]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231433.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге воссоздается картина отечественных исследований на севере России с начала до 60-х годов прошлого века. Автор показывает становление и развитие научных представлений о Северном Ледовитом океане, по-новому освещает важнейшие историко-географические вопросы: о северном проходе между Атлантическим и Тихим океанами, об экспедициях на северо-восток Сибири и на (   Читать дальше...   )Жанр: научно-популярнаяФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4A320492ACAD2FE220A4445F53A8747BE62547D
 ```
 
 https://mybot314.ru/tekegram_catalog/

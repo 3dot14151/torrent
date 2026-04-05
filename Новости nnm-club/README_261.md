@@ -1,3 +1,57 @@
+###  Публикация: 593459   (134282) от 24.12.2012
+
+Need for Speed ProStreet [Ru/En] (Repack/1.1)  2007 l R.G. Games
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самые дорогие машины со всего света, умопомрачительный тюнинг, свет ксенона и нереальные скорости — нелегальные гонки всегда привлекали сорвиголов на самых быстрых шедеврах автопрома. Но со временем культура и мода меняются. Любители быстрой езды вышли в свет и перестали прятаться от полиции: новые соревнования проводятся официально на специальных трассах во всех частях планеты. Хобби «золотой молодежи» превратилось в самостоятельный вид спорта со своими правилами, спонсорами и чемпионами.
+
+Новая часть знаменитой гоночной серии Need for Speed меняется вслед за самими гонками. Больше не нужно прятаться от властей и рисковать в нелегальных заездах. Теперь самый опасный враг — не полиция, а хитрые и стремительные соперники. Они действуют агрессивно и в любой момент готовы подрезать машину оппонента или столкнуть ее в кювет, превратив в бесформенную груду железа. Эра бессмертных автомобилей прошла! Любого четырехколесного коня можно разбить вдребезги: мнется и отваливается буквально все — капот, бампера, спойлеры, крыша, крылья, стекла и даже колеса. ProStreet — не просто очередной эпизод сериала, это — новый уровень реализма и зрелищности, доступный всем!   (   Читать дальше...   )Тип издания: RepackРазработчик: EA Black BoxЖанр: Arcade / Racing (Cars) / 3DЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594076   (133802) от 25.12.2012
+
+ProDAD Mercalli V2 Stand Alone (SAL) 2.1.4700 + Plugin 2.0.105.1 RePack by PooShock [Английский]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mercalli - интуитивный и простой инструмент для программной стабилизации видео, незаменимый при видеомонтаже. Mercalli устанавливается плагином в большинство популярных видеоредакторов, кроме этого может работать как самостоятельное приложение. Mercalli обнаруживает и различает тряску между движениями (панорамирование и увеличение снимка, случайные удары или тряску). Программа Mercalli стабилизирует кадр, изменяя позицию всего изображения для компенсации пагубной тряски. Эта функция позволяет уменьшить тряску камеры и улучшает видимость объекта! В результате вы всегда получите значительные улучшения видеоряда и даже лучшую запись, которая может быть достигнута при редактировании после съемки!Название программы: ProDAD Mercalli V2 Stand Alone (SAL) + PluginЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 594172   (133794) от 25.12.2012
 
 Rammstein: Music Videos (1995-2012) [1080p] Blu-Ray
@@ -6,7 +60,7 @@ Rammstein: Music Videos (1995-2012) [1080p] Blu-Ray
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133794.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133782.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ Parallels Desktop 8.0.18101 [En/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133780.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ Navitel / Навител: Официальные карты релиза Q3 2023
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133553.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ Plants vs. Zombies [Ru/En] (RePack/3.1) 2009 | R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133311.jpg" />
 </div>
 
 
@@ -144,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133199.jpg" />
 </div>
 
 
@@ -170,7 +224,7 @@ FUEL [Ru/En] (RePack) 2009 | R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132878.jpg" />
 </div>
 
 
@@ -202,7 +256,7 @@ Far Cry 3 [Ru] (RePack/1.04) 2012 | Audioslave
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132876.jpg" />
 </div>
 
 
@@ -229,7 +283,7 @@ Adobe Photoshop for Mac 2024 v.25.2.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132802.jpg" />
 </div>
 
 
@@ -255,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132785.jpg" />
 </div>
 
 
@@ -281,7 +335,7 @@ First Squad - The Moment Of Truth / Первый отряд. Момент ист
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132399.jpg" />
 </div>
 
 
@@ -307,7 +361,7 @@ Tonari no Kaibutsu-kun / Мой безбашенный сосед [2012, TV, 13 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132378.jpg" />
 </div>
 
 
@@ -335,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132371.jpg" />
 </div>
 
 
@@ -365,7 +419,7 @@ Alan Wake Дилогия [Ru/En] (Repack) 2012 | R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132360.jpg" />
 </div>
 
 
@@ -392,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132357.jpg" />
 </div>
 
 
@@ -418,7 +472,7 @@ The War Z [En] (RePack/0.9.3) 2012 | R.G. Element Arts
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131764.jpg" />
 </div>
 
 
@@ -451,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131257.jpg" />
 </div>
 
 
@@ -477,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131218.jpg" />
 </div>
 
 
@@ -503,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131148.jpg" />
 </div>
 
 
@@ -529,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130927.jpg" />
 </div>
 
 
@@ -555,7 +609,7 @@ Final Fantasy X International [En/Jap] (RePack/Emul) 2002 | MarkusEVO
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130349.jpg" />
 </div>
 
 
@@ -582,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130238.jpg" />
 </div>
 
 
@@ -608,7 +662,7 @@ Adobe Photoshop 2022 23.1.1.202 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130235.jpg" />
 </div>
 
 
@@ -634,7 +688,7 @@ Lucky Patcher 9.8.7 [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130233.jpg" />
 </div>
 
 
@@ -645,63 +699,6 @@ Lucky Patcher (Лаки патчер) – отличное решение есл
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82EEE26A7260AE7F417E00CBFC9905F0D6D87D1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311866   (130229) от 19.01.2022
-
-Книжная серия | Наши там [284 книги] (2010-2022) [FB2] [Обновляемая]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наши там - очень неплохая серия фантастики, которая объединяет циклы произведений российских авторов.
-В этих книгах главные герои - наши современники, и находятся они - там. Где это там? А в прошлом: в каменном веке, в объятиях дикой природы прибайкальской тайги XXVII века, в средневековье параллельного мира...
-***
-Есть ли жизнь после смерти? Этим вопросом Олег Крайнов (   Читать дальше...   )Жанр: Боевая фантастика, Боевое фэнтези, Альтернативная история, ПопаданцыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E644CC2080F4BDB9774F5325891E7AB5317D9655
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491211   (130172) от 02.05.2012
-
-Суд запретил Microsoft продавать Windows 7 и Xbox 360 в Германии
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130172.jpg" />
-</div>
-
-
-###  Подробнее
-
-
-Суд в Мангейме предписал убрать с немецкого рынка ряд продуктов Microsoft, включая игровые консоли Xbox 360 и операционную систему Windows 7, сообщает Reuters.Эти продукты нарушают принадлежащие компании Motorola Mobility патенты, постановил судья Хольгер Кирхер (Holger Kircher). Патенты касаются алгоритмов сжатия видео и беспроводного подключения к интернету.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

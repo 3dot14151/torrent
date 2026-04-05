@@ -6,7 +6,7 @@ Maciej Malenczuk - Pan Malenczuk (1988) [FLAC|Lossless|tracks + .cue] <Pop/Rock,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163932.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Rod Stewart - The Tears of Hercules (2021) Japanese Edition [FLAC|Lossless|image
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162854.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Whitney Houston - I Wanna Dance With Somebody (2022) [FLAC 2.0|44/24|tracks|WEB-
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162402.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Ramon Roselly - Herzenssache (Platin Edition) (2020) [FLAC|Lossless|image + .cue
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162298.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Mellow Easy Chilled Pop (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162230.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162077.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Lian Ross - The Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161582.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Vanessa Zamora - Tornaluna (2018) [FLAC|Lossless|image + .cue] <Latin, Indie, Fo
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161422.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Sade - Bring Me Home: Live 2011 (2012) RCA 88691977359 [FLAC|Lossless|image + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161077.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Electronic ( Nen Order, The Smiths ) - Raise The Pressure (1996) [FLAC|Lossless|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161047.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - 130 Original Hits - 70's (2009) 6CD[FLAC|Lossless]<Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160900.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Cliff Richard - Cliff with Strings - My Kinda Life (2023) [FLAC|Lossless|WEB-DL|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160635.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ VA - The Very Best of Love Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160577.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Gwen Stefani - You Make It Feel Like Christmas (2017) Japanese Edition [FLAC|Los
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159632.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Pentatonix - Holidays Around the World (2022) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159288.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Natasha St-Pier - Christmas Album (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159284.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Janet Jackson - Janet Jackson (1982) [FLAC|Lossless|tracks + .cue] <Funk, Disco>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158713.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Atomic Kitten - Right Now (2001) [FLAC|Lossless|tracks + .cue] <Europop, Synth-p
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158706.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Taylor Swift - Fearless (2008) Reissue, Platinum Edition, 2010, BIG Machine Reco
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158626.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Marc Almond - In Session Volume One (2003) [FLAC|Lossless|tracks + .cue] <Synth-
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157146.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Mireille Mathieu - Mireille Mathieu chante Piaf (2023) [FLAC|Lossless|WEB-DL|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157136.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Marc Almond - Stardom Road (2007) [FLAC|Lossless|tracks + .cue] <Ballad>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157130.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ VA - Acoustic Women (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157071.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Chris de Burgh - Beautiful Dreams (1995) [FLAC|Lossless|tracks + .cue] <Acoustic
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156965.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ VA - Amazon Music Best Songs Of 2020 (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156742.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ Shania Twain - Now (2017) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop, Cou
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155453.jpg" />
 </div>
 
 

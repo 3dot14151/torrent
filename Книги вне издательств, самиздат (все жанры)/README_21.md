@@ -1,3 +1,83 @@
+###  Публикация: 1353917   (989641) от 20.01.2020
+
+Иван Снежный | Цикл "Жрец" [3 книги] (2018 - 2019) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодому поколению не нужны нравоучения, им нужны игры! Фан, веселье, приключения! Именно для этого Норман регистрируется в новой ММОRPG игре с полным погружением. Только вот беда, любимый класс лекаря целиком и полностью завязан на вопросах веры. Хватит ли сил разобраться и сохранить себя в мутном омуте религии? И надо ли? Что если вера действительно способна все (   Читать дальше...   )Жанр: Фантастика, Фэнтези, ЛитРПГФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62C20BF26CA593156ABC9271395A08A08A5B89DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353957   (989640) от 20.01.2020
+
+Хайдарали Усманов | Цикл «Дикарь» [2 книги] (2019-2020) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вселенная EVE-online. Попасть в чужое тело? Да легко! Выжить в чужом мире? Да запросто! Особенно если ты в прошлой жизни был каким-то учёным или бойцом элитного спецназа... А вот, что делать, если ты практически ничего не помнишь из своей прошлой жизни? Рядом был старик, который скончался, едва смог поставить тебя на ноги? Да и оказался ты на планете, где сама жизнь (   Читать дальше...   )Жанр: Боевая фантастика, Космическая фантастика, ПопаданцыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABAA9143BFDF0414A5D8993F075ADF40CE32AD96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353947   (989602) от 20.01.2020
+
+Алексей Губарев | Игра на выживание (2020) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989602.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла «По кромке удачи».
+
+Игра началась! Триллионы жителей десятка галактик приникли к своим головизорам, наблюдая за тем, как бойцы из сотен молодых миров бьются не на жизнь, а насмерть за право существовать. Победитель покупает жизнь для своей цивилизации, проигравший- заслуживает уничтожение всей планеты! И в эту мясорубку попадает наш соотечественник, (   Читать дальше...   )Жанр: Боевая фантастика, Космическая фантастика, ПопаданцыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:450AFD26C1EA4EA369FF9503C68F9C61C7B78D62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1354374   (988926) от 21.01.2020
 
 Олег Волков | Цикл «Особый порученец». Под снегом [Том I] (2020) [FB2]
@@ -6,7 +86,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988926.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ Archer | Пять Колец Света. Том 4. Развязка (2019) [FB2]
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988925.jpg" />
 </div>
 
 
@@ -62,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988869.jpg" />
 </div>
 
 
@@ -90,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988001.jpg" />
 </div>
 
 
@@ -117,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987950.jpg" />
 </div>
 
 
@@ -144,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987941.jpg" />
 </div>
 
 
@@ -170,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987877.jpg" />
 </div>
 
 
@@ -196,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986930.jpg" />
 </div>
 
 
@@ -222,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986869.jpg" />
 </div>
 
 
@@ -251,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985883.jpg" />
 </div>
 
 
@@ -277,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985790.jpg" />
 </div>
 
 
@@ -305,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984736.jpg" />
 </div>
 
 
@@ -331,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984610.jpg" />
 </div>
 
 
@@ -357,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984274.jpg" />
 </div>
 
 
@@ -383,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983312.jpg" />
 </div>
 
 
@@ -411,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983250.jpg" />
 </div>
 
 
@@ -437,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983248.jpg" />
 </div>
 
 
@@ -466,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983235.jpg" />
 </div>
 
 
@@ -492,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982289.jpg" />
 </div>
 
 
@@ -518,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982285.jpg" />
 </div>
 
 
@@ -545,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982252.jpg" />
 </div>
 
 
@@ -571,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982217.jpg" />
 </div>
 
 
@@ -598,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981104.jpg" />
 </div>
 
 
@@ -611,88 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAC61B614C2C84FBF1B2154E98084B7956F0A43D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355711   (980812) от 28.01.2020
-
-Алексей Рудаков | Цикл «Записки пилота» [5 книг] (2016-2017) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980812.jpg" />
-</div>
-
-
-###  Подробнее
-
-К 3300 году человечество успело освоить небольшую область Галактики и расселилось по нескольким тысячам звёздных систем. Примерно за 200 лет до описываемых событий закончилась первая галактическая война с инопланетной инсектоидной расой, называющей себя Таргоидами. Главный герой – молодой выпускник Космической Академии, не получивший направления ни в военный флот, (   Читать дальше...   )Жанр: Боевая фантастика, Книги о приключениях, Космическая фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8DC587FD5384FBD7390FA54671E235F41251EED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355992   (980537) от 29.01.2020
-
-Райдер Уиндем | Цикл " Звездные войны. Приключения" [6 книг] (2002 - 2003) [RTF]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта серия рассказывает об Энакине Скайуокере и его учителе Оби-Ване.
-
-После появления легендарного звездолета, планета Фондор и ее луна, Налластия, оказались в шаге от гражданской войны, заявив свои права на обладание им. Только рыцари-джедаи могут разрешить спор и вернуть мир народу Фондора.
-(   Читать дальше...   )Жанр: Фантастика, Фэнтези, Боевая фантастика, КосмоопераФормат: RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B74951B6EBA05222227B69BD763CB81679ECE60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356012   (980531) от 29.01.2020
-
-Майкл Ривз | Цикл "Звездные войны. Ночи Корусканта"  [3 книги] (2008 - 2009) [FB2, RTF]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во времена темного становления Империи, когда рыцари-джедаи практически уничтожены, одному избежавшему резни джедаю предстоит встреча с судьбой — и столкновение с Дартом Вейдером.
-Джакс Паван — один из немногих рыцарей-джедаев, которые чудесным образом пережили бойню, случившуюся после безжалостно отданного Палпатином Приказа 66. Поселившись в корусантских трущобах (   Читать дальше...   )Жанр: Фантастика, Фэнтези, Боевая фантастика, КосмоопераФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66E76CDE4FE5EFF1D0F5CD9866D5F61E79B0926F
 ```
 
 https://mybot314.ru/tekegram_catalog/

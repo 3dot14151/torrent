@@ -1,159 +1,3 @@
-###  Публикация: 1312386   (531948) от 04.07.2019
-
-Н.А. Прохоренок, В.А. Дронов | Python 3 и PyQt 5. Разработка приложений. 2-е изд. (2019) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Описан язык Python 3: типы данных, операторы, условия, циклы, регулярные выражения, функции, инструменты объектно-ориентированного программирования, работа с файлами и каталогами, модули стандартной библиотеки. Особое внимание уделено библиотеке PyQt, позволяющей создавать приложения с графическим интерфейсом. Рассмотрены средства для обработки сигналов и событий, (   Читать дальше...   )Жанр: Программирование, PythonФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E8E12A2E196EA116FA8E0B90B00CE0BC296AE5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558391   (531511) от 20.06.2022
-
-Михаил Райтман | Старший брат следит за тобой. Как защитить себя в цифровом мире (2022) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531511.jpg" />
-</div>
-
-
-###  Подробнее
-
-В эпоху тотальной цифровизации сложно представить свою жизнь без интернета и умных устройств. Но даже люди, осторожно ведущие себя в реальном мире, часто недостаточно внимательно относятся к своей цифровой безопасности. Между тем с последствиями такой беспечности можно столкнуться в любой момент: злоумышленник может перехватить управление автомобилем, а телевизор (   Читать дальше...   )Жанр: Компьютерная литература, безопасностьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDF33137B5646766E3E148D79216B8EB0EA9BF5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558407   (531510) от 20.06.2022
-
-Евгений Умрихин | Разработка Android-приложений на С# с использованием Xamarin с нуля (2021) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены особенности создания Android-приложений при помощи Visual Studio Community на C#. Книга знакомит читателя со структурой проектов Xamarin.Android, с особенностями сборки и отладки приложений. Рассматриваются основные подходы к разработке Android-приложений, методы построения интерфейса, хранения данных, показана интеграция мобильных приложений с веб-службами, (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE732598666542FBA3C8544CA9C9A8A843AEABBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558485   (531336) от 20.06.2022
-
-Мэтт Зандстра | PHP 8: объекты, шаблоны и методики программирования, 6-е издание (2021) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531336.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге рассматриваются методики объектно-ориентированного программирования на PHP и применение главных принципов проектирования программного обеспечения на основе классических проектных шаблонов, а также описываются инструментальные средства и нормы практики разработки, тестирования, непрерывной интеграции и развертывания надежного прикладного кода. Настоящее, (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96917E58E127EDED6746418AD628D1C896BC4E70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926491   (530924) от 11.08.2015
-
-Уильям Р. Станек | Microsoft Windows Server 2012. Справочник администратора (2014) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная книга – краткий и исчерпывающий справочник по администрированию Windows Server 2012. Здесь описаны: управление серверами на базе Windows Server 2012, мониторинг процессов, служб и событий, автоматизация административных задач, улучшение безопасности компьютера, использование и администрирование Active Directory, работа с учетными записями пользователя и группы, (   Читать дальше...   )Жанр: Системное администрированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E0D64C38F343521F873D63D1F38A0747D6A7A5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926555   (530919) от 11.08.2015
-
-Уильям Р. Станек | Microsoft Windows Server 2012 R2. Хранение, безопасность, сетевые компоненты. Справочник администратора. (2015) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530919.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная книга – краткий и исчерпывающий справочник по администрированию Windows Server 2012 R2. Описаны управление файловыми системами и дисками, настройка носителей данных, общий доступ к данным и избыточность, безопасность данных и аудит, улучшение безопасности компьютера, управление пользователями и компьютерами с помощью групповой политики, управление TCP/IP-сетью, (   Читать дальше...   )Жанр: Системное администрированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2FF9936881359B02CC3781B96C47A8D7840124A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 926735   (530915) от 11.08.2015
 
 Стивен Прата | Язык программирования С. Лекции и упражнения. 6-е издание [+ Примеры] (2015) [PDF]
@@ -162,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530915.jpg" />
 </div>
 
 
@@ -188,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530483.jpg" />
 </div>
 
 
@@ -214,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530445.jpg" />
 </div>
 
 
@@ -240,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530377.jpg" />
 </div>
 
 
@@ -266,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530351.jpg" />
 </div>
 
 
@@ -292,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530228.jpg" />
 </div>
 
 
@@ -318,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528583.jpg" />
 </div>
 
 
@@ -344,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527888.jpg" />
 </div>
 
 
@@ -371,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527881.jpg" />
 </div>
 
 
@@ -398,7 +242,7 @@ Wiley | Humble Book Bundle: Cybersecurity [14 книг + доп. материа�
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527571.jpg" />
 </div>
 
 
@@ -425,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526824.jpg" />
 </div>
 
 
@@ -453,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524846.jpg" />
 </div>
 
 
@@ -480,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524812.jpg" />
 </div>
 
 
@@ -508,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524141.jpg" />
 </div>
 
 
@@ -534,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524090.jpg" />
 </div>
 
 
@@ -560,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523391.jpg" />
 </div>
 
 
@@ -586,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523349.jpg" />
 </div>
 
 
@@ -612,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522922.jpg" />
 </div>
 
 
@@ -638,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522712.jpg" />
 </div>
 
 
@@ -665,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522704.jpg" />
 </div>
 
 
@@ -676,6 +520,163 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B90F8096377E6DB4B5CF58C23F96A0BF8D93BFD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240841   (522636) от 14.08.2018
+
+Вон Вернон | Предметно - ориентированное проектирование. Самое основное (2017) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522636.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создание моделей программного обеспечения с помощью предметно-ориентированного проектирования (DDD) принесло много впечатляющих результатов не только в теории, но и на практике. Именно поэтому разработчики во всем мире с энтузиазмом приступили к адаптации DDD. Книга представляет собой краткий справочник по основам DDD. В ней вы найдете ответы на вопросы: "Что (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A07462E67C963D524CA30B15A03664EA481E3997
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241046   (522633) от 14.08.2018
+
+Скотт Миллетт, Ник Тьюн | Предметно-ориентированное проектирование. Паттерны, принципы и методы (2017) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Писать программы легко - во всяком случае с нуля. Но изменить однажды написанный программный код, который создали другие разработчики или вы сами каких-то шесть лет тому назад, - гораздо сложнее. Программа работает, но вы не знаете точно, как именно. Даже обращение к экспертам в предметной области ничего не дает, поскольку в коде не сохранилось никаких следов привычного (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4076FA9EC1DC28D06266338FC46C469B66EA8D2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559973   (522573) от 27.06.2022
+
+Осборн Трэйси | Веб-дизайн для недизайнеров (2022) [PDF]
+
+>>Компьютерная литература
+>>Веб-дизайн
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522573.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Веб дизайн для недизайнеров" содержит все необходимое, чтобы вы чувствовали себя комфортно, занимаясь веб-разработкой, в том числе множество реальных примеров веб-сайтов, которые должны вдохновлять и мотивировать. Не нужно тратить время и деньги на дорогого графического дизайнера, эта книга проведет вас через основы, воспользовавшись самыми быстрыми шоткатами (   Читать дальше...   )Жанр: Дизайн, Электронная коммерцияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:069819D7BAA9EB5983E69F9A3E598D70149965D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560272   (521843) от 28.06.2022
+
+Titus Winters и др. | Software Engineering at Google: Lessons Learned from Programming Over Time, 1st Edition (2020) [EPUB] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521843.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сегодня инженеры-программисты должны знать не только, как эффективно программировать, но и как разрабатывать правильные инженерные методы, чтобы сделать их кодовую базу устойчивой и здоровой. Эта книга подчеркивает эту разницу между программированием и программной инженерией.
+Как инженеры-программисты могут управлять живой кодовой базой, которая развивается и реагирует (   Читать дальше...   )Жанр: ПрограммированиеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F71F69174E05CFEAB39C935005A96102D50FCFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560247   (521842) от 28.06.2022
+
+Jens Gustedt | Modern C, 1st Edition (2019) [EPUB] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы думаете, что «Современный» и «С» не подходят к одному и тому же предложению, подумайте еще раз. Комитет по стандартам C активно пересматривает и расширяет язык, обновляя опубликованные стандарты C совсем недавно, в 2018 году. В Modern C автор Йенс Густедт обучает вас навыкам и функциям, необходимым для написания соответствующих программ на этом проверенном (   Читать дальше...   )Жанр: ПрограммированиеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB531A862D2F330A4B950B703876BB037DA222CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 534058   (521122) от 12.08.2012
+
+R. Huddleston | Teach Yourself Visually. Web Design [2011] [PDF] [En]
+
+>>Компьютерная литература
+>>Веб-дизайн
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самоучитель по созданию сайта "с нуля". Пусть вас не пугает английский язык. Книга отлично иллюстрирована. Процесс обучения доставит вам удовольствие. Рассмотрены этапы от планирования сайта до публикации его в сети. Изложены основы работы с Photoshop, Photoshop Elements, Firework, Illustrator, Dreamweaver, JavaScript и Ajax, а также с CSS, создание таблиц и списков, добавление форм, создание динамических страниц и т.д. (подробнее см. в содержании).Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:564E64B2F284FE977A3B74EED661DFC1AD8CE8ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

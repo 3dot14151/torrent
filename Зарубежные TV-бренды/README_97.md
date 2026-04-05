@@ -6,7 +6,7 @@ NG: Из истории Второй мировой войны. Гражданс
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298670.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NGW: Дикая природа Перу: арена боев – Анды. До�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298602.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ NGW. Голый землекоп: Самый странный супергеро
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298593.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ BBC. Кракатау. Последние дни / Krakatoa. The Last Days (2006
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297335.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ NG. Космический шаттл: триумф и трагедия / The Sp
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296779.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Discovery. Гонка на вымирание / Racing Extinction (2015) HDTVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296711.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Discovery: Шерпа / Sherpa (2015) HDTVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295718.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ NG: Широкий взгляд с Кэлом Пенном / The Big Picture wit
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295474.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ BBC: Чудеса жизни. Серии №1-5 из 5 / Wonders of Life (2013) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295459.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ NG: Расследования авиакатастроф / Air Crash Investigat
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294686.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294518.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292681.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ NG: Дикий Йеллоустоун: Волчица /  Wild Yellowstone: She W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292642.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ BBC: Horizon. Эпоха больших данных / Horizon. Age of Big Data 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292504.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291977.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ NG: Международный аэропорт Дубай. Серия 6 / Ultim
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291623.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ NG: Международный аэропорт Дубай. Серия 7 / Ultim
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291454.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290878.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ NG: Возмездие / Avenging Evil (2018) DVB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289613.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ NG: Международный аэропорт Дубай. Серия 1 / Ultim
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288719.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Discovery Scienceу: НАСА. Необъяснимые материалы / NAS
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288054.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ NG: Международный аэропорт Дубай. Серия 9 / Ultim
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287937.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287407.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ NG: Международный аэропорт Дубай. Серия 8 / Ultim
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287344.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ NGW: TerraMater. Дикая природа Уганды / Wild Uganda (2018) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286130.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Discovery. Священная сталь / Sacred Steel Bikes (2016) HDTVRip [H.
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286082.jpg" />
 </div>
 
 

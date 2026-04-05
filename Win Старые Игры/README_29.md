@@ -1,3 +1,55 @@
+###  Публикация: 1630506   (198990) от 01.05.2023
+
+ArcaniA: Fall of Setarrif (2011) [Multi] (1.1499.0.0) License GOG
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198990.jpg" />
+</div>
+
+
+###  Подробнее
+
+Последнее испытание: ваша судьба решается здесь! На Южные острова вновь упала тень. Кипящий ненавистью загадочный демон сеет повсюду ужас и собирает войска, готовясь напасть на приморский город Сетарриф. Ситуацию ухудшает извержение вулкана в горах недалеко от города. Безымянный герой объединяет силы со своими верными союзниками и храбро выступает навстречу новому (   Читать дальше...   )Тип издания: LicenseРазработчик: Spellbound StudiosЖанр: Экшны, Ролевая играЯзык озвучки: Английский, Немецкий, Испанский, Французский и другиеЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC988B8557F22ED3DF065F009BA70E0283D30E81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631492   (198799) от 06.05.2023
+
+Everlight: Of Magic & Power / Хроники Мелвина. Проклятье эльфов (2008) [En] (1.1) Scene ViTALiTY
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юмористический квест, сюжет которого рассказывает о похождениях Мелвина, подростка, очутившегося в незнакомом волшебном мире. Игра выпущена создателями четвертой и пятой частей Simon the Sorcerer и оформлением и концепцией аналогична им. Без проблем устанавливается и проходится на х64 системах.Тип издания: SceneРазработчик: Silver Style EntertainmentЖанр: Quest, AdventureЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DE36F00BBF81A6DD639E24878FB33E1FC059B30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1633291   (198400) от 14.05.2023
 
 Legacy of Kain: Defiance (2003) [Multi] (1.1hf) License GOG
@@ -6,7 +58,7 @@ Legacy of Kain: Defiance (2003) [Multi] (1.1hf) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198400.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Warhammer 40,000: Chaos Gate (1998) [En] (1.2hf3) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197402.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ An Elder Scrolls Legend: Battlespire (1997) [En] (1.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197385.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Veil of Darkness (1993) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197372.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Desert Law / Койоты: Закон пустыни (2005) [Ru/Multi] (1.0) Lic
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196908.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Warhammer 40,000: Dawn of War (2006) [En] (0.19) License GOG [Master Collection]
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196461.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Velaya - Geschichte einer Kriegerin / Велая - сказание о воит�
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196131.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Dirty Swamp / Грязное Болото (2022) [Ru/De] (3.0.18) Mod
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196123.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ The Gladiators: Galactic Circus Games / Гладиаторы (2002) [Ru] (1.0) L
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196051.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Styx: Master of Shadows (2014) [Ru/Multi] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196018.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Hotel Giant 2 (2008) [Ru/Multi] (1.0.0.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195891.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ M1 Tank Platoon II (1998) [En] (1.0.4.2) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195737.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ European Air War (1998) [En] (1.20) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195703.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Fleet Defender: The F-14 Tomcat Simulation (1994) [En] (2.0) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195688.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ B-17 Flying Fortress: The Mighty 8th / Б-17 Летающая крепость 2
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195565.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ HIND: The Russian Combat Helicopter Simulation (1996) [En] (1.0) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195511.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Cryostasis: Sleep of Reason (2008) [Ru/En] (1.0.1.0) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195241.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Cryostasis: Sleep of Reason (2008) [Ru] (1.0.2.608) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195204.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Mythora / Изгнанник. Лезвие Смерти (2004) [Ru] (1.0) Licens
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195091.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ SimCity (1993) [En] (1.0) Repack R.G. Games [Enhanced]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194991.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ SimCity 2000 (1995) [En] (1.0) Repack dark_elf2 [Special Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194929.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ SimCity 3000 Unlimited (2000) [Ru] (1.0) Unofficial
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194927.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Incredi Beachvolleyball / Улётный пляжный волейбол (2008) 
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194136.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Serious Sam 2 / Крутой Сэм 2 (2005) [Ru/En] (2.100.00:739578) Repack Fi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193466.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Serious Sam 2 / Крутой Сэм 2 (2005) [Ru/En] (2.100.00:739578) Repack Fi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8564AF14244C8DFA1B0657BDFAE878ED7BA26DC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588540   (191189) от 05.11.2022
-
-Diablo: Hellfire - The Hell 2 (2019) [En] (1.2504) Mod
-
->>Win Старые Игры
->>AddOn/DLC/Mod для Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191189.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Hell 2 - это тотальная модификация Diablo: HellFire, которая выводит игровой процесс на новый уровень, превращая игру в нечто похожее на современные рогалики, но со своей особой тёмной игровой атмосферой. В этой модификации можно обнаружить более двадцати подтипов классов персонажей, более тысячи новых вещей и предметов, обширную систему перков, незаурядную систему (   Читать дальше...   )Тип издания: ModРазработчик: Blizzard NorthЖанр: Ролевая игра, Экшны, Дарк фэнтeзи, РогаликЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FA41C7236BC55ECD4188533823B484B32E5D0EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660240   (189547) от 12.09.2023
-
-FIFA 07 (2006) [Ru/Multi] (1.00) Scene iMMXpC
-
->>Win Старые Игры
->>Simulation (Sport)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189547.jpg" />
-</div>
-
-
-###  Подробнее
-
-Усовершенствованный движок, дебютировавший в предыдущей игре и официальной игре чемпионата мира по футболу 2006 года, FIFA Soccer 07 включает в себя улучшенную физику столкновений мяча и игрока, а также дополнительные анимации игроков, добавленные к 16 трюковым движениям и приему первого касания мяча, представленным в игровом движке с предыдущими играми в сериал. (   Читать дальше...   )Тип издания: SceneРазработчик: EA Canada, Exient Entertainment, Electronic Arts CanadaЖанр: СпортЯзык озвучки: Русский, Английский, Чешский, Венгерский и другиеЯзык субтитров: Русский, Английский, Чешский, Венгерский и другиеЯзык интерфейса: Русский, Английский, Чешский, Венгерский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA175059B9FC5D3C3B46DD5026DE7CD67ACEB1BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,81 +1,3 @@
-###  Публикация: 1692013   (122956) от 14.01.2024
-
-Илья Виницкий | О чем молчит соловей. Филологические новеллы о русской культуре от Петра Великого до кобылы Буденного (2022) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122956.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основе книги – цикл «детективных» статей и заметок о культовых и незаслуженно забытых авторах, героях и текстах русской литературы от Александра Пушкина, Льва Толстого, Осипа Мандельштама, Даниила Хармса и Велимира Хлебникова до эстонского фантазера Ивана Народного и безымянного создателя трагической украинской народной песни; от разочарованного офицера Печорина, (   Читать дальше...   )Жанр: Филологические науки, Литературоведение и критикаИздательство: ИД Ивана ЛимбахаФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F391E9A197273813ECE310B6D8630C0202C673B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692026   (122944) от 14.01.2024
-
-Константин Образцов | Знакомьтесь, литература! От Античности до Шекспира (2023) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122944.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга писателя и филолога Константина Образцова позволит по-новому взглянуть на важнейшие произведения мировой литературы, вспомнить забытое и узнать неизвестное! Это не учебник и не конспект университетских лекций, а увлекательное литературное путешествие по Европе сквозь пространство и время. Автор приоткроет тайны древних мистерий и расскажет об античных рок-звездах. (   Читать дальше...   )Жанр: Филологические науки, Литературоведение и критикаИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D0273F056E12C5FA542C2C326B73C81C32C6D2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691952   (122941) от 14.01.2024
-
-Филип Уомэк | Как натаскать вашу собаку по античности и разложить по полочкам основы греко-римской   культуры (2024) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122941.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Греческий и латынь, разумеется, никакие не мертвые. Их жизнь бурлила во все века. Представьте себе реку, у которой несколько устий, а еще вдобавок несколько притоков, и все они впадают в огромное литературно-культурное море. Тексты и мифы, которыми и занимается антиковедение, сейчас актуальны, как и всегда. Этот libellus, или эта книжечка, даст вам все, что нужно (   Читать дальше...   )Жанр: История, Научная литератураПеревод: Наталья С. СорокинаИздательство: КоЛибри, Азбука-АттикусФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC5F7AC4F9609B5E8D90375AB5BA8F0690C0A8FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692408   (122613) от 16.01.2024
 
 Алина Аксёнова | История искусств. Просто о важном. Стили, направления и течения (2019) [EPUB]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122613.jpg" />
 </div>
 
 
@@ -111,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122598.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122594.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122204.jpg" />
 </div>
 
 
@@ -190,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122071.jpg" />
 </div>
 
 
@@ -216,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122063.jpg" />
 </div>
 
 
@@ -242,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121558.jpg" />
 </div>
 
 
@@ -269,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120829.jpg" />
 </div>
 
 
@@ -297,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120665.jpg" />
 </div>
 
 
@@ -323,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120288.jpg" />
 </div>
 
 
@@ -349,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119537.jpg" />
 </div>
 
 
@@ -375,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117870.jpg" />
 </div>
 
 
@@ -402,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117846.jpg" />
 </div>
 
 
@@ -429,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117834.jpg" />
 </div>
 
 
@@ -457,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117815.jpg" />
 </div>
 
 
@@ -485,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117813.jpg" />
 </div>
 
 
@@ -512,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116987.jpg" />
 </div>
 
 
@@ -538,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116567.jpg" />
 </div>
 
 
@@ -565,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115919.jpg" />
 </div>
 
 
@@ -591,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115748.jpg" />
 </div>
 
 
@@ -617,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104012.jpg" />
 </div>
 
 
@@ -644,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98112.jpg" />
 </div>
 
 
@@ -670,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98053.jpg" />
 </div>
 
 
@@ -681,6 +603,89 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51285048883AC79F6AEAEC7EB1110D7DB99204C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462564   (95787) от 06.03.2012
+
+Г.Маркова | Серебряные фигурные сосуды XVI-XVII вв [1978] [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_95787.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Оружейной палате Московского кремля хранится крупнейшая в мире коллекция изделий западноевропейских серебряников XVI-XVII веков. Существенную часть собрания составляют фигурные сосуды. Это кубки, рукомойные кувшины, сосуды для питья в виде птиц, животных и человеческих фигур.1978Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3813F394F70E162BA2B6A91575D0E24424BD7BBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488584   (90908) от 26.04.2012
+
+Н.П.Акимов | О принципах игры [1941 - 1946] [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90908.jpg" />
+</div>
+
+
+###  Подробнее
+
+О принципах игры. Многообразие театрального поиска. Выбор жанра и позиция художника. Выбор режиссёрских приёмов.1941 - 1946Формат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477535   (86830) от 06.04.2012
+
+Карл Маркс | Капитал [1993] [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86830.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная книга является классическим произведением экономической науки, написанным с позиций трудовой теории стоимости. В ней автор определил понятие стоимости как выражение общественно необходимого труда для производства товаров, дал яркую характеристику капиталистического общества XIX века. Труд К.Маркса является завершением классической политической экономии, он оказал глобальное воздействие на ход исторического процесса в XX веке.
+
+Капитал, том 1. (1867 год)
+Капитал, том 2. (1885 год)
+Капитал, том 3. (1894 год)
+Капитал, том 4. (1905-1910 года)1993Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21BBC79205E0B71E448F394E6E4FF992FB39E5DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,213 @@
+###  Публикация: 1412983   (411030) от 02.10.2020
+
+Какие законы вступают в силу в октябре
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_411030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новые правила для продления выплат семьям с детьми, зачисление пенсий и соцвыплат на карты «Мир», упрощение заключения договора ОСАГО, запрет на курение кальянов в кафе и другие нововведения месяца – в нашем материале1 октябряПереплату по налогу можно будет зачесть для любого другого налогаЗаконом отменяется ограничение, по которому переплату по налогу разрешается (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412599   (411013) от 02.10.2020
+
+Microsoft пора заменить ядро Windows на Linux
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_411013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный американский программист и пропагандист open source Эрик Реймонд на днях сделал весьма холиварный пост на тему Microsoft и open source. Он считает, что Windows — это ничто иное, как пережиток прошлого, дескать, направление больше не генерирует достаточно выручки, чтобы считаться важным и его пора оставить позади.Теперь, когда кассу Microsoft делает Azure, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 849602   (411009) от 02.10.2020
+
+Евгений Карташов | Бюджетная фотостудия или секреты фотовспышек (2014)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы хотите пофотографировать дома с качественным светом, или хотите выехать на природу, а может быть вас позвали пофотографировать детей в детском саду, то здесь нельзя положиться на обычный студийный свет, который занимает много места, требует подключения к электросети да и по сути своей не предназначен для перетаскивания с места на место.
+
+ Здесь на помощь приходит (   Читать дальше...   )Жанр: Обучающее видео и мультимедийный материалПродолжительность: 01:58:45+00:28:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DDC9A8D02CD26DD0191922CA730816E422F1FC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039919   (410903) от 26.10.2016
+
+Batman - The Telltale Series (2016) [Ru/Multi] (1.0/upd4) License GOG [Episode 1-3]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410903.jpg" />
+</div>
+
+
+###  Подробнее
+
+Темный Рыцарь возвращается в Batman: The Telltale Series! Да, у нас нет лишней пары миллиардов долларов, но все мы немного бэтмены: боимся сумасшедших клоунов, любим котят и быстрые машины. Но еще больше общего у нас с Брюсом Уэйном – человеком в маске (или он и есть маска?): его детство уничтожено, его мир разрушен, и все-таки он пытается сделать свой родной город (   Читать дальше...   )Тип издания: LicenseРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86E611A2E90102048E089FBD4D5F99D5A66EBC16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066717   (410901) от 26.10.2016
+
+Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4432.1000 VL (x86) RePack by SPecialiST v16.10 [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2016 хорошо демонстрирует, как сегодня изменился сам подход к созданию документов и совместной работе с ними. Многие из нас начинают работу на одном компьютере, продолжают её на другом, а демонстрируют на третьем, попутно успевая вносить мелкие правки за ноутбуком, на планшете или даже смартфоне. Поэтому Office 2016 постарались сделать концептуально (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7379F08AF3A9F2D8CBBE6C5F78C4552E2AD0D52C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058635   (410900) от 26.10.2016
+
+Quantum Break (2016) [Ru/En] (1.0.126.0307/upd2) Repack =nemos=
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Quantum Break - уникальный проект, состоящий из двух частей: динамичной игры и сериала со звездным актерским составом — Шоном Эшмором в роли Джека Джойса, Эйданом Гилленом в роли его противника Пола Сайрина и Домиником Монаганом, сыгравшим гениального брата Джека, Уильяма. В Quantum Break вас ждут отличные персонажи и множество драматичных сюжетных поворотов, которыми (   Читать дальше...   )Тип издания: RepackРазработчик: Remedy EntertainmentЖанр: Action, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D49E06746B57D7D2624AAF27522086B6503D2E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065929   (410898) от 26.10.2016
+
+Windows 8.1 (x86/x64) 16in1 +/- Office 2016 SmokieBlahBlah 24.10.16 [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410898.jpg" />
+</div>
+
+
+###  Подробнее
+
+16 редакций Windows 8.1 с обновлениями по октябрь 2016 и интегрированными системными библиотеками + 16 таких же редакций со встроенным Office 2016 Pro Plus VL x86 (можно выбрать, ставить ли Office. Галочка перед началом установки, см. 1-й скриншот). Ничего не вырезано и не изменено, кроме: см. спойлер "Изменения по сравнению с оригинальными образами". Присутствует (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FB394B330918253C2D171EC684A53F21EDA1007
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 212917   (410753) от 16.10.2013
+
+Подшивка журналов | Оружие (1994-2013) [PDF, DJVU] [Обновлено 16.10.2013]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_410753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал "Формат: PDF / DJVU
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948474   (410692) от 20.10.2015
 
 SoftMaker Office Professional 2016 rev 745.1010 RePack (& portable) by KpoJIuK [Ru/En]
@@ -6,7 +216,7 @@ SoftMaker Office Professional 2016 rev 745.1010 RePack (& portable) by KpoJIuK [
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410692.jpg" />
 </div>
 
 
@@ -32,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410652.jpg" />
 </div>
 
 
@@ -58,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410646.jpg" />
 </div>
 
 
@@ -84,7 +294,7 @@ Life Is Strange (2015) [En/Fr] (1.0.0) License CODEX [Episode 1-5]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410638.jpg" />
 </div>
 
 
@@ -110,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410631.jpg" />
 </div>
 
 
@@ -137,7 +347,7 @@ Microsoft Office 2016 Standard 16.0.4266.1001 RePack by KpoJIuK [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410628.jpg" />
 </div>
 
 
@@ -163,7 +373,7 @@ Train Simulator 2016 (2015) [Ru/Multi] (53.9b) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410627.jpg" />
 </div>
 
 
@@ -189,7 +399,7 @@ Assassin's Creed 2 (2010) [Ru] (1.01/dlc) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410623.jpg" />
 </div>
 
 
@@ -215,7 +425,7 @@ Tales of Zestiria (2015) [Ru/Multi] (1.0/dlc) SteamRip R.G. Игроманы
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410621.jpg" />
 </div>
 
 
@@ -241,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410619.jpg" />
 </div>
 
 
@@ -269,7 +479,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4266.1001
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410618.jpg" />
 </div>
 
 
@@ -295,7 +505,7 @@ Zver 2015.10 Windows 8.1 Pro x64
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410617.jpg" />
 </div>
 
 
@@ -322,7 +532,7 @@ Boot USB Sergei Strelec 2015 v.8.4. Win8.1 (x86/x64) [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410616.jpg" />
 </div>
 
 
@@ -348,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410579.jpg" />
 </div>
 
 
@@ -374,7 +584,7 @@ KMS Tools Portable 01.10.2018 by Ratiborus [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410572.jpg" />
 </div>
 
 
@@ -400,7 +610,7 @@ American Truck Simulator (2016) [Ru/En] (1.32.4.1s/dlc) Repack =nemos=
 >>17
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410571.jpg" />
 </div>
 
 
@@ -426,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_409835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_409835.jpg" />
 </div>
 
 
@@ -452,7 +662,7 @@ AAct 3.6 Portable  [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409834.jpg" />
 </div>
 
 
@@ -463,214 +673,6 @@ AAct - KMS-активатор для операционных систем Windo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F599AC96378D9C520F61F3F6AFD8105147D68212
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168012   (409833) от 23.09.2017
-
-Пиратство — любовь к халяве или вынужденная необходимость?
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_409833.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый житель России уже наверняка успел заметить, что сейчас различные российские организации активно борются с пиратством, то есть пиратским контентом, доступном на просторах сети Интернет. С одной стороны, это совершенно правильно, поскольку труд всех людей должен оплачиваться, ведь если никто не будет платить за фильмы, сериалы, игры и книги, то кто же станет (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010572   (409812) от 23.09.2017
-
-(Linux) The Long Dark (2014) [Ru/Multi] (1.15.32683) SteamRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409812.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Long Dark - хардкорный симулятор выживания в бескрайних лесах Северной Канады! Вы будете играть за пилота по имени Вил Маккензи, самолет которого потерпел крушение после мистического геомагнитного шторма. Главной вашей задачей будет выжить как можно дольше, чтобы выяснить что же произошло с миром и как он изменился?Тип издания: SteamRipРазработчик: Hinterland Studio Inc.Жанр: Action, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, НемецкийЯзык интерфейса: Русский, Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B921A1D56EF929185E8A17109DE4A830E637278
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166735   (409808) от 23.09.2017
-
-Microsoft Windows 7 SP1 x86/x64 Ru 9 in 1 Origin-Upd 09.2017 by OVGorskiy® 1DVD
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409808.jpg" />
-</div>
-
-
-###  Подробнее
-
-обновленные оригинальные русские образы ОС Windows 7 от Microsoft разных редакций и разрядностей. Образ содержит в себе 9 редакций ОС на 1 DVD (x86 и x64). Включает в себя "чистые" не модифицированные образы ОС Windows 7 Starter x86, Home Basic x86/x64, Home Premium x86/x64, Professional x86/x64, Ultimate x86/x64, собранные в один образ стандартными средствами (   Читать дальше...   )Язык интерфейса: Русский (Russian),
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B3AD80EB9285786424C47D1816FEFCA14E447AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572808   (409795) от 01.09.2022
-
-Сильно подешевевшие видеокарты всё равно покупают плохо, поэтому AMD и Nvidia собираются ещё сильнее опустить цены
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_409795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компаниям AMD и Nvidia, а также производителям видеокарт, нужно как можно быстрее избавляться от запасов адаптеров текущего поколения, так как на носу уже следующее. И производители готовы дальше снижать цены.Источники в Китае говорят, что даже нынешние цены, которые на многие карты уже ощутимо ниже рекомендованных, особенно в Поднебесной, не особо подстёгивают продажи, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571694   (409787) от 01.09.2022
-
-Windows 10 Pro 21H2 19044.1889 x64 by SanLex [Universal] [Ru/En] (2022.09.01)
-
->>3
->>9
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409787.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на официальном оригинал образе Windows_10_Pro_edition_21h2_x64 для более приятного и комфортного пользования. Цель данной сборки лёгкость в использовании для повседневного домашнего пользования, бизнес сферы или огромании. Отключены, удалены или заблокированы нежелательные службы / процессы сбора телеметрических данных, рекламные модули, нежелательные (   Читать дальше...   )Язык интерфейса: Русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B08E2A5D3C40AF59BE1AC03487754FE4BE31CC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325268   (409784) от 16.09.2019
-
-Ученые предложили реалистичную модель лифта до Луны
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_409784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два астронома из Кембриджского и Колумбийского университетов создали концепт полноценного лифта между Землей и Луной. Об этом сообщает Tech Crunch.Предложенная технология называется Spaceline. Главным нововведением объекта может стать отказ от привязки конструкции к поверхности Земли напрямую.Подробная технология была описана еще в 70-х годах прошлого века. Однако (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325382   (409772) от 16.09.2019
-
-В России протестируют новое оборудование для блокировки Telegram
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_409772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Telegram был заблокирован на территории России ещё весной 2018-го, но по-прежнему сохраняет работоспособность у многих пользователей. Вскоре ситуация может измениться: Роскомнадзор готовится к испытаниям нового оборудования по блокировке мессенджера, — сообщает Reuters. Эксперимент начнётся уже в этом месяце — стало известно и название города, жители которого «протестируют» (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325783   (409771) от 16.09.2019
-
-Avira Phantom VPN Pro 2.28.5.20306 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Avira Phantom VPN — является новым эффективным приложением, которое предлагает все преимущества частных виртуальных сетей в ненавязчивой форме. Разблокируйте запрещенные сайты и сервисы и улучшите безопасность Интернет-подключений с помощью современной и надежной VPN-службы.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A120887487372DC9817CA04B2C716C5C3C0E73E
 ```
 
 https://mybot314.ru/tekegram_catalog/

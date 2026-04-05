@@ -1,55 +1,3 @@
-###  Публикация: 1017527   (760588) от 17.05.2016
-
-Бешеные / Enrages (2015) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760588.jpg" />
-</div>
-
-
-###  Подробнее
-
-После ограбления банка трое отчаянных преступников берут в заложники молодую женщину и отца с ребёнком. Это станет началом жестокой поездки, которую не все из них переживут.Производство: Франция, КанадаЖанр: Боевик, триллер, драмаРежиссер: Эрик ХаннецоАктеры: Ламбер Вильсон, Гийом Гуи, Виржини Ледуайен, Франк Гастамбид, Франсуа Арно, Лоран Люка, Александр Гойетт, Пьер Лебо, Дэйв ЛапоммерейПеревод: Профессиональный многоголосый (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:29:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:492609DB0A929434E02E83ADF6E3B3C678F2BB05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017603   (760502) от 17.05.2016
-
-Боги Египта / Gods of Egypt (2016) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Некогда мирное и процветающее египетское царство погружается в хаос: беспощадный бог тьмы Сет убивает своего брата Осириса и узурпирует трон. Вызов ему неожиданно бросает простой смертный, находчивый молодой вор. Чтобы вернуть к жизни свою прекрасную возлюбленную, ему приходится заручиться поддержкой могущественного и мстительного бога Гора. Лишь выдержав испытание (   Читать дальше...   )Производство: США | Mystery Clock Cinema, Summit EntertainmentЖанр: Фэнтези, Боевик, ПриключенияРежиссер: Алекс ПройасАктеры: Брентон Туэйтс, Джон Самаха, Кортни Итон, Николай Костер-Вальдау, Паула Арунделл, Алиа Серор-О’Нилл, Эмили Уитон, Элоди Юнг, Рэйчел Блейк, Брайан БраунПеревод: Дублированный (iTunes)Продолжительность: 02:06:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DFB02F0F56C112D9CDCC0F3735355418CAA2255
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1017477   (760499) от 17.05.2016
 
 Команда уничтожить / Kill Command (2016) WEB-DLRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760499.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760496.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760110.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760052.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760049.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760036.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759977.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759910.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759883.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759871.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759870.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759777.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759757.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759756.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759753.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759748.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759743.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759738.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759736.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759648.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759391.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759364.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759356.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759343.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 780963   (759174) от 26.04.2014
+
+47 ронинов / 47 Ronin (2013) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Таинственный странник, преданный всеми, проданный в рабство, избранный судьбой вершить месть, станет одним из 47 воинов, бросивших вызов смерти. Явившись из другого мира, он восстанет против темных сил, чтобы защитить свою запретную любовь.Производство: СШАЖанр: Фэнтези, боевик, приключенияРежиссер: Карл РиншАктеры: Киану Ривз, Хироюки Санада, Ко Сибасаки, Таданобу Асано, Ринко Кикути, Кэри-Хироюки Тагава, Того ИгаваПеревод: Дублированный (Лицензия Blu-Ray CEE)Субтитры: ОтсутствуютПродолжительность: 01:58:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CABE0DC899221F9B4D57AC9CAB409321C7394DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 780943   (759173) от 26.04.2014
+
+47 ронинов / 47 Ronin (2013) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759173.jpg" />
+</div>
+
+
+###  Подробнее
+
+Таинственный странник, преданный всеми, проданный в рабство, избранный судьбой вершить месть, станет одним из 47 воинов, бросивших вызов смерти. Явившись из другого мира, он восстанет против темных сил, чтобы защитить свою запретную любовь.Производство: СШАЖанр: Фэнтези, боевик, приключенияРежиссер: Карл РиншАктеры: Киану Ривз, Хироюки Санада, Ко Сибасаки, Таданобу Асано, Ринко Кикути, Кэри-Хироюки Тагава, Того ИгаваПеревод: Дублированный (Лицензия Blu-Ray CEE)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский, Украинский, АнглийскийПродолжительность: 01:58:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D643E897C8175520585F5EE5F4412CA2EE9CB909
 ```
 
 https://mybot314.ru/tekegram_catalog/

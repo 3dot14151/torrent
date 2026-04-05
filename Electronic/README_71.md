@@ -1,3 +1,61 @@
+###  Публикация: 1364434   (936406) от 03.03.2020
+
+VA - Lifting Makes You Strong Check into the Gym (2020) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936406.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Electro Jack - Stadium 4:11
+2. Edgar Blaime - Legazy 4:11
+3. Dustin Phillow - Amount 4:11
+4. Duna Shain - Sculpt 4:11(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 02:45:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D8725EC070A18897B7CC93680976BF684AA717A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364530   (936389) от 03.03.2020
+
+Vladislav Delay - Rakka (2020) Cosmo Rhythmatic [FLAC|Lossless|WEB-DL|tracks] <Experimental, Noise, Ambient>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rakka (07:26)
+ 02. Raajat (08:36)
+ 03. Rakkine (06:17)
+ 04. Raakile (03:38)(   Читать дальше...   )Жанр: Experimental, Noise, AmbientПродолжительность: 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E715BB0BEE5105432612E9A12F5446B4FFF85CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364578   (936387) от 03.03.2020
 
 Killstarr - Worlds Apart (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Retrowave, Dreamwave, 80s>
@@ -6,7 +64,7 @@ Killstarr - Worlds Apart (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936387.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Sibewest - Cyberlove (2020) IMMINENT [FLAC|Lossless|WEB-DL|tracks] <Future Garag
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936265.jpg" />
 </div>
 
 
@@ -61,7 +119,7 @@ VA - Suanda Music Radio Top 10 January 2016 (Mixed by Roman Messer) (2016) [MP3|
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935557.jpg" />
 </div>
 
 
@@ -90,7 +148,7 @@ Ultravox - The Voice:The Best Of Ultravox (1997) [FLAC|Lossless|image + .cue] <N
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935493.jpg" />
 </div>
 
 
@@ -119,7 +177,7 @@ The Crystal Method - Divided By Night (2009) [FLAC|lossless]<Breakbeat/Electroni
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934345.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ VA - JustRomantic (2007) 2CD [FLAC|Lossless|tracks + .cue] <Downtempo>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934122.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ VA - Italo Lounge Clubbing Vol.1 (2017) [MP3|320 Kbps] <Balearic, Lounge, Downte
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934027.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ VA - The Sound Of Trice (Mixed By Vigel) (2016) [MP3|320 Kbps] <House, Electro H
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934026.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ VA - Jack The PlaceUp (2016) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934024.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ VA - Wind In The Field (Downtempo Series) Vol.010 (2017) [MP3|320 Kbps] <Downtem
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934020.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ VA - S.L.O.W. Collection Vol.2-Chill Out Selection (2017) [MP3|320 Kbps] <Chillo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934019.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ VA - Neon Electronic Chillout Lounge (Shades Of Erotic Ibiza Moments & Cafe Rela
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933961.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ Cristian R - New Frequency (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tec
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933954.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ Lisa Gerrard - The Black Opal (2009) [FLAC|Lossless]<Ambient>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933922.jpg" />
 </div>
 
 
@@ -406,7 +464,7 @@ Foresense - Weerhaak (2019) Antilounge Den Haag [FLAC|Lossless|WEB-DL|tracks] <I
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933888.jpg" />
 </div>
 
 
@@ -435,7 +493,7 @@ Meemo Comma - Sleepmoss (2019) Planet Mu [FLAC|Lossless|WEB-DL|tracks] <Ambient,
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933884.jpg" />
 </div>
 
 
@@ -464,7 +522,7 @@ VA - Buddah's Chill  Vol.8 (Buddha Asian Bar Lounge) (2017) [MP3|320 Kbps] <Chil
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933851.jpg" />
 </div>
 
 
@@ -493,7 +551,7 @@ Nathan Micay - Blue Spring (2019) LuckyMe [FLAC|Lossless|WEB-DL|tracks] <Experim
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933816.jpg" />
 </div>
 
 
@@ -522,7 +580,7 @@ Toro Y Moi - Smartbeats (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimen
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933815.jpg" />
 </div>
 
 
@@ -551,7 +609,7 @@ VA - Urban Sports Music, Vol. 3 (2019) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933811.jpg" />
 </div>
 
 
@@ -580,7 +638,7 @@ VA - Urban Sports Music, Vol. 1 (2019) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933810.jpg" />
 </div>
 
 
@@ -609,7 +667,7 @@ Five Thousand Spirits - Towards Edentea (2011) Sempiterna Mutatio [FLAC|Lossless
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933807.jpg" />
 </div>
 
 
@@ -638,7 +696,7 @@ Djrum - Portrait with Firewood (2018) R & S Records [FLAC|Lossless|WEB-DL|tracks
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933802.jpg" />
 </div>
 
 
@@ -667,7 +725,7 @@ Pantha du Prince - Conference of Trees (2020) Modern Recordings [FLAC|Lossless|W
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933709.jpg" />
 </div>
 
 
@@ -681,64 +739,6 @@ Pantha du Prince - Conference of Trees (2020) Modern Recordings [FLAC|Lossless|W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B43E794ABD5E6C5656513BC4FD3ED9707C68C72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364875   (933564) от 05.03.2020
-
-VA - Bang! (2020) [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Andy Sto - My Mind [02:58]
-02.  Neironic - Voice of Reason [04:23]
-03.  Fruitful - Give It Away [04:53]
-04.  Black Depth - New Leap [05:52](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:45:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C1CA85EB33FAA26D91DD0405AF03F40AF612D92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364884   (933424) от 05.03.2020
-
-VA - Dark Tunes 2020 [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Malvine - Dance Of Lost Feelings [04:08]
-02.  Vyacheslav Sankov - Revival, Pt.2 [05:28]
-03.  LexXxare - Miracle Of The Day [02:21]
-04.  V.S.D - Move Fast [03:53](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69E5547DDB0ACDCDD225751B8E0F3F602485D37C
 ```
 
 https://mybot314.ru/tekegram_catalog/

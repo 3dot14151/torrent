@@ -6,7 +6,7 @@
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638774.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Judas Priest - Epitaph (2013) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_638022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_638022.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637747.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Motörhead Videography / Motorhead Видеография (29 клипов) (198
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637650.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Whitesnake:  "Live In The Still Of The Night" (MTV-HD) (2004) HDTV 1080i [H.264]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_636690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_636690.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Tarja Turunen & Mike Terrana - Beauty & The Beat (2014) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636310.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_636226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_636226.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Burt Bacharach - A Life In Song (2016) BDRip [H.264/1080i-LQ] <Pop, R&B, Film Mu
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636030.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Motorhead - Clean Your Clock (Live in Munich 2015) (2016) BDRemux [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635934.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Whitesnake - Made In Japan (2011/2013) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_635912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_635912.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635726.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635284.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Motorhead - Clean Your Clock (2016) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634136.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633202.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Ocean Drive feat. Aylar - Some People (2010) [720p]HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632610.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631623.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631535.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Ferry Corsten - Radio Crash (2008) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631038.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Mr Sam & Andy Duguid vs. Pat Benatar - Invincible (2010) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630903.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Chicane vs Natasha Bedingfield - Bruised Water (2009) [720p]HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630894.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ ATB - Humanity (Airplay Mix) (2005)   [H.264]HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630891.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ ATB - Let You Go (Reworked) (2005) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630780.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Dannii Minogue - Who Do You Love Now (feat Riva) (2001) [720p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630642.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Kylie Minogue - The One (2008) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630634.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Kylie Minogue - In My Arms (2008) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630447.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ Kylie Minogue - Can't Get You Out Of My Head (2001) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630429.jpg" />
 </div>
 
 

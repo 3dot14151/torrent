@@ -1,3 +1,32 @@
+###  Публикация: 1655514   (204046) от 27.08.2023
+
+Holding Absence - The Noble Art Of Self Destruction (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Head Prison Blues [00:04:34]
+02. A Crooked Melody [00:03:53]
+03. False Dawn [00:03:48]
+04. Scissors [00:04:39](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:42:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB956214624B4596E0225D4F6BA3E1692D79596C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1655592   (204044) от 27.08.2023
 
 Who Is She? - Goddess Energy (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
@@ -6,7 +35,7 @@ Who Is She? - Goddess Energy (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204044.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ MaterialEyes - Inside Out (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204041.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Built For The Future - 2084:Heretic (2023) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204026.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Creepshow - Creepshow (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204022.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Silence - Vision (1991) Reissue, 2021, Self-released [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204020.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Rito Verdugo - Kamikaze Boom (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204018.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Xfears - Reasons for Change (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204016.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Morpheus Project By Mustafa Khetty - Mozaick (2021) Deluxe Edition, 2022, Morphe
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204012.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Six of Swords - Regime Decay-Polar Vortex (2019) Compilation, Raw Skull Recordz 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204010.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Sisters - Leecheater (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204006.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Eric Clapton - The Definitive 24 Nights (Live) (1991) 3CD, 2023, Reissue, Repris
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203921.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Beyond the Black - 9 Releases (2015-2023) [MP3|320 Kbps] <Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203793.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Analog Sunshine - The Mountain (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203775.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Walrus - Black Cat (2023) EP [FLAC|24/48|tracks|WEB-DL] <Stoner Doom Metal>
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203733.jpg" />
 </div>
 
 
@@ -411,7 +440,7 @@ Lutalo - Again (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203729.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ Aether - 2 Releases (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <Psych, Stoner, Sl
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203725.jpg" />
 </div>
 
 
@@ -466,7 +495,7 @@ Hephaistos - Medusa (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203723.jpg" />
 </div>
 
 
@@ -495,7 +524,7 @@ Moon Coven - Sun King (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych, Stoner, Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203721.jpg" />
 </div>
 
 
@@ -524,7 +553,7 @@ Sons of Ragnar - Echoes over Valsgarde (2023) [FLAC|Lossless|WEB-DL|tracks] <Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203711.jpg" />
 </div>
 
 
@@ -553,7 +582,7 @@ Everything Everything - Man Alive (2010) 2CD, Deluxe Edition, 2023, Universal Mu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203709.jpg" />
 </div>
 
 
@@ -581,7 +610,7 @@ Borracho - Blurring the Lines of Reality (2023) [FLAC|Lossless|WEB-DL|tracks] <S
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203705.jpg" />
 </div>
 
 
@@ -610,7 +639,7 @@ Coma Doof - Miasma (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203693.jpg" />
 </div>
 
 
@@ -639,7 +668,7 @@ The Death Wheelers - Chaos And The Art Of Motorcycle Madness (2023) [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203691.jpg" />
 </div>
 
 
@@ -668,7 +697,7 @@ Soulsad - Doomed to Funerals (2022) Compilation, Black Hearts Records [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203690.jpg" />
 </div>
 
 
@@ -697,7 +726,7 @@ Black Stone Cherry - Smile, World (2023) EP [FLAC 24/48|WEB-DL|tracks] <Southern
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203671.jpg" />
 </div>
 
 
@@ -711,34 +740,6 @@ Black Stone Cherry - Smile, World (2023) EP [FLAC 24/48|WEB-DL|tracks] <Southern
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:884187F5C3D84EA722B25D4A1B2E1FD5B4883118
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655910   (203556) от 29.08.2023
-
-Soulsad - Two Funerals (2018) EP [MP3|320 Kbps] <Melodic Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Fallen Garden
-02. Funeral One: Father
-03. Funeral Two: MotherЖанр: Melodic Doom, Death MetalПродолжительность: 00:22:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F2C1C9632BC26F7C3516C515F40D24B4A82AD86
 ```
 
 https://mybot314.ru/tekegram_catalog/

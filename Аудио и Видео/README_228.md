@@ -6,7 +6,7 @@
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261921.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261882.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252480.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252433.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249462.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246845.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Synth Replicants - Cyclus ONE (2020) [AAC|~316 Kbps] <Electronic>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246061.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Marina & the Kats - Small (2015) [AAC|~318 Kbps] <Swing, Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246051.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Juliette Armanet - Brûler le feu (2021) [AAC|~296 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246043.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Swingrowers - (Pronounced Swing Grow'ers) (2012) [AAC|~333 Kbps] <Electro, Swing
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246037.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Swingrowers - Outsidein (2018) [AAC|~316 Kbps] <Electro, Swing, Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246013.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ VA - Smooth and Sexy - Premium Jazz Grooves (2016) [AAC|~331 Kbps] <Lounge, Chil
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245942.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ VA - 80s Dance Classics (2022) [AAC|~334 Kbps] <Pop, Dance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245885.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ VA - Chillout Winter Paradise (2021) [AAC|~289 Kbps] <Lounge, Chill Out, Downtem
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245777.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Nina Stark - Organic (2021) [AAC|~308 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245770.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ VA - Chillax (Smooth Chill-Out Sounds For Pure Relaxing), Vol. 4 (2021) [AAC|~31
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245762.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Elena Maque - Feel Again (2021) [AAC|~344 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245752.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ VA - Piano Moods Collection, Vol. 2 (2020) [AAC|~264 Kbps] <Lounge, Chill Out, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245746.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ VA - Aimée Sol presents Lounge Attitudes, Vol. 1 (2021) [AAC|~321 Kbps] <Lounge
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245732.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ VA - Musica para: Rejuvenecer y sentirse bella (2021) [AAC|~309 Kbps] <Lounge, C
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245415.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ VA - Musica Elegante (2020) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245382.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ VA - Infinite Fade: Chillout Your Mind (2021) [AAC|~313 Kbps] <Lounge, Chill Out
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245373.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Mirko Hirsch - Flashes in the Night (2021) [AAC|~352 Kbps] <Pop, Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245366.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ VA - Chillout Adventures, Pt. 1 (2021) [AAC|~325 Kbps] <Ambient, Chill Out, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245320.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ VA - Chill with Style - The Lounge & Chill-Out Collection, Vol. 3 (2015) [AAC|~3
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245280.jpg" />
 </div>
 
 
@@ -715,7 +715,7 @@ VA - Chill with Style - The Lounge & Chill-Out Collection, Vol. 5 (2015) [AAC|~3
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245257.jpg" />
 </div>
 
 

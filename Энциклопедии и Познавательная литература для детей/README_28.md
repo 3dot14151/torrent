@@ -1,3 +1,29 @@
+###  Публикация: 1621622   (245174) от 25.03.2023
+
+А.А. Плешаков, А.А. Румянцев | Великан на поляне или первые уроки экологической этики (2012) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как лучше вести себя в природе, как стать добрым Великаном, другом всему живому - об этом рассказывает книга по экологической этике. Она адресована младшим школьникам и предназначена для использования на уроках в четвертом классе по программе "Окружающий мир", на факультативах, для самостоятельного чтения и чтения вместе с родителями.Жанр: познавательная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF36DC02C09779CCE5BD933E55DA4E1FB314DEA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450803   (245091) от 27.02.2021
 
 Сергей Истомин | Энциклопедия живописи для детей. Батальная картина (2008) [PDF]
@@ -6,7 +32,7 @@
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245091.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244941.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244779.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244733.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244434.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244415.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244328.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243551.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243421.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243379.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243329.jpg" />
 </div>
 
 
@@ -302,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243298.jpg" />
 </div>
 
 
@@ -328,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243109.jpg" />
 </div>
 
 
@@ -356,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242676.jpg" />
 </div>
 
 
@@ -383,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242593.jpg" />
 </div>
 
 
@@ -411,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242045.jpg" />
 </div>
 
 
@@ -437,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242035.jpg" />
 </div>
 
 
@@ -466,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241977.jpg" />
 </div>
 
 
@@ -492,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239052.jpg" />
 </div>
 
 
@@ -518,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238711.jpg" />
 </div>
 
 
@@ -544,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238206.jpg" />
 </div>
 
 
@@ -570,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238026.jpg" />
 </div>
 
 
@@ -598,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237867.jpg" />
 </div>
 
 
@@ -624,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237835.jpg" />
 </div>
 
 
@@ -651,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237818.jpg" />
 </div>
 
 
@@ -664,32 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D6126FCB5337B164743A86CC130A6A80C252462
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549841   (237523) от 03.09.2022
-
-А. Милз, А.А. Мещерякова и др. | Моя первая книга обо всем на свете [25 книг] (2019-2021) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237523.jpg" />
-</div>
-
-
-###  Подробнее
-
-В серию познавательной и развивающей литературы «Моя первая книга обо всем на свете» вошли работы известных отечественных популяризаторов науки, предназначенные для младшего школьного возраста. Среди них — «Что течет по проводам?» Владимира Малова, «Как устроен человек?» Веры Ивановой, «Почему идет дождь?» Петра Волцита, «Как полететь в космос?» Александра Монвиж-Монтвида (   Читать дальше...   )Жанр: Детская познавательная и развивающая литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FF0D3C81DCB9261FFAC5D5C2BB506C3D615F514
 ```
 
 https://mybot314.ru/tekegram_catalog/

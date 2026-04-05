@@ -6,7 +6,7 @@ Receipts 1.9.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766992.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Permute 3 3.0.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766989.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ CopyClip 2.9.91 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766980.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Downie 3 v3.5.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766979.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ ExactScan Pro 19.1.22 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766977.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ MacX DVD Ripper Pro 6.5.3 (build 20200630) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766953.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Translatium 13.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766950.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Kiwi for Gmail 2.0.35 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766948.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Serial Box 07.2020 + SerialSeeker 2.0 (build 44) + iSerial Reader 2.0.23 (build 
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766941.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Xliff Editor 2.8.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766938.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Cisdem AppCrypt 4.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766935.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ IconJar 1.13.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766931.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Boxy SVG 3.22.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766930.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ iRingg 1.0.38 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766929.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ ApolloOne - Photo Video Viewer 2.2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766926.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Prizmo Pro 3.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766921.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ TechSmith Snagit 2020.1.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766895.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ OnyX 3.8.4 for macOS Catalina 10.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766838.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ DiskWarrior 5.0 (Standalone) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766824.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Airmail 3 v3.6.57(543)[Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766611.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ VueScan Pro 9.6.07 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766476.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ BookMacster 2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766423.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ File Cabinet Pro 4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766420.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ App Pier 1.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766419.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Doo - Get Things Done 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766394.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ iLock v2.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766385.jpg" />
 </div>
 
 

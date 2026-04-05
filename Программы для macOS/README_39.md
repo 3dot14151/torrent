@@ -1,3 +1,57 @@
+###  Публикация: 1504418   (812413) от 23.10.2021
+
+Keep It 1.11.5 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавайте заметки со встроенными стилями, которые хорошо выглядят и хорошо читаются на всех ваших устройствах. Заметки могут содержать контрольные списки, маркированные и пронумерованные списки, изображения, ссылки и другие вложения.Тип издания: macOS SoftwareРелиз состоялся: 21.10.2021Разработчик: Reinvented SoftwareПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Арабский и  Иврит
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC2E07163EE5E97590978637EB33581385216204
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504407   (812395) от 23.10.2021
+
+Color Code Copy 1.3.3 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Копирование цветовых кодов буфера обмена в различных форматах (#Hex, Objective-C UIColor, Swift UIColor, Objective-C NSColor, Swift NSColor).
+Выберите в настройках код копирования по умолчанию.
+• Дважды щелкните мышью за пределами средства выбора, который копирует код и закрывает окно.Тип издания: macOS SoftwareРелиз состоялся: 20.10.2021Разработчик: Albert PartiПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF66F1ED0911AD41E28F8B000E2B199E92A2BAB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504415   (812361) от 23.10.2021
 
 EtreCheckPro 6.5.3 [En]
@@ -6,7 +60,7 @@ EtreCheckPro 6.5.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812361.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ Memory Cleaner - Freeup space 1.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812280.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ Squidoo 1.0.9 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811914.jpg" />
 </div>
 
 
@@ -88,7 +142,7 @@ PhotoScissors 3.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811792.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ Rocket Pro 1.7.4 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811737.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ JetBrains IntelliJ IDEA Ultimate 2017.3.2 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811438.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ Noizio 1.5 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811336.jpg" />
 </div>
 
 
@@ -193,7 +247,7 @@ calibre 5 v5.30 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810214.jpg" />
 </div>
 
 
@@ -219,7 +273,7 @@ Next - Track your expenses and finances 1.4 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810156.jpg" />
 </div>
 
 
@@ -248,7 +302,7 @@ NetWorker - Advanced Network Information App 4.6.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810129.jpg" />
 </div>
 
 
@@ -276,7 +330,7 @@ Cal Cat 2.0 (1.95) [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810111.jpg" />
 </div>
 
 
@@ -304,7 +358,7 @@ Network Utility X 6.1.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810105.jpg" />
 </div>
 
 
@@ -331,7 +385,7 @@ Gemini 1.5.17 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809773.jpg" />
 </div>
 
 
@@ -358,7 +412,7 @@ Sony Catalyst Production Suite 2016.1.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809351.jpg" />
 </div>
 
 
@@ -387,7 +441,7 @@ Focused (was Typed) 2.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809147.jpg" />
 </div>
 
 
@@ -414,7 +468,7 @@ PowerPhotos 1.9.10 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808351.jpg" />
 </div>
 
 
@@ -440,7 +494,7 @@ Notability 4.4.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808338.jpg" />
 </div>
 
 
@@ -466,7 +520,7 @@ WidsMob HEIC for Mac 2.5 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808082.jpg" />
 </div>
 
 
@@ -492,7 +546,7 @@ Adobe Animate CC 2015.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807459.jpg" />
 </div>
 
 
@@ -518,7 +572,7 @@ Stockfolio - Stocks, Real-Time Stock Portfolio 1.0.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807231.jpg" />
 </div>
 
 
@@ -547,7 +601,7 @@ Tasks 1.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807229.jpg" />
 </div>
 
 
@@ -575,7 +629,7 @@ VMware Fusion Pro 8.1.1 (3771013) [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807190.jpg" />
 </div>
 
 
@@ -603,7 +657,7 @@ Image Uploader Lite [WineSkin] 1.3 (4222) [Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806466.jpg" />
 </div>
 
 
@@ -630,7 +684,7 @@ Myna for Google Translate 2.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806440.jpg" />
 </div>
 
 
@@ -641,58 +695,6 @@ Myna for Google Translate - это самый продвинутый клиен�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B47BA70F381977C8E9C3EBFD74F0895A1EC8466
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505305   (806436) от 26.10.2021
-
-FonePaw Video Converter Ultimate 6.0.0 [Multi]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806436.jpg" />
-</div>
-
-
-###  Подробнее
-
-FonePaw Video Converter Ultimate - многофункциональное программное обеспечение позволяет конвертировать, редактировать и воспроизводить видео, DVD и аудио, кроме того, Вы также можете скачать онлайн видео. Благодаря поддержке технологий NVIDIA® CUDA™, AMD® App Acceleration программа может декодировать и кодировать видео на высокой скорости и с превосходным качеством, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.08.2021Разработчик: © FonePaw Technology LimitedПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2116BCF41A87AF1B1F3D22A623F95B18423B5243
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505130   (806394) от 26.10.2021
-
-OmniGraffle Pro 7 v7.19 [Multi/Ru]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806394.jpg" />
-</div>
-
-
-###  Подробнее
-
-OmniGraffle Pro - отличный инструмент для создания сложных графиков, диаграмм, схем. OmniGraffle Pro обладает простым и интуитивно понятным интерфейсом, который обеспечивает легкий доступ к вашим проектам, инструментам и стилям и другим меню. В число инструментов программы входят: кривая Безье, трафареты, кривые и многое другое. Для придания диаграмме презентабельного (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.10.2021Разработчик: Omni GroupПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E15FF0A25AE96AC91CA959F38E616C798CABF44
 ```
 
 https://mybot314.ru/tekegram_catalog/

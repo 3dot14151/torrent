@@ -1,3 +1,29 @@
+###  Публикация: 1569993   (446987) от 15.08.2022
+
+SideFX, Paul Esteves | Vellum Nodes (2021) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучите 10 различных Vellum нод, которые можно использовать для настройки симуляций ткани, волос, grains и soft body в Houdini. Познакомьтесь с различными типами симуляций, которые вы можете создать, а затем изучите констрейнты и параметры, с помощью которых можно контролировать результаты. Работать с Vellum может быть очень интересно, и понимание этих нод откроет (   Читать дальше...   )Производство: SideFXЖанр: Houdini 18.5Язык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 00:59:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:103FFA2500ADB58C9CB906AC04345D4EB56E018D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409234   (446845) от 16.09.2020
 
 [Interview Espresso] Aaron Jack | Парсинг с помощью JavaScript / Web Scrape Anything With JavaScript (2020) PCRec [En]
@@ -6,7 +32,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446845.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446839.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446659.jpg" />
 </div>
 
 
@@ -89,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446544.jpg" />
 </div>
 
 
@@ -118,7 +144,7 @@ Zuzka Light | ZCUT Power Cardio Series (2013) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445857.jpg" />
 </div>
 
 
@@ -145,7 +171,7 @@ Hit | Power from push ups DVD [2006] DVDRip [En]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445762.jpg" />
 </div>
 
 
@@ -172,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445657.jpg" />
 </div>
 
 
@@ -198,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444832.jpg" />
 </div>
 
 
@@ -226,7 +252,7 @@ Gumroad, Daniel Thiger | Melting Snow (2017) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444814.jpg" />
 </div>
 
 
@@ -253,7 +279,7 @@ Michael Hauge, Christopher Vogler | Два пути героя. Секреты �
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444812.jpg" />
 </div>
 
 
@@ -281,7 +307,7 @@ Laracasts | Skills (2020) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444809.jpg" />
 </div>
 
 
@@ -310,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444806.jpg" />
 </div>
 
 
@@ -338,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444656.jpg" />
 </div>
 
 
@@ -366,7 +392,7 @@ ITVDN | Тестирование ASP.NET Core MVC приложений (2020) PC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444637.jpg" />
 </div>
 
 
@@ -394,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444492.jpg" />
 </div>
 
 
@@ -421,7 +447,7 @@ Gumroad, FlyCat | Blender - Game Ready Character Modeling - Full process video &
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444336.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444272.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442692.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ Gumroad, Tom Newbury | Creating a Realistic Human Eye in CG (2015) PCRec [EN, RU
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442586.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442567.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441407.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ Alex Isaly | KettleWorX 8 Week Rapid Evolution (2015) WEBRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441398.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ Jillian Michaels | BodyShred (2015) DVDRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441393.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441154.jpg" />
 </div>
 
 
@@ -666,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441068.jpg" />
 </div>
 
 
@@ -678,32 +704,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4AF04563C4CE30B85028AB1AF5BC6B5B91E111CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570709   (440500) от 18.08.2022
-
-SideFX, Krishna Bala | Staggered Fracture (2020) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440500.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот учебный курс посвящен тому, как я создавал трещины и разрывы в моем последнем видео под названием «Blow the Logs». Надеюсь, вам понравится.Производство: SideFXЖанр: Houdini 18Язык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 00:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73B46A13CFEE96416D430A876C60278F31701A07
 ```
 
 https://mybot314.ru/tekegram_catalog/

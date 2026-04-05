@@ -1,3 +1,56 @@
+###  Публикация: 1701418   (116309) от 22.02.2024
+
+10 классных фильмов Netflix, которые вышли в 2023 году
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спортивный байопик с Джоди Фостер, нуарный триллер от Дэвида Финчера, продолжение «Побега из курятника» и не только.1. Нимона
+NimonaСША.(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486346   (116301) от 22.02.2024
+
+Counter-Strike 1.6 (2003) [Ru/Multi] (1.1.2.5/pv48/b4554) Repack CSDnet
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Counter-Strike 1.6 - культовый многопользовательский шутер от первого лица, который вышел в далеком 2003 году, но до сих пор остается одной из самых популярных стрелялок и в то же время серьезной профессиональной турнирной кибердисциплиной. Основная идея игры: противостояние двух команд — Террористов и Контр-Террористов. Каждый игрок при входе в игру выбирает команду, (   Читать дальше...   )Тип издания: RepackРазработчик: ValveЖанр: MMO Action (Tactical, Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6D11D92CE86FB2DF77702EFFF80D40570ABB04B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701907   (116150) от 23.02.2024
 
 Затерянные в Рио Браво / Taken from Rio Bravo (2024) WEBRip [H.264/1080p]
@@ -6,7 +59,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116150.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Areaweb | Laravel — создание крутого API (2024) WEB-DL [AD] [RU
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115943.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115784.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115454.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ Dire Straits - 13 Albums, 2 Box Set, Promo, Single, EP, CDVideo (1978 - 2023) 73
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115282.jpg" />
 </div>
 
 
@@ -142,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115280.jpg" />
 </div>
 
 
@@ -168,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115278.jpg" />
 </div>
 
 
@@ -194,7 +247,7 @@ Navitel / Навител: Официальные карты релиза Q4 2023
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115140.jpg" />
 </div>
 
 
@@ -221,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115132.jpg" />
 </div>
 
 
@@ -247,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115117.jpg" />
 </div>
 
 
@@ -273,7 +326,7 @@ Password Generator 2024.03.01.710 [Ru] (авторский релиз)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114752.jpg" />
 </div>
 
 
@@ -302,7 +355,7 @@ Adobe Photoshop for Mac 2024 v.25.5 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114438.jpg" />
 </div>
 
 
@@ -328,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114079.jpg" />
 </div>
 
 
@@ -354,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114069.jpg" />
 </div>
 
 
@@ -380,7 +433,7 @@ Hollow Knight (2017) [Ru/Multi] (1.5.78.11833a) License GOG [Soundtrack Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104471.jpg" />
 </div>
 
 
@@ -406,7 +459,7 @@ Bus Simulator 2012 + patch 1.3.2 (L) [Gе] 2012
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102554.jpg" />
 </div>
 
 
@@ -432,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102550.jpg" />
 </div>
 
 
@@ -458,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102548.jpg" />
 </div>
 
 
@@ -484,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102340.jpg" />
 </div>
 
 
@@ -512,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_102318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102318.jpg" />
 </div>
 
 
@@ -539,7 +592,7 @@ Windows 7 Professional x64 SP1 OEM HP (сборка 7601) [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_101929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_101929.jpg" />
 </div>
 
 
@@ -566,7 +619,7 @@ Risen 2: Dark Waters / Risen 2: Темные воды {1.0.1168} (RePack) [Ru] 2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101912.jpg" />
 </div>
 
 
@@ -592,7 +645,7 @@ Dead Island + 2 DLC [Ru/En]  (Lossless RePack/1.3) 2011 l R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101732.jpg" />
 </div>
 
 
@@ -620,66 +673,13 @@ Meta* сделает ваши чаты с ИИ-ботом достоянием �
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_101569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_101569.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Компания Meta* объявила в среду , что сделает ваши чаты с ИИ-помощником частью своей рекламной машины. С 16 декабря общение с Meta AI* — чат-ботом компании, встроенным в Facebook*, Instagram*, Messenger и даже в новые умные очки Ray-Ban Display — будет использоваться для определения того, какие объявления и рекомендации будут показываться в вашей ленте.Компания начнет (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822509   (100995) от 07.10.2025
-
-В России отключили мобильный интернет для иностранных SIM и eSIM
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_100995.jpg" />
-</div>
-
-
-###  Подробнее
-
-В ночь с пятого на шестое октября в Сети стали появляться многочисленные сообщения о неработающем интернете при использовании иностранных SIM и eSIM-карт, в том числе выпущенных сотовыми операторами стран СНГ. При этом голосовая связь и отправка SMS доступны. Предположительно, блокирование интернета на роуминговых SIM-картах связано с так называемым «периодом охлаждения», (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821588   (100709) от 06.10.2025
-
-«Почту России» оштрафовали за 10-дневную задержку сообщения через интернет
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_100709.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Почта России» получила штраф за 10-дневную задержку сообщения... ЧЕРЕЗ ИНТЕРНЕТ — нет, это не новость  ИА «Панорама», а реальная история.
-(   Читать дальше...   )
 
 ## Скачать торент
 ```bash

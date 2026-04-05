@@ -1,3 +1,61 @@
+###  Публикация: 1356172   (978912) от 30.01.2020
+
+Elysium - Live... & Beyond (2019) [FLAC|Lossless|WEB-DL|tracks] <Goa Trance, Psychill>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Interpretation Of Dreams (Live Version) 11:12
+02. Elysium (Live Version) 10:03
+03. Trancelestial Psychobabas (Live Version) 11:39
+04. Keep It Cool (Live Version) 07:24(   Читать дальше...   )Жанр: Goa Trance, Psychedelic Trance, PsychillПродолжительность: 05:12:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2124B43FC0997C871B1DE61C857212BB81E8F9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356158   (978910) от 30.01.2020
+
+Median Project - Constellation (2019) [FLAC|Lossless|WEB-DL|tracks] <Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978910.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Antidote 09:07
+2. Mission Adept 08:07
+3. It is not Possible 07:58
+4. Infinite Space 08:49(   Читать дальше...   )Жанр: Goa TranceПродолжительность: 01:17:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E06C63026197A6C67A2A94F11F02FE7CB807B8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356491   (978892) от 30.01.2020
 
 Alphaxone, ProtoU, Onasander - Shadows Of Forgotten Legends (2020) Cryo Chamber [FLAC 2.0|44.1/24|tracks|WEB-DL] <Dark Ambient>
@@ -6,7 +64,7 @@ Alphaxone, ProtoU, Onasander - Shadows Of Forgotten Legends (2020) Cryo Chamber 
 >>Downtempo, Ambient (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978892.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Tangerine Dream - Recurring Dreams (2020) [MP3|320 Kbps] <Electronic, Ambient, K
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978712.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Tangerine Dream - Recurring Dreams (2020) [FLAC|24/44.1|Lossless|WEB-DL|tracks] 
 >>Downtempo, Ambient (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978621.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Mikael Fyrek - Discography 7 Releases (2007-2020) [FLAC|Lossless]<IDM, Downtempo
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978614.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - The Sounds Of The Night (2016) [MP3|320 кб/с] <Club, Future House, Elect
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978179.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Simple Minds - New Gold Dream (81-82-83-84) (1982) SACD, 2003 Virgin [FLAC|Lossl
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978151.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Depeche Mode - Ultra / Rejoined (1998) [FLAC|Lossless|tracks + .cue] <Progressiv
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978064.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Maryam Sirvan - Songs of an Empty Room (2019) Past Inside the Present [FLAC|Loss
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978000.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Jogging House - Lure (2019) Seil Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambie
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977942.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Stefan & Dimitri Van Elsen (Brain Pilot, Trans-4M, Groove Mercenary) - Collectio
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977835.jpg" />
 </div>
 
 
@@ -294,7 +352,7 @@ B'utiza - B'utiza (2013) [MP3|320 кб/с]<Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976894.jpg" />
 </div>
 
 
@@ -329,7 +387,7 @@ Proswell - Amaterasu (2020) Touched Music [FLAC|Lossless|WEB-DL|tracks] <Leftfie
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976871.jpg" />
 </div>
 
 
@@ -358,7 +416,7 @@ VA - Goa 2020 Vol.1 [Compiled by DJ BiM] (2020) [MP3|320 Kbps] <Psy-Trance, Psyc
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976564.jpg" />
 </div>
 
 
@@ -387,7 +445,7 @@ Aurosonic - EOYC 2015 (2015) [MP3|320 кб/с] <Trance,Progressive Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975748.jpg" />
 </div>
 
 
@@ -416,7 +474,7 @@ Blank & Jones - Chilltronica №5 (2015) [FLAC|Lossless|tracks + .cue] <Downtemp
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975729.jpg" />
 </div>
 
 
@@ -445,7 +503,7 @@ VA - Deep Club Sounds, Vol. 1 (2016) [MP3|320 кб/с] <House, Club House, Deep 
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975682.jpg" />
 </div>
 
 
@@ -474,7 +532,7 @@ VA - Workout Women (2020) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975613.jpg" />
 </div>
 
 
@@ -503,7 +561,7 @@ VA - Hit Sexy Groove (2020) [MP3|320 Kbps] <Minimal, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975611.jpg" />
 </div>
 
 
@@ -532,7 +590,7 @@ VA - Hot Ibiza Groove (2020) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975543.jpg" />
 </div>
 
 
@@ -561,7 +619,7 @@ VA - When House Goes Deep (2020) [MP3|320 Kbps] <House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975538.jpg" />
 </div>
 
 
@@ -590,7 +648,7 @@ Time Travelers - Time Travelers (1982) LP [MP3|320 Kbps] <Electronic, Jazz, Rock
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975388.jpg" />
 </div>
 
 
@@ -619,7 +677,7 @@ VA - Top Songs For Spinning Hardstyle Hits 2020 Session [MP3|320 Kbps] <Hard Dan
 >>Hardstyle, Jumpstyle, Hardcore
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975384.jpg" />
 </div>
 
 
@@ -648,7 +706,7 @@ Michael Cassette - Singles & EP's (2007-2011) [FLAC|Lossless]<House, Progressive
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975032.jpg" />
 </div>
 
 
@@ -678,7 +736,7 @@ Ambassadors 5 - Drum & Bass Poetry (2015) [MP3|320 кб/с] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974588.jpg" />
 </div>
 
 
@@ -692,64 +750,6 @@ Ambassadors 5 - Drum & Bass Poetry (2015) [MP3|320 кб/с] <Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0ADBCD30A4BC06DC31032983E820E33C8C4F78E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974514   (974586) от 13.01.2016
-
-Jazzyspoon - 2020 Hindsight (2015) [MP3|320 кб/с] <Electronic Pop, Downtempo, Trip Hop>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perfect 2020
-02. In My Tomorrow
-03. Kish Redux (with Vim Cortez)
-04. Downtown (Denver)(   Читать дальше...   )Жанр: Electronic Pop, Downtempo, Trip HopПродолжительность: 00:46:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2D8D64699A2183C7F310568C3C3CF5CEB4389D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357167   (974389) от 03.02.2020
-
-VA - Uphill Workout (2020) [MP3|320 Kbps] <Melodic House, Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974389.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Redentor - Turn Me Up Redentoriously (9:13)
-2.Kivema - Day Off (6:11)
-3.Phil Baenz - Time (6:15)
-4.Goose Tann - Eden (6:02)(   Читать дальше...   )Жанр: Melodic House, TechnoПродолжительность: 03:12:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC2630DFC510A2EBD7C0D2553B16F23DC6BD402D
 ```
 
 https://mybot314.ru/tekegram_catalog/

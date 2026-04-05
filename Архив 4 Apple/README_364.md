@@ -6,7 +6,7 @@ TextMan 1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478653.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BusyContacts 2022.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478651.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ BarLinks: Menu Bar Bookmarks 1.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478650.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ rcmd • App Switcher 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478646.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ FontLab 8 v8.0.1.8238 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478640.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ CleanMyMac 3.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478596.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ macOS Server 5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478595.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Prism 9 v9.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478485.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Wondershare PDFelement Pro OCR 9.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478421.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ The Unarchiver - Unzip RAR ZIP 3.3.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478338.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Clipboard Manager 1.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478257.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ BetterTouchTool 2.626 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478169.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ TotalFinder 1.10.1 beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478119.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478099.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Direct Message for Instagram Pro 4.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478082.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Serial Box 09.2018 + SerialSeeker 1.3.15 (B8) + iSerial Reader 2.0.21 1.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477964.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VueScan Pro 9.6.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477960.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Downie 3.4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477826.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Business Mix for Pages 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477722.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Corporate Packs for Pages 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477716.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Layouts for Keynote 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477709.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Elements for iWork 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477708.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Forecast Bar - Weather, Radar and Alerts 2.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477606.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Permute 3 v3.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477599.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ CaptureGRID 4 v4.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477597.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Wondershare DVD Creator 6.1.3.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477592.jpg" />
 </div>
 
 

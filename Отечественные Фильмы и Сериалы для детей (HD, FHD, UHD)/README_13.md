@@ -1,3 +1,82 @@
+###  Публикация: 1748157   (35162) от 05.12.2024
+
+Любопытная Варвара (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8)
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35162.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам книг писателя Георгия Ланского.
+Десятилетняя Варвара Смородина — самый настоящий вундеркинд, необычайно умная и начитанная девочка. Она знает все про криминалистику и мечтает стать выдающейся сыщицей, как ее дедушка. «Любопытненько!» — коронное слово Варвары. Приехав на лето к бабушке и дедушке в поселок Верховой, Варя сталкивается с массой таинственных (   Читать дальше...   )Производство: Россия | «Карго Фильм», «НМГ Студия»Жанр: Детектив, приключения, детскийРежиссер: Юрий КоробейниковАктеры: Полина Айнутдинова, Сергей Фёдоров, Вероника Журавлёва, Виктор Бычков, Людмила Артемьева, Михаил Тарабукин, Наталия Медведева, Максим Карушев, Ульяна Куликова, Анастасия ТодорескуПродолжительность: ~00:27:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF3CDE49FDB66C758F9CEFAB6C7B945E16CCA8AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764295   (35060) от 06.12.2024
+
+Возвращение попугая Кеши (2024) WEB-DL [H.264/1080p]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35060.jpg" />
+</div>
+
+
+###  Подробнее
+
+В руках у Митяя, школьного учителя географии из Сочи, оказывается не просто говорящий, а умный попугай из древнего рода. Его зовут Иннокентий — или просто Кеша для своих. Попугай оказывается у Митяя в сложный момент жизни — его девушка Лера ставит отношения на паузу. Она хочет роскошной жизни, а Митяй не может ей этого обеспечить. Зато может попугай. Точнее, он может (   Читать дальше...   )Производство: Россия / КинотекаЖанр: комедия, семейныйРежиссер: Олег АсадулинАктеры: Никита Кологривый, Оксана Акиньшина, Ирина Безряднова, Марк Юсеф, Роман Курцын, Ефим Шифрин, Никита Дювбанов, Алиса Руденко, Наталья Потапова, Наталья КореннаяСубтитры: русскиеПродолжительность: 01:32:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DDAFFBAD05A381FCDFCDCBDF7B07E3C749EF69D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764332   (35015) от 06.12.2024
+
+Огонь, вода и ... медные трубы (1967) BDRip [AV1/1080p]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вася отправляется в лес, чтобы жечь уголь. На полянке он встречает Аленушку, которая пасет козленка. Но слуги Кащея Бессмертного похищают девушку прямо на глазах у Васи, и он вынужден отправиться на ее поиски.Производство: СССР / Киностудия имени М. Горького, Первое творческое объединениеЖанр: фэнтези, приключения, семейный, мелодрамаРежиссер: Александр РоуАктеры: Наталья Седых, Алексей Катышев, Георгий Милляр, Леонид Харитонов, Муза Крепкогорская, Алексей Смирнов, Михаил Пуговкин, Вера Алтайская, Лев Потемкин, Александр ХвыляСубтитры: отсутствуютПродолжительность: 01:19:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:018B46ADF5B2B57BDD014522A59356B321ED3FB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1766305   (33912) от 17.12.2024
 
 Большое космическое путешествие (1974) WEBRip [H.264/1080p] [PR]
@@ -6,7 +85,7 @@
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33912.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32782.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32511.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32488.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31752.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28169.jpg" />
 </div>
 
 
@@ -162,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28136.jpg" />
 </div>
 
 
@@ -188,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25496.jpg" />
 </div>
 
 
@@ -214,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24551.jpg" />
 </div>
 
 
@@ -240,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24422.jpg" />
 </div>
 
 
@@ -266,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22914.jpg" />
 </div>
 
 
@@ -292,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22726.jpg" />
 </div>
 
 
@@ -318,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22348.jpg" />
 </div>
 
 
@@ -344,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21688.jpg" />
 </div>
 
 
@@ -370,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20852.jpg" />
 </div>
 
 
@@ -396,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20792.jpg" />
 </div>
 
 
@@ -423,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20638.jpg" />
 </div>
 
 
@@ -450,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20492.jpg" />
 </div>
 
 
@@ -476,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20467.jpg" />
 </div>
 
 
@@ -502,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18015.jpg" />
 </div>
 
 
@@ -528,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17797.jpg" />
 </div>
 
 
@@ -554,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17508.jpg" />
 </div>
 
 
@@ -581,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16604.jpg" />
 </div>
 
 
@@ -592,84 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55E29CBF9F75684925840969AC1EF944D859CD20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803878   (13427) от 26.06.2025
-
-Сокровища гномов (2025) WEBRip [H.264/1080p]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13427.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рома — типичный авантюрист, но многое в его жизни не складывается: развод, проблемы с бизнесом. От отчаяния и в надежде расплатиться с долгами он решается на обман и вписывает себя в завещание одинокого старика, соседа по даче. Рома даже не подозревает, что вместе с домом и участком получит… четырех живых гномов. Но вместо добродушных помощников он сталкивается с (   Читать дальше...   )Производство: Россия / Наше Кино Продакшн, КиноФирмаЖанр: семейный, комедия, приключенияРежиссер: Александр БабаевАктеры: Никита Кологривый, Анастасия Уколова, Алиса Руденко, Дмитрий Чеботарёв, Роман Курцын, Никита Тарасов, Константин Ивлев, Михаил Орлов, Владимир Сычёв, Андрей СвиридовПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:35:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C78F586384C0AA6B6A8C5DF89AE5A8254026446
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803908   (13383) от 26.06.2025
-
-Новые приключения Дони и Микки (1973) DVB  [H.264/1080i]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение приключений обезьянок Дони и Микки, которые своим пребыванием в местах, где живут люди, создают массу курьёзных и комических ситуаций. Съёмка всех сцен с участием животных проходила под руководством дрессировщика Степана Исаакяна. Фильм состоит из двух частей: «Битва за двор» и «Операция „Бегемот“».Производство: СССР  / ТО "Экран"Жанр: детский, комедия, приключенияРежиссер: Георгий Бабушкин, Степан ИсаакянАктеры: Савелий Крамаров, Алексей Смирнов, Лев Лемке, Андрей Миронов, Илья Рутберг, Элла Некрасова, Степан Исаакян, Роман Юрьев-ЛунцСубтитры: отсутствуютПродолжительность: 01:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DAAED20DFA441347210C84010A3520F01DCCAAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744451   (13195) от 28.06.2025
-
-Как Иванушка-дурачок за чудом ходил (1977) DVDRip [H.264/1080p] [Handmade Upscale AI]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13195.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы спасти свою любимую от злого недуга, Иванушка отправляется за тридевять земель, побеждает коварство богатого купца Марко, жульничество Феди-конокрада, недоверие волшебника Лукомора и завоевывает любовь Насти.Производство: СССР / ЛенфильмЖанр: фэнтези, семейныйРежиссер: Надежда КошевероваАктеры: Олег Даль, Елена Проклова, Михаил Глузский, Татьяна Пельтцер, Владимир Этуш, Андрей Попов, Александр Бениаминов, Мария Барабанова, Игорь Дмитриев, Михаил БоярскийСубтитры: нетПродолжительность: 01:25:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47E1DC91E29430E5E38D9C6749AE3B9EBBC5095F
 ```
 
 https://mybot314.ru/tekegram_catalog/

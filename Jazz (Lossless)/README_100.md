@@ -6,7 +6,7 @@ Duke Ellington - Welcome To The Clubs (1956 - 1959) 2014, La Maison du Duke [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716799.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Lionel Hampton And His Orchestra - 1949 - 1950 (2001) Classics [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716767.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Julian Siegel Jazz Orchestra - Tales From The Jacquard (2017) 2021, Whirlwind Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716763.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Richard Niles Bandzilla - Bandzilla Rises!!! (2016) [FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716659.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Bill Charlap Trio - Street Of Dreams (2021) Blue Note [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716633.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Nicki Parrott - Unforgettable ~The Nat King Cole Songbook (2017) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716328.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Masabumi Kikuchi - Black Orpheus (2012) Remaster, 2016, Universal[FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716215.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Art Blakey And The Jazz Messengers - In My Prime Vol. 2 (1977) Remaster, 2015, S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716210.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Shirley Bassey - That's What Friends Are For (1993) Re-Recordings [APE|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716134.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Tony Levin (King Crimson) & Pete Levin - Levin Brothers (2014) [FLAC|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715947.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Catherine Russell - Alone Together (2019) Dot Time Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715273.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Paul Hardcastle - The Chill Lounge  Volume 1 (2012) [FLAC|Lossless]<Nu Jazz, Lou
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715209.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Baptiste Herbin - Vista Chinesa (2020) Space Time Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715193.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Smooth Jazz Music Set - Love in a Hotel Room: Compilation of Sexy Jazz (2020) [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714995.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Keiko Matsui - Echo (2019) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714819.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Buddy Tate - Seven Classic Albums (1958 - 1961) 4CD, 2016, Real Gone Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714747.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Gregory Porter - Romance (2022) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714729.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Phil Woods - The New Phil Woods Album (1975) Remaster, 2015, Sony Music[FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714318.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ The Sergio Mendes Trio Featuring Wanda De Sah - Brasil '65 (1965) Remaster, 2013
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714246.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Swing Republic - Long Legs (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Electro Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713908.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Horace Silver - The Horace Silver Collection (1952-1956) 2019, 2CD, Acrobat [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713502.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Ella Fitzgerald - The Complete Piano Duets (1964, 1975) 2020, 2CD, Verve [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713493.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Putney Dandridge - 1936 (1996) Classics [FLAC|Lossless|image + .cue] <Swing, Big
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713280.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Andrew Hill - Verona Rag (1987) Soul Note [WavPack|Lossless|image + .cue] <Post-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713279.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ Jan Johansson - 8 Bitar & Innertrio (1961, 1962) 1994, Heptagon Records [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713211.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ Jan Johansson - Live In Tallinn (1966) 1995, Heptagon Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713204.jpg" />
 </div>
 
 

@@ -1,82 +1,3 @@
-###  Публикация: 387584   (464490) от 14.09.2011
-
-Без компромиссов / Blitz (2011) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семь или восемь? Не в граммах, а в полицейских!.. Именно этим вопросом задается лондонский маньяк, решивший прославиться. Выбрав себе для первых полос таблоидов звучный псевдоним Блиц и вооружившись молотком, Барри Вайс выходит на улицы. И теперь главному герою придется спасать свою шкуру и пытаться остановить сумасшедшего убийцу…Производство: ВеликобританияЖанр: Триллер, КриминалРежиссер: Эллиотт ЛестерАктеры: Джейсон Стэтхэм, Пэдди Консидайн, Эйден Гиллен, Зэйв Эштон, Дэвид Моррисси, Ричард Ридделл, Дес Баррон, Джон Бертон, Тая Де Ла Круз, Набил ЕлухабиПеревод: ДублированныйСубтитры: РусскиеПродолжительность: 01:37:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407595   (463749) от 08.09.2020
-
-Маяк / The Lighthouse (2019) DVD5 [Custom]
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463749.jpg" />
-</div>
-
-
-###  Подробнее
-
-1890-е годы, где-то неподалёку от побережья Новой Англии. Молодой человек Эфраим Уинслоу приезжает на отдалённый остров работать новым помощником смотрителя маяка, хромого бородатого любителя выпить Томаса Уэйка. Тот обращается с подчинённым как с личным рабом и запрещает ему подниматься на сам маяк и управлять светом. Эфраима не отпускает собственное прошлое, так (   Читать дальше...   )Производство: Канада, США / Universal Pictures, Focus Features, A24, New Regency Pictures, RT FeaturesЖанр: Ужасы, фэнтези, драмаРежиссер: Роберт ЭггерсАктеры: Роберт Паттинсон, Уиллем Дефо, Валерия Караман, Логан Хоукс, Кайла Николль, Шон Кларк, Пьер Ришар, Престон Хадсон, Джеффри КратсПеревод: Дублированный (лицензия)Субтитры: Русские, английские, чешские, венгерские, польские, греческие, болгарские, румынскиеПродолжительность: 01:44:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B3A392C4BA652A2324906017B0C1A37F36845F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058870   (463612) от 03.10.2016
-
-Варкрафт / Warcraft (2016) DVD9+DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веками магия и неприступные стены защищали людей от любых напастей. Но древнее зло, побежденное и забытое тысячелетия назад, пробудилось.
-В самом сердце королевства открылся темный портал, и раса невиданных существ наводнила земли Азерота. Так начались события, призванные навсегда изменить судьбу этого мира.Производство: Китай, Канада, Япония, США / Universal Pictures, Legendary Pictures, Blizzard Entertainment, Atlas EntertainmentЖанр: Фантастика, боевик, приключенияРежиссер: Дункан ДжонсАктеры: Трэвис Фиммел, Пола Пэттон, Бен Фостер, Доминик Купер, Тоби Кеббелл, Бен Шнетцер, Роберт Казински, Клэнси Браун, Дэниэл Ву, Рут НеггаПеревод: Дублированный (лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Английский, русский, чешский, венгерский, польский, греческий, иврит, болгарский, хорватский, эстонский, латышский, литовский, румынский, словенский, украинскийПродолжительность: 01:58:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C08EBA14F58C6802F89F8CEA35B8DF51CA768F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1246234   (463310) от 10.09.2018
 
 Голос монстра / A Monster Calls (2016) DVD9
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463310.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463309.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463306.jpg" />
 </div>
 
 
@@ -163,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463204.jpg" />
 </div>
 
 
@@ -189,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463033.jpg" />
 </div>
 
 
@@ -215,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462032.jpg" />
 </div>
 
 
@@ -241,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460178.jpg" />
 </div>
 
 
@@ -267,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459992.jpg" />
 </div>
 
 
@@ -294,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458693.jpg" />
 </div>
 
 
@@ -320,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457415.jpg" />
 </div>
 
 
@@ -347,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457266.jpg" />
 </div>
 
 
@@ -373,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457059.jpg" />
 </div>
 
 
@@ -399,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456931.jpg" />
 </div>
 
 
@@ -425,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455832.jpg" />
 </div>
 
 
@@ -453,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455503.jpg" />
 </div>
 
 
@@ -479,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454652.jpg" />
 </div>
 
 
@@ -505,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454511.jpg" />
 </div>
 
 
@@ -531,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454391.jpg" />
 </div>
 
 
@@ -557,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451052.jpg" />
 </div>
 
 
@@ -584,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_450677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_450677.jpg" />
 </div>
 
 
@@ -611,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_449851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_449851.jpg" />
 </div>
 
 
@@ -637,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_449077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_449077.jpg" />
 </div>
 
 
@@ -663,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449052.jpg" />
 </div>
 
 
@@ -675,6 +596,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C96FB1CCDA437072CDAB4E1A2C6E64678EAF5A89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 390465   (448934) от 21.09.2011
+
+Артур. Идеальный миллионер / Arthur (2011) DVD5
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_448934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артур Бэч, попадая в жизненные передряги, всегда полагался на две вещи: свое огромное состояние и здравомыслие собственной няньки Хобсон. Но теперь ему придется сделать выбор между браком по расчету, который еще более укрепит его финансовое положение, и неопределенным будущим с единственным, что нельзя купить за деньги, — прекрасной Наоми, любовью всей его жизни. (   Читать дальше...   )Производство: Warner Bros. Pictures / MBST Entertainment / BenderSpink / Langley Park Productions (США)Жанр: КомедияРежиссер: Джейсон УайнерАктеры: Расселл Брэнд, Хелен Миррен, Грета Гервиг, Дженнифер Гарнер, Джеральдин Джеймс, Луис Гузман, Ник Нолти, Кристина Калф, Мерфи Гайер, Хосе Рамон РосариоПеревод: Многоголосый закадровый, профессиональныйСубтитры: Вшитые, отключаемыеЯзык субтитров: Английский, русский, украинскийПродолжительность: 01:45:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 827121   (448850) от 02.10.2014
+
+Любовь в квадрате / Des gens qui s'embrassent (2013) DVD5
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Похороны жены Зефа совпадают с церемонией свадьбы дочери Рони! Это неожиданное событие обостряет конфликт между двумя братьями, которых и так разделяет всё: профессии, женщины, монашество одного и жизнерадостность другого: всё, кроме их старого кутежника-отца и двух дочерей, обожающих друг друга…Производство: Франция, БельгияЖанр: Драма, комедияРежиссер: Даниель ТомпсонАктеры: Эрик Элмоснино, Лу де Лааж, Кад Мерад, Клара Понсо, Макс Бублиль, Моника Беллуччи, Иври Гитлис, Валери Боннетон, Алексис Михалик, Кристиан ЭкПеревод: Профессиональный (многоголосый закадровый)Субтитры: НетПродолжительность: 01:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0808538E9AF275CFD3BF19CA7B13575AABC98ED6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 390217   (448756) от 21.09.2011
+
+Хэнкок [Расширенная Версия] / Hancock [Unrated] (2008) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_448756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Есть герои, есть супергерои, и есть Хэнкок. Обладание сверхспособностями предполагает ответственность, все знают это — кроме него. За любую задачу он берётся с душой и лучшими намерениями, спасает жизни людей — ценой нечеловеческих разрушений и неисчислимого ущерба. В конце концов, терпение общественности подходит к концу: люди благодарны своему местному герою, но (   Читать дальше...   )Производство: СШАЖанр: Фантастика, Боевик, КомедияРежиссер: Питер БергАктеры: Уилл Смит, Шарлиз Терон, Валери Эзлинн, Джейсон Бейтман, Стефен Бишоп, Саманта Кэннон, Кейт Кларк, Ши Керри, Кайла ДангПеревод: ДублированныйСубтитры: Русские, Английские, УкраинскиеПродолжительность: 01:42:14
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1458992   (1023471) от 31.03.2021
+
+Жена шпиона / Spy no Tsuma / Wife of a Spy (2020) WEB-DLRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023471.jpg" />
+</div>
+
+
+###  Подробнее
+
+1940 год. Юсаку управляет торговой компанией в Кобе. Он женат на Сатоко. Находясь в командировке в Маньчжурии, Юсаку узнает страшную государственную тайну. Чтобы восстановить справедливость, он решает сообщить всему миру о своем открытии. Сатоко верит Юсаку, которого теперь обвиняют в предательстве, и клянется быть с ним независимо от последствий.Производство: Япония, C&I Entertainment, InclineЖанр: Драма, история, мелодрамаРежиссер: Киёси КуросаваАктеры: Ю Аои, Иссэй Такахаси, Масахиро Хигасидэ, Хюнри, Такаси Сасано, Юри Цунэмацу, Чак Джонсон, Рёта Бандо, Нихи, МиносукэПеревод: ФСГ АрхиАзисСубтитры: Английские - отдельным файломПродолжительность: 01:55:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A69FEB44818877A4C40D500BBD355511EA1AB36A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458714   (1023365) от 31.03.2021
+
+Колдун / Shi shen ling / The Yinyang Master (2021) WEBRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чиновника Юань Боя, перевозившего с конвоем груз ценностей, ограбила компания монстров под предводительством получеловека-полумонстра Цинмина. Того самого бывшего служащего Бюро ин-янь, семь лет назад обвинённого в попытке кражи Шкального камня и убийстве коллеги, и из-за этого теперь находящегося в бегах. Взяв в проводницы девушку Шэньле, Боя отправляется в мир (   Читать дальше...   )Производство: КитайЖанр: Боевик, ФентезиРежиссер: Ли ВэйжаньАктеры: Чэнь Кунь, Чжоу Сюнь, Уильям Чань, Цюй Чусяо, Ван Ликунь, Ван Цзысюань, Шэнь Юэ, Чжан Цзыфэн, Сунь ХунлэйПеревод: Любительский (многоголосый, закадровый) l MUZOVOZЯзык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 02:00:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73125524FEED7BEA86D8B18DBDBC5CF98D136CE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459903   (1022978) от 03.04.2021
+
+Кровавое Караоке / Showa kayo daizenshu / Karaoke Terror (2003) WEB-DLRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шесть молодых хулиганов любят попеть караоке и устроить «veselie». Один из них потехи ради убивает ножом женщину средних лет. И это было большой ошибкой, ведь его жертва состоит в группе таких же дам среднего возраста, также любящих попеть караоке и вовсе не собирающихся мириться со смертью своей подруги. Ножи, пистолеты, гранатометы — в ход пойдет все!Производство: Япония, Fellah Pictures, Kouwa InternationalЖанр: Ужасы, драмаРежиссер: Тэцуо СинохараАктеры: Рюхэй Мацуда, Каёко Кисимото, Хироюки Икэути, Ёитиро Сайто, Сава Судзуки, Мивако Итикава, Арата Фурута, Мицу Мурата, Коэн Кондо, Кандзи ЦудаПеревод: Одноголосый любительскийСубтитры: Английские - отдельным файломПродолжительность: 01:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:988609BD476B1DC0EB8C400FDBACC323A8E5E85B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1459780   (1022963) от 03.04.2021
 
 О, Люси! / Oh Lucy! (2017) HDRip [MVO]
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022963.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022782.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022579.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022439.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022253.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022248.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021763.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021748.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021403.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021278.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021252.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020886.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020479.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020452.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019960.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019951.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019607.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019524.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019310.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019261.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019187.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019124.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019017.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A202F096F30DF01F82DC306DD7A2FBEE947EA296
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465704   (1018933) от 27.04.2021
-
-Любит — не любит / Omoi, Omoware, Furi, FurareLove / Me, Love Me Not (2020) HDRip [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018933.jpg" />
-</div>
-
-
-###  Подробнее
-
-По одноимённой манге Сакисака Ио. Акари - открытая, веселая, компанейская девушка, которая перевелась в новую школу. В школе она начинает дружить с Юной, застенчивой и милой девушкой, которой сложно общаться с парнями. В последствии их общения Акари узнает, что Юна влюблена в ее брата Рио. Однако, Рио и Акари не родные брат и сестра. Кто же нравится Рио?Производство: Япония, A-1 Pictures, Toho (Tokyo) ProductionЖанр: МелодрамаРежиссер: Такахиро МикиАктеры: Фурукава Юки, Фукумото Рико, Мифунэ Кайто, Акасо Эйдзи, Хамабэ Минами, Тода НахоПеревод: FSG SkylarkmariaСубтитры: отсутствуютПродолжительность: 02:04:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07D7A4303FE76F49B98FF248AC835BDC2F3196BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465934   (1018728) от 28.04.2021
-
-Гомункул / Homunculus (2021) WEB-DLRip [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018728.jpg" />
-</div>
-
-
-###  Подробнее
-
-34-летний Сусуму Накоси когда-то работал в страховой компании, а сейчас он бездомный, ночует в машине и страдает от амнезии и невозможности испытывать эмоции. Однажды студент-медик Манабу Ито уговаривает его стать подопытным в эксперименте, суть которого заключается в просверливании отверстия в черепе. Сусуму соглашается, но после операции выясняется, что, когда (   Читать дальше...   )Производство: Япония, Booster ProjectЖанр: Фантастика, драмаРежиссер: Такаси СимидзуАктеры: Го Аяно, Рё Нарита, Юкино Кисии, Анна Исии, Сэиё Утино, Марика Ямакава, Кана Ито, Тадзиро Тамура, Сигэру Оксэ, Такэо ГодзуПеревод: Двуголосый любительский (Pazl Voice)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:56:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A054641F4EFB3E0084FA7B853D064754175305D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466239   (1018582) от 29.04.2021
-
-Самурай Момотаро / Momotaro-zamurai / Freelance Samurai / The Demon Crusader (1957) WEB-DLRip [AVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Момотаро (Райдзо Итикава) странствует по свету и ловит преступников, за что и получил прозвище "Охотник на Демонов". Никто не догадывается, что Момотаро скрывает свое настоящее имя и свое прошлое. Двадцать четыре года назад у даймё клана Вакаги родились близнецы. Старший брат Синносуке стал преемником клана, а младшего Синдзиро отдали в другую семью. Перед (   Читать дальше...   )Производство: Япония, Daiei StudiosЖанр: Драма, приключенияРежиссер: Кэндзи МисумиАктеры: Раидзо Итикава, Ёко Урадзи, Сэидзабуро Кавадзу, Митиё Когурэ, Сюндзи Сакаи, Синобу Араки, Окудзан Асао, Тосихико Го, Сэцуко Хама, Сэисиро ХараПеревод: Авторский (Виктор Береговых)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:26:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E360BDD2AA0CD730C856E7A7B5CAFC5A56A8ACA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

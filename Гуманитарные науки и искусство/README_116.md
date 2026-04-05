@@ -1,86 +1,3 @@
-###  Публикация: 462564   (95787) от 06.03.2012
-
-Г.Маркова | Серебряные фигурные сосуды XVI-XVII вв [1978] [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_95787.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Оружейной палате Московского кремля хранится крупнейшая в мире коллекция изделий западноевропейских серебряников XVI-XVII веков. Существенную часть собрания составляют фигурные сосуды. Это кубки, рукомойные кувшины, сосуды для питья в виде птиц, животных и человеческих фигур.1978Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3813F394F70E162BA2B6A91575D0E24424BD7BBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488584   (90908) от 26.04.2012
-
-Н.П.Акимов | О принципах игры [1941 - 1946] [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90908.jpg" />
-</div>
-
-
-###  Подробнее
-
-О принципах игры. Многообразие театрального поиска. Выбор жанра и позиция художника. Выбор режиссёрских приёмов.1941 - 1946Формат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477535   (86830) от 06.04.2012
-
-Карл Маркс | Капитал [1993] [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная книга является классическим произведением экономической науки, написанным с позиций трудовой теории стоимости. В ней автор определил понятие стоимости как выражение общественно необходимого труда для производства товаров, дал яркую характеристику капиталистического общества XIX века. Труд К.Маркса является завершением классической политической экономии, он оказал глобальное воздействие на ход исторического процесса в XX веке.
-
-Капитал, том 1. (1867 год)
-Капитал, том 2. (1885 год)
-Капитал, том 3. (1894 год)
-Капитал, том 4. (1905-1910 года)1993Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21BBC79205E0B71E448F394E6E4FF992FB39E5DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 470536   (83228) от 20.03.2012
 
 «Великiй путь». Виды Cибири и Великой Сибирской железной дороги [1899] [PDF]
@@ -89,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83228.jpg" />
 </div>
 
 
@@ -115,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83022.jpg" />
 </div>
 
 
@@ -141,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81324.jpg" />
 </div>
 
 
@@ -168,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80376.jpg" />
 </div>
 
 
@@ -194,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78826.jpg" />
 </div>
 
 
@@ -223,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77911.jpg" />
 </div>
 
 
@@ -249,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75154.jpg" />
 </div>
 
 
@@ -275,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74096.jpg" />
 </div>
 
 
@@ -301,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_72627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72627.jpg" />
 </div>
 
 
@@ -330,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70123.jpg" />
 </div>
 
 
@@ -356,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69729.jpg" />
 </div>
 
 
@@ -382,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69703.jpg" />
 </div>
 
 
@@ -408,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66436.jpg" />
 </div>
 
 
@@ -434,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63553.jpg" />
 </div>
 
 
@@ -460,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60884.jpg" />
 </div>
 
 
@@ -489,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59832.jpg" />
 </div>
 
 
@@ -515,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59635.jpg" />
 </div>
 
 
@@ -543,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58178.jpg" />
 </div>
 
 
@@ -569,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55202.jpg" />
 </div>
 
 
@@ -596,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55201.jpg" />
 </div>
 
 
@@ -622,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49759.jpg" />
 </div>
 
 
@@ -648,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49305.jpg" />
 </div>
 
 
@@ -674,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48579.jpg" />
 </div>
 
 
@@ -685,6 +602,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B79E25A4AD573D9F686EF0BD65E8117C88E180A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740850   (48021) от 03.08.2024
+
+Мистер Грей | Творческий курс по рисованию. Подарочное издание (2023) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальное подарочное издание "Творческого курса по рисованию" подойдет как для профи в мире изобразительного искусства, так и для новичков!
+В этой книге подобраны скетчи разной сложности и на разную тематику: анатомия человека, животные, натюрморты и пейзажи! Развивайте свои художественные навыки с помощью доступных пошаговых инструкций. Кроме того, вы (   Читать дальше...   )Жанр: Культура. ИскусствоИздательство: АСТФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9030C359F648FCA28300E8B1C094BD4C74EB6549
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740872   (47917) от 04.08.2024
+
+Эрик Оливарес, Лия Вилаур | Рисунок в графическом дизайне (2024) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рисунок – это единство техники, опыта, восприимчивости и творчества. Чтобы выразить идею, нужно уметь наблюдать, анализировать и обобщать. В графическом дизайне техническое воплощение идеи тесно связано с концепцией, которую следует изобразить, и совокупностью ценностей, которые отображаемый образ должен передать, чтобы сообщение было продуктивным. Авторы книги – (   Читать дальше...   )Жанр: Культура. ИскусствоИздательство: АСТФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B139412257B484C3415292AD421C2FF205C6D4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741055   (47901) от 04.08.2024
+
+Габриэль Мартин Ройг | Быстрая живопись. С дополненной реальностью (2023) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстрая живопись - это техника изображения модели на пленэре, для которой характерно легкое и быстрое исполнение, требующее завершения работы в сжатые сроки. Благодаря этой книге вы легко освоите все приемы и хитрости, необходимые для создания колоритных и эффектных картин.
+Иллюстрированное подарочное издание станет прекрасным подарком как начинающим живописцам, (   Читать дальше...   )Жанр: Культура. Искусство  /  ЖивописьИздательство: АСТФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD4A43D665B79E60EA302187C672D5C19D877276
 ```
 
 https://mybot314.ru/tekegram_catalog/

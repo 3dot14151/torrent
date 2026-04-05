@@ -1,3 +1,32 @@
+###  Публикация: 961515   (299082) от 02.12.2015
+
+Bangalore Choir - Metaphor (2012) [FLAC|image+.cue]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All the Damage Done 3:49
+02. Trojan Horse 3:35
+03. Silhouettes on the Shade 3:32
+04. Metaphor 3:33(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0D72F2F7CAD57EC2A36C8F79473AF74232EEB24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184682   (299027) от 18.11.2017
 
 VA - Шаг вдох: Трибьют Animal ДжаZ (2017) [MP3|320 Kbps] <Rock, Alternative>
@@ -6,7 +35,7 @@ VA - Шаг вдох: Трибьют Animal ДжаZ (2017) [MP3|320 Kbps] <Rock,
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299027.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Fit for an Autopsy - The Sea of Tragic Beasts (2019) [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298960.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Moray Eel - Priest Hunter (2006) [WavPack|Lossless|image + .cue] <Death Metal, T
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298956.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Vision Divine - When All the Heroes Are Dead (2019) [MP3|320 Kbps] <Melodic Powe
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298952.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Editors - Black Gold (2019) Compilation 2CD [FLAC|Lossless|tracks + .cue] <Indie
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298949.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Blacktop Mojo - Under the Sun (2019) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298945.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Edenbridge - Dynamind (2019) [MP3|320 Kbps] <Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298944.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Art Nation - Transition (2019) [MP3|320 Kbps] <Melodic Modern Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298943.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - Tribute To Butterfly Temple (2015) 2CD [MP3|320 кб/с]<Folk Metal, Pagan 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298917.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Nautilus Pompilius - Концерт в Москве (1987/2013) [MP3|320 kbps] <
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298915.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298901.jpg" />
 </div>
 
 
@@ -323,7 +352,7 @@ Animal ДжаZ - Шаг. Вдох (2007) Remastered, 2017 [MP3|320 Kbps] <Rock, 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298900.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ VA - Beauty In Darkness Vol. 1-7 (1996-2004) [MP3|176-320 кбит/c]<Gothic, Ro
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298808.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ Roy Orbison & The Royal Philharmonic Orchestra - A Love So Beautiful (2017) [FLA
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298773.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ Def Leppard - Def Leppard (2015) Japanese Edition [FLAC|image + .cue]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298719.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ Accept - Russian Roulette (1986) Japanese Edition /2009, Epic/ [FLAC|image +.cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298717.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ Green Day - Greatest Hits: God's Favorite Band (2017) [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298705.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ Nothing But Thieves - What Did You Think When You Made Me This Way? (2018) EP [F
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298685.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ Welshly Arms - No Place Is Home (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298600.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298540.jpg" />
 </div>
 
 
@@ -582,7 +611,7 @@ VA - Shine On You Crazy Diamond: A Tribute To Pink Floyd's Greatest Hits (2018) 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298521.jpg" />
 </div>
 
 
@@ -611,7 +640,7 @@ Saint Asonia - Flawed Design (2019) [MP3|320 Kbps] <Alternative Metal, Modern Ro
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298358.jpg" />
 </div>
 
 
@@ -640,7 +669,7 @@ _ash Aria_ - _ash Aria_ (2016) [MP3|320 Kbps] <Alternative Metal, Industrial Roc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298211.jpg" />
 </div>
 
 
@@ -669,7 +698,7 @@ Dwarrowdelf - Evenstar (2020) [FLAC|Lossless|image + .cue] <Epic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298163.jpg" />
 </div>
 
 
@@ -698,7 +727,7 @@ Rodrigo San Martin - Arcana (Act 1) (2020) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298160.jpg" />
 </div>
 
 
@@ -712,35 +741,6 @@ Rodrigo San Martin - Arcana (Act 1) (2020) [MP3|320 Kbps] <Progressive Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E68D24504EE97133DD7D4DDCF86F3094108540DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423789   (298152) от 14.11.2020
-
-Phog - This World (2020) [FLAC|Lossless|image + .cue] <Progressive Rock, Symphonic Prog, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awakening
-02. Winter Storm
-03. Satellite
-04. Altiplano(   Читать дальше...   )Жанр: Progressive Rock, Symphonic Prog, InstrumentalПродолжительность: 00:42:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FDDEAFC937671764AF13E87BE891982F564CFF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

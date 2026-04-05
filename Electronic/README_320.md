@@ -1,3 +1,118 @@
+###  Публикация: 1155537   (409447) от 03.10.2020
+
+Julianna Barwick - Discography 16 Releases (2006-2020) [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Ethereal, Abstract, Experimental, Minimal>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inspirit (Extended Version) (10:40)
+ 02. Healing Is A Miracle (Extended Version) (10:27)
+ 03. Wishing Well (Extended Version) (11:24)Тип издания: CD, WebЖанр: Ambient, Ethereal, Abstract, Experimental, Minimal •Продолжительность: 07:42:38 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BC04476D657C8CC50BBDDD9B81AC4358FF467E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252505   (409430) от 05.10.2018
+
+VA - Ori Uplift & Danny Oh - Uplifting Only 295 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Danny Oh Guestmix:
+01. Above & Beyond Vs. Sebastian Brandt - You Got To Go (Extended Mix)
+02. Jonas Steur Feat. Jennifer Rene - Fall To Pieces (Daniel Skyver Remix)
+03. Josh Gabriel Pres. Winter Kills - Hot As Hades (Jorn van Deynhoven Extended Remix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:59:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3300978969575E255F1A4A15988D6AE5682313E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252419   (409427) от 05.10.2018
+
+VA - Markus Schulz - Global DJ Broadcast - World Tour Tokyo (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz - The Awakening (Transmission 2018 Theme)
+02. Pink vs. Vincent de Moor - What About Flying Away (Markus Schulz Mashup)
+03. R3hab & Skytech - Hyperspace
+04. Artento Divini - Hypercube(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:59:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58EF21F8AC0ECCCA02622FCEBBD62A7D00C16556
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252174   (409321) от 05.10.2018
+
+VA - Incepto Deep Hybrid (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MaurizioG - Lust (original mix) (6:39)
+02. Ultraverse - Sensorica (Nio March remix) (6:29)
+03. Alec White - My Friend, What's up - (Ah)! (original mix) (7:25)
+04. Misha - The Groove (original mix) (4:11)(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 00:56:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC1DDF714E933996D90AC7F3ACAAC25DFC9F2A78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252455   (409320) от 05.10.2018
 
 VA - Black Hole Recordings: Amsterdam Dance Event (2018) [MP3|320 Kbps] <Trance>
@@ -6,7 +121,7 @@ VA - Black Hole Recordings: Amsterdam Dance Event (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409320.jpg" />
 </div>
 
 
@@ -35,7 +150,7 @@ GUNSHIP - Dark All Day (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwa
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408991.jpg" />
 </div>
 
 
@@ -64,7 +179,7 @@ Little Big - Antipositive, Pt. 2 (2018) [MP3|320 Kbps] <Rave>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408958.jpg" />
 </div>
 
 
@@ -93,7 +208,7 @@ VA - Summer Vibes - Part VI (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408887.jpg" />
 </div>
 
 
@@ -122,7 +237,7 @@ Aly & Fila - Beyond The Lights (2017) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408785.jpg" />
 </div>
 
 
@@ -151,7 +266,7 @@ VA - Different Styles Vol. 9 (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408704.jpg" />
 </div>
 
 
@@ -180,7 +295,7 @@ Liaisons Dangereuses - Liaisons Dangereuses (1981) Reissue CD, 2002, Hit Thing [
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408692.jpg" />
 </div>
 
 
@@ -209,7 +324,7 @@ VA - Beach Bar Lounge Chillout Your Mind (2019) [FLAC|Lossless|WEB-DL|tracks] <L
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408630.jpg" />
 </div>
 
 
@@ -238,7 +353,7 @@ VA - Chillout Deluxe: The Best Chill and Lounge Tunes (2016) [MP3|320 Kbps] <Dow
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408470.jpg" />
 </div>
 
 
@@ -267,7 +382,7 @@ VA - A Little Night Music: Aural Apparitions from the Geographic North (2020) Ge
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408442.jpg" />
 </div>
 
 
@@ -296,7 +411,7 @@ VA - Night Star An Evening: Full of Emotions (2016) [MP3|320 Kbps] <Deep House, 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408388.jpg" />
 </div>
 
 
@@ -325,7 +440,7 @@ Max Ananyev - Midday (2020) Whitelabrecs [FLAC|Lossless|WEB-DL|tracks] <Ambient,
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408352.jpg" />
 </div>
 
 
@@ -354,7 +469,7 @@ Thme - That's what it will be like (2020) Whitelabrecs [FLAC|Lossless|WEB-DL|tra
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408350.jpg" />
 </div>
 
 
@@ -383,7 +498,7 @@ Weber & Weber - Frozen in Time (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408198.jpg" />
 </div>
 
 
@@ -412,7 +527,7 @@ Ouvala - Psychology Of Colour (2016) Fluid Audio / Home Normal [FLAC|Lossless|WE
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408070.jpg" />
 </div>
 
 
@@ -441,7 +556,7 @@ Empire Of The Sun - Two Vines (2016) Deluxe Edition [MP3|320 Kbps] <Electropop, 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408022.jpg" />
 </div>
 
 
@@ -470,7 +585,7 @@ Andrea Parker - Discography 18 Releases (1995-2011) Touchin' Bass, Mo Wax [FLAC|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407990.jpg" />
 </div>
 
 
@@ -499,7 +614,7 @@ Timecop1983 - Night Drive (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synt
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407799.jpg" />
 </div>
 
 
@@ -528,7 +643,7 @@ Laserdance - Future Generation (1987) [OGG Vorbis|485 Kbps] <Synthpop, Electroni
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407539.jpg" />
 </div>
 
 
@@ -557,7 +672,7 @@ VA - Floating Leaves: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407508.jpg" />
 </div>
 
 
@@ -586,7 +701,7 @@ VA - World Club Tour Amsterdam: The Amsterdam Club Sound Collection (2012) [MP3|
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407504.jpg" />
 </div>
 
 
@@ -621,7 +736,7 @@ Pet Shop Boys - Disco (1986) [OGG Vorbis|485 Kbps] <Synthpop, Electro>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407501.jpg" />
 </div>
 
 
@@ -635,122 +750,6 @@ Pet Shop Boys - Disco (1986) [OGG Vorbis|485 Kbps] <Synthpop, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E8389F300DF216DC8BAFCBED5830EC17037AB84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573433   (407499) от 03.09.2022
-
-Oblivion - Secrets Of Time (The 4-th Album) (2021) [OGG Vorbis|485 Kbps] <Synthpop, Electronic>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Time Keeper (Intro)	1:59
-02. A New World (Terminator Koto Theme)	5:21
-03. Future Mind	5:26
-04. Galaxy Of Broken Dreams	7:13(   Читать дальше...   )Жанр: Synthpop, ElectronicПродолжительность: 01:02:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F82C285FF4383A9408558960EC76CE45BBF4E248
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574164   (407483) от 03.09.2022
-
-VA - Costa - Vocal Trance Hits (2022) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Costa & Kate Louise Smith - We Are The Universe (Original Mix) (3:36)
-02. Costa & Tricia McTeague - Call I'll Be There (Original Mix) (3:42)
-03. Costa & Ellie Lawson - Illuminate (Original Mix) (3:51)
-04. Ana Criado & Costa - Love Is An Act Of Courage (Original Mix) (3:21)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 06:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9557A71E53517A3BF48929449AC7157F114DFFE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326147   (407423) от 18.09.2019
-
-VA - Garden Of Eden Vol.1 (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Relax>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 351 Lake Shore Drive - Run (Original Mix) 3:06
-02. Johannes Huppertz & Mirage Of Deep feat. Gushi - Selflove (Mirage Of Deep Remix) 5:16
-03. Lemongrass - Habla Mi Corazon (Kevin Yost's Otherside Of The Word Remix) 7:22
-04. Marga Sol - Falling (Original Mix) 6:30(   Читать дальше...   )Жанр: Downtempo, ChillOut, RelaxПродолжительность: 02:08:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F59B0A51E091F87D09C8111B6F66028145B7786E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413803   (407242) от 05.10.2020
-
-Fatih Tuter - Beehive (2020) Shimmering Moods Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Dub Techno>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407242.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	Birds And Sunrise On Langeoogerstr.	8:22
-2	Appreciation	7:32
-3	Winterwald	7:44
-4	In Your Hometown, Before You Were Born (feat. Ryckyboy)	7:14(   Читать дальше...   )Жанр: Ambient, Drone, Dub TechnoПродолжительность: 00:50:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:433B4E7C813556329F1B5E31485BE29E1CF28DD6
 ```
 
 https://mybot314.ru/tekegram_catalog/

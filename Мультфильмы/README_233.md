@@ -1,3 +1,135 @@
+###  Публикация: 571580   (382754) от 09.11.2012
+
+Приключения братца Кролика / Brer Rabbit Tales (1989) VHSRip [H.264]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультфильм по мотивам "Сказок дядюшки Римуса" Джоэля Чандлера Харриса.Жанр: Рисованная анимация, Детский, КомедияРежиссер: Al Guest, Jean MathiesonПерсонажи: Братец Кролик и прочиеПеревод: ДублированныйПродолжительность: 00:42:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FADFFB068C2973E6A136CD151E82C973C9C7DCF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308462   (382508) от 21.09.2019
+
+Любовь, смерть и роботы / Love, Death & Robots (2019) WEBRip [H.264/720p] (сезон 1, серии 1-18 из 18) BTI Studios, Есарев [PR]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект «Любовь, смерть и роботы» - это отдельный вид искусства. Сериал представляет собой великолепную смесь историй, представленных в совершенно различных жанрах. Здесь вас ожидает столкновение с классическими элементами научной фантастики, необычным юмором, удивительным фэнтезийным миром и по-настоящему пробирающим до мурашек ужасом. Каждый из персонажей в проекте (   Читать дальше...   )Производство: США, Blur Studio, NetFlixЖанр: мультфильм, ужасы, фантастика, фэнтези, комедия, боевик, криминал, минисериал,
+ для взрослыхРежиссер: Виктор Мальдонадо, Альфредо Торрес, Габриэле ПенначиолеПеревод: Дубляж (BTI Studios & Пифагор по заказу Netflix), Авторский (Дмитрий Есарев)Субтитры: отсутствуютПродолжительность: 03:17:12 (18 серий по ~00:11:00)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77E63B125F3A1AA3DC80CD20C855A1CB1A548960
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567392   (382446) от 09.11.2012
+
+Совершенный Человек-Паук / Ultimate Spider-Man (Сезон: 1, серии: 1-26 из 26) (2012) WEB-DL [H.264/720p-LQ] [Обновляемая] [EN/RU sub]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современный Человек-Паук» - американский мультсериал о приключениях знаменитого супергероя Человека-паука из комиксов Marvel, премьера которого состоялась 1 апреля 2012 года.
+Мультсериал основан на одноимённой серии комиксов, повествующих о ещё молодом Человеке-пауке.Жанр: анимация / экшенСубтитры: ВшитыеЯзык: АнглийскийФормат: MKVКачество: WEB-DLПродолжительность: 23 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A45D3830CB4FB263BEE14DC903FF94F9E9BC7CD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 404400   (382390) от 29.10.2011
+
+Моя семья (1989) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ДетскийРежиссер: Наталья МарченковаПродолжительность: 00:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1338CDB6B1A1A9940FE062E7170DF24532550CE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 833417   (382193) от 23.10.2014
+
+Как приручить дракона 2 / How to Train Your Dragon 2 (2014) DVD5 [BD -> DVD]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382193.jpg" />
+</div>
+
+
+###  Подробнее
+
+С момента примирения викингов и драконов прошло пять лет. Пока Астрид, Сморкала и остальные ребята проводят время, соревнуясь друг с другом в популярных на острове драконьих гонках, Иккинг и Беззубик путешествуют по небу, составляя карту неизвестных мест. Когда одно из их приключений приводит к открытию тайной ледяной пещеры, которая является домом для сотен ранее (   Читать дальше...   )Жанр: Мультфильм, Фэнтези, Комедия, Приключения, СемейныйРежиссер: Дин ДеБлуаАктеры: Джей Барушель. Кейт Бланшетт, Джерард Батлер, Крэйг Фергюсон, Америка Феррера, Джона Хилл, Кристофер Минц-Плассе, ТиДжей Миллер Кристен Уиг, Джимон ХонсуПеревод: ДублированныйЯзык субтитров: Русский (Full, Forced), Английский (Full)Продолжительность: 01:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A88B30A954747C70E233904813415A61A70FAB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 832860   (382189) от 23.10.2014
 
 Как приручить дракона 2 / How to Train Your Dragon 2 (2014) BDRip [H.264]
@@ -6,7 +138,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382189.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381934.jpg" />
 </div>
 
 
@@ -59,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381290.jpg" />
 </div>
 
 
@@ -85,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381210.jpg" />
 </div>
 
 
@@ -111,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381207.jpg" />
 </div>
 
 
@@ -138,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381195.jpg" />
 </div>
 
 
@@ -164,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381113.jpg" />
 </div>
 
 
@@ -190,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380949.jpg" />
 </div>
 
 
@@ -216,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380939.jpg" />
 </div>
 
 
@@ -242,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380635.jpg" />
 </div>
 
 
@@ -270,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380108.jpg" />
 </div>
 
 
@@ -296,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380003.jpg" />
 </div>
 
 
@@ -322,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379932.jpg" />
 </div>
 
 
@@ -348,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379926.jpg" />
 </div>
 
 
@@ -374,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379743.jpg" />
 </div>
 
 
@@ -400,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379058.jpg" />
 </div>
 
 
@@ -426,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379042.jpg" />
 </div>
 
 
@@ -452,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379030.jpg" />
 </div>
 
 
@@ -478,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378987.jpg" />
 </div>
 
 
@@ -504,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378458.jpg" />
 </div>
 
 
@@ -530,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378352.jpg" />
 </div>
 
 
@@ -541,138 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71E9230E7F14C4DBA4C42C38A551E7627C2E0211
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573387   (378102) от 11.11.2012
-
-Bugged (48 серий) / Bugged (2009-2010) SATRip
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Французский мультик про собачку, которая охотится за редким жуком, но безрезультатно. Чем больше охотится, тем больше злится.Жанр: мультфильм, фантастика, комедияРежиссер: Franck DemolliereПеревод: Без слов / НемойПродолжительность: 05:05:11 (48x~00:06:35)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDEC32CD1BF235F7996B03AA57F00BA22F7660B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175598   (378067) от 18.10.2017
-
-Трио в перьях / Richard the Stork (2017) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Воробей Ричард с рождения воспитывался аистами и считает себя одним из них. Но приходит время мигрировать на юг. Родители боятся, что Ричард не справится с перелетом, и оставляют его дома. Но воробей решает доказать всем, что он настоящий аист. Он сам отправляется в Африку. По дороге он заводит дружбу со странноватой совой и эксцентричным попугаем, мечтающим о большой (   Читать дальше...   )Производство: Германия, Бельгия, Люксембург, НорвегияЖанр: мультфильм, приключенияРежиссер: Тоби Генкель, Реза МемариАктеры: Тильман Дёблер, Cooper Kelly Kramer, Шеннон Конли, Кристиан Гол, Николетт Кребиц, Марк Томпсон, Марко Эссер, Джейсон Гриффит, Маркус Офф, Эрика ШредерПеревод: Дублированный (iTunes)Субтитры: отсутствуют.Продолжительность: 01:24:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B35C91B5E5D25274A7D95063E2FA04F6C6F7853
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175433   (378058) от 18.10.2017
-
-Трио в перьях / Richard the Stork (2017) HDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Воробей Ричард с рождения воспитывался аистами и считает себя одним из них. Но приходит время мигрировать на юг. Родители боятся, что Ричард не справится с перелетом, и оставляют его дома. Но воробей решает доказать всем, что он настоящий аист. Он сам отправляется в Африку. По дороге он заводит дружбу со странноватой совой и эксцентричным попугаем, мечтающим о большой (   Читать дальше...   )Производство: Германия, Бельгия, Люксембург, НорвегияЖанр: Мультфильм, приключенияРежиссер: Тоби Генкель, Реза МемариАктеры: Тильман Дёблер, Cooper Kelly Kramer, Шеннон Конли, Кристиан Гол, Николетт Кребиц, Марк Томпсон, Марко Эссер, Джейсон Гриффит, Маркус Офф, Эрика Шредер ...Перевод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:24:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C623E3630E6FA7D56B9339B1B2A8F733CE2F880
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 833732   (377929) от 25.10.2014
-
-Огги и тараканы / Oggy et les cafards / Oggy and the Cockroaches (1998-2008) 4xDVD5 (Сезон 3, Серии 39 из 39)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Толстый добродушный обыватель, кот Огги хочет только одного: чтобы никто не мешал ему со вкусом наслаждаться спокойной и размеренной жизнью, с ее невинными радостями — вкусной едой, телевизором, мягким пуфом, на котором так уютно спится…
-
-Но бедного кота одолевают несносные соседи: три вредных таракана (Джой, Марки и Ди-Ди) постоянно отравляют ему жизнь жестокими (   Читать дальше...   )Жанр: Рисованная анимация, Комедия, ДетскийРежиссер: Оливье Жан МариПерсонажи: Коты Огги и Джек, тараканы Джои, Ди Ди, МаркиПеревод: Без слов / НемойСубтитры: ОтсутствуютПродолжительность: 78 серий ~ 00:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A80BCDDAAE7060C7C455330E11B8109ABAAD3FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573337   (377758) от 11.11.2012
-
-Нити / Strіngs (2004) [H.264/720p-LQ] BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377758.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трагическая гибель владыки великого Авалона вновь разожгла веками тлевшую вражду между авалонцами и зеритами. Юный сын погибшего государя Хэл Тара озабочен не будущим царствованием, а желанием жестоко отомстить зеритам за смерть отца. Переодевшись в простые одежды и взяв с собой только отцовский меч, Хэл покидает родной замок и отправляется навстречу неизвестности…Жанр: Кукольный, Приключения, Фэнтези, ДрамаРежиссер: Андерс Рённов КларлундПерсонажи: Джеймс МакЭвой, Катрин МакКормак, Джулиан Гловер, Дерек Джекоби, Иэн Харт, Клер Скиннер, Дэвид Хэрвуд, Саманта Бонд, Марина Бурас, Пернилла ХёймаркПеревод: Профессиональный (многоголосый, закадровый) / Авторский (одноголосый, закадровый) Антон КарповскийПродолжительность: 01:31:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:208F6776AE37A6242237D62BD551D456DDFD0CE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

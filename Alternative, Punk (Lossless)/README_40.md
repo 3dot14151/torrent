@@ -6,7 +6,7 @@ Marilyn Manson - Heaven Upside Down (2017) [FLAC|Lossless|tracks + .cue] <Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390341.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Deftones - Covers (2011) Compilation [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388973.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Girls In Synthesis - Now Here's An Echo From Your Future (2020) [FLAC|Lossless|W
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387882.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Gorillaz - Cracker Island / New Gold (2022) 2 Singles [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387767.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ The Naked and Famous - Simple Forms (2016) [FLAC|Lossless|WEB-DL|tracks] <Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386990.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ In Gloom - Self Titled (2020) Remaster, 2022 [FLAC|Lossless|WEB-DL|tracks] <Deat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385784.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ The Last Kind Words - 2 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Post-M
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385783.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Bloodbather - Silence (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385623.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Starsailor - Love is Here (2001) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385446.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Ends With A Bullet - I´m Still Standing (2022) [FLAC|Lossless|WEB-DL|tracks] <M
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383855.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Crust (aus) - The Wake (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, G
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383630.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Smith & Myers - Volume 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383626.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Alchemists - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Met
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381664.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Mirror To The Moon - Fluorescent Glow (2022) [FLAC|Lossless|WEB-DL|tracks] <Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381659.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Flight Paths - American Renaissance (2022) [FLAC|Lossless|WEB-DL|tracks] <Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381648.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Motionless In White - Creatures (2010) Deluxe Edition, Remaster, 2020, Fearless 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381591.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Plunk Tone - Комплекс Мессии (2009) [FLAC|Lossless|tracks + .cue] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381257.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Metronomy - Metronomy Forever (2019) [FLAC|Lossless|tracks + .cue] <Alternative,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381084.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Sum 41 ‎ - Order In Decline (2019) Deluxe Edition [FLAC|Lossless|tracks + .cue
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381056.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ INXS - The Remixes (2004) Compilation [FLAC|Lossless|tracks + .cue] <Pop Rock, N
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380923.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Linkin Park - Hybrid Theory (2000) 20th Anniversary Edition, 2020, Warner Record
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380891.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Linkin Park - Hybrid Theory (20th Anniversary Edition) (2020) 5CD, Box Set [FLAC
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380757.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Before I Die - Rasgando la Superficie (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379507.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Darkwvlf - All The World's A Stage (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Meta
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379500.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Cian - Surefire (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379497.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Before I Die - Mental Prison (2019) Deluxe Version [FLAC|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379421.jpg" />
 </div>
 
 

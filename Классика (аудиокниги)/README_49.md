@@ -1,3 +1,30 @@
+###  Публикация: 380314   (159424) от 10.11.2023
+
+Александр Пушкин | Руслан и Людмила (Радиоспектакль) (2009) [MP3, Михаил Козаков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Театр у микрофона.
+Свою первую поэму «Руслан и Людмила» А.С. Пушкин начал писать, еще учась в Лицее. Трудно отнести это произведение к какому-то определенному жанру. Это и волшебная сказка, и историческое повествование, и романтическая поэма, и героический былинный эпос, и гротескная фантастика, поэма о самоотверженной любви, о торжестве добра над силами зла, (   Читать дальше...   )Жанр: Русская литература, классика, поэмаИздательство: Студия «АРДИС»Продолжительность: 03:20:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4CF1C01CE7E616BFBFB05BFD613BC377B85ED0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1676055   (159338) от 11.11.2023
 
 Анна Ахматова | Реквием. Стихотворения и поэмы (2010) [MP3, Алла Демидова]
@@ -6,7 +33,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159338.jpg" />
 </div>
 
 
@@ -34,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159135.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159114.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159110.jpg" />
 </div>
 
 
@@ -113,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159098.jpg" />
 </div>
 
 
@@ -140,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159089.jpg" />
 </div>
 
 
@@ -167,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159088.jpg" />
 </div>
 
 
@@ -194,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159026.jpg" />
 </div>
 
 
@@ -220,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159001.jpg" />
 </div>
 
 
@@ -247,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158991.jpg" />
 </div>
 
 
@@ -274,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158837.jpg" />
 </div>
 
 
@@ -302,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158833.jpg" />
 </div>
 
 
@@ -329,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158818.jpg" />
 </div>
 
 
@@ -356,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158807.jpg" />
 </div>
 
 
@@ -384,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158796.jpg" />
 </div>
 
 
@@ -413,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158252.jpg" />
 </div>
 
 
@@ -439,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157806.jpg" />
 </div>
 
 
@@ -465,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157646.jpg" />
 </div>
 
 
@@ -492,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157549.jpg" />
 </div>
 
 
@@ -520,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157319.jpg" />
 </div>
 
 
@@ -548,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156802.jpg" />
 </div>
 
 
@@ -574,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156657.jpg" />
 </div>
 
 
@@ -602,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156644.jpg" />
 </div>
 
 
@@ -629,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156564.jpg" />
 </div>
 
 
@@ -656,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156541.jpg" />
 </div>
 
 
@@ -670,32 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F53C0C93E67BC977D3DA11CEF66BC8DE37AE1B52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 339427   (156422) от 13.11.2023
-
-Умберто Эко | Остров накануне (2006) [MP3, Инна Сытник]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Постмодернистский роман всемирно известного итальянского писателя и ученого Умберто Эко «Остров накануне» (1994) появился после его прославленных романов «Имя розы» и «Маятник Фуко» и тоже стал сенсацией в мире литературы. Это роман-игра, написанный в стиле прозы барокко, исполненной цитат, отсылок, аллюзий, «плетения словес». Действие романа разворачивается в XVII (   Читать дальше...   )Жанр: Зарубежная литература, классика, историко-приключенческий романПеревод: Елена КостюковичИздательство: БиблиофоникаПродолжительность: 19:01:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3572B8BDA1CA772044C288DD8A3824D6B122BF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

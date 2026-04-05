@@ -1,3 +1,58 @@
+###  Публикация: 1121879   (799594) от 03.04.2017
+
+Mirror for Sony TV 1.4.3 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отображение экрана для телевизоров Sony
+Приложения для зеркального отображения экрана вашего Mac на любом Смарт-ТВ Sony. Никаких проводов и дополнительных аппаратных средств не требуется!
+
+Приложение работает на любой модели Смарт-ТВ Sony с 2012 и позже.(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 03 апреля 2017Разработчик: AirBeamTV BVПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE8C3928E863F173DE7B87C244592033034E9645
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506774   (799529) от 01.11.2021
+
+musicMath Touch 5.5 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799529.jpg" />
+</div>
+
+
+###  Подробнее
+
+musicMath - это музыкальный инструмент, который включает в себя калькулятор временного кода, темп нажатия, преобразователь темпа для задержки в миллисекундах и герц, преобразователь ноты в таблицу частот, преобразователь длины выборки, преобразователь изменения темпа и преобразователь частоты в ноты.Тип издания: macOS SoftwareРелиз состоялся: 30.10.2021Разработчик: © 2021 Laurent ColsonПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский и Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:695B960C1B2600D10C98FAFA6CD3A0EE7651E197
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506717   (799524) от 01.11.2021
 
 Textual 7 v7.2.1 fix [En]
@@ -6,7 +61,7 @@ Textual 7 v7.2.1 fix [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799524.jpg" />
 </div>
 
 
@@ -33,7 +88,7 @@ PDF Squeezer 4 v4.3.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799500.jpg" />
 </div>
 
 
@@ -60,7 +115,7 @@ QuickRes 4.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799486.jpg" />
 </div>
 
 
@@ -86,7 +141,7 @@ QuickRes 4.4.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799222.jpg" />
 </div>
 
 
@@ -112,7 +167,7 @@ Videoloupe for Mac 1.1.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799202.jpg" />
 </div>
 
 
@@ -141,7 +196,7 @@ Cinch 1.2.4 fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799130.jpg" />
 </div>
 
 
@@ -168,7 +223,7 @@ Prizmo 4 Pro Scanning + OCR v4.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799073.jpg" />
 </div>
 
 
@@ -195,7 +250,7 @@ Newton (Plugin for After Effects) 2.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798996.jpg" />
 </div>
 
 
@@ -224,7 +279,7 @@ Playr 2.2.4 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798799.jpg" />
 </div>
 
 
@@ -251,7 +306,7 @@ Display Maestro 5 v5.0.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798764.jpg" />
 </div>
 
 
@@ -278,7 +333,7 @@ Vitamin-R 4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798758.jpg" />
 </div>
 
 
@@ -304,7 +359,7 @@ iNet Network Scanner 2.8.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798755.jpg" />
 </div>
 
 
@@ -331,7 +386,7 @@ Battery Health 3 v1.0.28 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798454.jpg" />
 </div>
 
 
@@ -358,7 +413,7 @@ Disk Drill Media Recovery 4.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798421.jpg" />
 </div>
 
 
@@ -385,7 +440,7 @@ SketchUp Pro 2021.1.2 v21.1.331 fix [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798339.jpg" />
 </div>
 
 
@@ -411,7 +466,7 @@ Voice Memo 2.3.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798307.jpg" />
 </div>
 
 
@@ -437,7 +492,7 @@ Resolutionator 2.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798304.jpg" />
 </div>
 
 
@@ -464,7 +519,7 @@ Murasaki 2.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798297.jpg" />
 </div>
 
 
@@ -490,7 +545,7 @@ Renamer 6.0.6 fix [Ru/En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798291.jpg" />
 </div>
 
 
@@ -516,7 +571,7 @@ Araxis Merge Pro Edition 2021.5644 fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798282.jpg" />
 </div>
 
 
@@ -543,7 +598,7 @@ Aurora HDR 2019 1.0.1 fix [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798272.jpg" />
 </div>
 
 
@@ -569,7 +624,7 @@ Archiver 4.0.0 fix [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798255.jpg" />
 </div>
 
 
@@ -595,7 +650,7 @@ TinyPNG and TinyJPG: Photoshop Plugin for Mac 2.5.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798227.jpg" />
 </div>
 
 
@@ -621,7 +676,7 @@ Shortcut Bar 2.9.4 fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798139.jpg" />
 </div>
 
 
@@ -633,59 +688,6 @@ Shortcut Bar - невероятно удобное приложение, с ег
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:943BD3F5D23A7FD2DFAB256B338E8D59EFCF1F7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508048   (798133) от 06.11.2021
-
-DxO PhotoLab 5 ELITE Edition 5.0.1 CR2 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обрабатывайте RAW и JPEG изображения в наилучшем качестве без труда: DxO PhotoLab обеспечивает полный набор умных коррекций, которые Вы можете настроить в ручную в любой момент. Возьмите контроль над Вашими фото: эффективно убирайте шум, исправляйте освещение, восстанавливайте детали цветов, корректируйте оптические искажения и улучшайте детализацию.
-Придайте Вашим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.10.2021Разработчик: DxO LabsПоддерживаемая ОС: macOS 10.15.0 +Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDE9E0F97A5F185ED5F7012A0E040F424F8E08F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508088   (798121) от 06.11.2021
-
-NCH Express Invoice Plus 9.14 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простое программное обеспечение для выставления счетов. Для управления и отслеживания ваших счетов на Mac. Express Invoice позволяет создавать счета-фактуры, которые можно распечатать, отправить по электронной почте или факсу напрямую клиентам для более быстрой оплаты. Функция отчетности позволяет отслеживать платежи, просроченные счета, работу отдела продаж и многое (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.10.2021Разработчик: © 2021 NCH SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90FC4DA2C3CE58849A5836D3288DC5DFC95C30B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 507159   (859538) от 25.09.2021
+
+Макс Гувюлер | Зебра - это зебра (2011) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Город, населенный зебрами, был очень яркий и веселый! Зебры-велосипедисты, зебры-чиновники, зебры-художники, зебры-плотники и даже зебры-повара - каких только не встретишь. А одна маленькая зебра никак не могла определиться, кто она такая, чем отличается от других и что у нее с ними общего. И тогда она решила поэкспериментировать...Жанр: Детская литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29878E95F93DF70814417343E4CD9150C59C9F3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498166   (859435) от 25.09.2021
 
 И.И. Лерер | Иврит для детей в картинках. Интерактивный тренажер с суперзакладкой (2018) [PDF]
@@ -6,7 +32,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859435.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859335.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859271.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859156.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859107.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859096.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859079.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858980.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858950.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858909.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858890.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858866.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_858863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_858863.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858862.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858829.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858626.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858478.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858383.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858132.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные материалы для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858002.jpg" />
 </div>
 
 
@@ -539,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857643.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857564.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857560.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857524.jpg" />
 </div>
 
 
@@ -645,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857495.jpg" />
 </div>
 
 
@@ -656,33 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EDE2A689D90BF4C6905726E0AB5CED421B3DFD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000685   (857307) от 26.03.2016
-
-Александр Алир (ред.) | Анекдоты с героями мультиков (2007) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Прочие материалы для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857307.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книгу вошли детские анекдоты о самых известных мультипликационных героях: Винни-Пухе и Пятачке, Волке и Зайце, Чебурашке и Крокодиле Гене, коте Матроскине и Шарике и многих других. Каждый анекдот имеет прекрасную цветную иллюстрацию, выполненную художником-мультипликатором, автором соответствующего художественного образа.
- Для младшего школьного возраста.Жанр: Анекдоты, ЮморФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FF79A8696B4CC291B7FC9E5E75D3CDF3F263258
 ```
 
 https://mybot314.ru/tekegram_catalog/

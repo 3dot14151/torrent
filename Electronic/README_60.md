@@ -1,3 +1,61 @@
+###  Публикация: 974514   (974586) от 13.01.2016
+
+Jazzyspoon - 2020 Hindsight (2015) [MP3|320 кб/с] <Electronic Pop, Downtempo, Trip Hop>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perfect 2020
+02. In My Tomorrow
+03. Kish Redux (with Vim Cortez)
+04. Downtown (Denver)(   Читать дальше...   )Жанр: Electronic Pop, Downtempo, Trip HopПродолжительность: 00:46:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2D8D64699A2183C7F310568C3C3CF5CEB4389D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357167   (974389) от 03.02.2020
+
+VA - Uphill Workout (2020) [MP3|320 Kbps] <Melodic House, Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974389.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Redentor - Turn Me Up Redentoriously (9:13)
+2.Kivema - Day Off (6:11)
+3.Phil Baenz - Time (6:15)
+4.Goose Tann - Eden (6:02)(   Читать дальше...   )Жанр: Melodic House, TechnoПродолжительность: 03:12:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC2630DFC510A2EBD7C0D2553B16F23DC6BD402D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357464   (974346) от 03.02.2020
 
 Schwarz & Funk - The Deeparture Sessions (2015) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Chillout, Lounge, Nu Jazz>
@@ -6,7 +64,7 @@ Schwarz & Funk - The Deeparture Sessions (2015) [FLAC|Lossless|WEB-DL|tracks] <E
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974346.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ New Arcades - Returning Home (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Re
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974340.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Tangerine Dream - Recurring Dreams (2020) Studio/Compilation, 2019 [FLAC|Lossles
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974329.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Valentine's Day Collection: King Street Sounds 20 Years Essentials (2013) [
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974055.jpg" />
 </div>
 
 
@@ -128,7 +186,7 @@ VA - Defqon.1 (2012) [FLAC|Lossless]<Hardstyle, Hardcore, Hardtrance>
 >>Hardstyle, Jumpstyle, Hardcore (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973260.jpg" />
 </div>
 
 
@@ -163,7 +221,7 @@ Bob Sinclar, Dimitri From Paris - Knights Of The Playboy Mansion (2011) 2CD, Mix
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972030.jpg" />
 </div>
 
 
@@ -192,7 +250,7 @@ Davey Suicide - Discography 9 Releases (2012-2020) [MP3|320 Kbps] <Industrial Me
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971918.jpg" />
 </div>
 
 
@@ -221,7 +279,7 @@ Mflex - Kidnap My Soul (2013) [MP3|320 кб/с]<Nu italo disco, Synthpop, New Wa
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970893.jpg" />
 </div>
 
 
@@ -256,7 +314,7 @@ Madonna - Bitch I’m Madonna (2015) [FLAC|Lossless|tracks] <Electronic, House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970865.jpg" />
 </div>
 
 
@@ -285,7 +343,7 @@ Turboslash - Speed (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, D
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970739.jpg" />
 </div>
 
 
@@ -314,7 +372,7 @@ VA - Spanish Hits For Germany - CD1: House Side (1997) [APE|image+.cue] <House, 
 >>Hardstyle, Jumpstyle, Hardcore (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970660.jpg" />
 </div>
 
 
@@ -343,7 +401,7 @@ VA - Deep House Hits 2020 [FLAC|Lossless|WEB-DL|tracks] <House, DeepHouse, Progr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970649.jpg" />
 </div>
 
 
@@ -372,7 +430,7 @@ VA - Goa 2016 Vol. 1 (2016) [MP3|320 кб/с] <Psychedelic, Progressive Psytranc
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970191.jpg" />
 </div>
 
 
@@ -401,7 +459,7 @@ VA - HouseVip (12.01.2010) [MP3|320 kbps]<Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970144.jpg" />
 </div>
 
 
@@ -436,7 +494,7 @@ Howard Jones - Celebration (30th Anniversary) (2013) [FLAC|Lossless]<SynthPop, N
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970121.jpg" />
 </div>
 
 
@@ -465,7 +523,7 @@ VA - Welcome To Ibiza (2012) [MP3|320 кб/с]<House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969884.jpg" />
 </div>
 
 
@@ -495,7 +553,7 @@ Rupesh Cartel - Contract (2005) [FLAC|Lossless|image + .cue] <Synth-pop, Trance>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969767.jpg" />
 </div>
 
 
@@ -524,7 +582,7 @@ Stars Crusaders - Welcome To Hydra (2017) [FLAC|Lossless|image + .cue] <Synth-po
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969761.jpg" />
 </div>
 
 
@@ -553,7 +611,7 @@ VA - Ninthwave Records 2000-2002 (Promo CD) (2003) [FLAC|Lossless|image + .cue] 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969759.jpg" />
 </div>
 
 
@@ -582,7 +640,7 @@ VA - Holiday Hit Mix '97 (1997) 2CD [FLAC|Lossless|image + .cue] <House, Techno,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969727.jpg" />
 </div>
 
 
@@ -611,7 +669,7 @@ Cubering - Mirage (2020) Microcosmos Records [FLAC|Lossless|WEB-DL|tracks] <Psyb
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969708.jpg" />
 </div>
 
 
@@ -640,7 +698,7 @@ The Avener - Heaven (2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep House, Elect
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969703.jpg" />
 </div>
 
 
@@ -669,7 +727,7 @@ VA - Erotica, Vol. 5 (Most Erotic Chillout & Smooth Jazz Tunes) (2020) [MP3|320 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969640.jpg" />
 </div>
 
 
@@ -698,7 +756,7 @@ VA - Erotica, Vol. 4 (Most Erotic Smooth Jazz & Chillout Tunes) (2018) [MP3|320 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969636.jpg" />
 </div>
 
 
@@ -712,64 +770,6 @@ VA - Erotica, Vol. 4 (Most Erotic Smooth Jazz & Chillout Tunes) (2018) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F5D11B8779A25CE4AFE110B651A62CE2D90882B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 688671   (969168) от 17.01.2016
-
-John Askew - 2 Albums , 10 Compilations (2005 - 2015) [FLAC|Lossless|CD-WEB|tracks/image+.cue]<Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beirut (3:34)
-02. Nothing Left Between Us (feat. Senadee) (6:26)
-03. Blue (6:14)
-04. 667 (feat. Activa) (5:07)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:05:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B8ECB8A349B2B35F472547D043FE38C62FFEBF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 817967   (969166) от 17.01.2016
-
-Traxtorm records - Hardcore Italia podcast 1-106 (2011-2016) (обновляемая)[MP3|128 кб/с]<Hardcore>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01) Koozah - Stand up
-02) DJ Mad Dog - Rewind #TiH (Xcite remix)
-03) Piecemaker - Brutal deluxe
-04) Alien T feat. MC Alee - Our light #TiH(   Читать дальше...   )Жанр: HardcoreПродолжительность: 01:01:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB97AECF3805D96F0F01EABC295F44CFA689B160
 ```
 
 https://mybot314.ru/tekegram_catalog/

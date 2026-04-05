@@ -1,3 +1,113 @@
+###  Публикация: 1516821   (165090) от 12.12.2021
+
+CloudBeats: Cloud Music Player 1.8.3 PRO [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нет нужды качать и хранить аудио-контент на телефон и забивать объём памяти.
+CloudBeats - облачный музыкальный проигрыватель. Скачали в облако и прямо оттуда слушайте он-лайн и офф-лайн.
+Если вам нужен автономный облачный проигрыватель и одновременно инструмент для синхронизации всех ваших музыкальных альбомов и загрузки песен на несколько устройств, этот облачный (   Читать дальше...   )Тип издания: Пиратка (Pro)Разработчик: CloudBeatsПоддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF92B35C6587E8192A19D8855494F6EDDC76907F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516570   (165053) от 12.12.2021
+
+CookPad 2.228.1.0 Premium Mod [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cookpad - это международная платформа для обмена рецептами и кулинарное сообщество.
+Здесь каждый день такие же люди, как и вы, делятся тысячами рецептов и находят вдохновляющие идеи.
+Приложение предоставляет доступ к обширной бае советов по кулинарии.
+Поддерживается поиск блюд по ингредиентам.Тип издания: Мод (Premium)Релиз состоялся: 09.12.2021Разработчик: Cookpad Inc. (UK)Поддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D08799FFB6B4CC12666C503B181B2895295BEFCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431989   (164969) от 16.12.2020
+
+Garena Free Fire: Безумие v1.56.1 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Присоединяйся к Королевской Битве Free Fire! Делай что хочешь, но останься в живых. Одинокий остров, 49 игроков, и только один шанс на победу. Выбирай точку старта при десанте и следи за безопасной зоной. Используй транспорт, канатные дороги, траншеи, прячься в лесу или сливайся с местностью, залегая в траве. Устраивай засады, выцеливай, выживай. Цель одна: остаться (   Читать дальше...   )Тип издания: Пиратка (Мод)Релиз состоялся: 10 декабря 2020 г.Разработчик: GARENA INTERNATIONAL I PRIVATE LIMITEDПоддерживаемая ОС: Android 4.1 и вышеЖанр: ЭкшенЯзык интерфейса: Русский есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:861E196BB0E3412DE07046B1C0E9A4B716B64826
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432224   (164905) от 16.12.2020
+
+Наше Кино v1.1 Premium  [Ru] - Советские Фильмы и Сериалы Онлайн
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164905.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Наше Кино - Советские Фильмы и Сериалы онлайн» — крупнейший онлайн-кинотеатр в котором собраны самые культовые фильмы и сериалы советской эпохи. Наша коллекция насчитывает свыше 1000 сериалов и фильмов: от советских киностудий до фестивальных премьер, это великая классика кинематографа.
+Знаете это чувство: хочется посмотреть советское кино или любимый сериал, но (   Читать дальше...   )Тип издания: Пиратка/PremiumРелиз состоялся: 18 августа 2020 г.Разработчик: RaspberryAppПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BCF2743F976701333382BCA99AFC31A791DB8F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1432052   (164771) от 16.12.2020
 
 Max Payne Mobile v1.7 [Ru]
@@ -6,7 +116,7 @@ Max Payne Mobile v1.7 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164771.jpg" />
 </div>
 
 
@@ -32,7 +142,7 @@ Kaspersky Internet Security Premium v11.59.4.5119 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164731.jpg" />
 </div>
 
 
@@ -58,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164639.jpg" />
 </div>
 
 
@@ -87,7 +197,7 @@ KeePassDX Pro v3.0.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164297.jpg" />
 </div>
 
 
@@ -113,7 +223,7 @@ Enpass Password Manager Pro v6.7.1.572 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164282.jpg" />
 </div>
 
 
@@ -139,7 +249,7 @@ CPU-Z (Mobile) v1.41 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164269.jpg" />
 </div>
 
 
@@ -165,7 +275,7 @@ Jotr: Quickly Draw & Sketch 4.4.4 Pro [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164186.jpg" />
 </div>
 
 
@@ -193,7 +303,7 @@ Psiphon Pro 386 Mod by DEXUNPACKER [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164157.jpg" />
 </div>
 
 
@@ -219,7 +329,7 @@ Revo Uninstaller Mobile 3.2.380G Mod by Timozhai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164088.jpg" />
 </div>
 
 
@@ -245,7 +355,7 @@ Root Explorer / Root Проводник 4.12.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164067.jpg" />
 </div>
 
 
@@ -271,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163943.jpg" />
 </div>
 
 
@@ -297,7 +407,7 @@ Picsart Photo & Video Editor v21.3.2 Mod by CXVUSER [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163828.jpg" />
 </div>
 
 
@@ -323,7 +433,7 @@ Happy Color v2.8.14 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163793.jpg" />
 </div>
 
 
@@ -351,7 +461,7 @@ VoltLab v5.1.4 Pro [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163744.jpg" />
 </div>
 
 
@@ -379,7 +489,7 @@ Zona v2.0.152 Mod by Timozhai [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163673.jpg" />
 </div>
 
 
@@ -405,7 +515,7 @@ ARK: Survival Evolved v2.0.21 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163597.jpg" />
 </div>
 
 
@@ -431,7 +541,7 @@ Dendy Games (645 in 1) v3.11 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163482.jpg" />
 </div>
 
 
@@ -457,7 +567,7 @@ Guitar Tuna v6.16.0 Pro [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163416.jpg" />
 </div>
 
 
@@ -484,7 +594,7 @@ CoinSnap - Value Guide v1.2.9 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163121.jpg" />
 </div>
 
 
@@ -511,7 +621,7 @@ JetAudio 12.0.1 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163093.jpg" />
 </div>
 
 
@@ -537,7 +647,7 @@ HD VideoBox Plus v2.31 FIX-20221215 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162784.jpg" />
 </div>
 
 
@@ -563,7 +673,7 @@ YouTube Downloader v7.1 [Ru/En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162654.jpg" />
 </div>
 
 
@@ -574,111 +684,6 @@ YouTube Downloader v7.1 [Ru/En] (обновляемая)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15D2F7D740151DC081D9D0AFA11B0255C1747E75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412262   (162601) от 18.12.2020
-
-Blaze v1.6.4 [Ru/Multi] - Виртуальный Камин с разрешением 4K
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Погрузитесь в царство отдыха, превратив свой телевизор в прекрасный камин! Идеально подходит для успокоения перед сном или для расслабления в гостиной! Blaze предоставляет 6 тщательно отобранных каминов с красивой графикой и профессионально проработанным звуком. Камины могут быть представлены в формате HD или Ultra HD, в зависимости от вашего телевизора. С каминами (   Читать дальше...   )Тип издания: Пиратка (разблокированы камины)Релиз состоялся: 25.11.2020Разработчик: PirinelПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1641F697CEB8E19D136EE61D86FCFDF3F9F7A62A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825896   (162398) от 18.10.2025
-
-ТВ+ Эфир: Цифровое телевидение v4.2.3 Mod by vadj [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162398.jpg" />
-</div>
-
-
-###  Подробнее
-
-TV+: Бесплатное Онлайн Телевидение
-Погрузитесь в мир бесплатного онлайн телевидения с приложением TV+. Насладитесь основными российскими телеканалами в HD качестве, а также региональным цифровым ТВ прямо на вашем телефоне. С TV плюс вы всегда на связи с любимыми передачами и шоу!Тип издания: ModРелиз состоялся: 17.10.2025Разработчик: Лайм Эйч ДиПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE2556F2DD61D7E0D5019F7E30C73225FA2DDCC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825890   (162395) от 18.10.2025
-
-Открытки с поздравлениями, gif v1.26.0 Mod by vadj [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Открытки и поздравления на все случаи жизни от лидера РУнета - OtkritkiOK.ru. Самый большой каталог красивых открыток с днем рождения, прикольных картинок с поздравлениями, а также стикеры для WhatsApp и ежедневные гифки с добрым утром и спокойной ночи. Более 15 млн. пользователей ежегодно отправляют наши картинки и стикеры (wasticker), порадуйте и вы своих друзей, (   Читать дальше...   )Тип издания: ProРелиз состоялся: 16.10.2025Разработчик: OtkritkiOKПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2425CE09A9776DF8B9C6D77B3C90091C1585C488
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825902   (162389) от 18.10.2025
-
-Йога на стуле v1.0.7 Mod by vadj [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение «Йога на стуле» для пожилых – простые и безопасные движения для улучшения гибкости, баланса и силы! Присоединяйтесь к нашему персонализированному 30-дневному плану йоги на стуле с мягкими и низкоударными движениями, которые помогают снизить риск падений, укрепить мышцы, поддерживать контроль веса и улучшить общее самочувствие.Тип издания: PremiumРелиз состоялся: 17.10.2025Разработчик: EZ HealthПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E222E9633DBE36E93AB40E405A7B584AB694990E
 ```
 
 https://mybot314.ru/tekegram_catalog/

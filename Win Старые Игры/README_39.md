@@ -1,3 +1,55 @@
+###  Публикация: 1701468   (38031) от 07.11.2024
+
+Turok 2: Seeds of Evil (1998) [Ru/En] (1.4) Repack 1nomok
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Turok 2: Seeds of Evil - это компьютерный шутер от первого лица, разработанный компанией Iguana Entertainment и изданная компанией Acclaim Entertainment. Игра является продолжением легендарной Turok: Dinosaur Hunter. История последнего Турока продолжается, на этот раз игрока ждет борьба с таинственным существом из другой вселенной. Игра доступна в одиночном режиме, (   Читать дальше...   )Тип издания: RepackРазработчик: Iguana EntertainmentЖанр: Шутер от первого лицаЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADA5CC2F9F42291674F2F6292F6F6967F0563A45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717027   (38030) от 07.11.2024
+
+Oni (2001) [Ru] (1.0) Repack 1nomok
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Oni – напряженный боевик в стиле аниме. Агент Коноко – элитный боец спецотряда по борьбе с техногенной преступностью, она ведет борьбу с опасным Синдикатом. Но реальное положение дел не всегда таково, каким кажется... Душу Коноко терзают демоны прошлого, и раскрывшаяся правда может оказаться чудовищной.Тип издания: RepackРазработчик: Bungie WestЖанр: Action (Shooter), Arcade (Fighting), 3D, 3rd PersonЯзык озвучки: Русский, Английский, ЯпонскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F1F1E025A3A34D2E62C10E31203A49337F530F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699499   (38029) от 07.11.2024
 
 Turok: Dinosaur Hunter (1997) [Ru/En] (1.00.012) Repack 1nomok
@@ -6,7 +58,7 @@ Turok: Dinosaur Hunter (1997) [Ru/En] (1.00.012) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38029.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Exhumed (1996) [En] (1.0) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38028.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Hogs of War (2000) [Ru/En] (1.0) Repack 1nomok
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38027.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Necrodome (1996) [En] (1.0) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38012.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Lula 3D (2006) [Ru/En] (1.0) Unofficial
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37825.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Pariah / Изгой (2005) [Ru/En] (1.03) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37816.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ GTA - Flame's Story (2024) [Ru/En] (1.7) Repack/Mod CTXMaps
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37716.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Take no Prisoners (1997) [Ru/En] (1.0) Repack 1nomok
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37553.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Dragonsphere (1994) [En] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37322.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Populous™: The Beginning (1998) [En] (1.02/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37056.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Sid Meier's Alpha Centauri™ (1999) [En] (1.1/dlc) License GOG [Planetary Pack]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37051.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Leisure Suit Larry 7: Love for Sail! / Ларри 7: Секс под парус�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37044.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Tyrian 2000 (1999) [En] (3.01) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36987.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Microsoft Bicycle Board Games (2002) [En] (2.0) License
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36695.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ S.T.A.L.K.E.R. Trilogy (2007-2010) [Ru/Multi] (1.0006/1.5.10/1.6.02) Repack Dece
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36643.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Dungeon Keeper 2 (1999) [En] (1.7) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36432.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Dungeon Keeper (1997) [Multi] (1.01fix/dlc) License GOG [Gold]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36412.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Muppet Monster Adventure (2000) [Ru] (1.0.0.1) Repack Ma2012ks
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36022.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Call of the Wild: The Angler (2022) [Ru/Multi] (2.1.1/dlc) Repack Let'sРlay [Ul
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35898.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Diablo: Hellfire - The Hell 3 (2024) [En] (1.147) Mod
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35290.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ StarCraft: Brood War (1998) [Ru] (1.16.1/dlc) Repack Ranger
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34560.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ District Wars / Кровавая Месть (2009) [Ru] (1.0) License Акелл
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34036.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Resident Evil (1997) [Multi] (1.0 HotFix 3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33500.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Resident Evil 3 (2000) [Multi] (1.0hf3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33222.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Resident Evil 3 (2000) [Multi] (1.0hf3) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:502A0F7FFDB5A355CC126F2225F4FB0535BF66A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318574   (33106) от 25.12.2024
-
-Антология Quadrax (1996 - 2024) [Multi] License
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33106.jpg" />
-</div>
-
-
-###  Подробнее
-
-Переиздание III, IV, V, VI и VII частей Quadrax в Full HD.Тип издания: LicenseРазработчик: CauldronЖанр: QuestЯзык субтитров: Английский, ЧешскийЯзык интерфейса: Английский, Чешский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE845236FDD140C51C80AC7555321D141358BE95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770234   (32392) от 31.12.2024
-
-Monster Jam (2007) [En] (1.0.1) Scene Reloaded
-
->>Win Старые Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Monster Jam - это гоночная игра на монстр-траках, основанная на существующем телешоу с тем же названием, которая также включает в себя серию живых мероприятий, организованных Live Nation. В отличие от предыдущих игр франшизы Monster Jam, Monster Jam включает в себя 20 уже существующих грузовиков, лицензированных специально для игры USHRA (United States Hot Rod Association). (   Читать дальше...   )Тип издания: SceneРазработчик: Torus Games Pty. Ltd.Жанр: СимуляторЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC0A5A947316F02D87834F619BC950EBCDB734B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

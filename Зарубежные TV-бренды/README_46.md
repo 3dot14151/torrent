@@ -6,7 +6,7 @@ BBC. Пингвин: Шпион под прикрытием / Penguins. Spy In T
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694164.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BBC: Времена года Британии / The Great British Year (2013) BD
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694035.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NGW: Дикая Монголия: страна крайностей. Степь 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693918.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ NG: Рекорд / Breaking 2 (2017) HDTV [H.264/1080p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693914.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Animal Planet: Живой или вымерший. Белый ньюфаундл
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693808.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ BBC: Книга джунглей. Медведь Балу / BBC: Natural World. 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693801.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693790.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ NG: Неуловимая кошка / The Phantom Cat (2012) HDTV [H.264/1080i-L
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693320.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ NG: В поисках неуловимой кошки / Hunt for the Shadow Cat 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693245.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ NGW: Дикая природа Новой Зеландии: затерянный
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692892.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ BBC. Одни ли мы во Вселенной? / Are We Alone In The Universe?
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692375.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691903.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ NG: Гиганты мира животных / How Big Can It Get? (2011) WEB-DL
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691843.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ NG: Осушить океан: глубокое погружение. Затон
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691841.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ NGW: Потерянные акулы острова Пасхи / Lost sharks of 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691734.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ N.G. Нацистские тайны Второй мировой / Nazi weird wa
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691732.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690769.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690666.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690657.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Discovery. World's TOP 5. Super Trains / Пятёрка лучших. Супер
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690547.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ BBC. Horizon: Парадокс Хокинга / The Hawking Paradox (2005) SATRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690102.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689974.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689954.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ NGW: Воздушное сафари. Австралия / Sky Safari. Australia
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689553.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ NGW: Дикая природа Китая. Царство дикой приро�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689423.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ NGW: Глубоководные гиганты (Гиганты синей без
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689316.jpg" />
 </div>
 
 

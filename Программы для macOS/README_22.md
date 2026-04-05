@@ -1,3 +1,56 @@
+###  Публикация: 1091296   (944370) от 08.01.2017
+
+Aiseesoft PDF Converter-PDF to TEXT/EPUB and more 3.3.19 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aiseesoft PDF Converter Pro - мощный PDF конвертер для Mac.
+Aiseesoft PDF Converte for Mac - Конвертер PDF в Text, Word, Excel, EPUB, HTML и другие форматы. Поддержка сохранения в TIFF, JPEG, PNG, GIF, BMP, TGA, PPM, JPEG2000 и другие форматы. Передача готовых файлов на мобильное устройство. Настройка параметров. Пакетный режим работы. Предварительный просмотр в (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 05 января 2017Разработчик: RayShare Co., LtdПоддерживаемая ОС: 10.5 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79480E0249F30C177F4896F336D2F0B90AF4E89C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363209   (943900) от 27.02.2020
+
+Affinity Photo 1.8.0 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Affinity Photo переопределяет границы профессионального программного обеспечения для редактирования фотографий на Mac. С тщательной ориентацией на рабочий процесс он предлагает сложные инструменты для улучшения, редактирования и ретуширования ваших изображений в невероятно интуитивно понятном интерфейсе со всеми требуемыми мощностями и производительностью.Тип издания: macOS SoftwareРелиз состоялся: 26.02.2020Разработчик: Serif (Europe) LtdПоддерживаемая ОС: OS X 10.9 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:149824095A184AAB4EAC846D86AE6D8C25107C48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983541   (943767) от 06.02.2016
 
 DEVONthink Pro Office 2.8.9 [En]
@@ -6,7 +59,7 @@ DEVONthink Pro Office 2.8.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943767.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Eagle 1.9.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943557.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ SD Clone Pro 3.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942538.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ Graphic 3.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942470.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ Tweetbot for Twitter 2.3.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941973.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ Up - Uploader for Instagram 3.10.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941866.jpg" />
 </div>
 
 
@@ -168,7 +221,7 @@ Ember 1.8.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941019.jpg" />
 </div>
 
 
@@ -197,7 +250,7 @@ Veertu Desktop 1.2 (97) [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940222.jpg" />
 </div>
 
 
@@ -226,7 +279,7 @@ WiFi Radar Pro 2.3.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940042.jpg" />
 </div>
 
 
@@ -253,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>FAQ и обсуждение ПО для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939785.jpg" />
 </div>
 
 
@@ -280,7 +333,7 @@ Mathworks Matlab R2016b 9.1.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939496.jpg" />
 </div>
 
 
@@ -308,7 +361,7 @@ WhatSize 6.5.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938640.jpg" />
 </div>
 
 
@@ -334,7 +387,7 @@ On1 Photo 10.1.0 (2689) [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938457.jpg" />
 </div>
 
 
@@ -360,7 +413,7 @@ HoudahGeo 5.4.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938024.jpg" />
 </div>
 
 
@@ -387,7 +440,7 @@ HoudahSpot 5 v5.0.11 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938013.jpg" />
 </div>
 
 
@@ -416,7 +469,7 @@ Network Radar 2.9.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937960.jpg" />
 </div>
 
 
@@ -442,7 +495,7 @@ Tembo 2.4.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937959.jpg" />
 </div>
 
 
@@ -469,7 +522,7 @@ Serial Box 03.2020 + SerialSeeker 2.0 (44) + iSerial Reader 2.0.23 (build 018e) 
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937947.jpg" />
 </div>
 
 
@@ -498,7 +551,7 @@ Weather Guru - Accurate Weather Forecasts 1.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937135.jpg" />
 </div>
 
 
@@ -527,7 +580,7 @@ Typeeto 1.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935520.jpg" />
 </div>
 
 
@@ -553,7 +606,7 @@ Paste 1.1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935517.jpg" />
 </div>
 
 
@@ -581,7 +634,7 @@ Little Snitch 4.4.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932955.jpg" />
 </div>
 
 
@@ -608,7 +661,7 @@ Tyme 2 v1.6.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932376.jpg" />
 </div>
 
 
@@ -635,7 +688,7 @@ Cf/x Photo Mosaic 2.0.9 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932275.jpg" />
 </div>
 
 
@@ -648,60 +701,6 @@ Photo Mosaic  представляет собой узкоспециализир
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C88AA620F14F2F2E2406CC9937B61FBDA5DCBC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365110   (932246) от 06.03.2020
-
-Alarm Clock Pro 12 v12.1.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приходилось ли вам слышать такое выражение как хронофаги? Так называют людей, которые ничего никогда не успевают. Как вы думаете, почему? Да потому что не умеют планировать свои дела! А ведь именно планирование является одним из залогов успеха во всех делах и гарантией того, что они будут исполнены в сро
-
-Alarm Clock Pro представляет собой многофункциональный будильник (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.03.2020Разработчик: Koingo Software, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:402870AB02C3810BCCF5EB4301DE1AAD7338F0D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365381   (930803) от 07.03.2020
-
-iCab - Internet Browser 5.9.2 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930803.jpg" />
-</div>
-
-
-###  Подробнее
-
-iCab - это альтернативный веб-браузер. Он поддерживает HTML4, фильтрацию изображений, фильтрацию файлов cookie, закладки, поддержку java и javascript, режимы поиска, импорт веб-архивов из Explorer, менеджер загрузок и множество полезных функций, которых нет в других браузерах.Тип издания: macOS SoftwareРелиз состоялся: 04.03.2020Разработчик: Alexander ClaussПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BC35C9A2B4FB649C5FE85B7633DB0DD43F4D5AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,166 @@
+###  Публикация: 981238   (950847) от 01.02.2016
+
+American Truck Simulator (2016) [Ru/Multi] (0.9.1.3s/dlc) License SKIDROW
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение легендарной серии Truck Simulator от SCS Software, на этот раз нас ждёт увлекательное путешествие по солнечным штатам Америки, где вы можете насладится прекрасными дорогами, управляя многотонным монстром! Есть люди, чьим призванием является дорога.Тип издания: LicenseРазработчик: SCS SoftwareЖанр: Simulator, IndieЯзык озвучки: -/-Язык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62E55F1942AAF9A7169495C4BE310FB18A352C84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981845   (950833) от 01.02.2016
+
+Reg Organizer 7.30 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950833.jpg" />
+</div>
+
+
+###  Подробнее
+
+Reg Organizer® - это многофункциональная программа для комплексного обслуживания системного реестра операционных систем Micorosft Windows XP, Vista, 7 и 8. Позволяет проводить чистку реестра, его сжатие и дефрагментацию. Имеет мощный редактор системного реестра и расширенную функцию поиска и замены данных. С помощью утилиты Reg Organizer можно осуществлять предварительный (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60FA92421A3A47A4FAB8D678AC8D79CA8A804300
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981790   (950827) от 01.02.2016
+
+CFW REBUG 4.78.1 REX (2016) [PS3] 4.78 [Unofficial] [Ru/Multi]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950827.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда разработчиков REBUG выпустила прошивку Rebug 4.78.1 REX + Cobra 7.20, а так-же новый Toolbox 2.02.09.
+
+ВНИМАНИЕ:
+Функции кобры по умолчанию отключены, включаются через REBUG_TOOLBOX. Как включить - смотрите видео.(   Читать дальше...   )Тип издания: UnofficialРазработчик: Rebug TeamЖанр: ПрошивкаЯзык интерфейса: Русский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9000B36CEC1C5CFC1B19F5A8F72A49E31C5393B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981375   (950821) от 01.02.2016
+
+Xelius Groupe | Трейдинг на миллион - углубленный курс по трейдингу (2014) PCRec
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подробное Описание:
+
+ОБУЧЕНИЕ ТРЕЙДИНГУ ДО РЕЗУЛЬТАТА
+ПЕРВЫЙ 1,000,000 РУБЛЕЙ ОТ 3 ДО 6 МЕСЯЦЕВ(   Читать дальше...   )Жанр: ТрейдингПродолжительность: 40:24:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E81AD31F4FE7B2517FF027F031110DCAE52956A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981248   (950819) от 01.02.2016
+
+"Первый канал" посоветовал чистить оперативную память компьютера ластиком
+
+>>3
+>>16
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950819.jpg" />
+</div>
+
+
+###  Подробнее
+
+В утреннем эфире «Первого канала» 27 января неназванный эксперт порекомендовал зрителям, заметившим, что их компьютер «тормозит», очистить контакты на слоте оперативной памяти ластиком. После этого компьютер будет работать «гораздо быстрее», пообещал молодой человек.Эксперт объяснил, что с годами пропускная способность оперативной памяти ухудшается, ластик же удаляет (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 798771   (950815) от 01.02.2016
+
+Обложки для AIMP 3 - Магнитофоны v.3 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950815.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы ностальгируете по прошлым временам, когда еще не было компьютеров и цифровой техники, тогда эти скины поднимут вам настроение и подарят частичку прошлого. Реалистичные обложки, созданные в виде аудио-систем(Hi-Fi и Hi-End класса) для AIMP3.
+ Обложки  имеют сравнительно большие размеры(некоторые очень большие), поэтому для их использования желателен монитор (   Читать дальше...   )Язык интерфейса: русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9664C342C20A6512D43E5A5769EF0DC4585A19A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 981224   (950812) от 01.02.2016
 
 Profileschool | Adobe After Effects. Базовый уровень (2015) PCRec [H.264]
@@ -6,7 +169,7 @@ Profileschool | Adobe After Effects. Базовый уровень (2015) PCRec 
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950812.jpg" />
 </div>
 
 
@@ -35,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950457.jpg" />
 </div>
 
 
@@ -61,7 +224,7 @@ Adobe Photoshop 2020 v21.1.0.106 (x64) Repack by SanLex [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950456.jpg" />
 </div>
 
 
@@ -87,7 +250,7 @@ Microsoft усложнила установку Windows
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950454.jpg" />
 </div>
 
 
@@ -113,7 +276,7 @@ Medal of Honor Warfighter: Limited Edition + 5 DLC [Ru/En] (Origin-Rip/1.0.0.3) 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_950245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_950245.jpg" />
 </div>
 
 
@@ -143,7 +306,7 @@ Tomb Raider [PS3] [EUR] [RUSSOUND] [4.31] (2013)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950244.jpg" />
 </div>
 
 
@@ -174,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950148.jpg" />
 </div>
 
 
@@ -200,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949958.jpg" />
 </div>
 
 
@@ -226,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949929.jpg" />
 </div>
 
 
@@ -252,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949927.jpg" />
 </div>
 
 
@@ -278,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949925.jpg" />
 </div>
 
 
@@ -304,7 +467,7 @@ Far Cry Anthology (2004-2014) [Ru/Multi] Repack R.G. Catalyst
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949722.jpg" />
 </div>
 
 
@@ -330,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949719.jpg" />
 </div>
 
 
@@ -357,7 +520,7 @@ Leo's Fortune v1.0.4 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949716.jpg" />
 </div>
 
 
@@ -385,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949706.jpg" />
 </div>
 
 
@@ -411,7 +574,7 @@ Total Commander 8.52a VIM 11 Matros portable [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949260.jpg" />
 </div>
 
 
@@ -440,7 +603,7 @@ MediaChance Dynamic Auto Painter PRO 4.2.0.2 Repack by aleksbank [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949259.jpg" />
 </div>
 
 
@@ -466,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949250.jpg" />
 </div>
 
 
@@ -493,7 +656,7 @@ Adobe Premiere Pro CC 2015.2 9.2.0 (41) Portable by punsh [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949248.jpg" />
 </div>
 
 
@@ -519,7 +682,7 @@ Dreamfall Chapters (2014) [Ru/Multi] (4.2.1.8/dlc) SteamRip Let'sРlay [Special 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949246.jpg" />
 </div>
 
 
@@ -530,163 +693,6 @@ Dreamfall Chapters — это сюжетно-ориентированная эп
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B4297205CAA43DA03DC348BC09178880B5E901C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982076   (949245) от 02.02.2016
-
-Kaspersky Internet Security 2016 16.0.1.445 MR1 Final [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kaspersky Internet Security 2016 - комплексный Антивирус Касперского, который предлагает расширенные возможности: Безопасные платежи, Виртуальная клавиатура, Родительский контроль и Контроль программ. Новая версия обеспечивает комплексную защиту от всех видов вредоносных программ и интернет-угроз за счет комбинации облачных, проактивных и антивирусных технологий, (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F14B7E91FEA5E93AADAF09F904317775BB5E3923
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979828   (949243) от 02.02.2016
-
-The Witness (2016) [Ru/Multi] (1.0/upd9) Repack Let'sРlay
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949243.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Witness — игра для одного пользователя, разнообразный открытый мир с более чем пятью сотнями загадок. Игра исходит из того, что с ней взаимодействует умный человек, время которого ценно. Ни одна загадка не служит просто для усложнения; каждая несет мысль. Вся игра насыщена смыслом. Вы просыпаетесь в одиночестве на острове, полном сложных и удивительных загадок.Тип издания: RepackРазработчик: Thekla, Inc.Жанр: Adventure (Puzzle), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:364729A9A000021E16A50269502E82D8EACB4935
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981866   (949242) от 02.02.2016
-
-NetDrive 2.6.4. build 715 [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949242.jpg" />
-</div>
-
-
-###  Подробнее
-
-NetDrive позволяет подключить удаленные (облачные) хранилища данных, в том числе FTP, в виде локального диска, для осуществления доступа через обычный проводник. Утилита будет полезна пользователям, которые очень часто работают с данными удаленно. Интуитивно понятный интерфейс и хороший набор функций делают ее понятной и простой в использовании.
-Просмотр видео, прослушивание (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3DAA7F3E7494B59D5BB7679861D662BE4D259D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981837   (949241) от 02.02.2016
-
-Главный (2015) WEBRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все знают, что Сергей Королев запустил в космос и Первый искусственный спутник Земли, и Лайку, и Гагарина, и вывел в открытый космос Алексея Леонова. Но никто не знает, насколько ему было трудно преодолеть и косность партийного руководства, и недоверие коллег. Но, как сказал один из его соратников, что у Королева все получалось потому, что ему верили и знали, что (   Читать дальше...   )Производство: РоссияЖанр: история, драмаРежиссер: Юрий КараАктеры: Валерий Гришко, Борис Щербаков, Лидия Арефьева, Алексей Богачук, Федор Лавров, Георгий Солдатов, Борис Каморзин, Анатолий Котенёв, Вадим Андреев, Александр КузнецовПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BE2838CFFE7CC1C537E1F8BA67F3FBDD8DAB374
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981849   (949240) от 02.02.2016
-
-Дочь Бога / Exposed (2016) WEB-DL [H.264/1080p-LQ]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949240.jpg" />
-</div>
-
-
-###  Подробнее
-
-С женщиной, которая стала свидетелем чуда, начинают происходить странные вещи. А в это время полицейский детектив пытается разобраться в том, что привело к смерти его напарника.Производство: США, Company Films, Emmett/Furla Films, Fortitude International, Palm-Star Entertainment, Remark FilmsЖанр: ДрамаРежиссер: Деклан ДэйлАктеры: Ана де Армас, Мира Сорвино, Биг Дэдди Кэйн, Кристофер МакДональд, Лаура Гомез, Melissa Linton, Киану Ривз, Клара Вонг, Майкл Рисполи, Дения БрачеПеревод: Двуголосый закадровый, любительскийЯзык субтитров: АнглийскийПродолжительность: 01:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61BB52973F49E733FBCC8F966E22BC934AC904A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977980   (949239) от 02.02.2016
-
-Шпионский мост / Bridge of Spies (2015) BDRip [H.264/720p-LQ]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма происходит на фоне серии реальных исторических событий и рассказывает о бруклинском адвокате Джеймсе Доноване, который оказывается в эпицентре холодной войны, когда ЦРУ отправляет его на практически невозможное задание — договориться об освобождении захваченного в СССР американского пилота самолета-разведчика U2.Производство: США, Индия, ГерманияЖанр: Триллер, драма, биографияРежиссер: Стивен СпилбергАктеры: Том Хэнкс, Алан Алда, Эми Райан, Остин Стоуэлл, Билли Магнуссен, Ив Хьюсон, Марк Райлэнс, Доменик Ломбардоззи, Себастьян Кох, Майкл ГэстонПеревод: Дублированный (iTunes)Субтитры: вшитые отключаемыеЯзык субтитров: Русский (iTunes -> форс. + полные), АнглийскийПродолжительность: 02:21:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC055A72BEFC4AC32C57F375A41998EAF05028ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

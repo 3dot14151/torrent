@@ -1,3 +1,32 @@
+###  Публикация: 1615796   (242538) от 27.02.2023
+
+Gnipahalan (Gnipahålan) - I Nordisk Vredeslusta (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forna Minnen (01:37)
+02. I Stormens Led (07:09)
+03. Odestimmans Kampfyllda Har (07:24)
+04. Fortrollad Till Efvighet (07:27)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 01:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36BF88E4ACDC793FF21F9D97BC395A1035285E15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1634690   (242526) от 21.05.2023
 
 Lucifuge - Monoliths of Wrath (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, Thrash Metal>
@@ -6,7 +35,7 @@ Lucifuge - Monoliths of Wrath (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242526.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Renacer - En Versiones Vol. 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242525.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Ontborg - Following The Steps Of Damnation (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242524.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Manny Freiser - Way Back Home (2006) [FLAC|Lossless|image + .cue] <Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242516.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Frostshock - Frostshock (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242515.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Thomas Lassar - From Now On (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242514.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Vomitory - All Heads Are Gonna Roll (2023) [FLAC|Lossless|WEB-DL|tracks] <Old Sc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242511.jpg" />
 </div>
 
 
@@ -211,7 +240,7 @@ Gates Of Mourning - Ruination (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242505.jpg" />
 </div>
 
 
@@ -240,7 +269,7 @@ TankZilla - TankZilla (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Southern 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242503.jpg" />
 </div>
 
 
@@ -269,7 +298,7 @@ Ravencult - Morbid Blood (2011) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242493.jpg" />
 </div>
 
 
@@ -298,7 +327,7 @@ Kyrie Eleison - ...In The Arms Of Decadence (2007) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242485.jpg" />
 </div>
 
 
@@ -327,7 +356,7 @@ Laurie Anderson - Big Science (1982) [FLAC|Lossless|tracks + .cue]<Electronic, P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242479.jpg" />
 </div>
 
 
@@ -356,7 +385,7 @@ Aosoth - III - Violence & Variations (2011) [FLAC|Lossless|image + .cue] <Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242473.jpg" />
 </div>
 
 
@@ -385,7 +414,7 @@ Beneath My Feet - In Parts, Together (2023) [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242468.jpg" />
 </div>
 
 
@@ -414,7 +443,7 @@ Serenity - The Last Knight (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242466.jpg" />
 </div>
 
 
@@ -443,7 +472,7 @@ The Winery Dogs - III (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242464.jpg" />
 </div>
 
 
@@ -472,7 +501,7 @@ Infernal War - Axiom (2015) [FLAC|Lossless|image + .cue] <Black Metal. Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242456.jpg" />
 </div>
 
 
@@ -501,7 +530,7 @@ Grief Symposium - ...In The Absence of Light (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242451.jpg" />
 </div>
 
 
@@ -530,7 +559,7 @@ Gololedz - Gololedz (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Crust>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242442.jpg" />
 </div>
 
 
@@ -559,7 +588,7 @@ Acres - Burning Throne (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alt.
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242434.jpg" />
 </div>
 
 
@@ -588,7 +617,7 @@ Haunt - Mind Freeze (2020) [FLAC|Lossless|tracks + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242429.jpg" />
 </div>
 
 
@@ -617,7 +646,7 @@ Blueprint's - Organic Life Hazards (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242417.jpg" />
 </div>
 
 
@@ -646,7 +675,7 @@ The Violent Inzident - This is Nu Metal! (2022) [FLAC|Lossless|WEB-DL|tracks] <N
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242412.jpg" />
 </div>
 
 
@@ -675,7 +704,7 @@ GrimCurse - Serpent God (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242400.jpg" />
 </div>
 
 
@@ -704,7 +733,7 @@ Sandrider - Enveletration (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Ston
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242395.jpg" />
 </div>
 
 
@@ -718,35 +747,6 @@ Sandrider - Enveletration (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Ston
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A07C01C09139B786BB15C9F0AB0474D277562D24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542010   (242391) от 05.04.2022
-
-Electric Huldra - Electric Huldra (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Planet 81 01:19
-02. Used 05:31
-03. Here To Stay 04:01
-04. Dirty Boots 04:19(   Читать дальше...   )Жанр: Hard Rock, StonerПродолжительность: 00:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B38DF71BF984D0D626F7623DC2FE76BE454252B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37624.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37614.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ History Channel: Древние пришельцы / Ancient Aliens (2024) WEB-D
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37341.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NG: Конкистадоры: Взлет и падение / Conquistadors: The 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36293.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36198.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ History Channel: Филадельфийский эксперимент / Vanishi
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35493.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ BBC. История математики / The Story of Maths (2008) SATRip (4 �
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35467.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ BBC. Земля / Earth (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34859.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33888.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ BBC: В какой Вселенной мы находимся? / Which Universe 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33724.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ BBC: Солнечная система / Solar System (2024) BDRip [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32061.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ BBC: Секреты Рейха. Тайны нацизма / Secrets of World War
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32042.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31848.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ History Channel: Хватай не глядя / Storage Wars (2021) PCRec [H.264
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31610.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31558.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ NG: Суперсооружения древности / Ancient Megastructures (
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31337.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ BBC. Древние державы / Ancient Powers (2023) WEB-DL [H.264/1080p] 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31125.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ BBC. Horizon: Сколько людей может жить на Земле? / H
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30399.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ BBC. 1929: Великий крах / 1929: The Great Crash (2009) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30396.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ NG. Приключения настоящего Флика / A Real Bug's Life (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30144.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ BBC: Нацизм - Предостережение истории / The Nazis: A
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30090.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30085.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ BBC: Апокалипсис динозавров / Dinosaur Apocalypse (2022) WE
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30070.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ BBC: Калигула. Что это было / Caligula with Mary Beard (2013) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29980.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ NG. Приключения настоящего Флика / A Real Bug's Life (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29966.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ BBC: Грязные города / Filthy Cities (2011) HDTV [H.264/1080i] (се
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29951.jpg" />
 </div>
 
 

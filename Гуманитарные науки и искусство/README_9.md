@@ -1,86 +1,3 @@
-###  Публикация: 612791   (984076) от 03.02.2013
-
-Людмила Прима | Правила успешного копирайтера [2013] [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984076.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сразу хочу предупредить: эта книга не для зеленых новичков. Здесь нет руководств, как стать копирайтером, какие книжки для этого читать, как научиться писать продающие тексты и так далее. Эта книга полезна исключительно опытным копирайтерам - тем, кто уже попробовал себя в профессии и теперь хочет расти дальше, или тем, кто уже давно пишет (а может, даже имеет постоянные заказы), но понимает, что всегда есть куда расти.
-Именно для вас, уважаемые коллеги, я подготовила эту книгу. Это свод правил УСПЕШНОГО копирайтера.
-Конечно, все эти правила - не аксиомы. Возможно, какие-то правила вам не подойдут. Какие-то вызовут непонимание. И я допускаю, что кто-то из вас знает правила и получше.
-Но позвольте вас уверить: тут нет ни одного пустого слова. Все основано на личном опыте. Какие-то советы, изложенные в книге, мне в свое время дали более опытные коллеги, до чего-то я дошла сама, что-то было мной адаптировано в рабочем процессе.
-Главное, что все эти советы ДЕЙСТВИТЕЛЬНО ПОМОГАЮТ.
-А теперь о них будете знать и вы.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E6E0580FC98F0F639E46B30DCBA42617269C538
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972145   (983594) от 05.01.2016
-
-В. И. Усенин (отв. ред.) | Современное капиталистическое предприятие и хозяйская власть (1971) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая коллективная монография — первая из двух работ, подготовленных Институтом международного рабочего движения АН СССР по социальным проблемам современного капиталистического предприятия. В ней анализируются положение предприятия в системе государственно-монополистического капитализма и современные методы осуществления предпринимателями своей власти над наемными (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC9A81A927D7B3678B8451931AAE03453A86446F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971825   (983590) от 05.01.2016
-
-Армен Аванесян, Анке Хеннинг | Поэтика настоящего времени (2014) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983590.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изобретение романа настоящего времени является литературным событием, значение которого находится в одном ряду с открытием перспективы в живописи. От первых презенсных романов, построенных на внутренних могологах и авангардной фактографии, до "нового романа" и исторических романов Томаса Пинчона, Клода Симона и Марселя Байера само развитие жанра настоящего (   Читать дальше...   )Жанр: Литературоведение, язык и стиль литературыПеревод: Б. М. СкуратовФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0B3E9F27A8BAD993592E001532D38631A6AD715
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972133   (983517) от 05.01.2016
 
 Валерий Максим | Достопамятные деяния и изречения (2007) [PDF]
@@ -89,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983517.jpg" />
 </div>
 
 
@@ -115,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983513.jpg" />
 </div>
 
 
@@ -141,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983511.jpg" />
 </div>
 
 
@@ -167,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983503.jpg" />
 </div>
 
 
@@ -195,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983435.jpg" />
 </div>
 
 
@@ -221,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983431.jpg" />
 </div>
 
 
@@ -247,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983429.jpg" />
 </div>
 
 
@@ -273,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983426.jpg" />
 </div>
 
 
@@ -299,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983350.jpg" />
 </div>
 
 
@@ -328,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983335.jpg" />
 </div>
 
 
@@ -354,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983023.jpg" />
 </div>
 
 
@@ -381,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980893.jpg" />
 </div>
 
 
@@ -407,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980841.jpg" />
 </div>
 
 
@@ -433,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980840.jpg" />
 </div>
 
 
@@ -459,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980836.jpg" />
 </div>
 
 
@@ -485,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980831.jpg" />
 </div>
 
 
@@ -511,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980828.jpg" />
 </div>
 
 
@@ -537,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980781.jpg" />
 </div>
 
 
@@ -564,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980776.jpg" />
 </div>
 
 
@@ -590,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980775.jpg" />
 </div>
 
 
@@ -616,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980703.jpg" />
 </div>
 
 
@@ -642,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980672.jpg" />
 </div>
 
 
@@ -668,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980517.jpg" />
 </div>
 
 
@@ -679,6 +596,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DC907C672C71ED23E3A20B295CC18F8CB327433
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356223   (980511) от 29.01.2020
+
+Ольга Хорошилова | Мода и гении. Костюмные биографии Леонардо да Винчи, Екатерины II, Петра Чайковского, Оскара Уайльда, Юрия Анненкова и Майи Плисецкой (2020) [EPUB]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980511.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге собраны костюмные биографии шести великих людей. Разделенные веками, все они были иконами стиля своего времени. Теперь мы можем увидеть их жизни сквозь призму моды и истории костюма – под новым, неожиданным углом. Ведь в одежде отражается и личность ее обладателя, и сама эпоха.
+Безмолвным деталям костюма, запечатленным на старых фотографиях и портретах, (   Читать дальше...   )Жанр: История , Культурология, ИскусствоведениеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68F55DD14A7782639B74130A467C52D7276ADDE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973305   (980329) от 08.01.2016
+
+И. И. Агол | Витализм, механистический материализм и марксизм (2013) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вниманию читателя предлагается книга известного советского биолога и философа И. И. Атола (1891-1937), посвященная разработке с точки зрения диалектического материализма некоторых вопросов биологии. Автор подробно разбирает, оценивает и критикует как основные проблемы современной ему виталистической теории, так и попытки механистов (философов, стоявших на позициях (   Читать дальше...   )Жанр: История, философия, биологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF22715356B174B25A8E87FEECCFC79F0BD8E9B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973013   (980326) от 08.01.2016
+
+У. Моррис | Искусство и жизнь. Избранные статьи, лекции, речи, письма (1973) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980326.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящем издании впервые на русском языке представлено обширное и многообразное наследие У. Морриса (1834–1896), известного английского поэта, писателя, архитектора, живописца, декоратора и дизайнера, автора социально-утопического романа «Вести ниоткуда», активного общественного деятеля, с 1883 года социалиста. Книга представляет интерес как для специалистов по (   Читать дальше...   )Жанр: История, философия, эстетика, искусство, политология, поэзияФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:861327DA06A969FF846D702D4D73744E1B054E3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

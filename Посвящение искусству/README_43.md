@@ -6,7 +6,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219196.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218915.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218902.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218157.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217954.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216941.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216223.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_215958.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214924.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214583.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213097.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212617.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_212028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_212028.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212001.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211782.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211680.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Throbbing Gristle: Такой же другой, как я / Other, Like Me (202
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211679.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211002.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210903.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210746.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210616.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210308.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209840.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209525.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209499.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209452.jpg" />
 </div>
 
 

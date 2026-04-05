@@ -1,3 +1,55 @@
+###  Публикация: 1803613   (13656) от 24.06.2025
+
+Wizard of Legend 2 (2024) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13656.jpg" />
+</div>
+
+
+###  Подробнее
+
+В эпоху мифов и магии амбициозные волшебники со всего мира собрались в Парящих землях, дабы пройти Легендарное испытание. Многие попытаются. У большинства не получится. Лишь тот, кто полностью освоил хаотичные, переменчивые стихии арканы, станет Легендарным волшебником!Тип издания: RepackРазработчик: Dead MageЖанр: Экшены, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4134586327F5294AEAB77A54282FD3D3F5D9595
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803612   (13615) от 24.06.2025
+
+Wizard of Legend 2 (2024) [Ru/Multi] (1.0) Repack seleZen
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13615.jpg" />
+</div>
+
+
+###  Подробнее
+
+В эпоху мифов и магии амбициозные волшебники со всего мира собрались в Парящих землях, дабы пройти Легендарное испытание. Многие попытаются. У большинства не получится. Лишь тот, кто полностью освоил хаотичные, переменчивые стихии арканы, станет Легендарным волшебником!Тип издания: RepackРазработчик: Dead MageЖанр: Экшены, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E79A6A09E6C76A23902F09E77207E0DBD7BF104
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1803608   (13585) от 24.06.2025
 
 Maliki: Poison Of The Past (2025) [Multi] (1.3.2) Repack FitGirl
@@ -6,7 +58,7 @@ Maliki: Poison Of The Past (2025) [Multi] (1.3.2) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13585.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Forgotten Mines (2024) [Multi] (1.1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13494.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.05/dlc) Repack seleZen [S
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13439.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Warhammer 40,000: Rogue Trader (2023) [Ru/Multi] (1.4.0.184/dlc) Repack FitGirl 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13416.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ System Shock 2: 25th Anniversary Remaster (2025) [Multi] (Mod HotFix) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13396.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Fate Seeker II (2) (2021) [Multi] (18655320) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13325.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Warhammer 40,000: Space Marine II (2) (2024) [Ru/Multi] (8.0.0.1/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13231.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Medieval Dynasty (2020) [Ru/Multi] (2.4.0.3/dlc) Repack FitGirl [Ultimate Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13201.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Crown Gambit (2025) [Ru/Multi] (1.0.3) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13186.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Dragons Reef (2025) [Ru/Multi] (1.2) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13094.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Bygone Dreams (2025) [Ru/Multi] (1.0.0.4) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13030.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Trident's Tale (2025) [Multi] (20250529 133011 79336) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13008.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Sandwalkers (2024) [Ru/Multi] (2.1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12827.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Coridden (2025) [Ru/Multi] (1.3.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12818.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Caribbean Legend (2024) [Ru/Multi] (1.5.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12816.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Sengoku Dynasty (2023) [Ru/Multi] (1.1.0.6) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12805.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ DOOMER SIMULATOR (2025) [Ru/En] (0.9.1) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12794.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ KARMA: The Dark World (2025) [Ru/Multi] (karma250620) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12723.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Moonstone Island (2023) [Ru/Multi] (1.5.2553.9/dlc) License GOG [Collector’s E
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12610.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Tales of Maj'Eyal (2012) [En] (1.7.6/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12606.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Yu-Gi-Oh! EARLY DAYS COLLECTION (2025) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12450.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ My Time At Portia (2019) [Ru/Multi] (20250620-1430-141719/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12395.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ System Shock 2: 25th Anniversary Remaster (2025) [Ru/Multi] (1.0.4258.0) Repack 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12391.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Ys VIII: Lacrimosa of DANA (2018) [Ru/Multi] (1.0.0.1/dlc) Repack Let'sРlay [Di
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12356.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Ys VIII: Lacrimosa of Dana - это ролевая игра в жанре JRPG, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF7BC11074302E533E69854A16348B654D8484B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798478   (12308) от 07.07.2025
-
-Sea of Stars (2023) [Ru/Multi] (2.0.58940/dlc) Repack Let'sРlay
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sea of ​​Stars стремится модернизировать классическую RPG с точки зрения пошаговых боев, повествования, исследования и взаимодействия с окружающей средой, при этом по-прежнему предлагая щедрую долю ностальгии и старого доброго простого веселья. Она рассказывает историю двух Детей Солнцестояния, которые объединят силы солнца и луны, чтобы применить Магию (   Читать дальше...   )Тип издания: RepackРазработчик: Sabotage StudioЖанр: Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C02E77BA02AAECF501731F821982354C273D0D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780067   (12197) от 08.07.2025
-
-Caribbean Legend (2024) [Ru/Multi] (1.5.0/dlc) Repack Let'sРlay [Complete Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12197.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на Карибы 17-ого века! Вы - Шарль де Мор, акула светской жизни и художник-любитель. Точнее, вы им были до прибытия в Новый Свет. Здесь у вас нет ни гроша, висит долг на миллион, а ваш брат, даже находясь в тюрьме, откровенно насмехается над вами... и вот, кто-то уже тычет вам в лицо пистолет прямо сейчас. Всего через 10 игровых лет вы станете самым (   Читать дальше...   )Тип издания: RepackРазработчик: BlackMark StudioЖанр: Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D5872BE891FA513961CAB401F19E744D8C868CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

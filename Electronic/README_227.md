@@ -1,3 +1,119 @@
+###  Публикация: 1143192   (637340) от 17.06.2017
+
+VA - Chillout, Love & Sex (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Woody Fran - Oh My Own (A Night In Venice Mix) 07:13
+02. Keith Goodwin - Good Enough (On The Lake Mix) 06:26
+03. Ryan Wendell - Fire And Works (Gray Eyes Mix) 06:08
+04. Bennie Cullen - Lying Down (The Grand Chill Mix) 07:12(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC0D58CE295DC4A78FBC2006B8A11D8DAECB5072
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907987   (636166) от 13.06.2015
+
+VA - Lounge Sensations (2015) [MP3|320 кб/с]<Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mystical Plants - Where's The Love
+02. Marga Sol - Love Comes Along
+03. Matisse & Jury Jet - Early Sunrise (feat S Khovansky)
+04. Charly McLion - Prelude(   Читать дальше...   )Жанр: DowntempoПродолжительность: 01:51:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C01180BC339328AE8F1B0212264DF4A0D8F9880
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907993   (636153) от 13.06.2015
+
+VA - Hawaiian Sunset - Lounge & Chillout (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light in Color - Lovely Shelters [06:09]
+02. Chillo - Chillo Six (Lounge Mix) [04:41]
+03. Francoise Jardin - Louvre Dub (Remix Edit) [03:14]
+04. Carlos Bonito - Chango Tango [04:39](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:22:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A908AF44DAC428305D5CE07414F70EBE45D21EC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228494   (635950) от 01.06.2018
+
+VA - Trance Festival Ibiza (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Iris Dee Jay & Robert Holland feat. Erin - Faster (Type 41 Remix) 6:42
+02. Bernd Loorbach - Cafe Del Mar (TbO & Vega Trance Mix) 4:57
+03. The North Works feat. Jenny - We Are Back (Vocal Edit) 4:25
+04. Aruso - On My Own (Festival Version) 6:48(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 05:20:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6930D5BC7805D80B058A7E6C6F83B0594910621A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228585   (635944) от 01.06.2018
 
 Woob - 新 プログラム (2018) Time Limited [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo>
@@ -6,7 +122,7 @@ Woob - 新 プログラム (2018) Time Limited [FLAC|Lossless|WEB-DL|tracks] <Am
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635944.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Secrets of Time Relaxation (2018) [MP3|320 Kbps] <Ambient, Chillout, Lounge
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635942.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ the_empath - Discography 9 Releases (1999-2016) Subroom Medialab, Hymen Records 
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635825.jpg" />
 </div>
 
 
@@ -90,7 +206,7 @@ Various Artist - Ibiza 2012 Back to the Island (2012) [MP3|320 кб/с]<Progress
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635764.jpg" />
 </div>
 
 
@@ -125,7 +241,7 @@ Morcheeba - Blaze Away (2018) Fly Agaric Records [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635690.jpg" />
 </div>
 
 
@@ -154,7 +270,7 @@ VA - Beat Full Tech (2019) [MP3|320 Kbps] <House, Tech House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635670.jpg" />
 </div>
 
 
@@ -183,7 +299,7 @@ Siatria - Мой мир (2016) [MP3|320 Kbps] <Dance, EDM>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635669.jpg" />
 </div>
 
 
@@ -212,7 +328,7 @@ Wolf and Raven - Lair of the Dragon (2018) [MP3|320 Kbps] <Synthpop, Synthwave, 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635659.jpg" />
 </div>
 
 
@@ -241,7 +357,7 @@ Chris van Buren - Hope and Destiny (2016) [MP3|320 Kbps] <Synthpop, Synthwave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635658.jpg" />
 </div>
 
 
@@ -270,7 +386,7 @@ Chris van Buren - Tierra Del Fuego (2018) [MP3|320 Kbps] <Synthpop, Synthwave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635657.jpg" />
 </div>
 
 
@@ -299,7 +415,7 @@ VA - 5 Years Of Claremont 56 Compiled Edited & Mixed By The Idjut Boys (2012) [M
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635626.jpg" />
 </div>
 
 
@@ -334,7 +450,7 @@ VA - Cala Ibizarre: Sunset Lounge Vol.3 (2017) [MP3|320 Kbps] <Downtempo, Chillo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635515.jpg" />
 </div>
 
 
@@ -363,7 +479,7 @@ VA - May Trance (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635513.jpg" />
 </div>
 
 
@@ -392,7 +508,7 @@ VA - Ibiza Trance (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635510.jpg" />
 </div>
 
 
@@ -421,7 +537,7 @@ VA - Drink and Beach Deep House Selection (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635507.jpg" />
 </div>
 
 
@@ -450,7 +566,7 @@ Wolf and Raven - Renegades (2016) [MP3|320 Kbps] <Synthpop, Synthwave, Retrowave
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635506.jpg" />
 </div>
 
 
@@ -479,7 +595,7 @@ Two Friends - Big Bootie Mix Vol.15 2019-04-03 [MP3|320 Kbps] <Electro House, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635499.jpg" />
 </div>
 
 
@@ -506,7 +622,7 @@ VA - Pure Synthwave Vol. 1 (2018) [MP3|320 Kbps] <Synthwave, Retrosynth, Outrun,
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635497.jpg" />
 </div>
 
 
@@ -535,7 +651,7 @@ VA - Beachclub Barbecue: Summer Relaxation & Chillout Lounge (2017) [MP3|320 Kbp
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635397.jpg" />
 </div>
 
 
@@ -564,7 +680,7 @@ VA - Midnight Lounge Vol.38: Sol do Brasil (2017) [MP3|320 Kbps] <Downtempo, Chi
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635392.jpg" />
 </div>
 
 
@@ -593,7 +709,7 @@ VA - Ibiza House Opening 2017 - House & Chill Music At Its Best (2017) [MP3|320 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635384.jpg" />
 </div>
 
 
@@ -622,7 +738,7 @@ Headdreamer - Discography 11 Releases (2010-2019) Aliens Production [FLAC|Lossle
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635364.jpg" />
 </div>
 
 
@@ -635,122 +751,6 @@ Headdreamer - Discography 11 Releases (2010-2019) Aliens Production [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7B33FCF02F3825491BEC88400BCEED06F6FF14E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542552   (635323) от 08.04.2022
-
-Sally Shapiro - Sad Cities (The Remixes) (2022) [FLAC|Lossless|WEB-DL|tracks] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forget About You (Johnny Jewel's Amnesia Remix)04:15
-02. Tell Me How (Sunglasses Kid Remix) 05:11
-03. Believe In Me (Italoconnection Remix) 06:45
-04. Million Ways (Gerd Janson Remix) 06:22(   Читать дальше...   )Жанр: Synth-popПродолжительность: 01:04:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:010F6B55E718AD3E739E7275EADF08821F16132A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143238   (635118) от 18.06.2017
-
-VA - Uplifting Trance 2017 Vol.2 (2017) [MP3|320 Kbps] <Uplifting Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Alan Morris & Ana Criado - Border Line (Original Mix)  6:02
-02.  Ana Criado - Still There's You (A.R.D.I. Remix)  6:22
-03.  Adam Ellis & Fenna Day - What Makes Your Heart Beat (Club Mix)  8:14
-04.  Susana - Only Summer Knows (Original Mix)  7:24(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 02:49:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91AFF563E35A1118F54506C78EEB542BDD712C43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143242   (634983) от 18.06.2017
-
-VA - Uplifting Trance 2017 Vol.2 (2017) [FLAC|Lossless|WEB-DL|tracks] <Uplifting Trance, Vocal Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Alan Morris & Ana Criado - Border Line (Original Mix)  6:02
-02.  Ana Criado - Still There's You (A.R.D.I. Remix)  6:22
-03.  Adam Ellis & Fenna Day - What Makes Your Heart Beat (Club Mix)  8:14
-04.  Susana - Only Summer Knows (Original Mix)  7:24(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 02:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D23165D66AA295714776D540BB8D0A63BBB8A646
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542823   (634920) от 08.04.2022
-
-Boris Brejcha - Die Maschinen sind Gestrandet (2022) Remastered [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Verstaubter Fruchtzucker (Remastered) (7:16)
- 02. Shikora (Remastered) (7:03)
- 03. Push to Play (Remastered) (7:02)
- 04. Anabella (Remastered) (7:10)(   Читать дальше...   )Жанр: Tech House, Techno, MinimalПродолжительность: 00:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB37A94D499448C61F3B558ABDE3A61DB82DFED1
 ```
 
 https://mybot314.ru/tekegram_catalog/

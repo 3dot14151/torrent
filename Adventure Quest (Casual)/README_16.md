@@ -6,7 +6,7 @@ Legendary Tales: Stolen Life (2020) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751918.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Darkness and Flame 2: Missing Memories (2017) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751873.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Dark Tales 17: Edgar Allan Poe's. The Bells / Тёмные истории 17: Э
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751828.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Myths of the World 6: The Heart of Desolation (2015) [En] Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751644.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ The Andersen Accounts 2: The Price of a Life (2019) [En] (1.0) Unofficial [Colle
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751622.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Royal Legends: Marshes Curse / Королевские легенды: Прокл
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751130.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Ominous Objects 2: Phantom Reflection (2015) [En] Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750124.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Demon Archive: The Adventure of Derek (2015) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749969.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Embrace of Ocean: Story of Hope (2017) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749922.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ PuppetShow 15: Porcelain Smile / Шоу марионеток 15: Фарфоро�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749817.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Spirit of Revenge: Cursed Castle / Месть духа. Проклятый за�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749654.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Haunted Legends 12: Monstrous Alchemy / Легенды о призраках 12:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749219.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Saga of the Nine Worlds: The Gathering (2017) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748042.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Dreadful Tales: The Space Between / Жуткие истории: Кто таит
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747955.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Facility 47 (2015) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747872.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Bonfire Stories: The Faceless Gravedigger (2017) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746551.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Edge of Reality 8: Lost Secrets of the Forest (2022) [En] (1.0) Unofficial [Coll
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746278.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Demonheart (2017) [En] (1.41) Repack Other s [Chapter 1-4]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745835.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ The Forgotten Fairytales: The Spectra World (2017) [En] (1.0) Unofficial [Collec
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745327.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Haunted Hotel 14: Personal Nightmare (2017) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745324.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ League of Light 5: Edge of Justice (2017) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745320.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Bridge To Another World 4: Escape From Oz (2017) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745319.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Love Chronicles 5: Beyond the Shadows / История любви 5: По ту �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_744860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_744860.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Medium Detective: Fright from the Past / Детектив Медиум: Ужас
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744449.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Worlds Align 2: Deadly Dream (2020) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744005.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Family Mysteries 3: Criminal Mindset / Семейные тайны 3: Прест
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743965.jpg" />
 </div>
 
 

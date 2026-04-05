@@ -6,7 +6,7 @@ Kinetic Element - Live From New York (2020) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742741.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Animals - The House Of The Rising Sun: Best Of The Animals (2019) [MP3|320 K
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742333.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Avril Lavigne - Head Above Water (2019) [MP3|320 Kbps] <Pop-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741992.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Rainbow (Ritchie Blackmore's Rainbow) - Memories In Rock II (2018) Live [MP3|320
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741933.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ The Alan Parsons Project - Discography (1976-2016) 69 Albums [MP3|192-320 кб/�
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741496.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Eberhard Schoener - 2 Albums (1978) (Bass Guitar, Vocals - Sting) [MP3|320 Kbps]
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741158.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Noel & The Red Wedge - Peer Pressure (1982) LP [MP3|320 Kbps] <Electronic, Pop R
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741153.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Foreigner - Live in Concert (2019) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741054.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Mudcrutch - 2 (2016) [MP3|320 кб/с] <Rock, Country Rock, Folk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740990.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Girls! The Ultimate Female Rockin' Rollin' Jivin' Album (1990) [MP3|320 к�
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740985.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Trubetskoy - Зашевелит бит (2019) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740976.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Antares - Sea of Tranquility (1979) Reissue CD, 1994, Mellow Records [MP3|320 Kb
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740914.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ The Monkees - Good Times! (2016) [MP3|320 кб/с] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740883.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Find Me - Angels in Blue (2019) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740265.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ The Hardkiss - Акустика. Live (2020) [MP3|320 kbps] <Acoustic, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739869.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Deep Purple - Turning To Crime (2021) Bonus Track Edition [MP3|320 kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738121.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Heymoonshaker - Live in France (2017) [MP3|320 Kbps] <Alternative, Beatbox Blues
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737784.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Gerard Manset - Un oiseau s'est pos (2014) 2CD [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737743.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ VA - College Rock Throwback Mix Tape (2022) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_735382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_735382.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Stilema - Utopia (2020) [MP3|320 Kbps] <Folk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734342.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Cheesing Gweilo - Oriental Adventures... (2020) (Powered By Rice) [MP3|320 Kbps]
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732967.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ VA - American Rock Hits (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732938.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Eric Clapton - Discography 193 Albums (1963 - 2016) [MP3|128-320 кб/с]<Blues,
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731277.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Les Discrets - Predateurs (Prédateurs) (2017) Deluxe Edition [MP3|320 Kbps] <Po
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730065.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ The Hillbilly Moon Explosion - My Love for Evermore (2015) [MP3|320 кб/с] <Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728820.jpg" />
 </div>
 
 
@@ -735,7 +735,7 @@ Fleetwood Mac - Tango In The Night (1987) Remaster 2017 (3CD) [MP3|320 kbps] <Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727207.jpg" />
 </div>
 
 

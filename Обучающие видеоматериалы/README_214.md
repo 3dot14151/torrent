@@ -1,3 +1,30 @@
+###  Публикация: 1605887   (203814) от 19.01.2023
+
+AMS³, Надежда Бейнер | Электрика в Archicad (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почему стоит пройти мастер-класс "Электрика в Archicad"?
+Дизайнеры и архитекторы уже давно используют объект «Рамка ЭЛ», как основную библиотеку по электрике. Но много вопрос к расчетам! Нормально сформировать спецификацию не получается. Указать кол-во розеток и выключателей в таблице - целая проблема. Что делать с электровыводами - загадка. А сколько я (   Читать дальше...   )Производство: AMS³Жанр: Дизайн, архитектураЯзык озвучки: РусскийПродолжительность: 05:03:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E9FD3DFB6A03AD3D96EBFF2043354B6D6C64B7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1606191   (203745) от 21.01.2023
 
 Сила дизайна, Андрей Лов | №11 Архитектура Ui (2020) WEB-DL [RU]
@@ -6,7 +33,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203745.jpg" />
 </div>
 
 
@@ -35,7 +62,7 @@ Pro-Infografika, Ариадна Юсупова, Мурад Юсупов | Про
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203720.jpg" />
 </div>
 
 
@@ -64,7 +91,7 @@ Antipin-STUDIO, Антипин Виталий | Основа основ (про�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203687.jpg" />
 </div>
 
 
@@ -92,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203685.jpg" />
 </div>
 
 
@@ -121,7 +148,7 @@ Teletype, Роман Горелик | Бандл от Науки Дизайна.
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203681.jpg" />
 </div>
 
 
@@ -150,7 +177,7 @@ Rebelway, Saber Jlassi | Рендеринг в Karma в Houdini 19 (2021) WEB-DL
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203655.jpg" />
 </div>
 
 
@@ -176,7 +203,7 @@ e-Business | Webflow intensive 2.0 (2022) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203652.jpg" />
 </div>
 
 
@@ -205,7 +232,7 @@ Breezzly, Анастасия Свеженцева | Создание экскл�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203650.jpg" />
 </div>
 
 
@@ -232,7 +259,7 @@ Bazanova Art, Ольга Базанова | Гиперреализм (2022) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203581.jpg" />
 </div>
 
 
@@ -261,7 +288,7 @@ FXPHD, Liam Whitehouse | Realtime Cinema Environments in Unreal Engine (2021) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203560.jpg" />
 </div>
 
 
@@ -288,7 +315,7 @@ Kalacheva School, Ирина Климова и др. | Все онлайн ку�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203521.jpg" />
 </div>
 
 
@@ -317,7 +344,7 @@ Kalacheva School, Татьяна Головко | Анималистика в Di
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203495.jpg" />
 </div>
 
 
@@ -346,7 +373,7 @@ Udemy, Ashutosh Pawar | The Complete FastAPI Course With OAuth & JWT Authenticat
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203484.jpg" />
 </div>
 
 
@@ -375,7 +402,7 @@ Udemy, Luke Priddy | Master English Writing | Syntax, English Grammar, and More 
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203476.jpg" />
 </div>
 
 
@@ -404,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203439.jpg" />
 </div>
 
 
@@ -431,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203431.jpg" />
 </div>
 
 
@@ -459,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203426.jpg" />
 </div>
 
 
@@ -488,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203312.jpg" />
 </div>
 
 
@@ -517,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203309.jpg" />
 </div>
 
 
@@ -545,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203222.jpg" />
 </div>
 
 
@@ -571,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203214.jpg" />
 </div>
 
 
@@ -600,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203168.jpg" />
 </div>
 
 
@@ -629,7 +656,7 @@ Waqas Qazi | Master DaVinci Resolve NODE TREE. Live Training Session 2 (2020) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203156.jpg" />
 </div>
 
 
@@ -656,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203135.jpg" />
 </div>
 
 
@@ -685,7 +712,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203121.jpg" />
 </div>
 
 
@@ -699,35 +726,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64557DA5A62AA7C13C59C43FA83A412498A9A7F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609692   (203108) от 04.02.2023
-
-AMS³, Надежда Бейнер | Видеокурс оформление проектной документации в ArchiCAD по ГОСТ (2022) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс разработан для:
-Архитекторов
-Проектировщиков АР
-Дизайнеров(   Читать дальше...   )Производство: AMS³Жанр: Дизайн, архитектураЯзык озвучки: РусскийПродолжительность: 08:27:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97A8E0C520E735844F2EF1DEFC6997C9C31BCE65
 ```
 
 https://mybot314.ru/tekegram_catalog/

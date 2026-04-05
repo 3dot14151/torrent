@@ -6,7 +6,7 @@ Movavi PDF Editor 2.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387302.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Paintstorm Studio 2.42 (build 170919) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387173.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ SteerMouse 5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387122.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Movavi Slideshow Maker 3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386948.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ CleanMyMac X 4.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386891.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Coda 2.5.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386864.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Capture One Pro 7.0 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_386781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_386781.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Waltr 2 v2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386487.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ QuartzCode 1.62.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385572.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Acorn 6.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385545.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Nice Clipboard - a cloud synced clipboard manager 1.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385219.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385217.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Wondershare Recoverit 8 v8.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385206.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ MathType 7 v7.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385085.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384978.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ SizeUp 1.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384921.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ WiFiSpoof 2.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384913.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Deponia 2: Chaos on Deponia [Native]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_384687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_384687.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ PictureCode Photo Ninja 1.3.4b [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384620.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Keep It 1.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383591.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Sketch 69 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383526.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ SnippetsLab 1.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383509.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Dash 4.6.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383508.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Liquivid Video Improve 2.7.1 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383507.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Newsflow v 1.4.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383505.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ ExpanDrive 7.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383494.jpg" />
 </div>
 
 

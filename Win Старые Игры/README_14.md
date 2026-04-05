@@ -1,3 +1,55 @@
+###  Публикация: 1300704   (592683) от 07.05.2019
+
+Command & Conquer 3: Kane’s Wrath / Ярость Кейна (2008) [Ru] (1.02) Repack xatab
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Борьба между Братством NOD и силами GDI продолжается! Непримиримая война за тиберий вспыхнула с новой силой, а в центре событий оказался сам Кейн — харизматичный лидер бунтарей. Command & Conquer 3 Ярость Кейна раскрывает историю самого главного преступника планеты.Тип издания: RepackРазработчик: BreakAway Limited, EA Los AngelesЖанр: 3D, StrategyЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C7A4B3B2703062FAD4A7D80DE5F80AA8F7C741A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300894   (587821) от 08.05.2019
+
+Command & Conquer 3: Tiberium Wars (2007) [Ru] (1.09) Repack xatab
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Command & Conquer 3: Tiberium Wars — компьютерная игра в жанре «стратегия в реальном времени», разработанная компанией Electronic Arts Los Angeles для ОС Windows и игровой приставки Xbox 360, долгожданное пополнение в линейке игр серии Command & Conquer.Тип издания: RepackРазработчик: EA Los AngelesЖанр: Strategy (Real-time), 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF80539C8DBC771EE87408333734A7736E916691
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 356861   (587744) от 30.06.2011
 
 Spider-Man: Friend or Foe [Ru] (P) 2007
@@ -6,7 +58,7 @@ Spider-Man: Friend or Foe [Ru] (P) 2007
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587744.jpg" />
 </div>
 
 
@@ -36,7 +88,7 @@ Command & Conquer: Red Alert 3 (2008) [Ru/Multi] (1.12) License PROPHET
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586902.jpg" />
 </div>
 
 
@@ -62,7 +114,7 @@ Trevor Chan's Capitalism II / Капитализм 2 (P) [Ru] 2001
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585706.jpg" />
 </div>
 
 
@@ -89,7 +141,7 @@ Disney Сollection: Aladdin, The Lion King, The Jungle Book (1993-1994) [En] (1.
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585064.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ Star Wars™: Dark Forces (1995) [Multi] (1.0.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584913.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ Command & Conquer: Red Alert 3 — Uprising (2009) [Ru] (1.12) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584893.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ Serious Sam: The First Encounter / Крутой Сэм: Первая кровь 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584148.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ Campus [Ru] (RePack) 2007 | CCG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582714.jpg" />
 </div>
 
 
@@ -221,7 +273,7 @@ Jagged Alliance 2: Wildfire / Jagged Alliance 2: Возвращение в Ар�
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580485.jpg" />
 </div>
 
 
@@ -247,7 +299,7 @@ Iron Storm / Коммандос: В тылу врага (2002) [Ru/Multi] (1.041
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579697.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ Painkiller (2004) [Ru/En] (1.64/dlc) Repack Mentaz [Black Edition: PainKiller + 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576633.jpg" />
 </div>
 
 
@@ -301,7 +353,7 @@ Sacrifice / Жертвоприношение (2000) [Ru/En] (15.08.2016) License
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573983.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ Soldiers: Heroes of World War II / В тылу врага (2004) [Ru/En] (1.28.3
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573876.jpg" />
 </div>
 
 
@@ -353,7 +405,7 @@ Battlestrike: The Siege / 1944: Огненные рубежи (2005) [Ru] (1.0) 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568337.jpg" />
 </div>
 
 
@@ -379,7 +431,7 @@ Avernum 2 (2000) [En] (1.0.1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566810.jpg" />
 </div>
 
 
@@ -405,7 +457,7 @@ London Racer: Destruction Madness / London Racer: Тотальное разру�
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564879.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ Hostile Waters: Antaeus Rising / Враждебные воды: Территор
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_564565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_564565.jpg" />
 </div>
 
 
@@ -457,7 +509,7 @@ Aven Colony (2017) [Ru/Multi] (1.0) Repack Covfefe
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559094.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ Rex Nebular and the Cosmic Gender Bender (1992) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558051.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ Fragile Allegiance (1997) [En] (1.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557956.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ Worms Armageddon / Worms: Армагеддон (1999) [Ru/Multi] (3.8.1) Repack 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557878.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ Mortyr: Dilogy / Мортир: Дилогия (1999-2004) [Ru/En] (1.0/1.352) Li
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557269.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ Myst IV: Revelation (2004) [Multi] (1.03hf2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557172.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ True Crime Dilogy (2004-2006) [Ru/En] Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556313.jpg" />
 </div>
 
 
@@ -625,58 +677,6 @@ True Crime Dilogy (2004-2006) [Ru/En] Repack R.G. Механики
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0B673E4A6904B37F16AAF9AEC335AF913DE7831
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309101   (552682) от 17.06.2019
-
-S.T.A.L.K.E.R.: Clear Sky / S.T.A.L.K.E.R.: Чистое небо (2008) [Ru/Multi] (1.5.10) Steam-Rip ORiGiNS
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет «S.T.A.L.K.E.R.: Чистое Небо» переносит игроков за год до событий оригинальной игры S.T.A.L.K.E.R. в 2011 год. Группа сталкеров впервые подобралась к самому сердцу Зоны - Чернобыльской АЭС, спровоцировав катаклизм, который едва не привел к катастрофе. Грандиозный Выброс аномальной энергии изменяет Зону. Проверенных и относительно безопасных дорог больше нет. (   Читать дальше...   )Тип издания: Steam-RipРазработчик: GSC Game WorldЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, Украинский, Английский, Немецкий и другиеЯзык субтитров: Русский, Украинский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Украинский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD23EA2A0EAE59F2582646FDCA2E91A44FDB3E39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309261   (551827) от 18.06.2019
-
-Cosmo's Cosmic Adventure (1992) [En] (1.20) License GOG
-
->>Win Старые Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551827.jpg" />
-</div>
-
-
-###  Подробнее
-
-У него зеленая кожа в красную крапинку, присоски вместо ладоней и неправильный прикус. Зовут его Космо, он – юный инопланетянин, которого родители везут в известный на всю галактику парк аттракционов. Все идет хорошо, покуда в космический корабль семьи Космо не попадает шальная комета. Приходится совершить аварийную посадку на неизученной планете.Тип издания: LicenseРазработчик: Apogee Software, Ltd.Жанр: Экшн, Аркада, ПлатформерЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59C151339DAECF402A200B8C8CB61AA625C93A1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

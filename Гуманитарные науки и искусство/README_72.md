@@ -1,84 +1,3 @@
-###  Публикация: 931141   (509365) от 29.08.2015
-
-А. Г. Ковалев и др. (ред.) | Психология (1966) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509365.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие для студентов педагогических вузов подготовлено коллективом кафедры психологии Ленинградского государственного педагогического института имени А. И. Герцена.Жанр: педагогика, психологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65C147A86414DDBE166C46B40019BABF5E5192D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931131   (509190) от 29.08.2015
-
-М. С. Строгович | Логика (1949) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор:
-
-В связи с введением преподавания логики в высших учебных заведениях возникла настоятельная необходимость в создании учебника логики, полностью отвечающего требованиям, предъявляемым к учебникам для вузов. Эта задача до сих пор не решена. Настоящая работа представляет собой лишь первый шаг в деле подготовки вузовского учебника логики и не претендует на большее, (   Читать дальше...   )Жанр: логика, искусство, психология, философияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAC2A6D7A371D148E1C80233F2E5DCDFE793A7F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931801   (509093) от 29.08.2015
-
-Плунгян Владимир | Почему языки такие разные (2012) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Человеческий язык – величайший дар природы! Ему мы обязаны возможностью общаться, передавать свои мысли на расстоянии. Благодаря языку мы можем читать книги, написанные много веков назад, а значит, использовать знания, накопленные нашими предками, и сохранять наши знания для будущих поколений. Без языка не было бы человечества!
-Сколько языков на земле, как они устроены; (   Читать дальше...   )Жанр: Языкознание, ЛингвистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:184E3DD2B8ADE90659A31EEB778445AF795B2373
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 931539   (509086) от 29.08.2015
 
 Гай Стэндинг | Прекариат: новый опасный класс (2014) [FB2, EPUB, MOBI, RTF, TXT]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509086.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509013.jpg" />
 </div>
 
 
@@ -142,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508834.jpg" />
 </div>
 
 
@@ -168,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508831.jpg" />
 </div>
 
 
@@ -194,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505688.jpg" />
 </div>
 
 
@@ -220,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505436.jpg" />
 </div>
 
 
@@ -246,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505427.jpg" />
 </div>
 
 
@@ -272,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505360.jpg" />
 </div>
 
 
@@ -298,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505353.jpg" />
 </div>
 
 
@@ -325,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505209.jpg" />
 </div>
 
 
@@ -353,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505197.jpg" />
 </div>
 
 
@@ -379,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500632.jpg" />
 </div>
 
 
@@ -405,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500557.jpg" />
 </div>
 
 
@@ -431,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500489.jpg" />
 </div>
 
 
@@ -457,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500296.jpg" />
 </div>
 
 
@@ -483,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499158.jpg" />
 </div>
 
 
@@ -512,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498569.jpg" />
 </div>
 
 
@@ -540,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498460.jpg" />
 </div>
 
 
@@ -568,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497574.jpg" />
 </div>
 
 
@@ -596,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497472.jpg" />
 </div>
 
 
@@ -624,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497390.jpg" />
 </div>
 
 
@@ -650,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496599.jpg" />
 </div>
 
 
@@ -678,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496401.jpg" />
 </div>
 
 
@@ -689,6 +608,88 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42F062702463CFDDB072FBC32677FEF3E6560A74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242773   (496199) от 25.08.2018
+
+А.А. Максимов | Очерки по истории борьбы за материализм в русском естествознании (1947) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая работа ставит себе задачей в доступной форме проследить историю борьбы за передовое, материалистическое мировоззрение в дореволюционной России в области естествознания.
+
+Исходным теоретическим положениям, на которых построена книга, посвящены «Введение» и раздел пятый «Ленин и борьба русских естествоиспытателей за научное мировоззрение».Жанр: История, науковедение, естествознание, философияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F6EB59E4D4101B4E664836C5CB0CE50B0D9DA19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242720   (496009) от 25.08.2018
+
+Н.Я. Борисов (ред.) | Разум против религии. Блокнот агитатора. Специальный выпуск, посвященный атеистической пропаганде (1965) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник небольших статей различного содержания, посвященных атеистической пропаганде в СССР 60-х годов.
+
+Необходимо систематически вести широкую научно-атеистическую пропаганду, терпеливо разъяснять несостоятельность религиозных верований, возникших в прошлом на почве придавленности людей стихийными силами природы и социальным гнетом, из-за незнания истинных причин (   Читать дальше...   )Жанр: История, политология, науковедение, религиоведение, искусствоФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81144AC34BF3C451198A29FCDD8BC7A9BD5CE55D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543032   (495797) от 05.09.2012
+
+Ю.Т. Ивлев | Государственный Русский музей.  Живопись. 1-я половина XIX века. [1980] [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несброшюрованный альбом с репродукциями 20 картин из собрания Государственного Русского музея. Данный альбом состоит из цветных репродукций с произведений, созданных русскими художниками в 1-ой половине XIX века.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B836206881AD5B1E0AD872996A6288804A9EA83
 ```
 
 https://mybot314.ru/tekegram_catalog/

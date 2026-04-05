@@ -6,7 +6,7 @@ Affinity Photo 2 v.2.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236825.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ GraphicConverter 11 v.11.7.1 beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236823.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v.4.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236813.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Tempomate 4.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236806.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ AnyMP4 iPhone Unlocker 1.0.32 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236800.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ myTracks 3.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236769.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ iCompta 6 v.6.0.62 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236763.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Sketch 96.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236762.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Viper FTP 6.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236755.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Vellum 3.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236753.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Network Radar 3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236751.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ The Clock - The Best World Clock 4.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236745.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Rhinoceros 7 v.7.31 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236741.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ MacCleanse 10 v10.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236737.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ aText 2.37 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236729.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ VueScan Pro 9.8.07 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236725.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ TrashMe 3 v.3.5.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236713.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ TinkerTool System 7 v7.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236694.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Allavsoft Video Downloader Converter 3.25.7.8568 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236660.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ File List Export 2.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236659.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Bartender 4 v4.0.45 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236658.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Sublime Merge 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236657.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Typora for Mac 1.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236643.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Display Maestro 5 v5.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236623.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ GraphicConverter for Mac 12.0.2 beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236622.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Nevercenter CameraBag Photo 2023.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236605.jpg" />
 </div>
 
 

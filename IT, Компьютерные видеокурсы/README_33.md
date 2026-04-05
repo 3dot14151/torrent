@@ -1,32 +1,3 @@
-###  Публикация: 1479295   (872457) от 17.09.2021
-
-Верный старт в 1C и др. | Подборка учебных курсов по 1С [часть 1] (2015-2021) PCRec
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка видеокурсов и других материалов по программированию и администрированию 1С за 2015-2021 года.
-В состав первой части подборки входят:
-1C Предприятие для программистов
-КонфигурированиеПроизводство: Верный старт в 1C и др.Жанр: 1С, программирование, администрированиеПродолжительность: ~00:10:00 видеоурок
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF5DD0FBE6B588957611ADF39BDA3868C4512C83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089362   (870688) от 20.02.2017
 
 Geekbrains | Wordpress для профессионалов. Разработка темы оформления (2016) PCRec
@@ -35,7 +6,7 @@ Geekbrains | Wordpress для профессионалов. Разработка
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870688.jpg" />
 </div>
 
 
@@ -61,7 +32,7 @@ Udemy, Manuel End | LPIC-1 - Linux System Administrator Masterclass (2021) WEB-D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869364.jpg" />
 </div>
 
 
@@ -88,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867583.jpg" />
 </div>
 
 
@@ -115,7 +86,7 @@ PythonYoga | Python/Django + React QR Digital Menu Builder (2021) WEB-DL [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865936.jpg" />
 </div>
 
 
@@ -144,7 +115,7 @@ Pluralsight | Учебный курсы Pluralsight (2013-2021) PCRec [EN / EN S
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864445.jpg" />
 </div>
 
 
@@ -172,7 +143,7 @@ Udemy, Илья Фофанов | Программирование на C#: от 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864281.jpg" />
 </div>
 
 
@@ -199,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862628.jpg" />
 </div>
 
 
@@ -228,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862514.jpg" />
 </div>
 
 
@@ -256,7 +227,7 @@ Geekbrains | Java. Практическое применение (2015) PCRec [H
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861826.jpg" />
 </div>
 
 
@@ -284,7 +255,7 @@ Edwin Diaz, Coding Faculty Solutions | PHP for Beginners - Become a PHP Master -
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859972.jpg" />
 </div>
 
 
@@ -310,7 +281,7 @@ ITVDN | iOS Developer (2015-2020) PCRec [H.264/1080p,720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859961.jpg" />
 </div>
 
 
@@ -336,7 +307,7 @@ Jose Portilla | Complete Python Bootcamp: Go from zero to hero in Python 3 (2019
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859863.jpg" />
 </div>
 
 
@@ -364,7 +335,7 @@ Udemy, Anna Kuzina | Парсинг сайтов. Scrapy, Splash, Selenium, requ
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859238.jpg" />
 </div>
 
 
@@ -392,7 +363,7 @@ Skillbox, Павел Елисеев | Профессия Архитектор П
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859230.jpg" />
 </div>
 
 
@@ -420,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857408.jpg" />
 </div>
 
 
@@ -447,7 +418,7 @@ ProfIT | PHP. Уровень 2. Профессиональное програм�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856821.jpg" />
 </div>
 
 
@@ -475,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856809.jpg" />
 </div>
 
 
@@ -501,7 +472,7 @@ ITVDN | Видео курс Python Essential (2016) [H.264/720p]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856797.jpg" />
 </div>
 
 
@@ -527,7 +498,7 @@ ITVDN | Database Developer (2015-2019) PCRec [H.264/1080p,720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856336.jpg" />
 </div>
 
 
@@ -555,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855347.jpg" />
 </div>
 
 
@@ -581,7 +552,7 @@ Udemy | PHP OOP: Object Oriented Programming for beginners + Project Course Driv
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854602.jpg" />
 </div>
 
 
@@ -609,7 +580,7 @@ CONTENTED | VR-разработчик. Разработки VR-приложен�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854584.jpg" />
 </div>
 
 
@@ -635,7 +606,7 @@ ProfIT | Дао программиста. Путь к деньгам, свобо
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853516.jpg" />
 </div>
 
 
@@ -664,7 +635,7 @@ ITVDN | PHP Developer (2015-2020) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852900.jpg" />
 </div>
 
 
@@ -690,7 +661,7 @@ ITVDN | Коллекция видеокурсов (2015-2020) PCRec [H.264/720p-
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852778.jpg" />
 </div>
 
 
@@ -701,6 +672,34 @@ ITVDN | Коллекция видеокурсов (2015-2020) PCRec [H.264/720p-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2223012944B786E010E48A7B66F15567CC80863A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375373   (852774) от 21.04.2020
+
+ITVDN | Python Developer (2015-2020) PCRec [H.264/720p-LQ]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Python - это высокоуровневый язык программирования общего назначения, ориентированный на повышение производительности и читаемости кода.
+
+На сегодняшний день Python является одним из самых популярных языков программирования со стремительно растущим охватом сфер применения. Последние 5 лет он входит в ТОП-10 самых востребованных технологий на рынке IT.Производство: ITVDNЖанр: Программирование, PythonЯзык озвучки: РусскийПродолжительность: 78:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F12A52AA08255F72CF4F3D1460464910A5480C8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

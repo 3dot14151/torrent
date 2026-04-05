@@ -1,29 +1,3 @@
-###  Публикация: 984690   (938599) от 09.02.2016
-
-Сергей Кашин | Умный виноградник. Выгодно и легко (2015) [FB2]
-
->>Разное (категория книг)
->>Сад, огород, животноводство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бытует мнение, что виноград возможно вырастить только на южной земле. Данная книга призвана развенчать этот миф. Благодаря рекомендациям, которые в ней содержатся, вы сможете вырастить свой виноградник в любом регионе!Жанр: Сад и ОгородФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:437AE94F9026D3106E6B352ED577757BEF59DE6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984703   (938587) от 09.02.2016
 
 Сергей Кашин | Украшаем сад своими руками (2015) [FB2]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938587.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936769.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936258.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935457.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934467.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933980.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927197.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922347.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918794.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918665.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916913.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916767.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916514.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911714.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911359.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908219.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898598.jpg" />
 </div>
 
 
@@ -477,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897679.jpg" />
 </div>
 
 
@@ -504,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897046.jpg" />
 </div>
 
 
@@ -530,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896596.jpg" />
 </div>
 
 
@@ -556,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895324.jpg" />
 </div>
 
 
@@ -582,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894265.jpg" />
 </div>
 
 
@@ -608,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894258.jpg" />
 </div>
 
 
@@ -634,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894252.jpg" />
 </div>
 
 
@@ -660,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894120.jpg" />
 </div>
 
 
@@ -671,6 +645,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4802EE12429F07EF3479583382F4F6752FE9E383
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101527   (894030) от 07.02.2017
+
+Павел Траннуа | Самая полезная настольная книга садовода и огородника (2017) [FB2]
+
+>>Разное (категория книг)
+>>Сад, огород, животноводство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Можно ли написать такую книгу о выращивании растений, которая была бы полезна и интересна как начинающим садоводам, так и опытным? У вас в руках такая книга. Ее автор – выпускник факультета почвоведения МГУ, садовод с 40-летним стажем, автор нескольких книг по методикам эффективного выращивания огородных и плодовых растений на приусадебном участке. Как приготовить (   Читать дальше...   )Жанр: Сад, огородФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B78CAEC064BEC9839A7C50EF9A632F5B11686BD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

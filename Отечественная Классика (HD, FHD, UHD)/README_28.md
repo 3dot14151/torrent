@@ -1,3 +1,55 @@
+###  Публикация: 1570223   (22732) от 02.04.2025
+
+Семь невест ефрейтора Збруева (1970) HDTV [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотография Кости попала на обложку журнала «Умелый воин», и особы женского пола засыпали его письмами со всех сторон нашей обширной Родины. Пришло время демобилизации и Костя отправился в длительное путешествие от украинских степей до дальневосточной тайги выбирать невесту.Производство: СССР / ЛенфильмЖанр: комедия, мелодрамаРежиссер: Виталий МельниковАктеры: Семён Морозов, Наталья Варлей, Марианна Вертинская, Ирина Куберская, Елена Соловей, Татьяна Фёдорова, Наталья Четверикова, Юрий Епифанов, Юрий Балашов и др.Субтитры: русскиеПродолжительность: 01:31:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E48D545E378353416FFE6CCD2F48421F9F591D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545875   (22432) от 05.04.2025
+
+Невероятные приключения итальянцев в России (1973) BDRemux [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22432.jpg" />
+</div>
+
+
+###  Подробнее
+
+В одной из римских больниц скончалась русская эмигрантка. Старая дама, некогда эмигрировавшая из России, поведала своей внучке Ольге, что все ее огромное состояние спрятано в Ленинграде «под львом». Это обстоятельство явилось причиной срочного отлета в Ленинград всех тех, кто случайно или специально был посвящен в эту тайну.Производство: СССР, Италия / Мосфильм, Dino de Laurentiis Cinematografica, Produzioni Cinematografiche Inter. Ma. Co.Жанр: Комедия, приключения, криминалРежиссер: Эльдар РязановАктеры: Андрей Миронов, Нинетто Даволи, Антония Сантилли, Алигьеро Носкезе, Тано Чимароза, Джиджи Баллиста, Евгений Евстигнеев, Ольга Аросева, Лариса Виккел, Александр ЛукьяновСубтитры: русскиеПродолжительность: 01:42:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD7B390DB00D9852291A6699878B03A820661909
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 774683   (22239) от 07.04.2025
 
 Верные друзья (1954) Blu-Ray [1080p]
@@ -6,7 +58,7 @@
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22239.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22238.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21931.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21909.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21898.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21788.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21161.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21067.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20100.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20099.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20096.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19735.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19638.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19607.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19566.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19360.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18873.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18770.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18519.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18011.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17969.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17234.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14786.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14635.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB38DF3E3C0D26D6EF14BEEF033309B0D6F2AC34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373867   (14570) от 15.06.2025
-
-Дерсу Узала (1975) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14570.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает об увлекательных путешествиях замечательного русского ученого и писателя В. Арсеньева. В центре повествования образ таежного охотника Дерсу Узала - мудрого, доброго и отважного человека, связанного с Арсеньевым искренней дружбой.Производство: СССР, Япония / Мосфильм, Daiei Studios, Atelier 41Жанр: Драма, приключения, биографияРежиссер: Акира КуросаваАктеры: Максим Мунзук, Юрий Соломин, Владимир Кремена, Александр Пятков, Светлана Данильченко, Дмитрий Коршиков, Суйменкул Чокморов, Михаил Бычков, В. Ласточкин, Станислав Марьин и др.Субтитры: ОтсутствуютПродолжительность: 02:21:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64AB70116FDCFB4B6236A182EC4620EEC0846306
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798967   (14419) от 16.06.2025
-
-Два бойца (1943) WEB-DLRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14419.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят во время войны по повести Льва Славина «Мои земляки». Искренний и правдивый рассказ о дружбе Аркадия Дзюбина, неунывающего, лихого и бедового парня из Одессы, и Саши Свинцова - «Саши с Уралмаша».Производство: СССР / Ташкентская киностудияЖанр: военный, драма, мелодрамаРежиссер: Леонид ЛуковАктеры: Марк Бернес, Борис Андреев, Вера Шершнёва, Янина Жеймо, Максим Штраух, Иван Кузнецов, Степан Крылов, Лаврентий Масоха, Эммануил Геллер, Сергей Комаров и другиеСубтитры: отсутствуютПродолжительность: 01:15:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E19CA62382E03AABB14E8A58998FBA6B9775BDA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

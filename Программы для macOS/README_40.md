@@ -1,3 +1,55 @@
+###  Публикация: 1505305   (806436) от 26.10.2021
+
+FonePaw Video Converter Ultimate 6.0.0 [Multi]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806436.jpg" />
+</div>
+
+
+###  Подробнее
+
+FonePaw Video Converter Ultimate - многофункциональное программное обеспечение позволяет конвертировать, редактировать и воспроизводить видео, DVD и аудио, кроме того, Вы также можете скачать онлайн видео. Благодаря поддержке технологий NVIDIA® CUDA™, AMD® App Acceleration программа может декодировать и кодировать видео на высокой скорости и с превосходным качеством, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.08.2021Разработчик: © FonePaw Technology LimitedПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2116BCF41A87AF1B1F3D22A623F95B18423B5243
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505130   (806394) от 26.10.2021
+
+OmniGraffle Pro 7 v7.19 [Multi/Ru]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806394.jpg" />
+</div>
+
+
+###  Подробнее
+
+OmniGraffle Pro - отличный инструмент для создания сложных графиков, диаграмм, схем. OmniGraffle Pro обладает простым и интуитивно понятным интерфейсом, который обеспечивает легкий доступ к вашим проектам, инструментам и стилям и другим меню. В число инструментов программы входят: кривая Безье, трафареты, кривые и многое другое. Для придания диаграмме презентабельного (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.10.2021Разработчик: Omni GroupПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E15FF0A25AE96AC91CA959F38E616C798CABF44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505307   (806386) от 26.10.2021
 
 OnyX 4.0.1 for macOS Big Sur 11 [Multi/Ru]
@@ -6,7 +58,7 @@ OnyX 4.0.1 for macOS Big Sur 11 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806386.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Pixelmator Pro 2.2 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806300.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ QMidi Pro 2.8.9 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806257.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ Email Archiver Enterprise 3.3.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806111.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ Peeler 1.0.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805847.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ Postico 1.1.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805487.jpg" />
 </div>
 
 
@@ -170,7 +222,7 @@ Core Animator 1.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805381.jpg" />
 </div>
 
 
@@ -198,7 +250,7 @@ Video Editor MovieMator – Movie & Film Maker! 1.7.8 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805128.jpg" />
 </div>
 
 
@@ -224,7 +276,7 @@ Stellar Drive ToolBox 4.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805059.jpg" />
 </div>
 
 
@@ -252,7 +304,7 @@ Marked 2 v2.6.13 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804612.jpg" />
 </div>
 
 
@@ -279,7 +331,7 @@ DxO PhotoLab 5 ELITE Edition 5.0.0 CR2 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804553.jpg" />
 </div>
 
 
@@ -306,7 +358,7 @@ Skip Tunes 3.3.1 [En/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804369.jpg" />
 </div>
 
 
@@ -335,7 +387,7 @@ MediaHuman YouTube Downloader 3.9.8.19 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804311.jpg" />
 </div>
 
 
@@ -364,7 +416,7 @@ Downie 4.0.11 (Build 4105) [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804279.jpg" />
 </div>
 
 
@@ -392,7 +444,7 @@ SQLPro for MSSQL 1.0.44 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804195.jpg" />
 </div>
 
 
@@ -421,7 +473,7 @@ iTaskX3 3.0.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803959.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ Playr 2.1.4 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803842.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ Charles Web Debugging Proxy 3.11.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803839.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ SmartBackup 4.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803463.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ App Uninstaller 4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803360.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ iBoysoft Drive Manager -For External/Network Drive 2.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803132.jpg" />
 </div>
 
 
@@ -591,7 +643,7 @@ Movavi Picverse 1.4.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802865.jpg" />
 </div>
 
 
@@ -617,7 +669,7 @@ JetBrains AppCode 2017.1 Build #OC-171.3890.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802839.jpg" />
 </div>
 
 
@@ -643,7 +695,7 @@ Turnover 1.62 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802757.jpg" />
 </div>
 
 
@@ -654,59 +706,6 @@ Turnover 1.62 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FD8BD3C5D10EDBEC10D0A266967E41FF89116FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384372   (802308) от 20.05.2020
-
-V-Ray 3.70.05 [En]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802308.jpg" />
-</div>
-
-
-###  Подробнее
-
-V-Ray для Cinema 4D является профессиональным решением для рендеринга пользователей Cinema 4D. Если Вы хотите сделать самое реалистичное статичное изображение или движение, то работа с этим инструментом моделирования ускорит ваш процесс.
-V-Ray для Cinema 4D является отраслевым стандартом и используется многими крупными студиями во всём мире. Он легко интегрируется (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: ChaosGroupПоддерживаемая ОС: Mac OS X 10.11.3Язык интерфейса: Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1CFC42AE01DA1FCCFD24D6C87E669B0A47D9006
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010627   (802162) от 25.04.2016
-
-Due — Reminders, Countdown Timers 1.4.2 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда появляются проблемы с мотивацией и не хочется заниматься рутиной, здорово помогает один простой прием: устанавливать дедлайны для всех задач. Приходит время - и уже волей-неволей принимаешься за работу. С этой задачей легко справится программа Due. Фактически это очень минималистичная напоминалка для OS X и iOS. Не планировщик, не GTD-клиент, а простой список (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 12 апреля 2016Разработчик: Due Pte. Ltd.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F31D6165928E7E3D51C20B7EE34249868D4D4DA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

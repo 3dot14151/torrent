@@ -1,3 +1,55 @@
+###  Публикация: 927313   (524705) от 13.08.2015
+
+Adobe InDesign CC 2015 (v11.1.0) x86-x64 RUS/ENG Update 2
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524705.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe InDesign CC 2015 - профессиональный продукт для проектирования дизайна любых печатных или Интернет изданий. Adobe InDesign CC 2015 обладает всеми прогрессивными возможностями и инструментами машинной верстки, с помощью которых можно быстро и эффективно разрабатывать дизайн страниц любой сложности. Программа поддерживает импорт рисунков и текста из самых разнообразных (   Читать дальше...   )Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEB784D138F33139A971BC61B9CBF374BD084127
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927345   (524693) от 13.08.2015
+
+Office Tab Enterprise 10.50 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Office Tab Enterprise новая версия небольшой, но очень полезной утилиты. Принцип работы Office Tab относительно прост, но от этого не менее эффективен – окна открытых документов отображаются в интерфейсе офисных приложений, как вкладки открытых страниц в современных браузерах. Утилита Office Tab устраняет один из немногих недостатков пакета Microsoft Office – отсутствие (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2148D0D2A28E78D2EC64364F3174A4088D569F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1240348   (524248) от 12.08.2018
 
 США планируют создать альтернативу GPS
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_524248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_524248.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524216.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524089.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ W10 Digital Activation 1.4.6 by Ratiborus [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524087.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Battlefield Hardline (2015) [Ru] (1.07.15.00) Repack xatab [Digital Deluxe Editi
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523770.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523766.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_523762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_523762.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ ABBYY Lingvo Dictionaries 4.2.3 [Ru/Multi] - Оффлайн словарь
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523760.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523614.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ CleanMyMac X 4.4.3.1 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523441.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ HDD Low Level Format Tool 4.40 RePack (& Portable) by TryRooM [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523429.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523312.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_523195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_523195.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ DriverPack Solution Online 16.5.0 Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522998.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ Metal Gear Solid V: Ground Zeroes (2014) [Ru/Multi] (1.005) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522988.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ Heroes of Might & Magic III / Меч и Магия. Герои III. Возрож
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522986.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ The Elder Scrolls V: Skyrim (2016) [Ru/Multi] (1.5.80.0.8) Repack R.G. Catalyst 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522683.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522617.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_522412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_522412.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ WebForMySelf | Фреймворк CakePHP: с Нуля до Гуру (2015) PCRe
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522224.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ Microsoft Office 2013 SP1 Standard 15.0.4745.1000 (x86) RePack by KpoJIuK [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522218.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ Microsoft Office 2016 v15.13.1 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522217.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522210.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ Debian GNU/Linux 10.0 + nonfree Buster [amd64] 4xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521973.jpg" />
 </div>
 
 
@@ -624,58 +676,6 @@ Debian GNU/Linux 10.0 + nonfree Buster [amd64] 4xDVD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5FEB5211830F781B34640FA03E2647B61C4EA01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313883   (521955) от 11.07.2019
-
-Total War: THREE KINGDOMS (2019) [Ru/En] (1.1.0/dlc) License CODEX
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Total War: THREE KINGDOMS — эта игра из популярнейшей стратегической серии посвящена легендарному военному конфликту в древнем Китае. Вас ждет эпоха легендарных героев и традиционное для Total War сочетание эпических сражений в реальном времени и глубоко проработанной пошаговой кампании.Тип издания: LicenseРазработчик: CREATIVE ASSEMBLY, Feral Interactive (Mac), Feral Interactive (Linux)Жанр: Strategy (RTS, TBS), 3DЯзык озвучки: Русский (отдельно), АнглийскийЯзык субтитров: Русский (отдельно), АнглийскийЯзык интерфейса: Русский (отдельно), Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6E8F92C265AAA67E900BBAEEBFD15DA86E7E5EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313876   (521947) от 11.07.2019
-
-Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.11727.20244 (2019.07) RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Office 2019 — новый офисный пакет от корпорации Microsoft, который включает в себя не только передовые функции, которые помогают пользователям работать максимально продуктивно, но и эффективные решения для управления, а также более более комплексный подход к безопасности. По традиции в его состав входят такие приложения как Word, Excel, Outlook, PowerPoint, SharePoint (   Читать дальше...   )Язык интерфейса: русский, английский, украинский + языковые пакеты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C4DE2886A2E61B062D2869134FA66F256FBCE1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

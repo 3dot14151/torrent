@@ -1,3 +1,55 @@
+###  Публикация: 1577370   (356878) от 18.09.2022
+
+Сад Робинсона / Robinson no niwa / Robinson's Garden (1987) BDRip [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Устав от рутинной жизни, Кумико увольняется с работы. Однажды она забредает на заброшенную стройку и решает превратить ее в свой райский островок. Словно Робинзон Крузо, она засеивает огороды и сажает клумбы. Но хватит ли у нее сил и терпения?Производство: ЯпонияЖанр: драмаРежиссер: Масаси ЯмамотоАктеры: Кумико Охта, Ко Матида, Туко Уэно, Тибо, Ото, Мицува Сакамото, Марино Тику, Рёдзи Номура, Идзаба, Сакэви ЁкоямаПеревод: АвторскийЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:00:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24E8033AE78D9A6B83D63D894A49F069E02113E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417592   (355734) от 21.10.2020
+
+Бабье царство / Onna no za / A Woman's Place (1962) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355734.jpg" />
+</div>
+
+
+###  Подробнее
+
+В доме Исикава нет сильной мужской руки: отец состарился, старший его сын умер, средний сын занят своим семейством, внук ещё учится в школе. Зато в доме много женщин: невестка-вдова и пять дочерей. Старшие уже замужем, но трем младшим надо найти хороших мужей. Дом не бедный, но как обеспечить всех дочерей приданым, и кто будет заботиться о родителях, когда все они (   Читать дальше...   )Производство: Япония, Toho CompanyЖанр: ДрамаРежиссер: Микио НарусэАктеры: Хидэко Такаминэ, Ёко Цукаса, Юрико Хоси, Рэйко Дан, Кэйко Авадзи, Мицуко Кусабуэ, Харуко Сугимура, Акэми Кита, Яцуко Танами, Аико МимасуПеревод: Многоголосый любительский (STEPonee)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:51:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85C33C630BD2BD23577DD6C5C0268E7DF5C2EFB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1577657   (354655) от 19.09.2022
 
 Такешиз / Takeshis (2005) BDRip [H.264]
@@ -6,7 +58,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354655.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353111.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353103.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352050.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351435.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351016.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350069.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347601.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346795.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346347.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346138.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346004.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344946.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344126.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344114.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343849.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343247.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342240.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342101.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340808.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339762.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339255.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339110.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338573.jpg" />
 </div>
 
 
@@ -618,58 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47AB7FD0313E133663BB7116DE65B9156073916C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258547   (335974) от 30.10.2018
-
-Планета зверей / Dong wu shi jie (2018) WEB-DLRip [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает историю человека, который очень сильно увяз в долгах, в следствии чего, у него попросту не оставалось иного выбора, как принять участие в таинственных играх «Число судьбы», что стало для него весьма отчаянным шагом, ведь ставкой в играх является собственная жизнь.Производство: Китай / Beijing Ruyi Xinxin Film Investment, Enlight PicturesЖанр: Драма, приключения, триллер, фантастикаРежиссер: Хань ЯньАктеры: Ли Ифэн, Чжоу Дунъюй, Майкл Дуглас, Кевин Ли, Эрик Хейз, Альберто Ланселлотти ...Перевод: Многоголосый закадровый, профессиональный (HDrezka Studio)Субтитры: ОтсутствуютПродолжительность: 02:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:619E1D4629D1E0E2E6E37AF3E710C5D4ABCA4A3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258500   (335877) от 30.10.2018
-
-Блич / Bleach (2018) WEBRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старшеклассник Итиго Куросаки с детства был способен видеть призраков. Однажды встряв в схватку с призрачным пожирателем душ, схватившем его сестрёнку, парень получает силы ангела смерти по имени Рукия. Но, перестаравшись, она случайно передала Итиго всю свою силу и теперь вынуждена притворяться обычной школьницей и жить в шкафу у своего нового знакомого. А Итиго (   Читать дальше...   )Производство: Япония / Cine BazarЖанр: Боевик, фантастика, фэнтезиРежиссер: Синсуке СатоАктеры: Сота Фукуси, Хана Сугисаки, Мияви, Эрина Мано, Масами Нагасава, Ёсукэ Эгути, Рё Ёсидзава, Таити Саотомэ, Ю Коянаги, Сэйити ТанабэПеревод: Дублированный (Flarrow Films)Субтитры: ОтсутствуютПродолжительность: 01:48:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE0CC4A16A3DD50D4F0F02B30BF79B4730022861
 ```
 
 https://mybot314.ru/tekegram_catalog/

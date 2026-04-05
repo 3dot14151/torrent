@@ -1,134 +1,3 @@
-###  Публикация: 1683634   (128406) от 11.12.2023
-
-К.Н. Мезенцев | Автоматизированные информационные системы (2012) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены вопросы анализа и синтеза информационных систем с точки зрения системного подхода. Приведены сведения о промышленных методологиях проектирования информационных систем IDEFO, IDEF1X, IDEF3. Особое внимание уделено описанию объектной методологии проектирования информационных систем, реализованной на базе универсального языка моделирования UML. Рассмотрены (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: АкадемияФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:378C6B44D98819FEF2DC60D969B82CE5EB3A1730
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683462   (128402) от 11.12.2023
-
-М.А. Крупская | Информационное обеспечение систем управления. Лабораторный практикум (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приведены описание и порядок выполнения шести лабораторных работ по второй части курса «Информационное обеспечение систем управления». В каждой лабораторной работе сформулирована цель, изложены краткие теоретические сведения, сопровождаемые примерами и пояснениями, разработаны задания для самостоятельного выполнения и контрольные вопросы.Жанр: Компьютерная литератураИздательство: БГУИРФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86F5F22A2695B3B8A19A9ED655B83685FC91C7AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683491   (128398) от 11.12.2023
-
-И.А. Ледовских и др. | Информационные системы как средство поиска и хранения данных (2017) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128398.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебно-методическое пособие включает в себя материал, позволяющий полу­чить представление о работе в СУБД MS Access 2010. В пособии даны основные поня­тия баз данных. Рассмотрены свойства и характеристики интерфейса и инструментов СУБД MS Access 2010.
-Пособие предназначено для бакалавров направлений подготовки «Прикладная математика и информатика», «Педагогическое (   Читать дальше...   )Жанр: Компьютерная литература, математикаИздательство: ТОГУФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E64D823CE9560D2E8BA15CC45ED6531B939354C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683472   (128388) от 11.12.2023
-
-С.Г. Кузин | Логические основы автоматической обработки данных (2005) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128388.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебное пособие вынесены вопросы, которые в методической литературе для информатиков и прикладных математиков либо не освещаются совсем, либо освещаются поверхностно. Учитывается также преимущественная ориентация читателей на эксплуатацию технических средств вычислительной техники, но не на их разработку. Поэтому объяснение устройства различных блоков компьютера (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ННГУФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D373EBC745A1D9707A4CB5BDD808B25C3AE7DFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683588   (128370) от 11.12.2023
-
-Н.В. Лысенко | Информационные гетерогенные системы (2007) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128370.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассматриваются вопросы построения гетерогенных многосвязных систем информационного характера. Излагаются основы теории анализа, синтеза и оценки эффективности такого рода систем, анализируются процессы генерирования, передачи,восприятия информации, приводятся результаты исследований автора в области восприятия визуальной информации и принятия решений, предлагаются (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ЭлморФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33C0B814F23AB61CF6E94D974B3D8AD97A0C0B75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683830   (128266) от 12.12.2023
 
 Н.Г. Полетаева | Основы построения распределенных информационных систем (2016) [PDF]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128266.jpg" />
 </div>
 
 
@@ -163,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128250.jpg" />
 </div>
 
 
@@ -191,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128237.jpg" />
 </div>
 
 
@@ -217,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128235.jpg" />
 </div>
 
 
@@ -243,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128158.jpg" />
 </div>
 
 
@@ -269,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128153.jpg" />
 </div>
 
 
@@ -295,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128141.jpg" />
 </div>
 
 
@@ -321,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128019.jpg" />
 </div>
 
 
@@ -348,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127985.jpg" />
 </div>
 
 
@@ -376,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127869.jpg" />
 </div>
 
 
@@ -402,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127861.jpg" />
 </div>
 
 
@@ -429,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127853.jpg" />
 </div>
 
 
@@ -455,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127648.jpg" />
 </div>
 
 
@@ -481,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127295.jpg" />
 </div>
 
 
@@ -508,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127276.jpg" />
 </div>
 
 
@@ -534,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127132.jpg" />
 </div>
 
 
@@ -560,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127114.jpg" />
 </div>
 
 
@@ -586,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127110.jpg" />
 </div>
 
 
@@ -612,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127107.jpg" />
 </div>
 
 
@@ -638,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127094.jpg" />
 </div>
 
 
@@ -664,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127092.jpg" />
 </div>
 
 
@@ -675,6 +544,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CD454A240919E13C812F5E05EE0C96E2354AC65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532729   (127009) от 20.12.2023
+
+Книжная серия | «Скандинавские боги» [12 книг] (2018-2023) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия "Скандинавские боги" для тех, кто увлекается скандинавской мифологией. Вы познакомитесь со множеством удивительных сказочных героев из северных стран - водяные, заколдованные девы Хюльдры, злые ведьмы и бессмертные, величественные драконы, отважные принцы, зачарованные принцессы, очаровательные тролли, лесные колдуньи. В серии собраны наиболее известные (   Читать дальше...   )Жанр: Мифы / легенды / эпосИздательство: АСТФормат: PDFКачество: Различное
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C20E4F38E240849C198941C7CADA27343BA8ACBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685989   (126940) от 20.12.2023
+
+С.Л. Беляков и др. | Основы разработки программ на языке С++ для систем информационной безопасности (2020) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126940.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изложены необходимые для освоения курса сведения — краткий конспект лекций, методические указания к выполнению лабораторных работ, индивидуального задания, а также образцы тестовых вопросов. Направление подготовки «Защита информации».Жанр: Компьютерная литератураИздательство: Южный ФУФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:037E3605A14B4EDD5D4096BCD0AD055D0126B43F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685805   (126935) от 20.12.2023
+
+М.К. Ефимчик, С.С. Шушкевич | Основы радиоэлектроники (1986) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126935.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник для студентов физических специальностей университетов, написан в соответствии с программой одноименного курса. Содержит последовательное изложение теоретических основ радиоэлектроники и описание комплекса лабораторных работ. Может быть использован как учебное пособие для студентов технических специальностей вузов.Жанр: ЭлектроникаИздательство: Издательство "Университетское" (Минск)Формат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53060310687C8CDB0CC3BF8442E13551146A09A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 168172   (126818) от 21.12.2023
+
+Георгий Вернадский | сборник книг [2000-2009] [FB2]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126818.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вернадский Георгий Владимирович (20.VIII.1888-12.VI.1973), выдающийся русский историк, сын известного ученого В.И. Вернадского (1863-1945). Ученик В.О. Ключевского, С.Ф. Платонова, Р.Ю. Виннера. Эмигрировал из России в 1920 году.
+
+Профессор Йельского университета, читал курсы лекций в Гарвардском, Колумбийском, Чикагском университетах. В США и Европе признан крупнейшим (   Читать дальше...   )Жанр: историяФормат: FB2Качество: изначально электронное (EPUB)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31A4307BFEE93A10CC8C18DED1854C153CC58370
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686180   (126790) от 21.12.2023
+
+И.А. Волкова и др. | Основы объектно-ориентированного программирования. Язык программирования С++ (2011) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126790.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии кратко рассматривается объектно-ориентированный подход к программированию на примере языка программирования C++.Жанр: Компьютерная литератураИздательство: Факультет ВМК МГУФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:186C2E61F9362850690F2DF08F5B1F05D4E05110
 ```
 
 https://mybot314.ru/tekegram_catalog/

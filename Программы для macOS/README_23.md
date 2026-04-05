@@ -1,3 +1,57 @@
+###  Публикация: 1365110   (932246) от 06.03.2020
+
+Alarm Clock Pro 12 v12.1.1 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приходилось ли вам слышать такое выражение как хронофаги? Так называют людей, которые ничего никогда не успевают. Как вы думаете, почему? Да потому что не умеют планировать свои дела! А ведь именно планирование является одним из залогов успеха во всех делах и гарантией того, что они будут исполнены в сро
+
+Alarm Clock Pro представляет собой многофункциональный будильник (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.03.2020Разработчик: Koingo Software, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:402870AB02C3810BCCF5EB4301DE1AAD7338F0D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365381   (930803) от 07.03.2020
+
+iCab - Internet Browser 5.9.2 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930803.jpg" />
+</div>
+
+
+###  Подробнее
+
+iCab - это альтернативный веб-браузер. Он поддерживает HTML4, фильтрацию изображений, фильтрацию файлов cookie, закладки, поддержку java и javascript, режимы поиска, импорт веб-архивов из Explorer, менеджер загрузок и множество полезных функций, которых нет в других браузерах.Тип издания: macOS SoftwareРелиз состоялся: 04.03.2020Разработчик: Alexander ClaussПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BC35C9A2B4FB649C5FE85B7633DB0DD43F4D5AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094380   (930751) от 17.01.2017
 
 Web2App - Turn any website into a desktop application 2.0 [En]
@@ -6,7 +60,7 @@ Web2App - Turn any website into a desktop application 2.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930751.jpg" />
 </div>
 
 
@@ -35,7 +89,7 @@ M3 Drive Mounter 2.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930732.jpg" />
 </div>
 
 
@@ -64,7 +118,7 @@ VideoGIF 2.0.8 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930718.jpg" />
 </div>
 
 
@@ -92,7 +146,7 @@ Mac FoneLab Android Data Recovery 3.1.6 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930568.jpg" />
 </div>
 
 
@@ -120,7 +174,7 @@ Photo Album Templates for Photoshop-Alungu Designs 2.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930468.jpg" />
 </div>
 
 
@@ -147,7 +201,7 @@ Instastack for Instagram 3.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929284.jpg" />
 </div>
 
 
@@ -176,7 +230,7 @@ Debit & Credit - Personal Finance Manager 2.1.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929199.jpg" />
 </div>
 
 
@@ -204,7 +258,7 @@ GG Audio Blue3 v2.3.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928938.jpg" />
 </div>
 
 
@@ -231,7 +285,7 @@ CleanMyDrive 2 v2.1.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928885.jpg" />
 </div>
 
 
@@ -257,7 +311,7 @@ Yummy FTP Watcher 2.2.13 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927790.jpg" />
 </div>
 
 
@@ -285,7 +339,7 @@ Elements for iWork - Template by Jumsoft 3.1.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927787.jpg" />
 </div>
 
 
@@ -311,7 +365,7 @@ Themes for Keynote - Templates by Jumsoft 5.1.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927780.jpg" />
 </div>
 
 
@@ -339,7 +393,7 @@ Yummy FTP Pro 1.11.14 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927654.jpg" />
 </div>
 
 
@@ -368,7 +422,7 @@ CCleaner Pro 1.12.339 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927593.jpg" />
 </div>
 
 
@@ -395,7 +449,7 @@ Boxshot Ultimate 4.9 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927546.jpg" />
 </div>
 
 
@@ -422,7 +476,7 @@ Marked 2 v2.5.39 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927484.jpg" />
 </div>
 
 
@@ -449,7 +503,7 @@ Versatil Markdown 2.1.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927249.jpg" />
 </div>
 
 
@@ -475,7 +529,7 @@ Playr 2.7  [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927227.jpg" />
 </div>
 
 
@@ -502,7 +556,7 @@ ArtRage 6 v6.1.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927125.jpg" />
 </div>
 
 
@@ -528,7 +582,7 @@ Adobe XD v42.0.22 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926670.jpg" />
 </div>
 
 
@@ -555,7 +609,7 @@ Adobe After Effects 2020 v18.4 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926537.jpg" />
 </div>
 
 
@@ -582,7 +636,7 @@ Adobe Premiere Pro 2021 v15.4 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926530.jpg" />
 </div>
 
 
@@ -608,7 +662,7 @@ PDFpenPro 7.3.4 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926016.jpg" />
 </div>
 
 
@@ -636,7 +690,7 @@ FileMaker Pro Advanced 15.0.3.305 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925998.jpg" />
 </div>
 
 
@@ -650,59 +704,6 @@ FileMaker Pro — это мощное и удобное программное �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CB4640697FA42010E1901EA3D6367B4FCE29693
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095220   (925967) от 20.01.2017
-
-FileMaker Server 15.0.3.308 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Надежный и производительный доступ к данным
-FileMaker Server — это быстрое и надежное серверное ПО для безопасного предоставления данных группам пользователей FileMaker Pro, FileMaker Go и FileMaker WebDirect. Оно отличается надежностью и круглосуточной доступностью, позволяет с легкостью удаленно управлять приложениями, а функции автоматизации экономят время на (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: январь 2017Разработчик: FileMaker, Inc.Поддерживаемая ОС: OS X 10.10+Язык интерфейса: Английский, Французский и др
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33A37F719113702484539EA02BAB8C6B564454E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987479   (925910) от 17.02.2016
-
-WhatSize 6.4.3 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925910.jpg" />
-</div>
-
-
-###  Подробнее
-
-WhatSize - небольшое приложение выводит на экран структуру любого диска или каталога в удобном для вас формате - графическом, табличном, в виде списка, - с информацией о размере, а также количестве файлов и вложенных папок. Вы можете воспользоваться как существующим "деревом каталогов" для поиска необходимых папок, так и просто перетянуть любой нужный каталог (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 07 декабря 2015Разработчик: id-design, inc.Поддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский, Немецкий, Французский и Итальянский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:080E04FB8CFDC90375CB5E12CD127E654382E6D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

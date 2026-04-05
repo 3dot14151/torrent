@@ -1,3 +1,32 @@
+###  Публикация: 1579232   (336305) от 27.09.2022
+
+Darko US - Oni (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Begin [00:01:07]
+02. Looking Glass [00:02:41]
+03. Hyper Kill (feat. Ryo Kinoshita) [00:03:23]
+04. Dragon Chaser [00:03:59](   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:44:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4233C7C5D7D8B0AFDF743C4AA53A52DD4923207
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579211   (336302) от 27.09.2022
 
 Carceri - From Source to End (2022) [FLAC|Lossless|WEB-DL|tracks] <Technical Death Metal>
@@ -6,7 +35,7 @@ Carceri - From Source to End (2022) [FLAC|Lossless|WEB-DL|tracks] <Technical Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336302.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Unison Theory - Arctos (2016) [MP3|320 Kbps] <Technical Death, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336237.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ RavenHeart - Valley Of The Damned (2008) [APE|Lossless|image + .cue] <Melodic Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336236.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Septagon - Deadhead Syndicate (2016) [FLAC|Lossless|image + .cue] <Speed Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336227.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336178.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Asylum Pyre - Spirited Away (2015) [FLAC|Lossless|image + .cue] <Power Metal, Pr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336130.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Hollywood Monsters - Big Trouble (2014) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336104.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Graham Bonnet Band - The Book (2016) Russian Edition [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336033.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Mountain - Super Hits (1998) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336032.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Bahroma - Внутри (2014) [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336027.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Dark Tranquillity - Atoma (2016) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336019.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Bad Suns - Language & Perspective (2014) [FLAC|Lossless|tracks] <Alternative Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335933.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Bahroma - Плюс Минус Равно (2016) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335924.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Odd Palace - One Step Closer (2020) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335898.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335838.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335832.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ David Bowie - Legacy (2016) Compilation, Deluxe Edition [FLAC|Lossless|WEB-DL|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335828.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ Dark Quarterer - Pompei (2020) [MP3|320 Kbps] <Epic Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335820.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335744.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ R.E.M. - Out Of Time (25th Anniversary Edition) (2016) [FLAC|Lossless|WEB-DL|tra
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335663.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ Puscifer - Existential Reckoning (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335617.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Tyler Bryant & The Shakedown - Tyler Bryant & The Shakedown (2017) [MP3|320 Kbps
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335596.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ David Cross and Robert Fripp - Starless Starlight (2015) [FLAC|Lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335593.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ Iconic Eye - Into The Light (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335583.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ Graveyard - Innocence & Decadence (2015) Limited Edition [MP3|320 кб/с]<Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335499.jpg" />
 </div>
 
 
@@ -715,35 +744,6 @@ Graveyard - Innocence & Decadence (2015) Limited Edition [MP3|320 кб/с]<Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2D4DAFBF077AE0A6D1B16213F413A7EE288FB72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955201   (335413) от 10.11.2015
-
-Arx Atrata  - Oblivion (2013) [FLAC|image+.cue]<Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winter
-02. The Hour
-03. Through Dying Lands
-04. The Broken Man(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:49:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6FE0A622A00477C8831DE5BA122175FE5BD4514
 ```
 
 https://mybot314.ru/tekegram_catalog/

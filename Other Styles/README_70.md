@@ -1,3 +1,61 @@
+###  Публикация: 1028971   (684545) от 25.06.2016
+
+Martin Iveson - Fighting Force 2 (1999) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рип сделан на основе образа игры, музыка была извлечена из самого образа игры01. Main Menu
+02. Stage 1
+03. Stage 2
+04. Stage 3(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:37:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B458B4B9455B67E35C5BE408305802B441C49C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289713   (684333) от 17.03.2019
+
+Lab Report ‎ - Terminal (Original Soundtrack) (1995) [FLAC|Lossless|image + .cue] <Industrial, Experimental>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684333.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Information 5:42
+2. Becoming Aware 4:53
+3. The Act 8:57
+4. Contemplation 4:27(   Читать дальше...   )Жанр: Industrial, ExperimentalПродолжительность: 00:58:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57D910D00F668A58A6169F645DB4FE06F6B30EAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 507361   (683953) от 08.06.2012
 
 Lynn Wright - Total Meditation (2011) [MP3|320 кб/с]<Meditative>
@@ -6,7 +64,7 @@ Lynn Wright - Total Meditation (2011) [MP3|320 кб/с]<Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683953.jpg" />
 </div>
 
 
@@ -39,7 +97,7 @@ Keiko Matsui - Hidamari No Ki (2000) [FLAC|Lossless]<Score, Smooth Jazz>
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_683153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_683153.jpg" />
 </div>
 
 
@@ -74,7 +132,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682990.jpg" />
 </div>
 
 
@@ -109,7 +167,7 @@ Daniel Pemberton - The Counselor / Советник (Original Motion Picture Sou
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682911.jpg" />
 </div>
 
 
@@ -138,7 +196,7 @@ Manolo Fernandez - Celtic Music Dream (2017) [MP3|320 Kbps] <New Age, Celtic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682897.jpg" />
 </div>
 
 
@@ -167,7 +225,7 @@ Heidi Breyer - Moonlight in Empty Rooms (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682874.jpg" />
 </div>
 
 
@@ -196,7 +254,7 @@ Alan Silvestri - Мстители: Война бесконечности / Aveng
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682610.jpg" />
 </div>
 
 
@@ -228,7 +286,7 @@ Alan Silvestri - Мстители: Война бесконечности / Aveng
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682596.jpg" />
 </div>
 
 
@@ -257,7 +315,7 @@ Theodore Shapiro and Ludwig Goransson - Central Intelligence / Полтора ш
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682464.jpg" />
 </div>
 
 
@@ -286,7 +344,7 @@ Rupert Gregson-Williams - The Legend of Tarzan / Тарзан. Легенда (O
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682461.jpg" />
 </div>
 
 
@@ -315,7 +373,7 @@ Rupert Gregson-Williams - The Legend of Tarzan / Тарзан. Легенда (O
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682343.jpg" />
 </div>
 
 
@@ -344,7 +402,7 @@ Johnny Cash - Les Genies du Rock -  I Walk The Line (1993) [MP3|320 кб/с] <Co
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682204.jpg" />
 </div>
 
 
@@ -373,7 +431,7 @@ Alex Vanderberg (Van Der Berg)  Orquestra - Music To Make Love (1991) [MP3|160 �
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682194.jpg" />
 </div>
 
 
@@ -402,7 +460,7 @@ James Last - Jahrhundert Melodien (1982) [FLAC|Lossless|image + .cue] <Pop, Easy
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681977.jpg" />
 </div>
 
 
@@ -431,7 +489,7 @@ VSOP Vienna Symphonic Orchestra Project - The 5th (Die Wiener Symphoniker Spiele
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681974.jpg" />
 </div>
 
 
@@ -460,7 +518,7 @@ Jennifer Nettles (Дженнифер Неттлз) - To Celebrate Christmas (201
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680939.jpg" />
 </div>
 
 
@@ -489,7 +547,7 @@ Jennifer Nettles (Дженнифер Неттлз) - That Girl (2014) Mercury Na
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680936.jpg" />
 </div>
 
 
@@ -518,7 +576,7 @@ VA - Viva Latina 2018 (2018) 2CD [MP3|320 Kbps] <Latin, Pop>
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680798.jpg" />
 </div>
 
 
@@ -550,7 +608,7 @@ VA - Народные Золотые Хиты (2002) 2CD [FLAC|Lossless|tracks +
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680665.jpg" />
 </div>
 
 
@@ -580,7 +638,7 @@ Silvia Nakkach - Musical Massage: Inside (2007) [FLAC|Lossless|image + .cue] <Ne
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680339.jpg" />
 </div>
 
 
@@ -609,7 +667,7 @@ Shastro - Lovers Night (2014) [FLAC|Lossless|tracks] <New Age, Meditative, Relax
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680258.jpg" />
 </div>
 
 
@@ -638,7 +696,7 @@ Theodore Shapiro and Ludwig Goransson - Central Intelligence / Полтора ш
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680249.jpg" />
 </div>
 
 
@@ -667,7 +725,7 @@ Yiruma - Frame (2017) Mind Tailor Music [FLAC|Lossless|WEB-DL|tracks] <New Age, 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680232.jpg" />
 </div>
 
 
@@ -696,7 +754,7 @@ Anaya Music - Aonki: Gateway of Love (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679263.jpg" />
 </div>
 
 
@@ -710,64 +768,6 @@ Anaya Music - Aonki: Gateway of Love (2018) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02D0CC38211E4CDE929DA6E3C3CD8108E05BC056
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135883   (679131) от 20.05.2017
-
-VA - Kamasutra Essential Music (2013) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indian Dawn - Predictions (05:22)
-02. Street Line - Chill Sensation (04:12)
-03. Isla Deejay - Into Your Mind (05:21)
-04. Deep blue - Velvet Secrets (04:21)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:36:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62FC3C1AF312823D45A8064BDBBEDB4F50122985
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290540   (678213) от 20.03.2019
-
-VA - Green Book (Original Motion Picture Soundtrack) (2018) [FLAC|Lossless|tracks + .cue] <Soundtrack, Blues, Classical>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Green Book Copacabana Orchestra - That Old Black Magic (2:14)
-02. Kris Bowers - 881 7th Ave (0:48)
-03. The Blue Jays - So Long Lovers Island (2:22)
-04. Kris Bowers - Dr. Shirley's Luggage (0:34)(   Читать дальше...   )Жанр: Soundtrack, Blues, ClassicalПродолжительность: 00:57:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06BD949CF6FFAAC23D34C4E734EE40F4B06A49E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

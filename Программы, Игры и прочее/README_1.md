@@ -1,3 +1,107 @@
+###  Публикация: 1858065   (1060218) от 08.03.2026
+
+FacePic - AI Face App v3.6.3 Pro Mod by Mixroot [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060218.jpg" />
+</div>
+
+
+###  Подробнее
+
+FacePic — приложение AI Face, приложение для легкого редактирования лиц с помощью ИИ, которое позволит вам вывести свои селфи на новый уровень. Благодаря широкому выбору фильтров для лица, эффектов Facetune и замены лиц вы будете поражены тем, как быстро вы сможете добиться фотореалистичных результатов. Попрощайтесь с обычными фотографиями — хотите ли вы изменить (   Читать дальше...   )Тип издания: ProРелиз состоялся: 06.03.2026Разработчик: Photo Collage & Grid - Foto GridПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:378CCDBA60C93F944596278D5E175F13A120B434
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858111   (1060217) от 08.03.2026
+
+Rock Identifier - Stone ID v2.4.3 Mod by youarefinished [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Просто сделайте или загрузите фото камня, и Rock Identifier расскажет все за считанные секунды. Исследуйте свое геологическое окружение, узнавайте о различных породах и знакомьтесь с миром природы с помощью Rock Identifier!Тип издания: PremiumРелиз состоялся: 08.03.2026Разработчик: Next Vision LimitedПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C370FC38444E1302FBCFBE6B35B4A6C6B2EAFC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858110   (1060216) от 08.03.2026
+
+PictureThis - Plant Identification v5.21.0 Mod by youarefinished [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Распознавайте растения мгновенно. Быстро, точно и содержательно! Помимо описания растений и советов по уходу, наслаждайтесь красивыми фото растений со всего мира. PictureThis помогает более 70 млн пользователей определять, изучать и наслаждаться всеми видами растений: цветами, деревьями, суккулентами, кактусами и другими!Тип издания: GoldРелиз состоялся: 08.03.2026Разработчик: Glority LLCПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC0D0A812B992BE298E02A1B5C06C88B6678233E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858067   (1060171) от 08.03.2026
+
+File Manager Plus / Файловый менеджер + v3.7.0 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Файловый менеджер + - это простой и мощный Проводник для Android устройств, бесплатный, быстрый и полнофункциональный. Благодаря простому пользовательскому интерфейсу, он чрезвычайно удобен в использовании. С помощью Файловый менеджер + вы можете легко управлять файлами и папками устройства, NAS (сетевыми устройствами хранения данных) и облачными сервисами - такими (   Читать дальше...   )Тип издания: Premium / ExtraModРелиз состоялся: 07.03.2026Разработчик: File Manager PlusПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F8A1C50E4EA77800B5E489954732D68B27C2C7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1858068   (1060170) от 08.03.2026
 
 Эфир ТВ + : Телевизор Онлайн v4.3.4 Mod by vadj [Ru]
@@ -6,7 +110,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060170.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060169.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ YANGO MAPS v28.0.1 [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060128.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ Universal TV Remote / Универсальный ТВ пульт v3.0.6 Mod by N
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060126.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060125.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ Smart AudioBook Player Pro v11.6.7 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060090.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060053.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ Grok - ИИ ассистент v1.1.38-release.00 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060052.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ TapScanner v3.0.98 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060051.jpg" />
 </div>
 
 
@@ -245,7 +349,7 @@ Opera Proxy для Android 3.0.10 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060050.jpg" />
 </div>
 
 
@@ -271,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060035.jpg" />
 </div>
 
 
@@ -299,7 +403,7 @@ WiFi Analyzer Pro (ex. WiFi network Analyzer) v7.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060034.jpg" />
 </div>
 
 
@@ -325,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1059946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1059946.jpg" />
 </div>
 
 
@@ -351,7 +455,7 @@ Utiful: Перемести+Сортируй Фото v9.1.0 Mod by HeroMods [Ru/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1059937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1059937.jpg" />
 </div>
 
 
@@ -378,7 +482,7 @@ Navitel / Официальные карты релиза Q4 2025 v9 (9.13...) [R
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059927.jpg" />
 </div>
 
 
@@ -407,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059926.jpg" />
 </div>
 
 
@@ -433,7 +537,7 @@ Battery Guru: Monitor & Health v2.4.6.2 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059921.jpg" />
 </div>
 
 
@@ -459,7 +563,7 @@ Out of Season v0.9.15 Mod by kuchkan [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059918.jpg" />
 </div>
 
 
@@ -485,7 +589,7 @@ MultiTimer: МультиТаймер v1.11 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059916.jpg" />
 </div>
 
 
@@ -511,7 +615,7 @@ eWeather HD - weather app v9.3.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059915.jpg" />
 </div>
 
 
@@ -537,7 +641,7 @@ FreeZona v3.0.46 Mod by vadj [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059914.jpg" />
 </div>
 
 
@@ -563,7 +667,7 @@ Mirror Lab v2.7.1 Mod by Alex.Strannik [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059826.jpg" />
 </div>
 
 
@@ -575,110 +679,6 @@ Mirror Lab стремится быть самым веселым, простым
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7ADE719F4459B766DB901EA7899557E5B73DCB0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857403   (1059762) от 05.03.2026
-
-CCleaner Pro: ПО для очистки 26.03.0 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059762.jpg" />
-</div>
-
-
-###  Подробнее
-
-CCleaner - один из самых известных и популярных инструментов для очистки пространства мобильного устройства. С его помощью можно удалять ненужные файлы, освобождать место, анализировать состояние системы и с высокой степенью безопасности находиться в интернете, а так же многие другое. С данной программой пользователи получат практически полный контроль над гаджетом (   Читать дальше...   )Тип издания: ProРелиз состоялся: 13.02.2026Разработчик: PiriformПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BDC04D538836753E43BB890BEF923E6D3145518
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857398   (1059761) от 05.03.2026
-
-AIDA64 2.17 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Информационно-диагностическая утилита для устройств на базе Android. Основываясь на обширных знаниях аппаратной части в AIDA64 для Windows, AIDA64 для Android способна показывать различные диагностические сведения для телефонов, планшетов, умных часов и телевизоров.Тип издания: PremiumРелиз состоялся: 19.01.2026Разработчик: FinalWire LtdПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA100C6B595E6E263EAD5AA9D268D8F851A9FB61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857576   (1059633) от 06.03.2026
-
-Exo Player - Видеоплеер и IPTV v3.2.0 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшой видеопроигрыватель с поддержкой 4K и 8К и расширенными возможностями. Позволяет транслировать видео через Google Cast, устанавливать в качестве статуса WhatsApp да воспроизводить оное в плавающем окне. 📱Приложение работает безупречно, что позволяет смотреть видео без задержек и перерывов. Он также оптимизирован для использования аккумулятора, поэтому (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 05.03.2026Разработчик: I N F I N I T YПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D95846F7ED4FAF86589AEF402B3EAAF35E5BB651
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857395   (1059608) от 05.03.2026
-
-Textra SMS v4.84 Pro Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059608.jpg" />
-</div>
-
-
-###  Подробнее
-
-Надоел внешний вид стандартных "SMS"? Хочется чего-то новенького, и интересного? Попробуйте Textra! Приложение для SMS и MMS с большим количеством "фишек". Вы можете выразить свои эмоции собеседнику при помощи более, чем 800 смайликов. Новые всплывающие уведомления. Возможность отсылки SMS группе контактов. Присутствует и кастомизация. Можно поменять (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 02.02.2026Разработчик: DeliciousПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB042EEE1A67EE2E5771ADB7A9E06C931B7487F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,85 @@
+###  Публикация: 1615920   (202076) от 28.02.2023
+
+Resistor 2.1.1.6 [Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202076.jpg" />
+</div>
+
+
+###  Подробнее
+
+Resistor - калькулятор цветовой маркировки резисторов, который поможет расшифровать по цветным кольцам на резисторе его номинал и допустимое отклонение сопротивления от его номинального значения.
+Цветную маркировку на резисторах следует читать слева направо. Как правило, первое кольцо расположено ближе к одному из выводов или шире чем остальные.
+С помощью данной (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF7DA71A88E00EAA8E028BE4813CD092A52ED666
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625485   (200018) от 10.04.2023
+
+OriginPro 2022 v.9.9.0.225 (SR1) [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200018.jpg" />
+</div>
+
+
+###  Подробнее
+
+OriginPro - пакет программ фирмы OriginLab Corporation для численного анализа данных и научной графики, работающий на компьютере под управлением операционной системы Microsoft Windows.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:636A383379DC1C5E54193AA8200B4C1056E7B4C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634659   (198081) от 21.05.2023
+
+BlueStacks Tweaker 6.9.2 beta Portable [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение для "BlueStacks App Player".
+
+BlueStacksTweaker поможет: получить root права, убрать рекомендованные приложения, изменить модель устройства, страну, разрешение экрана, плотность DPI, оперативную и постоянную память, получить премиум бесплатно, пользоваться без авторизации в Google и многое другое.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63AF93BFD72FC3877D5978F6B6BBDF385DB02D4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1655721   (193700) от 27.08.2023
 
 Koplayer 2.0.0 [Multi]
@@ -6,7 +88,7 @@ Koplayer 2.0.0 [Multi]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193700.jpg" />
 </div>
 
 
@@ -32,7 +114,7 @@ OrcaSlicer 2.3.1 + Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193355.jpg" />
 </div>
 
 
@@ -59,7 +141,7 @@ VirtualBox 7.2.4 Build 170995 + Extension Pack [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188097.jpg" />
 </div>
 
 
@@ -85,7 +167,7 @@ Materialise Magics 27.0 [Multi]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_181072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_181072.jpg" />
 </div>
 
 
@@ -111,7 +193,7 @@ WimBuilder2 Full x86-x64 v2022.02.02 Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179569.jpg" />
 </div>
 
 
@@ -137,7 +219,7 @@ App Builder 2023.61 (x64) [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177346.jpg" />
 </div>
 
 
@@ -163,7 +245,7 @@ App Builder 2023.61 (x64) Portable by FC Portables [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176552.jpg" />
 </div>
 
 
@@ -189,7 +271,7 @@ MapleSoft MapleSim 2020.1 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174291.jpg" />
 </div>
 
 
@@ -215,7 +297,7 @@ WinToHDD 6.2 Technician Portable by FC Portables [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171150.jpg" />
 </div>
 
 
@@ -241,7 +323,7 @@ Oracle 10g Enterprise Edition 10.2.0 [Английский]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168032.jpg" />
 </div>
 
 
@@ -267,7 +349,7 @@ Wolfram SystemModeler 13.0.0 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163313.jpg" />
 </div>
 
 
@@ -293,7 +375,7 @@ InstallShield 2019 R3 Premier Edition 25.0.764.0 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154895.jpg" />
 </div>
 
 
@@ -319,7 +401,7 @@ SMath Studio Desktop 1.0.8348 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151738.jpg" />
 </div>
 
 
@@ -345,7 +427,7 @@ Genymotion 2.6.0 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137255.jpg" />
 </div>
 
 
@@ -372,7 +454,7 @@ VMware Workstation Pro 25H2 25.0.0.24995812 RePack by KpoJIuK [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136916.jpg" />
 </div>
 
 
@@ -398,7 +480,7 @@ VMware Workstation Pro 25H2 25.0.0.24995812 [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136833.jpg" />
 </div>
 
 
@@ -424,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122636.jpg" />
 </div>
 
 
@@ -451,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119739.jpg" />
 </div>
 
 
@@ -478,7 +560,7 @@ VMware vCenter Converter Standalone 6.6.0 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115757.jpg" />
 </div>
 
 
@@ -506,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115414.jpg" />
 </div>
 
 
@@ -532,7 +614,7 @@ StatSoft STATISTICA 8.0.725 [Eng]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89550.jpg" />
 </div>
 
 
@@ -560,7 +642,7 @@ GeoVision DVR & NVR System v8.5.0.0 (Russian) [Русский]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83194.jpg" />
 </div>
 
 
@@ -590,7 +672,7 @@ Simatic Step 7 v5.5 SP2 (Multi)
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79907.jpg" />
 </div>
 
 
@@ -603,89 +685,6 @@ STEP 7 - это базовый пакет программ, включающий
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458712   (79296) от 29.02.2012
-
-Simatic WinCC v7.0 SP3 (Multi)
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79296.jpg" />
-</div>
-
-
-###  Подробнее
-
-SIMATIC HMI - это широкий спектр аппаратуры и программного обеспечения, позволяющий создавать эффективные системы человеко-машинного интерфейса:
-1) Полная совместимость с SIMATIC S7. Функции обслуживания устройств человеко-машинного интерфейса встроены в операционную систему программируемых контроллеров SIMATIC S7.
-2) Унификация с контроллерами SIMATIC S7: общие базы данных, унифицированный интерфейс и т.д.
-3) Прямое подключение к контроллерам по PPI или MPI интерфейсам.
-4) Возможность работы в сети PROFIBUS.
-     Функциональность системы визуализации Simatic WinCC в версии 7.0 значительно расширена. Графический интерфейс оператора может быть выполнен в соответствии со стандартами Windows Aero. Возможно применение шаблонов дизайна (классический, прозрачный, 3D) и цветовой палитры, которые могут быть централизованно адаптированы в любой момент. Дополнительную наглядность элементам управления WinCC придают такие эффекты, как прозрачность, тени, стили заливки, подсветка при наведении курсора. Новые графические возможности (   Читать дальше...   )Название программы: Simatic WinCCЯзык интерфейса: (Multi) (английский и еще 5 шт.)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458623   (78682) от 26.02.2012
-
-Macromedia HomeSite 5.5 [Русский]
-
->>След.
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Macromedia HomeSite – это мощный инструмент для быстрой разработки профессиональных web-сайтов. Встроенные инструментальные средства кодирования помогут разработчикам проверять правильность кода, а также повторно использовать, форматировать и просматривать код. Разработчики смогут эффективно создавать и развертывать web-сайты, а также управлять ими с помощью функций управления проектами, контроля качества и удаленного развертывания, в то время как мастера позволяют быстро создавать страницы, таблицы, фреймы и элементы JavaScript.Название программы: Macromedia HomeSiteЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821587   (63928) от 03.10.2025
-
-QIAGEN CLC Genomics Workbench 25.0.2 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63928.jpg" />
-</div>
-
-
-###  Подробнее
-
-CLC Genomics Workbench — это комплексный аналитический пакет для анализа и визуализации данных, поддерживающий все типичные рабочие процессы NGS.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F0CE74AC32277E2F20D4CC354B22F1F8A033632
 ```
 
 https://mybot314.ru/tekegram_catalog/

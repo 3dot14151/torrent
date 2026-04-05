@@ -6,7 +6,7 @@ VA - The Best Of Acid Jazz Vol. 4 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127242.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - The Best Bossa Nova Lounge (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127229.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Ella Fitzgerald - Ella Wishes You A Swinging Christmas (1960) 1988, Verve Record
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127224.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Terri Lyne Carrington - TLC & Friends (1981) 2023, Candid [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127223.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Urban Grooves 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Funk, El
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127221.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Gregory Porter - Christmas Wish (2023) Blue Note [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127212.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Chet Baker - Chet Baker Sings: It Could Happen To You (1958) 2006, Victor Entert
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127210.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Mal Waldron Quintet - Mal-1 (1956) 1991, Original Jazz Classics [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127037.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Tina Brooks - Back To The Tracks (1960) 1993, Blue Note [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127035.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Toshiko Akiyoshi Jazz Orchestra featuring Lew Tabackin - Last Live In Blue Note 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127034.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Un poquito de Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126919.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Christian Sands - Christmas Stories (2023) Mack Avenue Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126887.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ George Gee Swing Orchestra - Winter Wonderland (2023) Self-Released [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126883.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Pharoah Sanders Quartet - Live at Fabrik, Hamburg (1980) 2023, Jazzline [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126868.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ The Brecker Brothers - Score (1988) 1991, Jazz Door [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126852.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Ella Fitzgerald & Louis Armstrong - Ella & Louis Wish You A Swinging Holiday (20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126768.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Benny Goodman - Undercurrent Blues (1940 - 1949) 1995, Capitol Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126749.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Lisa Hilton - Underground (2011) Ruby Slippers Productions [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126748.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ V.A. - Montecarlo Night, Vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126732.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ The Bud Shank Sextet - New Gold! (1994) Candid [FLAC|Lossless|tracks + .cue] <Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126728.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Frank Morgan - Reflections (1988) 2000, Original Jazz Classics [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126727.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Dexter Gordon - Settin' The Pace (1943 - 1950) 4CD, 2001, Proper Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126488.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ The Stan Getz Quartet - Pure Getz (1982) Concord Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126432.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Bill Evans - You Must Believe In Spring (1977) 2022, Craft Recordings [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126430.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Christian Sands - Facing Dragons (2018) Mack Avenue Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126413.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ National Youth Jazz Orchestra - These Are The Jokes (1992) Ronnie Scott's Jazz H
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126408.jpg" />
 </div>
 
 

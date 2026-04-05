@@ -1,3 +1,82 @@
+###  Публикация: 1735308   (27985) от 11.02.2025
+
+Wolfram Mathematica 14.0.0 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Система Mathematica является оригинальным ведущим продуктом компании Wolfram, главным образом нацеленным на технические вычисления для научно-исследовательской и образовательной деятельности. Основанная на языке Wolfram Language, Mathematica абсолютно совместима с другими основными продуктами компании Wolfram.
+На протяжении трёх десятилетий система Mathematica определяет (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10FBF712DB5D28CD352F33636829785687B959C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779789   (27558) от 15.02.2025
+
+WinToHDD 6.6 Release 1 Technician RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27558.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinToHDD - программа 3-в-1, которая позволяет выполнить установку, переустановку и клонирование ОС Windows 10/8.1/8/7 без использования CD/DVD дисков или USB-флешек (нужен только ISO образ). С помощью WinToHDD можно установить операционку на любой диск, подключенный к компьютеру (кроме текущего системного).Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C635380A2625268C3AE0C099FA39C931FCF74E1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779771   (27512) от 15.02.2025
+
+Crystal Impact Diamond 4.6.8 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Crystal Impact Diamond - программное обеспечение, предназначенное для визуализации и проектирования кристаллических структур. Объединяет множество функций, которые работают с данными кристаллических структур - в исследовании и образовании, а так же полезны для подготовки публикаций и презентаций. Diamond не только создаёт замечательные картины молекулярных и кристаллических (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E8C1279644A8D32628A6ADDF96F84240173A9B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1782232   (26319) от 27.02.2025
 
 Free Hex Editor Neo 7.50.04.8813 + Portable [Multi/Ru]
@@ -6,7 +85,7 @@ Free Hex Editor Neo 7.50.04.8813 + Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26319.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ Navicat Premium 17.2.2 [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24710.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ Adobe XD 58.0.12.9 RePack by KpoJIuK [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23777.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ SweetScape 010 Editor 15.0.2 + Portable [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22918.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ Ultimaker Cura 5.10 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22720.jpg" />
 </div>
 
 
@@ -137,7 +216,7 @@ RisohEditor 5.8.7 + Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22175.jpg" />
 </div>
 
 
@@ -165,7 +244,7 @@ OrcaSlicer 2.3.0 + Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22167.jpg" />
 </div>
 
 
@@ -192,7 +271,7 @@ CoolUtils Total CAD Converter 4.1.0.230 RePack (& Portable) by elchupacabra [Mul
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21618.jpg" />
 </div>
 
 
@@ -218,7 +297,7 @@ FlashPrint 5.8.7 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21243.jpg" />
 </div>
 
 
@@ -244,7 +323,7 @@ BlueStacks App Player 5.22.51.1038 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20648.jpg" />
 </div>
 
 
@@ -270,7 +349,7 @@ Sante DICOM Viewer Pro 14.2.2 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20417.jpg" />
 </div>
 
 
@@ -297,7 +376,7 @@ Sante DICOM Editor 10.2.2 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20369.jpg" />
 </div>
 
 
@@ -324,7 +403,7 @@ Schrodinger Suite 2025-2 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17118.jpg" />
 </div>
 
 
@@ -350,7 +429,7 @@ WinEdt 11.2 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13464.jpg" />
 </div>
 
 
@@ -377,7 +456,7 @@ Geneious Pro 4.8.5 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12843.jpg" />
 </div>
 
 
@@ -403,7 +482,7 @@ Maplesoft Maple 2025.1 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12175.jpg" />
 </div>
 
 
@@ -429,7 +508,7 @@ EasyUEFI 6.0 Release 1 Technician RePack (& Portable) by elchupacabra [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11142.jpg" />
 </div>
 
 
@@ -455,7 +534,7 @@ VMware Workstation 17 Pro 17.6.4 Build 24832109 RePack by KpoJIuK [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10956.jpg" />
 </div>
 
 
@@ -481,7 +560,7 @@ Inno Tools Ultimate Pack 2025 by Necros1404 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10673.jpg" />
 </div>
 
 
@@ -508,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10212.jpg" />
 </div>
 
 
@@ -534,7 +613,7 @@ SQLite Expert Professional 5.5.37.648 RePack (& Portable) by elchupacabra [Ru/En
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9529.jpg" />
 </div>
 
 
@@ -561,7 +640,7 @@ CudaText 1.226.0.0 Portable + addons [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9427.jpg" />
 </div>
 
 
@@ -588,7 +667,7 @@ Schrodinger Suite 2025-3 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9256.jpg" />
 </div>
 
 
@@ -599,85 +678,6 @@ Schrodinger Suite 2025-3 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEBE08CC80E74A172B66526F7893A71E986817BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821017   (8561) от 30.09.2025
-
-VMware Workstation 17 Pro 17.6.4 Build 24832109 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8561.jpg" />
-</div>
-
-
-###  Подробнее
-
-VMware Workstation — популярная программа для создания нескольких виртуальных компьютеров в одной системе. Предназначена в первую очередь для программистов и системных администраторов, которым необходимо протестировать приложения, работающие в различных средах. Собственная технология VMware MultipleWorlds дает возможность изолировать операционные системы и приложения (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED2B0E29B976B9B28EFB9CF5A5246429F664225B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815313   (5372) от 29.08.2025
-
-PilotEdit Lite & Pro 20.2.0 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из многих текстовых редакторов, но с большими возможностями и своими особенностями.
-PilotEdit можно использовать для редактирования больших файлов размером 400 ГБ (40 миллиардов строк) или сравнения больших файлов размером 100 ГБ (10 миллиардов строк). PilotEdit предлагает настраиваемую подсветку синтаксиса и ключевых слов, расширенные операции поиска и замены, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A95A03FDADF34C29066E4AFD98A263D2B378AD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815701   (4994) от 31.08.2025
-
-Adobe Dreamweaver 2021 21.6.0.15711 RePack by KpoJIuK [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Dreamweaver - профессиональная программа для создания веб-сайтов. Программа упрощает проектирование, кодирование и публикацию интерактивных веб-сайтов и веб-приложений. Благодаря поддержке HTML, CSS, Javascript и многих других возможностей дизайнеры и разработчики смогут быстро создавать и публиковать веб-страницы. Adobe Dreamweaver имеет интуитивно понятный (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6E0488BAFB3785D0BCAC8ACC7426A7BE8E33557
 ```
 
 https://mybot314.ru/tekegram_catalog/

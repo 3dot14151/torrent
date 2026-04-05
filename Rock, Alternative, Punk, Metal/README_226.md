@@ -1,3 +1,148 @@
+###  Публикация: 1496635   (871242) от 18.09.2021
+
+The Night Flight Orchestra - Aeromantic II (2021) [FLAC|Lossless|tracks + .cue] <Melodic Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Violent Indigo 4:38
+02. Midnight Marvelous 4:16
+03. How Long 4:54
+04. Burn for Me 3:49(   Читать дальше...   )Жанр: Melodic Rock, Pop RockПродолжительность: 00:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FA0BEBE3E5604CB252F210B2ED115EA84C2034A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496630   (871233) от 18.09.2021
+
+Ozzy Osbourne - No More Tears (1991) 30th Anniversary Edition, 2021, [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Tinkertrain [00:05:56]
+02. I Don't Want to Change the World [00:04:05]
+03. Mama, I'm Coming Home [00:04:11]
+04. Desire [00:05:45](   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 02:02:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE98B1B0A6A7BB7F8B9A8515D6F2A848B548BBFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496464   (871231) от 18.09.2021
+
+King Zebra - Survivors (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under Destruction
+02. She Don't Like My R'n'R
+03. Desperate
+04. Wall Of Confusion(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0206A496D438FE7DDCC20B94329F6CF6CF337B70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496680   (871229) от 18.09.2021
+
+Гарик Сукачёв & Александр Ф. Скляр - Боцман и бродяга. Часть 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Привет морскому ветру [00:03:58]
+02. Поезд уходит далеко [00:02:28]
+03. И снова май месяц [00:04:07]
+04. Когда придёт весна, не знаю [00:04:22](   Читать дальше...   )Жанр: RockПродолжительность: 00:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:490C2A163A4F423371F21912DCB66C62A41C8522
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496612   (871226) от 18.09.2021
+
+Ozzy Osbourne - No More Tears (2021) 30th Anniversary Expanded Edition [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Tinkertrain
+02. I Don't Want to Change the World
+03. Mama, I'm Coming Home
+04. Desire(   Читать дальше...   )Жанр: RockПродолжительность: 02:02:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3EF5CE72BEA3916A0A65D28CF9A11E3117631E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374557   (871202) от 11.04.2020
 
 Kill the Kong - 2 Albums / 4 Singles (2016-2019) [MP3|320 Kbps] <Metalcore>
@@ -6,7 +151,7 @@ Kill the Kong - 2 Albums / 4 Singles (2016-2019) [MP3|320 Kbps] <Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871202.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Metal Church - From the Vault (2020) [FLAC|Lossless|tracks] <Heavy Metal>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871197.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ The Mountain Goats - Songs for Pierre Chuvin (2020) [FLAC 2.0|96/24|tracks|WEB-D
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870938.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870905.jpg" />
 </div>
 
 
@@ -119,7 +264,7 @@ Bring Me The Horizon - 6 Альбомов (2005-2013) Дискография [FL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870655.jpg" />
 </div>
 
 
@@ -148,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870589.jpg" />
 </div>
 
 
@@ -177,7 +322,7 @@ Ryan Reid - Shine (2016) [MP3|320 кб/с] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870381.jpg" />
 </div>
 
 
@@ -206,7 +351,7 @@ Doro - Force Majeure (1989) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870317.jpg" />
 </div>
 
 
@@ -235,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870309.jpg" />
 </div>
 
 
@@ -264,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870269.jpg" />
 </div>
 
 
@@ -293,7 +438,7 @@ Mason - Harbour (1971) Reissue, 1999 [FLAC|Lossless|tracks + .cue] <Heavy Psych 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870143.jpg" />
 </div>
 
 
@@ -322,7 +467,7 @@ Distant Cry - Distant Cry (1995) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870078.jpg" />
 </div>
 
 
@@ -351,7 +496,7 @@ Angel House - The Gun, The Love & The Cross (2009) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870076.jpg" />
 </div>
 
 
@@ -380,7 +525,7 @@ Brother Wilson - Utopia (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Rock, Singe
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870069.jpg" />
 </div>
 
 
@@ -409,7 +554,7 @@ Grace Slick - Manhole (1973) Reissue, 2011, Retroworld [MP3 |320 Kbps] <Psychede
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870061.jpg" />
 </div>
 
 
@@ -438,7 +583,7 @@ Quartz - Fear No Evil (2016) [FLAC|Lossless|image + .cue] <Hard & Heavy>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870058.jpg" />
 </div>
 
 
@@ -467,7 +612,7 @@ Wild Adriatic - Feel (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Hard Rock, Blu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870054.jpg" />
 </div>
 
 
@@ -496,7 +641,7 @@ Lori! Lori! - 3 Albums + 1 EP (2011-2017) [MP3|320 kbps] <Alternative Rock, Fema
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869959.jpg" />
 </div>
 
 
@@ -524,7 +669,7 @@ Inhuman Condition - Rat°God (2021) [FLAC|Lossless|image + .cue] <Thrash, Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869938.jpg" />
 </div>
 
 
@@ -553,7 +698,7 @@ Captain Booze - Runaway (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869937.jpg" />
 </div>
 
 
@@ -582,7 +727,7 @@ Killing - Face the Madness (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869936.jpg" />
 </div>
 
 
@@ -596,150 +741,6 @@ Killing - Face the Madness (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B2F06ACB8B397AE9E56ADB92E6E3F533C2B8D17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496799   (869934) от 19.09.2021
-
-Duckwalk Chuck - Fired Up (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Fired Up
-02. It's Only Rock'n'roll
-03. Motor Madness
-04. Ghost Town(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15FC93D596D938B9AF6D27E7535732DA96CE769E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998058   (869821) от 19.03.2016
-
-Гарик Сукачев - Избранное (1994-2002) 2CD, 2002 Пролог Мьюзик [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Оглянись (если лают собаки) (5:50)
-02. Белый колпак (5:29)
-03. 10.000 км (5:24)
-04. Это был ангел (4:54)(   Читать дальше...   )Жанр: RockПродолжительность: 02:08:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA4493028972671C896D8D6FBB5E8FB314C2271E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998140   (869803) от 19.03.2016
-
-Аквариум и Борис Гребенщиков - Песни нелюбимых (2016) EP [FLAC|Lossless|tracks] <Рок>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Песни нелюбимых (03:38)
-02. Собачий вальс (04:17)
-03. Пыль (03:50)
-04. Собачий вальс (Euroversion) (04:08)Жанр: РокПродолжительность: 00:15:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C413400C5827BDBEDE039927292796702CFEB6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998115   (869664) от 19.03.2016
-
-Аквариум и Борис Гребенщиков - Песни Нелюбимых (2016) [MP3|320 кб/с] <Рок>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869664.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Песни нелюбимых (03:34)
-2. Собачий вальс (04:17)
-3. Пыль (03:46)Жанр: РокПродолжительность: 00:11:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:848566FA290C44B5BBC60DCC770A7948FE7579D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375023   (869098) от 12.04.2020
-
-Dawn Of Winter - Pray For Doom (2018) [MP3|320 Kbps] <Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 A Dream Within A Dream
-02 The Thirteenth Of November
-03 Woodstock Child
-04 The Sweet Taste Of Ruin(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:52:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D84780FB7A279F933F7A811FFDB12CCB600CF7DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

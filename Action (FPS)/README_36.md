@@ -1,3 +1,55 @@
+###  Публикация: 1829679   (201860) от 25.10.2025
+
+Crysis 2 (2011) [Ru] (1.9.0.0/dlc) Repack Necros [Limited Edition]
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201860.jpg" />
+</div>
+
+
+###  Подробнее
+
+23 августа 2023 года разведывательное подразделение Корпуса морской пехоты США было отправлено в Нью-Йорк для эвакуации бывшего сотрудника Crynet доктора Натана Гулда, который может обладать важной информацией о борьбе с цефами, инопланетной расой, пытающейся уничтожить человечество.Тип издания: RepackРазработчик: CrytekЖанр: Шутер от первого лицаЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E820D8D8E8E1E3C5F2392F34457B0B7E5A6CEC4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136678   (201831) от 30.08.2023
+
+Battle: Los Angeles – The Videogame (2011) [Ru] (1.0) Repack Other s
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Созданная по мотивам одноименного голливудского фильма, игра Battle: Los Angeles расскажет историю о вторжении инопланетной расы на нашу планету. По сюжету, в недалеком будущем пришельцы атакуют крупнейшие города Земли, истребляя и уничтожая все на своем пути. Люди в панике, а военные безуспешно пытаются отразить атаки агрессоров. Одной из горячих точек планеты становится (   Читать дальше...   )Тип издания: RepackРазработчик: Saber InteractiveЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18DF385C9BCD58207AD5F559872437B09D42ED2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1828946   (199940) от 24.10.2025
 
 Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack Wanterlude [Ultimate Edition]
@@ -6,7 +58,7 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack Wanterlude [Ultimate 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_199940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_199940.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ System Shock (2023) [Ru/Multi] (1.0.16944) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197624.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ System of Souls (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196917.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Impaler (2022) [Ru/Multi] (1.0.475) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196792.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Trepang2 (2023) [Ru/Multi] (2168) Repack DjDI [Banger Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196740.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Unholy (2023) [Ru/Multi] (11746044) Scene FireLight
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195301.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Cryostasis: Sleep of Reason (2008) [Ru/En] (1.0.1.0) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195241.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Cryostasis: Sleep of Reason (2008) [Ru] (1.0.2.608) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195204.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Demonic Supremacy (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194693.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ World War Z (2019) [Ru/Multi] (27.06.2023/dlc) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194603.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Turbo Overkill (2022) [Ru/Multi] (1.0) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194193.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Turbo Overkill (2022) [Ru/Multi] (1.0) Repack DjDI
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194029.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Death in the Water 2 (2023) [Ru/Multi] (1.1.10) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193988.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Death in the Water 2 (2023) [Ru/Multi] (1.1.10) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193767.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack Let'sРlay [Ultimate 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193563.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Serious Sam 2 / Крутой Сэм 2 (2005) [Ru/En] (2.100.00:739578) Repack Fi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193466.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Metal Eden (2025) [Ru/Multi] (85667) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193461.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Vampire The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46047/dlc) Repack Wante
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193385.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Dead Man´s Diary (2022) [Ru/Multi] (1.5.54360) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192430.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Remoteness (2022) [Ru/Multi] (1.80) License DOGE
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191874.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Revenge of ILCOIN (2023) [En] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191049.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Isonzo (2022) [Ru/Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191043.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ DOOM Eternal (2020) [Ru/Multi] (11905845/dlc) Scene Rune [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191030.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ DOOM Eternal (2020) [Ru/Multi] (11905845/dlc) Repack dixen18 [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190715.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ DOOM Eternal от id Software – прямое продолжение хита D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54BD0BF10E4776D13024D7AA927F16BE08626087
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588692   (190446) от 08.11.2022
-
-Ghostbusters: Spirits Unleashed (2022) [Ru/Multi] (1.2.3.13348) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ghostbusters: Spirits Unleashed — это увлекательная многопользовательская игра, которая идеально подойдёт для игроков с навыками любого уровня. Четверо охотников за привидениями с протонными ранцами за спиной пытаются поймать призрака в уникальных локациях, вступая в асимметричные многопользовательские битвы (в онлайн- или офлайн-режиме). По мере прохождения игроки (   Читать дальше...   )Тип издания: RepackРазработчик: IllFonicЖанр: Action (Fantastic), Horror, 1st Person, 3DЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE19EBAF17C067347A25F1F43763A7A43B43F35F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660202   (189514) от 12.09.2023
-
-Lempo (2023) [Multi] (0.111) License GOG
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189514.jpg" />
-</div>
-
-
-###  Подробнее
-
-Временами люди теряются. Тогда приходится звать на помощь. Но что если другие не смогут их найти? Что если они потеряются невесть где? Верите ли вы в фантастические миры? Я тоже не верил, пока не оказался в одном из них. Lempo - это психологический хоррор, вдохновленный финской мифологией. Вам предстоит сыграть за Пола, обычного офисного сотрудника, который однажды (   Читать дальше...   )Тип издания: LicenseРазработчик: One Trick EntertainmentЖанр: Приключение, От первого лица, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76E849AF471E49A320B967622821E190ADC29B15
 ```
 
 https://mybot314.ru/tekegram_catalog/

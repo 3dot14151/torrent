@@ -1,138 +1,3 @@
-###  Публикация: 1387653   (783023) от 15.06.2020
-
-Книжная серия | Петербург: тайны, мифы, легенды [11 книг] (2017-2020) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783023.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Петербург: тайны, мифы, легенды» — это подробные путеводители по литературному, историческому, культурному, артистическому, православному, мистическому Петербургу, составленные красноречивыми и опытными гидами. Их авторы, известные современные петербургские литераторы, собрали самые невероятные истории, которые могут случиться только в Петербурге, и уникальные сведения (   Читать дальше...   )Жанр: Биографии и мемуары, Культурология, Историческая литератураФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27CED567579BDECCB494252C311C4F67BACE9031
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390474   (783016) от 15.06.2020
-
-Альфред Позаментье, Стивен Крулик | Стратегии решения математических задач. Различные подходы к типовым задачам (2018) [EPUB]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любую задачу можно решить разными способами, однако в учебниках чаще всего предлагают только один вариант решения. Настоящее умение заключается не в том, чтобы из раза в раз использовать стандартный метод, а в том, чтобы находить наиболее подходящий, пусть даже и необычный, способ решения.
-В этой книге рассказывается о десяти различных стратегиях решения задач. Каждая (   Читать дальше...   )Жанр: Естественные науки, МатематикаПеревод: Вячеслав ИоновФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0341B0ABD95C79579242B08BCCA318048D290347
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205744   (782972) от 12.02.2018
-
-О. Танин, Е. Иоган | Военно-фашистское движение в Японии (1933) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемая работа двух советских востоковедов представляет большую научную и политическую ценность. Военно-фашистское движение Японии является одним из тех механизмов, которые должны перевести Японию из состояния скрытой в состояние открытой мировой империалистической войны. Знание этого фугаса, заложенного на Дальнем Востоке под дело мира, является необходимым. (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2638DD40BCDE89AC9A18C15F15E2FF6FBFC7B214
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205808   (782970) от 12.02.2018
-
-Л. Мишель | Коммуна [из воспоминаний] (1926) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782970.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор настоящей книги, Луиза Мишель , — народная учительница, революционерка и баррикадный боец, — является одной из самых обаятельных личностей в героическом восстании парижского пролетариата 1871 года.
-
-Луиза Мишель родилась в 1836 г ., в бедной крестьянской семье. Двадцатилетней девушкой она сдала экзамен на звание учительницы и учительствовала в Париже, в рабочем (   Читать дальше...   )Жанр: История, политология, публицистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49F1F6DC27C2F884BFDFE86916C1BE3EEE901E8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205742   (782956) от 12.02.2018
-
-И. Г. Ринг | Латвийский фашизм в подготовке интервенции (1932) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Буржуазная Латвия, как и остальные лимитрофы — Финляндия, Эстония, Литва, возникла в результате буржуазной контрреволюции 1918—1919 гг. в Прибалтике.
-
-Октябрьская революция в России принесла освобождение широким трудящимся массам национальных окраин бывшей царской империи. Одним из первых декретов советской власти в России было полное признание права наций на самоопределение (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77D05D4160A3B0525C71CC458B576225DFDD0F84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205844   (782954) от 12.02.2018
 
 Д. М. Петрушевский | Восстание Уота Тайлера (1937) [PDF]
@@ -141,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782954.jpg" />
 </div>
 
 
@@ -167,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782951.jpg" />
 </div>
 
 
@@ -193,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782938.jpg" />
 </div>
 
 
@@ -219,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782917.jpg" />
 </div>
 
 
@@ -245,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782882.jpg" />
 </div>
 
 
@@ -272,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782877.jpg" />
 </div>
 
 
@@ -298,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782731.jpg" />
 </div>
 
 
@@ -326,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782655.jpg" />
 </div>
 
 
@@ -353,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782611.jpg" />
 </div>
 
 
@@ -379,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782605.jpg" />
 </div>
 
 
@@ -405,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782519.jpg" />
 </div>
 
 
@@ -431,7 +296,7 @@ A.B. Сычев | Web-технологии (2016) [PDF]
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782496.jpg" />
 </div>
 
 
@@ -457,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782430.jpg" />
 </div>
 
 
@@ -483,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782391.jpg" />
 </div>
 
 
@@ -512,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782148.jpg" />
 </div>
 
 
@@ -540,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782119.jpg" />
 </div>
 
 
@@ -566,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782117.jpg" />
 </div>
 
 
@@ -593,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782110.jpg" />
 </div>
 
 
@@ -619,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782091.jpg" />
 </div>
 
 
@@ -645,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782047.jpg" />
 </div>
 
 
@@ -671,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781825.jpg" />
 </div>
 
 
@@ -683,6 +548,141 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A79AC0DA6B6F425DBD235E2E08E78E9EDA57A7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390978   (781810) от 18.06.2020
+
+Книжная серия "New Scientist" Лучшее от экспертов журнала [6] (2019-2020) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781810.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 6 книгах серии "New Scientist. Лучшее от экспертов журнала» собраны лучшие статьи экспертов журнала New Scientist. Здесь вы найдете мысли ведущих ученых и интервью с ними, познакомитесь с прошлым, настоящим и будущим науки об эволюции, узнаете о величайших изобретениях природы, приоткроете занавесу тайн нашего разума, найдете руководство по эксплуатации самого (   Читать дальше...   )Жанр: Научно-популярная литератураФормат: FB2. EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C6F19E3353E0FEF3476D63B589DE778C10EE1EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390751   (781778) от 18.06.2020
+
+В. А. Никитин | Книга начинающего радиолюбителя (2005) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781778.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данной книге представлены основы элементарной электротехники, радиотехники и электроники, начиная с самых азов и заканчивая современным состоянием техники, - полупроводниковые приборы и интегральные микросхемы, радиоаппаратура, телевизоры, электроакустические приборы и многое другое.
+Эта книга предназначена для начинающих радиолюбителей, желающих понять, что происходит (   Читать дальше...   )Жанр: 978-5-477-00078-3Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D357AD2983CECDF004E3CB95C416FC10B868A8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206769   (781741) от 15.02.2018
+
+В. Киршон | Эмиграция и оппозиция (1927) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Против линии партии, объединившись, выступает разношерстная оппозиционная группа. Тут и старые испытанные ревизионисты, но молодые большевики. Тут и старые большевики, но совсем юные еще ревизионисты. Тут сторонники бюрократического зажима, тут и певцы широчайшей демократии. Тут сторонники ликвидации Коминтерна, тут и руководители его.
+
+Все соединились в «священный (   Читать дальше...   )Жанр: История, политологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4773E8B0B9E807A26AC5AFF547E69AA4E30F9A31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206706   (781739) от 15.02.2018
+
+Н. Ф. Скачков (сост.) | Национально-культурное строительство в третьем, решающем году пятилетки (1932) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник «Национально-культурное строительство в третьем, решающем» имеет своею целью подвести основные итоги национально-культурного строительства РСФСР в третьем, решающем году пятилетки.
+
+Третий, решающий год пятилетки, обеспечивший завершение фундамента социалистической экономики, явился решающим годом в деле развертывания национально-культурного строительства. (   Читать дальше...   )Жанр: История, политология, экономика, культурология, искусствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC1E3305F1A78A5CBF6E68E5F46BD12E41873BA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206573   (781714) от 15.02.2018
+
+А.Г. Стрелков | Конструкция быстроходных гусеничных машин (2005) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781714.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии рассмотрены основные понятия, определения, требования, классификации, технические характеристики, конструкции, режимы работы составных частей шасси-трансмиссии и ходовой системы быстроходных гусеничных машин отечественного и зарубежного производства различного назначения. Проведен анализ режимов работы агрегатов одно и двухпоточных трансмиссий, (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29BB7092A7132FD7674547AEE0A30E181B10B893
 ```
 
 https://mybot314.ru/tekegram_catalog/

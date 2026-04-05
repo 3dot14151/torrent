@@ -1,3 +1,29 @@
+###  Публикация: 1519642   (137075) от 31.12.2021
+
+Море Спокойствия / Goyoui bada / The Silent Sea (2021) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) BaibaKo
+
+>>След.
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137075.jpg" />
+</div>
+
+
+###  Подробнее
+
+2075 год. На Земле заканчивается вода, и группе учёных приходится отправиться на Луну, чтобы забрать важные образцы из заброшенной научной лаборатории.Производство: Корея Южная / Artist studio, NetflixЖанр: фантастика, триллерРежиссер: Чхве Хан-ёнАктеры: Кон Ю, Пэ Ду-на, Ли Джун, Хо Сон-тхэ, Ли Му-сэн, Чон Сун-вон, Ли Сон-ук, Ан Сэ-бин, Ким Сон-ён, Кан Маль-гымПеревод: Многоголосый профессиональный (BaibaKo)Язык озвучки: Русский, английский, корейскийСубтитры: Русские, английские (Forced, Full, SDH), корейские (Forced, SDH), MultiПродолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C75E52F6C545F1B295250ED50E9A3B3BE148DBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680322   (132513) от 03.12.2023
 
 Линчеватель / Мститель / Bijillanteo / Vigilante (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) TVShows, LE-Production
@@ -6,7 +32,7 @@
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132513.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132292.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132290.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132275.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132003.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131985.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131967.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131716.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131349.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128279.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128164.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128011.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128005.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127444.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123758.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123445.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122840.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122271.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121412.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119540.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117863.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116791.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115289.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115232.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114778.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:668C7001709C4732702D457A2FDBD21AA4039E36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807611   (65261) от 19.07.2025
-
-Такой близкий предатель / Сомнение / Yitorok Chinmilhan Baeshinja / Doubt / The Intimate Traitor (2024) WEBRip (сезон 1, серии 1-10 из 10) Тайм Медиа Групп
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный профайлер Чан Тэ-су — живая легенда в мире криминалистики и пример безупречной службы. Но его вселенная рушится, когда в ходе расследования жестокого убийства он обнаруживает, что к делу может быть причастна его единственная дочь Ха-бин. Сыщик, привыкший доверять фактам, впервые сталкивается с дилеммой, ведь разум бессилен, когда в дело вступает отцовская (   Читать дальше...   )Производство: Южная Корея / MBC-TV Korea, AscendioЖанр: триллер, детектив, криминалРежиссер: Сон Ён-хваАктеры: Хан Сок-кю, Чхэ Вон-бин, Хан Е-ри, О Ён-су, Но Джэ-вон, Кён Хо Юн, Ким Джон-джин, Ю И-тхэ, Ли Щин-ги, Хан Су-аПеревод: Многоголосый профессиональный (Тайм Медиа Групп)Язык озвучки: Русский, КорейскийСубтитры: отсутствуютПродолжительность: ~01:10:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02FFFE9B391F89B745376D88F2E3FB09C5E5513C
 ```
 
 https://mybot314.ru/tekegram_catalog/

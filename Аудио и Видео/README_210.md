@@ -6,7 +6,7 @@ Rammstein - Reise, Reise (2004) [AAC|256 кб/с|WEB]<Metal, Industrial>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326543.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Rammstein - Sehnsucht (1997) [AAC|256 кб/с|WEB]<Metal, Industrial>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326467.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Rammstein - Liebe ist fur alle da (2009) [AAC|256 кб/с|WEB]<Metal, Industrial
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326400.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Rammstein - Rosenrot (2005) [AAC|256 кб/с|WEB]<Metal, Industrial>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326398.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Rammstein - Made in Germany (1995-2011) (2011) Special Version [AAC|256 кб/с|
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326389.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325794.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Rammstein - Mutter (Double CD Tour Edition) (2001) [AAC|256 кб/с|WEB]<Metal, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325540.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Enya - Dark Sky Island (2015) Deluxe [AAC|256 кб/с]<New Age, Ambient, Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324826.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Flume - Flume (2013) Deluxe Edition [AAC|256 кб/с]<Electronic, Future Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324780.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324779.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324665.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323780.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323765.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323496.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323262.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Snowgoose - The Making Of You (2020) [AAC|~320 Kbps] <Folk, Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322341.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ VA - Acoustic Classic Rock Covers (2020) [AAC|~312 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322282.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Joe Bonamassa - Royal Tea (2020) [AAC|~338 Kbps] <Rock, Blues>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322224.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ AC/DC - POWER UP (2020) [AAC|~354 Kbps] <Hard Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321672.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321622.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321254.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321210.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321207.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321198.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321195.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321112.jpg" />
 </div>
 
 

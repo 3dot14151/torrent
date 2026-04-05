@@ -1,29 +1,3 @@
-###  Публикация: 1419212   (341921) от 27.10.2020
-
-Земляной дьявол. Дело светлоградского маньяка (2020) WEB-DL [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341921.jpg" />
-</div>
-
-
-###  Подробнее
-
-История преступлений светлоградского маньяка по прозвищу «Земляной дьявол». На протяжении 10 лет он похищал школьниц и удерживал их в землянках. Долгое время считалось, что сообщником был его 9-летний сын. В этом документальном фильме впервые за 12 лет, сын маньяка решился рассказать, что тогда случилось.Производство: РоссияЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:35:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC79B345AFCFB4D8E750549DBAF077AFF0B1A749
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 954346   (341790) от 07.11.2015
 
 Научное расследование Сергея Малозёмова. Еда живая и мертвая: Рыба (2015.11.07) SATRip
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341790.jpg" />
 </div>
 
 
@@ -59,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341085.jpg" />
 </div>
 
 
@@ -88,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340899.jpg" />
 </div>
 
 
@@ -114,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340268.jpg" />
 </div>
 
 
@@ -141,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340265.jpg" />
 </div>
 
 
@@ -167,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340263.jpg" />
 </div>
 
 
@@ -193,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340110.jpg" />
 </div>
 
 
@@ -220,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340109.jpg" />
 </div>
 
 
@@ -246,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340098.jpg" />
 </div>
 
 
@@ -272,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340024.jpg" />
 </div>
 
 
@@ -298,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338430.jpg" />
 </div>
 
 
@@ -324,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337887.jpg" />
 </div>
 
 
@@ -350,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337620.jpg" />
 </div>
 
 
@@ -377,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337497.jpg" />
 </div>
 
 
@@ -403,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337489.jpg" />
 </div>
 
 
@@ -429,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337486.jpg" />
 </div>
 
 
@@ -455,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337485.jpg" />
 </div>
 
 
@@ -481,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337483.jpg" />
 </div>
 
 
@@ -507,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337201.jpg" />
 </div>
 
 
@@ -533,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337007.jpg" />
 </div>
 
 
@@ -559,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336602.jpg" />
 </div>
 
 
@@ -585,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336353.jpg" />
 </div>
 
 
@@ -611,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336232.jpg" />
 </div>
 
 
@@ -638,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336224.jpg" />
 </div>
 
 
@@ -664,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336030.jpg" />
 </div>
 
 
@@ -675,6 +649,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F77FB3D609B893F436A81C1C21B262275D8E54A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420131   (335486) от 30.10.2020
+
+Секта космического педофила (2020) WEB-DL [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Псевдорелигиозная секта «Чёрный Лотос» существовала в 2004 на Кубани. Ее основатель обещал своим адептам квантовый переход в рай в обмен на полное подчинение. Впервые жертвы общины рассказывают о том, как была устроена секта.Производство: РоссияЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:42:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BB72F672F3F47D509BA14883C78387EDE764D6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

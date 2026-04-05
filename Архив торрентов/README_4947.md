@@ -6,7 +6,7 @@ Any Video Downloader Pro 9.5.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4335.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4249.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4248.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4240.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Adobe Acrobat Pro 2025.001.20672 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4235.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ WeNote: заметки блокнот планер v6.38 Mod by PieMods [Ru/Mult
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4158.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ IObit Uninstaller Pro 15.0.0.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4131.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3989.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3986.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3984.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3977.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ iDownerGo Video Downloader 10.8.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3940.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ MyLanViewer 6.5.7 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3930.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ StaxRip 2.50.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3920.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Glary Utilities Pro 6.30.0.34 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3915.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3814.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Coolmuster Android Assistant 6.0.78 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3804.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ FL Studio Producer Edition 25.1.5.4976 - All Plugins Edition + Addons (x64) RePa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3773.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ FL Studio Producer Edition 25.1.5.4976 - All Plugins Edition + Addons [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3766.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ PotPlayer 250625 (1.7.22570) RePack (& Portable) by elchupacabra (09.09.2025) [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3644.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Flyoobe 1.10.340 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3638.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ PDF24 Creator 11.28.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3627.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Adobe Acrobat Pro 2025.001.20693 (x86/x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3525.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Blackmagic Design DaVinci Resolve Studio 20.2.0 Build 13 RePack by KpoJIuK [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3517.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Microsoft Activation Scripts (MAS) 3.6 portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3515.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Chromium 140.0.7339.128 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3500.jpg" />
 </div>
 
 

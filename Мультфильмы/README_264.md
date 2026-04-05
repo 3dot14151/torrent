@@ -1,3 +1,133 @@
+###  Публикация: 1183236   (296606) от 19.11.2017
+
+Отель Трансильвания / Hotel Transylvania (2017) WEB-DLRip (серии 1-14 из 29) (Обновляемая)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296606.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мэвис — наследница графа Дракулы — беззаботно проводила время, пока однажды ее отец не уехал в длительное путешествие. Он поручил управление семейным отелем своей юной дочке и грозной сестре Лидии. Новое важное задание — отличный шанс для Мэвис доказать строгому папе, что она может быть ответственной и справляться с любимыми трудностями!Производство: США, Канада | Sony Pictures Animation, Corus EntertainmentЖанр: Фентези, комедия, семейный, мультсериалРежиссер: Робин БаддАктеры: Брин МакОли, Эвани Розен, Гейдж Манро, Хосеф Мотики, Дэн Чэмерой, Дэвид Берни, Джон МакГрат, Дайан Салема, Хуан Чайоран, Скотт МакКордПеревод: ДублированныйОзвучка / Автор перевода: "Невафильм"Субтитры: ОтсутствуютПродолжительность: ~00:11:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:613D9E7F0DF4603AC1AC0CEFA9DD661BFCA45FF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334252   (296356) от 28.10.2019
+
+Как приручить дракона / How to Train Your Dragon (2010) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы узнаете историю подростка Иккинга, которому не слишком близки традиции его героического племени, много лет ведущего войну с драконами. Мир Иккинга переворачивается с ног на голову, когда он неожиданно встречает дракона Беззубика, который поможет ему и другим викингам увидеть привычный мир с совершенно другой стороны…Производство: США / DreamWorks AnimationЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Дин ДеБлуа, Крис СандерсПеревод: ДублированныйСубтитры: русские, английскиеПродолжительность: 01:37:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EF1525E7D52F5F5ACF3D4B51A148FEE136490D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334258   (296355) от 28.10.2019
+
+Как приручить дракона 2 / How To Train Your Dragon 2 (2014) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296355.jpg" />
+</div>
+
+
+###  Подробнее
+
+С момента примирения викингов и драконов прошло пять лет. Пока Астрид, Сморкала и остальные ребята проводят время, соревнуясь друг с другом в популярных на острове драконьих гонках, Иккинг и Беззубик путешествуют по небу, составляя карту неизвестных мест. Когда одно из их приключений приводит к открытию тайной ледяной пещеры, которая является домом для сотен ранее (   Читать дальше...   )Производство: США / DreamWorks AnimationЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Дин ДеБлуаПеревод: ДублированныйСубтитры: русские, английскиеПродолжительность: 01:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAA0C7809843E18738E278285B0F3F6B182696BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 159137   (296100) от 18.12.2009
+
+Стремянка и Макаронина / Staflik a Spagetka (1989-1990) DVDRip (часть 2)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веселые и динамичные мультики о двух неразлучных друзьях - Стремянке и Макаронине. Неутомимые приятели постоянно затевают веселые и забавные игры, а их соседка - ворона старается помешать им. Но проказы вороны-непоседы не остаются безнаказанными.Режиссер: Вацлав БедричПеревод: не требуетсяПродолжительность: 01:34:18
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079426   (295642) от 03.12.2016
+
+Непослушный принц и Гигантский змей / Wankapu Oji no Orochi Taiji (1963) DVDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Непослушный и своенравный принц Сусано отправляется на поиски своей матери, которая ушла в далёкую и дивную старну, не зная, что этим объяснение отец хотел сказать ему, что мать умерла. Однако куда его приведут эти поиски можно будет узнать из мультфильма.Производство: Toei Animation CompanyЖанр: Сказка, Приключения, Рисованная анимация, ФентезиРежиссер: Серикава ЮгеПерсонажи: Принц Сусано с родней, Зайчик, всякие чудища и сказочные созданияПеревод: Одноголосый закадровыйОзвучка / Автор перевода: Трамвай фильмПродолжительность: 01:26:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA6BC56A40BC7344BE039A58DE2465FB28B3986D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 420957   (295376) от 10.12.2011
 
 Маугли (1973) [H.264] BDRip
@@ -6,7 +136,7 @@
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295376.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295307.jpg" />
 </div>
 
 
@@ -62,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295232.jpg" />
 </div>
 
 
@@ -91,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295148.jpg" />
 </div>
 
 
@@ -117,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294752.jpg" />
 </div>
 
 
@@ -143,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294744.jpg" />
 </div>
 
 
@@ -169,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294666.jpg" />
 </div>
 
 
@@ -196,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294628.jpg" />
 </div>
 
 
@@ -222,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294626.jpg" />
 </div>
 
 
@@ -251,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294590.jpg" />
 </div>
 
 
@@ -279,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294481.jpg" />
 </div>
 
 
@@ -305,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294477.jpg" />
 </div>
 
 
@@ -331,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294463.jpg" />
 </div>
 
 
@@ -357,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294438.jpg" />
 </div>
 
 
@@ -383,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294435.jpg" />
 </div>
 
 
@@ -409,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294390.jpg" />
 </div>
 
 
@@ -435,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294336.jpg" />
 </div>
 
 
@@ -461,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294003.jpg" />
 </div>
 
 
@@ -487,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293892.jpg" />
 </div>
 
 
@@ -513,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293765.jpg" />
 </div>
 
 
@@ -539,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293758.jpg" />
 </div>
 
 
@@ -550,136 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18AC51C158EE756880A46EAFE6CA24173C8788F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 847631   (293704) от 06.12.2014
-
-Герой цветного города / The Hero of Color City (2014) BDRip [720p] [EN / EN Sub]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультик поведает нам историю о разноцветных мелках, которые пытаются защитить свою разноцветную родину от злого тиранаПроизводство: США |  Exodus Film GroupЖанр: мультфильм, семейныйРежиссер: Фрэнк ГладстоунПеревод: ОтсутствуетЯзык субтитров: АнглийскийПродолжительность: 01:17:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19865FBF2B224706C8E9AA465BA3F4FE52912101
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079738   (293621) от 04.12.2016
-
-Киборг 009. Фильм / Cyborg 009 (1966) DVDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отгремела Вторая мировая война, но отгласы нового глобального конфликта уже слышатся на планете. В переплети чудовищной игры тайной организации "Черный Призрак" оказывается впутан гонщик Симамура Джо и еще несколько случайных человек, обращенных в киборгов.Производство: Toei AnimationЖанр: Приключения, Рисованная анимацияРежиссер: Сэрикава ЮгоПеревод: Одноголосый закадровый, любительскийОзвучка / Автор перевода: Трамвай фильмПродолжительность: 01:03:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0453272056B1542C8B846548A78A29E86035DC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079604   (293482) от 04.12.2016
-
-Дорога на Эльдорадо / The Road to El Dorado (2000) WEB-DL [H.264]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293482.jpg" />
-</div>
-
-
-###  Подробнее
-
-1519 год. Испания Эпохи Возрождения. Два удачливых испанских афериста Тулио и Мигель играют на деньги с помощью специально утяжелённых кубиков (как бы ты ни бросал, всегда будет выпадать одно и то же количество очков). Во время очередной партии друзья выигрывают карту, ведущую к легендарному золотому городу Эльдорадо…Производство: США, студия DreamWorksЖанр: Мультфильм, Приключения, КомедияРежиссер: Бибо БержеронПеревод: Дублированный, Многоголосый закадровыйЯзык субтитров: Русский, английскийПродолжительность: 01:29:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69D697098C2A1F93980411354FF3B3F234349DBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079731   (293433) от 04.12.2016
-
-Песочник / Piper (2016) BDRemux [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293433.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стая представителей бекасовых охотится за едой у побережья, бросаясь клевать на песок, когда волна уходит, а когда наступает, они убегают. Одна маленькая представительца семейства бекасовых так воодушевлена своей мамой, что решается присоединиться к стае, но ей не удалось вовремя отступить, поэтому она полностью промокла от волны. Происшествие оставляет её запуганной (   Читать дальше...   )Производство: США | Disney, Pixar Animation StudiosЖанр: Короткометражный анимационный фильмРежиссер: Алан БариллароПеревод: не требуется (немая анимация)Субтитры: Английские (вшитые, отключаемые)Продолжительность: 00:06:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48156DE3C5D760FED12CABB73DEC2C677A748837
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 847738   (293405) от 06.12.2014
-
-Лего. Новые хроники Йоды: Тактика Скайуокера / LEGO. The New Yoda Chronicles: Clash of the Skywalkers (2014) SATRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293405.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Тактика Скайуокера»: Настал решительный момент, как для Империи так и для повстанцев. Во время дерзкого налёта на Корусант  под предводительством Люка Скайуокера, повстанцы уничтожили все Голокроны джедаев, кроме одного. Взбешённый своим поражением Тёмный Император Палпатин отправляет свой флот в самые дальние уголки галактики с одним приказом – найти и уничтожить (   Читать дальше...   )Жанр: Мультфильм, приключения, короткометражныйРежиссер: Майкл ХэгнерАктеры: Эрик Бауза, Майкл Дэйнджерфилд, Энтони Дэниелс, Тревор Дивэлл, Брайан Добсон, Хезер Дорксен, Майкл ДонованПеревод: ДублированныйПродолжительность: 00:22:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1F3B287707CB99F1D478F90C2E0EC3845AD8D92
 ```
 
 https://mybot314.ru/tekegram_catalog/

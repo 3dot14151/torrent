@@ -1,3 +1,57 @@
+###  Публикация: 1206573   (781714) от 15.02.2018
+
+А.Г. Стрелков | Конструкция быстроходных гусеничных машин (2005) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781714.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии рассмотрены основные понятия, определения, требования, классификации, технические характеристики, конструкции, режимы работы составных частей шасси-трансмиссии и ходовой системы быстроходных гусеничных машин отечественного и зарубежного производства различного назначения. Проведен анализ режимов работы агрегатов одно и двухпоточных трансмиссий, (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29BB7092A7132FD7674547AEE0A30E181B10B893
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206847   (781253) от 16.02.2018
+
+Н.И. Овчаренко | Автоматика энергосистем (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание учебника обусловлено бурным внедрением в автоматику электроэнергетических систем способов и технических средств обработки информации и формирования управляющих воздействий на электроэнергетические объекты микропроцессорной вычислительной техники, а также вводом в учебный процесс высших учебных заведений бакалавриата и магистратуры.
+
+Изложение материала в (   Читать дальше...   )Жанр: Электротехника, энергетика, автоматикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2524F27FD5AAF7C4515DA63E9AC96BC81DC6FD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206963   (780553) от 18.02.2018
 
 Ю.М. Фролов, В.П. Шелякин | Проектирование электропривода промышленных механизмов (2014) [PDF]
@@ -6,7 +60,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780553.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780551.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780550.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780541.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780535.jpg" />
 </div>
 
 
@@ -137,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780532.jpg" />
 </div>
 
 
@@ -164,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780521.jpg" />
 </div>
 
 
@@ -190,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780514.jpg" />
 </div>
 
 
@@ -216,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780494.jpg" />
 </div>
 
 
@@ -242,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780473.jpg" />
 </div>
 
 
@@ -268,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780177.jpg" />
 </div>
 
 
@@ -295,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779946.jpg" />
 </div>
 
 
@@ -321,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779940.jpg" />
 </div>
 
 
@@ -348,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779631.jpg" />
 </div>
 
 
@@ -375,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779081.jpg" />
 </div>
 
 
@@ -402,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778703.jpg" />
 </div>
 
 
@@ -429,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778693.jpg" />
 </div>
 
 
@@ -455,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778690.jpg" />
 </div>
 
 
@@ -481,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778312.jpg" />
 </div>
 
 
@@ -507,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778304.jpg" />
 </div>
 
 
@@ -533,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778095.jpg" />
 </div>
 
 
@@ -560,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777598.jpg" />
 </div>
 
 
@@ -586,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777437.jpg" />
 </div>
 
 
@@ -612,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776896.jpg" />
 </div>
 
 
@@ -624,58 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4D10D85617BB82D3DF1CDC93FE738D08F7869A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013692   (776845) от 06.05.2016
-
-И.С. Туревский | Экономика отрасли. Автомобильный транспорт (2011) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776845.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебнике рассмотрены основные разделы программы учебного курса «Экономика отрасли (автомобильный транспорт)»: отрасль и рыночная экономика; особенности и перспективы развития отрасли; экономические показатели развития отрасли; автотранспортное предприятие (АТП и другие) как хозяйствующий субъект; формы предприятий, их производственная и организационная структура; (   Читать дальше...   )Жанр: Транспорт, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88671129FD9FC8795805424F6AF44468C4259AF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211849   (776777) от 09.03.2018
-
-В.И. Петренко | Защита персональных данных в информационных системах (2016) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие предоставляет собой курс лекций, способствующих приобретению необходимых знаний для обеспечения безопасности персональных данных, в нем рассмотрены основные термины и законодательство Российской Федерации в данной предметной области. Приведены этапы построения системы защиты персональных данныхЖанр: Компьютерная литератураФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB2D58BD300C9DFBB174650D15FA6B41AF2E900A
 ```
 
 https://mybot314.ru/tekegram_catalog/

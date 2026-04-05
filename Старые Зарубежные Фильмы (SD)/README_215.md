@@ -1,3 +1,133 @@
+###  Публикация: 1771666   (71830) от 07.01.2025
+
+Бэби-бум / Baby Boom (1987) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71830.jpg" />
+</div>
+
+
+###  Подробнее
+
+Деловая женщина, безумно занятая на работе, вынуждена круто изменить свою жизнь, когда у неё на руках оказывается четырнадцатимесячная племянница. Она мечется между младенцем, боссом и «другом семьи» и находит успокоение, только уехав за город, где встречает замечательного человека - местного ветеринара. Среди бесконечных хлопот о ребёнке наконец-то появляется время (   Читать дальше...   )Производство: США / United Artists, Meyers/ShyerЖанр: драма, мелодрама, комедияРежиссер: Чарльз ШайерАктеры: Дайан Китон, Сэм Шепард, Харольд Рэмис, Кристина Кеннеди, Мишель Кеннеди, Сэм Уонамейкер, Джеймс Спэйдер, Пэт Хингл, Бритт Лич, Линда Эллерби, Ким Себастьян, Мэри Гросс, Патриция Эстрин, Элизабет Беннетт, Питер ЭлблингПеревод: профессиональный многоголосый (СТС / ТНТ / Домашний), профессиональный двухголосый (НТВ)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B265264BBD237C2ED65652DED2BD123D54FDB89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771672   (71825) от 07.01.2025
+
+Вифлеемская звезда / The Star of Bethlehem (1909) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пересказ библейских событий, предшествующих Рождеству Иисуса. Мария и Иосиф во время своих скитаний сталкивались с многим трудностями. Они ищут убежища, но им отказывают, и в конце концов они вынуждены найти приют в хлеву. Приходят мудрецы, называемые волхвами, добрые философы из Персии и Индии, с дарами из золота, ладана и мирры для ребёнка, которого они почитают (   Читать дальше...   )Производство: США / Edison Manufacturing CompanyЖанр: короткометражный, драма, немое киноРежиссер: Эдвин С. Портер (предположительно)Актеры: нет сведенийПеревод: немой с интертитрами (chayka2 (Феникс))Субтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:08:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC3E18FEED82B626CA8BC0A9C5A829B4A5A3380B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771673   (71818) от 07.01.2025
+
+Бегство в Египет / The Flight into Egypt (1903) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71818.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бегство в Египет — библейское событие, описанное в Евангелии от Матфея (2:13-23), в котором Иосиф бежал в Египет со своей женой Марией и младенцем Иисусом после визита волхвов, потому что они узнали, что царь Ирод намерен убить младенцев этой местности. Эпизод часто изображается в искусстве как заключительный эпизод Рождества Иисуса и был обычным компонентом в циклах (   Читать дальше...   )Производство: США / S. LubinЖанр: короткометражный, драма, немое киноРежиссер: нет сведенийАктеры: нет сведенийПеревод: немой с интертитрами (chayka2 (Феникс))Субтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:08:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF6C5070ADA20BEDA2B376FDD3DDB65892D10356
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773966   (71609) от 18.01.2025
+
+Альбатрос / L'Albatros (1971) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несколькими годами ранее, защищаясь от полицейского произвола при разгоне политической демонстрации, Стеф Тассель, по неосторожности, убивает полицейского. Проведя несколько лет в тюрьме, он совершает дерзкий побег. Его адвокат соглашается помочь ему покинуть страну, если он сможет добраться до границы. По пути ему приходится взять в случайные заложники Паулу, дочь (   Читать дальше...   )Производство: Франция / Balzac Films, Belstar Productions, ProfilmЖанр: триллерРежиссер: Жан-Пьер МокиАктеры: Жан-Пьер Моки, Мэрион Гейм, Пауль Мюллер, Андре Ле Галь, Рене-Жан Шоффар, Робер Берри, Мишель Бертэ, Рожер Корбо, Мишель Делаэ, Руди Ленуар, Жак Леви, Рожер Люмон, Марсель Перес, Френсис Терзьян, Агостино ВаскоПеревод: любительский одноголосыйЯзык озвучки: русский, французскийСубтитры: английскиеПродолжительность: 01:32:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:073201FC9AAF45BFA0B18A1AC51189EBFF11C938
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775618   (71423) от 27.01.2025
+
+Месть рыбачки / De wraak van het visschersmeisje (1914) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Энни ждет прибытия лодки с Хендриком. По прибытии она тепло его приветствует и отвозит домой к своей матери. Энни, желая узнать, что он привез, пытается открыть его чемодан, но он останавливает ее, говоря, что в нем опасная змея, которую он намерен продать в зоопарк. Они проводят счастливые дни вместе, пока в деревню не приезжает очаровательная цыганка и не привлекает (   Читать дальше...   )Производство: Германия / Filmfabriek HollandiaЖанр: драма, немое киноРежиссер: Jan van DommelenАктеры: Willem van der VeerПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:16:12Реклама: В кадре присутствует логотип киноархива
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86E5C4EFEC2D3FBDD90CEDA97A450D765CF2C62A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776114   (71345) от 30.01.2025
 
 Большой рэкет / Il grande racket (1976) BDRip [H.264] [VO]
@@ -6,7 +136,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71345.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71311.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71282.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71001.jpg" />
 </div>
 
 
@@ -111,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70998.jpg" />
 </div>
 
 
@@ -137,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70975.jpg" />
 </div>
 
 
@@ -163,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70898.jpg" />
 </div>
 
 
@@ -190,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70792.jpg" />
 </div>
 
 
@@ -216,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70761.jpg" />
 </div>
 
 
@@ -242,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70740.jpg" />
 </div>
 
 
@@ -268,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70724.jpg" />
 </div>
 
 
@@ -294,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70716.jpg" />
 </div>
 
 
@@ -320,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70631.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70531.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70340.jpg" />
 </div>
 
 
@@ -398,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70175.jpg" />
 </div>
 
 
@@ -424,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70086.jpg" />
 </div>
 
 
@@ -450,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69721.jpg" />
 </div>
 
 
@@ -476,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69460.jpg" />
 </div>
 
 
@@ -502,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69446.jpg" />
 </div>
 
 
@@ -528,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69287.jpg" />
 </div>
 
 
@@ -539,136 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:472307B1578D1E48883FF3E516E4296D8F8C103F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785607   (69231) от 16.03.2025
-
-Крушение в Северном море / Het wrak in de Noordzee (1915) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рыбацкая драма о любви дочери капитана и молодого рыбака. Их любовь оказывается под угрозой, другой рыбак, соперник за внимание девушки, топит лодку своего товарища, и добивается у отца девушки ее руки.Производство: Нидерланды / Amsterdam Film Cie.Жанр: драма, немое киноРежиссер: Тео ФренкельАктеры: Джули Мейер, Kees Lageman, Wilhelmina Kleij, Джаап Ван Дер Полл, Пит Фукс, Coen Hissink, Yard Van Staalduynen, Аф Баубер, Тибо Бижо мл., Уильям ФаассенПеревод: немой с интертитрамиСубтитры: французские (интертитры), русские отдельным файломПродолжительность: 01:12:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A6CA35F9C2AF43D0AAD009525AD365F3EEB35F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785999   (69100) от 19.03.2025
-
-Купидон в операционной / Operating on Cupid (1915) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эксцентричная фарс-комедия. В некой больнице врач-хирург влюбился в медсестру. Что ж, обычное дело, сплошь и рядом служебные романы. Но у барышни уже есть сердечный друг, отнюдь не медик. Он приходит в больницу, чтобы повидаться с любимой. Тут и разворачивается соперничество за юное сердце. В больничных интерьерах и с медицинским юморком.Производство: США / Nestor Film CompanyЖанр: короткометражный, комедия, немое киноРежиссер: Хорас ДэвейАктеры: Билли Родс, Рэй Галлахер, Нил БарнсПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:10:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:533C05A3244E7F115678AAEFE5686F8697E512B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786620   (68991) от 21.03.2025
-
-Последний день лета / Ostatni dzien lata / The Last Day of Summer (1958) BDRip [H.264] [POL / RU Sub]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68991.jpg" />
-</div>
-
-
-###  Подробнее
-
-На пустом балтийском пляже встретились двое – Он и Она. Они ничего не знают друг о друге. У неё последний день отпуска, последний день лета, скоро ей идти на вокзал. Она одинока и разочарована в жизни. А Он следит за прекрасной незнакомкой уже не первый день, безнадёжно влюбленный в неё. И вот они встретились. Кажется, сейчас начнётся оживлённый диалог, который может (   Читать дальше...   )Производство: Польша / Zespol Filmowy "Kadr"Жанр: драма, мелодрамаРежиссер: Тадеуш КонвицкийАктеры: Ирена Лясковска, Ян МахульскийПеревод: субтитрамиЯзык озвучки: польскийСубтитры: русские (pandoctor), английскиеПродолжительность: 01:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E691C22997AB816A53D2F3398F54776C99F009B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786466   (68980) от 21.03.2025
-
-Лили и богема / A Lily in Bohemia (1915) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой скрипач подорвал свое здоровье в вихре светской жизни и по совету врача отправился в деревню, чтобы на природе поправить здоровье. Познакомился там с местной красоткой Лили. Она такая вся естественная, патриархальная, неискушенная (щекастенькая такая). Он моментально влюбился, что свойственно музыкантам, женился и повез Лили в город. Но вот вопрос, как сможет (   Читать дальше...   )Производство: США / Vitagraph Company of AmericaЖанр: короткометражный, комедия, мелодрама, немое киноРежиссер: Вилфрид НортАктеры: Лиллиан Уолкер, Темплар Сакс, Evart Overton, Лиллиэн Барнс, Артур КозинеПеревод: немой с интертитрами (В. Сачков)Субтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:16:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FCD4CB850AC779192F415B17DE4082FCB549D11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786560   (68979) от 21.03.2025
-
-Ленни / Lenny (1974) BDRip [H.264] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сценарий написан по мотивам одноимённой пьесы Джулиана Барри... Фильм в псевдодокументальном стиле повествует о жизни Ленни Брюса (Леонарда Альфреда Шнайдера), известного американского юмориста и исполнителя, выступавшего в жанре «стендап-камеди» в 1950-1960-х годах. Ленни начал свою карьеру в ночных клубах и стал популярен благодаря резким и остроумным импровизациям. (   Читать дальше...   )Производство: США / Marvin Worth ProductionsЖанр: драма, биографияРежиссер: Боб ФоссАктеры: Дастин Хоффман, Валери Перрайн, Джэн Майнер, Стенли Бек, Фрэнки мэн, Рашель Новикофф, Гэри Мортон, Гай Ренни, Кэтрин Уитт, Монро Майерс, Джон ДиСанти, Мики Гэтлин, Мартин Бегли, Марк Харрис, Ричард ФридманПеревод: профессиональный многоголосый (Союз Видео), авторский (Юрий Сербин)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:51:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:901D64CFF5E3E25D9F578E162CDBF53334BE90AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

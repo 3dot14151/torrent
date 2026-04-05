@@ -1,29 +1,3 @@
-###  Публикация: 947025   (422472) от 15.10.2015
-
-С. Калюжный | Парники и теплицы. Строим и выращиваем (2014) [FB2]
-
->>Разное (категория книг)
->>Сад, огород, животноводство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Культивирование многих растений ввиду климатических условий в открытом грунте возможно только в течение непродолжительного времени. Поэтому многие владельцы приусадебных и дачных участков предпочитают возводить парники и теплицы. Данная книга содержит ценные сведения о видах парников и теплиц, об их конструктивных особенностях и способах возведения, а также методах (   Читать дальше...   )Жанр: Сад, огороФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE554A96CA192437B6F01BC11370F9004DE01E65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 947097   (420049) от 16.10.2015
 
 Иван Затевахин | Собаки и мы. Записки дрессировщика (2015) [FB2]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420049.jpg" />
 </div>
 
 
@@ -60,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415627.jpg" />
 </div>
 
 
@@ -87,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414067.jpg" />
 </div>
 
 
@@ -113,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410961.jpg" />
 </div>
 
 
@@ -139,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406553.jpg" />
 </div>
 
 
@@ -166,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403018.jpg" />
 </div>
 
 
@@ -192,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400974.jpg" />
 </div>
 
 
@@ -220,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396860.jpg" />
 </div>
 
 
@@ -246,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395773.jpg" />
 </div>
 
 
@@ -272,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395728.jpg" />
 </div>
 
 
@@ -298,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395709.jpg" />
 </div>
 
 
@@ -326,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395659.jpg" />
 </div>
 
 
@@ -352,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392774.jpg" />
 </div>
 
 
@@ -378,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392680.jpg" />
 </div>
 
 
@@ -404,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386768.jpg" />
 </div>
 
 
@@ -430,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382828.jpg" />
 </div>
 
 
@@ -456,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382763.jpg" />
 </div>
 
 
@@ -482,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377892.jpg" />
 </div>
 
 
@@ -508,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375453.jpg" />
 </div>
 
 
@@ -536,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374949.jpg" />
 </div>
 
 
@@ -562,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367930.jpg" />
 </div>
 
 
@@ -588,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367561.jpg" />
 </div>
 
 
@@ -614,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366302.jpg" />
 </div>
 
 
@@ -640,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365719.jpg" />
 </div>
 
 
@@ -666,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363083.jpg" />
 </div>
 
 
@@ -677,6 +651,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93965B29DF7BEE349EC1C5544B9E7975AC19C7AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 669004   (362322) от 18.10.2020
+
+Василий Лебедев | Руководство дрессировки военных и полицейских собак [1911] [PDF]
+
+>>Разное (категория книг)
+>>Сад, огород, животноводство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание 3-е, значительно дополненное, со многочисленными рисунками и портретом знаменитой русской собаки-ищейки Треф. Настоящее руководство составлено главным образом из методик лучших дрессеров германской полиции и в настоящее время служит обязательным учебным пособием в школе дрессировщиков, вполне успешно обучающих по этой книге служебных собак как для защитных (   Читать дальше...   )Жанр: Дрессировка, кинология (раритеты)Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB0BC951CC8047E1B1AA463309C5E3BF0C311CEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

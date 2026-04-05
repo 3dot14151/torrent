@@ -1,3 +1,58 @@
+###  Публикация: 1436434   (136621) от 31.12.2020
+
+CG Fast Track | Искусство освещения в Blender 2.83 / The Art of Lighting in Blender 2.83 (2020) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136621.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откройте для себя искусство освещения прекрасных цифровых миров в этой вводной серии уроков. Изучите эти мощные художественные приемы и применяйте их, создавая привлекательные рендеры в этой простой для понимания серии уроков.Производство: CG Fast TrackЖанр: 3D моделирование, ОсвещениеЯзык озвучки: АнглийскийПродолжительность: 04:11:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF799E1421086BA131E0E93BE33DBD945583FFFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679763   (135161) от 26.11.2023
+
+Анна Майорова | Человек. Курс по маслу (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135161.jpg" />
+</div>
+
+
+###  Подробнее
+
+Друзья, сегодня я подумала, что я могу записать для вас онлайн курс по маслу.
+Договорились с видеографами о съемке. Готовлю программу и сюжет. Хочется в очень уютном формате записать. Будет много смыслом и поддерживающей энергии от меня вам.
+
+В курсе много технической информации. Я подробно и от сердца делюсь приемами, которыми пользуюсь сама, и смыслами, которые (   Читать дальше...   )Жанр: РисованиеЯзык озвучки: РусскийПродолжительность: 08:52:36Реклама: Наложение на видео, видео вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:903DEA2FC2C0AC71FF5F5973581C223557C5202A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680196   (134453) от 28.11.2023
 
 Domestika, Alexander Steenhorst | Drawing the Human Figure & Expressive Poses (2023) WEB-DL [AD] [EN / EN, RU Sub]
@@ -6,7 +61,7 @@ Domestika, Alexander Steenhorst | Drawing the Human Figure & Expressive Poses (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134453.jpg" />
 </div>
 
 
@@ -34,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134398.jpg" />
 </div>
 
 
@@ -62,7 +117,7 @@ Hudozhnik Online, Полина Абдулаева | Практическая и�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134093.jpg" />
 </div>
 
 
@@ -89,7 +144,7 @@ ArtStation, Florian Neumann | Post Apocalyptic Knife - Game Asset Tutorial (2022
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134081.jpg" />
 </div>
 
 
@@ -118,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133706.jpg" />
 </div>
 
 
@@ -147,7 +202,7 @@ Udemy, Studio Wander | Complete Guide to Unreal Engine 5 : 3D Architecture & Des
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133623.jpg" />
 </div>
 
 
@@ -176,7 +231,7 @@ Stepik, Дмитрий Фокеев | Adobe After Effects 2023. С нуля до
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133567.jpg" />
 </div>
 
 
@@ -205,7 +260,7 @@ Bazanova Art, Ольга Базанова | Практика художника 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133389.jpg" />
 </div>
 
 
@@ -233,7 +288,7 @@ Enterclass, Илья Ибряев | Состояние неба. Пейзажи 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133343.jpg" />
 </div>
 
 
@@ -259,7 +314,7 @@ Bazanova Art, Ольга Базанова | Тёплые пейзажи. Тар�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133016.jpg" />
 </div>
 
 
@@ -288,7 +343,7 @@ Bazanova Art, Ольга Базанова | Практика художника.
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132971.jpg" />
 </div>
 
 
@@ -316,7 +371,7 @@ Gumroad, Polygonpen | Advanced Bottle Modeling and Rendering in Cinema 4D and Re
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132846.jpg" />
 </div>
 
 
@@ -345,7 +400,7 @@ Hudozhnik Online, Ника Сабрекова | «Цветные каранда�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132600.jpg" />
 </div>
 
 
@@ -374,7 +429,7 @@ Roman Mantra | Mantra PRO Ai. Вебинар по созданию нейроа�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132521.jpg" />
 </div>
 
 
@@ -403,7 +458,7 @@ Udemy, Manas Roy | ChatGPT and Adobe Firefly AI Course: Beginner to Pro Level (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132300.jpg" />
 </div>
 
 
@@ -431,7 +486,7 @@ Udemy, Build FX | Master Blender With AI Tools, Blender Addons & Unity (2023) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132265.jpg" />
 </div>
 
 
@@ -457,7 +512,7 @@ Liveclasses, Антон Мартынов | Генерация изображен
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132260.jpg" />
 </div>
 
 
@@ -484,7 +539,7 @@ Udemy, Bharat Sharma | Introduction to Sculpting in Blender for Absolute Beginne
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132259.jpg" />
 </div>
 
 
@@ -510,7 +565,7 @@ Udemy, Art Studio313 | Master 3D & 2D Hand Painting/Combine Blender & Photoshop 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132246.jpg" />
 </div>
 
 
@@ -538,7 +593,7 @@ my_revit | Revit interior (2023) WEB-DL [AD] [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132203.jpg" />
 </div>
 
 
@@ -567,7 +622,7 @@ Udemy, Benoit GOMES | Level design Masterclass : Theorizing before crafting (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132025.jpg" />
 </div>
 
 
@@ -595,7 +650,7 @@ Udemy, Meta Brains | Midjourney for Beginners: Embark on Your Artistic Journey (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131990.jpg" />
 </div>
 
 
@@ -621,7 +676,7 @@ Udemy, Markos Resvanis | Unreal Engine 5 Visual Novel and Narrative Game Design 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131947.jpg" />
 </div>
 
 
@@ -649,7 +704,7 @@ Udemy, Zeon Horizon | 3Ds Max MasterClass : Only 3D course that teaches everythi
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131919.jpg" />
 </div>
 
 
@@ -662,58 +717,6 @@ Udemy, Zeon Horizon | 3Ds Max MasterClass : Only 3D course that teaches everythi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:136244580422CDA31EA73F8FFF70B93902BEA6C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682214   (131752) от 06.12.2023
-
-Udemy, Rufana Zade | Master Brand Design: Graphic Masterclass - Time-Saving Steps (2023) WEB-DL [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправьтесь в преобразующее путешествие благодаря нашему мастер-классу по графическому дизайну — захватывающему опыту, призванному пролить свет на сложный мир создания брендов. На протяжении всего курса мы шаг за шагом знакомим вас с техниками, раскрываем мастерство графического дизайна и представляем экономящие время ярлыки для быстрых и эффективных результатов. (   Читать дальше...   )Производство: UdemyЖанр: ДизайнЯзык озвучки: АнглийскийПродолжительность: 01:19:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71711D7F2C0E8DDFE867A85BE8845C6B50E6BCD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682217   (131750) от 06.12.2023
-
-Udemy, Passive Income Gen Z | ChatGPT & DALL-E2 to Create a KDP Storybook for Children (2023) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раскройте потенциал своих стремлений к рассказыванию историй с помощью нашего комплексного курса «Мастерство создания сборников рассказов: ChatGPT и DALL-E2 Edition». Этот курс, предназначенный для начинающих авторов, стремящихся разобраться в сфере создания цифровых продуктов и пассивного дохода, предлагает прагматичный и пошаговый подход к созданию очаровательных (   Читать дальше...   )Производство: UdemyЖанр: ДизайнЯзык озвучки: АнглийскийПродолжительность: 00:59:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE00CB8C9712F081B8046ED2467358D5BA46E846
 ```
 
 https://mybot314.ru/tekegram_catalog/

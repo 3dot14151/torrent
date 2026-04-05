@@ -1,3 +1,159 @@
+###  Публикация: 1283244   (731452) от 18.02.2019
+
+AAct 4.0 Portable [Ru/En]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731452.jpg" />
+</div>
+
+
+###  Подробнее
+
+AAct - KMS-активатор для операционных систем Windows VL редакций: Vista, 7, 8, 8.1, 10, Server 2008, 2008 R2, 2012, 2012 R2, 2016 а также Office 2010, 2013, 2016, 2019. Возможна активация Office 2010 VL на Windows XP. Программа написана с применением оригинальных технологий и реализует другую, отличную от обычной, идеологию конструирования подобных программных средств. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAEFFB9390557604EF8C58B97CD48968CF60112D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529768   (731384) от 08.02.2022
+
+Meta допустила уход Facebook и Instagram из ЕС из-за европейских стандартов
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_731384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Корпорация Meta допускает возможность прекращения работы принадлежащих ей соцсетей Facebook и Instagram на территории Евросоюза, следует из ежегодного отчета компании для Комиссии по ценным бумагам и биржам США.Как отмечается в документе, такое решение может быть обусловлено принятием в ЕС законодательства, согласно которому данные жителей сообщества должны быть (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529657   (731376) от 08.02.2022
+
+Сдать автомобильный аккумулятор за деньги будет нельзя.    За это придется заплатить сбор
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_731376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отлаженная годами схема скупки автомобильных аккумуляторов у населения может рухнуть уже с 1 марта. Тогда вступают в силу новые правила сбора и утилизации отработанных свинцово-кислотных аккумуляторов. Сейчас АКБ у населения скупают небольшие фирмы – непосредственно за деньги или за скидку на покупку новой батареи. Затем фирмы продают эти аккумуляторы перерабатывающим (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 158084   (731367) от 08.02.2022
+
+Чудо (2009) DVDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731367.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основу фильма положены реальные события, произошедшие в Самаре в 1956 году и известные как «Стояние Зои». Во время праздника в Доме культуры девушка, не дождавшись своего суженого, снимает со стены икону Николая Чудотворца и начинает с ней танцевать, но внезапно застывает на месте. Это стояние продолжается много месяцев. Жители провинциального городка напуганы (   Читать дальше...   )Производство: РоссияЖанр: ДрамаРежиссер: Александр ПрошкинАктеры: Константин Хабенский, Сергей Маковецкий, Полина Кутепова, Виктор Шамиров, Сергей Новиков, Виталий Кищенко, Анна Уколова, Вячеслав Степанян, Илона АрсентьеваПеревод: ОригинальныйПродолжительность: 01:50:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B376934EF8B447C021E9FCDCDAF765DA15FBA48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127418   (731364) от 21.04.2017
+
+Защитники (2017) BDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во времена Холодной войны секретная организация «Патриот» создала отряд супергероев, в который вошли участники из различных советских республик. Долгие годы героям приходилось скрывать свою сущность, однако в тяжелые для страны времена они вновь берутся за дело.Производство: РоссияЖанр: Фантастика, Фэнтези, Боевик, ПриключенияРежиссер: Сарик АндреасянАктеры: Антон Пампушный, Санжар Мади, Себастьян Сисак, Алина Ланина, Станислав Ширин, Валерия Шкирандо, Вячеслав Разбегаев, Александр Семенов, Владимир Бутенко, Мила МаксимоваПеревод: Не требуется, русский (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:28:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2C907F529D5554B663D263DF0B590CEE2CB873F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127115   (731363) от 21.04.2017
+
+Windows 10 будет подавлять фоновые приложения
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_731363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Некоторые приложения созданы таким образом, что они потребляют много ресурсов, даже находясь в фоновом режиме. Очевидно, что это негативно сказывается на времени работы устройств без подзарядки.Для борьбы с этой проблемой в новой сборке Windows 10, предназначенной для инсайдеров, появилась функция Power Throttling, которая сводит к минимуму активность процессора (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127409   (731361) от 21.04.2017
 
 Защитники (2016) BDRemux [H.264/1080p]
@@ -6,7 +162,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731361.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_731357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_731357.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731348.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Grand Theft Auto IV (2008) [Ru/Multi] (1.0.4.0) Repack/Mod firstlast2
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731345.jpg" />
 </div>
 
 
@@ -111,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731343.jpg" />
 </div>
 
 
@@ -137,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731342.jpg" />
 </div>
 
 
@@ -164,7 +320,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4366.1000 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731265.jpg" />
 </div>
 
 
@@ -190,7 +346,7 @@ Call of Duty: Modern Warfare 3 (2011) [Ru] (2.7.3.11/dlc) Rip TeknoGods
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731261.jpg" />
 </div>
 
 
@@ -216,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731259.jpg" />
 </div>
 
 
@@ -242,7 +398,7 @@ Microsoft® Windows® 8.1 Professional VL with Update 3 x86-x64 Ru by OVGorskiy�
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731258.jpg" />
 </div>
 
 
@@ -268,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731257.jpg" />
 </div>
 
 
@@ -295,7 +451,7 @@ Bakemonogatari / Bake monogatari / Истории чудовищ [2009, 15 из 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_731196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_731196.jpg" />
 </div>
 
 
@@ -321,7 +477,7 @@ Avid Studio 1.0 \ Pinnacle Studio 15 \ Content Light 1.0 \ SmartSound Collection
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_731194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_731194.jpg" />
 </div>
 
 
@@ -347,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_731171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_731171.jpg" />
 </div>
 
 
@@ -373,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_730496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_730496.jpg" />
 </div>
 
 
@@ -399,7 +555,7 @@ NVIDIA отказалась от покупки Arm — разработчик �
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_730459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_730459.jpg" />
 </div>
 
 
@@ -425,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_730428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_730428.jpg" />
 </div>
 
 
@@ -451,7 +607,7 @@ Subnautica (2018) [Ru/Multi] (61056) Repack R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730427.jpg" />
 </div>
 
 
@@ -477,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_730422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_730422.jpg" />
 </div>
 
 
@@ -505,7 +661,7 @@ Acronis Disk Director 12 Build 12.5.163 RePack by KpoJIuK [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730418.jpg" />
 </div>
 
 
@@ -516,163 +672,6 @@ Acronis Disk Director 12 — это набор мощных инструмент
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3790BC42F6231C92824706A0FED1E2A547A34C70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520814   (730323) от 09.02.2022
-
-Не смотрите наверх / Don't Look Up (2021) WEB-DL [H.264/720p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Астрономы открывают новую комету и, рассчитав её траекторию, узнают, что через полгода она столкнётся с Землёй, что положит конец существованию человечества и всего живого на планете. Двое учёных с трудом добиваются аудиенции у президента США, но там к их предупреждению относятся с недоверием, тогда они выступают в популярной телепередаче, но большинство всё равно (   Читать дальше...   )Производство: CША / Bluegrass Films, Hyperobject IndustriesЖанр: Драма, фантастика, комедияРежиссер: Адам МакКейАктеры: Леонардо ДиКаприо, Дженнифер Лоуренс, Мэрил Стрип, Джона Хилл, Кейт Бланшетт, Роб Морган, Марк Райлэнс, Тайлер Перри, Тимоти Шаламе, Рон ПерлманПеревод: Дублированный, многоголосый профессиональный, авторскийСубтитры: Русские (forced х2, full), украинские (forced х2, full), английские, французские, немецкие, испанские, китайскиеПродолжительность: 02:23:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB6EF035AEED1DD4BDEC24AB2B8A5B7CD29C29CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127209   (730264) от 22.04.2017
-
-Проекты - VideoHive - Made of Love - Romantic Slideshow - 19654947 [AEP]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот романтический шаблон AE может помочь вам создать винтажный свадебный фильм, видеоролик о любви, поздравление с Днем рождения или любое другое ретро-слайд-шоу. С его модульной структурой и подробным видео-уроком вы можете сделать это с легкостью.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34FBE39333FA4DE2E9E062A4179FD4DCDA7CF9FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127312   (730256) от 22.04.2017
-
-Microsoft не разрешили искать пиратские копии своего ПО на российских ПК
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_730256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Суды отказали Microsoft в проверке факта пиратства в российских компаниях
-Несколько российских судов отклонили просьбы Microsoft на проверку компьютеров российских компаний на предмет пиратства, где число сотрудников превышает количество выданных лицензий на программное обеспечение корпорации, пишут «Известия».По мнению российских судов, несоответствие количества (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127727   (730247) от 22.04.2017
-
-Набор обновлений UpdatePack7R2 для Windows 7 SP1 и Server 2008 R2 SP1 17.4.20 [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор позволяет обновлять рабочую систему, а также интегрировать обновления в дистрибутив. Может быть установлен на любую редакцию Windows 7 и Server 2008 R2, любой разрядности и любого языка. Включены обновления для всех версий Internet Explorer, все критические, рекомендуемые и обновления безопасности. Смотрите подробности в списке обновлений.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD6D7384F67B1C216DB0762C109E5E6F9FB1924C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127624   (730241) от 22.04.2017
-
-Adobe After Effects CC 2017.2 14.2.0.198 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730241.jpg" />
-</div>
-
-
-###  Подробнее
-
-After Effects CC — это ведущая в отрасли программа для создания и компоновки анимированной графики, которую используют многие разработчики визуальных эффектов и анимированной графики. Она предлагает великолепные функции управления, широкий выбор инструментов для творчества, а также возможность интеграции с другими приложениями для постобработки видеоматериалов. Сделайте (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE797B579F350570CB3D0C4F8ED9C07D14A42F35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127566   (730239) от 22.04.2017
-
-CorelDRAW Graphics Suite 2017 19.0.0.328 (x64) Retail [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Непревзойденные возможности CorelDRAW Graphics Suite 2017 в сочетании с вашими творческими способностями — прекрасная основа для проектов по созданию макетов, разработке веб-сайтов и редактированию фотографий. Пакет оснащен расширенной поддержкой Windows 10, мультидисплейным режимом просмотра и поддержкой мониторов 4K. Продукт позволяет дизайнерам самых разных уровней (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F8B5F56805AC0DA4DAF64E15C8E18C4294F5448
 ```
 
 https://mybot314.ru/tekegram_catalog/

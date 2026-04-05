@@ -1,3 +1,29 @@
+###  Публикация: 1066964   (379715) от 01.11.2016
+
+Радислав Гандапас | Самоменеджмент и самомотивация (2014) DVDRip [H.264]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379715.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Как заставить себя начать новое дело?», «Как приобрести уверенность в себе и своих силах?», «Где найти силы продолжать начатое?». Эти и другие подобные вопросы задаются постоянно. И их авторы вовсе не подростки или неудачники. Большинство - довольно успешные менеджеры, собственники бизнеса и иногда даже политики. Темы самодисциплины, управления своим поведением, (   Читать дальше...   )Жанр: Практическая психология, Личностный ростПродолжительность: 00:56:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E932B8DB1F92F78E221D77765DFFD1DD81394778
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1067003   (379711) от 01.11.2016
 
 Алекс Яновский, Брайан Трейси | Код успеха (2013) DVDRip [H.264]
@@ -6,7 +32,7 @@
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379711.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ Hristo Velev | Thinking Particles. Часть 2 - Промежуточные к�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378589.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Skillshare, 3D Tudor | Unreal Engine 5 Beginners Guide to Building an Environmen
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378586.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ Mzed | Alex Buono's Visual Storytelling 2 (2015) WEB-DL [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378545.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Joshua Kinney | Map Baking Techniques for Games in 3ds Max (2014) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378414.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ Emiel Sleegers | Mechanical Assets in 3ds Max Volume 3 (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378412.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ Emiel Sleegers | Mechanical Assets in 3ds Max Volume 2 (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378408.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ Megan Davies | Clean Week (2017) HDTVRip [H.264/720p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378319.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ Emiel Sleegers | Mechanical Assets in 3ds Max Volume 1 (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378246.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ Joshua Kinney | Automotive Modeling in 3ds Max (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378238.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378178.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378174.jpg" />
 </div>
 
 
@@ -328,7 +354,7 @@ Udemy | The Complete Angular Course: Beginner to Advanced (2017) PCRec [H.264/72
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378061.jpg" />
 </div>
 
 
@@ -356,7 +382,7 @@ Tim Bergholz | Mech Tutorial Complete Edition (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378016.jpg" />
 </div>
 
 
@@ -382,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378014.jpg" />
 </div>
 
 
@@ -411,7 +437,7 @@ Academind Pro | Vue 3 - Полное руководство (включая Rout
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378004.jpg" />
 </div>
 
 
@@ -440,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377987.jpg" />
 </div>
 
 
@@ -466,7 +492,7 @@ Eltray.com | Зануление и заземление [2011] PCRec
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377980.jpg" />
 </div>
 
 
@@ -492,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377969.jpg" />
 </div>
 
 
@@ -519,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377912.jpg" />
 </div>
 
 
@@ -547,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377731.jpg" />
 </div>
 
 
@@ -575,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377718.jpg" />
 </div>
 
 
@@ -602,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377473.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377121.jpg" />
 </div>
 
 
@@ -659,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377031.jpg" />
 </div>
 
 
@@ -671,35 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45EABDABC9DA60CF3277D919330575D45251E45B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947911   (376875) от 23.10.2015
-
-Гавриил и Татьяна Ждановы | Здравый Квас (2013) CamRip
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шаг за шагом мы научим Вас, как самим приготовить у себя дома бездрожжевые квасные напитки!
-
-В данном курсе Гаврила и Татьяна Ждановы передают знания, наработанные ими за много лет. Благодаря этому вам не придётся заниматься поиском необходимых ответов на возникающие вопросы о приготовлении домашних квасов, ведь все ответы находятся здесь – в одном видеокурсе!
-(   Читать дальше...   )Жанр: КвасПродолжительность: 01:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15B5C41AA82F14C2C6A6CDF393A1D90D580FD55F
 ```
 
 https://mybot314.ru/tekegram_catalog/

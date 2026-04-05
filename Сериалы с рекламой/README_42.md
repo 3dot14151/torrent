@@ -1,3 +1,55 @@
+###  Публикация: 1339052   (143917) от 27.12.2019
+
+Ради всего человечества / For All Mankind (2019) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-10 из 10) AMS [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это увлекательная альтернативная версия истории о космической гонке, в которой человечество все еще одержимо мечтами о покорении космоса. Представьте себе мир, в котором космическая гонка так и не закончилась. С первых минут нам демонстрируют альтернативную историю, в которой СССР первой высадилась на Луну, а американцы проиграли, но не сдаются. Главные герои драматического (   Читать дальше...   )Производство: США / Sony Pictures Television, Tall Ship ProductionsЖанр: фантастика, драмаРежиссер: Аллен Култер, Сет Гордон, Мира МенонАктеры: Юэль Киннаман, Майкл Дорман, Джоди Бальфур, Ренн Шмидт, Сара Джонс, Шантель Ван Сантен, Кристофер Бауэр, Артуро дель Пуэрто, Соня Уолгер, Крис Маршалл и др.Перевод: Многоголосый профессиональный - AMS (Adiós Muchachos Studio)Субтитры: русские, английскиеПродолжительность: ~01:05:00 серияРеклама: присутствуют аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6F987CE8D87D795C6842BCC2ED313BFE1117770
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078290   (143509) от 28.12.2016
+
+Берлинская резидентура (Берлинский отдел / База "Берлин") / Berlin Station (2016) HDTVRip (сезон 1, серии 1-10 из 10) SunshineStudio [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой сериала Даниэль Мейер, недавно получивший должность следователя, прибывает в резидентуру ЦРУ в Берлине, чтобы раскрыть источник утечки, который снабжает информацией доносчика. Под руководством опытного следователя-ветерана Гектора ДеЖана — упрямого агента с мрачным очарованием, который работает на шефа резидентуры Стивена Фроста — Дэниел учится правилам (   Читать дальше...   )Производство: США, Германия / Paramount Television, Anonymous ContentЖанр: триллерРежиссер: Джузеппе Капотонди, Джон Дэвид Коулз, Михаэль Р. РоскамАктеры: Ричард Армитедж, Ричард Диллэйн, Мишель Форбс, Рис Иванс, Эрл Винсент Шервуд II, Ричард Дженкинс, Лиленд Орсер, Роджер Рингроуз, Бернхард Шюц, Тэмлин Томита и др.Перевод: Многоголосый закадровый, любительский | SunshineStudioПродолжительность: ~00:55:00 серияРеклама: присутствуют аудио и видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BAD504F05393D650B1B24D945BBF2DCF51B4E8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678699   (143177) от 22.11.2023
 
 Выгодное предложение / Торг / Momgaps / Bargain (2022-2023) WEB-DLRip (сезон 1, серии 1-6 из 6) ViruseProject [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143177.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143006.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142323.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142294.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142235.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142060.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141936.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141658.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141297.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140959.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140908.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140781.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140338.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140162.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140094.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140010.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139964.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139942.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139250.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138893.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138866.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138437.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137409.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137264.jpg" />
 </div>
 
 
@@ -625,61 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7A8EB26B32E00B6229C0F67D3FE453294F35BBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436396   (137118) от 31.12.2020
-
-Чёрный детектив / Serie Noire (2016) WEB-DLRip (сезон 2, серии 1-10 из 10) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137118.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы думали, всё закончилось? Вы заблуждались. Патрик и Дени ещё не дописали сценарий второго сезона "Закона и Правосудия". Банда "Крутые Гейские Яйца" обезглавлена, но ещё не уничтожена. Шарлен ещё не совсем скрылась в закате со своим дружком Грегори. Дени ещё не потерял надежды вернуть жену и дочь.
-Полюбившиеся герои возвращаются во втором сезоне. (   Читать дальше...   )Производство: Канада / Productions CasablancaЖанр: драма, комедия, криминалРежиссер: Жан-Франсуа РиварАктеры: Франсуа Летурно, Винсан-Гийом Отис, Эдит Кокрейн, Марк Бопре, Bernard Derome, Анн-Элизабет Боссе, Charlie Laplante, Луиз Бомбардье, Ги Надон, Хьюго Дюбэ и д.р.Перевод: Двуголосый закадровый (ViruseProject)Субтитры: русские (отдельно)Продолжительность: ~00:45:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B456385F1E8918D03B3ABAD889B5EB4B588D7A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436385   (137060) от 31.12.2020
-
-Чёрный детектив / Serie Noire (2014) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-12 из 12) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Героем "Чёрного детектива", стиля, ставшего особенно популярным после второй мировой войны, редко бывает некий гениальный следователь. Чаще всего это обычный человек, попавший в необычную ситуацию. Поэтому многие считают, что написать произведение в стиле "чёрного детектива" совершенно несложно.
-
-Именно эту ошибку совершили два начинающих сценариста, (   Читать дальше...   )Производство: Канада / Productions CasablancaЖанр: драма, комедия, криминалРежиссер: Жан-Франсуа РиварАктеры: Франсуа Летурно, Винсан-Гийом Отис, Эдит Кокрейн, Марк Бопре, Bernard Derome, Анн-Элизабет Боссе, Charlie Laplante, Луиз Бомбардье, Ги Надон, Хьюго Дюбэ и д.р.Перевод: Двуголосый закадровый (ViruseProject)Субтитры: Русские, английские, французские (full, SDH)Продолжительность: ~00:45:00 серияРеклама: Присутствуют аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9504D686FC0EE4592FAE133E074769419D82882C
 ```
 
 https://mybot314.ru/tekegram_catalog/

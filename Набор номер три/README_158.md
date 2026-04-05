@@ -1,3 +1,163 @@
+###  Публикация: 773097   (832228) от 04.04.2014
+
+Cubase LE AI Elements 7.0.6 build 2231 [En]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cubase Elements 7 является отличным выбором для начинающих продюсеров и музыкантов, ищущих полный пакет ПО, который предлагает множество функций прямо из коробки.
+
+Новые микшерные возможности включают MixConsole, масштабируемость, высокое качество звука (96 кГц) и гибкость маршрутизации. Микшер теперь открывается на всю высоту, как и в полной версии Cubase. Новый (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2463837AE3A004D4A57E430A5A54995C761EFDED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 762887   (832226) от 04.04.2014
+
+Кухня (2014) WEB-DLRip (Сезон 3, Серии 1-20 из 20)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой Максим Лавров — выпускник Воронежского кулинарного колледжа — одержим мечтой: стать знаменитым шеф-поваром. Для этого он отправляется в Москву, чтобы устроиться в известнейший и популярный ресторан «Клод Моне», хозяином которого является «звезда» шоу-бизнеса. Шеф-повар ресторана «Клод Моне» — знаменитый на всю Москву Виктор Баринов. Властный, харизматичный, (   Читать дальше...   )Жанр: КомедияРежиссер: Дмитрий ДьяченкоАктеры: Никита Тарасов, Дмитрий Назаров, Марк Богатырев, Дмитрий Нагиев, Юлия Такшина, Елена Подкаминская, Марина Могилевская, Сергей Лавыгин, Виктор Хориняк, Сергей Епишев, Ольга Кузьмина, Екатерина Кузнецова (IV), Михаил Тарабукин, Виктория Лукина, Елена Чернявская, Виталий Щанников, Сергей Беляев, Роман Индык, Евгения ХраповицкаяПродолжительность: 20 x ~ 00:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BF38708FBC01FE5ED3A77EFDE981212F4C8E580
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005502   (832056) от 09.04.2016
+
+Advanced Systemcare Pro 9.2.0.1110 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Advanced SystemCare проставляет собой средство оптимизации работы системы с антишпионом, защитой конфиденциальных данных, средствами для настройки производительности компьютера и очистки системы.
+Мощный инструмент оптимизации исправляет серьезные ошибки в системе, оптимизирует Интернет-соединение и скорость загрузки, в Pro-версии автоматически поддерживает максимальную (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25663E20F01C8B4F1001A98BB99132A5926D519E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005526   (832049) от 09.04.2016
+
+Sticky Password Premium 8.0.7.78 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sticky Password сохраняет и защищает все ваши персональные данные (например, пароли, имена пользователей, номера интернет-пейджеров, контактные данные, номера телефонов и т. д.). Sticky Password связывает пароли и учетные записи с программами Microsoft Windows или веб-страницами, для которых они используются.
+Вся информация в зашифрованном виде хранится в базе паролей, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6536A891621033F2A95E38B5CCF0FD1EEC75D4B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005449   (831950) от 09.04.2016
+
+Выживший / The Revenant (2015) BDRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Охотник Хью Гласс серьезно ранен на неизведанных просторах американского Дикого Запада. Товарищ Хью по отряду покорителей новых земель Джон Фицжеральд предательски оставляет его умирать в одиночестве. Теперь у Гласса осталось только одно оружие — его сила воли. Он готов бросить вызов первобытной природе, суровой зиме и враждебным племенам индейцев, только чтобы выжить (   Читать дальше...   )Производство: США / Anonymous Content, Appian Way, New Regency PicturesЖанр: Триллер, Драма, Приключения, ВестернРежиссер: Алехандро Гонсалес Иньярриту / Alejandro Gonzlez IrrituАктеры: Леонардо ДиКаприо, Том Харди, Донал Глисон, Уилл Поултер, Пол Андерсон, Лукас Хаас, Брэд Картер, Кристоффер Йонер, Брендан Флетчер, Хавьер Ботет, Кори Грим, Роберт Молони, Винсент Леклерк, Джошуа Бёрдж, МакКалеб Барнетт, Рэй Чейз, Тимоти Лайл, Эдриан Макморран, Дэйв Бурчилл, Майкл ВилларПеревод: Дублированный, Авторский одноголосыйСубтитры: Русские, английские (форсированные и полные)Продолжительность: 02:36:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9C8019A0F1F16A466216DFE0861370F02537E05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005006   (831944) от 09.04.2016
+
+Crysis (2007) [Ru] (1.2.1) Repack/Mod Agastan [HD Edition]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Люди не раз представляли конец света, приписывая роковую роль палача то наводнению, то страшной болезни, то ядерной войне. На деле все получилось несколько экзотичнее. Рухнувший на один из отдаленных островов астероид оказался огромным космическим кораблем, способным полностью изменить климат Земли.Тип издания: Repack / ModРазработчик: CrytekЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53BC29B9433B2D5BEB06C9F13D3EE0E52B6240EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005619   (831943) от 09.04.2016
 
 Доверие / The Trust (2016) HDRip
@@ -6,7 +166,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831943.jpg" />
 </div>
 
 
@@ -32,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831941.jpg" />
 </div>
 
 
@@ -58,7 +218,7 @@ AOMEI Backupper Professional 3.2 [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831940.jpg" />
 </div>
 
 
@@ -84,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831939.jpg" />
 </div>
 
 
@@ -110,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831938.jpg" />
 </div>
 
 
@@ -136,7 +296,7 @@ Ubuntu Mint Mate rel22.0.31 для дома и для игр + ядро 4.4 + Wi
 >>20
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831936.jpg" />
 </div>
 
 
@@ -165,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831921.jpg" />
 </div>
 
 
@@ -191,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831553.jpg" />
 </div>
 
 
@@ -218,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831548.jpg" />
 </div>
 
 
@@ -244,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831546.jpg" />
 </div>
 
 
@@ -270,7 +430,7 @@ CleanMyMac X 4.8.9 [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831541.jpg" />
 </div>
 
 
@@ -296,7 +456,7 @@ Windows 11 Pro x64 21H2.22000.194 [GX 05.10.21] by geepnozeex (G.M.A) [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831539.jpg" />
 </div>
 
 
@@ -322,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831533.jpg" />
 </div>
 
 
@@ -348,7 +508,7 @@ Homeworld Remastered Collection (2015) [Ru/Multi] (1.23) SteamRip R.G. Игро�
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831029.jpg" />
 </div>
 
 
@@ -374,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830991.jpg" />
 </div>
 
 
@@ -400,7 +560,7 @@ AnyMote Smart Remote + WiFi v4.3.9 [Multi] - управления через и�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830979.jpg" />
 </div>
 
 
@@ -426,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830969.jpg" />
 </div>
 
 
@@ -452,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830967.jpg" />
 </div>
 
 
@@ -478,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830854.jpg" />
 </div>
 
 
@@ -504,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>16
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830758.jpg" />
 </div>
 
 
@@ -515,164 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376478   (830756) от 04.05.2020
-
-Adobe Photoshop 2020 v21.1.2.136 (x64) RePack by SanLex [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop — лучшее в мире ПО для графического дизайна и обработки изображений, которое воплотит в реальность любые ваши идеи. Создавайте и улучшайте фотографии, иллюстрации и графические 3D-объекты. Разрабатывайте дизайн веб-сайтов и мобильных приложений. Редактируйте видео, моделируйте живые картины и т. д. Теперь у вас есть все необходимое для реализации (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0F05133436E845A989EB74F480AFA62487ADC82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350023   (830751) от 04.05.2020
-
-Deus Ex: Human Revolution (2013) [Ru/Multi] (2.0/dlc) Repack xatab [Director's Cut]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший оперативник Адам Дженсен занимал пост начальника охраны одной из крупнейших мировых корпораций, специализирующейся на биотехнологиях. И все шло хорошо, пока однажды офис компании не подвергся нападению. Большинство ученых погибло, а сам Адам был тяжело ранен. Чтобы сохранить ему жизнь, руководство приняло решение подвергнуть его механическому усовершенствованию.Тип издания: RepackРазработчик: Eidos MontrealЖанр: Action (Tactical), RPG, 3D, 1st Person, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0BBA2DC73DF571CAFF2D84F86D1604D794D3467
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004317   (830747) от 04.05.2020
-
-Re: Zero | Re: Zero kara Hajimeru Isekai Seikatsu | Re: Жизнь с нуля в другом мире [2016, TV + Movie, 25 эп. + 2 MV] WEB-DL 720p raw
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старшеклассник Нацуки Субару, геймер и домосед, особо не удивился, когда среди ночи вдруг оказался в фентезийном городе, полном странных существ. А чего бояться? Любой игрок знает, что по закону жанра в волшебном мире последний задохлик обрастает силами и способностями, а там и девушки подтянутся. Нацуки же не только чипсы ел за монитором, но и регулярно «качался». (   Читать дальше...   )Производство: студия White FoxЖанр: приключенияРежиссер: Ватанабэ МасахаруПеревод: #1 NT Subs (TV) + Big23 (SP) + zafhos (Movie 1) + SweetSweet & Rincewind (Movie 2); #2 HorribleSubs (TV)Язык субтитров: #1 Русский; #2 АнглийскийПродолжительность: 25 эп. по 25 мин. (первый эпизод - 50 мин., разбит на две части), фильмы - ~70 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AE98DE55DD0878A8DC3B7E9C1A7A86BDB047089
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367866   (830746) от 04.05.2020
-
-Мир Дикого запада /Westworld (2020) WEB-DL [H.264/720p] (сезон 3, серии 1-8 из 8) Кравец
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830746.jpg" />
-</div>
-
-
-###  Подробнее
-
-В третьем сезоне футуристического эпика создатели обещают поразить зрителя новым парком, посвященным Второй мировой войне. В актерском составе тоже любопытное пополнение — Аарон Пол, известный по роли Джесси Пинкмана в сериале «Во все тяжкие». Также к проекту присоединился Венсан Кассель, который сыграет, конечно же, злодея. Кроме прочего, новый сезон состоит из (   Читать дальше...   )Производство: США / Bad Robot, Jerry Weintraub Productions, Warner Bros. TelevisionЖанр: фантастика, триллер, вестернРежиссер: Джонатан Нолан, Джонни Кэмпбелл, Ричард Дж. ЛьюисАктеры: Эван Рэйчел Вуд, Тэнди Ньютон, Джеффри Райт, Аарон Пол, Джеймс Марсден, Бен Барнс, Ингрид Бульсё Бердал, Клифтон Коллинз мл., Люк Хемсворт, Сидсе Бабетт Кнудсен и др.Перевод: Дублированный (Кравец-Рекордз по заказу Amedia)Субтитры: русские (форсированные, полные), английскиеПродолжительность: ~01:05:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3666E08D39F2DA933B20FCAF78539D3F824104C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059260   (830745) от 04.05.2020
-
-Мир Дикого запада / Западный мир / Westworld (2016) HDTV [H.264/1080p-LQ] (сезон 1, серии 1-10 из 10) Кравец
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830745.jpg" />
-</div>
-
-
-###  Подробнее
-
-В футуристическом парке развлечений андроиды на фоне для исторических декораций становятся рабами людей, выполняя рутинные задания, пока в один момент сбой в программе не превращает их в опасных убийц.Производство: СШАЖанр: фантастика, триллер, вестернРежиссер: Джонатан Нолан, Джонни Кэмпбелл, Ричард Дж. ЛьюисАктеры: Энтони Хопкинс, Эд Харрис, Эван Рэйчел Вуд, Джеймс Марсден, Тэнди Ньютон, Джеффри Райт, Тесса Томпсон, Джимми Симпсон, Родриго Санторо, Шеннон Мари Вудворд и др.Перевод: Дублированный - Студия "Кравец" по заказу AmediaЯзык субтитров: русский, английскийПродолжительность: ~ 01:05:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00658A6CACDDD5FD51D554572CB19637A542D376
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 773389   (830407) от 05.04.2014
-
-SamDrivers 14.4 - Сборник драйверов для Windows(DriverPack Solution 14.0.412/Drivers Installer Assistant 5.12.30/Snappy Driver Installer 0.1.44) [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник драйверов от SamLab.ws для всех 32-х и 64-битных операционных систем Windows от Windows 2000 до Windows 8.1 Update 1 включая серверные платформы.
-В качестве оболочек-установщиков для автоопределения вашего оборудования и автоматической установки необходимых драйверов использованы специальные программы:
-DriverPack Solution 14.4 Revision 412 / Drivers Installer (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9D072BFA395C64969D19F583545BDDD6A641F42
 ```
 
 https://mybot314.ru/tekegram_catalog/

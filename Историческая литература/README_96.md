@@ -1,29 +1,3 @@
-###  Публикация: 1782838   (25980) от 02.03.2025
-
-М. Григорян, В. Ерофеев (ред.) | Масоны. Большая энциклопедия в 2-х томах (2007) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25980.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Большая энциклопедия. Масоны*» дает полное и подробное описание самого могущественного в мире тайного общества — Ордена вольных каменщиков. Интерес к его деятельности не угасает вот уже 300 лет. Кто из великих мира сего был масоном? Какую роль сыграла эта организация в мировой истории, политике, в судьбах людей? В книге вы найдете описание деятельности самых ярких (   Читать дальше...   )Жанр: Энциклопедии. Тайные общества. Масонство. Исторические исследования, Религии культыИздательство: ГелеосФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60B439EFF8F02F6CC07576DE97E8A209C0F000D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784515   (25032) от 11.03.2025
 
 Ирина Глущенко | Общепит. Микоян и советская кухня (2019) [PDF]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25032.jpg" />
 </div>
 
 
@@ -60,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24799.jpg" />
 </div>
 
 
@@ -86,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24296.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24142.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23646.jpg" />
 </div>
 
 
@@ -165,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23550.jpg" />
 </div>
 
 
@@ -191,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23523.jpg" />
 </div>
 
 
@@ -217,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22142.jpg" />
 </div>
 
 
@@ -243,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21961.jpg" />
 </div>
 
 
@@ -269,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20082.jpg" />
 </div>
 
 
@@ -297,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19674.jpg" />
 </div>
 
 
@@ -323,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18342.jpg" />
 </div>
 
 
@@ -349,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17871.jpg" />
 </div>
 
 
@@ -375,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15965.jpg" />
 </div>
 
 
@@ -401,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15899.jpg" />
 </div>
 
 
@@ -427,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15476.jpg" />
 </div>
 
 
@@ -454,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15369.jpg" />
 </div>
 
 
@@ -481,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14082.jpg" />
 </div>
 
 
@@ -508,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10283.jpg" />
 </div>
 
 
@@ -534,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10162.jpg" />
 </div>
 
 
@@ -561,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9990.jpg" />
 </div>
 
 
@@ -587,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9870.jpg" />
 </div>
 
 
@@ -614,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9843.jpg" />
 </div>
 
 
@@ -640,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9346.jpg" />
 </div>
 
 
@@ -666,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9330.jpg" />
 </div>
 
 
@@ -678,6 +652,34 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:236286337A6A6C633A97458335E397057A5FC280
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812375   (7924) от 14.08.2025
+
+Алексей Исаев, Артём Драбкин | Великая Отечественная война 1941–1945 гг. Самая полная иллюстрированная энциклопедия (2023) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальная иллюстрированная энциклопедия от ведущих военных историков Алексея Валерьевича Исаева и Артёма Владимировича Драбкина. Самый полный иллюстрированный путеводитель по событиям 1941—1945 гг.
+
+Великая Отечественная до сих пор остаётся во многом «Неизвестной войной». Несмотря на большое количество книг об отдельных сражениях, самую кровопролитную войну в истории (   Читать дальше...   )Жанр: военная история, исторические исследования, научно-популярная литература, энциклопедииИздательство: ЯузаФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2427A0F04F871F6AAB5684C22A9661F3AD67E1F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

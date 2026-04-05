@@ -1,3 +1,56 @@
+###  Публикация: 538987   (494750) от 05.09.2012
+
+Dark Souls: Prepare To Die Edition [En/Ru/Multi9] (Repack/1.0.0.1+FIX 0.8) 2012 | R.G. Catalyst
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправляйтесь в мрачный и суровый мир, наполненный отчаяньем. Ваша судьба будет зависеть от умения правильно оценивать ситуацию и выстраивать стратегию поведения, быстро обучаться и быть непредсказуемым. Dark Souls потребует от вас абсолютной концентрации и будет сурово наказывать за ошибки. Однако умирая вы будете становиться сильнее!
+Каждое испытание представляет собой головоломку с бесконечным количеством решений. Вам пригодится, в первую очередь, умение стратегически мыслить, чтобы победить многочисленных противников и завершить свой путь..(   Читать дальше...   )Тип издания: RepackЖанр: Action / RPG / FantasyЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Русский, Немецкий, Французский, Испанский, Итальянский, Китайский, Корейский, Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9B5C697D8A7652CAA43280072ED3B11BF71D339
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315853   (494612) от 24.08.2020
+
+Divinity: Original Sin 2 / Divinity: Original Sin II (2017) [Ru/En] (3.6.69.4648/dlc) Repack xatab [Definitive Edition] (обновляемая)
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Долгожданное продолжение знаменитой ролевой игры, в котором вы сможете собрать свой отряд храбрецов, изучить проработанную тактическую систему боя и даже объединить силы еще с тремя друзьями. Но помните: лишь один из вас станет Богом. Бог мертв. Пустота надвигается. Великая сила, сокрытая внутри вас, готова к пробуждению. Битва за право стать Создателем началась. (   Читать дальше...   )Тип издания: RepackРазработчик: Larian StudiosЖанр: RPG, 3D, IsometricЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B39B233D77EA06190E52B3F9E7015CA53DD911D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1054928   (491433) от 20.09.2016
 
 Zenith (2016) [Ru/Multi] (1.0) License GOG
@@ -6,7 +59,7 @@ Zenith (2016) [Ru/Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491433.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru/Mu
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491258.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Animus - Stand Alone (2019) [Ru/Multi] (1.1.1) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488403.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ Tales of Hongyuan (2017) [En/Ch] (1.1.0/dlc) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487739.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ Sword Coast Legends (2015) [Ru/En] (1.0) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487416.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ The Legend of Heroes: Trails of Cold Steel (2017) [En/Jp] (1.0.6430.37816/dlc) L
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485395.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ Blue Horizon (2017) [Ru/Multi] (1.0) License HI2U
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485393.jpg" />
 </div>
 
 
@@ -188,7 +241,7 @@ Darkwood (2017) [Ru/Multi] (1.3) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484469.jpg" />
 </div>
 
 
@@ -214,7 +267,7 @@ Immortals Fenyx Rising (2020) [Ru/En] (1.1.1) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482039.jpg" />
 </div>
 
 
@@ -240,7 +293,7 @@ ATOM RPG: Post-apocalyptic indie game (2018) [Ru/En] (1.17/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480480.jpg" />
 </div>
 
 
@@ -266,7 +319,7 @@ Vestaria Saga II: The Sacred Sword of Silvanister (2022) [Multi] (1.13.6) Licens
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479965.jpg" />
 </div>
 
 
@@ -292,7 +345,7 @@ Windbound (2020) [Ru/Multi] (1.0.36896.31/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478516.jpg" />
 </div>
 
 
@@ -318,7 +371,7 @@ Tower of Time (2018) [Ru/Multi] (1.2.4.2473) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477644.jpg" />
 </div>
 
 
@@ -344,7 +397,7 @@ bit Dungeon II (2014) [En] (2.2) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474754.jpg" />
 </div>
 
 
@@ -370,7 +423,7 @@ Herolike (2016) [En] (1.0) License HI2U
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472368.jpg" />
 </div>
 
 
@@ -396,7 +449,7 @@ Hero Siege (2014) [En] (2.0.0.3/dlc) Unofficial VseTop [Digital Collector's Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471118.jpg" />
 </div>
 
 
@@ -422,7 +475,7 @@ Masquerada: Songs and Shadows (2016) [En] (0.95) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467874.jpg" />
 </div>
 
 
@@ -448,7 +501,7 @@ Hard West 2 (2022) [Ru/Multi] (1.0.0.0.4021/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467703.jpg" />
 </div>
 
 
@@ -474,7 +527,7 @@ Midnight Protocol (2021) [Ru/Multi] (1.3.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467698.jpg" />
 </div>
 
 
@@ -500,7 +553,7 @@ Paradise Killer (2020) [En] (1.0.8.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465849.jpg" />
 </div>
 
 
@@ -526,7 +579,7 @@ Vanaris Tactics (2022) [Multi] (1.01) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465742.jpg" />
 </div>
 
 
@@ -552,7 +605,7 @@ Two Worlds: Game Of The Year Edition [Ru] (RePack) 2008 | Spieler
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464338.jpg" />
 </div>
 
 
@@ -579,7 +632,7 @@ Dead State: Reanimated (2014) [Ru] (2.0.2.0002) Repack leve1ord
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463775.jpg" />
 </div>
 
 
@@ -605,7 +658,7 @@ Neverwinter Nights: Enhanced Edition (2018) [Multi] (78.8186/dlc) License CODEX 
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462693.jpg" />
 </div>
 
 
@@ -616,58 +669,6 @@ Neverwinter Nights: Enhanced Edition (2018) [Multi] (78.8186/dlc) License CODEX 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC042C3D81EE8B3038538F388D84F39BC6A14116
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407610   (461602) от 09.09.2020
-
-Kingdoms of Amalur: Re-Reckoning (2020) [Ru/Multi] (cs:6544/dlc) Repack Other s
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461602.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встречайте Kingdoms of Amalur: Re-Reckoning! Возвращение ролевой игры от писателя Р. Э. Сальваторе, сценариста Тодда Макфарлейна («Спаун») и дизайнера Кена Ролстона (Elder Scrolls IV: Oblivion). Вас ждут обновленная графика, улучшенный игровой процесс и огромный мир! Узнайте тайны Амалура: исследуйте оживленный Ратир, бескрайние просторы Далентарта и мрачные подземелья (   Читать дальше...   )Тип издания: RepackРазработчик: KAIKO, Big Huge GamesЖанр: Action, RPG (Open World), Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5BFB8D9535798F7B3C94E07265C257AF41103EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053001   (461260) от 04.10.2016
-
-Space Rogue (2016) [Ru] (1.1.7917) License GOG
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Space Rogue — игра про капитана космического корабля и его экипаж. Исследуйте космос, сражайтесь, помогайте другим или сами выступите в роли пирата. Найдите свою уникальную боевую тактику, соберите и прокачайте команду, модернизируйте свой корабль. Space Rogue объединяет элементы космического приключения и тактического боевого симулятораТип издания: LicenseРазработчик: Red BeatЖанр: Strategy, RPG, SandboxЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:018DAF9AAFC87766DDC9DA372AEE9416FD8015EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

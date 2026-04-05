@@ -1,3 +1,133 @@
+###  Публикация: 915738   (591758) от 06.07.2015
+
+Том и Джерри: Шпион Квест / Tom and Jerry: Spy Quest (2015) WEB-DLRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ещё один день на пляже для проблемной парочки, пока Том и Джерри не сталкиваются со шпионами Джонни Квестом, Хаджи и Бандитом. Когда давний враг семьи Квестов, доктор Зин, узнаёт о том, что у Бентона Квеста есть орудие решения энергетических проблем мира, он посылает армию злобных кошек украсть его и взять в плен Бентона вместе с охранником Рэйсом Бэнноном. Джонни (   Читать дальше...   )Производство: США / Warner Bros. AnimationЖанр: мультфильмРежиссер: Спайк Брандт, Тони ЧервонеПерсонажи: Риз ХартвигПеревод: профессиональный (многоголосый, закадровый) (iTunes)Продолжительность: 01:12:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28FE4637763245BA09B5C8B060FEA85F12FD2D3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915723   (591739) от 06.07.2015
+
+Том и Джерри: Шпион Квест / Tom and Jerry: Spy Quest (2015) WEB-DLRip [H.264]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ещё один день на пляже для проблемной парочки, пока Том и Джерри не сталкиваются со шпионами Джонни Квестом, Хаджи и Бандитом. Когда давний враг семьи Квестов, доктор Зин, узнаёт о том, что у Бентона Квеста есть орудие решения энергетических проблем мира, он посылает армию злобных кошек украсть его и взять в плен Бентона вместе с охранником Рэйсом Бэнноном. Джонни (   Читать дальше...   )Производство: США / Warner Bros. AnimationЖанр: мультфильмРежиссер: Спайк Брандт, Тони ЧервонеПерсонажи: Риз ХартвигПеревод: профессиональный (многоголосый, закадровый) (iTunes)Продолжительность: 01:12:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1C9BF1E1046BAB52EA55B59E9DFB8BB75337CA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545987   (591589) от 12.05.2022
+
+Достаточно близко / Ближе некуда / Close Enough (2022) WEB-DL [H.264/720p-LQ] (сезон 3, серии 1-8 из 8) NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591589.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет повествует о непростой жизни молодежи между 20 и 30 годами и об обычных проблемах, которые имеют место быть - работа, друзья, тусовки, дети, клоуны-стриптизеры, монстры, галлюцинации и прочее. Не правда ли, самый что ни на есть обычный набор бытовых проблем?Производство: США, Cartoon Network StudiosЖанр: Мультсериал для взрослых, фантастика, фэнтези, драма, комедияРежиссер: Дж.Дж. КуинтелАктеры: Брайан А. Миллер, Дженнифер Пелфри, Дж.Дж. Куинтел, Габриэль Уолш, Джессика ДиЧикко, Джеймс АдомианПеревод: Многоголосый профессиональный (NewStation) Присутствует ненормативная лексика!Субтитры: русские (MWT), английскиеПродолжительность: ~00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5DAF3187A9C722C810E49E2AD60E3910C6D2281
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545986   (591566) от 12.05.2022
+
+Достаточно близко / Ближе некуда / Close Enough (2022) WEB-DL [H.264/1080p-LQ] (сезон 3, серии 1-8 из 8) NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет повествует о непростой жизни молодежи между 20 и 30 годами и об обычных проблемах, которые имеют место быть - работа, друзья, тусовки, дети, клоуны-стриптизеры, монстры, галлюцинации и прочее. Не правда ли, самый что ни на есть обычный набор бытовых проблем?Производство: США, Cartoon Network StudiosЖанр: Мультсериал для взрослых, фантастика, фэнтези, драма, комедияРежиссер: Дж.Дж. КуинтелАктеры: Брайан А. Миллер, Дженнифер Пелфри, Дж.Дж. Куинтел, Габриэль Уолш, Джессика ДиЧикко, Джеймс АдомианПеревод: Многоголосый профессиональный (NewStation) Присутствует ненормативная лексика!Субтитры: русские (MWT), английскиеПродолжительность: ~00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B86F56B9791D42D7642209C0980B9177F16BED33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 807211   (591524) от 24.07.2014
+
+Гроза муравьев / The Ant Bully (2006) BDRip [720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591524.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бедняга Лукас Никл, десятилетний паренек, не представляет, как жить дальше. Недавно они с семьей переехали в другой город, где ему так и не удалось найти ни одного друга. Но еще хуже то, что Лукас становится главной мишенью Стива, местного хулигана, никогда не упускающего возможности покуражиться над ним. В отместку Лукас с наслаждением разрушает муравейники у себя (   Читать дальше...   )Производство: США / Warner Bros. PicturesЖанр: Мультфильм, Фэнтези, Комедия, Приключения, Семейный,Режиссер: Джон А. ДэвисАктеры: Джулия Робертс, Николас Кейдж, Мэрил Стрип, Пол Джаматти, Зэк Тайлер, Реджина Кинг, Брюс Кэмпбелл, Лили Томлин, Шери Отери, Ларри МиллерПеревод: ДублированныйПродолжительность: 01:29:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B62EF1E2CBD347C54AC0DED8900C073257F9732
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 916086   (591298) от 07.07.2015
 
 Дом / Home (2015) BDRip [H.264/720p] [hand made 60fps]
@@ -6,7 +136,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591298.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591297.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591289.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591279.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591261.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591258.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591049.jpg" />
 </div>
 
 
@@ -190,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590573.jpg" />
 </div>
 
 
@@ -218,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590540.jpg" />
 </div>
 
 
@@ -246,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590478.jpg" />
 </div>
 
 
@@ -272,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590055.jpg" />
 </div>
 
 
@@ -298,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590024.jpg" />
 </div>
 
 
@@ -324,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590008.jpg" />
 </div>
 
 
@@ -350,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589747.jpg" />
 </div>
 
 
@@ -376,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589463.jpg" />
 </div>
 
 
@@ -403,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589460.jpg" />
 </div>
 
 
@@ -429,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589160.jpg" />
 </div>
 
 
@@ -455,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588709.jpg" />
 </div>
 
 
@@ -482,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588286.jpg" />
 </div>
 
 
@@ -508,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588272.jpg" />
 </div>
 
 
@@ -534,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588089.jpg" />
 </div>
 
 
@@ -545,146 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72EF1CA13EDD63C0F61D06AC76D31486396C8487
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357201   (588064) от 30.06.2011
-
-Охотник до сказок (1984) SATRip [H.264]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588064.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам сказки К. Ушинского и русских народных сказок, о том,
-как смышленый солдат проучил вздорного, капризного старика,
-требовавшего, чтобы ему перед сном рассказывали небылицы.Жанр: Рисованая анимация, ДетскийРежиссер: Г.СокольскийПродолжительность: 00:07:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B96089020193C8AAAF333D3E89292666727FD1EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040148   (588015) от 03.08.2016
-
-Angry Birds в кино / The Angry Birds Movie (2016) BDRip [H.264/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм расскажет о том, как началось знаменитое противостояние птичек и свинок, персонажей популярной компьютерной игры, а также раскроет некоторые секреты любимых героев.Производство: США / Sony Pictures Animation, Sony Pictures Imageworks (SPI)Жанр: Мультфильм, боевик, комедия, семейныйРежиссер: Фергал РейлиПеревод: Дублированный (iTunes)Продолжительность: 01:37:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:418E02681AA57477A88DD1C5D776D549AA3DB2A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357180   (587971) от 30.06.2011
-
-Недодел и Передел (1979) [H.264] DVBRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587971.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам русских комических сказок.
-Старушка-ведунья проучила Фому и Ерёму — двух братьев,
- один из которых не доводил начатого дела до конца,
-а другой не знал меры в работе и всё портил .Жанр: Детский, Рисованая анимацияРежиссер: Г. СокольскийПродолжительность: 00:07:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF4A8AE30FC111D67B7E2985F0DAF3F901104095
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 356851   (587964) от 30.06.2011
-
-Маленькая колдунья (1991) [H.264] SATRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587964.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам сказки О.Пройслера
-Маленькая колдунья учится колдовским премудростям.
-Благодаря наставлениям мудрого ворона Абрахаса
-она совершает много добрых поступков.
-За это ведьмы на шабаше осуждают ее,
-однако ее искусство сильнее любых злых чар...Жанр: Детский, Рисованая анимацияРежиссер: Г.СокольскийПерсонажи: колдунья,ворон,и др.Продолжительность: 00:24:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF95351734207836DE529B6C43BB45A801A26AA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300708   (587882) от 08.05.2019
-
-Тайный мир Анны / Ana y Bruno (2017) WEB-DL [H.264/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587882.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о необычной девочке Анне, которая живёт в мире фантазий, иллюзий и волшебства. Вместе с новыми чудаковатыми друзьями, которых кроме Анны никто не видит, она отправится в увлекательное путешествие за мечтой.Производство: Мексика, Anima Estudios, Discreet Arts Productions, Itaca FilmsЖанр: Мультфильм, ПриключенияРежиссер: Карлос КаррераПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:32:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24FB4761DABB343316DEAEA46A8CCF7BCB6043AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

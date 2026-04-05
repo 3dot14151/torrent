@@ -1,3 +1,125 @@
+###  Публикация: 923371   (564531) от 31.07.2015
+
+Oomph! - XXV (2015) [FLAC|Lossless|WEB-DL]<Neue Deutsche Harte / Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dein Retter (2:54)
+02. Alles Aus Liebe (3:38)
+03. Jetzt Oder Nie (3:44)
+04. Als Wärs Das Letzte Mal (3:31)(   Читать дальше...   )Жанр: Neue Deutsche Harte / Industrial MetalПродолжительность: 00:54:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6BC8B52F35AEB0F54CDDBC3A0CEEB3A2EB6B2E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 529883   (564523) от 01.08.2012
+
+KISS - Destroyer (Resurrected) (2012) [MP3|320 kbps] <Hard-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Detroit Rock City (2012 Remix) (05:15)
+02. King of the Night Time World (2012 Remix) (03:21)
+03. God of Thunder (2012 Remix) (04:17)
+04. Great Expectations (2012 Remix) (04:24)
+05. Flaming Youth (2012 Remix) (02:59)
+06. Sweet Pain (2012 Remix) (03:21)
+07. Shout It Out Loud (2012 Remix) (02:51)
+08. Beth (2012 Remix) (02:49)
+09. Do You Love Me (2012 Remix) (03:40)
+10. Rock and Roll Party (2012 Remix) (01:26)(   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64D91B586978CE43B1E71E887D9D5D362A089B52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923347   (564504) от 31.07.2015
+
+U.D.O. - Navy Metal Night (2015) Live [MP3|320 кб/с]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ride
+02. Days Of Hope And Glory
+03. Cut Me Out
+04. Trainride In Russia (Poezd Po Rossii)(   Читать дальше...   )Жанр: Heavy Metal |Продолжительность: 01:36:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:549179E21A03BE11E147611EB890AB9EC20C298C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923221   (564486) от 31.07.2015
+
+Placebo - B-Sides (2015) [MP3|320 кб/с]<Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drowning By Numbers
+02. Oxygen Thief
+03. Dark Globe
+04. Hare Krishna(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:08:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25FB9470F777A403735112D2BE1E7245FA0ECBFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 923099   (564405) от 31.07.2015
 
 Oomph - XXV (2015) [MP3|320 кб/с]<Industrial Metal>
@@ -6,7 +128,7 @@ Oomph - XXV (2015) [MP3|320 кб/с]<Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564405.jpg" />
 </div>
 
 
@@ -35,7 +157,7 @@ Saint Asonia - Saint Asonia (2015) [FLAC|Lossless]<Alt. Metal, Modern Hard Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564392.jpg" />
 </div>
 
 
@@ -64,7 +186,7 @@ Saint Asonia - Saint Asonia (2015) [MP3|320 кб/с]<Alt. Metal, Modern Hard Roc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564386.jpg" />
 </div>
 
 
@@ -93,7 +215,7 @@ Masfel - Viperagarzon (1996) [FLAC|Lossless|tracks + .cue] <Experimental rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564210.jpg" />
 </div>
 
 
@@ -122,7 +244,7 @@ Michael Bundt - Neon (1979) LP [MP3|320 Kbps] <Electronic, Krautrock, Experiment
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564106.jpg" />
 </div>
 
 
@@ -151,7 +273,7 @@ BB Steal - On The Edge (1991) [FLAC|Lossless|image + .cue] <Hard Rock,  Arena Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564077.jpg" />
 </div>
 
 
@@ -180,7 +302,7 @@ Orion Child - Continuum Fracture (2019) [MP3|320 Kbps] <Power Metal, Melodic Dea
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563977.jpg" />
 </div>
 
 
@@ -209,7 +331,7 @@ Rubytates - Renacemos (2015) [FLAC|Lossless|tracks + .cue] <Latin, Indie, Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563835.jpg" />
 </div>
 
 
@@ -238,7 +360,7 @@ Palace Of The King - Valles Marineris (2016) [FLAC|Lossless|tracks + .cue] <Hard
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563834.jpg" />
 </div>
 
 
@@ -267,7 +389,7 @@ Subterranean Masquerade - Temporary Psychotic State (2004) Single [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563748.jpg" />
 </div>
 
 
@@ -294,7 +416,7 @@ Subterranean Masquerade - Home (2014) Single [FLAC|Lossless|WEB-DL|tracks] <Avan
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563638.jpg" />
 </div>
 
 
@@ -322,7 +444,7 @@ Seas of Years - Drifting Ever Shifting (2014) [FLAC|Lossless|WEB-DL|tracks] <Pos
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563629.jpg" />
 </div>
 
 
@@ -351,7 +473,7 @@ Seas of Years - The Ever Shifting Fields (2016) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563614.jpg" />
 </div>
 
 
@@ -380,7 +502,7 @@ Azken Auzi - Azken Auzi (2022) [MP3|320 Kbps] <Sludge Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563410.jpg" />
 </div>
 
 
@@ -409,7 +531,7 @@ Wormbrood - 2 Albums (2021-2022) [MP3|320 Kbps] <Death, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563406.jpg" />
 </div>
 
 
@@ -438,7 +560,7 @@ Malignant Aura - Abysmal Misfortune Is Draped Upon Me (2022) [MP3|320 Kbps] <Dea
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563404.jpg" />
 </div>
 
 
@@ -467,7 +589,7 @@ Monegros Acid Resort - Blue Meth Desert (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <E
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563398.jpg" />
 </div>
 
 
@@ -496,7 +618,7 @@ Azken Auzi - Azken Auzi (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563374.jpg" />
 </div>
 
 
@@ -525,7 +647,7 @@ Phiasco - Kessel (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard, Desert, Stoner Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563368.jpg" />
 </div>
 
 
@@ -554,7 +676,7 @@ Feral Light - Psychic Contortions (2022) [FLAC|Lossless|tracks] <Black Metal, Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563366.jpg" />
 </div>
 
 
@@ -583,7 +705,7 @@ Sinister - Syncretism (2017) 2CD [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563239.jpg" />
 </div>
 
 
@@ -610,7 +732,7 @@ Nasty Reputation - After All It's Rock n Roll (2022) [FLAC|Lossless|WEB-DL|track
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563238.jpg" />
 </div>
 
 
@@ -624,119 +746,6 @@ Nasty Reputation - After All It's Rock n Roll (2022) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31FAC8582324828A1C37E4B62D2A4F0A894C9C6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556126   (563237) от 07.06.2022
-
-Locust Grove - The Battle of Locust (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Foot In The Grave 04:13
-02. The Battle Of Locust 03:22
-03. Bluebird 04:05
-04. S.O.S. 03:12(   Читать дальше...   )Жанр: Modern Hard RockПродолжительность: 00:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21251C44DB3D3CFBE1BFFB600D56CC97625B4891
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556025   (563236) от 07.06.2022
-
-Silverstein - Misery Made Me (2022) [FLAC|Lossless|tracks + .cue] <Post-Hardcore, Alt. Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Our Song
-02. Die Alone (feat. Andrew Neufeld of Comeback Kid)
-03. Ultraviolet
-04. Cold Blood (feat. Trevor Daniel)(   Читать дальше...   )Жанр: Post-Hardcore, Alt. RockПродолжительность: 00:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DC43C126C6BA54AD373E60F7635F706EA849F75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 880232   (563117) от 21.08.2016
-
-Mantus - 17 альбомов (2000 - 2016) Discography [MP3|320 кб/с]<Darkwave, Gothic Metal, Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mantus — это немецкий дуэт, возглавляет который Martin Schindler. Творчество группы скрывает в себе философию "романтического нигилизма" — это значит, что вокруг нас, над нами и вне нашей досягаемости ничего нет и не может существовать. Но в нас и благодаря нашей духовной энергии в нашем мире царят представление о жизни, воля к жизни и власть действительного (   Читать дальше...   )Жанр: Darkwave, Gothic Metal, Gothic Rock |Продолжительность: 22:34:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0F422E5E363D44762E0CD6BEAE5A9B09A30741B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556086   (563099) от 07.06.2022
-
-Graham Bonnet Band - Day Out In Nowhere (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imposter
-02. 12 Steps To Heaven
-03. Brave New World
-04. Uncle John(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:50:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B36FD8AE1832DEE9EA26C15832BC01331EFF69E
 ```
 
 https://mybot314.ru/tekegram_catalog/

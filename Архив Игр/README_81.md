@@ -1,3 +1,60 @@
+###  Публикация: 451005   (76996) от 18.02.2012
+
+[Patch] Counter-Strike: Source {1.0.0.70} (Non-Steam) [Multi] 2012 | Sun-t software
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередной апдейт для лучшего в мире онлайнового экшена. В патче присутствует автоапдейтер, который по мере выхода обновлений, будет обновлять ваш клиент CS:S до актуальной (последней) версии.(   Читать дальше...   )Разработчик: Valve
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F722FA34ED008C27768B646394B723B5BF93619B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 452832   (76931) от 18.02.2012
+
+[PS2] Army Men: Sarge's Heroes 2 [NTSC] [ENG] (2001)
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Парни вернулись и готовы к сражению в Army Men: Sarge's Heroes 2!
+Сержант и Компании Браво удалось помешать первому нападению Армии Tan,
+но смогут ли они сделать это снова? Генерал Plastro объединялся с Brigitte Bleu,
+дьявольски предательским Синим Шпионом, чтобы разрушить Зеленую Нацию раз и навсегда.
+Приключение продолжается и Сержант с Викки ведут свой бой через бассейны,
+под кроватями, и через настольные компьютеры к конечному броску против Plastro и его войск.2001Жанр: Action > Shooter > Third-PersonЯзык интерфейса: ENG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7E8EC0AF8298B2F887BA1BA8572402B5E709975
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 453260   (76804) от 17.02.2012
 
 [PS3] Zen Pinball + DLC (By BlackDeath) [PSN] [PAL] [ENG] (2009)
@@ -6,7 +63,7 @@
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76804.jpg" />
 </div>
 
 
@@ -33,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76582.jpg" />
 </div>
 
 
@@ -63,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76412.jpg" />
 </div>
 
 
@@ -89,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76393.jpg" />
 </div>
 
 
@@ -117,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76253.jpg" />
 </div>
 
 
@@ -143,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76221.jpg" />
 </div>
 
 
@@ -169,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75790.jpg" />
 </div>
 
 
@@ -195,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75708.jpg" />
 </div>
 
 
@@ -221,7 +278,7 @@ Duke Nukem Дилогия [En] (P) 1991-1993
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75497.jpg" />
 </div>
 
 
@@ -250,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75430.jpg" />
 </div>
 
 
@@ -276,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75362.jpg" />
 </div>
 
 
@@ -302,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74354.jpg" />
 </div>
 
 
@@ -332,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_73745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73745.jpg" />
 </div>
 
 
@@ -360,7 +417,7 @@ Wolfenstein [Ru/En] (RePack/1.2) 2009 | R.G. UniGamers
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64150.jpg" />
 </div>
 
 
@@ -387,7 +444,7 @@ Selene's Unbearable Night (2023) [Ru/Multi] (13112295) Repack Other s [Early Acc
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60900.jpg" />
 </div>
 
 
@@ -413,7 +470,7 @@ System Shock (2023) [Ru/Multi] (1.2.18887) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58213.jpg" />
 </div>
 
 
@@ -439,7 +496,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2012) [Ru/Multi] (
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56158.jpg" />
 </div>
 
 
@@ -465,7 +522,7 @@ Against the Storm (2022) [Ru/Multi] (1.4.5r/dlc) Repack FitGirl [Complete]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42033.jpg" />
 </div>
 
 
@@ -491,7 +548,7 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.1.42.0) Repack Decepticon
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37852.jpg" />
 </div>
 
 
@@ -517,7 +574,7 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (Build 16212297 Patch 1/dlc) Repack 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37849.jpg" />
 </div>
 
 
@@ -543,7 +600,7 @@ Life is Strange: Double Exposure (2024) [Ru/Multi] (1.0.3) Repack FitGirl
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24711.jpg" />
 </div>
 
 

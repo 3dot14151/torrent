@@ -1,3 +1,162 @@
+###  Публикация: 1610928   (202917) от 09.02.2023
+
+Мир накануне катастрофы. XX век. Гиена Европы (2022) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202917.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сентябре 1940 года в Варшаве немцы провели торжественный парад. Гитлеровская Германия отмечала первую годовщину со дня покорения Польши. На центральной площади имени Пилсудского парад принимали высшие руководители рейха – генерал-губернатор Польши Ганс Франк и один из ближайших соратников фюрера, руководитель Имперской службы труда Константин Гирль. Победное шествие (   Читать дальше...   )Производство: Россия, Студия Град (History Lab) по заказу АО «ЦТВ»Жанр: документальный, история, политикаРежиссер: Юрий СтариковСубтитры: отсутствуютПродолжительность: 00:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:444BEF2F7EA0F062B7CDDC44F6FCA2D8FCEBAB7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656854   (202880) от 01.09.2023
+
+Инженер Шухов. Универсальный гений (2014) IPTVRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Личности в истории
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фамилия инженера Шухова, в первую очередь, вызывает ассоциации со знаменитой телебашней на Шаболовке. По чертежам Шухова возводились заводы, мосты, нефтепроводы, вокзалы, котлы, речные танкеры, башни и сотни других сооружений, многие из которых служат человечеству до сих пор. Человек-фабрика, русский Леонардо - так называли его те, с кем он работал. Его способность (   Читать дальше...   )Производство: Россия / Единая Медиа ГруппаЖанр: документальный, биографияРежиссер: Александр ЕвсюковЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:44:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3776F836BE3676B252A31A1621CD5671B4DC297A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611208   (202847) от 10.02.2023
+
+Ферма Кларксона / Clarkson's Farm (2021) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8)
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многогранная личность, особый британский юмор и харизма Джереми Кларксона позволяют бывшему ведущему Top Gear и настоящему ведущему The Grand Tour с успехом участвовать практически в любом телевизионном проекте. В этот раз Джереми решил попробовать максимально далекий от себя мир фермеров и снялся в сериале «Ферма Кларксона» / Clarkson’s Farm. Проект снят в том же (   Читать дальше...   )Производство: Великобритания, Con Dao Productions, Expectation, Amazon StudiosЖанр: документальный, познавательныйРежиссер: Гэвин УайтхедПеревод: многоголосый профессиональный (AlexFilm)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 8x ~00:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01656C5C74FC269FE5C18A25501192726F70DC2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998048   (202803) от 11.02.2023
+
+Концлагеря. Дорога в ад  (2009)  TVRip [H.264] [1-6 из 6 серий]
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередная попытка более правдивой реконструкции ужасных событий Второй Мировой войны, но без "акцента" на холокост. В фильме используются редкие документы, кинофотоматериалы, показания свидетелей и историков.
+Фильм получил ТЭФИ-2010 в номинации "Телевизионный документальный сериал".
+
+ 1 серия: "Начало" 00:38:37(   Читать дальше...   )Производство: ООО "Лидер ТВ"Телекомпания: ТВЦЖанр: ДокументальныйЯзык субтитров: ОтсутствуютПродолжительность: 6 серий по ~ 00:39:00, Общее время - 03:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4634ADE70B4EB8B01FEE2444FC0B9F9068438CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612517   (202666) от 15.02.2023
+
+Украина: жизнь под ударом / Ukraine: Life Under Attack (2022) HDTV [H.264/1080i] [DVO]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кейт Бланшетт описывает битву за Харьков, используя рассказы мирных жителей и спасателей, принявших на себя основную тяжесть российского наступления.Производство: Великобритания / Channel 4 TelevisionЖанр: документальныйРежиссер: Mani BenchelahПеревод: Двуголосый профессиональный (BaibaKoTV)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 00:47:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EAFDA162DF46924A630250C2A612B7EA3C0D690
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614430   (202492) от 22.02.2023
+
+Ферма Кларксона / Clarkson's Farm (2023) WEBRip [H.264/1080p] (сезон 2, серии 1-8 из 8)
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многогранная личность, особый британский юмор и харизма Джереми Кларксона позволяют бывшему ведущему Top Gear и настоящему ведущему The Grand Tour с успехом участвовать практически в любом телевизионном проекте. В этот раз Джереми решил попробовать максимально далекий от себя мир фермеров и снялся в сериале «Ферма Кларксона» / Clarkson’s Farm. Проект снят в том же (   Читать дальше...   )Производство: Великобритания, Con Dao Productions, Expectation, Amazon StudiosЖанр: документальный, познавательныйРежиссер: Гэвин УайтхедПеревод: многоголосый профессиональный (AlexFilm)Язык озвучки: русскийСубтитры: английские (только первая серия)Продолжительность: 8x ~00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02A7501E6E003F351453C9B0177A35250B28F9C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1830387   (202488) от 26.10.2025
 
 Своя игра (26.10.2025) WEBRip [H.264/1080p]
@@ -6,7 +165,7 @@
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202488.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202482.jpg" />
 </div>
 
 
@@ -58,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202429.jpg" />
 </div>
 
 
@@ -87,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202420.jpg" />
 </div>
 
 
@@ -114,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202409.jpg" />
 </div>
 
 
@@ -143,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202318.jpg" />
 </div>
 
 
@@ -169,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202269.jpg" />
 </div>
 
 
@@ -195,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202230.jpg" />
 </div>
 
 
@@ -221,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202158.jpg" />
 </div>
 
 
@@ -249,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202155.jpg" />
 </div>
 
 
@@ -275,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202152.jpg" />
 </div>
 
 
@@ -301,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202126.jpg" />
 </div>
 
 
@@ -328,7 +487,7 @@ GAC GS8: преимуществ и недостатки кроссовера и�
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202123.jpg" />
 </div>
 
 
@@ -357,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_202047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_202047.jpg" />
 </div>
 
 
@@ -383,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201966.jpg" />
 </div>
 
 
@@ -409,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201936.jpg" />
 </div>
 
 
@@ -435,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201769.jpg" />
 </div>
 
 
@@ -461,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201718.jpg" />
 </div>
 
 
@@ -487,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201702.jpg" />
 </div>
 
 
@@ -513,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201680.jpg" />
 </div>
 
 
@@ -524,162 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:216632E86AA0C90618AB2610AB7884545A455B52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617174   (201676) от 05.03.2023
-
-Тайны утраченного ковчега / Secrets of the Lost Ark (2021) HDTVRip (серии 1-6 из 6)
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда археологов пытается раскрыть секреты и загадки, окружающие самый известный религиозный артефакт в истории - Ковчег Завета.Производство: Великобритания, Liike A Shot, ITV StudiosЖанр: документальный, историяРежиссер: Джеймс РайгтПеревод: одноголосый профессиональный (SDI Media)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 6x ~00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D31FBE4C84F75BA80B1D7BCBACDB2E68C7672093
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617359   (201631) от 06.03.2023
-
-Год / Рік / Year (2023) WEBRip [H.264/720p] (части 1-2 из 2)
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201631.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный проект от команды Мира наизнанку - это авторский взгляд Дмитрия Комарова на войну с тех ракурсов, которые не увидишь в новостях.Производство: Украина | «Мир наизнанку»Жанр: документальныйРежиссер: Александр МудрикПеревод: ОтсутствуетЯзык озвучки: украинский с  русскимСубтитры: отсутствуютПродолжительность: 02:23:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3B12F9F9BAF019192672E0E1492D570C6B7F1D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 642549   (201511) от 09.03.2023
-
-Юрий Гагарин. 50 лет прошло (2011) TVRip
-
->>Документалистика и Телепередачи
->>Космос
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальные съемки первого полета человека в космос.Жанр: ДокументальныйПродолжительность: 00:02:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24A41693BFBD658F0CDDEF2E2B4B75949E0A2485
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615931   (201461) от 10.03.2023
-
-Век СССР (2022) DVB (серии 1-5 из 5)
-
->>Документалистика и Телепередачи
->>Отечественная история
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201461.jpg" />
-</div>
-
-
-###  Подробнее
-
-СССР принято рассматривать как продолжение Российской империи. Советский Союз до сих пор считается национальным государством, без учета того факта, что цивилизация в своем развитии опирается на две противоположные тенденции. С одной стороны, существуют национальные проекты, то есть государства, построенные на культурных нормах, господствующих на той или иной территории, (   Читать дальше...   )Производство: Россия / Serge ILIN-KOZLOVSKY&CrewЖанр: документальный, историяРежиссер: Мадлен ЛавальСубтитры: Русские (Teletext, Sub 888)Продолжительность: ~01:15:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FF6504ADE22A06368A0555ECE3040B924218A00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618833   (201401) от 13.03.2023
-
-1812 (2012) WEBRip [H.264/1080p] (серии 1-4 из 4)
-
->>Документалистика и Телепередачи
->>Отечественная история
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201401.jpg" />
-</div>
-
-
-###  Подробнее
-
-Масштабная реконструкция героических событий Отечественной войны 1812 года, в которой Россия одержала победу над наполеоновской Францией. Проект "1812" охватывает основные события войны с Наполеоном с лета по зиму 1812 года – с момента, когда "великая армия" вторглась в пределы Российской империи, до момента, когда ее остатки были изгнаны обратно. (   Читать дальше...   )Производство: Россия, Первый канал, Star Media, Бабич ДизайнЖанр: документально-постановочный, историяРежиссер: Павел ТупикЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 4x ~00:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A88B50D552CA5560F17E206C221AC28678CDE89C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619216   (201302) от 15.03.2023
-
-Память: Истоки «Чужого» / Memory: The Origins of Alien (2019) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предыстория ксеноморфа – мифы, комиксы и фантастика, окружавшие его происхождение.Производство: США, Швейцария / Exhibit A Pictures, Milkhaus, Screen DivisionЖанр: документальный, ужасы, фантастикаРежиссер: Александр О. ФилиппПеревод: Двуголосый любительский (Pazl Voice), одноголосый любительский (Дмитрий Стасюк)Язык озвучки: русскийСубтитры: русские (forced)Продолжительность: 01:33:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77181F035C2ABBBA83FF6A9E5A7ABF6B98538585
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Blackmore's Night - All Our Yesterdays (2015) [MP3|320 кб/с]<Folk, Rock>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483655.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ William Jackson - Celtic Experience (Haunting Themes From Scotland & Ireland)   
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483226.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ VA - Веселої забави! ч.1 (2011) [MP3|256 кб/с]<Folk-Pop>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482909.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482760.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482236.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ VA - Веселої забави! ч.2 (2011) [MP3|256 кб/с]<Folk-Pop>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480451.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Heidi Feek - The Only (2013) [MP3|320 Kbps] <Country, World, Vocal>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479488.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Sarah Darling - Dream Country (2016) [MP3|320 Kbps] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478121.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Ben Caplan - Birds With Broken Wings (2015) [MP3|320 кб/с]<Country, Funky Blu
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477917.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Blue Rodeo - In Our Nature (2013) [MP3|320 Kbps] <Folk Rock, World, Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477505.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Jason James - Jason James (2015) [MP3|320 кб/с]<Texan Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473564.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Jesse Lafser - Raised On The Plains (2015) [MP3|320 кб/с]<Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473558.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ The Mavericks - In Time (2013) [MP3|320 Kbps] <Folk, World, Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466398.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ The Mavericks - En Español (2020) [MP3|320 Kbps] <Latin, Country, Tejano>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466396.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Alash - Achai (2017) [MP3|320 Kbps] <World, Ethnic, Folk>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465634.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Cristina Branco - Коллекция, 9 альбомов (1998-2011) [MP3|320 kb
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464673.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458912.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453178.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Wardruna - Runaljod - Ragnarok (2016) [MP3|320 Kbps] <Dark Folk, Pagan Folk>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452464.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450050.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447914.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Susie Suh - The Bakman Tapes (2010) [MP3|320 кб/с]<Pop-Folk, Acoustic, Downte
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445063.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_440334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_440334.jpg" />
 </div>
 
 
@@ -709,7 +709,7 @@ VA - The Best Of Native Indians (2CD) (1999) [MP3|320 кб/с]<Native American E
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438645.jpg" />
 </div>
 
 
@@ -735,7 +735,7 @@ Garden Of Delight - Back in Ireland (2015) [OGG| 482-555 кб/с]<Alternative, I
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435851.jpg" />
 </div>
 
 
@@ -764,7 +764,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428644.jpg" />
 </div>
 
 

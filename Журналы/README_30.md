@@ -1,3 +1,107 @@
+###  Публикация: 599061   (999741) от 05.01.2013
+
+Журнал | T3. The Gadget Magazine №2(212) (UK) [февраль 2013] [PDF] [En]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компьютерный журнал, который рассказывает все о новинках аппаратного и программного обеспечения, электроники, гаджетов для персональных компьютеров.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AC6F2BBE67CB1F23C812063008223FEA87CAF60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599079   (999718) от 05.01.2013
+
+Журнал | Рыболовный мир №1 [январь-февраль 2013] [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999718.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Рыболовный мир" - это журнал о современных видах ловли рыбы, прикормках, насадках, тестирование удилищ и многое другое... Вы узнаете много интересного о рыбной ловле и обо всем, что с ней связано. Эксклюзивные статьи, невероятные истории из жизни рыбаков, обзоры различных событий, полезные советы, рыболовные секреты и многое.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B005A81C461E043EAEE7AA4BBD29E5D67D5616AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599550   (999451) от 06.01.2013
+
+Газета | АиФ. На даче №22 [2012] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999451.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Аиф. На Даче" — Популярное издание по “дачной” тематике для владельцев огородов, садовых участков, совхозов, питомников, дач и усадеб, а также для тех, кто только собирается ими стать.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B5102DF1C66819305D163AB79D7DF18196E3A81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599553   (999441) от 06.01.2013
+
+Газета | АиФ. На даче №23 [2012] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999441.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Аиф. На Даче" — Популярное издание по “дачной” тематике для владельцев огородов, садовых участков, совхозов, питомников, дач и усадеб, а также для тех, кто только собирается ими стать.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6FC226A1547F54364A72094A9D7BB24A2B9334E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 599081   (999380) от 06.01.2013
 
 Журнал | Viva! Beauty №4 [зима 2012] [PDF]
@@ -6,7 +110,7 @@
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999380.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999368.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999361.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998584.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998510.jpg" />
 </div>
 
 
@@ -144,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998071.jpg" />
 </div>
 
 
@@ -170,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998065.jpg" />
 </div>
 
 
@@ -200,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997554.jpg" />
 </div>
 
 
@@ -234,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997533.jpg" />
 </div>
 
 
@@ -260,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997529.jpg" />
 </div>
 
 
@@ -286,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997511.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997501.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997491.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997300.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997291.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997278.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997245.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997059.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997029.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997023.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996898.jpg" />
 </div>
 
 
@@ -578,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996853.jpg" />
 </div>
 
 
@@ -589,110 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23E941E9ED941768FB011D83EF8086AC870059D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603627   (996821) от 15.01.2013
-
-Подшивка журналов | Компоненты TI. Полный спектр применений №21-36 (2009-2012) [PDF]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996821.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Компоненты TI - Полный спектр применений" предназначен для разработчиков электроники, в том числе встроенных систем управления. В числе наших читателей - специалисты предприятий, занятых выпуском серийной продукции, создатели инновационных решений на основе цифровых сигнальных процессоров семейств TMS320C2000/С5000/С6000, RISC-микроконтроллеров с ультранизким (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604339   (996531) от 17.01.2013
-
-Журнал | Деньги №50 [декабрь 2012] [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еженедельный экономический журнал о том, как заработать, сохранить и на что лучше всего потратить деньги. Журналисты издания дают ответы на волнующие каждого вопросы, а именно… Как не ошибиться при выборе товаров и услуг? Где самый качественный сервис? Как защитить свои потребительские права? Какие самые надежные и выгодные финансовые инструменты? Как организовать собственное дело? А также рассказывают о самых необычных способах заработка.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C645099A7EC9C42E114BD846D2FDA34D87698446
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604313   (996479) от 17.01.2013
-
-Газета | Обереги. Спецвыпуск №12 "Спроси у домового" [декабрь 2012] [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание для любознательных хозяек. Этот спецвыпуск посвящён дому и достатку в нём. Тема номера: как защитить дом от невзгод.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B5922C95FE68FE04FA1F317A3DF9BE23DC51FE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604319   (996478) от 17.01.2013
-
-Журнал | Библиотека журнала "Рыбачьте с нами" №28 [2012] [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996478.jpg" />
-</div>
-
-
-###  Подробнее
-
-“Рыбачьте с нами” - это ежемесячное международное издание обо всех видах рыбной ловли, подводном плавании, туризме и активном отдыхе на воде. “Рыбачьте с нами” - это журнал об увлечении. Он делается для людей с высокими требованиями к качеству жизни, для которых рыбалка стала синонимом высококлассного отдыха и приятного времяпрепровождения, то есть синонимом слова “удовольствие”. Подтверждением этого тезиса может служить тот факт, что рекламодатели часто прибегают к демонстрации своих товаров и услуг на фоне рыбалки!Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBAB599DE737A28CD7A06BE46D38AA399E45247E
 ```
 
 https://mybot314.ru/tekegram_catalog/

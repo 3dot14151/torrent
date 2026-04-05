@@ -6,7 +6,7 @@ Freddie Mercury - Never Boring (2019) (Special Edition) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338685.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338425.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Lone Star Hippie - Mind Ride (2017) [MP3|320 Kbps] <Psychedelic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338011.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ we.own.the.sky - Earths Collide (2015) [OGG| 429-502 кб/с]<Experimental Instr
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337358.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Southern Rock Christmas (2015) [MP3|320 кб/с]<Christmas, Southern Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337357.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Keep Calm and Salute Queen (2015) [MP3|320 кб/с]<Rock, Hard Rock, Metal,
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337349.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Frozen Factory - 3 Albums (2020-2022) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336497.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Fleesh - 13 Albums (2017-2022) [MP3|320 Kbps] <Progressive Rock, Female Vocal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336488.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Bahroma - Внутри (2014) [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336027.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Bahroma - Плюс Минус Равно (2016) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335924.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Odd Palace - One Step Closer (2020) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335898.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Tyler Bryant & The Shakedown - Tyler Bryant & The Shakedown (2017) [MP3|320 Kbps
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335596.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Graveyard - Innocence & Decadence (2015) Limited Edition [MP3|320 кб/с]<Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335499.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Toto - 13 Studio Albums (1978-2015) CD [MP3|320 Kbps] <Classic Rock, Soft Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335216.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Bay City Rollers (The Rollers) - 8 Albums 1974-1980 (CD Box Set, 1990) [MP3|320 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334854.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ The Leslie West Band - The Leslie West Band (1975) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334849.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Def Leppard - Adrenalize (1992), (2CD) Remastered, Reissue, 2009, Mercury [OGG V
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334695.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Dream Theater - Lost Not Forgotten Archives: Falling Into Infinity Demos, 1996 (
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334578.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Led Zeppelin - Fillmore West 01/11/1969 (1969) bootleg [MP3|320 Kbps] <Hard Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334442.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Pink Floyd - The Animals Recording Sessions (1976) [MP3|320 Kbps] <Progressive &
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334333.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ The Experimentalists - An Experimental Salute To Led Zeppelin IV (2009) [MP3|320
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333947.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Greg Lake - The Anthology: A Musical Journey (2020) 2xCD [MP3|320 Kbps] <Progres
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333944.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Queen - A Night At The Odeon (2015) Live, UK Edition [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333704.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Chris Isaak - First Comes the Night (2015) Deluxe edition [MP3|320 кб/с]<Pop 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332407.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Jeff Lynne’s ELO (Electric Light Orchestra) - Alone In The Universe (2015) Del
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332215.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Down 'n' Outz - This Is How We Roll (2019) [OGG Vorbis|484 Kbps] <Rock, Hard Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332007.jpg" />
 </div>
 
 

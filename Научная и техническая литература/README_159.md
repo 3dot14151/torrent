@@ -1,138 +1,3 @@
-###  Публикация: 1011382   (794493) от 30.04.2016
-
-И. Я. Депман | Первое знакомство с математической логикой (1965) [DJVU, PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794493.jpg" />
-</div>
-
-
-###  Подробнее
-
-Математическая логика — эти слова все чаще можно услышать в разговорной речи, увидеть в газетных и журнальных статьях. Их употребляют не только ученые, инженеры и техники, машиностроители и учителя.
-
-Человек издавна стремился к созданию приборов и машин, которые выполняли бы за него не только физическую, но и умственную работу. В настоящее время человечество имеет (   Читать дальше...   )Жанр: История, математика, логикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CB09C7CC4C92508B0DC9AD8A2746559DA4D9492
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012240   (794488) от 30.04.2016
-
-А.В. Клевцов | Средства оптимизации потребления электроэнергии (2010) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794488.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассмотрены методы, технические решения, современные средства автоматизации и элементы электротехнической комплектации, позволяющие реализовать режим работ технологического оборудования с оптимизацией электропотребления, дан краткий анализ динамики и тенденций совершенствования электротехнического оборудования в плане достижения рационального электропотребления, (   Читать дальше...   )Жанр: ЭлектроэнергетикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3993B29E16CD861AD0313CEBD311E97596D219FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012234   (794462) от 30.04.2016
-
-Книжная серия | Писатели на войне. Писатели о войне [20 книг] (2015) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заседание Редакционной коллегии по изданию серии книг «Писатели на войне, писатели о войне», посвященной 70-летию Великой Победы, состоялось 24 декабря 2014г. в Комитете по печати и взаимодействию со средствами массовой информации. Участники обсудили и утвердили список из 30 книг петербургских писателей - ветеранов войны и современных авторов, чьи произведения в (   Читать дальше...   )Жанр: Военная история, МемуарыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D4E8FC866240DF2A2E9825A2DA5FF23BD58431B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012030   (794447) от 30.04.2016
-
-Владимир Никонов | Словарь русских фамилий (1993) [PDF, DJVU]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фамилия - наследственное имя семьи. Но многие ли знают: откуда взялась и что означает их фамилия? Не менее интересна и судьба фамилий, скрывающих нередко загадки генеалогического древа.
-Фамилии - своего рода живая история. Они доносят до нас множество забытых, никем не записанных слов и многие утраченные живой речью формы.
- Предлагаемый вниманию читателей словарь (   Читать дальше...   )Жанр: Словарь, СправочникФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E048B5E62EC83F37476C6931287BA60C486B2D50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386170   (794392) от 29.05.2020
-
-Kopenhagen Wilfried, Neustadt Rolf | Das Grosse Flugzeugtypenbuch (1982) [DJVU] [GER]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794392.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Большая энциклопедия типов самолетов" содержит описания почти 1000 различных типов летательных аппаратов (самолетов, вертолетов, планеров) из 32 стран, начиная с Аргентины и заканчивая США.
-Краткая история самолетов с самого начала и до наших дней: начиная с планера Лилиенталя через множество машин с поршневым двигателем и заканчивая современными реактивными (   Читать дальше...   )Жанр: энциклопедияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F576F26E1826266C8B12960D7F1B31BBFE9BE398
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385473   (794383) от 29.05.2020
 
 Сергей Наугольных | Встречи с доисторическими мирами (2017) [PDF]
@@ -141,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794383.jpg" />
 </div>
 
 
@@ -167,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794317.jpg" />
 </div>
 
 
@@ -193,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794254.jpg" />
 </div>
 
 
@@ -220,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794246.jpg" />
 </div>
 
 
@@ -246,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794159.jpg" />
 </div>
 
 
@@ -274,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794129.jpg" />
 </div>
 
 
@@ -300,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794124.jpg" />
 </div>
 
 
@@ -327,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794099.jpg" />
 </div>
 
 
@@ -353,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794095.jpg" />
 </div>
 
 
@@ -379,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794059.jpg" />
 </div>
 
 
@@ -405,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794050.jpg" />
 </div>
 
 
@@ -431,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794047.jpg" />
 </div>
 
 
@@ -457,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794044.jpg" />
 </div>
 
 
@@ -483,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793941.jpg" />
 </div>
 
 
@@ -509,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793918.jpg" />
 </div>
 
 
@@ -535,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793912.jpg" />
 </div>
 
 
@@ -562,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793878.jpg" />
 </div>
 
 
@@ -588,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793876.jpg" />
 </div>
 
 
@@ -615,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793874.jpg" />
 </div>
 
 
@@ -642,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793749.jpg" />
 </div>
 
 
@@ -668,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793724.jpg" />
 </div>
 
 
@@ -680,6 +545,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15712116FA599B36C981E700FAB2D00CAE5932C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011570   (793681) от 01.05.2016
+
+Э. М. Розенталь | Парадоксы протеста. Очерки о молодежи Запада (1985) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793681.jpg" />
+</div>
+
+
+###  Подробнее
+
+В яркой публицистической форме автор рассказывает о различных формах протеста молодежи Запада против капиталистического общества. На основании личных встреч и бесед с хиппи, рокерами, студентами, писателями, профессорами, журналистами, бизнесменами и др., он прослеживает эволюцию этого процесса, показывает, как буржуазные идеологи с помощью изощренной пропаганды (   Читать дальше...   )Жанр: История, политология, экономика, философия, культурологияФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDC34840BFDFC6E8399144F6820D4BF04C4C6754
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012572   (793658) от 01.05.2016
+
+И. Лурье и др. | Очерки по истории техники Древнего Востока (1939) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793658.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга знакомит читателя с развитием античной техники на Древнем Востоке.Жанр: История, археология, этнография, искусствоФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCD247C752F576DC002953D6D892B280BA8E5C36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012583   (793656) от 01.05.2016
+
+Владимир Бойко | Подводник-североморец Израиль Фисанович (2016) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793656.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга "Подводник-североморец Израиль Фисанович» посвящена светлой памяти Героя – подводника Великой Отечественной войны – Фисанович Израиля Ильича. В книге рассказывается о его жизни и службе. О том, что он во время войны – не только первым прорвался по узкому длинному фьорду во вражеский порт Петсамо, но и первым среди командиров бригады подводных лодок Северного (   Читать дальше...   )Жанр: История, Биографии и Мемуары, Военная документалистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A4ADDD82EF1B7F11F5C67C297EC630708295621
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012586   (793635) от 01.05.2016
+
+Владимир Бойко | Подводная лодка «Камбала» (2016) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена памяти погибшим морякам подводной лодки «Камбала», вошедшей в Черноморский Подплав в первом десятилетии ХХ века, ставшей первой русской подводной лодкой погибшей со всей командой.
+Книга является уникальной по насыщенности сведениями из истории становления однотипных подводных лодок «Камбала», «Карась» и «Карп».
+Автор – Владимир Бойко, профессиональный (   Читать дальше...   )Жанр: Биографии и Мемуары, Военная документалистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EC129F32C87E115263A02EE76FFCC44A5FECF15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122825   (793420) от 06.04.2017
+
+И.И. Вульфсон | Краткий курс теории механических колебаний (2017) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793420.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом учебном пособии традиционный курс теории колебаний дополнен основными сведениями о принципах построения динамических моделей механизмов и приводов машин, их математическом описании и методах расчета типовых колебательных режимов. В лаконичной форме изложены способы виброзащиты и методы рационального динамического синтеза механизмов и приводов машин с учетом (   Читать дальше...   )Жанр: ФизикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F66490D00E01B5BB0592D8D52D465C123720E09
 ```
 
 https://mybot314.ru/tekegram_catalog/

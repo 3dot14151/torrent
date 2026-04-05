@@ -6,7 +6,7 @@ Ramonda - The Walls Are Crumbling Down (2025) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65304.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Slaughter to Prevail - Grizzly (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dea
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65299.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Alice Cooper - Up All Night (2025) EP [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65296.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Yelawolf & Michael Phillips - Whiskey & Roses (2025) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65294.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ Catapulta Airlines - Бирбоинг (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65293.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Motorjesus - Streets of Fire (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard 'n
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65289.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Boneshakers - Live To Be This (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65284.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65280.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Humble Rebel & the Guesthouse - Sweet Morning (2025) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65170.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Abigail Williams - A Void Within Existence (2025) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65169.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Maggie Lowe - Comin' in Hott (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65165.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Lone - We Came a Long Way (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternativ
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65164.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Odd Berries - Dark Waters (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65162.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Bush - I Beat Loneliness (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternati
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65153.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Recorruptor - Sorrow Will Drown Us All (2025) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65150.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Chyco Simeon - Future (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz Fusion & 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65149.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Charlie Hunter & Ella Feingold - Different Strokes for Different Folks (2025) [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65148.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Forth Wanderers - The Longer This Goes On (2025) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65147.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ The Doobie Brothers - Walk This Road (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65126.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Nefarious - Addicted to Power (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65107.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Reed Turchi - World On Fire (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65106.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Robert Rice Jr - Breathe (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Smoot
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65105.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65104.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Phil Pilorz and Sarah Ayers - Apocalypse Road (2025) [FLAC 24/96|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65103.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Sweet Talk - Switch On (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Countr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65102.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Tomas Jo´ Group - Be A Little Kind (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65098.jpg" />
 </div>
 
 

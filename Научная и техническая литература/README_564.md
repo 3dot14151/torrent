@@ -1,139 +1,3 @@
-###  Публикация: 1676852   (154600) от 15.11.2023
-
-А.А. Преображенский | Магнитные материалы (1965) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154600.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге кратко изложены основные представления о физических процессах, происходящих в ферромагнитных металлах, сплавах и ферритах. Рассмотрены требования, предъявляемые к различным группам магнитных материалов, и их свойства. Описаны технологические операции, выполняемые на заводах-потребителях магнитных материалов. Даны некоторые сведения об измерении свойств магнитных (   Читать дальше...   )Жанр: ФизикаИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBBBC344443A9A0C186C7DD4E2AF54584066ED25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085191   (154599) от 23.12.2016
-
-Зигмунт Бауман | Идет ли богатство немногих на пользу всем прочим? (2015) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Принято считать, что лучший способ помочь бедным состоит в том, чтобы позволить богатым богатеть, что всем выгодно, когда богатые платят меньше налогов, и что, в конце концов, их богатство полезно для всех нас. Но эти распространенные представления опровергаются опытом, исследованиями и простой логикой. Такое несоответствие представлений фактам заставляет нас остановиться (   Читать дальше...   )Жанр: СоциологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A77BE528B317905874ACC0F6B8BE683C8A4B3F36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085236   (154516) от 23.12.2016
-
-А. А. Горелова (ред.) | Норвегия. Справочная карта (1977) [JPG, PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154516.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данное издание входят:
-1) Подробная справочная карта Норвегии с административным делением (масштаб 1:2 500 000).
-2) Указатель географических названий в алфавитном порядке.
-3) Обложка с выходными данными (утеряна).(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6415B1B888A1B1718AC4A148F5707F19A0418F55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085556   (154502) от 23.12.2016
-
-М. П. Бушуева (ред.) | Норвегия. Справочная карта (1984) [JPG, PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154502.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данное издание входят:
-1) Подробная справочная карта Норвегии с административным делением (масштаб 1:2 500 000).
-2) Указатель географических названий в алфавитном порядке.
-3) Обложка с выходными данными.(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D4E4FBF54D802B64BC4B61E543388E166776B85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085149   (154404) от 23.12.2016
-
-Джек Голдстоун | Революции. Очень краткое введение (2015) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга ведущего специалиста в области исторической макросоциологии и одного из основоположников клиодинамики Джека А.Голдстоуна посвящена описанию структуры, причин и результатов революций — этих ключевых событий в развитии общества, их переходе от монархий, империй и диктатур, персоналистских режимов к демократической форме правления. Автор критически анализирует (   Читать дальше...   )Жанр: Публицистика, общество, историяФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE96C7F87F87CE96A6BC180A551C68B3156A6EDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1085284   (154361) от 23.12.2016
 
 Тайлер Коуэн | Среднего более не дано. Как выйти из эпохи великой стагнации (2015) [FB2]
@@ -142,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154361.jpg" />
 </div>
 
 
@@ -168,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154359.jpg" />
 </div>
 
 
@@ -194,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154350.jpg" />
 </div>
 
 
@@ -221,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154332.jpg" />
 </div>
 
 
@@ -249,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154314.jpg" />
 </div>
 
 
@@ -276,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154285.jpg" />
 </div>
 
 
@@ -303,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154273.jpg" />
 </div>
 
 
@@ -329,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154272.jpg" />
 </div>
 
 
@@ -355,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154238.jpg" />
 </div>
 
 
@@ -381,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154227.jpg" />
 </div>
 
 
@@ -408,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154148.jpg" />
 </div>
 
 
@@ -434,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154122.jpg" />
 </div>
 
 
@@ -460,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154107.jpg" />
 </div>
 
 
@@ -487,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154055.jpg" />
 </div>
 
 
@@ -514,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153957.jpg" />
 </div>
 
 
@@ -543,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153928.jpg" />
 </div>
 
 
@@ -570,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153927.jpg" />
 </div>
 
 
@@ -596,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153830.jpg" />
 </div>
 
 
@@ -622,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153826.jpg" />
 </div>
 
 
@@ -648,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153825.jpg" />
 </div>
 
 
@@ -674,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153781.jpg" />
 </div>
 
 
@@ -685,6 +549,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84515E9406A8B6F4C7715CE2B016151C56593AE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600825   (153765) от 29.12.2022
+
+М.Б.Яворский | Основные вопросы современного школьного курса физики (1980) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основные идеи теории относительности и квантовой механики кажутся при первом знакомстве с ними необычными, противоречащими тому, к чему человек привыкает в повседневной жизни. Сложившееся традиционное обучение физике в школьном курсе во многом способствует тому, что новые идеи трудно усваиваются. Невозможность свести новые идеи к привычным представлениям, отсутствие (   Читать дальше...   )Жанр: физика, пособие для учителейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB2B63CE3B834B7D81EC5856B4DA71653E5FCC8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600963   (153755) от 29.12.2022
+
+Б.С. Ишханов | Физика атомного ядра и частиц (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание содержит 13 лекций по курсу Физика атомного ядра и частицЖанр: ФизикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6C1D2D4A4A4EED0DBEDB4C0BC09F2324F8BA2A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600454   (153652) от 29.12.2022
+
+Марк Крилли | Рисуем мангу 3. Курс по созданию персонажей с Марком Крилли (2022) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153652.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречай третью часть популярного руководства по рисованию манги от самого известного американского мангаки Марка Крилли! В этой книге собрано еще больше полезных пошаговых уроков по рисованию в стиле аниме! Ты узнаешь все о рисовании необычных персонажей в уникальных стилях (от мехароботов до милых чиби), научишься создавать правильную раскадровку для комикса, а (   Читать дальше...   )Жанр: Учебник, Рисование, МангаПеревод: М. СавицкийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:860B158D8D71A4CB1EA8B8896EABE0D69300FFF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600494   (153644) от 29.12.2022
+
+Марк Крилли | Рисуем мангу 2. Учимся создавать комикс с нуля (2022) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед тобой вторая часть популярного издания по рисованию манги, написанная Марком Крилли – известным американским художником и преподавателем. В ней собрано еще больше уроков и полезных материалов, которые помогут каждому желающему стать мангакой. Автор расскажет основные правила рисунка персонажа, построения композиции и выбора дальнего плана, а также поделится (   Читать дальше...   )Жанр: Учебник, Рисование, МангаПеревод: Валерия МалаховаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14395ECEA95259EBB7024EA415D2DAC906B06EEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600613   (153639) от 29.12.2022
+
+Кристофер Харт | Fashion манга. Учимся рисовать стильных персонажей (2022) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавай собственных персонажей в жанре манга и аниме, одетых по последнему слову моды. Автор популярной серии книг по рисованию Кристофер Харт поможет разобраться, как рисовать девушек и парней в японском стиле, и пошагово покажет, как выбрать для них соответствующий аутфит.
+
+В этой книге ты узнаешь главные правила создания собственных героев и пройдешь пошаговое (   Читать дальше...   )Жанр: Учебник, Рисование, МангаПеревод: Н. ГерасимчукФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBDBEADFCAEA6B725CEF20EB9AA659493C652764
 ```
 
 https://mybot314.ru/tekegram_catalog/

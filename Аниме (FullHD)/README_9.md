@@ -6,7 +6,7 @@ Toshokan Sensou / Library War / Библиотечная война [2008, TV, 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938618.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Gakuen Utopia Manabi Straight! / Непоседливая Манаби! [2007, T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938613.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Sora no Otoshimono: Forte / Утраченное небесами: Стойко�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_938161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_938161.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ No.6 / Шестая зона [2011, TV, 11] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936476.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Orange | Орендж [2016, TV, 13] BDRip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936395.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Ookami Kodomo no Ame to Yuki / The Wolf Children Ame and Yuki / Дети вол�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934379.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Soukyuu no Fafner: Dead Aggressor | Fafner in the Azure: Dead Aggressor | Неб
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934287.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Mushishi Tokubetsu Hen: Hihamu Kage | Mushishi Special: Sun-Eating Shade | Ма�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931438.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Ginga Tansa 2100-nen: Border Planet | Galaxy Investigation 2100: Border Planet |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930682.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Gekijouban Bungaku Shoujo / Literature Girl / Литературная деву�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930435.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Gekijouban Blood-C: The Last Dark / BLOOD-C: Последний Тёмный [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929700.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Cocolors | Соцветие [2016, Movie] BDRip 816p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927034.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Home! | Домой! [2021, Web] WebRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926900.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Ergo Proxy / Эрго прокси [2006, TV, 23 серий] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924440.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Heavy Object | Тяжёлый объект [2015, TV, 24 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923981.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923928.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Dungeon ni Deai o Motomeru no wa Machigatteiru Darou ka? | Danmachi | Может
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923804.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Mushishi Zoku Shou | Mushi-Shi: Next Passage | Мастер Муси: Следу
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923247.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922771.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Juuou Mujin no Fafnir | Unlimited Fafnir | Безграничный Фафнир
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922573.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Selector Destructed WIXOSS | Селектор: Разрушение WIXOSS [Ко
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922450.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922443.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922357.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922324.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku | OreGairu 2 | Как и 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921941.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Macross Plus | Макросс Плюс [1994, OVA, 4 из 4] BDRip 1080p 10-bit 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920638.jpg" />
 </div>
 
 

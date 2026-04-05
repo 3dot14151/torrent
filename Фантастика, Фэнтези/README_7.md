@@ -1,29 +1,3 @@
-###  Публикация: 1351545   (1002175) от 10.01.2020
-
-Грег Вайсман | Путешественник (2018) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прошли годы с тех пор, как талантливый двенадцатилетний Арамар Торн, никогда не расстающийся с блокнотом для рисования, в последний раз видел отца. Поэтому, когда капитан Грейдон Торн неожиданно возвращается и просит сына отправиться с ним в плавание, Араму кажется, что мир заиграл новыми красками. Оказавшись на борту «Волнохода», мальчик изо всех сил старается поладить (   Читать дальше...   )Жанр: Фантастика, ФэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32B4B07DC0CBC31C4B7016841642D585DFE7F1BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1488487   (1002037) от 11.08.2021
 
 Павел Гигаури | Соб@чий глюк (2020) [FB2]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002037.jpg" />
 </div>
 
 
@@ -60,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001955.jpg" />
 </div>
 
 
@@ -86,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001914.jpg" />
 </div>
 
 
@@ -114,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001877.jpg" />
 </div>
 
 
@@ -140,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001608.jpg" />
 </div>
 
 
@@ -166,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001606.jpg" />
 </div>
 
 
@@ -195,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001596.jpg" />
 </div>
 
 
@@ -223,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001311.jpg" />
 </div>
 
 
@@ -251,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001305.jpg" />
 </div>
 
 
@@ -279,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001286.jpg" />
 </div>
 
 
@@ -308,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001285.jpg" />
 </div>
 
 
@@ -336,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001283.jpg" />
 </div>
 
 
@@ -365,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001268.jpg" />
 </div>
 
 
@@ -393,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001259.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001129.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001075.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001034.jpg" />
 </div>
 
 
@@ -504,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000980.jpg" />
 </div>
 
 
@@ -532,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000868.jpg" />
 </div>
 
 
@@ -558,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000850.jpg" />
 </div>
 
 
@@ -585,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000777.jpg" />
 </div>
 
 
@@ -614,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000476.jpg" />
 </div>
 
 
@@ -640,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999958.jpg" />
 </div>
 
 
@@ -668,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999858.jpg" />
 </div>
 
 
@@ -694,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999544.jpg" />
 </div>
 
 
@@ -708,6 +682,36 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D882825D0E97EC5DBE5B64C83446B5FE609BAEBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599508   (998891) от 08.01.2013
+
+Жозе Сарамаго | Слепота [2008] [RTF, FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жозе Сарамаго – крупнейший писатель современной Португалии, лауреат Нобелевской премии по литературе 1998 года. «Слепота» – одна из наиболее известных его книг, своего рода визитная карточка автора наряду с «Евангелием от Иисуса» и «Воспоминаниями о монастыре».
+
+Жителей безымянного города безымянной страны поражает загадочная эпидемия слепоты. В попытке сдержать ее распространение власти вводят строжайший карантин и принимаются переселять всех заболевших в пустующую загородную больницу, под присмотр армии. Главные герои романа – не уберегшийся от болезни врач-окулист и его жена, имитирующая слепоту, чтобы остаться с мужем, – ищут крупицы порядка в мире, который неудержимо скатывается в хаос…
+
+В 2008 году в прокат выходит крупнобюджетная экранизация этого романа режиссером Фернанду Мейреллешем («Город Бога», «Преданный садовник»), роли исполняют Джулианна Мур и Гаэль Гарсия Берналь.Формат: RTF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BF122CB9B50377195D9B2C884B8F1B291A5195E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,57 @@
+###  Публикация: 1499141   (850791) от 30.09.2021
+
+Adobe InDesign 2021 v16.4 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программное обеспечение для настольных систем Adobe InDesign представляет собой универсальное приложение для публикации контента, которое обеспечивает точный контроль над дизайном и типографикой на уровне пикселов. Скачав портативное приложение на вы сможете создавать стильные выразительные страницы для печати, планшетных ПК и других экранов. Удобная адаптация макетов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2021Разработчик: Adobe SystemsПоддерживаемая ОС: macOS 10.14 и новееЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF0130178BF266C12152009A038F45DDE60239A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001944   (850554) от 30.03.2016
+
+VersionsManager 1.1.0 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850554.jpg" />
+</div>
+
+
+###  Подробнее
+
+VersionsManager - утилита,  позволяющая просматривать и произвольно удалять старые 'версии'  документов, которые были автоматически  сохранены Вашим Mac. Начиная с Mac OS X 'Lion' 10.7, большинство приложений Mac автоматически хранит не только последнюю версию любого документа, но и все предыдущие промежуточные сохраненные версии. (см. здесь)
+
+Эти предыдущие версии (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 29 марта 2016Разработчик: © CoreCodeПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41905F8263A73616A66F68B5AC0A1DC0C2E53F6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110851   (850374) от 04.03.2017
 
 Studies 1.1.5 [En]
@@ -6,7 +60,7 @@ Studies 1.1.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850374.jpg" />
 </div>
 
 
@@ -34,7 +88,7 @@ Music Tube 2.1.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850311.jpg" />
 </div>
 
 
@@ -61,7 +115,7 @@ Vicomsoft FTP Client 5.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850306.jpg" />
 </div>
 
 
@@ -90,7 +144,7 @@ Jump Desktop (Remote Desktop) - RDP/VNC 6.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850207.jpg" />
 </div>
 
 
@@ -117,7 +171,7 @@ NetWorker Pro 7.4.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849645.jpg" />
 </div>
 
 
@@ -143,7 +197,7 @@ Magic Battery 5.4.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849536.jpg" />
 </div>
 
 
@@ -170,7 +224,7 @@ SyncMate 5.3.636 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848927.jpg" />
 </div>
 
 
@@ -196,7 +250,7 @@ KeepFocus: Delightful Time Manager 1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848915.jpg" />
 </div>
 
 
@@ -222,7 +276,7 @@ Templates for Pages 4.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848899.jpg" />
 </div>
 
 
@@ -251,7 +305,7 @@ AnyTrans 4.9.2 (20160331) [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848684.jpg" />
 </div>
 
 
@@ -278,7 +332,7 @@ Web Snapper 3.3.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846838.jpg" />
 </div>
 
 
@@ -305,7 +359,7 @@ Lucid 1.0.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846834.jpg" />
 </div>
 
 
@@ -333,7 +387,7 @@ SSH Copy 17.03.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845056.jpg" />
 </div>
 
 
@@ -362,7 +416,7 @@ SQLPro Studio 2020.38 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844874.jpg" />
 </div>
 
 
@@ -388,7 +442,7 @@ TimeMachineEditor 5.0.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844810.jpg" />
 </div>
 
 
@@ -416,7 +470,7 @@ Swift Converter 3 v4.0.3 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844806.jpg" />
 </div>
 
 
@@ -442,7 +496,7 @@ Sidify Music Converter for Spotify 1.4.3 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842957.jpg" />
 </div>
 
 
@@ -470,7 +524,7 @@ Privacy Protector 2.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841842.jpg" />
 </div>
 
 
@@ -496,7 +550,7 @@ Clips 2.0.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841789.jpg" />
 </div>
 
 
@@ -523,7 +577,7 @@ Dwell Click 2.2.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841703.jpg" />
 </div>
 
 
@@ -551,7 +605,7 @@ HazeOver 1.7 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841691.jpg" />
 </div>
 
 
@@ -580,7 +634,7 @@ liquivid Video Exposure and Effects 1.4.1 [En/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841207.jpg" />
 </div>
 
 
@@ -607,7 +661,7 @@ liquivid Video Merge 1.4.1 [En/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841099.jpg" />
 </div>
 
 
@@ -633,7 +687,7 @@ liquivid Video Fisheye Removal 1.4.1 [En/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841097.jpg" />
 </div>
 
 
@@ -644,61 +698,6 @@ liquivid Video Fisheye Removal - простое в использовании п
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D41C66233BFD7BB1EE96D743B37261C87F3DCC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379231   (841089) от 28.04.2020
-
-Clipboard Center 2.2.2 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Clipboard Center простой в использовании и мощный менеджер буфера обмена. Через историю, разделенные списки и гибкий интерфейс, позволяет копировать и вставлять изображения, тексты и файлы более эффективным способом.
-
-Списки позволяют сохранять и упорядочивать захваченные данные из буфера обмена.  Окно приложения может быть прикреплено в верхнем правом углу экрана, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 26.04.2020Разработчик: Jérémy MarchandПоддерживаемая ОС: OS X 10.14 +Язык интерфейса: Английский, Голландский и Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8009D6376A9CD62C8BA4654E0780FA30AB392D50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379259   (841083) от 28.04.2020
-
-liquivid Video Stabilization 1.4.1 [En/Ru]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841083.jpg" />
-</div>
-
-
-###  Подробнее
-
-Liquivid Video Stabilization — это простое в использовании приложение, которое уменьшает дрожание камеры, находящейся в руках, или на клипах, снятых экшн-камерами или беспилотными аппаратами (например, квадрокоптерами).
-Имейте в виду, что стабилизация в пост-обработке всегда означает, что часть вашего видео будет обрезана навсегда: чем сильнее дрожание камеры, тем (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.03.2020Разработчик: Razvan ChisuzvanПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97B5261DDD831BB588766073FBFDD6E305607410
 ```
 
 https://mybot314.ru/tekegram_catalog/

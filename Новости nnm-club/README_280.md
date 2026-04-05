@@ -1,3 +1,55 @@
+###  Публикация: 1128075   (51877) от 27.06.2024
+
+Фарго / Fargo (2017) WEBRip [H.264/1080p-LQ] (сезон 3, серии 1-10 из 10) NewStudio
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третий том знаменитой антологии человеческих глупостей и их бесчеловечных последствий открывается сценой в Восточном Берлине в 1988 году. За столом пустой комнаты сидит офицер «Штази», а за окном идёт снег, и жирные чёрные тени от него нарисованы так, чтобы зритель сразу провёл параллели с пеплом из концлагерей. На допрос приводят испуганного человека, который клянётся, (   Читать дальше...   )Производство: США, 26 Keys Productions, FX Productions, MGM TelevisionЖанр: триллер, драма, криминалРежиссер: Ной Хоули, Майкл Аппендаль, Джон Камерон, Дирбла УолшАктеры: Юэн Макгрегор, Кэрри Кун, Мэри Элизабет Уинстэд, Дэвид Тьюлис, Джим Гэффиган, Майкл Сталберг, Скут Макнэйри, Ши Уигхэм, Каран Сони, Фред Меламед, Томас Манн и др.Перевод: многоголосый профессиональный - NewStudioЯзык озвучки: Русский, английскийСубтитры: английскиеПродолжительность: ~01:06:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7AC8B93B787E792C1EDD4804D7384C7AAFF599A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732552   (51782) от 28.06.2024
+
+Фуриоса: Хроники Безумного Макса / Furiosa: A Mad Max Saga (2024) WEB-DL [H.265/2160p] [4K, SDR, 10-bit]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51782.jpg" />
+</div>
+
+
+###  Подробнее
+
+История похищения юной воительницы Фуриосы из Зелёных Земель, в результате которого девушка попадает в руки орды байкеров под предводительством Военачальника Дементуса. Пробираясь через Пустошь, они натыкаются на Цитадель, которой управляет Бессмертный Джо, и пока два тирана борются за господство, Фуриосе предстоит пережить множество испытаний, пытаясь найти путь (   Читать дальше...   )Производство: Австралия /  Warner Bros., Kennedy Miller MitchellЖанр: фантастика, боевикРежиссер: Джордж МиллерАктеры: Крис Хемсворт, Аня Тейлор-Джой, Алила Браун, Том Бёрк, Нэйтан Джонс, Джош Хелман, Чарли Фрейзер, Лейчи Халм, Джон Ховард, Джордж ШевцовПеревод: дублированный (Movie Dubbing / Bravo Records), авторский (М.Яроцкий)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английские, корейские, испанские, норвежскиеПродолжительность: 02:28:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCB3212DA4BA9C34052DA87BA770807F9FB6B012
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1725481   (51777) от 28.06.2024
 
 Светлаков + (2024) IPTV [H.264/720p] (сезон 1, серии 1-12 из ??) (обновляемая)
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51777.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Cent Browser 5.1.1130.129 Stable + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51754.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51735.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51723.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Long Zu | Dragon Raja | Дракон Раджа [2022, Web, 16 эп.] WEBRip 720
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51683.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51565.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Kaijuu 8 Gou | Kaiju No. 8 | Кайдзю номер 8 [2024, TV, 12 эп.] WEBR
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51547.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Kimetsu no Yaiba: Hashira Geiko Hen | Demon Slayer: Hashira Training Arc | Ис�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51475.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Kaspersky Rescue Disk 2018 18.0.11.3 [01.07.2024] [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51457.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ K-Lite Codec Pack 18.4.5 Mega/Full/Standard/Basic [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51352.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51240.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51125.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ Dangerous Dave Pack (1991) [En] (1.0) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51039.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50795.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50712.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50619.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ Windows 10 x64 Rus by OneSmiLe [19045.4651]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50525.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50517.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50502.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50491.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50395.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50200.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ Mushoku Tensei II: Isekai Ittara Honki Dasu | Mushoku Tensei II: Jobless Reincar
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50197.jpg" />
 </div>
 
 
@@ -613,66 +665,13 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50110.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Гений разработал утилиту CatLock, которая защищает клавиатуру от котов.Принцип работы прост: (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734454   (50095) от 14.07.2024
-
-Полицейский из Беверли-Хиллз: Аксель Фоули / Beverly Hills Cop: Axel F (2024) WEB-DLRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детектив Аксель Фоули снова возвращается на улицы Беверли-Хиллз. После того, как жизнь его дочери Джейн оказывается в опасности, они объединяют силы с новым партнером, детективом Бобби Эбботом, и старыми приятелями — Билли Роузвудом и Джоном Тэггартом, чтобы задать жару негодяям и раскрыть преступный заговор.Производство: США / Don Simpson/Jerry Bruckheimer Films, Eddie Murphy ProductionsЖанр: боевик, триллер, комедия, криминалРежиссер: Марк МоллойАктеры: Эдди Мерфи, Джадж Райнхолд, Кевин Бейкон, Джозеф Гордон-Левитт, Джон Эштон, Бронсон Пиншо, Марк Пеллегрино, Пол Райзер, Тейлор Пейдж, Джеймс РоджерсПеревод: Дублированный (Videofilm Int., Postmodern), многоголосый (TVShows, LE-Production), двуголосый (ViruseProject), авторский (Михаил Яроцкий)Язык озвучки: русский, английский, украинскийСубтитры: русские (forced, full), английские (SDH), украинскиеПродолжительность: 01:55:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68CF1BC238432DD86CA6A1E42BA3B95ABBCBEB9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736322   (50065) от 14.07.2024
-
-Публичные каналы с аудиторией свыше 1000 человек в сутки обяжут передавать данные о себе в Роскомнадзор
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50065.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роскомнадзор считает справедливой и обоснованной инициативу властей по идентификации авторов публичных каналов (главным образом в Telegram) с аудиторией более 1000 пользователей. Ведомство напоминает, что анонимность в интернете ведёт к безответственности и часто распространению запрещённой информации.
-(   Читать дальше...   )
 
 ## Скачать торент
 ```bash

@@ -1,136 +1,3 @@
-###  Публикация: 1065926   (417211) от 24.10.2016
-
-М. Эскин | Основные пути развития социалистических форм труда (1935) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основываясь на учении Маркса — Ленина — Сталина о социалистической кооперации труда, автор дает анализ основных этапов развития социалистических форм труда в СССР.
-
-Автор привлек большой конкретный материал по ленинградской промышленности — данные отдельных предприятии, цехов, бригад, архивный материал ЛОСПС и пр.
-(   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2309DEA01E041635267ED0BE00C568FBD3434B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167128   (417203) от 20.09.2017
-
-Леопольд Зонди | Я-анализ (2017) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417203.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге будут рассмотрены и обоснованы следующие вопросы: почему «Я-анализ» появился как вторая часть патологии инстинкта? Как связан «Я-анализ» с «Анализом инстинкта»? Ответ кроется в следующем: в основном, «Я-анализ» более глубинно был построен на изначальной «Я-тяге» (Я-порыв), а именно: на натиске участия (или порыве участия). То есть, на особенном порыве, который (   Читать дальше...   )Жанр: Психология, ПсихоанализФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADABF2C76F5D2F67E9721E2A3FCE40E0281FC327
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167410   (417190) от 20.09.2017
-
-Ж. Катала | Они предают мир (1950) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не существует более глубокой тайны, чем та, которой стараются окружить малейшую долю правды, касающейся этой политики. Реакционные газеты, то есть девять десятых всей прессы во Франции, имеют задание распространять по этому поводу потоки хорошо согласованной лжи, чтобы общественное мнение ни о чем не могло узнать. В парламенте министры иностранных дел систематически (   Читать дальше...   )Жанр: История, политология, экономика, дипломатия, документалистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA8438E58DABBB748F3500D98244C134B65982F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065658   (417052) от 24.10.2016
-
-И. Б. Новицкий | История советского гражданского права (1957) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая книга представляет собой один из томов «Курса советского гражданского права». Одновременно эта работа, поскольку в ней освещается развитие советского гражданского права за период 1917-1957 гг., принадлежит к числу работ, издаваемых в связи с 40-летием Советского государства. Этой книгой не преследуется цель дать лишь обзор истории гражданского законодательства, (   Читать дальше...   )Жанр: История, политология, правоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A3D30578C69F41E4EF19A72C07A5EAD2FC4459F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065993   (417046) от 24.10.2016
-
-В. Д. Виленский | Современный Китай (1925) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417046.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящей книжке мы ставим своей задачей — дать политико-экономическое описание современного Китая, которое позволило бы русскому читателю ориентироваться в том, как живет и борется за свою независимость наш сосед — современный Китай.Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9220F23E5C3E5E772D11DCF7D4C25F7211D2E933
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167473   (417022) от 20.09.2017
 
 Линкольн Пейн | Море и цивилизация. Мировая история в свете развития мореходства (2017) [FB2]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417022.jpg" />
 </div>
 
 
@@ -166,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416873.jpg" />
 </div>
 
 
@@ -193,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416835.jpg" />
 </div>
 
 
@@ -221,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416719.jpg" />
 </div>
 
 
@@ -247,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416684.jpg" />
 </div>
 
 
@@ -273,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416656.jpg" />
 </div>
 
 
@@ -299,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416654.jpg" />
 </div>
 
 
@@ -326,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416648.jpg" />
 </div>
 
 
@@ -354,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416634.jpg" />
 </div>
 
 
@@ -380,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416567.jpg" />
 </div>
 
 
@@ -406,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416561.jpg" />
 </div>
 
 
@@ -433,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416547.jpg" />
 </div>
 
 
@@ -459,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416486.jpg" />
 </div>
 
 
@@ -485,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416449.jpg" />
 </div>
 
 
@@ -511,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416370.jpg" />
 </div>
 
 
@@ -537,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416358.jpg" />
 </div>
 
 
@@ -563,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416348.jpg" />
 </div>
 
 
@@ -589,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416340.jpg" />
 </div>
 
 
@@ -615,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416219.jpg" />
 </div>
 
 
@@ -641,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416203.jpg" />
 </div>
 
 
@@ -667,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416178.jpg" />
 </div>
 
 
@@ -679,6 +546,140 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEAD52610756C8971A9100DAB9270C8992ADDC2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065211   (416176) от 24.10.2016
+
+А.М. Сажнев, Л.Г. Рогулина | Источники бесперебойного электропитания переменного тока (2015) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416176.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии рассматриваются современные структуры вторичных источников гарантированного и бесперебойного электропитания, способы резервирования и порядок расчета автономного инвертора напряжения. Приводятся описания лабораторных работ по однофазным системам бесперебойного электропитания АБП-ОПОЕТ «UPStel», HFR Top Line-930 и стабилизатору переменного напряжения (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B10097C76DB93C4D7CDA6418FE974F50CF079E21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065168   (416161) от 24.10.2016
+
+С.А. ЗаЙцев и др. | Контрольно-измерительные приборы и инструменты (2016) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416161.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены классификация и принципиальные схемы средств измерений и контроля, применяющихся в машиностроении, принципы обеспечения единства измерений в Российской Федерации, методы обеспечения точности измерения и контроля и общие метрологические характеристики средств измерений. Приведены положения теории измерений, сведения по выбору средств измерения и контроля, (   Читать дальше...   )Жанр: МашиностроениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE5C0DD2D30C2964F60E28E745B8EA794A7AE183
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065837   (416007) от 24.10.2016
+
+Виктор Калашников | Серия «Русь Легендарная» [4 книги] (2006-2011) [PDF, DjVu]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416007.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данной Серии находятся только 4 книги из 5-ти.
+Серия с большим количеством цветных иллюстраций, рассказывающих о тайнах и загадках русской истории. Прочитав эти книги, вы узнаете о захватывающих событиях из славной истории русского народа.Жанр: Познавательная историческая литератураФормат: PDF, DjVu
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA773027508E57C5E8FB8031FEBB7B41FF046812
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947778   (415842) от 18.10.2015
+
+Анатолий Карпов | Сестра моя Каисса (2014) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга многократного чемпиона мира по шахматам - книга воспоминаний. Острые не только шахматные, но и житейские ситуации, столкновения характеров, портреты великих шахматистов написаны поистине с мастерством писателя. О замечательных спортсменах, об их человеческих достоинствах и недостатках, пристрастиях и чудачествах узнают читатели этой книги.
+Эта книга вышла в (   Читать дальше...   )Жанр: Шахматы , воспоминания.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:758A33667C646CC958F51D66565019090EB9449B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948032   (415832) от 18.10.2015
+
+Владимир Антонов | Начальники советской внешней разведки (2015) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагая читателям сборник биографических очерков о начальниках внешней разведки органов государственной безопасности нашей страны советского периода, мы хотели бы поделиться некоторыми воспоминаниями об этих людях их боевых соратников, рассказать, что они представляли собой как личности.
+
+В наше время – время ниспровергателей разных мастей, претендующих на знание (   Читать дальше...   )Жанр: Биографии и Мемуары, Военное дело, спецслужбыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FBC15B41C094C6A4E8FBCD8C59E17914EC384C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

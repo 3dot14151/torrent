@@ -1,3 +1,61 @@
+###  Публикация: 1128798   (726450) от 26.04.2017
+
+Business Template Lab - Templates for Pages 3.1.5 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Business Templates-  профессиональные и стильные бизнес-шаблоны для Pages.
+Business Templates представляет собой прекрасный комплект из 455 шаблонов для Pages, начиная от визитных карточек и информационных бюллетеней, брошюр, календарей,  товарных чеков и счетов,  заканчивая различными формами для менеджемента и других публикаций.
+
+Используйте шаблоны одной страницы, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16 апреля 2017Разработчик: JumsoftПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EEA7524B78ED03B0C020FE503B350E668720581
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128861   (726368) от 26.04.2017
+
+Flush Memory 2.1.1 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Flush Memory - это обязательный инструмент, который освободит RAM на вашем компьютере.
+Каждый раз, когда вы закрываете приложение, некоторая память, которую она использовала, преобразуется в неактивную память, и когда ОЗУ заполняется, система замедляется: процессы перестают отвечать на запросы и вам приходится ждать или делать принудительное завершение.
+
+Чтобы избежать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2016Разработчик: Giorgio VinciguerraПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3C34909100626493031F7982F344DC9938226BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128893   (726361) от 26.04.2017
 
 Lyn 1.8.9 [Multi/Ru]
@@ -6,7 +64,7 @@ Lyn 1.8.9 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726361.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ DoYourData Super Eraser for Mac 5.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726346.jpg" />
 </div>
 
 
@@ -62,7 +120,7 @@ PhotoDesk for Instagram 4.0.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726232.jpg" />
 </div>
 
 
@@ -91,7 +149,7 @@ ZBrush 2022.0.5 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726010.jpg" />
 </div>
 
 
@@ -117,7 +175,7 @@ Clockey 2.0.2d [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725236.jpg" />
 </div>
 
 
@@ -143,7 +201,7 @@ Nice Timer 3 3.2.0d [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725228.jpg" />
 </div>
 
 
@@ -169,7 +227,7 @@ QuickPhotos for Google 1.1.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724837.jpg" />
 </div>
 
 
@@ -196,7 +254,7 @@ SILKYPIX Developer Studio Pro 11 11.0.3.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724691.jpg" />
 </div>
 
 
@@ -222,7 +280,7 @@ Dictionaries 1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724614.jpg" />
 </div>
 
 
@@ -248,7 +306,7 @@ WebSitePainter 3.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724516.jpg" />
 </div>
 
 
@@ -277,7 +335,7 @@ MainMenu Pro 3.5.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724275.jpg" />
 </div>
 
 
@@ -303,7 +361,7 @@ Super MP3 Converter 6.2.25 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724232.jpg" />
 </div>
 
 
@@ -331,7 +389,7 @@ Xilisoft Audio Converter Pro 6.5.3 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724195.jpg" />
 </div>
 
 
@@ -357,7 +415,7 @@ Jaksta Media Recorder 2.0.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724086.jpg" />
 </div>
 
 
@@ -384,7 +442,7 @@ Framer Studio v89 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724082.jpg" />
 </div>
 
 
@@ -411,7 +469,7 @@ Affinity Publisher 1.8.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723062.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ Affinity Photo 1.8.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722949.jpg" />
 </div>
 
 
@@ -464,7 +522,7 @@ Final Draft 11 v11.1.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722864.jpg" />
 </div>
 
 
@@ -492,7 +550,7 @@ Pixologic ZBrush 2018 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722840.jpg" />
 </div>
 
 
@@ -518,7 +576,7 @@ Phawuo 3.0.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722791.jpg" />
 </div>
 
 
@@ -544,7 +602,7 @@ VLC media player for Mac 3.0.11.1 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722544.jpg" />
 </div>
 
 
@@ -570,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722395.jpg" />
 </div>
 
 
@@ -598,7 +656,7 @@ Day One 2 Journal + Notes 2.1.8 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722160.jpg" />
 </div>
 
 
@@ -625,7 +683,7 @@ MoneyWiz 2.3.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722034.jpg" />
 </div>
 
 
@@ -637,61 +695,6 @@ MoneyWiz - Финансовый Помощник
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2235F5F5313A815B30FD1D0B65E41480995D60D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400239   (721421) от 04.08.2020
-
-Alarmey 2 v2.0.3d [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Менеджер будильников, который всегда находится на расстоянии одного клика в строке меню. Вы можете использовать его в три быстрых и простых шага:
-1. Нажмите (или используйте горячую клавишу) один раз - добавьте сигнал.
-2. Нажмите (или используйте горячую клавишу) дважды - запланируйте будильник.
-3. Нажмите кнопку списка - проверьте свои будильники, ожидающие и завершенные, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.06.2020Разработчик: NICE APPS.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05D3BE9C451A69DE80DB962B3A3E33DDBBA090E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400247   (721413) от 04.08.2020
-
-Todoey 2: menu bar checklists v2.0.6d [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый простой способ запомнить что-то необходимое. Приложение находится в строке меню, поэтому оно всегда на расстоянии одного клика. Оно отлично вписывается в ваш рабочий стол macOS в темной и светлой темах. Todoey 2 также синхронизируется с помощью iCloud, поэтому вы всегда будете получать резервные копии и обновляться на всех ваших Mac.Тип издания: macOS SoftwareРелиз состоялся: 28.06.2020Разработчик: NICE APPS.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:209D16ED6BC34BACF135DE6B0177F5E6E860E7FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

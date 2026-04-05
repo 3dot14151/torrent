@@ -1,3 +1,148 @@
+###  Публикация: 1304380   (565416) от 25.05.2019
+
+Fleshgod Apocalypse - Veleno (2019) 2CD Deluxe Edition [MP3|320 Kbps] <Symphonic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565416.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+1. Fury
+2. Carnivorous Lamb
+3. Sugar(   Читать дальше...   )Жанр: Symphonic Death MetalПродолжительность: 01:54:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2E7ACD17584C0CBC3D41A664CA504BE78C9D860
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555781   (565364) от 06.06.2022
+
+Unearth - III: In the Eyes of Fire (2006) [FLAC|Lossless|image + .cue] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.This Glorious Nightmare 04:20
+02.Giles 03:56
+03.March of the Mutes 03:58
+04.Sanctity of Brothers 03:26(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D95D3FD82E63CDB01D843F231D8BE895C5E42095
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555823   (565358) от 06.06.2022
+
+Elephant Riders - Impure (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Impure
+02. Happy in This Shithole
+03. Quicksands
+04. Tough Lesson(   Читать дальше...   )Жанр: Stoner Rock, Doom MetalПродолжительность: 00:28:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29A3D3E72C98192298B50B254AC1CE7B23C85DB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555783   (565349) от 06.06.2022
+
+Raging Fury - Grotesque Masked Krusher (2019) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Demonic Beast Front 08:06
+02. Die Machine 05:57
+03. Cain Rose Up 03:51
+04. The Braizor 09:57(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:50:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B55BF572145EE6B64E6AF37F758BB951141769D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555789   (565343) от 06.06.2022
+
+Nula - So Zemlje (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom, Post-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Na pragu [00:09:03]
+02 - Iza vela [00:08:13]
+03 - Čaura [00:07:45]
+04 - Zagrobni darovi [00:07:23](   Читать дальше...   )Жанр: Sludge, Doom, Post-MetalПродолжительность: 00:45:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DE1C2A1CC5E95A437F513099E956F193605F2B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1555784   (565328) от 06.06.2022
 
 Paddy And The Rats - Riot City Outlaws (2007) [APE|Lossless|image + .cue] <Folk Metal>
@@ -6,7 +151,7 @@ Paddy And The Rats - Riot City Outlaws (2007) [APE|Lossless|image + .cue] <Folk 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565328.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Don Dokken - Solitary (2008) (Reissued-2020) [WavPack|Lossless|image + .cue] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565324.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Stardown - Empathy (2021) 2CD, Limited Edition [FLAC|Lossless|tracks + .cue] <Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565314.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Extreme Attack - ...in the Name of Thrash Metal (2013) [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565305.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Twisted Sister - Metal Meltdown (2016) Live [FLAC|Lossless|image + .cue] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565303.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Desecresy - The Doom Skeptron (2012) [FLAC|Lossless]<Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565284.jpg" />
 </div>
 
 
@@ -184,7 +329,7 @@ Nowen - Essence of Fear (2012) [FLAC|Lossless]<Death Metal/Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565280.jpg" />
 </div>
 
 
@@ -219,7 +364,7 @@ Cate Le Bon - Reward (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565272.jpg" />
 </div>
 
 
@@ -248,7 +393,7 @@ Alliance - Fire And Grace (2019) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565270.jpg" />
 </div>
 
 
@@ -277,7 +422,7 @@ The Forsaken - Beyond Redemption (2012) [FLAC|Lossless]<Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565235.jpg" />
 </div>
 
 
@@ -312,7 +457,7 @@ Foster The People - Sacred Hearts Club (2017) [FLAC|Lossless|WEB-DL|tracks] <Ind
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565219.jpg" />
 </div>
 
 
@@ -341,7 +486,7 @@ Sinister - Deformation Of The Holy Realm (2020) [FLAC|Lossless|image + .cue] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565217.jpg" />
 </div>
 
 
@@ -370,7 +515,7 @@ Inverted Virtue - Railroad To Hell (2021) [FLAC|Lossless|image + .cue] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565207.jpg" />
 </div>
 
 
@@ -399,7 +544,7 @@ Nibelheim - Drawing The Lines... (2007) [FLAC|Lossless|image + .cue] <Melodic De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565176.jpg" />
 </div>
 
 
@@ -428,7 +573,7 @@ Lewis Capaldi - Divinely Uninspired To A Hellish Extent (2019) [FLAC|Lossless|WE
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565122.jpg" />
 </div>
 
 
@@ -457,7 +602,7 @@ Armageddon - Heavy Metal Saga (2002) [FLAC|Lossless]<Heavy Metal / Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565086.jpg" />
 </div>
 
 
@@ -492,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564939.jpg" />
 </div>
 
 
@@ -527,7 +672,7 @@ Goodbye, Kings - The Cliché Of Falling Leaves (2022) [FLAC|Lossless|WEB-DL|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564869.jpg" />
 </div>
 
 
@@ -556,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564626.jpg" />
 </div>
 
 
@@ -585,7 +730,7 @@ Kopecky - Drug For The Modern Age (2015) [OGG|430-505 кб/с]<Alternative, Indi
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564625.jpg" />
 </div>
 
 
@@ -606,35 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 505753   (564600) от 06.06.2022
-
-Сектор газовой атаки - 18 Albums + 4 Compilation + 7 Single (2002-2022) [MP3|320 кб/с] <Punk-rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564600.jpg" />
-</div>
-
-
-###  Подробнее
-
-2002 - Памяти Юрия Хоя...
-2002 - Романтика с перцем
-2003 - Мат для вампира
-2003 - Страшные сказкиЖанр: Punk Rock |Продолжительность: 15:51:33 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A82601C7EF5B898A06ACA6AB5D205BF791D42079
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 923324   (564549) от 31.07.2015
 
 Rush - Presto (1989) Hybrid SACD, Limited Edition /2014, Audio Fidelity[FLAC|image + .cue]<Rock, Prog Rock>
@@ -643,7 +759,7 @@ Rush - Presto (1989) Hybrid SACD, Limited Edition /2014, Audio Fidelity[FLAC|ima
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564549.jpg" />
 </div>
 
 
@@ -657,128 +773,6 @@ Rush - Presto (1989) Hybrid SACD, Limited Edition /2014, Audio Fidelity[FLAC|ima
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF78A04669A5F5A3AD67791A28B2E7D479C7AD09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923371   (564531) от 31.07.2015
-
-Oomph! - XXV (2015) [FLAC|Lossless|WEB-DL]<Neue Deutsche Harte / Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dein Retter (2:54)
-02. Alles Aus Liebe (3:38)
-03. Jetzt Oder Nie (3:44)
-04. Als Wärs Das Letzte Mal (3:31)(   Читать дальше...   )Жанр: Neue Deutsche Harte / Industrial MetalПродолжительность: 00:54:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6BC8B52F35AEB0F54CDDBC3A0CEEB3A2EB6B2E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529883   (564523) от 01.08.2012
-
-KISS - Destroyer (Resurrected) (2012) [MP3|320 kbps] <Hard-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Detroit Rock City (2012 Remix) (05:15)
-02. King of the Night Time World (2012 Remix) (03:21)
-03. God of Thunder (2012 Remix) (04:17)
-04. Great Expectations (2012 Remix) (04:24)
-05. Flaming Youth (2012 Remix) (02:59)
-06. Sweet Pain (2012 Remix) (03:21)
-07. Shout It Out Loud (2012 Remix) (02:51)
-08. Beth (2012 Remix) (02:49)
-09. Do You Love Me (2012 Remix) (03:40)
-10. Rock and Roll Party (2012 Remix) (01:26)(   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64D91B586978CE43B1E71E887D9D5D362A089B52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923347   (564504) от 31.07.2015
-
-U.D.O. - Navy Metal Night (2015) Live [MP3|320 кб/с]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ride
-02. Days Of Hope And Glory
-03. Cut Me Out
-04. Trainride In Russia (Poezd Po Rossii)(   Читать дальше...   )Жанр: Heavy Metal |Продолжительность: 01:36:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:549179E21A03BE11E147611EB890AB9EC20C298C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923221   (564486) от 31.07.2015
-
-Placebo - B-Sides (2015) [MP3|320 кб/с]<Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drowning By Numbers
-02. Oxygen Thief
-03. Dark Globe
-04. Hare Krishna(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:08:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25FB9470F777A403735112D2BE1E7245FA0ECBFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

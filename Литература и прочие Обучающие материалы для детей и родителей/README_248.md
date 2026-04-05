@@ -1,3 +1,56 @@
+###  Публикация: 374434   (516513) от 11.08.2011
+
+«Эгмонт Россия Лтд.»|  Раскраска. Три богатыря и Шамаханская царица  (2011) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Рабочие тетради, прописи и разукрашки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскраска по мотивам мультфильма "Три богатыря и Шамаханская царица".
+От издателя: Наша раскраска поможет поставить руку, развить фантазию и образное мышление. Раскрашивая черно-белые картинки, ребенок научится передавать цветовую гамму с помощью карандашей или красок и обретет навыки рисования.Жанр: РаскраскаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C943D5C43FB54906EF814AAE19416BEFFDA30EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 374444   (516505) от 11.08.2011
+
+«Мандарин»|  Веселые картинки. Добрыня Никитич и Змей Горыныч. Раскраска. (2007)  [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Рабочие тетради, прописи и разукрашки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскраска для детей по мотивам мультфильма "Добрыня Никитич и Змей Горыныч"Жанр: РаскраскаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13E26004E0BA7195DDA6E42E942402735D3CE20D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 930214   (516396) от 22.08.2015
 
 С. Ольгина | Лесной театр (1964) [JPG]
@@ -6,7 +59,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516396.jpg" />
 </div>
 
 
@@ -35,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516391.jpg" />
 </div>
 
 
@@ -62,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516370.jpg" />
 </div>
 
 
@@ -89,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516349.jpg" />
 </div>
 
 
@@ -115,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516342.jpg" />
 </div>
 
 
@@ -142,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516264.jpg" />
 </div>
 
 
@@ -168,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515602.jpg" />
 </div>
 
 
@@ -194,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515551.jpg" />
 </div>
 
 
@@ -220,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515542.jpg" />
 </div>
 
 
@@ -246,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515539.jpg" />
 </div>
 
 
@@ -272,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515536.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515491.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515475.jpg" />
 </div>
 
 
@@ -350,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515441.jpg" />
 </div>
 
 
@@ -376,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515393.jpg" />
 </div>
 
 
@@ -402,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515302.jpg" />
 </div>
 
 
@@ -431,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515296.jpg" />
 </div>
 
 
@@ -458,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515295.jpg" />
 </div>
 
 
@@ -486,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515264.jpg" />
 </div>
 
 
@@ -514,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515260.jpg" />
 </div>
 
 
@@ -540,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515259.jpg" />
 </div>
 
 
@@ -568,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515245.jpg" />
 </div>
 
 
@@ -594,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515153.jpg" />
 </div>
 
 
@@ -621,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515152.jpg" />
 </div>
 
 
@@ -634,61 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:435ABB5FC969B7926754E85E7653F8B7058B8F5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930442   (515141) от 23.08.2015
-
-Журнал | Веселый затейник, № 1 (2015) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Журналы для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515141.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отличный ежемесячный познавателно-развлекательный журнал для детей школьно возраста (7-14 лет). В каждом выпуске много интересных и увлекательных заданий для самых любопытных и не угомонных детишек. В этом номере различные пословицы и поговорки
-Игры со спичками, лабиринты с загадками, раскраски, занимательные опыты
-Игры с друзьями
-Так что с этим журналом ваше ребёнок (   Читать дальше...   )Жанр: Развлечения. досугФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AE44A38B601A8FC4ACC24E0EE248ABA363D4D6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241898   (515132) от 22.08.2018
-
-Александр Ткаченко | Житие святого благоверного князя Александра Невского в пересказе для детей (2017) [FB2, PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слабых нужно защищать. Эту простую истину каждый знает. Но вот исполнять её на деле бывает трудно, а иногда - просто страшно. Например, когда видишь, что плохие мальчишки обижают девочку или малыша, то сердце подсказывает — нужно заступиться. И ты вроде бы совсем готов прийти на помощь, но... ноги сами идут в другую сторону. А потом очень долго со стыдом вспоминаешь (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDE54905CC596CBCF43A365DCB7FEB5CBA42E10B
 ```
 
 https://mybot314.ru/tekegram_catalog/

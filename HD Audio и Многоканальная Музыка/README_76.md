@@ -1,32 +1,3 @@
-###  Публикация: 1678067   (147527) от 20.11.2023
-
-Olivia Newton-John - Totally Hot (1978) 45th Anniversary, Remastered, Reissue, 2023, Geffen [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Please Don't Keep Me Waiting (5:48)
-02. Dancin' 'Round And 'Round (4:01)
-03. Talk To Me (3:29)
-04. Deeper Than The Night (3:38)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:304DAFE2FDACFA4926DC284230E04122725C5431
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677806   (147477) от 20.11.2023
 
 Papa Roach - 20/20 (2020) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Alternative Rock>
@@ -35,7 +6,7 @@ Papa Roach - 20/20 (2020) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Alternative
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147477.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Thea Gilmore - Thea Gilmore (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147439.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Bob Dylan - The Complete Budokan 1978 (Live) (2023) [FLAC 24/96|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147431.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Vince Clarke - Songs of Silence (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ambi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147371.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Dolly Parton - Rockstar (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop-Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147324.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Joanne Shaw Taylor - Reckless Heart (2019) [FLAC 2.0 24/192|image (Vinyl-Rip)]<B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147033.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Barclay James Harvest - Eyes Of The Universe (1979) [FLAC 2.0|192/24|image + .cu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146511.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ VA - Песни из телефильма ''Тайна Снежной Корол
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146183.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146130.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Vince Neil - Exposed (1993) [FLAC|24/96|tracks|Vinyl-Rip] <Hard Rock, Glam Metal
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146041.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Trans-Siberian Orchestra - The Ghosts of Christmas Eve (2013) The Complete Narra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145599.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145212.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Gregorian - Pure Chants (2021) [DTS-ES Discrete 6.1 CD-Audio|44.1/16|image+.cue|
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144831.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144425.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ VA - The Civil War - Original Soundtrack Recording. Traditional American Songs A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144407.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Dogma - Dogma (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard N' Heavy / Fema
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143963.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Mono Inc. - Mono Inc. (Live in Hamburg) (2023) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142499.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Opeth - Still Life (1999) Reissue 2012, Peaceville [FLAC|24/192|image + .cue|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142479.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ VA - До 16 и старше. Выпуск 3 (2000) [FLAC 2.0|48/24|image+.cue|M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142464.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Beth Hart - War in My Mind (2019) [FLAC 2.0|192/24|image+cue|Vinyl-Rip]<Blues-Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142401.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ The Pretty Reckless - Death by Rock and Roll (2021) [DSD128 2.0|tracks|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141809.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ Felix De Luxe - So Weit So Gut (1987) Maxi-Single, 45 RPM [FLAC 2.0|192/24|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141802.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Soulfly (Max Cavalera; Sepultura) - Studio Albums (12 releases) (1998-2022) hand
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141592.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ Electric Light Orchestra - Discovery (1979) Japanese Edition [DSD128 2.0|5,645 M
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141385.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ Yello - You Gotta Say Yes To Another Excess (1983) [FLAC 2.0 24/96|traks(Vinil-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141203.jpg" />
 </div>
 
 
@@ -751,6 +722,35 @@ Yello - You Gotta Say Yes To Another Excess (1983) [FLAC 2.0 24/96|traks(Vinil-R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D891DA1AE4586B582B8C619B9581245841CD0075
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348746   (140982) от 29.12.2019
+
+Leonard Cohen - Thanks for the Dance (2019) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Contemporary Singer/Songwriter>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happens to the Heart (4:34)
+ 02. Moving On (3:12)
+ 03. The Night of Santiago (4:15)
+ 04. Thanks for the Dance (4:13)(   Читать дальше...   )Жанр: Contemporary Singer/SongwriterПродолжительность: 00:29:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4B856C6887D03482BB918D17F88CCB19526C9A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

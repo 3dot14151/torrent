@@ -1,3 +1,94 @@
+###  Публикация: 1561372   (515529) от 04.07.2022
+
+Boss Keloid - Family The Smiling Thrush LIVE At Foel Studio (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Sludge Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Orang Of Noyn (00:08:56)
+02 - Gentle Clovis (00:06:31)
+03 - Hats The Mandrill (00:06:39)
+04 - Smiling Thrush (00:05:09)(   Читать дальше...   )Жанр: Progressive Sludge MetalПродолжительность: 00:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A3DDE5982AA2E6A0CC9E30B47608B8CAEED511F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 622274   (515521) от 04.07.2022
+
+AxeWound - Vultures (2012) [FLAC|Lossless]<Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515521.jpg" />
+</div>
+
+
+###  Подробнее
+
+<<<
+------------------------------------------------------------------------
+01. Vultures
+02. Post Apocalyptic Party
+03. Victim Of The System
+04. Cold
+05. Burn Alive
+06. Exorchrist
+07. Collide
+08. Destroy(   Читать дальше...   )Тип издания: АльбомЖанр: MetalcoreПродолжительность: 00:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E76820C050B923E6F03712263922BDAB1A3E18E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 535685   (515508) от 17.08.2012
+
+The First International Sex Opera Band - Anita (1969) [MP3|320 кб/с]<Space Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Anita's First Appearance, Part 1
+02 - Anita's First Appearance, Part 2Жанр: Space Rock, Psychedelic RockПродолжительность: 00:30:06
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 49554   (515368) от 17.08.2012
 
 Judas Priest (1974 — 2005)
@@ -6,7 +97,7 @@ Judas Priest (1974 — 2005)
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515368.jpg" />
 </div>
 
 
@@ -41,7 +132,7 @@ Ghost - Meliora (2015) Best Buy Exclusive [MP3|320 кб/с]<Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515219.jpg" />
 </div>
 
 
@@ -70,7 +161,7 @@ Rod Stewart - Greatest Hits (2012) 2CD [FLAC|image+.cue]<Rock, Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515140.jpg" />
 </div>
 
 
@@ -99,7 +190,7 @@ Sum 41 - Order in Decline (2019) [MP3|320 Kbps] <Punk Rock, Pop Punk>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514939.jpg" />
 </div>
 
 
@@ -128,7 +219,7 @@ Sabaton - The Great War (2019) 3CD, Limited Edition [MP3|320 Kbps] <Power Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514776.jpg" />
 </div>
 
 
@@ -157,7 +248,7 @@ Backfire - The Two of Us (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514685.jpg" />
 </div>
 
 
@@ -186,7 +277,7 @@ Horned Wolf - Become Like They Are (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514682.jpg" />
 </div>
 
 
@@ -215,7 +306,7 @@ Thumpermonkey - We Bake Our Bread Beneath Her Holy Fire (2009) [FLAC|Lossless|WE
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514679.jpg" />
 </div>
 
 
@@ -244,7 +335,7 @@ Gurth - 3 Albums (2018-2022) [MP3|320 Kbps] <Alternative, Metalcore, Emocore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514670.jpg" />
 </div>
 
 
@@ -273,7 +364,7 @@ Ironflame - Where Madness Dwells (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514668.jpg" />
 </div>
 
 
@@ -302,7 +393,7 @@ Thera - From The North [EP] (2012) [MP3|256 кб/с]<Alternative Rock/Post-Hardc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514594.jpg" />
 </div>
 
 
@@ -332,7 +423,7 @@ Greg Puciato - 3 Albums / 3 Singles (2020-2022)  Federal Prisoner Record [FLAC|L
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514510.jpg" />
 </div>
 
 
@@ -360,7 +451,7 @@ Fleetwood Mac - The Complete Blue Horizon Sessions (1999) 6CD BoxSet[FLAC|Lossle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514372.jpg" />
 </div>
 
 
@@ -389,7 +480,7 @@ From Autumn To Ashes - Holding A Wolf By The Ears (2007) [MP3|320 кб/с]<Hardc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514093.jpg" />
 </div>
 
 
@@ -418,7 +509,7 @@ Metal Church - The Dark (1986) [FLAC|image +cue] Japan <Heavy/Power/Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514090.jpg" />
 </div>
 
 
@@ -447,7 +538,7 @@ Ashes Remain - Last Day Breathing (2007) [MP3|320 кб/с]<Alt.Rock , Modern Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514086.jpg" />
 </div>
 
 
@@ -476,7 +567,7 @@ Roуаl Нunt - Devil's Dozen (2015) Japanese Limited Edition [FLAC|image+.cue]<
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514083.jpg" />
 </div>
 
 
@@ -505,7 +596,7 @@ Senses Fail - Pull The Thorns From Your Heart (2015) [MP3|320 кб/с]<Hardcore 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514028.jpg" />
 </div>
 
 
@@ -534,7 +625,7 @@ Radkey - Dark Black Makeup (2015) [OGG| 444-518 кб/с]<Alternative Rock, Garag
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513959.jpg" />
 </div>
 
 
@@ -563,7 +654,7 @@ Royal Hunt - Devil's Dozen (2015) Japanese Limited Edition [MP3|320 кб/с]<Mel
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513945.jpg" />
 </div>
 
 
@@ -592,7 +683,7 @@ VA - Mod - The Ultimate Collection (5CD) (2018) [MP3|320 Kbps] <Punk, Mod Reviva
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513924.jpg" />
 </div>
 
 
@@ -624,7 +715,7 @@ The Flaming Lips - King's Mouth (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513893.jpg" />
 </div>
 
 
@@ -653,7 +744,7 @@ Oomph! - XXV (2015) [FLAC|image+.cue]<Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513880.jpg" />
 </div>
 
 
@@ -667,93 +758,6 @@ Oomph! - XXV (2015) [FLAC|image+.cue]<Industrial Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BBA363FEAEB7C87591E67736CFD4A617DB13389
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930758   (513876) от 24.08.2015
-
-Bon Jovi - Burning Bridges (2015) [FLAC|image+.cue]<Melodic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Teardrop To The Sea
-02. We Don't Run
-03. Saturday Night Gave Me Sunday Morning
-04. We All Fall Down(   Читать дальше...   )Жанр: Melodic Rock, Hard RockПродолжительность: 00:40:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4595C003099ECB051196A7A3005C6950D4EB4C01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930582   (513871) от 24.08.2015
-
-VA - Stairways To The Songbook Of Led Zeppelin - Homage To The Legend (2015) [FLAC|image + .cue]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. STAIRWAY TO HEAVEN [8:22]
- Dweezil Zappa - Lead Guitar
- Michael White - Vocals
- Billy Sherwood - Bass, Guitar(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF5FA00BF99124381EFCD2682CF6924D949A6FE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930861   (513864) от 24.08.2015
-
-Йорш - Оковы Мира (2015) [MP3|320 кб/с]<Punk Rock, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Слово
-02. В игре
-03. Ненависть
-04. Живое оружие(   Читать дальше...   )Жанр: Punk Rock, AlternativeПродолжительность: 00:39:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DABBE15CF33B37B46BA1BAE5D486CA6E38D47AAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

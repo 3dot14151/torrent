@@ -1,3 +1,62 @@
+###  Публикация: 950222   (371840) от 25.10.2015
+
+SpyHunter 4.20.9.4533 RePack (& Portable) by D!akov [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371840.jpg" />
+</div>
+
+
+###  Подробнее
+
+SpyHunter - мощная утилита, которая в режиме реального времени очищает ОС от программ-шпионов, кейлоггеров, резидентных вирусов и при необходимости удаляет следы оставленные ими. Проверяет запущенные процессы, ключи реестра, элементы ActiveX. Имеет весьма дружественный интерфейс, благодаря которому, предельно проста в работе, а внушительная база сигнатур не позволит (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F112FDD263E3781D2515907C4490B36B8B5A8EA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 153530   (371773) от 18.11.2009
+
+Adobe Premiere Pro CS4 4.2.020 [Multilingual]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Premiere Pro CS4 представляет собой обновленную версию получившего множество наград набора инструментов для нелинейного видеомонтажа.
+
+Пакет Adobe After Effects CS4 Professional предлагает все необходимое для создания визуальных спецэффектов и компоновки видео-продукции, предназначенной для публикации на DVD-носителях или web-сайтах, а также для воспроизведения на мобильных устройствах. А приложение Adobe Soundbooth CS3, адресованное профессиональным и начинающим звукорежиссерам, позволит решать широкий спектр задач, связанных с обработкой аудиоданных.
+
+Расширенная интеграция с другими продуктами Adobe.
+Multicam - работа с несколькими камерами, теперь это возможно быстро и легко. Можно одновременно просматривать несколько треков и переключаться между ними в реальном времени. Синхронизация клипов осуществляется на базе timecode.
+Профессиональная цветовая коррекция - можно использовать как primary так и secondary инструменты цветового исправления. Возможна замена цвета, коррекция ошибок экспозиции и т.д.
+DVD (   Читать дальше...   )Язык интерфейса: Multilingual + русский, только для версии 4.0.0
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950030   (371682) от 25.10.2015
 
 Windroye 2.8.4 [Multi/Ru]
@@ -6,7 +65,7 @@ Windroye 2.8.4 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371682.jpg" />
 </div>
 
 
@@ -32,7 +91,7 @@ Windows 10 PE (x64) v.4.1 by Ratiborus [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371680.jpg" />
 </div>
 
 
@@ -58,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371678.jpg" />
 </div>
 
 
@@ -84,7 +143,7 @@ Just Dance 2016 (2015) [Wii] [PAL] [License] [En/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371677.jpg" />
 </div>
 
 
@@ -110,7 +169,7 @@ Movavi Video Converter 16.0.2 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371670.jpg" />
 </div>
 
 
@@ -136,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371665.jpg" />
 </div>
 
 
@@ -162,7 +221,7 @@ Denuvo идёт ко дну? За последний месяц третий AAA
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_371357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_371357.jpg" />
 </div>
 
 
@@ -188,7 +247,7 @@ Torchlight III (2020) [Ru/Multi] (1.0) License DARKSiDERS
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371184.jpg" />
 </div>
 
 
@@ -214,7 +273,7 @@ Navitel / Навител Навигатор v9.13.66 RePack для карт ре
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371168.jpg" />
 </div>
 
 
@@ -240,7 +299,7 @@ dBpowerAMP Music Converter v. 13.5 + All Codecs & Utility & Encoders 13.5 [Ан�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370588.jpg" />
 </div>
 
 
@@ -266,7 +325,7 @@ Adobe Media Encoder CC 2017.0 11.0.0.131 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370344.jpg" />
 </div>
 
 
@@ -292,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370327.jpg" />
 </div>
 
 
@@ -318,7 +377,7 @@ BELOFF 2016.10.1 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370322.jpg" />
 </div>
 
 
@@ -344,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370318.jpg" />
 </div>
 
 
@@ -370,7 +429,7 @@ Red Giant Magic Bullet Suite 13.0.1 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370315.jpg" />
 </div>
 
 
@@ -396,7 +455,7 @@ AntiSMS 3.0 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_369940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_369940.jpg" />
 </div>
 
 
@@ -423,7 +482,7 @@ Windows 7 xDark™ Deluxe v4.5 x64 RG - Codename: State Of Independence [OKT. 01
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369766.jpg" />
 </div>
 
 
@@ -451,7 +510,7 @@ Shingeki no Kyojin Season 3 | Attack on Titan [TV-3] | Атака титанов
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369747.jpg" />
 </div>
 
 
@@ -477,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369701.jpg" />
 </div>
 
 
@@ -503,7 +562,7 @@ CyberGhost VPN 4.7.19.1229 [MULTi / Английский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_369698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_369698.jpg" />
 </div>
 
 
@@ -531,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369608.jpg" />
 </div>
 
 
@@ -557,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369492.jpg" />
 </div>
 
 
@@ -583,7 +642,7 @@ System Ninja 3.1.1 + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369401.jpg" />
 </div>
 
 
@@ -609,7 +668,7 @@ Monument Valley v2.4.0 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369290.jpg" />
 </div>
 
 
@@ -620,58 +679,6 @@ Monument Valley - игра головоломка на андроид, в кот
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6ACEC3E7B40F96B0E52F1BA31B144AE661E7937A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950334   (369272) от 26.10.2015
-
-HD Tune Pro 5.60 RePack (& portable) by KpoJIuK (25.10.2015) [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369272.jpg" />
-</div>
-
-
-###  Подробнее
-
-HD Tune Pro - программа для планомерного детального тестирования текущей работоспособности и производительности жестких дисков / SSD с различными интерфейсами (SCSI, SATA или IDE), а так же карт памяти и flash-дисков. Программа производит замер и наглядно отображает такие параметры накопителей, как скорость передачи данных, время чтения, записи и время доступа, уровень (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DD3573F94E404DDF3604F566412A0F7797D4129
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176667   (368969) от 22.10.2017
-
-Acronis BootCD 7PE x86/x64 by naifle (22.10.2017) [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368969.jpg" />
-</div>
-
-
-###  Подробнее
-
-Acronis BootCD WinPE - загрузочный диск, содержащий пакет последних версий двух наиболее популярных русскоязычных программ компании Acronis - Acronis True Image и Acronis Disk Director, предназначенных для резервного копирования, создания точных образов жесткого диска и его отдельных областей. В числе функций диска восстановления системы, управление разделами: создание, (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8EFA4C8EF399A48E1E58680FD1AC5C07493D9B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

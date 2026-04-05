@@ -1,3 +1,29 @@
+###  Публикация: 1549917   (236313) от 09.05.2022
+
+Udemy, Md. A. Barik | LeetCode in Java: Algorithms Coding Interview Questions (2022) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236313.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе вы получите подробное пошаговое объяснение классических задач LeetCode, отобранных вручную, где вы узнаете об оптимальных способах решения вопроса на собеседовании по техническому программированию. Это курс, который я хотел бы иметь, когда готовился к собеседованию. LeetCode — это огромный репозиторий реальных вопросов для интервью, заданных самыми популярными (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 29:31:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C27DC56C40F6DA19773940F91E0366066F0148D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1550357   (236282) от 10.05.2022
 
 Udemy, Imran Nuruhussen | Complete Blender Course: From modelling to a short animation (2022) PCRec [EN / EN Sub]
@@ -6,7 +32,7 @@ Udemy, Imran Nuruhussen | Complete Blender Course: From modelling to a short ani
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236282.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ FlippedNormals, Emiel Sleegers | Advanced Texturing in Substance Painter (2021) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236269.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Udemy, Aleksey Zhadan, Лев Мотовских | AWS. Обучение раб�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236045.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Udemy, Andrii Polishchuk | React Hooks в Деталях (2021) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236011.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ The Gnomon Workshop, Guilherme Rambelli | Creating Assets for Games using Photog
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236005.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Udemy, Maria Brodskaya | Тестирование ПО для начинающи
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235994.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Udemy, Sergey Dragunov | Android Studio и Firebase - "Доска Объявле
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235953.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Udemy, Руслан Брантов | Курс по CorelDRAW: теория, пр
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235946.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235724.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235645.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ Epic Games, Paul Kind | Studio Lighting (2019) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235635.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ Gumroad, Wiktor Öhman | Mastering UE4 - Intro to Cinematic Lighting (2020) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235627.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ Udemy, Art Studio | Complete Blender Course for Beginners & Intermediate (2022) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235601.jpg" />
 </div>
 
 
@@ -355,7 +381,7 @@ Udemy, Mateusz Wendowski | AAA Game 3D Character Art course Module 01 - Body (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235586.jpg" />
 </div>
 
 
@@ -381,7 +407,7 @@ JUG Ru Group | TechTrain 2022 Spring. Фестиваль для разработ
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235580.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ Titanic Games, Jaxon | RPG Tutorial Series (2016) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235573.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ Skillshare, Yassine Larayedh | Create Realistic Looking 3D Environments in Blend
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235551.jpg" />
 </div>
 
 
@@ -462,7 +488,7 @@ Udemy, Art Studio | Complete Blender Creator: Learn 3D Modelling for Beginners (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235520.jpg" />
 </div>
 
 
@@ -489,7 +515,7 @@ Udemy, Миша Пискунов | Андроид приложение от ди
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235512.jpg" />
 </div>
 
 
@@ -518,7 +544,7 @@ JUG Ru Group | Mobius 2022 Spring. Конференция по мобильно�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235468.jpg" />
 </div>
 
 
@@ -546,7 +572,7 @@ Von Glitschka | Лаборатория векторной графики (2016-2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235432.jpg" />
 </div>
 
 
@@ -572,7 +598,7 @@ Udemy, Evgeny Novikov | Создание фреймворка и автомат�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235395.jpg" />
 </div>
 
 
@@ -598,7 +624,7 @@ Udemy, Bhrugen Patel, Andrei Brizhak | .NET Core Microservices - Полное р
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235291.jpg" />
 </div>
 
 
@@ -625,7 +651,7 @@ Udemy, Oleg Novikov | Сайт на Django 3. Сервис по сбору да�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235273.jpg" />
 </div>
 
 
@@ -651,7 +677,7 @@ Udemy, Дмитрий Читалов | Создаем Telegram бот - мага
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235238.jpg" />
 </div>
 
 
@@ -662,33 +688,6 @@ Udemy, Дмитрий Читалов | Создаем Telegram бот - мага
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:496C4ED042284751A50352DA1C8A900D7E10823C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551431   (235190) от 15.05.2022
-
-The Art Of Aaron Blaise, Aaron Blaise | Perspective Drawing (2019) PCRec [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аарон Блейз – номинированный на Оскар режиссер, аниматор и художник. И в этом абсолютно новом пятичасовом курсе этот всемирно известный художник будет учить вас работать с перспективой.
-Аарон продемонстрирует несколько техник создания рисунков с линейной перспективой и объяснит свой мыслительный процесс и свои методы в легко доступной манере.Производство: The Art Of Aaron BlaiseЖанр: Изобразительное искусствоЯзык озвучки: Русский (отдельным файлом)Продолжительность: 04:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:409A313E4C2B6AD4C4726BF33EC804EF681E9DDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

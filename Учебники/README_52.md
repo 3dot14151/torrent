@@ -1,3 +1,55 @@
+###  Публикация: 923466   (562689) от 01.08.2015
+
+В.Г. Дьяченко | Основы теплотехники и тепловые машины (2002) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562689.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены основные определения в термодинамике, первичные источники энергии, законы термодинамики, термодинамические процессы, циклы тепловых машин, принцип работы, особенности конструкций и основные характеристики тепловых двигателей, используемых на объектах бронетанковой и автомобильной техникиЖанр: МашиностроениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41EF22E46727BFF8F64007BE74F65572A8EE9ADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923706   (562617) от 01.08.2015
+
+Л.А. Скоробогатова, А.Л. Семенов | Полупроводниковая электроника (2014) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562617.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии рассмотрены физические основы процессов, определяющих принип действия полупроводниковых приборов, явления переноса и контактные явления в полупроводниках и структурах металл–полупроводник, металл–диэлектрик–полупроводник. Рассмотрены устройство, принцип действия и характеристики основных полупроводниковых приборов с р-n-переходами и диода Ганна. (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:871E6295A278725D0CF40F9DA363E2168CAB9C7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 923659   (562574) от 01.08.2015
 
 А.В. Аттетков и др. | Введение в методы оптимизации (2008) [DJVU]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562574.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562567.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561569.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561318.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560529.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559565.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559552.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559449.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559308.jpg" />
 </div>
 
 
@@ -247,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559305.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559213.jpg" />
 </div>
 
 
@@ -301,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558766.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558730.jpg" />
 </div>
 
 
@@ -355,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558269.jpg" />
 </div>
 
 
@@ -381,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557094.jpg" />
 </div>
 
 
@@ -409,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556950.jpg" />
 </div>
 
 
@@ -436,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556013.jpg" />
 </div>
 
 
@@ -463,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555448.jpg" />
 </div>
 
 
@@ -490,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555410.jpg" />
 </div>
 
 
@@ -516,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554958.jpg" />
 </div>
 
 
@@ -542,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554726.jpg" />
 </div>
 
 
@@ -568,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554464.jpg" />
 </div>
 
 
@@ -595,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554139.jpg" />
 </div>
 
 
@@ -621,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554136.jpg" />
 </div>
 
 
@@ -633,61 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8E748BDE5FDCEC6A502413267551C9D6BBA46D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308172   (554111) от 13.06.2019
-
-В.А. Далингер | Математика. Логарифмические уравнения и неравенства (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554111.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии рассмотрены основные типы логарифмических уравнений, неравенств и их систем. Приведены теоретические положения, лежащие в основе решения указанных типов уравнений, неравенств и их систем, и на большом числе разнообразных примеров иллюстрируются методы их решения.
-Соответствует актуальным требованиям Федерального государственного образовательного (   Читать дальше...   )Жанр: Учебное пособие, МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:144B2448A61B8174E7D0B77AA542E3A4F3CBDD74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236771   (553783) от 20.07.2018
-
-Антон Рихванов | Физика (курс для начинающих) (2018) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Привет, друзья. Перед Вами учебник по физике для начинающих. Если Вам надоели скучные и сухие учебники по физике, в которых невозможно разобрать ни слова, если Вы хотите научиться видеть законы физики вокруг себя и использовать их в своей практической жизни, то этот учебник для Вас.
-
-Курс объясняется простым и понятным языком, поэтому даже представители гуманитарных (   Читать дальше...   )Жанр: УчебникиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A33BC497A72792C6E171EDAB715F66BAF1574BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Messy Up (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51483.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ KUNAI (2020) [Ru/Multi] (1.0.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51151.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ FlashBack 2 (2023) [Multi] (20240521) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51146.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Flame Keeper (2023) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51003.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ FlashBack 2 (2023) [Ru/Multi] (20240627) Scene Skidrow
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50875.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Valfaris (2019) [Ru/Multi] (1.1) License GOG [Digital Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50726.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Godrop (2024) [Ru/Multi] (1.34/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50682.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Splatter - Zombiecalypse Now (2024) [Ru/Multi] (1.2_gog) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50635.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ FlashBack 2 (2023) [Multi] (1.00) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50414.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ SAMURAI WARRIORS 4 DX (2024) [Multi] (1.0.1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50390.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ DRAGON QUEST BUILDERS (2024) [Multi] (1.0.1/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50277.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ The Riftbreaker (2021) [Ru/Multi] (11738015/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50271.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ SunnySide (2024) [Multi] (1.15.11) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50246.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Project Zero 2: Apocalypse Party / Вечеринка Апокалипсиса (
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50077.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Anger Foot (2024) [Ru/Multi] (1.3) Scene SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49853.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Astro Looter: Survivor (2024) [Ru/Multi] (16072024) Scene SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49794.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Ladder it Up! (2024) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49650.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Asterix & Obelix Slap Them All! 2 (2023) [Multi] (2023121101) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49458.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Only Up! (2023) [Ru/Multi] (1.0) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49409.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ ReRoad (2020) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49339.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Anger Foot (2024) [Ru/Multi] (1.3) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49303.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Raw Metal (2024) [En] (1.1.1) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49071.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Tekken 8 (2024) [Ru/Multi] (1.06.01/dlc) Scene Rune [Ultimate Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49058.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Double Dragon Gaiden: Rise Of The Dragons (2023) [Multi] (build 14716072/dlc) Re
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49010.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Beat Hazard 3 (2024) [Ru/Multi] (1.016) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48706.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ The Sacred Acorn (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48686.jpg" />
 </div>
 
 

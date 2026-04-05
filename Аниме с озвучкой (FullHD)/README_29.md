@@ -1,3 +1,111 @@
+###  Публикация: 1584042   (159119) от 25.12.2022
+
+Все мы немного врём | Четыре человека и ложь каждого | 4-nin wa Sorezore Uso o Tsuku | The Little Lies We All Tell [2022, TV, 11 из 11] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159119.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о четырёх школьницах, которые с виду кажутся обычными. Молодые девушки действительно ещё подростки, которым нужно постоянно посещать школу, и знакомиться с другими сверстниками. Главные герои так и поступают, однако не всё так просто. На самом деле молодые девушки обладают секретами. Именно поэтому, они не выглядят как обычные красавицы, и стараются мало (   Читать дальше...   )Производство: Япония / Студия Studio Flad, Studio PierrotЖанр: Комедия, повседневность, школа, мультсериалРежиссер: Хосино МакотоЯзык озвучки: Русский многоголосый, закадровый (AniDub)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 11 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DB6841F95C561A81BBAC7C811FDAF4EB6C51D58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444226   (159046) от 11.11.2023
+
+Shingeki no Kyojin Season 2 | Attack on Titan Season 2 | Атака титанов [ТВ-2] [2017, TV, 12 из 12] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Люди и гиганты. Кто из них охотник, а кто жертва? Для того, чтобы понять это, был создан корпус разведки под командованием Эрвина Смита. Но последние загадочные события, во многих из которых были замешаны кадеты 104 корпуса, поставили командира разведки в трудное положение.
+
+Кто же такие эти гиганты? Откуда они явились? Есть ли еще люди, которые могут превращаться (   Читать дальше...   )Производство: Wit StudioЖанр: приключения, фэнтези, драмаРежиссер: Араки ТэцуроЯзык озвучки: Японский, русский (AniDub, AniLibria, KANSAI, NewComers, Wakanim)Субтитры: Русские (Crunchyroll, Nesitach & Stan WarHammer, Firegorn Team)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2E4E062C1D689FA32D60BD6E4F0453A0F21D98C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582532   (158783) от 26.12.2022
+
+Принцесса-библиофил | Mushikaburi Hime | Bibliophile Princess [2022, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Больше всего на свете Элиана Бернштайн любит книги. Всю свою жизнь она предпочитала общество книг балам, турнирам, кулуарным интригам и всему тому, чем обычно любят заниматься аристократы её возраста. В то же время статус аристократки пусть и позволял ей наслаждаться чтением без всяких ограничений, однако и обязывал Элиану обзавестись женихом. К счастью, нашёлся (   Читать дальше...   )Производство: Япония / Студия MadhouseЖанр: Драма, исторический, романтикаРежиссер: Ивасаки ТароЯзык озвучки: Русский двухголосый, закадровый, Японский
+- Kroxxa, WhiteCrow (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8DF0300C529644645B8409FC93414226A2076CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583595   (156386) от 27.12.2022
+
+Легенда о мане: Кристалл слёз | Легенда святого меча: Легенда маны - Кристал слёз | Seiken Densetsu: Legend of Mana - The Teardrop Crystal [2022, TV, 12 из 12] WEBRip 1080p Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Древняя легенда гласит, что существует магические святой меч, он надежно спрятан от посторонних глаз, и обнаружить его слишком сложно, а может и невозможно. Охотники за артефактами и сокровищами знают эту древнюю легенду и уже на протяжении многих веков целые поколения пытаются найти их. Главный герой уже долгое время ищет бесценный артефакт в этом ему помогает верный (   Читать дальше...   )Производство: Япония / Студия Graphinica, Yokohama Animation LabЖанр: Приключения, фэнтезиРежиссер: Дзимбо МасатоЯзык озвучки: Русский многоголосый, закадровый
+- Viki, Abe, Monashka, Sedrix, DiWilliam (SHIZA Project)Субтитры: Русские (хардсаб на надписи)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EBE6E9EDB56A8E4A64641D7E15390D57B482DE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1563246   (156319) от 27.12.2022
 
 Люцифер и бисквитный молот | Hoshi no Samidare | Lucifer and the Biscuit Hammer [2022, TV, 24 из 24] WEBRip 1080p Raw+Rus
@@ -6,7 +114,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156319.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ Tensei Shitara Ken Deshita | О моём перерождении в меч | Re
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156308.jpg" />
 </div>
 
 
@@ -58,7 +166,7 @@ Gekijouban Fairy Tail -Dragon Cry- | Fairy Tail: Dragon Cry | Хвост Феи:
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154940.jpg" />
 </div>
 
 
@@ -84,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154540.jpg" />
 </div>
 
 
@@ -111,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154466.jpg" />
 </div>
 
 
@@ -137,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154437.jpg" />
 </div>
 
 
@@ -163,7 +271,7 @@ Utawarerumono: Tusukuru-koujo no Karei Naru Hibi | Прославленный: �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153872.jpg" />
 </div>
 
 
@@ -189,7 +297,7 @@ Utawarerumono | Прославленный [2009, OVA, 3 + 3] BDRip 1080p HEVC 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153381.jpg" />
 </div>
 
 
@@ -215,7 +323,7 @@ Utawarerumono: Itsuwari no Kamen | Utawarerumono: The False Faces | Просла
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153351.jpg" />
 </div>
 
 
@@ -241,7 +349,7 @@ Utawarerumono | Shadow Warrior Chronicles | The One Being Sung | Прослав�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153344.jpg" />
 </div>
 
 
@@ -267,7 +375,7 @@ Tejina Senpai | Фокусница-старшеклассница | Magical Semp
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152654.jpg" />
 </div>
 
 
@@ -293,7 +401,7 @@ Eiga Senpai wa Otokonoko: Ame Nochi Hare | Senpai Is an Otokonoko Movie: Sunshin
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152141.jpg" />
 </div>
 
 
@@ -319,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152093.jpg" />
 </div>
 
 
@@ -345,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151271.jpg" />
 </div>
 
 
@@ -372,7 +480,7 @@ Chio-chan no Tsuugakuro | Дорога в школу Чио-чан [2018, TV, 12
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150857.jpg" />
 </div>
 
 
@@ -399,7 +507,7 @@ Gate: Jieitai Kanochi nite, Kaku Tatakaeri | Врата: Там Бьются Н�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147762.jpg" />
 </div>
 
 
@@ -425,7 +533,7 @@ Fairy Gone / Пропавшие феи [2019, TV, 24 ep] WEBRip 1080p Rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147716.jpg" />
 </div>
 
 
@@ -451,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147645.jpg" />
 </div>
 
 
@@ -479,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146909.jpg" />
 </div>
 
 
@@ -506,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146009.jpg" />
 </div>
 
 
@@ -532,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144181.jpg" />
 </div>
 
 
@@ -558,7 +666,7 @@ Mob Psycho 100 | Моб Психо 100 [2016, TV, 12 эп.] BDRip 1080p rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142903.jpg" />
 </div>
 
 
@@ -569,112 +677,6 @@ Mob Psycho 100 | Моб Психо 100 [2016, TV, 12 эп.] BDRip 1080p rus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:650502686C23BCD2894ADE626FC2470ADEB54301
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590826   (140944) от 17.12.2012
-
-Koe de Oshigoto! The Animation / Работа для голоса [2010, OVA, 2 из 2] BDrip 1080 raw + rus x2
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140944.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рынок японских эрогэ перенасыщен, и что может предложить захолустная компания «Голубой март», чтобы конкурировать с китами жанра? 28-летняя Яёй Аояги, лидер компании, считает, что ответ прост: их козырь – душевная, искренняя и вдохновенная игра сэйю, которая поможет вдохнуть жизнь в любой избитый сюжет (а в этих играх иных и не бывает)! Так как для любого японца фирма – это семья и жизнь, хитроумная Яёй мобилизует в труженицы микрофона младшую сестренку, старшеклассницу Канну, девушку скромную, но с исключительно богатым воображением.
-
-И кого волнует, что Канна несовершеннолетняя? В шоу-бизнесе подобное скорее правило, чем исключение. Гораздо важнее то, что по причине природной простоты и наивности новая актриса теряет голос, стоит ей услышать, а потом попробовать произнести пару строк сценария «про это». Но гены есть гены – стоило младшей Аояги потихоньку втянуться, и процесс пошел… дальше вы поняли. Не зря говорят – корни и успехов, и неудач лежат исключительно внутри нас!Жанр: комедия, эротикаРежиссер: Хосода НаотоПродолжительность: (2 эп.), 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73ACD3A2DA01D012863AAEE18BEEDCBF58353171
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415195   (140005) от 29.12.2020
-
-Mahouka Koukou no Rettousei: Raihousha Hen / The Irregular at Magic High School: Visitor Arc / Непутевый ученик в школе магии [ТВ-2] [2020, TV, 13 ep] WEB-DL 1080p Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140005.jpg" />
-</div>
-
-
-###  Подробнее
-
-31 октября 2095 года. Из-за воздействия неизвестного стратегического заклинания с лица земли исчез военный город на южном окончании Корейского полуострова и целый флот. Позже этот день назовут «Раскалённым Хэллоуином», а весь мир вздрогнет, осознав, что на свет появился ещё один маг стратегического назначения. Тут и магическое подразделение Североамериканских Соединённых (   Читать дальше...   )Жанр: комедия, романтика, мистика, школаРежиссер: Ёсида РисакоЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 13 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B352F345692ECA093E675166592E89C787C2DCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420393   (140000) от 29.12.2020
-
-Сон в замке демона | Maou-jou de Oyasumi | Sleepy Princess in the Demon Castle [2020, TV, 12 из 12] WEBRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда-то давно люди жили рядом с демонами. В те времена король демонов украл принцессу королевства людей, пообещав вернуть девушку, если люди взамен отдадут ему свои земли. И пока герои пытались спасти несчастную из замка демона, та скучала в плену. Единственным удовольствием в заточении для принцессы стал сон, а чтобы поспать с комфортом, девушка готова сбежать (   Читать дальше...   )Производство: Cтудия Doga Kobo / 動画工房Жанр: комедия, фэнтезиРежиссер: Ямадзаки МицуэЯзык озвучки: Русский закадровый, многоголосый (AniDub), (AniLibria.tv)Субтитры: Русские надписи, Русский, JapaneseПродолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B503456D0CB0834E64055AB9BC9D9D51D233D75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520593   (139928) от 29.12.2021
-
-Eiga Daisuki Pompo-san | Pompo: The Cinephile | Киноманка Помпо [2021, Movie] BDRip 1036p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джоэль Давидович Помпонетт, или просто Помпо, — талантливая продюсер из столицы кино Ньялливуда. Несмотря на её умение раскрывать таланты актеров и сотрудников, она продюсирует только боевики и эротические фильмы B-класса. Однажды помощнику Помпо Джину, вечно недовольному её выбором жанров, дают задание снять фильм по её сценарию. Теперь им вместе предстоит воплотить (   Читать дальше...   )Производство: ClapЖанр: комедияРежиссер: Хирао ТакаюкиЯзык озвучки: японский, русскийСубтитры: отсутствуютПродолжительность: 95 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5817D7A50BD927C71961F66A5163DE90EB897F50
 ```
 
 https://mybot314.ru/tekegram_catalog/

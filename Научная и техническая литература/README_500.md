@@ -1,134 +1,3 @@
-###  Публикация: 1067130   (244923) от 29.10.2016
-
-В. М. Серебряков | Движение цен в современном капитализме (1935) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244923.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга В. Серебрякова посвящена разработке вопроса об одной из важных сторон империализма ‒ свойственной ему динамике цен. Первая часть посвящена движению цен в довоенном империализме, вторая часть выясняет особенности движения цен в условиях общего кризиса капитализма и как один из его характерных моментов. Наряду с положительной теоретической разработкой фактического (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B748CC4D753CBC92989A604D9A9C574660862F43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621258   (244816) от 24.03.2023
-
-А.М. Берлянт | Образ пространства. Карта и информация (1986) [DJVU]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Карты - древнейший инструмент познания мира. В книге рассказывается о картах как моделях действительности и источниках научной информации, о способах работы с картами и атласами: от простого зрительного анализа до применения современного математического аппарата. Показаны возможности картографического анализа ресурсов окружающей среды, ее изменений и нарушений.Жанр: научно-популярнаяФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16CA2ADDA6A40B3CC216D6EEC1702143E6C56188
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621461   (244624) от 25.03.2023
-
-В.Щербатенко и др. | Приготовление ржаного хлеба (1951) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая брошюра ставит себе целью ознакомить работников хлебопекарной промышленности с порядком организации технологического процесса приготовления ржаного хлеба. В брошюре
-кратко освещены вопросы хлебопекарных особенностей ржаной муки, методы контроля хлебопекарного достоинства ее, способы приготовления основных сортов ржаного хлеба и даны указания по приготовлению (   Читать дальше...   )Жанр: учебникФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:711558B8CBA36A12DF0D92EDBA0D02BA2E3DA156
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566900   (244537) от 31.07.2022
-
-Г.В. Моисеев | Математические методы принятия решений (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие для организации самостоятельной работы студентов при прохождении дисциплины «Математические методы принятия решений». Дисциплина «Математические методы принятия решений» является обязательной дисциплиной базовой части профессионального цикла направления «Бизнес-информатика». Изучение данной дисциплины нацелено на формирование у студентов теоретических (   Читать дальше...   )Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1664BAA919373CD4D71ED1CEB57B98FCCFDEF0C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621470   (244489) от 26.03.2023
-
-Т.Б. Цыганова | Технология хлебопекарного производства (2002) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрено основное и дополнительное сырье хлебопекарного производства, его химический состав, приведена краткая его характеристика, изложены основы производства и контроль качества пшеничной и ржаной муки. Рассмотрены вопросы приема, хранения и подготовки сырья к пуску в производство. Описаны способы приготовления и разделка теста из пшеничной и ржаной муки и из (   Читать дальше...   )Жанр: учебникФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36EA2AD21214138089B8250CB453507FC382705E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1621781   (244331) от 26.03.2023
 
 Н.И. Гусева и др. | Сборник задач по геометрии [2 части] (2012) [PDF]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244331.jpg" />
 </div>
 
 
@@ -163,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244253.jpg" />
 </div>
 
 
@@ -189,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244204.jpg" />
 </div>
 
 
@@ -217,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244073.jpg" />
 </div>
 
 
@@ -245,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244029.jpg" />
 </div>
 
 
@@ -273,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244003.jpg" />
 </div>
 
 
@@ -299,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243986.jpg" />
 </div>
 
 
@@ -325,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243951.jpg" />
 </div>
 
 
@@ -353,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243949.jpg" />
 </div>
 
 
@@ -379,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243917.jpg" />
 </div>
 
 
@@ -405,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243891.jpg" />
 </div>
 
 
@@ -431,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243878.jpg" />
 </div>
 
 
@@ -457,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243870.jpg" />
 </div>
 
 
@@ -485,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243631.jpg" />
 </div>
 
 
@@ -511,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243557.jpg" />
 </div>
 
 
@@ -538,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243546.jpg" />
 </div>
 
 
@@ -564,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243449.jpg" />
 </div>
 
 
@@ -590,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243300.jpg" />
 </div>
 
 
@@ -618,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243181.jpg" />
 </div>
 
 
@@ -645,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242999.jpg" />
 </div>
 
 
@@ -671,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242929.jpg" />
 </div>
 
 
@@ -684,6 +553,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBD12C17A6B60F278A37FC9EACD14EA0F368648C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589668   (242888) от 09.04.2022
+
+А.В. Белов | Разработка устройств на микроконтроллерах AVR [2013] [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот популярный самоучитель поможет вам всего за шесть шагов пройти путь от «чайника», изучающего азы цифровой техники, до вполне готового специалиста, умеющего самостоятельно разрабатывать схемы любых устройств на микроконтроллерах и составлять для них программы. Познав основы цифровой логики, поймете, как работают более сложные элементы цифровой техники. Затем (   Читать дальше...   )Жанр: Техническая литература. СамоучительФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6046AB5F648F812D37B585D6FFB4DD84165AC736
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623503   (242862) от 02.04.2023
+
+А.Иванов | Старт завтра в 9... (1980) [PDF]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор книги - Олег Генрихович Ивановский, конструктор ракетно-космической техники, лауреат Ленинской и Государственной премий СССР, почетный член Российской академии космонавтики имени К.Э. Циолковского, писавший книги под псевдонимом Алексей Иванов. В декабре 1965 года О.Г. Ивановский  был назначен заместителем Георгия Николаевича Бабакина – Главного конструктора (   Читать дальше...   )Жанр: космонавтика, научно-популярноеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E58000E883B165AF6981906A9F61ACBB3815BED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624142   (242563) от 04.04.2023
+
+М.А. Скачек | Радиоактивные компоненты АЭС: обращение, переработка, локализация (2014) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242563.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии автором предпринята попытка охватить возможно более широкий круг вопросов, касающихся основных аспектов обращения с отработавшим ядерным топливом и радиоактивными отходами: методы переработки и транспортировки отработавшего ядерного топлива; модернизацию схем переработки исходя из условия нераспространения ядерного оружия; активацию теплоносителя (   Читать дальше...   )Жанр: Энергетика, физикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FACEA1D9094054743C1F1B1DD947D30664B592A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458290   (242336) от 28.03.2021
+
+П.В. Мультатули | Господь да благословит решение моё... Император Николай II во главе действующей армии и заговор генералов (2002) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пётр Валентинович Мультатули — историк по образованию и по специальности. Закончил Государственный педагогический университет им. А.И. Герцена. Основная тема научных исследований — история России начала XX века и последнее Царствование. Особое внимание П.В. Мультатули уделяет изучению личности Государя Императора Николая II, которую считает ключевой в исторической (   Читать дальше...   )Жанр: ИсторияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:240C12121CE924D0576E529CDE889907AC0BA464
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634964   (242257) от 23.05.2023
+
+В.А. Макушкин, Д.С. Володичев | Интеграция приложений на основе WebSphere MQ (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассматриваются актуальные вопросы интеграция приложений на основе WebSphere MQ, а также вопросы администрирования и программирования для транспортной системы WebSphere MQ (MQSeries) фирмы ИБМ, мирового лидера среди продуктов в данном классе.
+По завершении обучения по курсу лекций слушатели смогут провести установку и конфигурирование WebSphere MQ, выполнять настройку (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81BB1C85B8882059F81D57F6AC6CBB372F9C57F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

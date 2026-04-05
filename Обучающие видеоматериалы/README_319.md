@@ -1,3 +1,32 @@
+###  Публикация: 1813000   (7342) от 17.08.2025
+
+Greech, Анастасия Гречушникова | Практический курс по дизайну карточек для Wildberries и Ozon (2025) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Улучшишь свои навыки, создашь 5 и более выдающихся работ в своём портфолио и увеличишь стоимость своих дизайнерских услуг. Этот курс для тебя, если ты:
+тратишь много времени на поиск идеи, материалов и разработку дизайна для одного проекта;
+не знаешь, как сделать так, чтобы клиенты сами обращались к тебе и покупали твои услуги;
+выполняешь работу за небольшие деньги (   Читать дальше...   )Производство: GreechЖанр: видеокурс, обучающий курс, графика, дизайн, нейросетиЯзык озвучки: русскийПродолжительность: 16:40:55Реклама: cторонние вставки и наложения на видео (водяной знак спонсора)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98B68C54E80598EBFEB50EFDA8A9F1A97B6A5169
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1812808   (7341) от 17.08.2025
 
 Ирина Нумизматка | Обучение по Telegram Ads. Тариф Полное погружение (2025) WEB-DL [AD] [RU]
@@ -6,7 +35,7 @@
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7341.jpg" />
 </div>
 
 
@@ -34,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7301.jpg" />
 </div>
 
 
@@ -62,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7010.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ Asya-Design, Александра Бавыкина | Шаблон ArchiCAD (2025
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6344.jpg" />
 </div>
 
 
@@ -117,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6333.jpg" />
 </div>
 
 
@@ -143,7 +172,7 @@ Rush Academy, Евгений Милованцев, Игорь Бурдуков |
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6185.jpg" />
 </div>
 
 
@@ -169,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6173.jpg" />
 </div>
 
 
@@ -197,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6142.jpg" />
 </div>
 
 
@@ -226,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6122.jpg" />
 </div>
 
 
@@ -252,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5890.jpg" />
 </div>
 
 
@@ -280,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5868.jpg" />
 </div>
 
 
@@ -306,7 +335,7 @@ Bazanova Art, Ольга Базанова | Волшебные пионы (2024)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5864.jpg" />
 </div>
 
 
@@ -332,7 +361,7 @@ TutorPlace, Наталья Устич | Мобильная фотография 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5849.jpg" />
 </div>
 
 
@@ -358,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5832.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5731.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5573.jpg" />
 </div>
 
 
@@ -436,7 +465,7 @@ Purpleschool, Антон Ларичев | Feature-Sliced Design (2025) WEB-DL [R
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5436.jpg" />
 </div>
 
 
@@ -464,7 +493,7 @@ Purpleschool, Антон Ларичев | Nuxt - fullstack Vue фреймвор�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5426.jpg" />
 </div>
 
 
@@ -492,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5262.jpg" />
 </div>
 
 
@@ -518,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5224.jpg" />
 </div>
 
 
@@ -544,7 +573,7 @@ Act&Create, Tasha Lumi | Всё, что тебе нужно знать для с
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5212.jpg" />
 </div>
 
 
@@ -573,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4902.jpg" />
 </div>
 
 
@@ -602,7 +631,7 @@ Purpleschool, Антон Ларичев | Vue.js 3, Vue Router и Pinia (2025) W
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4713.jpg" />
 </div>
 
 
@@ -628,7 +657,7 @@ Infostart, Владимир Лушников | Новое в 1С: Докумен
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4619.jpg" />
 </div>
 
 
@@ -657,7 +686,7 @@ FIN-RA, Дмитрий Толстяков | Инвест-зарплата. Пр�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4209.jpg" />
 </div>
 
 
@@ -668,34 +697,6 @@ FIN-RA, Дмитрий Толстяков | Инвест-зарплата. Пр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:898B6485A5D05F420F2504BCA7501546AD8E2307
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816582   (4197) от 06.09.2025
-
-Николай Сенин | Создание личной ИИ-экосистемы (2025) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4197.jpg" />
-</div>
-
-
-###  Подробнее
-
-В это воскресенье проведу закрытый стрим, где расскажу, как специалист может (и скоро будет вынужден) использовать LLM в своей деятельности.
-
-Рассмотрим детально, какие классы интеллектуальных задач уже сейчас может помочь выполнять ИИ. Расскажу, какие встроенные ограничения есть у LLM (не только галлюцинации) и как их обойти. Поделюсь пятью принципами создания личной (   Читать дальше...   )Жанр: ВебинарЯзык озвучки: РусскийПродолжительность: 3:45:19Реклама: присутствуют видео вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:648C3D0B1A1FBDC3CB07E58EC0449736AC2F1A8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

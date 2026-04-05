@@ -1,3 +1,32 @@
+###  Публикация: 1365465   (923207) от 11.03.2020
+
+Windows 10 2in1 VL (x64) (v.1909 Build 18363.657) Elgujakviso Edition (v.07.03.20) [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана на основе оригинального образа от MSDN:
+   Установлен NET Framework 3.5 (включает .NET 2.0 и 3.0); включен стандартны просмотр фото. Для получения полной информаций об изменениях, читайте раздел "дополнительная информация".
+
+Образ включает в себя:(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B8A772D56DEB5C5A8A97F83602523154F47B5FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366154   (923185) от 11.03.2020
 
 Цвет из иных миров / Color Out of Space (2019) BDRip [H.264/1080p]
@@ -6,7 +35,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923185.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ Thief Simulator (2018) [Ru/Multi] (1.42) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923183.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923158.jpg" />
 </div>
 
 
@@ -84,7 +113,7 @@ Age of Pirates 2: City of Abandoned Ships / Корсары: Город Поте�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923133.jpg" />
 </div>
 
 
@@ -111,7 +140,7 @@ Microsoft Office 2010 x86/x64 License [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923127.jpg" />
 </div>
 
 
@@ -137,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923015.jpg" />
 </div>
 
 
@@ -163,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923006.jpg" />
 </div>
 
 
@@ -189,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922453.jpg" />
 </div>
 
 
@@ -215,7 +244,7 @@ Acronis True Image 2017 New Generation 21.0.6116 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921796.jpg" />
 </div>
 
 
@@ -241,7 +270,7 @@ DriverPack Solution 17.7.33 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921792.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921787.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921741.jpg" />
 </div>
 
 
@@ -320,7 +349,7 @@ The Forest (2015) [En] (0.33b) Repack NIK220V
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921723.jpg" />
 </div>
 
 
@@ -346,7 +375,7 @@ Red Comrades Save the Galaxy: Reloaded / Петька и Василий Иван
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921708.jpg" />
 </div>
 
 
@@ -372,7 +401,7 @@ PowerDirector – Video Editor v9.5.1 Mod [Ru/Multi] - мощный видео-�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921523.jpg" />
 </div>
 
 
@@ -398,7 +427,7 @@ Crysis 2 [Ru/En] (Lossless Repack/1.9) 2011 | R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921401.jpg" />
 </div>
 
 
@@ -424,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921346.jpg" />
 </div>
 
 
@@ -450,7 +479,7 @@ Windows Vista SP2 X86.Project (RED) v.2.1
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921336.jpg" />
 </div>
 
 
@@ -477,7 +506,7 @@ Adobe  Photoshop 8.0 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921335.jpg" />
 </div>
 
 
@@ -509,7 +538,7 @@ Dead Space Trilogy / Трилогия Dead Space [Ru/En/Multi] (RePack) 2008-201
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921029.jpg" />
 </div>
 
 
@@ -535,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920679.jpg" />
 </div>
 
 
@@ -561,7 +590,7 @@ Assassin’s Creed IV/4: Black Flag / Assassin's Creed IV/4: Чёрный фла
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920637.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920267.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920109.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920066.jpg" />
 </div>
 
 
@@ -653,32 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988539   (920015) от 20.02.2016
-
-mp3DirectCut 2.22 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшой редактор mp3 файлов. Позволяет обрезать тишину в начале и/или конце файла, нормализировать звук, а также плавно убирать его в конце композиции, объединять файлы, редактировать ID3-тэги и записывать mp3 непосредственно на диск.Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8F4146B1F026965681D64C7FF77EB716AB8840A
 ```
 
 https://mybot314.ru/tekegram_catalog/

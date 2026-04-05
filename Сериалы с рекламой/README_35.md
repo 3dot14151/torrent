@@ -1,3 +1,55 @@
+###  Публикация: 1662318   (188051) от 17.09.2023
+
+По ту сторону Шпреи / Jenseits der Spree (2022) WEBRip [H.264/720p] (сезон 2, серии 1-6 из 6) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188051.jpg" />
+</div>
+
+
+###  Подробнее
+
+В комиссариат берлинского округа Кёпеник набирается новая и необычная команда. Один из них это бывший главный инспектор Роберт Хеффлер, отец-одиночка, воспитывающий, трёх дочерей, который три года назад по личным причинам был переведен с постоянной службы из неспокойного района в Берлин-Кёпеник в качестве диспетчера. Из-за нехватки персонала по просьбе начальника (   Читать дальше...   )Производство: Германия / Studio ZentralЖанр: криминалРежиссер: Маркус Ульбрихт, Нилеша Бартел, Christoph Ischinger и др.Актеры: Юрген Фогель, Олег Тихомиров, Леа Зои Восс, Луна Джордан, Белла Бадинг, Элизабет Болитц, Aybi Era, Сейнеб Салех, Энн Мюллер, Жале Арыкан и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: Русский, немецкийСубтитры: РусскиеПродолжительность: ~01:00:00 серияРеклама: Присутствуют видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:540BB8BA18DBA2BE05E091A50109A33F30DAB5E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662320   (188018) от 17.09.2023
+
+По ту сторону Шпреи / Jenseits der Spree (2022) WEBRip (сезон 2, серии 1-6 из 6) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188018.jpg" />
+</div>
+
+
+###  Подробнее
+
+В комиссариат берлинского округа Кёпеник набирается новая и необычная команда. Один из них это бывший главный инспектор Роберт Хеффлер, отец-одиночка, воспитывающий, трёх дочерей, который три года назад по личным причинам был переведен с постоянной службы из неспокойного района в Берлин-Кёпеник в качестве диспетчера. Из-за нехватки персонала по просьбе начальника (   Читать дальше...   )Производство: Германия / Studio ZentralЖанр: криминалРежиссер: Маркус Ульбрихт, Нилеша Бартел, Christoph Ischinger и др.Актеры: Юрген Фогель, Олег Тихомиров, Леа Зои Восс, Луна Джордан, Белла Бадинг, Элизабет Болитц, Aybi Era, Сейнеб Салех, Энн Мюллер, Жале Арыкан и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: Русский, немецкийСубтитры: Русские (отдельно)Продолжительность: ~01:00:00 серияРеклама: Присутствуют видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:978B9710AE0E8B957F16EEA43D53DECF74CD358D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1661875   (187432) от 19.09.2023
 
 Часы дьявола / Gli orologi del diavolo / The Devil's Clock (2020) WEBRip (сезон 1, серии 1-8 из 8) ViruseProject [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187432.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187385.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187351.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187148.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187045.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186568.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186552.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186550.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186265.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186253.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186241.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186225.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_185964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_185964.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_185932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_185932.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185653.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185181.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185068.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184979.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184810.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184785.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_183937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_183937.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_183834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_183834.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183216.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183191.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D669771129F094C9342E7CA4A5DED16213DDD1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665153   (183088) от 29.09.2023
-
-Тысяча жизней Бернара Тапи / Tapie / Class Act (2023) WEB-DLRip (сезон 1, серии 1-7 из 7) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вымышленная версия реальной истории о Бернаре Тапе. Невероятно амбициозный небогатый мужчина становится одним из самых противоречивых общественных деятелей Франции. Этот человек родился в 1943 году в небогатой семье из рабочего класса. Несмотря на это, ему удалось очень высоко подняться. За свою жизнь Бернар Тапи успел побывать инженером-электриком, военным, бизнесменом, (   Читать дальше...   )Производство: Франция / UnitéЖанр: драма, биография, историяРежиссер: Тристан СегелаАктеры: Фрэнк Молинаро, Филипп Шэйн, Лоран Лафитт, Фабрис Лукини, Жозефин Жапи, Патрик д’Асумсао, Офелия Колб, Хаким Джемили, Катрин Шевалье, Александр Блази и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: Русский, французскийСубтитры: Русские (отдельно)Продолжительность: ~00:55:00 серияРеклама: Присутствуют видео вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44AA015494C3197A6A897DDB78524FC9D931A793
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427490   (182997) от 28.11.2020
-
-Последняя волна / La derniere vague (2019) WEB-DLRip (сезон 1, серии 1-6 из 6) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182997.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Бризане, тихом морском курорте во французских Ландах, во время соревнований по серфингу все меняется с появлением таинственного облака, которое приводит к исчезновению десяти участников. Спустя несколько часов они возвращаются, но ничего не помнят о своём исчезновении. Кто-то из сёрфингистов чувствует, что изменился, а кто-то оказывается наделен необычными способностями. (   Читать дальше...   )Производство: Франция / KwaïЖанр: фэнтези, драма, детективРежиссер: Родольф ТиссоАктеры: Дэвид Камменос, Мари Домпнье, Арно Бинар, Лола Деваэр, Изабель Отеро, Гийом Крамуасен, Capucine Valmary, Gaël Raes, Оливье Бартелеми, Тео Кристин и д.р.Перевод: Двуголосый закадровый (ViruseProject)Субтитры: русские (отдельно), английские (вшитые)Продолжительность: ~00:50:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F3B9E96E1B93751A16DC8935EDB3BADF2717033
 ```
 
 https://mybot314.ru/tekegram_catalog/

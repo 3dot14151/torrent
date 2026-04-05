@@ -1,3 +1,159 @@
+###  Публикация: 1200905   (792573) от 24.01.2018
+
+Microsoft® Windows 10 Enterprise LTSB x86-x64 1607 RU Office16 by OVGorskiy® 01.2018 2DVD
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792573.jpg" />
+</div>
+
+
+###  Подробнее
+
+сборка на основе оригинальных русских образов новейшей операционной системы Windows 10 Enterprise (Корпоративная) LTSB x86-x64 (msdn) от Microsoft с дополнительным материалом разных разрядностей на 2-х разных DVD (x86 и x64). Установка полностью стандартная "вручную" с выбором параметров установки ОС. Интегрированы: обновления системы, небольшой набор программ, (   Читать дальше...   )Язык интерфейса: Русский (Russian).
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:883A2EFC5FF66B94DC7E5F89F2A33BECE3D47FCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509273   (792561) от 14.11.2021
+
+Технологии двух столетий: кто изобрел консервы и как их производят сейчас
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_792561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первые промышленные технологии производства консервов появились чуть больше двух столетий назад, в начале XIX века. С тех пор они развивались и эволюционировали вслед за техническим прогрессом и появлением новых потребностей общества. В этой статье мы расскажем, как происходил этот процесс. А любопытной информацией о том, как производят консервы сейчас, поделится (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509276   (792541) от 14.11.2021
+
+Взломанный чат-бот Госуслуг отрицает существование коронавируса
+
+>>3
+>>18
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_792541.jpg" />
+</div>
+
+
+###  Подробнее
+
+Министерство цифрового развития, связи и массовых коммуникаций РФ заявило, что на портал «Госуслуг» второй день подряд направлена мощнейшая кибератака, говорится в сообщении официального Telegram-канала Минцифры.«Портал госуслуг находится под беспрецедентной кибератакой. «Госуслуги» второй день подвергаются самой мощной за всё время функционирования портала кибератаке. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509100   (792539) от 14.11.2021
+
+Не время умирать / No Time to Die (2021) WEB-DL [H.264/1080p] [MVO]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джеймс Бонд оставил оперативную службу и наслаждается спокойной жизнью на Ямайке. Все меняется, когда на острове появляется его старый друг Феликс Лейтер из ЦРУ с просьбой о помощи. Миссия по спасению похищенного ученого оказывается опаснее, чем предполагалось изначально. Бонд попадает в ловушку к таинственному злодею, вооруженному опасным технологическим оружием.Производство: Великобритания, США, B25, Cinesite, Danjaq, Eon Productions Ltd., Metro-Goldwyn-Mayer (MGM), Universal PicturesЖанр: Боевик, Триллер, ПриключенияРежиссер: Кэри Дзёдзи ФукунагаАктеры: Дэниэл Крэйг, Рами Малек, Леа Сейду, Лашана Линч, Бен Уишоу, Наоми Харрис, Билли Магнуссен, Ана де Армас, Кристоф Вальц, Рэйф ФайнсПеревод: Многоголосый закадровый (Jaskier), Любительский двухголосый (Pazl Voice)Субтитры: Русские (FOCS), Английские (Forced, Full, SDH), Испанские, Французские, КорейскиеПродолжительность: 02:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:355ECE1A4B16BD7E537E284D791BD9C0C8C7D607
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509398   (792538) от 14.11.2021
+
+Красное уведомление / Red Notice (2021) WEB-DL [H.264/1080p]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Агент Интерпола отправляется на поиски самого знаменитого вора в мире.Производство: CША, Flynn Picture Company, Legendary Entertainment, Seven Bucks Productions, NetflixЖанр: Боевик, триллер, криминал, комедияРежиссер: Роусон Маршалл ТёрберАктеры: Дуэйн Джонсон, Райан Рейнольдс, Галь Гадот, Риту Эрийа, Крис Диамантополос, Ivan Mbakop, Винченцо Амато, Рафаэль Петарди, Сет Майклс, Себастьен ЛарджПеревод: Дублированный (Пифагор)Субтитры: Русские (Forced, Full), Украинские (Forced, Full), Английские (Forced, SDH), мультиязычныеПродолжительность: 01:57:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E2BA5A9542C654E7B4003804B61CEF81BC999FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386193   (792300) от 31.05.2020
+
+Солярис (1972) BDRip [H.264/720p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792300.jpg" />
+</div>
+
+
+###  Подробнее
+
+На космическую станцию, сотрудники которой давно и тщетно пытаются сладить с загадкой планеты Солярис, полностью покрытой Океаном, прибывает новый учёный, психолог Крис Кельвин. Его задача — разобраться в странных сообщениях, поступающих со станции и закрыть её вместе со всей бесплодной «соляристикой». Поначалу ему кажется, что немногие уцелевшие на станции ученые (   Читать дальше...   )Производство: СССР / Творческое объединение писателей и киноработников, Мосфильм, Unit FourЖанр: Фантастика, драма, детективРежиссер: Андрей ТарковскийАктеры: Наталья Бондарчук, Донатас Банионис, Юри Ярвет, Владислав Дворжецкий, Николай Гринько, Анатолий Солоницын, Ольга Барнет, Виталик Кердимун, Ольга Кизилова, Татьяна МалыхСубтитры: ОтсутствуютПродолжительность: 02:46:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB94A0306B143D5065EF80120306217E7D1B8C01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386656   (792287) от 31.05.2020
 
 В Великобритании начали продавать USB-флешки от 5G
@@ -6,7 +162,7 @@
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_792287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_792287.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ BELOFF 2020.05 [Ru] (Авторская раздача)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_792279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_792279.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Navitel / Навител Навигатор v9.13.46 WinCE [Ru/Multi]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792278.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Solid Explorer File Manager 2.8.0 [Ru/Multi] - Двухпанельный фай
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792277.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ Apple купит "Теслу", в Великобритании наступит 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_792011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_792011.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ Windows 7 Professional SP1 x64 Game OS 2.1 by CUTA [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791992.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ XCOM 2 (2016) [Ru/En] (1.0.0.3812/1.0.0.64105/dlc) Repack R.G. Механики
 >>13
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791990.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ Adobe Photoshop CC 2018. 19.1.0.38906 RePack by KpoJIuK  [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791890.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ Darkwood (2017) [Ru/Mult] (1.2) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791887.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791886.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ UltraISO Premium Edition 9.7.1.3519 Retail [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791885.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_791866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_791866.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ Windows 11 Pro x64 21Н2 (build 22000.318) by ivandubskoj 11.11.2021 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_791865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_791865.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_791864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_791864.jpg" />
 </div>
 
 
@@ -371,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791861.jpg" />
 </div>
 
 
@@ -400,7 +556,7 @@ The Elder Scrolls V: Skyrim (2021) [Ru/Multi] (1.6.318.0.8) License CODEX [Anniv
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791860.jpg" />
 </div>
 
 
@@ -426,7 +582,7 @@ SpaceX отправила астронавтов к МКС
 >>33
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_791726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_791726.jpg" />
 </div>
 
 
@@ -453,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791725.jpg" />
 </div>
 
 
@@ -479,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791724.jpg" />
 </div>
 
 
@@ -505,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791723.jpg" />
 </div>
 
 
@@ -516,163 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF87F145E175BE55EAF3DB79144AEA7FB877231D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274859   (791473) от 09.01.2019
-
-T-FLEX CAD 16.0.32.0 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791473.jpg" />
-</div>
-
-
-###  Подробнее
-
-T-FLEX CAD - профессиональная конструкторская программа, объединяющая в себе мощные параметрические возможности 2D и 3D-моделирования со средствами создания и оформления чертежей и конструкторской документации. Технические новшества и хорошая производительность в сочетании с удобным и понятным интерфейсом делают T-FLEX CAD универсальным и эффективным средством 2D (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C12ACA7D8088B73031049B20E29A066FEBB6F291
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201511   (791406) от 26.01.2018
-
-Китайские учёные впервые клонировали обезьян по методике овечки Долли
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_791406.jpg" />
-</div>
-
-
-###  Подробнее
-
-По словам учёных, клонированные животные развиваются без отклонений.Молекулярные биологи из Китая впервые получили двух мартышек Чжунчжун и Хуахуа, используя ту же методику, которую применяли при клонировании овечки Долли. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201830   (791360) от 26.01.2018
-
-Win 10 Tweaker 2.2 Portable by XpucT [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Win 10 Tweaker — это небольшая, но очень мощная программа, позволяющая сделать полную оптимизацию Windows 10 в несколько кликов. Не пускает пыль в глаза бесполезными настройками, а каждый пункт содержит подробную подсказку-описание. Любое действие выполняется без внешних модулей, средствами самой программы и Windows 10, поэтому антивирусы не ругаются на Win 10 Tweaker.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14A0D7A7AC99C2E67E1F9436302D4D005E3DBFF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201577   (791349) от 26.01.2018
-
-Microsoft позволит пользователям Windows 10 просматривать телеметрию
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_791349.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft выпустит инструмент, позволяющий просмотреть, какие именно данные отправляются на серверы производителя.Наряду с релизом крупного обновления ОС Windows 10, запланированного к выходу в апреле-мае 2018 года, компания Microsoft выпустит приложение Windows Diagnostic Data Viewer, которое позволит пользователям (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201765   (791347) от 26.01.2018
-
-Терминатор 2: Судный день / Terminator 2: Judgment Day (1991) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit] [Театральная версия]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791347.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прошло более десяти лет с тех пор, как киборг-терминатор из 2029 года пытался уничтожить Сару Коннор — женщину, чей будущий сын выиграет войну человечества против машин.
- Теперь у Сары родился сын Джон и время, когда он поведёт за собой выживших людей на борьбу с машинами, неумолимо приближается. Именно в этот момент из постапокалиптического будущего прибывает новый (   Читать дальше...   )Производство: США, Франция / Canal+, Carolco Pictures Inc. Lightstorm Entertainment, Pacific Western, T2 ProductionsЖанр: Фантастика, Боевик, ТриллерРежиссер: Джеймс КэмеронАктеры: Арнольд Шварценеггер, Линда Хэмилтон, Эдвард Ферлонг, Роберт Патрик, Эрл Боэн, Джо Мортон, С. Ипейта Меркерсон, Кастуло Герра, Дэнни Кукси, Дженетт Голдстин, Ксандер БерклиПеревод: Профессиональный (многоголосый закадровый), Авторский (одноголосый, закадровый)Субтитры: Русские (Forced, Full), Английские (Full)Продолжительность: 02:17:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A88EF2DB81D5AE9867841D77519FF0DA57F9879
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510049   (791270) от 16.11.2021
-
-Реальные опасности искусственного интеллекта
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_791270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда речь заходит об искусственном интеллекте, в голове мгновенно всплывает знакомым рефреном фраза про роботов, которые нас всех скоро заменят. Этот первобытный страх не очень обоснован, но в силу растиражированности в поп-культуре умело скрывает за собой реальные проблемы, которые может создать бурное развитие ИИ уже завтра. Дело в том, что до захвата нас роботами (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

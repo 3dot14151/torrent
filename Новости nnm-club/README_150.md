@@ -1,3 +1,55 @@
+###  Публикация: 926829   (530912) от 11.08.2015
+
+CyberLink PowerDirector 13 Ultimate 13.0.3130.0 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530912.jpg" />
+</div>
+
+
+###  Подробнее
+
+PowerDirector - самое быстрое и передовое программное обеспечения для редактирования видео. В состав PowerDirector входит комплект самых передовых и простых в использовании средств для создания профессиональных видеоматериалов. Также в наличии имеется технология обработки видео (SVRT), NVIDIA CUDA, ATI-Stream для многоядерных блоков обработки, которые помогут вам (   Читать дальше...   )Язык интерфейса: Русский (by loginvovchyk), Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E3EE47474BC83A7093C0C37F99683AD6E9BD122
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017554   (530086) от 12.09.2016
+
+Exanima (2016) [En] (0.6.4.3e) License GOG
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530086.jpg" />
+</div>
+
+
+###  Подробнее
+
+Exanima, намеренно неуютная и реалистичная игра о выживании в подземелье. Если вы не первый день играете в игры, то, должно быть, подземельями вас не запугаешь: сколько раз мы в них спускались, сколько раз сражались, побеждали и погибали, но рано или поздно все равно возвращались, груженые ценным лутом. Но в подземельях Exanima все гораздо серьезнее.Тип издания: LicenseРазработчик: Bare Mettle EntertainmentЖанр: RPG, 3D, IsometricЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CACBC10567833E33C53149545D9FF57DDEF557EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1051595   (530085) от 12.09.2016
 
 Свадебный угар / Mike and Dave Need Wedding Dates (2016) DVDRip [Line]
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530085.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ The Elder Scrolls V: Skyrim [Ru] (RePack/1.7.7.0.6/DLC) 2011 l R.G. Element Arts
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530032.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530028.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ Windows 7 Ultimate SP1 x86 x64 StartSoft v27.08.01-02.12 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530020.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529323.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529307.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528712.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ DOOM (2016) [Ru/Multi] (1.0/upd6.66/dlc) SteamRip R.G. Origins [Complete Edition
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528319.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ Batman: The Telltale Series. Episode 1 (2016) [PS3] [USA] 3.55 [Cobra ODE / E3 O
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527712.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ Windows 10 PE (x86/x64) v.4.8 (13.09.2016) by Ratiborus [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527695.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527692.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527246.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ Q4OS 1.6.2 (Легкий дистрибутив) [Trinity - форк KDE 3.5] [i
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527084.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527028.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ Teenage Mutant Ninja Turtles: Shredder's Revenge (2022) [Multi] (1.0.0.145) Repa
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526923.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ Corona Renderer 1.6.1 for 3ds Max 2012-2018 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526813.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ Pure Chess (2016) [Ru/Multi] (1.0) License SKIDROW [Grandmaster Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526430.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ FEM, FEM2, Киберсант-матрица, Киберсант-активат�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_526420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_526420.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ qBittorrent 3.4.0 Beta [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526259.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526247.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526245.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ Deus Ex: Mankind Divided (2016) [Ru/En] (1.16.761.0/dlc) Repack  xatab [Digital 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525427.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ Titanfall 2 (2017) [Ru/En] (2.0.7.0) Rip xatab [Digital Deluxe Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525069.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ Corel PaintShop Pro X9 Ultimate 19.0.2.4 RePack by KpoJIuK + Content Pack [Multi
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524877.jpg" />
 </div>
 
 
@@ -623,58 +675,6 @@ Corel PaintShop Pro X9 Ultimate 19.0.2.4 RePack by KpoJIuK + Content Pack [Multi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4FD5D9AF877B815FDCC7F9BC2FCC5843D610FFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927313   (524705) от 13.08.2015
-
-Adobe InDesign CC 2015 (v11.1.0) x86-x64 RUS/ENG Update 2
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524705.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe InDesign CC 2015 - профессиональный продукт для проектирования дизайна любых печатных или Интернет изданий. Adobe InDesign CC 2015 обладает всеми прогрессивными возможностями и инструментами машинной верстки, с помощью которых можно быстро и эффективно разрабатывать дизайн страниц любой сложности. Программа поддерживает импорт рисунков и текста из самых разнообразных (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEB784D138F33139A971BC61B9CBF374BD084127
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927345   (524693) от 13.08.2015
-
-Office Tab Enterprise 10.50 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Office Tab Enterprise новая версия небольшой, но очень полезной утилиты. Принцип работы Office Tab относительно прост, но от этого не менее эффективен – окна открытых документов отображаются в интерфейсе офисных приложений, как вкладки открытых страниц в современных браузерах. Утилита Office Tab устраняет один из немногих недостатков пакета Microsoft Office – отсутствие (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2148D0D2A28E78D2EC64364F3174A4088D569F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

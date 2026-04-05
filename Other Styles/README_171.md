@@ -1,3 +1,61 @@
+###  Публикация: 1705795   (63393) от 10.03.2024
+
+Cesaria Evora - Cafe Atlantico (1999) [FLAC|Lossless|image + .cue] <Latin, Folk, World, & Country>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flor di nha esperança    [0:04:16.45]
+02. Vaquinha mansa    [0:04:49.28]
+03. Amor di mundo    [0:04:07.45]
+04. Paraiso di Atlantico    [0:03:57.30](   Читать дальше...   )Жанр: Latin, Folk, World, & CountryПродолжительность: 00:58:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D766CA8BD892DCD5E1EA7F1DC2C27714375DC11E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705956   (63385) от 10.03.2024
+
+Лёдъ - Ни Чужих, Ни Своих (2024) [MP3|320 Kbps] <Dark Folk, Neofolk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дорогой Мёртвых…
+02. Скёль
+03. В Чащу Не Ходи
+04. Проклятье Сов (feat. Bjarla)(   Читать дальше...   )Жанр: Dark Folk, NeofolkПродолжительность: 00:31:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87DA9521E5E95950A368E45A77F43D536B190941
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705603   (63382) от 10.03.2024
 
 VA - The Orient Collective - Moonlight Desert Odyssey (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
@@ -6,7 +64,7 @@ VA - The Orient Collective - Moonlight Desert Odyssey (2023) [FLAC|Lossless|WEB-
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63382.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Various Artists - Sazz & Jaz (2013) [FLAC|Lossless|image + .cue] <Ethno, Jazz>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63183.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Deep Forest - Studio Albums (15 releases) (1992-2023) [APE, Flac|Lossless|image 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63124.jpg" />
 </div>
 
 
@@ -94,7 +152,7 @@ Mivari - Жар-Птица (2024) [FLAC|Lossless|WEB-DL|tracks] <Folk, Ethnic, H
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62342.jpg" />
 </div>
 
 
@@ -123,7 +181,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62123.jpg" />
 </div>
 
 
@@ -152,7 +210,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61834.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Tantric Sex Background Music Experts - Entrance to Sex (2024) [FLAC|Lossless|WEB
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61601.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Stoner Boner - Seductive Eruptions: Tantric Sex Music for the Ultimate High (201
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60377.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Sex Pistols - The Filth & The Fury (Original Motion Picture Soundtrack) (2024) [
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58960.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Brian Eno - Eno (Original Motion Picture Soundtrack) (2024)  [FLAC|Lossless|WEB-
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57945.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Ramin Djawadi - Fallout (Original Amazon Series Soundtrack) (2024) [FLAC 24/44.1
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57832.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Leonard Cohen - Thanks for the Dance (2019) Columbia Records [FLAC|Lossless|WEB-
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57538.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Mark Ashley - Instrumentals Vol. 1 (2024) [MP3|320 Kbps] <Instrumental Pop>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56558.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55852.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55848.jpg" />
 </div>
 
 
@@ -435,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55832.jpg" />
 </div>
 
 
@@ -461,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55828.jpg" />
 </div>
 
 
@@ -488,7 +546,7 @@ VA - Erotic Spa: Blissful Time (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55610.jpg" />
 </div>
 
 
@@ -517,7 +575,7 @@ Oriental Collection, Oriental Soundscapes Music Universe - Orient Music Adventur
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54677.jpg" />
 </div>
 
 
@@ -546,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53963.jpg" />
 </div>
 
 
@@ -575,7 +633,7 @@ Lindsey Stirling - Duality (2024) [FLAC|Lossless|image + .cue] <Instrumental, Ea
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52202.jpg" />
 </div>
 
 
@@ -604,7 +662,7 @@ Gallows Bound - Gallows Bound (2014) [MP3|320 Kbps] <Americana, Bluegrass, Count
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52092.jpg" />
 </div>
 
 
@@ -633,7 +691,7 @@ Tom Holkenborg (Junkie XL) - Furiosa A Mad Max Saga OST (2024) OST [MP3|320 Kbps
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52029.jpg" />
 </div>
 
 
@@ -662,7 +720,7 @@ London Music Works - The Story of Wick: Music From the John Wick Movies (2024) O
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51697.jpg" />
 </div>
 
 
@@ -676,64 +734,6 @@ London Music Works - The Story of Wick: Music From the John Wick Movies (2024) O
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74A1BA7A4AE7369E73CE4A7CADC74ADC28492BA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734810   (50998) от 05.07.2024
-
-David Arkenstone - Quest For the Runestone (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prophecy (5:24)
-02. The Soothsayer Speaks (5:24)
-03. Ancient Magic Awakens (4:53)
-04. Réann (4:03)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B717961FAA337752163C390FC70D8EF0172B9100
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738585   (48981) от 24.07.2024
-
-Jindřich Parma (Jindrich Parma) - Juno: Nové Retro (2015) [FLAC|Lossless|WEB-DL|tracks] <Instrumental Pop>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Juno (Zabi Hneff) (6:13)
-02. Mozna (4:02)
-03. 1981 (4:44)
-04. Oda Na Zivot (4:44)(   Читать дальше...   )Жанр: Instrumental PopПродолжительность: 00:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8777AB19DBBC372A9A421607F56AEBED5B2B7A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Bart&Baker - Electro Swing Stories (2016) [AAC|~325 Kbps] <Electro Swing, Nu Jaz
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738516.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Sidewalk Bistro, Vol. 4 (2022) [AAC|~332 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738515.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Bart&Baker - More Electro Swing Stories (2016) [AAC|~316 Kbps] <Electro Swing, N
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738514.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Swing Republic - Electro Swing Republic (2011) [AAC|~309 Kbps] <Electro Swing, N
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738511.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Lamuzgueule - Iceberg Club (2021) [AAC|~326 Kbps] <Electro Swing, Nu Jazz, Broke
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738509.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Electro Swing: The Best of - Freshly Squeezed, Vol. 2 (2015) [AAC|~332 Kbps
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738508.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Swing Republic - Mo' Electro Swing Republic - Let's Misbehave (Deluxe Version) (
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738506.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Sidewalk Bistro, Vol. 1 (2015) [AAC|~343 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738504.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Electro Swing: The Best of - Freshly Squeezed, Vol. 1 (2015) [AAC|~313 Kbps
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738502.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Lamuzgueule - Electro Swing Best of, Pt. 2 (2021) [AAC|~330 Kbps] <Electro Swing
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738494.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Lamuzgueule - Electro Swing Best of, Pt. 1 (2021) [AAC|~339 Kbps] <Electro Swing
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738485.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Swing Republic - Midnight Calling (2012) [AAC|~327 Kbps] <Electro Swing, Nu Jazz
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738484.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Swing Republic - The Best of Swing Republic (2018) [AAC|~321 Kbps] <Electro Swin
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738482.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738480.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738472.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738470.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Vintage Cafe: Lounge and Jazz Blends (Special Selection), Vol. 21 (2022) [A
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738469.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738424.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738417.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738389.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738384.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738340.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ VA - Milano Orange (Urban Music for Urban People) (2018) [AAC|~305 Kbps] <Lounge
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738177.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ VA - New York Orange (Urban Music for Urban People) (2018) [AAC|~320 Kbps] <Loun
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738175.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ VA - Singapore Orange (Urban Music for Urban People) (2019) [AAC|~336 Kbps] <Lou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738174.jpg" />
 </div>
 
 
@@ -718,7 +718,7 @@ VA - Monaco Orange (Urban Music for Urban People) (2018) [AAC|~305 Kbps] <Lounge
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738171.jpg" />
 </div>
 
 

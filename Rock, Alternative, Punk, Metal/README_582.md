@@ -1,3 +1,61 @@
+###  Публикация: 1565230   (495003) от 23.07.2022
+
+Bells and Ravens - What Death Cannot End (2022) [MP3|320 Kbps] <Progressive Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Your Last Sacrifice (feat. Tommy Laasch & Julian Scott) (04:58)
+02. The Headless Horseman (feat. Tim "Ripper" Owens) (05:58)
+03. Scourge Of The Seven Seas (feat. Zak Stevens) (08:16)
+04. Martyrs & Illusionists (Victory), Pt. I (feat. Selin Schonbeck) (06:00)(   Читать дальше...   )Жанр: Progressive Heavy, Power MetalПродолжительность: 01:03:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A91EA5D85A20819A1DE5F7168A630F3FABE6E51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565081   (495002) от 23.07.2022
+
+Villain of the Story - Divided (2022) [MP3|320 Kbps] <Metalcore, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Again (4:00)
+02. Jester (4:02)
+03. Karma (4:00)
+04. Under My Skin (3:43)(   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:30:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2603CD62D6B32BBC9563E6C36C8DAC17EBBE02F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565090   (495000) от 23.07.2022
 
 Patient Sixty-Seven - Wishful Thinking (2022) [MP3|320 Kbps] <Metalcore, Post-Hardcore>
@@ -6,7 +64,7 @@ Patient Sixty-Seven - Wishful Thinking (2022) [MP3|320 Kbps] <Metalcore, Post-Ha
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495000.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Lonerider - Attitude (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494996.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Moonshade - As We Set The Skies Ablaze (2022) [MP3|320 Kbps] <Melodic Death Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494994.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Iconic - Second Skin (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494986.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Donkey Pilots - Serious Men (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494985.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Blizzard Hunter - The Path Of Triumph (2022) [MP3|320 Kbps] <Heavy, Speed Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494915.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Galleyboyz - Galleyboyz (1990) 2xCD, Reissue , 2022, MelodicRock Classics [FLAC|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494913.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Ousey / Mann - Is Anybody Listening (2022) Japanese Edition [FLAC|Lossless|image
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494912.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Lazarus Dream - Lifeline (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494910.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Harlequin's Kiss - We've Been Expecting You (2022) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494908.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Compass - Theory of Tides (2022) [MP3|320 Kbps] <Progressive Rock, Progressive M
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494907.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Jack White - Entering Heaven Alive (2022) [MP3|320 Kbps] <Blues Rock, Folk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494906.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Balls Gone Wild - Stay Wild (2022) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494903.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Fame on Fire - Welcome to the Chaos (2022) [MP3|320 Kbps] <Alternative rock, Pos
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494902.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Imperial Triumphant - Spirit Of Ecstasy (2022) [MP3|320 Kbps] <Avantgarde Black 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494900.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Fight The Fade - Apophysitis (2022) [MP3|320 Kbps] <Alt.Rock, Electronic Rock, C
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494898.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ The Bateleurs - The Sun in the Tenth House (2022) [MP3|320 Kbps] <Hard Blues Roc
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494897.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Palisades - Reaching Hypercritical (2022) [MP3|320Kbps] <Post-Hardcore, Alt.Rock
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494896.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Chumbawamba - Tubthumper (1997) [MP3|320 Kbps] <Folk Rock, Pop Rock, Punk>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494831.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Rage N' Rox - Love On The Rox (1989) Reissue, 2022, FnA Records [FLAC|Lossless|i
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494787.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Organic Infest - Penitence (1993) [FLAC|Lossless|tracks + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494781.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Ossuary Insane - Demonize The Flesh (1998) [FLAC|Lossless|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494778.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Workout Music Tv - 40 Ultimate High Octane Tracks to Motivate the Lazy (2018) [M
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494691.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Bells And Ravens - What Death Cannot End (2022) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494675.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Bells And Ravens - What Death Cannot End (2022) [FLAC|Lossless|WEB-DL|tracks] <H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4A0E858648BC7AFB643BF8E22F065E056F134D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565204   (494674) от 23.07.2022
-
-Hatriot - The Vale Of Shadows (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Horns & Halos
-02. The Hate Inside
-03. Forceful Balance
-04. Verminious And Vile(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:42:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:562BC0C2DA6A2A18797DEFFDE51F49D2A8A87277
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565094   (494662) от 23.07.2022
-
-Nicolas Cage Fighter - The Bones That Grew from Pain (2022) [MP3|320 Kbps] <Hardcore Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grey Eye (3:22)
-02. Shrine of Wire (3:08)
-03. Coughing Nails (3:01)
-04. Static Abyss (3:47)(   Читать дальше...   )Жанр: Hardcore MetalПродолжительность: 00:36:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B46D89F40076B8A4E0CC82C49D159F1F4DF29D78
 ```
 
 https://mybot314.ru/tekegram_catalog/

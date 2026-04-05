@@ -1,3 +1,32 @@
+###  Публикация: 1330825   (336466) от 12.10.2019
+
+Михаил Круг - Лирика (1997) Master Sound, Remastered, 2004, Одиссей [FLAC|Lossless|tracks + .cue]<Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Осенний дождь
+02. У каких ворот
+03. Ништяк, Браток!
+04. Добрая, глупая, давняя(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:53:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D29152738D5F4710AEDBBC159868865A09582A2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 259563   (332837) от 18.11.2010
 
 Ирина Круг & Алексей Брянцев - Если бы не ты... (2010) [MP3|320 kbps]<Шансон>
@@ -6,7 +35,7 @@
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_332837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_332837.jpg" />
 </div>
 
 
@@ -36,7 +65,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332368.jpg" />
 </div>
 
 
@@ -65,7 +94,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330074.jpg" />
 </div>
 
 
@@ -100,7 +129,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329841.jpg" />
 </div>
 
 
@@ -129,7 +158,7 @@ VA - Вне закона (Эхо Души) (2011) [MP3|320 кб/с]<Шансон
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328342.jpg" />
 </div>
 
 
@@ -158,7 +187,7 @@ VA - Авторские песни (Эхо Души) (2011) [MP3|192 кб/с]<Ш
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328283.jpg" />
 </div>
 
 
@@ -187,7 +216,7 @@ VA - Top 30 - Золото Шансона (2015) [MP3|320 кб/с]<Шансон,
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328146.jpg" />
 </div>
 
 
@@ -216,7 +245,7 @@ VA - Ангел снов (Эхо Души) (2011) [MP3|320 кб/с]<Шансон
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326656.jpg" />
 </div>
 
 
@@ -245,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324708.jpg" />
 </div>
 
 
@@ -274,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321205.jpg" />
 </div>
 
 
@@ -303,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320152.jpg" />
 </div>
 
 
@@ -338,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319596.jpg" />
 </div>
 
 
@@ -373,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319418.jpg" />
 </div>
 
 
@@ -408,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319073.jpg" />
 </div>
 
 
@@ -437,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319063.jpg" />
 </div>
 
 
@@ -466,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319048.jpg" />
 </div>
 
 
@@ -495,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319043.jpg" />
 </div>
 
 
@@ -524,7 +553,7 @@ Mireille Mathieu - Noel (2015) [MP3|320 кб/с]<French Chanson>
 >>Зарубежный Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318862.jpg" />
 </div>
 
 
@@ -553,7 +582,7 @@ VA - Застольные песни от Донского казака (2007) [
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318781.jpg" />
 </div>
 
 
@@ -582,7 +611,7 @@ VA - Русская блатная тридцатка 14 (2007) [FLAC|Lossless|t
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315423.jpg" />
 </div>
 
 
@@ -611,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312861.jpg" />
 </div>
 
 
@@ -640,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_312446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_312446.jpg" />
 </div>
 
 
@@ -675,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311901.jpg" />
 </div>
 
 
@@ -704,7 +733,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310688.jpg" />
 </div>
 
 
@@ -733,7 +762,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307847.jpg" />
 </div>
 
 
@@ -753,41 +782,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0277453812FE62C253AFCA6317A9C4BB67C2C269
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583343   (307523) от 04.12.2012
-
-Фураги - Антология Куйбышевской дворовой песни (2012) [WMA|Lossless]<Фураги>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Clinica 63 Снег ложится на твои ресницы 2:49
-02 Хана Это было весело 2:23
-03 Завод Восьмиклинка 3:51
-04 Богги Партизан Голубые глазки 3:24
-05 Дрова Дре-Па-Пеш 3:23
-06 White Crow Тополя 5:10
-07 Светлана Салманова Жиганка 3:17
-08 Стугерон Янссен Студенточка 2:47
-09 Гуня Берман Парень в кепи и зуб золотой 5:03
-10 D Black Ты помниш мы сидели у огня 3:44(   Читать дальше...   )Жанр: ФурагиПродолжительность: 01:05:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B10CA9288D7E7B6CC474AFBD0217B4D79B7FE9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1155040   (537240) от 01.08.2017
+
+Mind Odyssey - Nailed To The Shade (1998) Japan 1st Press, 1999, Victor [FLAC|Lossless|image + .cue] <Heavy Metal, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture - Ascending To Heaven (1:27)
+02. Nailed To The Shade (4:30)
+03. In The Dark (4:07)
+04. Gone (5:22)(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 00:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CFBABF94C2F6D83288BE7933C387E8704CD2C6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155043   (537239) от 01.08.2017
+
+Mind Odyssey - Signs (1999) Japan 1st Press [FLAC|Lossless|image + .cue] <Heavy Metal, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fountain Of Music (1:33)
+02. Men Of No Return (5:26)
+03. Golden Age (5:55)
+04. In The Picture (7:31)(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 00:55:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9992D95FFB712D6A3658E0734FE2AAE6E20E9D35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154973   (537235) от 01.08.2017
+
+Darkwater - Calling The Earth To Witness (2007) [APE|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537235.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 2534167 (00:32)
+2. All Eyes On Me (08:48)
+3. Again (09:01)
+4. Habit (12:46)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:08:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A874329D163657851B11DF067F9CD424946660DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155028   (537233) от 01.08.2017
+
+Mind Odyssey - Schizophenia (1995) Japan 1st Press, 1995, Victor [FLAC|Lossless|image + .cue] <Heavy Metal, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Schizophenia (3:36)
+02. Evolution (4:57)
+03. Robotman (4:06)
+04. Nervous Breakdown (4:53)(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 00:50:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4D6FEE895AD51319E9994ED66155257A32C9AF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1155046   (537232) от 01.08.2017
 
 Mind Odyssey - Best Of - 15 Years (2008) Compilation [APE|Lossless|image + .cue] <Heavy Metal, Speed Metal>
@@ -6,7 +122,7 @@ Mind Odyssey - Best Of - 15 Years (2008) Compilation [APE|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537232.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Darkwater - Where Stories End (2010) [FLAC|Lossless|image + .cue] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537231.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Mind Odyssey - Keep It All Turning (1993) Japan 1st Press, 1994,  Noise Internat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537229.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Der Bote - Morgenwelt (2013) [FLAC|Lossless|tracks + .cue] <Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537228.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Wolverine - The Windows Purpose (2001) Remaster, 2006, Earache Records [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537226.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Chaos Divine - Colliding Skies (2015) [FLAC|tracks|WEB-DL]<Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537196.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Glenn Frey (Ex. Eagles) - No Fun Aloud (1982) [MP3|320 Kbps] <Pop-Rock, Classic 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537140.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Fear Factory - Genexus (2015) Deluxe Edition [FLAC|tracks+.cue]<Death / Groove /
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537116.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Rings Of Saturn - Ultu Ulla (2017) [MP3|320 Kbps] <Technical Deathcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537070.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Phil Collins - ...But Seriously (1989) [FLAC|Lossless|image + .cue] <Soft Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537067.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Phil Collins - No Jacket Required (1985) Reissue, 1999, WEA [FLAC|Lossless|image
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537066.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Nakkiga - Amaieraren Hasiera (2014) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536980.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Dantalion - Return to Deep Lethargy (2012) [FLAC|Lossless|image + .cue] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536978.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Hatecraft - Finally Free (2004) [APE|Lossless|image + .cue] <Melodic Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536977.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Lostregos - Alzamento No Norte (2016) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536976.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Sweet & Lynch - Unified (2017) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536974.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Profundis Tenebrarum - Disciples of Venomous Death (2017) [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536973.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Agressor - Rebirth (2018) (2CD) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536971.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Cryptopsy - None So Vile (1999) Japan [FLAC|Lossless|image + .cue] <Brutal Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536969.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Monument - Hellhound (2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536968.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Queen - MTV Music History: The Greatest Hits III-IV (1999) 2CD [FLAC|image+.cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536936.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Queen - MTV Music History: The Greatest Hits I-II (1999) 2CD [FLAC|image+.cue]<R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536927.jpg" />
 </div>
 
 
@@ -629,121 +745,6 @@ Queen - MTV Music History: The Greatest Hits I-II (1999) 2CD [FLAC|image+.cue]<R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B3131CC0AC270A10BC51F2A487CF9528B0E4FE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154838   (536894) от 01.08.2017
-
-Бездна Анального Угнетения - Всё Превратится в Металл (2017) EP [MP3|320 Kbps] <Melodic Death Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я Ненавижу Питер
-02. Всё Превратится в Металл
-03. Кожаная ПуляЖанр: Melodic Death Metal, Thrash MetalПродолжительность: 00:15:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42219FF7616EB34987854400A3CC12861CBE3672
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050451   (536747) от 09.09.2016
-
-Solution .45 - Nightmares In The Waking State Pt.II (2016) [FLAC|Lossless|image + .cue] <Melodic Groove Metal, Progressive Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dim Are The Pathways (Instrumental)
-02. The Faint Pulse Of Light
-03. Mind Mutation
-04. Built On Sand(   Читать дальше...   )Жанр: Melodic Groove Metal, Progressive Melodic Death MetalПродолжительность: 00:53:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:573F8004C53DDDACCBE6F165188C6D34CDE697F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050652   (536734) от 09.09.2016
-
-Smokey Fingers - Promised Land (2016) [MP3|320 Kbps] <Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Madame (04:14)
-02. Rattlesnake Trail (04:24)
-03. The Road Is My Home (04:48)
-04. Damage Is Done (04:46)(   Читать дальше...   )Жанр: Southern RockПродолжительность: 00:53:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A54894356532467DD93A167CC614C64656D4094
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050701   (536729) от 09.09.2016
-
-Tennessee Iron - Better Late Than Never (2016) [MP3|320 Kbps] <Tennessee Boogie Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breakin' the Glass
-02. It Ain't Right
-03. Girl Don't Tell Me
-04. Let's Get It On(   Читать дальше...   )Жанр: Tennessee Boogie Rock, Classic RockПродолжительность: 00:33:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E3AD2C0A7C94579A75BB641A87EBC8120B5B655
 ```
 
 https://mybot314.ru/tekegram_catalog/

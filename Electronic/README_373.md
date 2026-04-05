@@ -1,3 +1,119 @@
+###  Публикация: 1081131   (284775) от 09.12.2016
+
+Neorus - Remedy (2016) [MP3|320 Kbps] <Electronic, Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 -  Vishuddha [00:05:51]
+02 -  Rivers [00:03:55]
+03 -  Time Travel [00:04:26]
+04 -  Visuals [00:06:39](   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 01:22:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16B08189018CBD161A344C671E5DF3FCE2CF4701
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186748   (284740) от 26.11.2017
+
+VA - Lingerie Lounge 2 - 30 Top Chillout Tunes (2017) [MP3|320 Kbps] <Downtempo, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Emo  -  Relief For Free (Butti 49 Remix) 6:21
+02.  3-11 Porter  -  Surround Me With Your Love (Extended Mix) 5:50
+03.  Julia Messenger & PFL  -  Something To Say (Original Mix) 3:49
+04.  Minus 8  -  Soverato (Original Mix) 5:11(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 02:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD04A41BB13BB015F2A6A3F7E1686F8739B6345C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335594   (284728) от 04.11.2019
+
+DREDDD - Pain Deluxe (2019) [FLAC|Lossless|WEB-DL|tracks] <Electro, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Someone Else (3:23)
+02. 1989 (3:04)
+03. Frog (5:34)
+04. Dark City (3:57)(   Читать дальше...   )Жанр: Electro, MinimalПродолжительность: 00:53:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F432A6705E5459EE81C846F0C59690238E38F50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335787   (284727) от 04.11.2019
+
+Sebastian Mullaert - A place called • Inkonst (2019) Kontra Musik [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wonderphalt (05:59)
+ 02. Attio (07:00)
+ 03. Sonder at Mountain Street (06:59)
+ 04. Embrace Space (07:00)(   Читать дальше...   )Жанр: Techno, AmbientПродолжительность: 01:21:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81F6A3685A8B3E6A86544BB6D8E9BA90157BC211
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1264010   (284677) от 21.11.2018
 
 Dan Norvan - The Beginning (2018) [MP3|320 Kbps] <Trance,ProgressiveHouse>
@@ -6,7 +122,7 @@ Dan Norvan - The Beginning (2018) [MP3|320 Kbps] <Trance,ProgressiveHouse>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284677.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Vocal Trance Vol. 4 (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284676.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Silk Music Pres. Trance Treasures 12 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284671.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Euphoric Trance: Best Of (2016) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284638.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Vocal Trance Top 100 (2016) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284632.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Future Trance Vol.82 (2017) 3CD [MP3|320 Kbps] <House, Trance, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284599.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Ultravox - Extended Ultravox (1998) [FLAC|Lossless|tracks + .cue] <Synthpop, New
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284596.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Aly & Fila - Live @ SHINE Ibiza Closing Party, Eden Ibiza, Spain 2019-09-19 [MP3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284580.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Uplifting Trance 2020 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284556.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ UHF - Flight To Anywhere EP (2019) Gladio Operations [FLAC|Lossless|Vinyl|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284550.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Reinhard Lakomy - Das Geheime Leben (1982) LP [MP3|320 Kbps] <Electronic, Downte
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284549.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Boytronic - Jewel (2017) [FLAC|Lossless|image + .cue] <Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284494.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ UHF - Strange Days Of Happiness (2017) Borg Recordings [FLAC 2.0|44.1/24|tracks|
 >>Trance, House, Techno (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284390.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ MC Xander - Hymns (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Vocal>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284351.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284095.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - Ibiza For 2017 [MP3|320 Kbps] <Funky, Progressive, House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283721.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ VA - Uplifting Only - Fan Favorites 2014 - 2015 (Mixed by Ori Uplift) (2015) [MP
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283270.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ VA - Who's Gonna Drive You Home Tonight (25 Deep-House Weekenders) Vol.5 (2016) 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283085.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ VA - Deep Chill Vol.1 (Deep Relaxing Down Beats) (2016) [MP3|320 Kbps] <Chillout
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283079.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ VA - Best Driving EDM 2017 (2016) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283077.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - Hotel Rouge Vol 14 - Lounge And Chill Out Finest (A Special Rendevouz With 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283074.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ VA - Christmas Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283053.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ VA - Christmas Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D6CCFA238BB8E36506E171BCBE38B7D97C893C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264198   (283051) от 22.11.2018
-
-VA - 3 Years Suanda True (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Attila Syah - Malang Rain (Extended Mix)
-02. UDM - Highlight (Extended Mix)
-03. NoMosk - Duel (Original Mix)
-04. Elite Electronic - Bloom (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:44:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A8AF3B3F744576C830068BD8621350433AC610E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264204   (282964) от 22.11.2018
-
-VA - Dark Trance Vol.5 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer - Antipode (Original Mix)
-02. Axel Walters - Warrior (Extended Mix)
-03. Gamma - Every Goodbye (NoMosk Extended Remix)
-04. Dennis Graft - Voices (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:25:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C37E2F6E2903A106BEFDE480F56ABF5DBE51B25A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264083   (282963) от 22.11.2018
-
-VA - Best Of Amsterdam Trance Records Vol. 3 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Steve Allen & Sarah Lynn - Broken Child (Extended Mix)
-02.Armin van Buuren & Perpetuous Dreamer - The Sound of Goodbye (Ferrin & Morris Extended Mix)
-03.James Dymond & Susana - Love You Are Made Of (Extended Mix)
-04.Kaimo K & Sue McLaren - Call It What It Is (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:16:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C6F5C0E9072AD61251514DD57B9ED2A8C225B22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264244   (282962) от 22.11.2018
-
-VA - Progressive Trance Selections Vol 07 (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Firas Tarhini - Nova (Original Mix)
-02.Henry Dark - Alive (Original Mix)
-03.Gordey Tsukanov - Radioactivity (Extended Mix)
-04.Marco Van Zomeren - Vloeistof (Original Mix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:24:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBDC65F05473FFC6AA06DEBA365AFF70889B0D55
 ```
 
 https://mybot314.ru/tekegram_catalog/

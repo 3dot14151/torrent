@@ -6,7 +6,7 @@
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554845.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554842.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554835.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554834.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553935.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553932.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553929.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553928.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553925.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553920.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553283.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553280.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553277.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553251.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553236.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Wallpapers - Best Mixed Wallpapers Pack (22.08.14) [JPEG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553179.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552409.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552408.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552406.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552402.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552358.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552354.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551530.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551525.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551479.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551475.jpg" />
 </div>
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 1395636   (753739) от 11.07.2020
+
+Главная дорога (11.07.2020) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01:43 Как спасти машину, побывавшую в воде? И есть ли способ распознать "искупавшуюся" машину при покупке?
+05:40 Могут ли секретные гайки защитить колеса от кражи?
+12:35 Подвеску убивает бездорожье, коробка "пинается", форсунки просят денег: тест кроссовера Mercedes-Benz GLK.
+18:38 Эффект маятника: как удержать машину, которая зацепила обочину?(   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:33:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD7CB5E409D040BC6692C71B214D39A0154691E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1523003   (753275) от 10.01.2022
 
 Мотоциклы особого назначения. История почетного эскорта (2021) HDTV [H.264/1080p] (серии 1-2 из 2)
@@ -6,7 +35,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753275.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752275.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_752004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_752004.jpg" />
 </div>
 
 
@@ -87,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_749920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749920.jpg" />
 </div>
 
 
@@ -115,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749427.jpg" />
 </div>
 
 
@@ -143,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748417.jpg" />
 </div>
 
 
@@ -169,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746627.jpg" />
 </div>
 
 
@@ -195,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742440.jpg" />
 </div>
 
 
@@ -221,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742187.jpg" />
 </div>
 
 
@@ -247,7 +276,7 @@ Discovery: Братья Дизель / Diesel Brothers (2016) HDTVRip  (1-й С�
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740816.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740259.jpg" />
 </div>
 
 
@@ -301,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740176.jpg" />
 </div>
 
 
@@ -329,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739778.jpg" />
 </div>
 
 
@@ -356,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739077.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738799.jpg" />
 </div>
 
 
@@ -408,7 +437,7 @@ Discovery. Махинаторы (Автодилеры) / Wheeler Dealers (2013) 
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737867.jpg" />
 </div>
 
 
@@ -434,7 +463,7 @@ Discovery: Махинаторы (Автодилеры) (сезон 2, серии
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737076.jpg" />
 </div>
 
 
@@ -460,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736407.jpg" />
 </div>
 
 
@@ -486,7 +515,7 @@ Discovery: Махинаторы (Автодилеры) (сезон 3, серии
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736022.jpg" />
 </div>
 
 
@@ -512,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735876.jpg" />
 </div>
 
 
@@ -538,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735699.jpg" />
 </div>
 
 
@@ -567,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733165.jpg" />
 </div>
 
 
@@ -593,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732914.jpg" />
 </div>
 
 
@@ -622,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732719.jpg" />
 </div>
 
 
@@ -648,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_732552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_732552.jpg" />
 </div>
 
 
@@ -659,32 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00F786B47367F8A6C6521ECBD5DC3573A497C6B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126874   (731973) от 21.04.2017
-
-Discovery: Братья Дизель / Diesel Brothers (2017) HDTVRip [H.264/720p-LQ] (2-й Сезон, Серии 1-10 из 10)
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731973.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дизельных автомобилей гораздо меньше, чем тех, которые ездят на бензине, и совершенно напрасно, считают создатели портала DieselSellerz.com, где можно купить или продать практически любое дизельное транспортное средство. Благодаря интернету команда проекта обрела немало поклонников, ведь страстно увлеченные люди всегда вызывают если не восхищение, то как минимум (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Документальный, познавательный, автомобилестроениеРежиссер: Эрик ДунканПеревод: Профессиональный (одноголосый закадровый - Discovery Channel)Продолжительность: 10 серий по ~ 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66E5A9ED133835F20F411A4571C23BED6F38A8B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

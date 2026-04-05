@@ -1,3 +1,32 @@
+###  Публикация: 1575185   (379028) от 08.09.2022
+
+Ozzy Osbourne - Patient Number 9 (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Patient Number 9 (Feat. Jeff Beck) (7:21)
+02. Immortal (Feat. Mike Mccready) (3:04)
+03. Parasite (Feat. Zakk Wylde) (4:06)
+04. No Escape From Now (Feat. Tony Iommi) (6:46)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:01:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:012B3780E6B4A5D8B66E2E3D2C73F3A7CA665EB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1415107   (378960) от 11.10.2020
 
 A Vicious End - The Hills Will Burn (2020) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Modern Metal>
@@ -6,7 +35,7 @@ A Vicious End - The Hills Will Burn (2020) [FLAC|Lossless|WEB-DL|tracks] <Metalc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378960.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Inner Odyssey - The Void (2020) [MP3|320 Kbps] <Progressive Rock, Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378957.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ The Paz Band - Down The Rabbit Hole (2016) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378956.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378948.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Place Vendome - 4 Albums (2005-2017) Japanese Edition [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378780.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ The Black Keys - Let's Rock (2019) [FLAC|Lossless|tracks + .cue] <Alternative Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378779.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Blues Pills - 6 albums, 3 EP, 11CD (2013-2020) [FLAC|Lossless|image + .cue] <Psy
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378722.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Isenmor - Shieldbrother (2020) [FLAC|Lossless|WEB-DL|tracks] <Viking Metal, Folk
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378708.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ John Lennon - Gimme Some Truth - The Ultimate Mixes (2020) [FLAC|Lossless|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378697.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Crash The System - The Crowning (2009) [MP3|320 кб/с]<Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378682.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ Bon Jovi - 2020 (2020) [FLAC|Lossless|tracks + .cue] <Rock, AOR, Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378583.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378496.jpg" />
 </div>
 
 
@@ -359,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378478.jpg" />
 </div>
 
 
@@ -388,7 +417,7 @@ Atomic Rooster - 11 альбомов, 25CD (1970-2016) [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378466.jpg" />
 </div>
 
 
@@ -417,7 +446,7 @@ Constructions - Void And Silence (2016) [MP3|320 Kbps] <Sludge, Groove Metal, Dj
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378454.jpg" />
 </div>
 
 
@@ -446,7 +475,7 @@ Thrasher - Burning At The Speed Of Light (1985) [FLAC|Lossless|image + .cue] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378452.jpg" />
 </div>
 
 
@@ -475,7 +504,7 @@ Handwrist - Green Tourist (2016) [MP3|320 Kbps] <Psychedelic, Post-Rock, Progres
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378450.jpg" />
 </div>
 
 
@@ -504,7 +533,7 @@ Atoll Nerat - Путешествия в отдельные реальности 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_378430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_378430.jpg" />
 </div>
 
 
@@ -537,7 +566,7 @@ Ariel Pink's Haunted Graffiti - Mature Themes (2012) [MP3|320 кб/с]<Psychedel
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378423.jpg" />
 </div>
 
 
@@ -572,7 +601,7 @@ Emarosa - 131 (2016) [MP3|320 Kbps] <Alternative Rock, Post-Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378302.jpg" />
 </div>
 
 
@@ -601,7 +630,7 @@ Blazon Stone - War of the Roses (2016) [MP3|320 Kbps] <Speed Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378298.jpg" />
 </div>
 
 
@@ -630,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_378278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_378278.jpg" />
 </div>
 
 
@@ -665,7 +694,7 @@ VA - The Many Faces Of Iron Maiden (2016) 3CD [FLAC|Lossless|image + .cue] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378043.jpg" />
 </div>
 
 
@@ -694,7 +723,7 @@ VA - 5CD Rock Tributes (2006) [MP3|320 кб/с]<Rock, Southern Rock, Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377976.jpg" />
 </div>
 
 
@@ -720,7 +749,7 @@ Parkway Drive - Atlas (2012) [FLAC|Lossless] <Melodic Mathcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_377876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_377876.jpg" />
 </div>
 
 
@@ -740,32 +769,6 @@ Parkway Drive - Atlas (2012) [FLAC|Lossless] <Melodic Mathcore>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 572843   (377769) от 11.11.2012
-
-Jane Air - 6 альбомов + 10 синглов + 2 EP + Live (2001-2012) [MP3|320 кб/с]<Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377769.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: AlternativeПродолжительность: 00:45:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F702C3DAAFD30FE3C4EE8D1C1A1B7B61662E55E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

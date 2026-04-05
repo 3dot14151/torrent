@@ -1,3 +1,134 @@
+###  Публикация: 403555   (418943) от 28.08.2022
+
+Лосенок (1984) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как ребята спасли и вырастили сироту-лосенка.Производство: СССР, Куйбышев телефильмЖанр: детский, кукольныйРежиссер: Александр ПолушкинАктеры: Ефим Кациров, Евгений Леонов, Зинаида Нарышкина, Мария ВиноградоваСубтитры: ОтсутствуютПродолжительность: 00:09:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72B53344AEA272742EAB9D50B60FFF2A02AA2D5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 398772   (418941) от 28.08.2022
+
+Травяная западенка (1982) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418941.jpg" />
+</div>
+
+
+###  Подробнее
+
+Было это при крепостном порядке. Жила сиротка Устя, покойный отец с малахитом работал и поговаривали, что имел он потайную ямку, западенку травяную. Умная была девушка провела и приказчика глупого, который и до сих пор ищет западенку и барыню жадную.Производство: СССР, Свердловская киностудияЖанр: детский, музыкальныйРежиссер: Валерий ФоминАктеры: Т. Полипчук, В. Ларин, Анатолий Папанов, И. ТименковаСубтитры: ОтсутствуютПродолжительность: 00:15:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F966A5E4CD7C9F7707970A434416694576BF2206
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 387845   (418940) от 28.08.2022
+
+Росомаха и лисица (1982) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418940.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам эвенкийской народной сказки.Производство: СССР, Свердловская киностудияЖанр: детский, кукольныйРежиссер: Галина ТургеневаСубтитры: ОтсутствуютПродолжительность: 00:09:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C12EA0988A9B67B993A00BD88A275445FEE0EFE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 404659   (418939) от 28.08.2022
+
+Что на что похоже (1974) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фантазер Щенок считает, что все на свете на что-нибудь похоже: листочек — на бабочку, шмель — на тигра... Друзья поначалу смеются над ним, но постепенно сами увлекаются этой игрой.Производство: СССР, Киевская Киностудия научно-популярных фильмовЖанр: детский, рисованная анимацияРежиссер: Владимир ДахноАктеры: Людмила Игнатенко, Людмила Козуб, Лина БудникСубтитры: ОтсутствуютПродолжительность: 00:07:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3AB932B491AD8016376DD58BEB265C78682CA09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065394   (418937) от 23.10.2016
+
+Лава / Lava (2014) BDRip [H.264/720p] (Локализованный видеоряд)
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкальная история Большой любви двух вулканов Уку и Леле.
+Мультфильм, по традиции Pixar демонстрировался на киносеансах перед полнометражной работой студии «Головоломка»Производство: США | Walt Disney | Pixar Animation StudiosЖанр: Короткометражный анимационный фильмРежиссер: Джеймс Форд МерфиПеревод: ДублированныйСубтитры: Английские, Русские (вшитые, отключаемые)Продолжительность: 00:07:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9854EC97B3702A6EDEF39295BD119FF5060F5D33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1065566   (418925) от 23.10.2016
 
 Меню / Feast (2014) BDRip [H.264/1080p] (Локализованный видеоряд)
@@ -6,7 +137,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418925.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418798.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418797.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418794.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418788.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418787.jpg" />
 </div>
 
 
@@ -162,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418785.jpg" />
 </div>
 
 
@@ -188,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418781.jpg" />
 </div>
 
 
@@ -214,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418778.jpg" />
 </div>
 
 
@@ -240,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418774.jpg" />
 </div>
 
 
@@ -266,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418772.jpg" />
 </div>
 
 
@@ -292,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418770.jpg" />
 </div>
 
 
@@ -318,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418587.jpg" />
 </div>
 
 
@@ -344,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_418555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_418555.jpg" />
 </div>
 
 
@@ -370,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418329.jpg" />
 </div>
 
 
@@ -397,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418212.jpg" />
 </div>
 
 
@@ -423,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418208.jpg" />
 </div>
 
 
@@ -449,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418155.jpg" />
 </div>
 
 
@@ -475,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418143.jpg" />
 </div>
 
 
@@ -501,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418099.jpg" />
 </div>
 
 
@@ -528,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418095.jpg" />
 </div>
 
 
@@ -539,136 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC647948C7002781F22D4EE679CD05128755FD40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306950   (417836) от 29.09.2020
-
-Непобедимая принцесса Ши-Ра / She-Ra: Princess of Power (1986) DVDRip [H.264] (Сезон 2, серии 1-28 из 28) [PR]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417836.jpg" />
-</div>
-
-
-###  Подробнее
-
-События сериала происходят в Эфирии, где население порабощено империей Зла (Ордой), которую возглавляет Хорд. Группа повстанцев противостоит Злу во главе с Анжелой, королевой Яркой Луны. Адора является другом королевы Анжелы и её дочери Глимор. Лишь немногие знают секрет Адоры: она и есть непобедимая Ши-Ра. При помощи Волшебного меча и нескольких волшебных слов, (   Читать дальше...   )Производство: США, FilmationЖанр: Приключения, Фэнтези, КомедияРежиссер: Билл Рид, Стивен Кларк, Билл НюнсПеревод: Двухголосый профессиональный (студия "Кипарис" по заказу 2х2)Субтитры: отсутствуютПродолжительность: ~00:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A8A45578D57B8A9C9CB159AE244539FE0C85994
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 831695   (416992) от 16.10.2014
-
-Почтальон Пэт / Postman Pat: The Movie (2014) HDRip [iTunes Russia]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416992.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сколько нужно почтальонов для спасения мира? Достаточно одного, если он работает в паре с любопытным котом, готовым к любым приключениям.Жанр: Мультфильм, комедия, семейныйРежиссер: Майкл Д’Иса-ХоганПеревод: ДублированныйПродолжительность: 01:27:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B146ED327DBCD9A8ED0753CC29DA2E1F70AAA2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 710702   (416927) от 14.10.2013
-
-Лиса, медведь и мужик (1982) TVRip [BE]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: СССP, БелорусьфильмЖанр: Кукольный, Детский, СказкаРежиссер: Н. ЛосьПерсонажи: Лиса, медведь, мужикПеревод: ОтсутствуетПродолжительность: 00:09:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB39886193FFA6487FF048CC04855554AE7DE775
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 146763   (416701) от 18.10.2009
-
-Экспедиция на Сатурн / Rejsen til Saturn (2008) BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_416701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Датские власти посылают на Сатурн специальную группу, чтоб провозгласить планетку собственной собственностью. Однако приехав на планетку, становится понятно, будто бы Сатурн уже заселен внеземными жителями, кои совсем не планируют оставлять колонизированную местность. К тому же пришельцы сами атакуют Землю и сейчас группе "колонистов" придется освобождать Данию...Жанр: Комедия, Фантастика, АнимацияРежиссер: Крестен Вестбйерг АндерсенПеревод: Многоголосый закадровыйФормат: MKVПродолжительность: 01:29:17
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 831909   (416597) от 16.10.2014
-
-Робин Гуд / Robin Hood (1973) BDRemux [1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в дремучий Шервудский лес, где ты встретишь храброго и забавного лиса по имени Робин Гуд и его лучшего друга Маленького Джона, большого добродушного медведя. Эту веселую компанию давно разыскивает шериф Ноттингема. Он готовит друзьям ловушку: на турнире лучников Робин Гуда будет ждать засада. Но отважный лис все равно собирается участвовать в состязании: (   Читать дальше...   )Жанр: Приключения, семейный, мультфильмРежиссер: Вольфганг РайтерманПерсонажи: Роджер Миллер, Питер Устинов, Терри-Томас, Брайан Бедфорд, Моника Эванс, Фил Харрис, Энди Дивайн, Кэрол Шелли, Пэт Баттрем, Джордж ЛиндсиПеревод: Дублированный, многоголосый закадровый, авторскийЯзык субтитров: Русский, английскийПродолжительность: 01:23:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBF19D540472CB8858E3405879BA88E1B7781EC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

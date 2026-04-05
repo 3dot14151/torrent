@@ -1,3 +1,32 @@
+###  Публикация: 1024650   (716020) от 09.06.2016
+
+Deva Premal & Miten with Manose - Cosmic Connections Live (with Manose) (2016) Live [MP3|320 кб/с] <New age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Om Sahana Vavatu Mantra (Live)
+02. Mangalam (Live)
+03. Nam Myoho Renge Kyo Mantra (Live)
+04. Om Kumara Mantra (Live)(   Читать дальше...   )Жанр: New age, MeditativeПродолжительность: 00:59:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37D5E982E40354523EB2ACFBC92613AB2D19A457
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024936   (714134) от 10.06.2016
 
 Liquid Mind - Relaxing Rain & Ocean Mixes (2014) [MP3|320 кб/с] <New Age, Ambient>
@@ -6,7 +35,7 @@ Liquid Mind - Relaxing Rain & Ocean Mixes (2014) [MP3|320 кб/с] <New Age, Amb
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714134.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Terry Oldfield & Soraya - Namaste (2016) [MP3|320 кб/с] <New age, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713994.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Nature Sounds & Yoga Tribe - The Natural Orchestra (2016) [MP3|320 кб/с] <New
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713796.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - Your Own Personal Buddha: Cafe Ethnic Lounge (2017) [MP3|320 Kbps] <New Age
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712678.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Ajeet Kaur - Shuniya: Healing Chants (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711832.jpg" />
 </div>
 
 
@@ -150,7 +179,7 @@ VA - 50 Vinyasa Chill Yoga: Healing & Relaxing Yoga Exercises (2017) [MP3|320 Kb
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708908.jpg" />
 </div>
 
 
@@ -179,7 +208,7 @@ Jonn Serrie - Flightpath (1989) Reissue, 1995, Miramar, BMG [MP3|320 кб/с] <A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708203.jpg" />
 </div>
 
 
@@ -208,7 +237,7 @@ Spirit Nation - 2 альбома (1998-2006) [MP3|320 кб/с] <Native American,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708021.jpg" />
 </div>
 
 
@@ -237,7 +266,7 @@ Blue Tribe - Deep Spirit (2006-2012) 3CD [MP3|320 кб/с] <Native American, Eni
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708018.jpg" />
 </div>
 
 
@@ -266,7 +295,7 @@ Llewellyn - Native American Gold (2016) [MP3|320 кб/с] <New age, Relax, Medit
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707946.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ Blue Tribe - Deep Sentiment (2006-2011) (6 альбомов) [MP3|320 кб/с] <
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707939.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Air - Twentyears (2016) [MP3|320 кб/с] <Electronic, Downtempo, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705873.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ Anhidema - Conversation with the Cosmos (2014) [MP3|320 кб/с] <New Age, Ambie
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703953.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ Wendy Stark - Child of Transference (1999) [MP3|320 Kbps] <New Age, Downtempo, A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703615.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ Timothy Wenzel - What We Hold Dear (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701126.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ Parijat - Blessings (2017) [MP3|320 Kbps] <New age, Instrumental>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700772.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ Medwyn Goodall - The Sorcerer's Daughter 2 (2017) [MP3|320 Kbps] <New age, Relax
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700637.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Waterbone - (1997-2015) (5 альбомов) [MP3|320 кб/с] <New Age, Enigmat
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700207.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ Karunesh - Beyond Time Compilation 1 (2010) [MP3|320 kbps]<New Age, Relax, Medit
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699539.jpg" />
 </div>
 
 
@@ -560,7 +589,7 @@ VA - Greatest Ever! Brazil (2012) [MP3|320 Kbps] <World Music, New Age, Brazil>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698797.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ Damien Dubois - L'instant sacré (2018) [MP3|320 Kbps] <New age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696795.jpg" />
 </div>
 
 
@@ -618,7 +647,7 @@ Micki Free - The Native American Flute As Therapy (2016) [MP3|320 Kbps] <New Age
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695124.jpg" />
 </div>
 
 
@@ -647,7 +676,7 @@ Majestica - In the Midst of Stars (2016) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_694837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_694837.jpg" />
 </div>
 
 
@@ -676,7 +705,7 @@ Anugama - 19 albums (1986 - 2000) [MP3|320 kbps]<New age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694820.jpg" />
 </div>
 
 
@@ -711,7 +740,7 @@ Mark Dwane - Ufology (2016) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694697.jpg" />
 </div>
 
 
@@ -725,35 +754,6 @@ Mark Dwane - Ufology (2016) [MP3|320 кб/с] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFDD4AE10542E298046EF8900CE1255928D779ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534111   (694253) от 02.03.2022
-
-Relaxing Music (Humphrey Robertson) - Relaxing Music Vol. 1-2 (1992) [MP3|256 Kbps] <New Age, Ambient, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vision (6:12)
-02. New Feelings (7:14)
-03. Silent Motions (9:16)
-04. Classic Approach (6:17)(   Читать дальше...   )Жанр: New Age, Ambient, DowntempoПродолжительность: 01:58:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64F9FF2629F3FFFE68A67BC5FEAA8A22DD26F42F
 ```
 
 https://mybot314.ru/tekegram_catalog/

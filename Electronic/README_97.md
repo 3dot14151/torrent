@@ -1,3 +1,58 @@
+###  Публикация: 963866   (869230) от 21.02.2017
+
+Label Pack - Damaged Records - 64 Releases (2014 - 2017) [MP3|320 кб/с]<Trance, Tech Trance, Psy-Trance>
+
+>>Electronic
+>>Label-Packs
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fall Into Dusk (Original Mix) (6:48)Жанр: Trance, Tech Trance, Psy-TranceПродолжительность: 00:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:970286DE651A069ACF45DBF32CB37E41B48D6905
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375092   (869087) от 12.04.2020
+
+Bicep - Bicep (2017) Ninja Tune [FLAC|Lossless|tracks+.cue] <House, Techno, Downtempo, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Orca (04:34)
+ 02. Glue (04:29)
+ 03. Kites (06:26)
+ 04. Vespa (01:27)(   Читать дальше...   )Жанр: House, Techno, Downtempo, TranceПродолжительность: 00:57:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBA4FAE77EC4A32128307DCED3F4238BA7FC3E83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375167   (869083) от 12.04.2020
 
 VA - Isolation Therapy (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Ambient, Italo, House>
@@ -6,7 +61,7 @@ VA - Isolation Therapy (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Ambient, 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869083.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ Paul van Dyk & VA - VONYC Sessions 2013 (2013) 2CD, Compilation, Mixed [FLAC|Los
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868982.jpg" />
 </div>
 
 
@@ -64,7 +119,7 @@ Robert Elster - Quarantine EP (2020) [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868980.jpg" />
 </div>
 
 
@@ -93,7 +148,7 @@ VA - Telrae Mixed By Salz Vol. 2 (2012) [FLAC|Lossless|WEB-DL|tracks] <Dub Techn
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868646.jpg" />
 </div>
 
 
@@ -122,7 +177,7 @@ VA - Various Artists - Horenswert Vol. 10 (2016) [MP3|320 кб/с] <Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868643.jpg" />
 </div>
 
 
@@ -151,7 +206,7 @@ Flash Cartel - Elevate (2012) [MP3|320 кб/с] <Progressive House, Drum & Bass,
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868590.jpg" />
 </div>
 
 
@@ -180,7 +235,7 @@ VA - Telrae Mixed By Salz Vol. 5 (2016) [FLAC|Lossless|WEB-DL|tracks] <Dub Techn
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868585.jpg" />
 </div>
 
 
@@ -209,7 +264,7 @@ Aythar - Astronautica (2016) [MP3|320 кб/с] <Ambient, Space>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868583.jpg" />
 </div>
 
 
@@ -238,7 +293,7 @@ VA - We Love Deep Vol. 1 (2016) [MP3|320 кб/с] <Tech House, Indie Dance, Nu D
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868576.jpg" />
 </div>
 
 
@@ -265,7 +320,7 @@ VA - Serious Beats 83 [Mixed by Ar-Tee] (4CD) (2016) [FLAC|Lossless|WEB-DL|track
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868389.jpg" />
 </div>
 
 
@@ -294,7 +349,7 @@ Her Critters - Seconds Of Harmony (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868342.jpg" />
 </div>
 
 
@@ -323,7 +378,7 @@ VA - Sensual Mood Lounge Vol.6 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868341.jpg" />
 </div>
 
 
@@ -352,7 +407,7 @@ VA - Business Lounge Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868338.jpg" />
 </div>
 
 
@@ -381,7 +436,7 @@ VA - Winter Trend Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868337.jpg" />
 </div>
 
 
@@ -410,7 +465,7 @@ VA - Calm Down (Chill Out & Lounge Moods) Vol.2 (2017) [MP3|320 Kbps] <Downtempo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868335.jpg" />
 </div>
 
 
@@ -439,7 +494,7 @@ VA - Harmony Lounge: Music for Relaxation (2017) [MP3|320 Kbps] <Downtempo, Chil
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868332.jpg" />
 </div>
 
 
@@ -468,7 +523,7 @@ VA - Fantastic Lounge (Deep And Chillhouse Hit's) (2017) [MP3|320 Kbps] <Lounge,
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868331.jpg" />
 </div>
 
 
@@ -497,7 +552,7 @@ VA - Ibiza Forecast (2017) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868328.jpg" />
 </div>
 
 
@@ -526,7 +581,7 @@ VA - Fitness Addicted (2017) [MP3|320 Kbps] <Minimal, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868241.jpg" />
 </div>
 
 
@@ -555,7 +610,7 @@ VA - We Love Funky by Miguel Vizcaino (2016) [FLAC|Lossless|image + .cue] <House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868231.jpg" />
 </div>
 
 
@@ -584,7 +639,7 @@ The Art of Noise - The Best of The Art of Noise (Art Works 12") (1992) [FLAC|Los
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868226.jpg" />
 </div>
 
 
@@ -613,7 +668,7 @@ Yellow Magic Orchestra - 17Albums, 5Compilations, 3Singles & EPs (1978-2015) [MP
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868208.jpg" />
 </div>
 
 
@@ -642,7 +697,7 @@ VA - Sexy Collection Deep House Vol.2 (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868131.jpg" />
 </div>
 
 
@@ -671,7 +726,7 @@ VA - Chill Top 50 - Armada Music (2017) [MP3|320 Kbps] <Downtempo, Electronica, 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868116.jpg" />
 </div>
 
 
@@ -685,64 +740,6 @@ VA - Chill Top 50 - Armada Music (2017) [MP3|320 Kbps] <Downtempo, Electronica, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:423285669CD7F4C071677314F3A9F275BA77FA69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107583   (868113) от 22.02.2017
-
-VA - Kamasutra Erotic and Sexy. Compilation Love Making Music Vol.4 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Street Line - Chill Sensation
-02. Indian Dawn - Predictions
-03. Sweet Ocean - Soft Emotion
-04. Deep blue - Velvet Secrets(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:38:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0836ECD7C992392AE0B8E2FABDE3A0C94497F3FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469279   (867398) от 20.03.2016
-
-Martin Grey - Solitudes Episode 001 - 127 (2009-2016)[MP3|320 кб/с]<Chillout, Ambient>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867398.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hour 1 - Martin Grey:
-01. Simon Le Grec feat. Denise Guttenbach - There Must Be A Reason (Original Mix)
-02. Tim Deluxe - Surya (Reprise)
-03. Owen Ear - Inside(   Читать дальше...   )Жанр: Chillout, Ambient, Downtempo, Dark Ambient, Easy Listening, Psy Chill, LoungeПродолжительность: 284:54:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C987E35F4811A823925DD4BA3B1CAD99796C139
 ```
 
 https://mybot314.ru/tekegram_catalog/

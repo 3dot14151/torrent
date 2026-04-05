@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1862414   (1063142) от 
+
+Соре: Жена из будущего / Sore: Istri dari Masa Depan / Sore: A Wife from the Future (2025) WEB-DL [H.264/2160p] [ID / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063142.jpg" />
+</div>
+
+
+###  Подробнее
+
+История рассказывает о молодом человеке по имени Джонатан (Джо), ведущем нездоровый образ жизни. Однажды утром перед ним появляется женщина по имени Соре, которая утверждает, что она его жена, прибывшая из будущего. Она начинает настойчиво менять его привычки и образ жизни, чтобы предотвратить трагические события в будущем. Фильм исследует темы безусловной любви (   Читать дальше...   )Производство: Индонезия / Cerita Film, Dwidaya Amadeo Gemintang, ImajinariЖанр: фантастика, фэнтези, драма, мелодрамаРежиссер: Yandy LaurensАктеры: Шейла Дара Айша, Дион Вийоко, Горан Богдан, Ливио Бадурина, Lara Nekic, Борко Перич, Матиас Мухус, Мая Хасан, Vanda Winter, Сандра ЛончаричПеревод: СубтитрыЯзык озвучки: ИндонезийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:59:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83A3755675A63A3FF57FE11036DBAA66CF4D659E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861364   (1062539) от 
 
 Наследник / How to Make a Killing (2026) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
@@ -7,7 +33,7 @@ https://t.me/izofen
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062539.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062311.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062213.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062204.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061689.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061625.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060643.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059747.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059345.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059337.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058849.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058506.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058171.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057851.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057186.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056378.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055221.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055220.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054722.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054721.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053668.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051559.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1050664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050664.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048303.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047874.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CFB3898F90E14894862647A3FAE5772CF777277
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839871   (1046898) от 01.12.2025
-
-Тролль 2 / Troll 2 (2025) WEB-DL [H.264/1080p] [NO / RU, NO, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046898.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Норвегии вновь неспокойно: в горах Доврефьелль просыпается гигантский тролль, хранитель древних тайн и мифов. Он гораздо агрессивнее и злее своего предшественника, и его цель — нанести разрушительный урон не только близлежащей деревне, но и всей стране. Отважная палеонтолог Нора Тидеманн снова берётся за борьбу с чудовищем. Ей помогают её коллеги — Андреас и офицер (   Читать дальше...   )Производство: Норвегия / Motion Blur FilmsЖанр: фэнтези, боевикРежиссер: Роар УтхаугАктеры: Ине Марие Вильман, Ким Фальк, Мадс Сьёгор Петтерсен, Сара Хорами, Агота Дунаи, Molly Feeley, Каролине Виктория Слеттенг Гарванг, Pål Richard Lunderby, Иштван Алдотт, Карой БакшаиПеревод: СубтитрыЯзык озвучки: НорвежскийСубтитры: Русские, Норвежские (forced, full, SDH), АнглийскиеПродолжительность: 01:44:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D65D260A4DF2F97968069FE7903627D8962F85AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

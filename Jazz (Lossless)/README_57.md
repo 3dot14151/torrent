@@ -6,7 +6,7 @@ Andrea Motis & Joan Chamorro Group featuring Scott Hamilton - Live At Jamboree-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837676.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Bobby Hutcherson - Now! (1969) Remaster, 2004, Blue Note[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836974.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Phil Woods Six - Live From The Showboat (1976) 2CD, Remaster, 2014, Sony Mus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836973.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Peggy Lee with George Shearing - Beauty and the Beat! (1959) 2000, Capitol[FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836963.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Chico Freeman - Tangents (1984) 2008, Wounded Bird [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836826.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Benny Carter meet Marian McPartland (1990) 1999, Галактис [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836822.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ David Sanchez - Carib (2019) Ropeadope [FLAC|Lossless|tracks + .cue] <Latin Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836686.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Cedar Walton - Mobius (1975) 2017, Sony Music [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836679.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Charles Mingus - The Clown (1957) 2004, Atlantic [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836676.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Freddie Hubbard - Back To Birdland (1982) 1994, Drive Archive [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835345.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Trisha O'Brien - Out Of A Dream (2010) Azica [FLAC|Lossless|image + .cue] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835344.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Dayme Arocena - Cubafonia (2017) Beat Records [FLAC|Lossless|tracks + .cue] <Afr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835342.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Pete Johnson - 1947 - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Boogie
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835311.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ The John Wright Trio - South Side Soul (1960) 1990, Original Jazz Classics [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_835309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_835309.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Nat Adderley - Autobiography (1964-1965) Remaster, 2012, Warner[FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834842.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Joachim Kuhn New Trio - Beauty & Truth (2016) ACT[FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834839.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Stanley Turrentine - Always Something There (1968) Remaster, 2014, Universal[FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834833.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Charlie Haden & Gonzalo Rubalcaba - Tokyo Adagio (2005) 2015, Universal[FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834828.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Chucho Valdes - Tribute To Irakere (2015) Jazz Village: Live In Marciac[FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834719.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Omer Avital - Abutbul Music (2016) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834718.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Tord Gustavsen - What Was Said (2016) [FLAC|Lossless|tracks + .cue] <Contemporar
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834572.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Claude Bolling - Jazzgang Amadeus Mozart (1965) 2007, Philips [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833606.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Lisa Ekdahl - Nar alla vagar leder hem (2017) [FLAC|Lossless|WEB-DL|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833605.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Sidney Bechet - Five Classic Albums Plus: Second Set 1952 - 1955 (2017) 2CD, Avi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833323.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - NOW Jazz Classics (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833316.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Stan Getz Quartet - Grand Stan (1974) Remaster, 2014, Studio Songs[FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832838.jpg" />
 </div>
 
 

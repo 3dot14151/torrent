@@ -1,3 +1,35 @@
+###  Публикация: 1060926   (450988) от 09.10.2016
+
+Crimson Glory - In Dark Places... 1986-2000 (2010) 5CD Box Set [FLAC|Lossless|image + .cue] <Progressive Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Crimson Glory - In Dark Places... 1986-2000
+2010 5CD Box Set Metal Mind productions   - MMP 5 CD BOX 007
+Состав Box Set:
+1986 Crimson Glory (MASS CD 1375 DG)1988 Transcendence (MASS CD 1376 DG)
+1991 Strange And Beautiful (MASS CD 1377 DG)
+1999 Astronomica (MASS CD 1378 DD1)
+1999 Astronomica demos and live tracks (MASS CD 1378 DD2)Жанр: Progressive Heavy, Power MetalПродолжительность: 04:21:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21C44B507CD4997B42E853E564AEC6FA9BE04D22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1247837   (450927) от 16.09.2018
 
 T. Rex - Gold (2018)(3CD Box Set)[FLAC|Lossless|image + .cue] <Classic Rock, Glam>
@@ -6,7 +38,7 @@ T. Rex - Gold (2018)(3CD Box Set)[FLAC|Lossless|image + .cue] <Classic Rock, Gla
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450927.jpg" />
 </div>
 
 
@@ -35,7 +67,7 @@ Uriah Heep - Easy Livin' (The Masters Collection) (2018) 2CD [FLAC|Lossless|imag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450916.jpg" />
 </div>
 
 
@@ -64,7 +96,7 @@ Children Of Bodom - I Worship Chaos (2015) Deluxe Edition [MP3|320 кб/с]<Melo
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450854.jpg" />
 </div>
 
 
@@ -93,7 +125,7 @@ Joe Lynn Turner - The Sessions (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450790.jpg" />
 </div>
 
 
@@ -122,7 +154,7 @@ Alter Bridge - The Last Hero (2016) Best Buy Edition [MP3|320 Kbps] <Alternative
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450787.jpg" />
 </div>
 
 
@@ -151,7 +183,7 @@ Molly Hatchet - Original Album Classics (2010) 5CD Box Set [FLAC|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450786.jpg" />
 </div>
 
 
@@ -182,7 +214,7 @@ Frank Zappa - ZAPPAtite - Frank Zappa’s Tastiest Tracks (2016) [MP3|320 Kbps] 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450783.jpg" />
 </div>
 
 
@@ -211,7 +243,7 @@ Joe Lynn Turner - The Sessions (2016) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450774.jpg" />
 </div>
 
 
@@ -240,7 +272,7 @@ Power Music Workout - 40 Fit as Funk Workout Tracks (2019) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450640.jpg" />
 </div>
 
 
@@ -269,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450608.jpg" />
 </div>
 
 
@@ -298,7 +330,7 @@ Green Day - Revolution Radio (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450363.jpg" />
 </div>
 
 
@@ -327,7 +359,7 @@ VA - Ultimate Driving Songs (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450341.jpg" />
 </div>
 
 
@@ -356,7 +388,7 @@ Russkaja - Kosmopoliturbo (2017) [FLAC|lossless|image + .cue] <Pop-Punk, Gypsy-P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450339.jpg" />
 </div>
 
 
@@ -385,7 +417,7 @@ Tarja - In the Raw (2019) [MP3|320 Kbps] <Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450264.jpg" />
 </div>
 
 
@@ -414,7 +446,7 @@ Queen - Hungarian Rhapsody: Live in Budapest (1986) /2012, Island Records/ [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450239.jpg" />
 </div>
 
 
@@ -443,7 +475,7 @@ Porno Wolves - Renegades (2017) [MP3|320 Kbps] <Psychedelic Rock, Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450223.jpg" />
 </div>
 
 
@@ -472,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450114.jpg" />
 </div>
 
 
@@ -498,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450099.jpg" />
 </div>
 
 
@@ -527,7 +559,7 @@ The Beatles - Complete Christmas Collection [Bootleg] (1994) [MP3|192 kbps]<Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_449954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_449954.jpg" />
 </div>
 
 
@@ -561,7 +593,7 @@ The xx - Coexist (Japanese Version) (2012) [MP3|320 кб/с]<Indie-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_449938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_449938.jpg" />
 </div>
 
 
@@ -596,7 +628,7 @@ PreHistoric Animals - 3 Albums (2018-2022) [MP3|320 Kbps] <Alternative Progressi
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449681.jpg" />
 </div>
 
 
@@ -625,7 +657,7 @@ Semblant - Vermilion Eclipse (2022) [FLAC|Lossless|image + .cue] <Extreme Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449679.jpg" />
 </div>
 
 
@@ -654,7 +686,7 @@ Lacrimosa - Elodia (1999) Irond , Reissue 2002 [FLAC|Lossless|image + .cue] <Neu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449671.jpg" />
 </div>
 
 
@@ -683,7 +715,7 @@ Audiotopsy - Natural Causes (2015) [MP3|320 кб/с]<Alt.Metal, Nu-Metal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449586.jpg" />
 </div>
 
 
@@ -712,7 +744,7 @@ Gun - More Frantic (2015) Deluxe Edition [MP3|320 кб/с]<Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449577.jpg" />
 </div>
 
 
@@ -726,35 +758,6 @@ Gun - More Frantic (2015) Deluxe Edition [MP3|320 кб/с]<Melodic Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDD422E12C1E04C6B33334EF3DACF6398202B929
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569291   (449567) от 14.08.2022
-
-Rage Titanium - Настало Время Героев (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Настало время героев
-02. Хранитель
-03. Сумрачный лес
-04. Армия тьмы(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 01:06:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC5A47CA3C8BC51DDAC8FB9BDA90E307F0CA08CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

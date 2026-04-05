@@ -6,7 +6,7 @@ Monster Energy Supercross - The Official Videogame (2018) [Multi] (1.0/dlc) Lice
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228424.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Project CARS 2 (2017) [Ru/Multi] (7.1.0.1.1108/dlc) Repack dixen18 [Deluxe Editi
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227094.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2012) [Ru/Multi] (
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225360.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ CyberTaxi (2020) [En] (10.24xyz) License TiNYiSO
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216672.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Project CARS 2 (2017) [Ru/Multi] (1.7.1.0.1/dlc) Repack R.G. Механики [D
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216636.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Test Drive®: Ferrari Racing Legends [En] (RePack) 2012 | R.G.Games
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216156.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ FlatOut (2005) [Multi] (1.1) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216026.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ MXGP 2021 - The Official Motocross Videogame (2021) [Multi] (1.0b7737829) Licens
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214544.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Assetto Corsa Competizione (2019) [Ru/Multi] (1.8.0/dlc) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214481.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Driver: Parallel Lines (2007) [Multi] (1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208740.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Automobilista 2 (2020) [Multi] (1.4.5.2.2247/dlc) License FLT [VR]
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203250.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ The Crew 2 (2018) [Ru/Multi] (4060652/dlc) Repack seleZen
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202460.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ The Crew 2 (2018) [Ru/Multi] (4060652/dlc) Repack FitGirl [Gold Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202438.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Smurfs Kart (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201895.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Monster Energy Supercross - The Official Videogame 6 (2023) [Multi] (1.0) Licens
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200733.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Trials Rising (2019) [Ru/Multi] (Build 10831717/dlc) Repack FitGirl [Gold Editio
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_200578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_200578.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Hard Truck: Road to Victory / Дальнобойщик: Путь к победе
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_199748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_199748.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Can't Drive This (2021) [Ru/Multi] (1.0) Scene SKiDROW
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198866.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Absolute Drift (2015) [En] (5f6049d) License GOG [Zen Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195437.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Horizon Chase 2 (2023) [Ru/Multi] (1.0) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187230.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ FlatOut (2004) [Ru/En] (1.1) Repack Necros
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185655.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ NASCAR Arcade Rush (2023) [En] (1.0.0.2/dlc) Scene Tenoke [Project-X Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181790.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Overpass 2 (2023) [Ru/Multi] (1.0.0-1892.84963) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179771.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Forza Motorsport (2023) [Ru/Multi] (1.488.4138.0/dlc) Repack DjDI [Premium Editi
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176208.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ WRC 9 FIA World Rally Championship (2020) [Ru/Multi] (1.0/dlc) Repack Other s [D
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172890.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2013) [Ru/Multi] (
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171481.jpg" />
 </div>
 
 

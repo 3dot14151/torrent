@@ -1,3 +1,55 @@
+###  Публикация: 1169579   (678691) от 02.05.2018
+
+Hob (2017) [Ru/Multi] (1.17.3.0) License GOG
+
+>>След.
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработчики Torchlight и Torchlight II представляют Hob - захватывающее приключение в прекрасном, но жестоком мире. Проникните в тайны планеты, узнайте правду и исцелите этот мир прежде, чем он погрузится в хаос. Hob - это приключенческая игра от Runic Games, создателей Torchlight и Torchligt 2, в которой игрок оказывается в роли персонажа, очутившегося в неизвестном (   Читать дальше...   )Тип издания: LicenseРазработчик: Runic Games Inc.Жанр: Экшн, Приключение, ПлатформерЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21594014A685091416B2BD7FD97EA713ED88CEAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226264   (656465) от 19.05.2018
+
+Koloro (2018) [Ru/Multi] (1.0) License PLAZA
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656465.jpg" />
+</div>
+
+
+###  Подробнее
+
+Колоро - это одновременно головоломка и платформа с уникальным игровым процессом предусматривающий управление всего одной кнопкой, динамичным геймплеем, привлекательными персонажами в сказочном мире поразительной графики и сопровождаемая захватывающим саундтреком. Станьте Корой, маленькой девочкой с розовыми волосами, и превзойдите её страхи и тревоги, найдя её младшую (   Читать дальше...   )Тип издания: LicenseРазработчик: Sköll StudioЖанр: Adventure (Platform), Puzzle, Logic, 2DЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B9CC7CF300D8E3928B3B1AC0FA82B2441F02B49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140624   (654662) от 07.06.2017
 
 Randall (2017) [En] (1.0) License CODEX
@@ -6,7 +58,7 @@ Randall (2017) [En] (1.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654662.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ RC Racing Off Road 2.0 (2016) [En/De] (1.0) License SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652965.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Orbital Bullet - The 360° Rogue-lite (2022) [Ru/Multi] (1.0.3) License GOG [Sav
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651903.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Streets of Fury EX (2015) [En] (1.0) License TiNYiSO
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649933.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ World of One (2017) [Ru/Multi] (1.1.3 B4) License SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644185.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639041.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ GoNNER (2016) [Ru/Multi] (1.0.16111501) License GOG [BluEBERRY EDiTiON]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636775.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ Wonder Boy: The Dragon's Trap (2017) [Multi] (1.02.16) License SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636673.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ MechaGore (2016) [Ru/Multi] (1.6) License HI2U
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634038.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ MilitAnt (2016) [Ru/Multi] (1.0) License SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633815.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ MechaGore (2016) [Ru/Multi] (1.6) SteamRip ALiAS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632055.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ Ghost 1.0 (2016) [Ru/Multi] (1.0.24) Repack Let's Play
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629811.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ Sonic Mania (2017) [Multi] (1.06.0503/dlc) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629463.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ Rogue Legacy (2013) [Ru/En] (1.0.13) RePack e2e4
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629419.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ Valdis Story Abyssal City (2013) [Ru/En] (1.0.0.24) SteamRip Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629130.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ osu! (2007) [Ru/Multi] (b20180510.4) Unofficial
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624053.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ de Blob 2 (2017) [Multi] (0.13) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623267.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ Super Meat Boy (2010) [Ru/Multi] Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619396.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ Audiosurf 2 (2015) [En] (1.0rls) Repack ALiAS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617341.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ Mahluk: Dark demon (2016) [En] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616792.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ Full Mojo Rampage (2014) [Ru/En] (1.0.129D) Repack Mizantrop1337
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615073.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ DreamBreak (2016) [Ru/En] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614880.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ Cast of the Seven Godsends - Redux (2015) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613245.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ Semblance (2018) [Ru/Multi] (1.0.3b) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613192.jpg" />
 </div>
 
 
@@ -626,64 +678,6 @@ Semblance — это уникальный платформер в сеттинг
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4773856A17CD729B5702352664FF07DF9CBE09F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 221541   (612873) от 25.07.2010
-
-Toki Tori (ENG) [L] (2010)
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_612873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Toki Tori представляет собой продукт скрещивания трехмерного платформера и пазла. Главный герой - цыплёнок, в чью честь названа игра, отправляется на поиски похищенных из родного курятника яиц. В благородном деле все средства хороши, в том числе и применение оружия. Впрочем, львиную долю времени придется решать головоломки при помощи специальных предметов и прыгать по платформам, а не стрелять. В игре более 80 уровней в 4 мирах, множество способностей, запутанные головоломки, прекрасное оформление, а также возможность перемотки времени.
-
-Запускаем .ехе файлЖанр: Puzzles, Platformer
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 221536   (612871) от 25.07.2010
-
-Blueberry Garden v.1.1 (Eng) [P] (2009)
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_612871.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Сказка, рассказанная в подвижной экосистеме. Летите сквозь облака, исследуйте удивительный мир и откройте тайну черничного сада. От вашего присутствия зависит все» — таким текстом приветствует посетителей страничка Blueberry Garden на сайте финалистов Фестиваля независимых игр, где эта игра претендует на Гран-при.
-
-Blueberry Garden — арт-проект до мозга костей. Главный герой — прямоходящая птица в костюме и шляпе. В центре единственного игрового уровня стоит ее дом, вокруг которого бурлит жизнь — плодоносят и сбрасывают листву деревья, прыгают куры и какие-то козявки. Наш герой может бегать вокруг, подбирать опавшие ягоды, кидать их или, по нажатию клавиши Enter, есть. Каждый употребленный в пищу плод оказывает на него определенный эффект: «клюква» чуть приподнимает землю под ногами (самый настоящий терраформинг в реальном времени), желтые звездочки позволяют дышать под водой, ну а собственно черника (размером с добрый арбуз) позволяет дальше лететь.
-
-Летает герой крайне забавно: стоит два раза нажать пробел, (   Читать дальше...)Жанр: Arcade / Logic
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

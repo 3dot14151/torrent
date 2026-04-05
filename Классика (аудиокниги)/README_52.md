@@ -1,3 +1,29 @@
+###  Публикация: 1086504   (148311) от 26.12.2016
+
+Александр Фадеев | Молодая гвардия (1947) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148311.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шел грозный 1942-й год. Нескончаемым потоком через Краснодон движутся воинские части и толпы беженцев. Они отступают. Издалека слышен гул канонады, горят деревни. Фронт все ближе подходит к Краснодону, и город вынужден готовиться к эвакуации. Парни и девушки, вчерашние школьники Краснодона, с тяжелым чувством наблюдают картину отступления. Еще совсем недавно жизнь (   Читать дальше...   )Жанр: Военная проза, драма, радиоспектакльПродолжительность: 01:01:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80D965590F9D715103409A79E01DB75A72958279
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678111   (147821) от 20.11.2023
 
 Гастон Леру | Человек, который видел дьявола (2021) [MP3, Александр Бордуков]
@@ -6,7 +32,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147821.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147506.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146665.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146118.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145990.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145922.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145778.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145513.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145135.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145113.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145074.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145054.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145036.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144972.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144964.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144952.jpg" />
 </div>
 
 
@@ -434,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144903.jpg" />
 </div>
 
 
@@ -460,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144896.jpg" />
 </div>
 
 
@@ -486,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144887.jpg" />
 </div>
 
 
@@ -514,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144839.jpg" />
 </div>
 
 
@@ -541,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144717.jpg" />
 </div>
 
 
@@ -567,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144656.jpg" />
 </div>
 
 
@@ -595,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144271.jpg" />
 </div>
 
 
@@ -621,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143925.jpg" />
 </div>
 
 
@@ -649,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143142.jpg" />
 </div>
 
 
@@ -660,33 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC0B111CAF058F5383EDF359E96446D97C99EB69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 431956   (143118) от 22.11.2023
-
-Теофиль Готье | Капитан Фракасс (2011) [MP3, Алексей Веретин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143118.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пьер Жюль Теофиль Готье (1811–1872)  – знаменитый французский поэт и критик романтической школы.
-«Капитан Фракасс» – приключенческий роман выдающегося французского поэта и писателя Теофиля Готье о жизни бродячих комедиантов во Франции XVII века. Различные персонажи романа: титулованные дворяне, бродячие актеры, завсегдатаи парижских таверн – все по воле автора как (   Читать дальше...   )Жанр: Зарубежная литература, классика, историко-приключенческий романИздательство: МедиаКнигаПродолжительность: 21:57:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17E069D032659A96121FCDF90A50AE9DA4BCFD0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1779516   (27245) от 18.02.2025
+
+Антология Fears to Fathom (2021-2024) [Ru/Multi] (1.7/1.6/1.6/1.6/1.13) Repack EXROW
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27245.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пятом эпизоде ​​Fears to Fathom вы играете за Сидни Харпер, 23-летняя девушка, работающая в консалтинговой фирме, планирует провести выходные в арендованном доме в Вудбери со своими друзьями из колледжа.Тип издания: RepackРазработчик: Rayll StudiosЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94E686355B84B0D754384CD17900A8F6500D6A94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780670   (27135) от 19.02.2025
+
+Lost Records Bloom & Rage (2025) [Ru/Multi] (1.02.118358) Scene FAiRLiGHT
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое нарративное путешествие от создателей Life is Strange. Снимите собственный фильм про лето 1995 года, которое вашей новой компании запомнится на всю жизнь. Двадцать семь лет спустя всем вам придется вновь столкнуться с мрачными секретами, о которых вы договорились никогда не вспоминать.Тип издания: SceneРазработчик: DON'T NODфЖанр: Приключенческие игры, ИндиЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF0B17DAB1145858B197CD6F46293F5029B5B808
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780596   (27079) от 19.02.2025
+
+Lost Records Bloom & Rage (2025) [Ru/Multi] (build 17370633) Repack seleZen
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27079.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое нарративное путешествие от создателей Life is Strange. Снимите собственный фильм про лето 1995 года, которое вашей новой компании запомнится на всю жизнь. Двадцать семь лет спустя всем вам придется вновь столкнуться с мрачными секретами, о которых вы договорились никогда не вспоминать.Тип издания: RepackРазработчик: DON'T NODЖанр: Приключенческие игры, ИндиЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28DBBEE1CDC28CE65A67CCCE6723ECEEBBC7A595
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765442   (27064) от 20.02.2025
 
 The Spirit of the Samurai (2024) [Ru/Multi] (1.0.10) Repack Let'sРlay [Deluxe Edition]
@@ -6,7 +84,7 @@ The Spirit of the Samurai (2024) [Ru/Multi] (1.0.10) Repack Let'sРlay [Deluxe E
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27064.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (1.02.118358) Repack DjDI [Soundtrac
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27042.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Amnesia Rebirth (2020) [Ru/Multi] (1.40) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27032.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Amnesia: The Bunker (2023) [Ru/Multi] (1.31) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27025.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Amnesia: The Dark Descent / Амнезия: Призрак прошлого (201
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27014.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Gym Nights (2024) [Ru/En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27004.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Amnesia A Machine for Pigs (2013) [Ru/Multi] (1.2) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26974.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Discolored 2 (2025) [Ru/Multi] (1.3.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26838.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ While Waiting (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26826.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Slender Threads (2025) [Ru/Multi] (1.0.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26816.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Geminism (2025) [Multi] (1.0.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26811.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ A Game About Digging A Hole (2025) [Ru/Multi] (build 17291810) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26725.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Amanita Design Collection (2003-2021) [Ru/Multi] (1.12/2.34/Build 4041/1.2.0/1.4
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26712.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ BrokenLore: LOW (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26702.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Cabernet (2025) [Multi] (1.0.8) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26660.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Amenti (2025) [Ru/En] (Build 17306708) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26644.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ NORCO (2022) [Ru/Multi] (1.5.0) License GOG [Special Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26642.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ The Shell Part I: Inferno (2023) [Multi] (1.0.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26632.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ BrokenLore: LOW (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26626.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ The Shell Part II: Purgatorio (2024) [Multi] (1.0.1/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26620.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ The Shell Part III: Paradiso (2025) [Multi] (1.0.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26590.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ BrokenLore: LOW (2025) [Ru/Multi] (build 17449000) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26587.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Tribute (2025) [Ru/Multi] (1.4.3) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26412.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Tribute (2025) [Ru/Multi] (1.4.3) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44073F75A66FEA7B5BDD206ED98F36E29461DEF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782145   (26241) от 27.02.2025
-
-Monospaced Lovers (2024) [Ru/Multi] (1.0.1.1) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Monospaced Lovers сочетает в себе несколько жанров. Это и платформер, и адвенчура, и визуальная новелла, и пулевой ад. Здесь надо прыгать по платформам, исследовать локации, выполнять квесты, болтать с неписями, искать секреты и подсказки, решать джамп-пазлы, разбираться с головоломками и даже сражаться с боссами. Поединки с главарями напоминают боссфайты из скролл-шутеров, (   Читать дальше...   )Тип издания: RepackРазработчик: Scarlet String StudiosЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Испанский, Японский и другиеЯзык интерфейса: Русский, Английский, Испанский, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAE0E47CDC648EEEE172FEAFB88A1314C3D735D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762629   (26229) от 28.02.2025
-
-The Strange City (2024) [Multi] (1.0.6) Repack Let'sРlay
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время выполнения задания с другим агентом A, Агент G попадает в странное явление и теряет сознание. Когда G приходит в себя и оглядывается, они оказываются в незнакомом, ненормальном мире, а их спутник исчезает. Stranger City — это потустороннее царство, наполненное странными явлениями и монстрами. Теперь, как Агент G, вы должны найти своего потерянного партнера (   Читать дальше...   )Тип издания: RepackРазработчик: Newmatic Co., Ltd.Жанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Английский, КорейскийЯзык интерфейса: Английский, Корейский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:526D4769B04150D9093F7849F1D54C9A377588CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757380   (26228) от 28.02.2025
-
-Connection: The Nightmare Within (2024) [Ru/Multi] (Build 17385646) Repack Decepticon
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раскройте самое безумное дело в своей детективной карьере, находя улики, сражаясь с зомби-подобными существами и боссами, от которых волосы встают дыбом. Решайте сложные головоломки и исследуйте историю, полную поворотов и поворотов. Выберите классическую фиксированную камеру для фильмов ужасов о выживании или камеру через плечо.Тип издания: RepackРазработчик: Dragon LevelЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D3EDE9E1007C37A77509FA7D01F92776D8331D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

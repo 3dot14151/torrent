@@ -1,3 +1,55 @@
+###  Публикация: 1438323   (1033436) от 06.02.2021
+
+Приятель Джои / Pal Joey (1957) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шикарная комедия с Фрэнком Синатрой в роли отчаянного ловеласа Джои, любителя блондинок и брюнеток, толстых и худых, молодых и не очень. Скрываясь от очередного обманутого мужа в маленьком городе, он становится постановщиком ревю и соблазняет и спонсора постановки Веру Симпсон и главную звезду Линду.Производство: США / Essex Productions, George Sidney ProductionsЖанр: Мюзикл, Драма, Мелодрама, КомедияРежиссер: Джордж СидниАктеры: Рита Хэйворт, Фрэнк Синатра, Ким Новак, Барбара Николс, Бобби Шервуд, Хэнк Генри, Элизабет Паттерсон, Франклин Фэрнум, Бесс Флауэрс, Пьер УаткинПеревод: Многоголосый профессиональный, авторскийСубтитры: Английские (Full, SDH)Продолжительность: 01:49:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4D44EAB774F62D2FB6BC7903F1F81ABEB61AA4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438371   (1032953) от 08.02.2021
+
+Человек-леопард / The Leopard Man (1943) BDRip [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Менеджер ночного клуба решает порадовать посетителей экзотическим номером с леопардом, однако во время выступления хищник убегает из клуба и оказывается на свободе. После этого по городу прокатывается волна жестоких убийств, которые списывают на бесчинства сбежавшего животного, но работники клуба уверены, что их леопард тут ни при чём, и это дело рук объявившегося (   Читать дальше...   )Производство: США, RKO Radio PicturesЖанр: Ужасы, триллерРежиссер: Жак ТурнёрАктеры: Деннис О’Кифи, Марго, Джин Брукс, Изабель Джуэлл, Джеймс Белл, Маргарет Ландри, Эбнер Биберман, Тууликки Паананен, Бен Бард, Эд АгрестиПеревод: Одноголосый любительский (liosaa)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:06:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21BCC346380257E4164BE776ADFE2A71C971F67B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438825   (1032866) от 08.02.2021
 
 Герцогиня и Драный Лис / The Duchess and the Dirtwater Fox (1976) BDRip [DVO]
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032866.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032401.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032275.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032188.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032041.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032036.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031858.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031829.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031752.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031414.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031257.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031201.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031107.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031097.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031049.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030957.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030892.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030657.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030421.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030400.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030205.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030021.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029801.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029162.jpg" />
 </div>
 
 
@@ -618,58 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD7B7651025DF3D1C09AF590828AEC1DDF56BA08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617838   (1029098) от 03.04.2023
-
-Брат «Орхидея» / Brother Orchid (1940) DVDRip [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029098.jpg" />
-</div>
-
-
-###  Подробнее
-
-После очередной переделки «крутой гангстер» Малыш Джон Сарто оказывается в обители Цветочного братства и принимает имя Брат Орхидея. В обители ему открываются истинные ценности этого мира, такие как любовь к ближнему, беззаветное служение обществу и прочее. В сознании Малыша Джона начинают происходить метаморфозы, в итоге превращающие его из гангстера в Человека.Производство: США, Warner Bros. PicturesЖанр: драма, мелодрама, комедия, криминалРежиссер: Ллойд БэйконАктеры: Эдвард Г. Робинсон, Энн Сотерн, Хамфри Богарт, Дональд Крисп, Ральф Беллами, Аллен Дженкинс, Чарльз Д. Браун, Сесил Келлауэй, Морган Конуэй, Ричард ЛэйнПеревод: Одноголосый любительский (minyaev)Язык озвучки: Русский, АнглийскийСубтитры: русские, английские (отдельными файлами)Продолжительность: 01:27:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E302806CACD41361BB435F24929E8E3968092FF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450679   (1028889) от 27.02.2021
-
-Белое перо / White Feather (1955) BDRip [H.264] [DVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой человек, землемер по профессии, приезжает на Запад на территории контролируемые шайенами. Неожиданно для себя и всех окружающих он становится другом индейцев...Производство: США / Panoramic ProductionsЖанр: Вестерн, ИсторияРежиссер: Роберт Д. УэббАктеры: Роберт Вагнер, Джон Ланд, Дебра Пейджит, Джеффри Хантер, Эдуард Франц, Ной Бири мл., Вирджиния Лейт, Эмиль Мейер, Хью О’Брайан, Милберн СтоунПеревод: Двуголосый любительский, iDimo и Organic LenaСубтитры: Русские, английские (Full, SDH)Продолжительность: 01:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B68E5CF2818483B84C4662DA734E23E428AA00C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

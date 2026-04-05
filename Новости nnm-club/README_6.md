@@ -1,3 +1,29 @@
+###  Публикация: 1617546   (1034724) от 08.03.2023
+
+Угроза для миллиардов компьютеров: в TPM 2.0 обнаружили опасные уязвимости
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034724.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эксперты по кибербезопасности из компании Quarkslab обнаружили две уязвимости в реализации Trusted Platform Module (TPM) 2.0, создающие потенциальную угрозу для миллиардов компьютеров с такими чипами.Чипы TPM 2.0 устанавливаются на материнские платы компьютеров с середины 2016 года. Технология, уточняют в Microsoft, необходима для реализации функций, связанных с (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1444254   (1034501) от 01.02.2021
 
 Палмер / Palmer (2021) WEB-DL [H.264/1080p]
@@ -6,7 +32,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034501.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034482.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Udemy, Dmitrii Fokeev | Полный курс по JavaScript - С нуля до
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034481.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034318.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034289.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Subnautica: Below Zero (2019) [Ru/Multi] (41555) Repack xatab [Early Access]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034269.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034104.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034051.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034050.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034046.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ MInstAll v.02.02.2021 By Andreyonohov (Unpacked) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034045.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ Resident Evil 2 Remake / Biohazard RE:2 (2019) [Ru/Multi] (1.05upd6/dlc) Repack 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034042.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033909.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033873.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033835.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033633.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ Linux Mint 20.1 Ulyssa (XFCE, Mate, Cinnamon) [64bit] 4xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033594.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033431.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033374.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033336.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ WinPE 11 Sergei Strelec x64 2023.03.14 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033320.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ Avira Phantom VPN Pro 2.37.1.24458 (06.02.2021) RePack by elchupacabra [Multi/Ru
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033106.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033097.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033092.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ ESET NOD32 Antivirus/Internet Security/Internet Security(Для всех уст�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033090.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ ESET NOD32 - быстрое и надежное решение для защит
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DF3FB3083E9EA4DE7F19300ADF0D3EFD895A8C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446019   (1032862) от 08.02.2021
-
-В Китае детям запретили брать мобильные телефоны в школу
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032862.jpg" />
-</div>
-
-
-###  Подробнее
-
-Министерство образования Китая запретило ученикам начальной и средней школы пользоваться мобильными телефонами в учебном заведении. Об этом передает BBC.Ученики не могут принести в школу телефон без письменного согласия родителей. Кроме того, в некоторых китайских школах уже действует внутренний запрет на использование телефонов.Согласно Информационному центру Китая, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

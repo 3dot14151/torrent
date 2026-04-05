@@ -1,3 +1,160 @@
+###  Публикация: 1650994   (207131) от 04.08.2023
+
+Великаны планеты / Big Beasts (2023) WEB-DL [H.265/2160p] [4K, HDR, 10-bit] (сезон 1, серии 1-10 из 10)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207131.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный сериал-путешествие рассказывает о самых больших представителях животного мира, обитающих на планете Земля – от ледяных полюсов до влажных тропиков. Быть гигантом не так-то просто, потому что жизнь больших зверей сопряжена с неменьшими проблемами и трудностями.Производство: Великобритания, Plimsoll ProductionsЖанр: документальный, природа, флора, фаунаРежиссер: Дэвид ДжонУчастники: Том ХиддлстонПеревод: одноголосый профессиональный (Iyuno-SDI Group)Язык озвучки: русскийСубтитры: русские (Forced, Full, SDH), украинские, английские (full, SDH)Продолжительность: серии ~00:29:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A37FB996176E87F6AD1411D12017074D50B5620B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649795   (207078) от 05.08.2023
+
+Поле чудес (28.07.2023) SATRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девять игроков из России и стран СНГ собрались за барабаном в студии программы «Поле чудес», чтобы, разбившись на тройки, отгадать слова, которые зашифровал для них на табло ведущий. Победители каждой из игровых троек встречаются в финале, где и определяется человек, который выигрывает главный приз. Игра ведется на очки, поэтому в конце программы победитель может (   Читать дальше...   )Телекомпания: Первый канал (Россия)Жанр: телепередачаЯзык озвучки: РусскийПродолжительность: 00:56:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65D6141C43C07DCFF46488EE470042C17A96EC35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347999   (207048) от 06.08.2023
+
+Карукера / Karukera (2019) WEBRip [H.264/2160p] [4K, UHD]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Посещая Гваделупу во время каникул с моей маленькой семьёй, я сделал несколько снимков разных мест, которые посетил. Гваделупа такая удивительная, красивая и красочная. Я провёл 2 недели на этом острове, но этого слишком мало, чтобы узнать всё, что может предложить это место. Красота природы и тёплый приём людей были удивительными. Я должен вернуться, чтобы получить (   Читать дальше...   )Производство: ГваделупаЖанр: Документальный, видовойРежиссер: Кристофер ДормойПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:04:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E7E6692162392D169E50DA8C8F0F44D7E2E0A1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609469   (207038) от 18.02.2023
+
+Дикая одиссея Австралии / Australia's Wild Odyssey (2023) WEBRip [H.264/720p] [VO] (серии 1-3 из 3)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207038.jpg" />
+</div>
+
+
+###  Подробнее
+
+Следуйте за течением воды в уникальных ландшафтах Австралии, чтобы раскрыть невероятные связи, связывающие всех существ на земле. Wild Odyssey — это любовное письмо единственной известной нам планете, на которой существует жизнь.Производство: АвстралияЖанр: документальныйРежиссер: Nick RobinsonПеревод: Одноголосый профессиональный (Jaskier)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: ~00:55:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7184BADE0E2029874DCC58C76339C2514B10EC85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649931   (207004) от 06.08.2023
+
+Кто хочет стать миллионером? (29.07.2023) SATRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телевизионная игра, в которой каждый участник может заработать 3 миллиона рублей. "Кто хочет стать миллионером?" - поединок. Игрока-одиночки и огромного массива Информации, накопленной человечеством.
+Сорвите куш, отвечая на коварные вопросы! В каждой игре вас ждут 15 заданий-вопросов, которые будут становиться всё сложнее и сложнее, а виртуальный призовой (   Читать дальше...   )Телекомпания: Россия, Медиагруппа «Красный квадрат», Первый КаналЖанр: ТВ-шоу, интеллектуальный, играУчастники: Ведущая Юлиана КарауловаЯзык озвучки: РусскийПродолжительность: 00:54:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B3613892BB299A5D13DCE1014A00302D1E51465
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 407811   (206995) от 29.09.2022
+
+Бабий яр (2004) DVDRip
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206995.jpg" />
+</div>
+
+
+###  Подробнее
+
+В фильме вы проследуете трагическим путем тысяч киевлян к месту массовых расстрелов 1941-43 гг. - Бабьему яру, в г. Киеве. Начиная от истории и географии места, к расстрелам, о создании и функционировании другого страшного места - Сырецкого концлагеря. Наконец, о горестной истории забвения этих событий, рассказ о создании Памятника. В понедельник, 29 сентября 1941 (   Читать дальше...   )Жанр: ДокументальныйРежиссер: А. ЧайкаПродолжительность: 00:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0387A4E1F3A9F9FABA566EED733B31DCA30A70D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1440834   (206985) от 06.08.2023
 
 Мауи / Maui (2019) WEBRip [VP9/2160p]
@@ -6,7 +163,7 @@
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206985.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206910.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206865.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206768.jpg" />
 </div>
 
 
@@ -110,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206735.jpg" />
 </div>
 
 
@@ -136,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206723.jpg" />
 </div>
 
 
@@ -162,7 +319,7 @@ The Beatles в Индии / The Beatles and India (2021) WEB-DL [H.264/1080p]
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206721.jpg" />
 </div>
 
 
@@ -188,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206667.jpg" />
 </div>
 
 
@@ -214,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206641.jpg" />
 </div>
 
 
@@ -240,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206555.jpg" />
 </div>
 
 
@@ -266,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206481.jpg" />
 </div>
 
 
@@ -292,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206457.jpg" />
 </div>
 
 
@@ -318,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206453.jpg" />
 </div>
 
 
@@ -344,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206448.jpg" />
 </div>
 
 
@@ -370,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206430.jpg" />
 </div>
 
 
@@ -399,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206362.jpg" />
 </div>
 
 
@@ -425,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206345.jpg" />
 </div>
 
 
@@ -451,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206337.jpg" />
 </div>
 
 
@@ -477,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206317.jpg" />
 </div>
 
 
@@ -503,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206299.jpg" />
 </div>
 
 
@@ -514,162 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7EC4B623A9AE5F3AB38E534C41F48FD88836A03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653388   (206283) от 15.08.2023
-
-Первое, второе и компот. Истории и рецепты советского общепита (2023) WEB-DLRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Кинолетопись Страны Советской
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы – то, что мы едим. Что вспоминает человек о своих детстве и юности, проведённых в стране, которой уже нет? "Докторскую" колбасу, салат "Оливье", плавленый сырок "Янтарь" и, конечно, самый вкусный в мире пломбир. Казалось, они были всегда – но это, конечно, не так… Авторы фильма приглашают в увлекательное путешествие в историю советской (   Читать дальше...   )Производство: Россия / ИП Виноградова Анна МихайловнаЖанр: документальныйРежиссер: Александр АндреевЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CC9A7B8B36F7974E92DE231AAB2910D646BA6B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653099   (206271) от 14.08.2023
-
-Сердца тьмы: Апокалипсис кинематографиста / Hearts of darkness: A filmmaker's apocalypse (1991) HDRip [H.264/1080p-LQ] [upscale AI] [PR]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм о съёмках шедевра Фрэнсиса Форда Копполы «Апокалипсис сегодня», о мучительном создании сценария, съёмке, подборе актёров, бюджета. Всё это чуть не разрушило жизнь и карьеру прославленного режиссера.Производство: США / Zaloom Mayfield Productions, American ZoetropeЖанр: документальный, кинематографРежиссер: Френсис Форд КопполаУчастники: Марлон Брандо, Мартин Шин, Роберт Дювалл, Фредерик Форрест, Сэм Боттомс, Лоренс Фишбёрн, Альберт Холл, Харрисон Форд, Деннис Хоппер, Г.Д. СпрэдлинПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: Русский, английскийСубтитры: Русские (Jaskier, Антон Тарасенко), английские (full, SDH)Продолжительность: 01:36:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05F297E27F28F60F31435814C0473943497F61D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582573   (206240) от 10.10.2022
-
-Сверхъестественное / Super/Natural (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206240.jpg" />
-</div>
-
-
-###  Подробнее
-
-Используя последние научные инновации и передовые технологии кинопроизводства, чтобы раскрыть тайные силы и сверхчувства самых необычных животных в мире, зрители сериала смогут увидеть и услышать за пределами обычного человеческого восприятия, чтобы испытать мир природы так, как это делает конкретный вид — от увидеть цветы пчелиным зрением, подслушать разговор морских (   Читать дальше...   )Производство: США, Earthship Productions, National Geographic, Plimsoll ProductionsЖанр: документальный, природа, флора, фаунаПеревод: одноголосый профессиональный (NewComers)Субтитры: русские (на надписи, полные), английскиеПродолжительность: серии по ~00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91755ADE2AFB5DA67A9B7BE54E4774F475B4A9FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582580   (206225) от 10.10.2022
-
-Сверхъестественное / Super/Natural (2022) WEB-DL [H.265/2160p] [4K, HDR, 10-bit] (сезон 1, серии 1-6 из 6)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Используя последние научные инновации и передовые технологии кинопроизводства, чтобы раскрыть тайные силы и сверхчувства самых необычных животных в мире, зрители сериала смогут увидеть и услышать за пределами обычного человеческого восприятия, чтобы испытать мир природы так, как это делает конкретный вид — от увидеть цветы пчелиным зрением, подслушать разговор морских (   Читать дальше...   )Производство: США, Earthship Productions, National Geographic, Plimsoll ProductionsЖанр: документальный, природа, флора, фаунаПеревод: одноголосый профессиональный (NewComers)Субтитры: русские (на надписи), русские, английскиеПродолжительность: серии по ~00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C293601CBE187C7B624E1B5514C79118C81FE1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653384   (206221) от 15.08.2023
-
-Эльдорадо: все, что нацисты ненавидят / Eldorado: Everything the Nazis Hate / Eldorado - Alles, was die Nazis hassen (2023) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206221.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом документальном фильме о свободах, утраченных во время прихода Гитлера к власти, рассказывается о ночном клубе в Берлине 1920-х годов, который стал убежищем для квир-сообщества.Производство: Германия, Film Base Berlin, Netflix Studios, The Thursday CompanyЖанр: документальный, историяРежиссер: Бенджамин Канту, Мэтт ЛамбертУчастники: Эрен Гюверчин, Эли Отто Каппо, Антонио ЛаллоПеревод: субтитры (Netflix)Язык озвучки: английскийСубтитры: русские, украинские, английские, английские (для слабослышащих)Продолжительность: 01:32:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:234F64B011B52CF4004087DA7B6BB53346D5EBD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653131   (206167) от 15.08.2023
-
-Величайшие в мире музеи живописи / Masterpieces of Painting in the World's Greatest Museums (2021) UHDTV [H.265/2160p] (серии 1-4 из ?)
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Величайшие в мире музеи живописиПроизводство: Франция, Blue Bird ProductionsЖанр: документальный, изобразительное искусствоРежиссер: Джин ЛемондПеревод: одноголосый профессиональный (SDI Media Москва)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:52:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE86C93BB2F06AD6168E4CC8F64B14D7869AABE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

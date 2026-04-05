@@ -1,3 +1,211 @@
+###  Публикация: 1640618   (196916) от 18.06.2023
+
+Тайлер Рейк: Операция по спасению 2 / Extraction 2 (2023) WEB-DLRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чудом избежав смерти от ранений, полученных в Бангладеш, Тайлер Рейк возвращается, чтобы вместе со своей командой отправиться на новое задание в Грузию.Производство: США / Filmhaus Films, Netflix, Russo Brothers, Stillking Films, T.G.I.M Films, Wild StateЖанр: боевик, криминалРежиссер: Сэм ХаргрейвАктеры: Крис Хемсворт, Голшифте Фарахани, Адам Бесса, Торнике Гогричиани, Demetre Kavelashvili, Торнике Бзиава, Giga Shavadze, Тинатин Далакишвили, Andro Japaridze, Mariami KovziashviliПеревод: многоголосый профессиональный (HDRezka Studio, NewComers)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английские (forced, full)Продолжительность: 02:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76748C5A3D166FB897BACDE689C0CC0CD198F0DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640347   (196896) от 17.06.2023
+
+Моя вина / Culpa mia / My Fault (2023) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ноа вынуждена оставить свой город, парня и друзей и переехать в особняк нового богатого мужа своей матери. Там она встречает Ника, своего нового сводного брата. Втайне они безумно влюбляются друг в друга.Производство: Испания / Amazon Studios, Pokeepsie FilmsЖанр: драмаРежиссер: Доминго ГонсалесАктеры: Фран Беренгер, Noah Casas, Gabriel Guevara, Марта Асас, Иван Массаге, Jose Palacios, Pablo Riguero, Eva Ruiz, Anastasia Russo, Ив РайанПеревод: Многоголосый профессиональный (HDRezka Studio)Язык озвучки: Русский, ИспанскийСубтитры: Русские (forced, full), английскиеПродолжительность: 01:57:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CC176253AA4EFBAF2D7B8DF8083717F8A629942
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640350   (196890) от 17.06.2023
+
+Кто пригласил Чарли? / Who Invited Charlie? (2022) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фил Шрайбер, управляющий хедж-фондом, в начале пандемии сбегает со своей женой и сыном в Хэмптонс. И без того напряжённую ситуацию усугубляет неожиданное прибытие Чарли, соседа Фила по комнате в колледже. Чарли слишком много знает о Филе. И эти тайны могут принести больше вреда, чем вирус…Производство: США, Blind Bulldog Films, Perry Street FilmsЖанр: КомедияРежиссер: Ксавьер Манрике / Xavier ManriqueАктеры: Джордана Брюстер, Рейд Скотт, Адам Палли, Риз Койро, Зоша Рокемор, Дилан Пенн, Питер Гроц, Адам Брэмсон, Питер Дагер, Джейсон ДубинПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, АнглийскийСубтитры: Английские (full, SDH)Продолжительность: 01:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD93339166CC725F0332A86B6EE934AEF04B0ED9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640547   (196862) от 18.06.2023
+
+Тайлер Рейк: Операция по спасению 2 / Extraction 2 (2023) WEB-DL [H.264/720p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чудом избежав смерти от ранений, полученных в Бангладеш, Тайлер Рейк возвращается, чтобы вместе со своей командой отправиться на новое задание в Грузию.Производство: США / Filmhaus Films, Netflix, Russo Brothers, Stillking Films, T.G.I.M Films, Wild StateЖанр: боевик, криминалРежиссер: Сэм ХаргрейвАктеры: Крис Хемсворт, Голшифте Фарахани, Адам Бесса, Торнике Гогричиани, Demetre Kavelashvili, Торнике Бзиава, Giga Shavadze, Тинатин Далакишвили, Andro Japaridze, Mariami KovziashviliПеревод: многоголосый профессиональный (Jaskier, HDRezka Studio, NewComers)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английские (forced, full, SDH)Продолжительность: 02:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61690D8F5D7EA319E8131AB7B10532D62DB926FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640647   (196853) от 18.06.2023
+
+Моё преступление / Mon crime / The Crime Is Mine (2023) WEB-DL [H.264/720p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196853.jpg" />
+</div>
+
+
+###  Подробнее
+
+Париж, 1930-е годы. Мадлен Вердье — молодая, красивая, но не слишком талантливая актриса на мели — обвиняется в убийстве известного продюсера. Суд оправдывает её благодаря подруге-адвокату Полин, и Мадлен ждёт новая жизнь в лучах славы и успеха. Пока всё тайное не становится явным.Производство: Франция, Mandarin Cinéma, FOZ, Gaumont, Canal+, Arte Cofinova 19, France 2 CinémaЖанр: комедия, драма, криминал, детективРежиссер: Франсуа ОзонАктеры: Надя Терешкевич, Ребекка Мардер, Изабель Юппер, Фабрис Лукини, Дэни Бун, Андре Дюссолье, Эдуар Сюльпис, Режис Лапале, Оливье Брош, Феликс ЛефеврПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: русский, французскийСубтитры: английские, францзскиеПродолжительность: 01:42:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE9B001F7209181B4490D13D9F378AAFDDAF6DBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640659   (196849) от 18.06.2023
+
+Тайлер Рейк: Операция по спасению 2 / Extraction 2 (2023) WEB-DL [H.265/1080p] [10-bit] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чудом избежав смерти от ранений, полученных в Бангладеш, Тайлер Рейк возвращается, чтобы вместе со своей командой отправиться на новое задание в Грузию.Производство: Чехия, Австрия, Австралия, США, AGBO, Filmhaus Films, NetflixЖанр: боевик, криминалРежиссер: Сэм ХаргрейвАктеры: Крис Хемсворт, Голшифте Фарахани, Адам Бесса, Тинатин Далакишвили, Торнике Гогричиани, Иракли Квирикадзе, Дато Бахтадзе, Дэниэл Бернхард, Ольга Куриленко, Идрис ЭльбаПеревод: Многоголосый профессиональный (HDRezka Studio, Jaskier, NewComers)Язык озвучки: русский, английскийСубтитры: русские, английские (forced, full, SDH), немецкие, французскиеПродолжительность: 02:03:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29E49EAE6F0FDE5901056BF5821577535F914EE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640487   (196839) от 18.06.2023
+
+Моё преступление / Mon crime / The Crime Is Mine (2023) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Париж, 1930-е годы. Мадлен Вердье — молодая, красивая, но не слишком талантливая актриса на мели — обвиняется в убийстве известного продюсера. Суд оправдывает её благодаря подруге-адвокату Полин, и Мадлен ждёт новая жизнь в лучах славы и успеха. Пока всё тайное не становится явным.Производство: Франция, Mandarin Cinéma, FOZ, Gaumont, Canal+, Arte Cofinova 19, France 2 CinémaЖанр: комедия, драма, криминал, детективРежиссер: Франсуа ОзонАктеры: Надя Терешкевич, Ребекка Мардер, Изабель Юппер, Фабрис Лукини, Дэни Бун, Андре Дюссолье, Эдуар Сюльпис, Режис Лапале, Оливье Брош, Феликс ЛефеврПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: русский, французскийСубтитры: английскиеПродолжительность: 01:42:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBF87900C53FCB7CA71EDDFE3B61389CFE4FEAEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640543   (196837) от 18.06.2023
+
+Тайлер Рейк: Операция по спасению 2 / Extraction 2 (2023) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196837.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чудом избежав смерти от ранений, полученных в Бангладеш, Тайлер Рейк возвращается, чтобы вместе со своей командой отправиться на новое задание в Грузию.Производство: США / Filmhaus Films, Netflix, Russo Brothers, Stillking Films, T.G.I.M Films, Wild StateЖанр: боевик, криминалРежиссер: Сэм ХаргрейвАктеры: Крис Хемсворт, Голшифте Фарахани, Адам Бесса, Торнике Гогричиани, Demetre Kavelashvili, Торнике Бзиава, Giga Shavadze, Тинатин Далакишвили, Andro Japaridze, Mariami KovziashviliПеревод: многоголосый профессиональный (Jaskier, HDRezka Studio, NewComers)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английские (forced, full)Продолжительность: 02:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC36C5B865A7E896845640382B3AC03DA77F3691
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641084   (196830) от 20.06.2023
 
 Восстание зловещих мертвецов / Evil Dead Rise (2023) BDRemux [H.264/1080p]
@@ -6,7 +214,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196830.jpg" />
 </div>
 
 
@@ -32,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196812.jpg" />
 </div>
 
 
@@ -59,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196799.jpg" />
 </div>
 
 
@@ -85,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196798.jpg" />
 </div>
 
 
@@ -111,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196796.jpg" />
 </div>
 
 
@@ -137,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196779.jpg" />
 </div>
 
 
@@ -163,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196777.jpg" />
 </div>
 
 
@@ -189,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196776.jpg" />
 </div>
 
 
@@ -215,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196771.jpg" />
 </div>
 
 
@@ -241,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196751.jpg" />
 </div>
 
 
@@ -267,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196735.jpg" />
 </div>
 
 
@@ -293,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196734.jpg" />
 </div>
 
 
@@ -319,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196727.jpg" />
 </div>
 
 
@@ -345,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196712.jpg" />
 </div>
 
 
@@ -371,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196700.jpg" />
 </div>
 
 
@@ -397,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196695.jpg" />
 </div>
 
 
@@ -423,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196694.jpg" />
 </div>
 
 
@@ -449,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196690.jpg" />
 </div>
 
 
@@ -460,214 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:213E5099D0842D7EB27558A3BA21F85186E7A8B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641332   (196685) от 22.06.2023
-
-Переводчик / The Covenant (2022) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Афганистан, март 2018 года. Во время спецоперации по поиску оружия талибов отряд сержанта армии США Джона Кинли попадает в засаду. В живых остаются только сам Джон, получивший ранение, и местный переводчик Ахмед, который сотрудничает с американцами. Очнувшись на родине, Кинли не помнит, как ему удалось выжить, но понимает, что именно Ахмед спас ему жизнь, протащив (   Читать дальше...   )Производство: Великобритания, Испания, США / Fresco Film Services, STX Films, Toff Guy FilmsЖанр: боевик, триллер, военный, история, драмаРежиссер: Гай РичиАктеры: Джейк Джилленхол, Дар Салим, Шон Сагар, Джейсон Вонг, Риз Йэтс, Кристиан Очоа, Бобби Шофилд, Эмили Бичем, Джонни Ли Миллер, Александр ЛюдвигПеревод: Дублированный, профессиональный многоголосый, профессиональный двухголосый, авторскийЯзык озвучки: русский, украинский, казахский, узбекский, английскийСубтитры: русские (2x forced, 2x full, SDH), украинские (forced), английские (full, SDH), казахские, азербайджанскиеПродолжительность: 02:03:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2777688312631AC663E6B8CD839E53C36177DFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641344   (196684) от 22.06.2023
-
-Переводчик / The Covenant (2022) WEB-DL [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Афганистан, март 2018 года. Во время спецоперации по поиску оружия талибов отряд сержанта армии США Джона Кинли попадает в засаду. В живых остаются только сам Джон, получивший ранение, и местный переводчик Ахмед, который сотрудничает с американцами. Очнувшись на родине, Кинли не помнит, как ему удалось выжить, но понимает, что именно Ахмед спас ему жизнь, протащив (   Читать дальше...   )Производство: Великобритания, Испания, США / Fresco Film Services, STX Films, Toff Guy FilmsЖанр: боевик, триллер, военный, история, драмаРежиссер: Гай РичиАктеры: Джейк Джилленхол, Дар Салим, Шон Сагар, Джейсон Вонг, Риз Йэтс, Кристиан Очоа, Бобби Шофилд, Эмили Бичем, Джонни Ли Миллер, Александр ЛюдвигПеревод: Дублированный, профессиональный многоголосый, профессиональный двухголосый, авторскийЯзык озвучки: русский, английскийСубтитры: русские (forced, full), английские (forced, full, SDH)Продолжительность: 02:03:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A3AFDECFA30C593EE2F22B8C93C6FBB4B786B9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641387   (196682) от 22.06.2023
-
-Восстание зловещих мертвецов / Evil Dead Rise (2023) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время встречи двух сестёр появляются зловещие демоны, и теперь, чтобы остаться на этом свете, девушкам придётся очень сильно постараться.Производство: Новая Зеландия, США, Ирландия / Department of Post, Ghost House Pictures, New Line Cinema, Warner Bros., Wild Atlantic PicturesЖанр: ужасыРежиссер: Ли КронинАктеры: Лили Салливан, Алисса Сазерленд, Габриэль Экхолс, Морган Дейвис, Нелл Фишер, Ной Пол, Марк Митчинсон, Мирабай Пиз, Ричард Краучли, Анна-Мари ТомасПеревод: Дублированный (Bravo Records Georgia / Movie Dubbing, Red Head Sound), многоголосый профессиональный (TVShows, HDRezka Studio), авторский (Д. Есарев)Язык озвучки: русский, английскийСубтитры: русские (Forced, Full), украинские, английские (full, SDH)Продолжительность: 01:36:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E561EFABFA2BEC44E25B05A6707033ECF0F33763
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641424   (196673) от 22.06.2023
-
-Стук в хижине / Стук в дверь / Knock at the Cabin (2023) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Счастливая пара с семилетней дочерью отдыхает в лесном коттедже у озера. Внезапно у них на пороге возникают четыре незнакомца, вооруженных диковинными орудиями, и ставят отдыхающим ультиматум: либо те выбирают и убивают кого-то из собственной семьи, либо наступает апокалипсис, и остальное человечество погибает в адских муках.Производство: США / Universal Pictures, Blinding Edge Pictures, FilmNation EntertainmentЖанр: триллерРежиссер: М. Найт ШьямаланАктеры: Дэйв Батиста, Джонатан Грофф, Бен Элдридж, Никки Амука-Бёрд, Руперт Гринт, Эбби Куинн, Кристен Цуй, МакКенна Керриган, Йен Мэрилл Пикс, Denise NakanoПеревод: Дублированный (Лицензия), Профессиональный многоголосый (Jaskier, TVShows)Язык озвучки: Русский, АнглийскийСубтитры: русские (Forced, Full), украинские, английские (full, SDH)Продолжительность: 01:40:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95FEE5A51EF935F00D1758522F68D4E4DA00F62A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641431   (196653) от 22.06.2023
-
-Стук в хижине / Стук в дверь / Knock at the Cabin (2023) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Счастливая пара с семилетней дочерью отдыхает в лесном коттедже у озера. Внезапно у них на пороге возникают четыре незнакомца, вооруженных диковинными орудиями, и ставят отдыхающим ультиматум: либо те выбирают и убивают кого-то из собственной семьи, либо наступает апокалипсис, и остальное человечество погибает в адских муках.Производство: США / Universal Pictures, Blinding Edge Pictures, FilmNation EntertainmentЖанр: триллерРежиссер: М. Найт ШьямаланАктеры: Дэйв Батиста, Джонатан Грофф, Бен Элдридж, Никки Амука-Бёрд, Руперт Гринт, Эбби Куинн, Кристен Цуй, МакКенна Керриган, Йен Мэрилл Пикс, Denise NakanoПеревод: Дублированный (Лицензия), Профессиональный многоголосый (Jaskier, TVShows)Язык озвучки: Русский, АнглийскийСубтитры: русские (Forced, Full), украинские, английские (full, SDH)Продолжительность: 01:40:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7E68791396D941128CD86F462D1BF30DAC15C77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641854   (196652) от 24.06.2023
-
-Газонокосильщик / The Lawnmower Man (1992) BDRip [H.265/1080p] [10-bit] [Director's Cut]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196652.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой талантливый учёный Трэйс ставит над умственно неполноценным косильщиком лужаек Джоубом эксперименты с использованием высоких компьютерных технологий в комбинации с наркотиками. Трэйс внедряет Джоуба в виртуальную реальность - трёхмерный компьютерный мир. Учёному удаётся развить умственные способности вчерашнего недоумка до супергения. Но в ход эксперимента (   Читать дальше...   )Производство: Великобритания, Япония / Allied Vision Ltd., Fuji Eight Company Ltd., Lane Pringle ProductionsЖанр: ужасы, фантастикаРежиссер: Бретт ЛеонардАктеры: Джефф Фэйи, Пирс Броснан, Дженни Райт, Марк Бринглсон, Джеффри Льюис, Джереми Слейт, Дин Норрис, Коллин Коффи, Джим Лэндис, Трой ЭвансПеревод: двухголосый профессиональный, авторскийЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:20:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:657FB391A68361DD9D895FF7ACB1471F92A70490
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641330   (196645) от 22.06.2023
-
-Койот / Coyote (2023) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196645.jpg" />
-</div>
-
-
-###  Подробнее
-
-История запретной любви в антиутопическом будущем, где технология телепортации позволяет двум беженцам избежать геноцида. Когда они доверяют не тому телепорту из глухих переулков, Екатерина и Аня расходятся. В отчаянной попытке воссоединиться наши героини вплетаются в коварную сеть торговли людьми, в которую вовлечены коррумпированные политики.Производство: Великобритания, Addy Films, Streetcat Productions, Unsolicited MaterialsЖанр: фантастикаРежиссер: Dustin Curtis MurphyАктеры: Терика Уилсон-Рид, Борислава Стратиева, Эйлиш Саймонс, Ruhtxjiaïh Bèllènéa, Chris Kyriacou, Берудже Кхан, Ричард Гловер, Tian Chaudhry, Sonia Amini, Джулиан ФериаПеревод: Многоголосый профессиональный (HDRezka Studio)Язык озвучки: русский, английскийСубтитры: русские (forced), английские (forced, full, SDH)Продолжительность: 01:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF802B83E0325C5BEC3D2077F3A10F20A8861B3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641713   (196636) от 23.06.2023
-
-Машина / The Machine (2023) WEB-DL [H.264/720p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196636.jpg" />
-</div>
-
-
-###  Подробнее
-
-В жизни Берта наступает черная полоса, когда его и его отца похищают люди, которых он обидел 20 лет назад будучи абсолютно пьяным во время своего непродолжительного обучения в России.Производство: США, Balkanic Media, Shaken Not StirredЖанр: боевик, комедияРежиссер: Питер АтенсиоАктеры: Берт Крайшер, Марк Хэмилл, Джимми Татро, Айва Бабич, Роберт Мазер, Стефани Курцуба, Мартин Форд, Джесс Габор, Rita Bernard-Shaw, Никола ДжуричкоПеревод: Многоголосый профессиональный (HDRezka Studio)Язык озвучки: русский, английскийСубтитры: русские (forced), английские (forced, full, SDH)Продолжительность: 01:52:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C7F659F7A3FD86AA2DB24261ACBD8173CCADEA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

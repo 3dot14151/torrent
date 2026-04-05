@@ -1,3 +1,30 @@
+###  Публикация: 1503350   (821339) от 18.10.2021
+
+Виктория Ледерман | Василькин Д. Седьмой отряд (2021) [MP3, Андрей Святсков]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Виктория Ледерман – популярная детская писательница, автор нескольких бестселлеров, лауреат различных литературных премий.
+В представляемой в аудиформате книге продолжаются приключения ученика третьего класса Димы Василькина. На сей раз Дима отправляется на каникулы в летний лагерь, причём впервые. Особую радость юному герою доставляет то, что с ним в лагере будет (   Читать дальше...   )Жанр: Детская литература/ПриключенияПродолжительность: 02:58:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36F3B10FB96253C1470BA1B3BAF40E974FED5182
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116744   (821046) от 21.03.2017
 
 Чингиз Айтматов | Верблюжий глаз (1963) [MP3]
@@ -6,7 +33,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821046.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817525.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ VA - Uinutav beebimuusika (2001) [MP3|320 kbps]<Убаюкивающие мел�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817413.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ VA - Лучшие песни для детей - Приходи сказка (20
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817094.jpg" />
 </div>
 
 
@@ -116,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815754.jpg" />
 </div>
 
 
@@ -142,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815604.jpg" />
 </div>
 
 
@@ -168,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815589.jpg" />
 </div>
 
 
@@ -194,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813667.jpg" />
 </div>
 
 
@@ -222,7 +249,7 @@ VA - Baby's First Classics II (2007) [MP3|~175 кб/с (V3)]<Классика д
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_812970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_812970.jpg" />
 </div>
 
 
@@ -251,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812372.jpg" />
 </div>
 
 
@@ -279,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812363.jpg" />
 </div>
 
 
@@ -305,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812221.jpg" />
 </div>
 
 
@@ -332,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808432.jpg" />
 </div>
 
 
@@ -359,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808430.jpg" />
 </div>
 
 
@@ -385,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808337.jpg" />
 </div>
 
 
@@ -411,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807971.jpg" />
 </div>
 
 
@@ -437,7 +464,7 @@ VA - Детские мелодии без слов. (часть 2) (2009) [MP3|1
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807122.jpg" />
 </div>
 
 
@@ -466,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805256.jpg" />
 </div>
 
 
@@ -492,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803473.jpg" />
 </div>
 
 
@@ -519,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802715.jpg" />
 </div>
 
 
@@ -545,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802337.jpg" />
 </div>
 
 
@@ -571,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802323.jpg" />
 </div>
 
 
@@ -597,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800514.jpg" />
 </div>
 
 
@@ -623,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800190.jpg" />
 </div>
 
 
@@ -649,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800183.jpg" />
 </div>
 
 
@@ -661,33 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:635C173FA12BCB787496188571DAA4AF07822A44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506511   (800175) от 31.10.2021
-
-Хельга Воджик | Территория F. Монстры под лестницей (2021) [MP3, Дмитрий Рыбин]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повесть «Монстры под лестницей» была написана Хельгой Воджик для литературного конкурса детской и подростковой фантастики «Территория F» и принесла автору победу.
-Герою книги Максу неполных одиннадцать, но он умён не по годам. Однако жизнь складывается не лучшим образом. У мальчика нет отца: тот однажды загадочно исчез, не оставив следов. Почти нет у Макса и друзей, (   Читать дальше...   )Жанр: Детская литература/Фантастика/ПриключенияПродолжительность: 05:41:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C012DF4BD1BC47787DB0F5F789CA3C963A2B9EEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

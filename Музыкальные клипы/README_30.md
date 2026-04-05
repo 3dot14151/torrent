@@ -6,7 +6,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307911.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Lindsey Stirling - Song of the Caged Bird (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307902.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ The Best of...(vol.3) (2011) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307582.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Slim - Шлягер (2012) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305745.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ VA - Осенний марафон № 208: Хиты с доставкой на 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300795.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296941.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296750.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ VA - Official UK Top 40 Video Chart (27-11-2015) WEB-DL [1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296560.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295119.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Flo Rida - Collection Video Clip ( 2010 - 2015) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294715.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ VA - Зимний марафон № 209: Дискотека с доставко
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294585.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294480.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Rihanna feat. Jay-Z - Umbrella (2007) 540p HDTV
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293122.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292872.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Pitbull - (Collection Video Clip) (2011 - 2015) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292758.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Ageless rock (2015) WEBRip [H.264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292639.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ David Guetta feat. Rihanna - Who's That Chick (2010) 540p HDTV
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291230.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285646.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285488.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ VA - Зимний марафон № 211: Коктейль Хитовых Нов
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285130.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282289.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282171.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282030.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278470.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278171.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Thunder - Flawed to Perfection: the Video Collection 1990-1995 (2005) DVD9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277070.jpg" />
 </div>
 
 

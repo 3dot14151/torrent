@@ -1,3 +1,56 @@
+###  Публикация: 932101   (510270) от 28.08.2015
+
+Юрий Сотник | На школьном дворе. Приключение не удалось (1986) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510270.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книгу входит новая повесть «На школьном дворе» и ранее издававшаяся «Приключение не удалось».
+В новой.повести рассказывается о жизни школьников в небольшом сибирском городке, о директоре школы, человеке разностороннем, влюбленном в свое дело, который не только учит, но и воспитывает детей, увлекая их общественно-полезными делами. Эта повесть о любви учеников к (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16DE38D81CFDD73B693F1D3C453622ED411237B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932066   (510264) от 28.08.2015
+
+Ганс Андерсен | Свинопас (1922) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычно в описании книги Г. Х. Андерсена «Свинопас», иллюстрированной М. В. Добужинским, указывают годы издания 1921 — 1922, так как известны три варианта этого издания, трудно различимые даже для специалистов. В процессе работы художник демонстрирует своё мастерство иллюстратора, создавая целостный образ книги. Она мыслится как органичное сочетание всех графических (   Читать дальше...   )Жанр: Детская иллюстрированная книга XX века, сказкаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:977D4CFA6C96E45CE1BFEF641859EB5F9896C313
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932043   (510263) от 28.08.2015
 
 М.Ю. Лермонтов | Спор (1913) [DJVU]
@@ -6,7 +59,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510263.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510200.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510189.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510187.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510111.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510108.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510101.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510096.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510049.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509947.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509605.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509601.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509598.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509593.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509502.jpg" />
 </div>
 
 
@@ -402,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509471.jpg" />
 </div>
 
 
@@ -428,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509465.jpg" />
 </div>
 
 
@@ -454,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509460.jpg" />
 </div>
 
 
@@ -481,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509395.jpg" />
 </div>
 
 
@@ -508,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509360.jpg" />
 </div>
 
 
@@ -534,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509314.jpg" />
 </div>
 
 
@@ -560,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509280.jpg" />
 </div>
 
 
@@ -586,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509274.jpg" />
 </div>
 
 
@@ -612,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509240.jpg" />
 </div>
 
 
@@ -623,59 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AD3F2F0CE06C82E5E206E7F73009D15BAE0E94F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 377204   (509232) от 18.08.2011
-
-И.Н. Приходкин | Полицейские машины. Раскраска (2009) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Рабочие тетради, прописи и разукрашки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509232.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раскраска «Полицейские машины» - это раскраска для мальчиков. Каждого мальчишку завораживает и притягивает такая машина. Каждый играл хотя бы раз в жизни в полицейских и бандитов, представляя себя в роли отважных блюстителей порядка. Распечатайте раскраски «Полицейские машины». Пусть ваш малыш  их разукрасит по примеру машин страж порядка России,  США, Италии, Франции, (   Читать дальше...   )Жанр: РаскраскаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C23E6AD2EE7EF8399F52E7198E434C0BC361541
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 376886   (509228) от 18.08.2011
-
-«Росмэн-Пресс» | Раскраски-прописи (2006) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Рабочие тетради, прописи и разукрашки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Расрашивание картинок - любимое занятие вашего малыша? С книгами серии "Раскраски плюс!" ребенок не только почувствует себя настоящим художником, но и получит большое удовольствие от самостоятельной работы.
-Раскраски и узоры, загадки и кроссворды, прописи и игры - каждый малыш найдет для себя что-то интересное. С "Раскрасками плюс!" вашему малышу (   Читать дальше...   )Жанр: Раскраска, прописиФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB30FE4E815851899EB9051A3B9D068903E78919
 ```
 
 https://mybot314.ru/tekegram_catalog/

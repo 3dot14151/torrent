@@ -6,7 +6,7 @@ Europa Plus Live - Европа плюс (2013) DVBRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_630135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_630135.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Doro - Strong and Proud - 30 Years of Rock and Metal (2016) 2хDVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630053.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629995.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629931.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629883.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629620.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629352.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629229.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Chicane - Saltwater (2000) WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628610.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ David Vendetta Vs Keith Thomspon - Break 4 Love (2007) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628542.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ David Vendetta - Love To Love You Baby (2007) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628538.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Shakespear's Sister - Best Of (2004) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628512.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628296.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627956.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ TV Rock ft Rudy - 'In The Air' (Axwell Remix) (2010) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626553.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Benny Benassi Feat. Kelis, Apl.De.Ap, & Jean-Baptiste - Spaceship (2010) HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626153.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ William Orbit - Barber's Adagio For Strings (Ferry Corsten Remix) (2000) HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626007.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Slash Featuring Myles Kennedy and The Conspirators - Live At The Roxy  (2014) BD
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625682.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Slipknot - Rock am Ring (2015) HDTVRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625426.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_624971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_624971.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624673.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Steve Angello & Laidback Luke Ft Robin S - Show me Love (2009) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624633.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624491.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624409.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624405.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Swedish House Mafia - Miami 2 Ibiza ft. Tinie Tempah (2010) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624359.jpg" />
 </div>
 
 

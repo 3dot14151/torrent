@@ -1,134 +1,3 @@
-###  Публикация: 1500003   (844175) от 04.10.2021
-
-А.М. Сажнев | Микропроцессорные системы. Цифровые устройства и микропроцессоры (2021) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Содержатся сведения о логических и арифметических основах цифровых устройств. Рассматриваются начала синтеза комбинационных и последовательностных логических схем. Приведена схемотехника отдельных узлов, на основе которых базируются современные вычислители, микропроцессоры и микроконтроллеры, применяемые в устройствах автоматики и радиоаппаратуре. Даны сведения о (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:315CE76A05ED67A69FABF3C94399E8FBC5ECA08C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500095   (844166) от 04.10.2021
-
-В.В. Штыков | Введение в радиоэлектронику. Учебник и практикум (2021) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844166.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебнике изложены современные представления о радиоэлектронике как средстве передачи, приема, обработки и хранения информации. Описаны исторические этапы развития информационных технологий в их неразрывном единстве с развитием средств связи. Формируются начальные представления о сигналах и их математических моделях. Рассмотрены наиболее важные свойства гармонических (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B8F2B16402CB82E29DF59C6093436F50DD285C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 702506   (844049) от 04.10.2021
-
-Ю.А. Кузьмин | Российская императорская фамилия (1797-1917). Биобиблиографический справочник (2011) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Биобиблиографический справочник "Российская императорская фамилию" включает 226 статей о всех членах обширного царского семейства и об их родственном окружении, принадлежавшем к иностранным владетельным домам, морганатическим и побочным линиям, за период с 1797 по 1917 г. Персональные статьи содержат информацию о служебной и общественной деятельности персонажей, (   Читать дальше...   )Жанр: ИсторияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:147E0DD4A151BF2161CECD6C727C73BA519B8BC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500018   (844047) от 04.10.2021
-
-Ю.К. Розанов, М.Г. Лепанов | Силовая электроника. Учебник и практикум (2021) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844047.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебнике рассматриваются принципы действия и основные характеристики силовых электронных приборов, а также особенности применения пассивных элементов в силовых электронных устройствах. Описаны принципы регулирования и основные функциональные элементы систем управления устройствами силовой электроники.
-Представлены базовые схемы тиристорных преобразователей, автономных (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BCD61A6278BFA87C4652A642426D0E203875269
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003487   (843486) от 03.04.2016
-
-В. Д. Набоков | Временное правительство [воспоминания] (1924) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор, один из виднейших лидеров кадетской партии, бывший управляющим делами временного правительства в его первом составе, конечно, мог о многом порассказать существенное и интересное. Как всякий мемуарист, В. Д. Набоков субъективен, — дает себя знать и партийная страстность, — но все же он более места уделяет фактической стороне. Свою главную задачу — изобразить (   Читать дальше...   )Жанр: История, политологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D300ECA3FFEBE0538DE1B51DCA6B9EBA61E5B0F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003522   (843415) от 03.04.2016
 
 Синодальная типография | Русские самородки в жизнеописаниях и изображениях. Выпуск 2 (1910) [DJVU]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843415.jpg" />
 </div>
 
 
@@ -163,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843414.jpg" />
 </div>
 
 
@@ -189,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843322.jpg" />
 </div>
 
 
@@ -215,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843313.jpg" />
 </div>
 
 
@@ -241,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843205.jpg" />
 </div>
 
 
@@ -267,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843198.jpg" />
 </div>
 
 
@@ -293,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843129.jpg" />
 </div>
 
 
@@ -322,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843115.jpg" />
 </div>
 
 
@@ -348,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843112.jpg" />
 </div>
 
 
@@ -374,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843106.jpg" />
 </div>
 
 
@@ -400,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843101.jpg" />
 </div>
 
 
@@ -426,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843029.jpg" />
 </div>
 
 
@@ -452,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843010.jpg" />
 </div>
 
 
@@ -478,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842996.jpg" />
 </div>
 
 
@@ -504,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842994.jpg" />
 </div>
 
 
@@ -530,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842933.jpg" />
 </div>
 
 
@@ -556,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842903.jpg" />
 </div>
 
 
@@ -582,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842823.jpg" />
 </div>
 
 
@@ -610,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842805.jpg" />
 </div>
 
 
@@ -636,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842555.jpg" />
 </div>
 
 
@@ -662,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842489.jpg" />
 </div>
 
 
@@ -676,6 +545,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E7BACD357DEB22D8986D52164E48C607D2D164C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378960   (842384) от 27.04.2020
+
+Книжная серия | Эксклюзивное чтение на английском языке [15 книг] (2016-2019) [EPUB]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эксклюзивное чтение на английском языке – лучшие произведения любимых авторов! Среди авторов серии: Чарльз Диккенс, Оскар Уайльд, Джек Лондон, Уильям Теккерей и многие другие! - В каждой книге словарь со всеми словами из произведения. - Грамматические комментарии к сложным конструкциям. - Удобный формат, покоривший миллионы читателей.Жанр: Зарубежная классика, Зарубежная фантастика, Иностранные языкиФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CE21F84A7203A1AF10CCA8DA607C91D429A9C79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230057   (842342) от 05.10.2021
+
+И.Г. Песталоцци | Избранные педагогические произведения [3 тома] (1961-1965) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник избранных педагогических произведений И.Г. Песталоцци включает известные сочинения и ряд ранее не переводившихся на русский язык работ и писем, проливающих яркий свет на жизнь и педагогическое творчество педагога-демократа. Трехтомное издание не может, разумеется, претендовать на полноту. В нем будет дана лишь некоторая, весьма небольшая часть произведений, (   Читать дальше...   )Жанр: История, искусство, педагогикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B0A02AC18268DC7FABABA12477CAABCEE276936
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500295   (842341) от 05.10.2021
+
+В.А. Романюк | Основы радиосвязи (2021) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842341.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебнике изложены механизмы работы систем и устройств радиосвязи. Значительное внимание уделено радиоволнам — их генерированию, излучению, распространению в различных средах, линиях передачи и околоземном пространстве. Приведены основные характеристики и параметры антенн, передатчиков и приемников. Описаны процессы, происходящие в связных радиосистемах: генерирование (   Читать дальше...   )Жанр: РадиосвязьФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50F1435F8308CC8267E0FD52A5E91222288178D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003891   (841696) от 04.04.2016
+
+Пётр I (ред.) | Азбука гражданская (1710) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841696.jpg" />
+</div>
+
+
+###  Подробнее
+
+В релизе представленна знаменитая "Гражданская азбука" с исправлениями Петра I и его собственноручной записью на внутренней стороне верхней крышки переплета: «Сими литеры печатать исторические и манифактурныя книги. А которыя подчернены, техЖанр: АзбукаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4538DA5D2863759BC5F9BAE6AD115C21114A29E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112723   (841639) от 09.03.2017
+
+С. Марвич | Сухой закон в Америке (1929) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841639.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассказано об истории принятия "сухого закона" в США, антиалкогольном законодательстве в Америке, критически рассмотрены его социально-экономические последствия.Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0E17EECEA2C698C803D73F34CDFB41A6CCC1249
 ```
 
 https://mybot314.ru/tekegram_catalog/

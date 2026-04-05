@@ -6,7 +6,7 @@
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863632.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862911.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862712.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862709.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862582.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862534.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862163.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862159.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861452.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858358.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857051.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856340.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855451.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855336.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855334.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855136.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853711.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851495.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849817.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842866.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842795.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840937.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839908.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839758.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839424.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837920.jpg" />
 </div>
 
 

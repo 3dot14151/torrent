@@ -1,3 +1,107 @@
+###  Публикация: 1853933   (1056969) от 15.02.2026
+
+Photo Editor v12.6 Pro Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Editor - уникальная программа для обработки качественных фотографий. Настройка цвета, различные эффекты, поворот, обрезка, изменение размера, рамки, а также возможность рисовать прямо на фото. Настройка цвета включает в себя тон, насыщенность, контраст, яркость. Вдобавок Photo Editor предлагает множество эффектов для фотографий, включая гамма-коррекцию, автоконтраст, (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 15.02.2026Разработчик: dev.macgyverПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D41E9146DD425BBCAEA64765FF0D5EE73212F3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853938   (1056966) от 15.02.2026
+
+Listen Audiobook Player v5.4.2 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот проигрыватель предназначен для воспроизведения контента, предоставленного пользователем. Вы можете получить книги без DRM с таких сайтов, как https://librivox.org/, Overdrive (через вашу библиотеку), http://www.downpour.com/, http://www.loyalbooks.com/ или любого другого места, где можно найти аудио без DRM.Тип издания: ModРелиз состоялся: 14.02.2026Разработчик: acme-android.comПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9C8083C2EE115CA659E20072F0C6B8C0941FF8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853820   (1056965) от 16.02.2026
+
+Shelter v1.9.1  [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shelter - ПО с открытым исходным кодом, позволяющая использовать песочницу Android 7.0+ для изоляции приложений, которым вы не доверяете, а так же для клонирования устанавки и замораживания приложений.Тип издания: FreeПоддерживаемая ОС: Android 7+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14A260D078AE37D891102B33CCC77B04520D8812
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853462   (1056845) от 13.02.2026
+
+CCleaner Pro 26.02.0 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056845.jpg" />
+</div>
+
+
+###  Подробнее
+
+CCleaner - один из самых известных и популярных инструментов для очистки пространства мобильного устройства. С его помощью можно удалять ненужные файлы, освобождать место, анализировать состояние системы и с высокой степенью безопасности находиться в интернете, а так же многие другое. С данной программой пользователи получат практически полный контроль над гаджетом (   Читать дальше...   )Тип издания: ProРелиз состоялся: 12.02.2026Разработчик: PiriformПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0C3B1A5B959B4C6952AE58A288971AAC2AD8866
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1853539   (1056842) от 13.02.2026
 
 Справочник рыбака v1.2.8 Mod vadj [Ru/En]
@@ -6,7 +110,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056842.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056841.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Screen Mirroring - TV Miracast v4.0.0.230 Mod by vadj [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056834.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Grok - ИИ ассистент v1.1.20-release.19 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056833.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ TV+ HD v1.2.5 Mod by ajrys [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056820.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Moon+ Reader Pro v10.4 (b1004000) Mod by Lucky Las [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056625.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Moon+ Reader Pro v10.4 (b1004000) Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056624.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Business Calendar / Бизнес-календарь 2 - планер 2.53.7 Mod 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056615.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056594.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Vanced Tube v5.5.80.396 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056593.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Rosetta Stone: Изучение языков 8.35.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056570.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056430.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056429.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ Garmin: Дороги России Топо 6.50 [Ru]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056428.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056427.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056421.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056420.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ Bria Mobile: VoIP Softphone v6.22.2 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056419.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ FacePic - AI Face App v3.5.1 Pro Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056418.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ Battery Guru: Monitor & Health v2.4.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056417.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ PictureThis - Plant Identification v5.20.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056048.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056047.jpg" />
 </div>
 
 
@@ -568,110 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEF2F480DAD33D3F994BC82AF02FD76C77BC4329
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852425   (1056033) от 07.02.2026
-
-Mary’s recipes: рецепты, меню v7.2.0 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Более 900 полезных и вкусных рецептов, план питания и список покупок в одном приложении. Быстрые и простые рецепты на каждый день. Готовое блюдо на завтрак, обед или ужин всего за 25 минут! Приложение Mary’s Recipes разработано нутрициологом и экспертом по детскому питанию Марией Кардаковой. Все рецепты тщательно подбираются и корректируются, чтобы ваша семья питалась (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 06.02.2026Разработчик: Mary's RecipesПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A7FD8D9AF9CE8061BE84D1F4B92088B807DAFF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852424   (1056032) от 07.02.2026
-
-MiX Camera 9.2 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056032.jpg" />
-</div>
-
-
-###  Подробнее
-
-MiX Camera вдохновлена ​​камерой Mi, но добавляет множество полезных функций🔥, таких как улучшение внешности, коллажи, фильтры, размытие, спираль, удаление фона, фото для удостоверения личности и т.д. С MiX Camera вы получите множество фантастических функций камеры, которые есть в камере Mi, а также множество новых и крутых функций💖.Тип издания: ProРелиз состоялся: 05.02.2026Разработчик: Beauty Apps StudioПоддерживаемая ОС: Android 5.0+Язык интерфейса: Руский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B883E2237DA23CE435E5A3D5215DC9319E0664D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852432   (1056025) от 07.02.2026
-
-Eatr・Здоровые рецепты v2.49.0 Mod by vadj [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056025.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в Eatr – идеальный помощник для всех, от новичков на кухне до опытных шеф-поваров! Наше приложение с искусственным интеллектом создано, чтобы провести вас через кулинарное приключение, подобранное специально для вас. Неважно, ограничены ли вы во времени или хотите неспешно насладиться готовкой, Eatr поможет вам.Тип издания: ModРелиз состоялся: 07.02.2026Разработчик: Eatr - MealPlansПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32FFB991B536225AF7569C528CF09C395BD9197A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852442   (1056013) от 07.02.2026
-
-Audio Editor Pro / Аудио редактор: обрезка музыки v2.01.44.0201 Mod by Mixroot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056013.jpg" />
-</div>
-
-
-###  Подробнее
-
-Среди множества голосовых редакторов и музыкальных монтажеров 🔥 Audio Editor Pro - Free Music Editor, Sound Editor 🔥 - это редактор песен и приложение для монтажа музыки! Это звуковой редактор, который может помочь вам редактировать музыку или создавать песни. Вы можете использовать его как приложение для создания песен и голосового редактора, а так (   Читать дальше...   )Тип издания: ModРелиз состоялся: 06.02.2026Разработчик: Dairy App & Notes & Audio Editor & Voice RecorderПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03DB068F0E25C37F5C62380F5DC766231267E890
 ```
 
 https://mybot314.ru/tekegram_catalog/

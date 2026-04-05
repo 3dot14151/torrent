@@ -1,3 +1,81 @@
+###  Публикация: 1848330   (1052628) от 18.01.2026
+
+Однажды в Америке / Once Upon a Time in America (1983) UHD BDRip [H.265/1080p] [10-bit] [Extended Cut]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052628.jpg" />
+</div>
+
+
+###  Подробнее
+
+В бурные двадцатые годы, когда Америка веселилась под звуки джаза, и каждый бродяга мечтал стать миллионером, в трущобах Нью-Йорка встретились несколько отчаянных парней. Убирая с дороги конкурентов, безжалостно карая предателей и нагло проворачивая хитроумные аферы, они стали королями преступного мира золотой эры «сухого закона». Они поклялись отдать жизнь друг (   Читать дальше...   )Производство: Италия, США / Embassy International Pictures, Producers Sales Organization (PSO), Rafran Cinematografica, The Ladd Company, Warner Bros.Жанр: драма, криминалРежиссер: Серджио ЛеонеАктеры: Роберт Де Ниро, Джеймс Вудс, Элизабет Макговерн, Трит Уильямс, Тьюзди Уэлд, Берт Янг, Джо Пеши, Дэнни Айелло, Уильям Форсайт, Джеймс ХейденПеревод: профессиональный многоголосый (Jaskier, РТР, ТВЦ), профессиональный двухголосый (Lizard), авторский (Михаил Яроцкий, Юрий Сербин)Язык озвучки: русский, английскийСубтитры: русские, английские (full, SDH)Продолжительность: 04:10:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:337D0CC92BBA130949BEA63A458C81C98CC09F11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847721   (1052360) от 23.01.2026
+
+Между вчера и завтра / Zwischen gestern und morgen / Between Yesterday and Tomorrow (1947) BDRip [H.264/720p] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052360.jpg" />
+</div>
+
+
+###  Подробнее
+
+В послевоенной Германии группа бывших постояльцев возвращается в роскошный мюнхенский отель, где их преследуют воспоминания о прошлом, связанном с Нелли Дрейфус, еврейкой, погибшей в нацистскую эпоху.Производство: Германия / Bavaria Film, Neue Deutsche Filmgesellschaft (NDF)Жанр: драма, мелодрама, военныйРежиссер: Харальд БраунАктеры: Хильдегард Кнеф, Винни Маркус, Сибилла Шмиц, Вилли Биргель, Виктор де Кова, Виктор Штааль, Карста Лёкк, Адольф Гондрелл, Вальтер Киаулен, Эрих ПонтоПеревод: Авторский (Юрий Сербин)Язык озвучки: русский, немецкийСубтитры: английскиеПродолжительность: 01:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D691D6DC52261F374C3B3D3FFF51F6E206F94201
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847104   (1052140) от 13.01.2026
+
+Крокодил Данди 2 / Crocodile Dundee II (1988) WEB-DL [H.265/2160p] [4K, HDR10+, Dolby Vision Profile 8.1, 10-bit]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данди, охотник на крокодилов, сменил австралийский шалаш на американский пентхаус: спит в шелковой пижаме и пьет кофе из японского фарфора. Но шляпу с крокодильими зубами, кожаные штаны и огромный нож за поясом он себе оставил - на всякий случай. Хватит ли этого, чтобы спасти любимую от колумбийской мафии?..Производство: Австралия, США / Paramount Pictures, Rimfire FilmsЖанр: боевик, комедия, приключенияРежиссер: Джон КорнеллАктеры: Пол Хоган, Линда Козловски, Джон Майллон, Эрни Динго, Дональд Керр, Джерри Скилтон, Гас Мёркюрио, Джим Холт, Алек Уилсон, Мэгги БлинкоПеревод: Дублированный (к/с им. Горького), Многоголосый профессиональный (Селена Интернешнл, НТВ, СТС, ТВЦ), Авторский (Гаврилов, Живов, Дохалов, Кузнецов), Одноголосый любительский (Андрей-Ray-R7)Язык озвучки: русский, английскийСубтитры: русские, английские (Full, SDH)Продолжительность: 01:51:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44EAEEA3EC355550E1330C7B905D357E6D2070E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1847007   (1052139) от 21.01.2026
 
 Крокодил Данди / Crocodile Dundee (1986) WEB-DL [H.265/2160p] [4K, HDR10+, Dolby Vision Profile 8.1, 10-bit]
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052139.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051726.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051466.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051459.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050902.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050862.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050137.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049334.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048297.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047562.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045975.jpg" />
 </div>
 
 
@@ -296,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045642.jpg" />
 </div>
 
 
@@ -322,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045158.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044906.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044592.jpg" />
 </div>
 
 
@@ -401,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044515.jpg" />
 </div>
 
 
@@ -427,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044476.jpg" />
 </div>
 
 
@@ -453,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044435.jpg" />
 </div>
 
 
@@ -479,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044412.jpg" />
 </div>
 
 
@@ -505,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044384.jpg" />
 </div>
 
 
@@ -531,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044310.jpg" />
 </div>
 
 
@@ -557,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044291.jpg" />
 </div>
 
 
@@ -583,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044201.jpg" />
 </div>
 
 
@@ -594,85 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B36E638BF1DDBD0E4D60ED9939A569C3C1F220C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605286   (1043802) от 28.01.2023
-
-Паутина / The Cobweb (1955) WEB-DL [H.264/1080p] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация одноимённого романа Уильяма Гибсона.
-В американской психиатрической клинике три партии образуются вокруг одной проблемы, которая в любом другом месте могла бы показаться пустячной, однако здесь занимает умы всех обитателей: в читальном зале требуется заменить шторы. Доктор Мег Фаверсен Райнхарт предлагает поручить пациенту Стивену Холту, молодому художнику, (   Читать дальше...   )Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: ДрамаРежиссер: Винсент МиннеллиАктеры: Ричард Уидмарк, Лорен Бэколл, Шарль Буайе, Глория Грэм, Лиллиан Гиш, Джон Керр, Сьюзен Страсберг, Оскар Левант, Пол Стюарт, Джарма ЛьюисПеревод: Одноголосый любительский (В. Рутилов)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:03:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:446DBE8BDB24693227E5304E16C3AF7DA1D54A78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608849   (1043458) от 01.02.2023
-
-Молчание моря / Le silence de la mer (1949) BDRemux [H.264/1080p] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043458.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время немецкой оккупации в дом к старику-французу и его племяннице поселяют немецкого офицера. Они вынуждены жить с врагом под одной крышей. В бесконечных монологах о литературе, искусстве, судьбах Германии и Франции немец пытается оправдать себя и свою страну, но в ответ встречает лишь молчание...Производство: Франция, студия Melville ProductionsxЖанр: драма, мелодрама, военныйРежиссер: Жан-Пьер МельвильАктеры: Говард Вернон, Николь Стефани, Жан-Мари Робе, Ами Ааро, Жорж Патрикс, Дэни Садье, Макс Фромм, Макс Херманн, Руделла, Фриц ШмиделПеревод: Одноголосый любительский (mangeim)Язык озвучки: русский, французскийСубтитры: русские, английскиеПродолжительность: 01:26:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F1C7C1D9E4871CB4AB359115AD508D483AFC266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605538   (1043415) от 01.02.2023
-
-Последний магнат / The Last Tycoon (1976) WEB-DL [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация незаконченного романа о Голливуде Фрэнсиса Скотта Фицджералда, а именно, о вымышленном киномагнате Монро Старе, под которым легко угадывается Ирвинг Талберг, известный своей самоотверженностью в работе.Производство: США / Academy Pictures Corporation, Paramount PicturesЖанр: драма, мелодрамаРежиссер: Элиа КазанАктеры: Роберт Де Ниро, Тони Кёртис, Роберт Митчем, Жанна Моро, Джек Николсон, Дональд Плезенс, Рэй Милланд, Дэна Эндрюс, Ингрид Боултинг, Питер Штраусс, Тереза Расселл, Тайг Эндрюс и др.Перевод: Многоголосый профессиональный (НТВ+), профессиональный двухголосый (СВ-Дубль, Ульпаней Эльром), авторский (Леонид Володарский)Язык озвучки: русский, английскийСубтитры: английские (Full, SDH)Продолжительность: 02:03:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAB433AFA537C8171B3447D5ACA5100C7281AC15
 ```
 
 https://mybot314.ru/tekegram_catalog/

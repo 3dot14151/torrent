@@ -1,3 +1,61 @@
+###  Публикация: 1219422   (714026) от 14.04.2018
+
+VA - Miami South Beach Sessions (2018) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nina Lares – You And I (Tony Humphries Unreleased Guitar Mix) (8:29)
+02. Teflon Dons – Tomorrow People (Applejac’s Unreleased Unhooked Generation Remix) (feat. Gregory Porter) (7:38)
+03. Nina Lares – Uncover Me (AC’s Unreleased Afternoon Delight Remix) (7:23)
+04. David Harness – Feeling Mighty (feat. Ultra Nate) (5:20)(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:13:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D37119A278DE370563D5332DB8F990D1EACBD52C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219383   (713912) от 14.04.2018
+
+VA - Ibiza Deep House Sensations (2018) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daspa - Alone 5:07
+02. Djschluetex - Feel Them 4:13
+03. 246 - Prophets Of Science Fiction 4:28
+04. Chrizz Morisson - Never Give Up (Dub Mix) 4:06(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:18:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D86C8E57E9FE1E53BF388128251044665C90F21A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219491   (713911) от 14.04.2018
 
 Sergey Cheremisinov - Hibernation (2017) [MP3|320 Kbps] <Ambient, Neoclassical>
@@ -6,7 +64,7 @@ Sergey Cheremisinov - Hibernation (2017) [MP3|320 Kbps] <Ambient, Neoclassical>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713911.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ FM-84 - Atlas (2016) [MP3|320 кб/с] <Electronic, Synthwave, Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713420.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Kedr Livanskiy - Your Need (2019) [FLAC|Lossless|image + .cue] <House, Synth Pop
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713394.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Washed Out - Purple Noon (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL]  <Electronic, I
 >>Downtempo, Ambient (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713247.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Sandwalk Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713200.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ OSSIA - Devil’s Dance (2019) [FLAC|Lossless|Web-DL|tracks] <Experimental, Dron
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713163.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Armada Deep: Miami (2019) [MP3|320 Kbps] <House, Progressive House, Melodic
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713135.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Buddha Luxury Vol.3 (Esoteric World Music) (2019) [MP3|320 Kbps] <Downtempo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713126.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Trance Euphoria Vol.3 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713108.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Jaćek (Jacek) - Discography 2 Releases (2015) [FLAC|Lossless|WEB-DL]<Tribal, Ex
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713038.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Spacehawk - Space Opera (2022) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Spaced
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712927.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Jens Vydt (Herbstlaub, Die Nachtstunde) - Discography 15 Releases (2010-2016) [F
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712926.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Entheogenic - Animism (2020) [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo,
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712883.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Erotic Lounge Obsession Best of Sensual Chillout Love Making Music (2019) [
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712860.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_712439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_712439.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ Klangstabil - Collection 10 Releases (1995-2015) Ant-Zen, MHz [FLAC|Lossless|tra
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712360.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ VA - Chilling Feeling (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712295.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ VA - Hooki-Sonic Recordings Summer Chill-Out Sampler (2016) [MP3|320 кб/с] <D
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712290.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ Hamlet His Highness - For All & None (2015) [MP3|125-320 кб/с] <Ambient, Elec
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712219.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ VA - iChill You Vol 1 (2016) [MP3|320 кб/с] <Lounge, Chill Out>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712119.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ ROTANOV - DEEP DANCE 01 (2016) [MP3|320 кб/с] <Deep House, Nu Disco>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712055.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ VA - 538 Dance Smash 2016 vol.2 (2016) [FLAC|Lossless|image + .cue] <House, Club
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712049.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ VA - Superhits Spring 2018, 2CD [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711970.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ VA - Hed Kandi Beach House (2016) [MP3|320 кб/с] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711964.jpg" />
 </div>
 
 
@@ -684,64 +742,6 @@ VA - Hed Kandi Beach House (2016) [MP3|320 кб/с] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3063FE87E9F76F7D70E5997A30341B73F7C905D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219575   (711917) от 15.04.2018
-
-Prime Minister Of Doom - Mudshadow Propaganda (2018) Planet Uterus [FLAC|Lossless|Vinyl|tracks] <Techno, Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Getting Things Started (06:01)
- 02. Tribal Days Part II (08:49)
- 03. Tribal Days Part III (09:06)
- 04. The Vibe (05:03)(   Читать дальше...   )Жанр: Techno, Dub Techno, AmbientПродолжительность: 01:15:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6591DB72C32205581CDF9833890B1F73E2640EB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219692   (711916) от 15.04.2018
-
-Monolink and Acid Pauli - The End (2015) 3000° Grad Records [FLAC|Lossless|WEB-DL|tracks] <Deep House, Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The End (08:14)
-02. New Morning (07:49)
-03. The End (Mollono.Bass Remix) (07:52)
-04. New Morning (The Micronaut Remix) (06:24)(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 00:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A593CD95BF51604E9A470B4BE258423EEC455CC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

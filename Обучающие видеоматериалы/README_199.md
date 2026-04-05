@@ -1,3 +1,29 @@
+###  Публикация: 1425276   (221412) от 20.11.2020
+
+OTUS, Владислав Родин | Супер-интенсив «СУБД в высоконагруженных системах» (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ни для кого не секрет, что база данных является узким горлышком высоконагруженной системы. Поэтому большое внимание при проектировании следует уделить именно этой части системы, ведь известно - если вы хотите ускорить эскадру, необходимо ускорить самый медленный корабль. Более того, поскольку база данных является stateful-системой, именно с ее горизонтальным масштабированием (   Читать дальше...   )Производство: OTUSЖанр: Программирование, базы данныхПродолжительность: 17:05:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C346B12DB2F1BE7B38F8030E78FBC8F482D5CB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 965724   (221391) от 16.12.2015
 
 Специалист | Основы программирования и баз данных (2014) PCRec
@@ -6,7 +32,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221391.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221288.jpg" />
 </div>
 
 
@@ -63,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221237.jpg" />
 </div>
 
 
@@ -90,7 +116,7 @@ IT Jane | Создание мобильных приложений с нуля �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220316.jpg" />
 </div>
 
 
@@ -118,7 +144,7 @@ Adrian Cantrill | AWS Certified DevOps Engineer - Professional (2022) WEB-DL [EN
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219848.jpg" />
 </div>
 
 
@@ -146,7 +172,7 @@ Coloso, Hyoungtaek Nam | Realistic Character Design (2022) PCRec [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219793.jpg" />
 </div>
 
 
@@ -174,7 +200,7 @@ FreelStep | After Effects from FreelStep (2022) WEB-DL [AD] [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219756.jpg" />
 </div>
 
 
@@ -201,7 +227,7 @@ Gumroad, Josh Gambrell, Ponte Ryuurui| Полное руководство по 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219614.jpg" />
 </div>
 
 
@@ -228,7 +254,7 @@ Udemy, Dr. Angela Yu | 100 Days of Code - The Complete Python Pro Bootcamp for 2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219576.jpg" />
 </div>
 
 
@@ -256,7 +282,7 @@ GeekBrains | Интернет-маркетолог (2019) PCRec
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219504.jpg" />
 </div>
 
 
@@ -283,7 +309,7 @@ Skillbox, Михаил Розов | Cinema 4D для веб-дизайна (2018
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219470.jpg" />
 </div>
 
 
@@ -312,7 +338,7 @@ Udemy, Кирилл Жданов | Тестировщик ПО, стань Junio
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219443.jpg" />
 </div>
 
 
@@ -338,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219416.jpg" />
 </div>
 
 
@@ -364,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219370.jpg" />
 </div>
 
 
@@ -390,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219296.jpg" />
 </div>
 
 
@@ -416,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219270.jpg" />
 </div>
 
 
@@ -442,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219250.jpg" />
 </div>
 
 
@@ -468,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219222.jpg" />
 </div>
 
 
@@ -496,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219180.jpg" />
 </div>
 
 
@@ -524,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219070.jpg" />
 </div>
 
 
@@ -550,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218893.jpg" />
 </div>
 
 
@@ -577,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218799.jpg" />
 </div>
 
 
@@ -603,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218732.jpg" />
 </div>
 
 
@@ -629,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218724.jpg" />
 </div>
 
 
@@ -655,7 +681,7 @@ Profileschool | Природные шедевры мастеров (2014) PCRec
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218604.jpg" />
 </div>
 
 
@@ -669,33 +695,6 @@ Profileschool | Природные шедевры мастеров (2014) PCRec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:438181834B57515C083AE9C9209B48E78A09BA4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514266   (218142) от 02.12.2021
-
-ЯЮниор, Роман Сакутин | C#. Для профессионалов (2021) WEB-DL
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс нацелен на разработчиков, которые уже овладели базовыми средствами языка и хотят развиваться дальше!
-В курсе представлены блоки практики с различными технологиями, чтобы вы были свободны в творчестве и профессии.Производство: ЯЮниорЖанр: ПрограммированиеПродолжительность: 04:04:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71C0086DDE9AE9DBEFD1303228F53054FE43D505
 ```
 
 https://mybot314.ru/tekegram_catalog/

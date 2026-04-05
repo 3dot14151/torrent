@@ -1,3 +1,56 @@
+###  Публикация: 1764767   (34830) от 08.12.2024
+
+Л.А. Семенов | Печное отопление. Второе издание (1960) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34830.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге изложены основные вопросы печного отопления, приведены рациональные конструкции отопительных и отопительно-варочных печей, кухонных очагов, дымовых труб и пр. Кроме того, рассмотрены методы расчетов и проектирования печного отопления с учетом теплоустойчивости помещений, а также вопросы возведения и эксплуатации печей. Книга рассчитана на инженеров, техников-строителей, (   Читать дальше...   )Жанр: справочник, печное отопление, отопительные печиИздательство: Печное отопление. Второе изданиеФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0A4BDA0FFF4ECD9ED05FD8351A41389FC0C44FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764799   (34687) от 09.12.2024
+
+М.Т. Мержанов | Производство вагонов (1948) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34687.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге освещены вопросы производства вагонов в заготовительных, обрабатывающих и сборочных цехах.
+Книга может быть использована студентами транспортных вузов в качестве учебного пособия и инженерно-техническими работниками, работающими в области вагоностроения.Жанр: учебное пособиеИздательство: МашгизФормат: DJVU, PDFКачество: Обработанный скан + OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0772E466AD78F4A5A557442C9404ADC7C87E9EB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1766084   (34028) от 16.12.2024
 
 Дж. Бейктал | Конструируем роботов. Дроны. Руководство для начинающих. Второе издание (2022) [PDF]
@@ -6,7 +59,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34028.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34012.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33948.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33911.jpg" />
 </div>
 
 
@@ -114,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33775.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33373.jpg" />
 </div>
 
 
@@ -167,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33368.jpg" />
 </div>
 
 
@@ -194,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33341.jpg" />
 </div>
 
 
@@ -220,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33337.jpg" />
 </div>
 
 
@@ -246,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31156.jpg" />
 </div>
 
 
@@ -272,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31012.jpg" />
 </div>
 
 
@@ -299,7 +352,7 @@ Issa Batarseh, Ahmad Harb | Power Electronics: Circuit Analysis and Design (2017
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30885.jpg" />
 </div>
 
 
@@ -325,7 +378,7 @@ Muhammad H. Rashid (ed.) | Power Electronics Handbook (2006) [PDF] [En]
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30851.jpg" />
 </div>
 
 
@@ -351,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30549.jpg" />
 </div>
 
 
@@ -377,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30356.jpg" />
 </div>
 
 
@@ -403,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28559.jpg" />
 </div>
 
 
@@ -429,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26865.jpg" />
 </div>
 
 
@@ -458,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24476.jpg" />
 </div>
 
 
@@ -485,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23641.jpg" />
 </div>
 
 
@@ -511,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23333.jpg" />
 </div>
 
 
@@ -537,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23229.jpg" />
 </div>
 
 
@@ -564,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22776.jpg" />
 </div>
 
 
@@ -590,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22414.jpg" />
 </div>
 
 
@@ -616,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22357.jpg" />
 </div>
 
 
@@ -627,58 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EE25A3D4F103B78C94EADD1C28FBC5E5BFC9B42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793105   (20572) от 22.04.2025
-
-Н. Калдер | Руководство по механическим и электрическим системам яхты [2 книги] (2016, 2017) [PDF, DJVU] [RU, EN]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Руководство содержит всю необходимую информацию для обслуживания и самостоятельного ремонта основных судовых систем. Изложенные просто и доступно для понимания материалы помогут яхтсмену, не являющемуся специалистом, справиться с проблемами, которые могут возникнуть во время плавания. Независимо от уровня вашей подготовленности, данное руководство сделает техническое (   Читать дальше...   )Жанр: Руководство. Учебное пособиеЯзык: Русский, английскийИздательство: Adlard Coles Nautical, Моя планетаФормат: PDF, DJVUКачество: Изначально электронное (ebook), Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7805BD1C371081A60B7EF1642C88FB0D8856251C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793235   (20548) от 23.04.2025
-
-Патрик Д. Келли | Практическое руководство по устройствам свободной энергии (2020) [PDF]
-
->>След.
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель этого документа состоит в том, чтобы дать вводный курс по теме "Свободной энергии" или "Энергии нулевой точки" (энергия, которая обнаруживается, даже в температуре абсолютного нуля). Данное описание ни в коем случае не является полным, а предназначено, для того чтобы объяснить просто и ясно, основные сферы очень большой темы. Взгляды выражены (   Читать дальше...   )Жанр: Техническая литература, СправочникИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CC7BE4F365B1C0688DDBA68B16AECCF40125A08
 ```
 
 https://mybot314.ru/tekegram_catalog/

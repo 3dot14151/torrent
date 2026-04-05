@@ -1,3 +1,135 @@
+###  Публикация: 1801718   (14894) от 12.06.2025
+
+Маракуда (2025) WEB-DL [H.264/1080p]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сын вождя Маракуда должен стать настоящим воином, но есть одна проблема — он совершенно не умеет охотиться. Отправившись в путешествие в таинственный лес, он встречает священную птицу Тинк, которая дарует ему удивительную способность понимать язык животных и птиц. Вместе с Тинком ему предстоит пережить захватывающие приключения, подружиться с самыми необычными существами (   Читать дальше...   )Производство: Россия / Анимационная студия Сказка, CTBЖанр: мультфильмРежиссер: Виктор ГлухушинАктеры: Прохор Чеховской, Элиза Мартиросова, Диомид Виноградов, Пётр Иващенко, Марина Лисовец, Глеб ГавриловСубтитры: ОтсутствуютПродолжительность: 01:28:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FD36E3292E672CF8698AFA7FBAF8449F3C1B417
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801634   (14759) от 13.06.2025
+
+Бивис и Батт-Хед / Beavis and Butt-Head (2011) WEB-DL [H.264/720p] (сезон 8, серий 1-12 из 12) [EN]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шоу о двух подростках Бивиса и Батт-Хеда и их повседневных подвигах, таких как пытаться наконец "закадрить тёлочку", ломать вещи, пропускать школу и смотреть телевизор.Производство: США, Judgmental FilmsЖанр: мультфильм, комедияРежиссер: Майк ДжаджАктеры: Майк Джадж, Кристофор Браун, Дэйл Рево, Трейси Грэндстафф, Тоби Хасс, Адам Уэлш, Кристин Уолтерс, Лори Нассо, Кэтлин БаррПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: ~00:20:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83B98E26229016A57BAA952AB922F6B7636750DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801884   (14738) от 13.06.2025
+
+Кот в сапогах (1938) WEBRip [H.264/1080p]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14738.jpg" />
+</div>
+
+
+###  Подробнее
+
+По сказке Шарля Перро.
+Мельник, умирая оставил сыновьям наследство. Старшему - мельницу, среднему - осла, а младшему - кота.
+Хитрый кот надел сапоги и шляпу хозяина, уверенно направился в королевский замок и с помощью подарков, пробудил интерес к своему хозяину, названному им маркизом Карабасом... Надо признать, котик показал себя отличным антикризисным менеджером. (   Читать дальше...   )Производство: СССР / СоюзмультфильмЖанр: рисованная анимация, детский, сказка, короткометражныйРежиссер: Валентина Брумберг, Зинаида БрумбергСубтитры: отсутствуютПродолжительность: 00:11:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:182057F8544E75A11AFC79F16ED0F47B88EC6C9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396446   (14677) от 14.06.2025
+
+Как приручить дракона / How to Train Your Dragon (2010, 2014, 2019) BDRemux [H.264/1080p] [Трилогия]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы узнаете историю подростка Иккинга, которому не слишком близки традиции его героического племени, много лет ведущего войну с драконами. Мир Иккинга переворачивается с ног на голову, когда он неожиданно встречает дракона Беззубика, который поможет ему и другим викингам увидеть привычный мир с совершенно другой стороны…Производство: США / DreamWorks AnimationЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Дин ДеБлуа, Крис СандерсПеревод: ДублированныйСубтитры: русские, украинские, английскиеПродолжительность: 01:37:51 / 01:41:55 / 01:44:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C268BB735F97BB6FBC783AD07457806326E0E80A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801923   (14464) от 16.06.2025
+
+Хищник: Убийца убийц / Predator: Killer of Killers (2025) WEB-DL [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анимационная антология состоит из трёх новелл, действие которых разворачивается в разные эпохи. Нас ждут истории трёх самых свирепых убийц в истории человечества: женщины-викинга, рассказывающей сыну историю о таинственном монстре, убивающем всё живое; ниндзя в феодальной Японии, который готов убить собственного брата-самурая в борьбе за право наследования; пилота (   Читать дальше...   )Производство: США / 20th Century Studios, Davis Entertainment, The Third Floor, Inc.Жанр: мультфильм, фантастика, боевик, ужасыРежиссер: Дэн Трахтенберг, Джошуа ВассунгАктеры: Майкл Бин, Рик Гонсалес, Луис Одзава, Линдсэй ЛаВаншиПеревод: Многоголосый любительский (Dаблин)Субтитры: отсутствуютПродолжительность: 01:24:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:745F89B77B333DDF5E4422467210B79379005AC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802005   (14323) от 17.06.2025
 
 Эй, Арнольд! / Hey, Arnold! (1996-2017) [H.265/2160p] (сезон 1-5, 100 серий + 2 полных метра) [hand made Upscale AI]
@@ -6,7 +138,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14323.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14321.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14296.jpg" />
 </div>
 
 
@@ -85,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14198.jpg" />
 </div>
 
 
@@ -112,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14112.jpg" />
 </div>
 
 
@@ -138,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14067.jpg" />
 </div>
 
 
@@ -164,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14046.jpg" />
 </div>
 
 
@@ -190,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14007.jpg" />
 </div>
 
 
@@ -216,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13988.jpg" />
 </div>
 
 
@@ -242,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13927.jpg" />
 </div>
 
 
@@ -270,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13800.jpg" />
 </div>
 
 
@@ -296,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13757.jpg" />
 </div>
 
 
@@ -322,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13725.jpg" />
 </div>
 
 
@@ -348,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13695.jpg" />
 </div>
 
 
@@ -374,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13579.jpg" />
 </div>
 
 
@@ -400,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13559.jpg" />
 </div>
 
 
@@ -426,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13556.jpg" />
 </div>
 
 
@@ -452,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13511.jpg" />
 </div>
 
 
@@ -478,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13463.jpg" />
 </div>
 
 
@@ -504,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13437.jpg" />
 </div>
 
 
@@ -530,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13370.jpg" />
 </div>
 
 
@@ -541,137 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C940012B988F61D964006DDECB98A02E07FDBB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803959   (13326) от 27.06.2025
-
-Артур и минипуты: Трилогия / Arthur et les Minimoys: Trilogy (2006, 2009, 2010) BDRemux [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маленький мальчик Артур, прочитав старинную книгу о дедушкиных приключениях в Африке, хочет отыскать сокровище, чтобы помочь своей бабушке и попадает в мир крошечных минипутов, который
-находится под его домом.Производство: Франция, США, Великобритания / Avalanche Productions, Canal+Жанр: мультфильм, фэнтези, приключения, семейныйРежиссер: Люк БессонАктеры: Фредди Хаймор, Миа Фэрроу, Пенни Бальфур, Даг Рэнд, Адам ЛеФевр, Сауль Джефкотт, Кристиан Эриксон, Эрик Балье, Роберт Уильям Брэдфорд, Джерри Ди Джакомо, Винсент Менди, Тони Десканвелль, Селена Гомес, Стэйси Фергюсон, Фредди Хаймор, Джимми Фэллон, Миа Фэрроу, Снуп Догг, Уилл Ай Эм, Аса Баттерфилд, Роберт Стэнтон, Логан Миллер, Роберт Стэнтон, Пенни Бальфур, Милен (   Читать дальше...   )Перевод: ДублированныйЯзык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 01:43:42 / 01:33:41 / 01:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C17FAB680A04F28B5F168BC2D6B93AED4861DEB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804012   (13290) от 27.06.2025
-
-D: Охотник на вампиров / Kyuuketsuki Hunter D / Vampire Hunter D (1985) BDRip [AV1/2160p] [4K, SDR, 10-bit] [OVA] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13290.jpg" />
-</div>
-
-
-###  Подробнее
-
-В далёком будущем на Земле властвуют могущественные вампиры. Эти кровожадные монстры — бессмертные потомки древних аристократических родов — держат людей в страхе, наслаждаясь беспомощностью смертных и их горячей кровью. Став жертвой «поцелуя бессмертия» ужасного графа Ли, отважная девушка Дорис обращается за помощью к странствующему охотнику на вампиров по имени (   Читать дальше...   )Производство: Япония / Ashi ProductionsЖанр: аниме, мультфильм, ужасы, фантастика, фэнтези, боевикРежиссер: Тоё АсидаАктеры: Митиэ Томидзава, Канэто Сиодзава, Сэидзо Като, Сатоко Кифудзи, Кадзуюки Согабэ, Мотому Киёкава, Юсаку Яра, Кадзуко Янага, Ёсико Сакакибара, Кэйко ТодаПеревод: Многоголосый профессиональный (MC Entertainment)Язык озвучки: Русский, ЯпонскийСубтитры: русскиеПродолжительность: 01:21:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4290131A55BF4DBCAACD4CCD5799D95A516CC159
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804013   (13288) от 27.06.2025
-
-D: Жажда крови / Banpaia Hunter D: Buraddorasuto / Vampire Hunter D: Bloodlust (2000) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Далёкое будущее. Когда-то вампиры правили миром и сейчас, почти на грани истребления, они все ещё наводят на людей ужас. Состоятельная семья похищенной вампиром девушки нанимает полувампира по имени Ди, чтобы тот вернул её живой или убил, если спасти будет слишком поздно. Чтобы увеличить шансы на спасение, они также наняли до зубов вооружённую группу охотников на (   Читать дальше...   )Производство: Япония / MadhouseЖанр: аниме, мультфильм, фантастика, фэнтези, боевикРежиссер: Ёсиаки КавадзириАктеры: Хидэюки Танака, Итиро Нагаи, Коити Ямадэра, Мэгуми Хаясибара, Эми Синохара, Юсаку Яра, Хотю Оцука, Ринтаро Ниси, Кэидзи Фудзивара, Ёко СомиПеревод: Многоголосый профессиональный (MC Entertainment)Язык озвучки: Русский, ЯпонскийСубтитры: русскиеПродолжительность: 01:41:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5991F2203DA90871E16B2EF6B3FCE6D7483AE613
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804086   (13286) от 27.06.2025
-
-Кошкин дом. Сборнник мультфильмов (1955-1988) DVD5 [Крупный план, без реставрации]
-
->>Мультфильмы
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник мультиков, в который вошли: Пес и кот; Кто сказал мяу?; Кот, который гулял сам по себе; Чучело-мяучело; Котенок с улицы ЛизюковаПроизводство: СССР / СоюзмультфильмЖанр: мультфильм, детский, короткометражка, мюзиклРежиссер: Лев Атаманов, Леонид Амальрик, Вячеслав Котёночкин, Инесса Ковалевская, Александра Снежко-Блоцкая, Владимир ДегтяревАктеры: Рубен Симонов, Юрий Хржановский, Владимир Грибков, Владимир Канделаки, Григорий Шпигель, Георгий Вицин, Георгий Милляр, Анастасия Георгиевская, , Сергей Мартинсон, Вера Орлова и другиеСубтитры: отсутствуютПродолжительность: ~ 00:19:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:127FA6E3B0F13F9E230F7A510EA31C8476E6824B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 511362   (13238) от 28.06.2025
-
-БЕРН-И / BURN-E (2008) [1080p] BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13238.jpg" />
-</div>
-
-
-###  Подробнее
-
-«BURN-E» — короткометражный мульт от студии Pixar, на основе мультфильма «ВАЛЛ-И». BURN-E — это робот-сварщик, которого ЕВА и ВАЛЛ-И случайно оставили закрытым вне корабля, проникая внутрь после полёта около «Аксиомы».Жанр: Мультфильм, Короткометражка, Приключения, СемейныйРежиссер: Энгус МакЛэйнПеревод: ДублированныйПродолжительность: 00:07:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADE8DAAB7FB4BDA7D05EEF611E7ECC0D08B86A9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

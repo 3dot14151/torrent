@@ -1,32 +1,3 @@
-###  Публикация: 1443821   (1034664) от 01.02.2021
-
-The Cancel - Reply from Space (2011) [FLAC 2.0|24/44.1|tracks|WEB-DL] <Hip-Hop, Instrumental>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop, RnB, Reggae (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro from space (01:46)
-02. Ghost (01:42)
-03. NY in night (02:49)
-04. Lullaby from the moon (03:11)(   Читать дальше...   )Жанр: Hip-Hop, InstrumentalПродолжительность: 00:31:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77A78E16D9D4F6560794FFF40755174A90C7B68B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618402   (1033931) от 12.03.2023
 
 Sagath - Catacombs (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Hip-Hop, Horrorcore>
@@ -35,7 +6,7 @@ Sagath - Catacombs (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Hip-Hop, H
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033931.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033522.jpg" />
 </div>
 
 
@@ -90,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033516.jpg" />
 </div>
 
 
@@ -116,7 +87,7 @@ Onyx - 100 MAD (2019) [FLAC 2.0|24/48|tracks|WEB-DL] <Rap, Hip-Hop>
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033280.jpg" />
 </div>
 
 
@@ -145,7 +116,7 @@ Ka - Behind The Scenes (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Abstract H
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032748.jpg" />
 </div>
 
 
@@ -174,7 +145,7 @@ Odessa Kane - Left to Bear Arms (2015) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, U
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032744.jpg" />
 </div>
 
 
@@ -203,7 +174,7 @@ Odessa Kane - Cuetes And Balisongs (2012) EP [FLAC|Lossless|WEB-DL] <Hip-Hop, Un
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032720.jpg" />
 </div>
 
 
@@ -232,7 +203,7 @@ VA - Chillhop Essentials Winter (2022) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032350.jpg" />
 </div>
 
 
@@ -261,7 +232,7 @@ Anacondaz - Перезвони мне +79995771202 (2021) [MP3|320 Kbps] <Rap, H
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032040.jpg" />
 </div>
 
 
@@ -290,7 +261,7 @@ clipping. - Visions Of Bodies Being Burned (2020) [FLAC|Lossless|tracks + .cue] 
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031687.jpg" />
 </div>
 
 
@@ -319,7 +290,7 @@ Psalm Trees & Guillaume Muschalle - We Must Believe in Spring (2021) [FLAC|Lossl
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030977.jpg" />
 </div>
 
 
@@ -348,7 +319,7 @@ ndls404 - Kung-Fu (2020) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Instrumental>
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030924.jpg" />
 </div>
 
 
@@ -377,7 +348,7 @@ Onyx - Coming Outside (2021) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030236.jpg" />
 </div>
 
 
@@ -403,7 +374,7 @@ Serhat Durmus - My Feelings (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Tr
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030232.jpg" />
 </div>
 
 
@@ -429,7 +400,7 @@ VA - Rap Songs To Shout In The Car (2021) [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030195.jpg" />
 </div>
 
 
@@ -458,7 +429,7 @@ Insane Clown Posse - Riddle Box (1995) 20th Anniversary Edition, Remastered, 201
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030014.jpg" />
 </div>
 
 
@@ -487,7 +458,7 @@ Insane Clown Posse - The Great Milenko (1997) 20th Anniversary Edition, Remaster
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030011.jpg" />
 </div>
 
 
@@ -516,7 +487,7 @@ Aarigod - Forest Lore (2021) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Instrumenta
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029372.jpg" />
 </div>
 
 
@@ -545,7 +516,7 @@ Alai Oli - Человек, который пытается переехать и
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028044.jpg" />
 </div>
 
 
@@ -574,7 +545,7 @@ The Notorious B.I.G. - Music Inspired By Biggie: I Got A Story To Tell (2021) [F
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027698.jpg" />
 </div>
 
 
@@ -603,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027677.jpg" />
 </div>
 
 
@@ -632,7 +603,7 @@ L'indécis (L'indecis) - Second Wind (2019) [FLAC|Lossless|Web-DL|tracks] <Chill
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027189.jpg" />
 </div>
 
 
@@ -661,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026433.jpg" />
 </div>
 
 
@@ -690,7 +661,7 @@ VA - Chillhop Essentials Spring 2021 (2021) [FLAC|Lossless|WEB-DL|tracks] <Hip-H
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025756.jpg" />
 </div>
 
 
@@ -719,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025570.jpg" />
 </div>
 
 
@@ -733,6 +704,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD549A3687A52C0D31ED211FD175AB796EA5DA85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455936   (1025301) от 21.03.2021
+
+Moderator - Midnight Madness (2021) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Trip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Story Begins (Intro) [00:02:02]
+02. Unspoken [00:03:29]
+03. Walking Slow [00:03:59]
+04. Wish I Was Dead [00:03:42](   Читать дальше...   )Жанр: Trip Hop, Beats, JazzyПродолжительность: 00:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BB9C91719F86C5B0F4A04797E157ED02A476485
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ NG: Спасти Титаник с Бобом Баллардом / Save the Tita
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748459.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NG: Осушить океан. Титаник / The Drain Titanic (2015) HDTV [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748187.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NG: Китайская мегагробница. Секреты терракот
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748126.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748068.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746250.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NGW: Смертоносная Африка. Побережья / Africa's Deadly
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745230.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743873.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ NG: Птица-динозавр / Dino-Bird (2017) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743238.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ NGW. Волчьи горы / The Wolf Mountains (2013) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739593.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ NG. Черная мамба: поцелуй смерти / Black Mamba Kiss of D
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739515.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ NG: Дьяволы морских глубин / Devils of the Deep (2003) DVD5
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739410.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ NG: Реальность или фантастика / NG: Is it Real? [19 се�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739399.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ NG. Непокорный остров / Port Protection (Lawless Island) (2021) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736333.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732859.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ NG: Вторжение на Землю / Invasion Earth (2014) HDTVRip [H.264/72
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732468.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732306.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ NGW: Охотница / Malika. Leopard Huntress (2018) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732045.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ NGW: Царство леопардов / Leopard Kingdom (2018) HDTV [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732044.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ NG: Война Гитлера против прессы / Hitler's Battle Agains
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731832.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ NG: Титаник. Дело закрыто / Titanic. Case Closed (2012) HDTV [
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731769.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ NG. Гении / American Genius (2015) WEB-DLRip [H.264/720p-LQ] (Сезон 1,
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730598.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730563.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ V3: суперпушка Гитлера / Building Hitler's Supergun / Hitlers S
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729630.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ NG. Разгадка тайны Стоунхенджа / Stonehenge Decoded (200
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729524.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ NG: V3: суперпушка Гитлера / Building Hitler's Supergun / Hitle
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729520.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ NGW: Схватка тигров / Clash of Tigers (2018) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728773.jpg" />
 </div>
 
 

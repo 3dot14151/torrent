@@ -1,61 +1,3 @@
-###  Публикация: 685185   (614529) от 31.07.2013
-
-Настя - Звездная серия. Рок Энциклопедия (2003) [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Снежные Волки (2:26)
-02. Ариандна (4:50)
-03. Невеста (5:08)
-04. Москва (4:32)(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AA0FC1B9B156BC163EE6143C9BFD7A9C38FFCB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146719   (614451) от 29.06.2017
-
-СерьГа - Приметы (2017) [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сказочный лес
-02. Приметы
-03. Крылья за спиной
-04. Блюз Шапито(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E204846B9D93EBE483F3A59ACEE41B62FF259654
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911782   (614086) от 24.06.2015
 
 Юта - Лучшие песни (2009) [FLAC|image+.cue]<Rock, Pop>
@@ -64,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614086.jpg" />
 </div>
 
 
@@ -93,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614012.jpg" />
 </div>
 
 
@@ -122,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613849.jpg" />
 </div>
 
 
@@ -151,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613451.jpg" />
 </div>
 
 
@@ -180,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_610345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_610345.jpg" />
 </div>
 
 
@@ -206,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610259.jpg" />
 </div>
 
 
@@ -235,7 +177,7 @@ Akado - Oxymoron № 2 (2008) [FLAC|Lossless|WEB-DL|tracks] <Industrial>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610250.jpg" />
 </div>
 
 
@@ -264,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610132.jpg" />
 </div>
 
 
@@ -293,7 +235,7 @@ Antreib - Назад дороги нет (2019) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608647.jpg" />
 </div>
 
 
@@ -322,7 +264,7 @@ Akado - A U R A (2018) Single [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, I
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608636.jpg" />
 </div>
 
 
@@ -349,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607997.jpg" />
 </div>
 
 
@@ -378,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_607390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_607390.jpg" />
 </div>
 
 
@@ -408,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607199.jpg" />
 </div>
 
 
@@ -437,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604495.jpg" />
 </div>
 
 
@@ -466,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603986.jpg" />
 </div>
 
 
@@ -495,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603600.jpg" />
 </div>
 
 
@@ -524,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603568.jpg" />
 </div>
 
 
@@ -553,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602639.jpg" />
 </div>
 
 
@@ -582,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602627.jpg" />
 </div>
 
 
@@ -611,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602617.jpg" />
 </div>
 
 
@@ -640,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601549.jpg" />
 </div>
 
 
@@ -669,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600879.jpg" />
 </div>
 
 
@@ -698,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600729.jpg" />
 </div>
 
 
@@ -727,7 +669,7 @@ Vector Of Underground (Виктор Андеграундъ) - 5 Albums / 2 Singl
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600259.jpg" />
 </div>
 
 
@@ -738,6 +680,64 @@ Vector Of Underground (Виктор Андеграундъ) - 5 Albums / 2 Singl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB470A5BBB963BB9B7BB4ADCFE20A1B0B4CC8690
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548459   (598362) от 03.05.2022
+
+Bastard Folk - Трактир на перекрестке (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Эй, налей [00:03:20]
+02 - Раз весёлый каннибал [00:02:20]
+03 - Ведьмина вода [00:02:53]
+04 - Кот за дрот [00:03:21](   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:24:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6EE46AC2FA582F100D95AFDC9214AEE0977FA9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 914290   (597975) от 02.07.2015
+
+Браво - Grand Collection (2008) [FLAC|image+.cue]<Rock, Rock-n-Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Король Оранжевое Лето
+02. Верю я
+03. Московский бит
+04. Будь со мной(   Читать дальше...   )Жанр: Rock, Rock-n-RollПродолжительность: 01:01:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B00B37A57CF2B3107F384781468128F01F5F1CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

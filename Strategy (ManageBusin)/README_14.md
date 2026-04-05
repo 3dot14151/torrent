@@ -6,7 +6,7 @@ My Lovely Empress (2024) [Multi] (1.0.5) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45602.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Paris in 2000 Years (2024) [Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45406.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Townsmen A Kingdom Rebuilt (2019) [Ru/Multi] (2.2.8.0/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45211.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Patron (2021) [Ru/Multi] (1.906.0/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45207.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ World Turtles (2023) [Multi] (1.02) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45185.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Highrise City (2022) [Multi] (1.2.2/dlc) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44910.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Republic of Pirates (2024) [Ru/Multi] (0.26.2) Repack Wagner
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44898.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Sweet Transit (2022) [Ru/Multi] (20240910) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43837.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Terrorformer TD (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43833.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Demon's Mirror (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43475.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Frostpunk 2 (2024) [Ru/Multi] (Build 15731711) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43199.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Frostpunk 2 (2024) [Ru/Multi] (5.2.1-391109/dlc) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42900.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Roots of Yggdrasil (2024) [Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42858.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Planetbase (2015) [Multi] (1.4.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42756.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ How We Die (2024) [Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42574.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Lords and Villeins (2021) [Ru/Multi] (1.6.14/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42170.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Mr. Prepper (2021) [Ru/Multi] (1.42b/dlc) Repack FitGirl [Complete Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_41015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_41015.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Anno 2205 (2015) [Ru/Multi] (1.8.3741.13270/dlc) Repack Wanterlude [Ultimate Edi
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40909.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Anno 2205 (2015) [Ru/Multi] (1.8.3741.13270/dlc) Repack Decepticon [Ultimate Edi
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40906.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Quilts and Cats of Calico (2024) [Ru/Multi] (1.0.96.0927.1622) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40879.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Anno 2205 (2015) [Ru/Multi] (1.8.3741.13270/dlc) Repack FitGirl [Ultimate Editio
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40819.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Anno 2205 (2015) [Ru/Multi] (1.8.3741.13270/dlc) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40607.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Anno 2205 (2015) [Ru/Multi] (1.8.3741.13270/dlc) Repack dixen18
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40598.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ SteamWorld Build (2023) [Ru/Multi] (1.0.12/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40334.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Citadelum (2024) [Ru/Multi] (build 16078282) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39945.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Offworld Trading Company (2016) [Ru/Multi] (1.23.68800/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39926.jpg" />
 </div>
 
 

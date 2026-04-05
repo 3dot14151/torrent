@@ -1,3 +1,107 @@
+###  Публикация: 1353510   (991685) от 18.01.2020
+
+Angry Birds Stella 1.1.4 [Ru/En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Angry Birds Stella - Продолжение увлекательной серии игр на андроид от компании Rovio – Angry Birds. На этот раз разработчик решил порадовать нас новыми персонажами и новыми возможностями геймплея. У Стеллы и ее друзей есть сверх способности, которых никогда не было у персонажей данной серии игр. Главная героиня умеет отталкиваться от блоков, Лука воспроизводит громкую (   Читать дальше...   )Тип издания: Mod Unlocked + Не имеет страницы в Google PlayРелиз состоялся: 24.04.2015Разработчик: Rovio Entertainment CorporationПоддерживаемая ОС: Android 2.3+Жанр: АркадыЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AD86741E6CA59D08609865AF99F74694A78A26D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353355   (991684) от 18.01.2020
+
+Angry Birds Classic 8.0.3 [Ru/En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Angry Birds на Андроид – ваша задача помочь птицам Angry отомстить жадным свиньям, которые украли их яйца. Используйте уникальные способности каждой из птиц, для разрушения крепости свиней. В основе геймплея Angry Birds, особенностью является сложная физика. Каждый из 195 уровней требуется логика, умения и силы, чтобы полностью разрушить крепость!Тип издания: Оригинал из Google PlayРелиз состоялся: 10.05.2019Разработчик: Rovio Entertainment CorporationПоддерживаемая ОС: Android 4.1+Жанр: АркадыЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F57E2399D2B3B83DC00B52D28F67ACF660094D6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353587   (990604) от 19.01.2020
+
+Game Dev Tycoon 1.4.7 [Ru/En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Game Dev Tycoon - экономический симулятор в котором вам предстоит основать и развивать собственную студию разработки игр в условиях 80-х годов. Для начала вам конечно же необходимо выпустить несколько игровых хитов, при этом жанра вы сможете выбрать самостоятельно, после успешного выпуска вы сможете потратить первый гонорар на развитие своего предприятия, купить (   Читать дальше...   )Тип издания: Оригинал (Разорвана связь с Google Play)Релиз состоялся: 28.11.2018Разработчик: Greenheart GamesПоддерживаемая ОС: Android 4.1+Жанр: Стратегии, симуляторыЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A493412D5387A806617F76949F3D2A584C16BF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353779   (990538) от 19.01.2020
+
+Adobe Photoshop Touch 2.0.0 Mod by Normik [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop Touch на Андроид – скачайте и установите программу, и вперед фантазировать, создавать и комбинировать изображения, применяя профессиональные эффекты. Не забудьте поделиться с друзьями и с семьей через Facebook и еще много чего интересного.Тип издания: Пиратка (Mod: поддерживает Android 10)Релиз состоялся: 04.01.2020Разработчик: AdobeПоддерживаемая ОС: Android 3.1+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F01516B35C300CC47B146638F7821D9F22396ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1354020   (989684) от 20.01.2020
 
 Клавиатура SwiftKey v7.4.6.6 [Ru/En]
@@ -6,7 +110,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989684.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Free Audiobooks v1.14.7 [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987823.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Garmin: City Navigator Turkey NTU 2016.30 [Tr]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983094.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ The Rivers of Alice v1.61 [Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978934.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ TurboScan Paid 1.5.7 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976473.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ Compass Pro 1.49 (Paid) [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976381.jpg" />
 </div>
 
 
@@ -165,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975273.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974394.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ Garmin: City Navigator Southern Africa NT 2016.30 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973200.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972875.jpg" />
 </div>
 
 
@@ -272,7 +376,7 @@ Garmin: City Navigator India NT 2015.40 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971924.jpg" />
 </div>
 
 
@@ -298,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971526.jpg" />
 </div>
 
 
@@ -327,7 +431,7 @@ Garmin: City Navigator Middle East & North Africa 2016.20 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970657.jpg" />
 </div>
 
 
@@ -353,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970484.jpg" />
 </div>
 
 
@@ -379,7 +483,7 @@ Garmin: TOPO Norway Premium v2 [No]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969528.jpg" />
 </div>
 
 
@@ -405,7 +509,7 @@ Canva Premium 2.47.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969299.jpg" />
 </div>
 
 
@@ -431,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964057.jpg" />
 </div>
 
 
@@ -457,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963299.jpg" />
 </div>
 
 
@@ -483,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959287.jpg" />
 </div>
 
 
@@ -509,7 +613,7 @@ Check Engine  v1.5.8.01 [Ru] - на русском языке
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959176.jpg" />
 </div>
 
 
@@ -535,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958964.jpg" />
 </div>
 
 
@@ -561,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954363.jpg" />
 </div>
 
 
@@ -573,111 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F432013C88D90678DCEC8D6E4F77082C88C12F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980938   (954144) от 30.01.2016
-
-Assistant Premium 3.3.9 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Никогда не хотели иметь собственного ассистента? А как насчет ассистента на вашем смартфоне? Данное приложение именно то, что вам нужно! Программа умеет отвечать на вопросы, которые вы ей задаете. Это очень удобно! Такая функция делает приложение необычным и интересным. Для того, чтобы отыскать нужную информацию ассистент пользуется функцией распознавания речи, а (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 29.01.2016Разработчик: AssistantПоддерживаемая ОС: Android 2.1+Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5300A037959595928F9B2A0739ABEFE2A3683482
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980828   (954069) от 30.01.2016
-
-Азбука, цифры, цвета и фигуры v1.05 Ad-Free [Ru]
-
->>Программы, Игры и прочее
->>Всё для детей и родителей для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детская азбука. Алфавит для детей. Цифры для детей. Цвета и фигуры для детей. Уникальное бесплатное обучающее приложение для детей дошкольного возраста. В нашем приложении Ваш ребенок сможет самостоятельно познакомиться с буквами и цифрами, названиями основных цветов и фигур. Яркие картинки и простота управления, несомненно, привлекут внимание Вашего ребенка. В заданиях, (   Читать дальше...   )Тип издания: Ad-Free (удалена реклама)Релиз состоялся: 28.07.2015Разработчик: by.andreidanilevichПоддерживаемая ОС: Android 3.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99A0649E4DBF1CBECF096E3AC113CFF61EE438D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 832999   (951380) от 03.01.2017
-
-IP Tools Premium v7.0.4 [Ru/Multi] - инструмент для анализа сети
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951380.jpg" />
-</div>
-
-
-###  Подробнее
-
-IP Tools - удобный и мощный инструмент для анализа сети. Программа включает в себя самые распространенные утилиты, которые вы можете встретить в Windows или в Linux. Все, что необходимо для получения информации об ip адресе или сайте теперь в вашем устройстве! Простой интерфейс позволяет быстро узнать свой ip адрес и получить подробную информацию о любом другом адресе (   Читать дальше...   )Тип издания: Пиратка (PREMIUM features Unlocked)Релиз состоялся: 01.01.2017Разработчик: AmazingByteПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58B337037A64267068F56B35857F17A846A2E4B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982462   (947809) от 03.02.2016
-
-PRO PDF Reader 4.5.2 [Ru] - Читалка книг и документов форматa PDF и DjVu.
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Читалка книг и документов форматa PDF и DjVu.
-Если вы ищете хорошую PDF читалку, оcтановитесь, вы ее нашли. С помощью этой читалки вы сможете удобно читать книги и документы. Вы можете зафиксировать ширину документа эта настройка не будет сбиваться. Собран лучший функционал со всех читалок в одной.Тип издания: ПираткаРелиз состоялся: 03.02.16Разработчик: Ivan IvanenkoПоддерживаемая ОС: Android 2.3 +Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6A601A60478AB2E7B4209BFF293918DB3DBA321
 ```
 
 https://mybot314.ru/tekegram_catalog/

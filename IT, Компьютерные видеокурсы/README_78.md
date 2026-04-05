@@ -1,31 +1,3 @@
-###  Публикация: 1583331   (229530) от 14.10.2022
-
-ui.dev (ex. Tyler McGinnis), Tanner Linsley | React Query (2022) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229530.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучите React Query с помощью официального курса. Не хотите читать документацию? Есть более простой способ освоить React Query. Наш линейный курс подобен умному, опытному другу, который сядет рядом с вами, расскажет вам о каждой концепции и применит то, чему вы научились. Это наш секретный соус.
-
-React Query помогает избежать технического долга. Мы поможем вам освоить (   Читать дальше...   )Производство: ui.dev (ex. Tyler McGinnis)Жанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 07:01:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71DB1EFE7B70B04A56A80A785169DF434C30859C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 964838   (229257) от 12.12.2015
 
 Дмитрий Родин | AutoCAD в Формате Видео (2015) PCRec [H.264]
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229257.jpg" />
 </div>
 
 
@@ -60,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229011.jpg" />
 </div>
 
 
@@ -86,7 +58,7 @@ Convert Monster | Идеальный Landing Page, Яндекс.Директ, Go
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228907.jpg" />
 </div>
 
 
@@ -115,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226730.jpg" />
 </div>
 
 
@@ -141,7 +113,7 @@ Udemy, Tim Buchalka и др. | Android App Development Masterclass using Kotlin 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226628.jpg" />
 </div>
 
 
@@ -169,7 +141,7 @@ Udemy, Ben Tristem, Sam Pattuzzi, Gavin Milroy | Unreal Engine C++ Developer: Le
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226351.jpg" />
 </div>
 
 
@@ -196,7 +168,7 @@ Janathan Daley | Creating Gameplay Systems using Blueprint Features in Unreal En
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225784.jpg" />
 </div>
 
 
@@ -222,7 +194,7 @@ Udemy, Jesse E. Agbe | Learn Streamlit Python (2020) PCRec [En / En Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225523.jpg" />
 </div>
 
 
@@ -249,7 +221,7 @@ Udemy, Tarkan Aguner | Python Real World Data Science Mega Project: Car Buyer Ap
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225325.jpg" />
 </div>
 
 
@@ -276,7 +248,7 @@ Lynda.com | Изучение HTML Canvas / Learning HTML Canvas (2018) PCRec [H.
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224955.jpg" />
 </div>
 
 
@@ -302,7 +274,7 @@ Udemy, Дмитрий Безуглый | React + Redux 2020, с нуля до п
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224722.jpg" />
 </div>
 
 
@@ -331,7 +303,7 @@ TeachMeSkills | iOS разработчик (2021) WEB-DL [AD]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224402.jpg" />
 </div>
 
 
@@ -358,7 +330,7 @@ Udemy, Никита Хохлов | Разработка Telegram ботов на
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224329.jpg" />
 </div>
 
 
@@ -384,7 +356,7 @@ Udemy, Исмаил Усеинов | Frontend разработчик на HTML, 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224279.jpg" />
 </div>
 
 
@@ -411,7 +383,7 @@ MonsterLessons, Александр Кочергин | Vue и Vuex - пишем �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223159.jpg" />
 </div>
 
 
@@ -438,7 +410,7 @@ Javabegin | Микросервисы на Spring Cloud (2022) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223128.jpg" />
 </div>
 
 
@@ -467,7 +439,7 @@ Slurm (Слёрм), Марсель Ибраев и др. | Kubernetes: Мега 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223084.jpg" />
 </div>
 
 
@@ -496,7 +468,7 @@ Lynda.com | Dreamweaver and WordPress: Building Sites (Dreamweaver и WordPress:
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221971.jpg" />
 </div>
 
 
@@ -524,7 +496,7 @@ Lynda.com | Dreamweaver and WordPress: Building Themes (Dreamweaver и WordPress
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221962.jpg" />
 </div>
 
 
@@ -552,7 +524,7 @@ OTUS, Владислав Родин | Супер-интенсив «СУБД в 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221412.jpg" />
 </div>
 
 
@@ -578,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221391.jpg" />
 </div>
 
 
@@ -606,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221288.jpg" />
 </div>
 
 
@@ -635,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221237.jpg" />
 </div>
 
 
@@ -662,7 +634,7 @@ IT Jane | Создание мобильных приложений с нуля �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220316.jpg" />
 </div>
 
 
@@ -690,7 +662,7 @@ Adrian Cantrill | AWS Certified DevOps Engineer - Professional (2022) WEB-DL [EN
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219848.jpg" />
 </div>
 
 
@@ -703,6 +675,34 @@ The AWS Certified DevOps Engineer is one of the most valuable and in-demand clou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFFA1F42699C92961DF595F89A00F714D1A015AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425705   (219576) от 21.11.2020
+
+Udemy, Dr. Angela Yu | 100 Days of Code - The Complete Python Pro Bootcamp for 2020 (2020) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на курс 100 Days of Code - The Complete Python Pro Bootcamp, единственный курс, который вам нужно научиться программировать с помощью Python. С более чем 100 000 отзывов и средней оценкой 4,8 мои курсы являются одними из САМЫХ ВЫСОКИХ РЕЙТИНГОВ в истории Udemy!
+
+100 дней, 1 час в день, научитесь строить 1 проект в день - вот как вы осваиваете Python.Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 56:28:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55D39614A52FD23A3E5538F5082D4CD480D9A1F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

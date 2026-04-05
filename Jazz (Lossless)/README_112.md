@@ -6,7 +6,7 @@ Duke Ellington - The Popular Duke Ellington (1966) 2017, Sony Music [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677293.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Duke Ellington - The Best of Duke Ellington (1941 - 1945) 2003, TIM [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677288.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Della Reese & Duke Ellington - On the Radio: The 1962 "Live" Guard Sessions (200
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677276.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Brian Bromberg - Compared to That (2012) [FLAC|Lossless]<Contemporary Jazz, Fusi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_677188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_677188.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Oscar Peterson Piano Solo - Tracks (1971) [FLAC|Lossless]<Piano Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_676805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_676805.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Howard Alden And Bucky Pizzarelli - In A Mellow Tone (2003) Concord Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676694.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Lars Gullin - First Walk, Vol.5 (1951, 1952) 2002, Dragon Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676684.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ VA - Milestones - Un incontro in Jazz (2007) [FLAC|Lossless|tracks + .cue] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676682.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Tim Bowman - Tim Bowman (2008) [FLAC|Lossless|image + .cue] <Smooth Jazz, Guitar
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676678.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Bo Kaspers Orkester - Hittills (1999) [FLAC|Lossless|tracks + .cue] <Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676598.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Tim Bowman - Smile (2000) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Guitar Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676408.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ VA - Bossa Nova for a Summer Day (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Lat
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676326.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Tony Bennett & Dave Brubeck - The White House Sessions, Live 1962 (2013) [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675541.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ The Bill Holman Band - Brilliant Corners: The Music of Thelonious Monk (1997) [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675310.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Papik - Cocktail Mina Vol.2 (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Soul,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675127.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Mads Vinding Trio - The Kingdom (Where Nobody Dies) (1998) Stunt Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675075.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ VA - Azure Ellington: Blue Note Plays the Duke (1998) Blue Note [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675074.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Duke Ellington - Columbia Jazz Profiles (1931 - 1960) 2008, Sony Music [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675072.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ The Three Sounds - Hey There (1961) Remaster, 2015, Universal[FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675003.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Duke Ellington & His Orchestra - Rotterdam 1969 (2016) Storyville Records[FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675002.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Tim Bowman - Love, Joy, Peace (1996) [FLAC|Lossless|tracks + .cue] <Smooth Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674816.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Tony Bennett - I Wanna Be Around (1963) 2011, Sony Music [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674780.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ The Chet Baker Quintet - In Concerto (1956) 1995, Nel Jazz [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674456.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ Lars Gullin - Silhouette, Vol.7 (1951 - 1953) 2005, Dragon Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674455.jpg" />
 </div>
 
 
@@ -720,7 +720,7 @@ Marie Bergman - Fruit (1996) Stunt Records [FLAC|Lossless|tracks + .cue] <Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674454.jpg" />
 </div>
 
 
@@ -749,7 +749,7 @@ Chick Corea - Expressions (1994) JRP Records [FLAC|Lossless|image + .cue] <Post-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673481.jpg" />
 </div>
 
 

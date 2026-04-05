@@ -1,3 +1,133 @@
+###  Публикация: 151276   (442093) от 17.08.2022
+
+Двенадцать месяцев (1956) DVDRip [Реставрация]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полнометражный цветной мультипликационный фильм по популярной русской сказке. Снежной холодной зимой, в январе, под вечер, когда люди сидят в домах, прислушиваясь к треску поленьев в печках, злая мачеха отправила свою падчерицу в лес, чтобы та набрала корзину подснежников. Бедной девочке ничего не оставалось делать, как исполнить прихоть мачехи...Производство: СССР, СоюзмультфильмЖанр: Детский, Сказка, Рисованная анимацияРежиссер: Иван Иванов-Вано, Михаил БотовАктеры: Эраст Гарин, Татьяна Барышева, Юлия Юльская, Людмила Касаткина и др.Субтитры: ОтсутствуютПродолжительность: 00:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:754825CDE6652E64AC5C6ED4A1CEF8EF94B18272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 391533   (442071) от 24.09.2011
+
+Айболит и Бармалей (1973) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442071.jpg" />
+</div>
+
+
+###  Подробнее
+
+По сказке Корнея Чуковского. О приключениях доброго доктора Айболита и злом разбойнике Бармалее.Жанр: Детский, КукольныйРежиссер: Наталия ЧервинскаяРоли озвучивают: Леонид Куравлёв, Клара Румянова, Юрий Соковнин, Гарри Бардин, Василий ЛивановПродолжительность: 00:15:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1142A733864529B994F949060063B0BDF0FB65B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164384   (441209) от 09.09.2017
+
+Динозавр / Dinosaur (2000) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441209.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трогательная история динозавра-игуанодона по имени Аладар, который воспитывался на острове в семье лемуров. Когда опустошительный метеоритный ливень разрушает их дома, Аладар вместе с лемурами и странствующими динозаврами отправился на поиски нового места жительства. Лицом к лицу с такими опасностями, как внезапные оползни и атакующие циранотавры, Аладар и его новые (   Читать дальше...   )Производство: Walt DisneyЖанр: Детский, Приключения, Компьютерная анимацияРежиссер: Зондаг Ральф, Лейтон ЭрикПерсонажи: Д. Б. Суини /D. B. Sweeney, Осси Дэвис /Ossie Davis, Джоан Плоурайт /Joan Plowright, Элфри Вудард /Alfre Woodard, Макс Каселла /Max Casella, Хэйден Панетиерри /Hayden Panettiere, Сэмуэл И. Райт /Samuel E. Wright, Джулианна Маргулис /Julianna Margulies, Питер Сирагуза /Peter SiragusaПеревод: ДублированныйСубтитры: русские, английские (полные)Продолжительность: 01:21:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C7025C2D358ACA9B932598D302E675FE40188F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164376   (441202) от 09.09.2017
+
+Беовульф / Beowulf (2007) BDRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма разворачивается в Дании VI века. Король Хротгар празднует завершение строительства медового зала — Хеорота. Звуки музыки и веселья пробуждают и злят монстра Гренделя, который нападает на праздновавших. Но когда Хротгар вызывает его на битву, чудовище возвращается к своей матери — демону воды. Король закрывает свой зал и предлагает половину своего (   Читать дальше...   )Производство: США | ImageMovers, Paramount PicturesЖанр: мультфильм (компьютерная анимация), фэнтези, боевик, драма, приключенияРежиссер: Роберт ЗемекисПерсонажи: Рэй Уинстоун, Энтони Хопкинс, Робин Райт, Джон Малкович, Криспин Гловер, Брендан Глисон, Анджелина Джоли, Костас Мэндилор, Пол Бэйкер, Джон БилезикджянПеревод: Дублированный (лицензия)Субтитры: Русские, английскиеПродолжительность: 01:54:42Реклама: Отсутствуют
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9BAA94A1A6AE9B043B2D39BA4B41F0A610FA0D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553688   (440474) от 29.09.2012
+
+Замбезия / Zambezia (2012) [H.264/1080p-LQ] [Hi10P] BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440474.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мультфильме рассказывается история жизни юного соколёнка по имени Кай, его приключения, характер, комичные ситуации в которые он попадает на пути к своей главной цели, на пути к заветному птичьему городку Замбезия, в котором он от всей души желает отыскать новых друзей, которые бы скрасили его одиночество и не оставили в беде. Однако для начала ему необходимо преодолеть (   Читать дальше...   )Производство: ЮАРЖанр: Комедия, МультфильмРежиссер: Уэйн ТонлиАктеры: Эбигейл Бреслин, Кори Бертон, Джим Каммингс, Норин ДеВулф, Ли Дуру, Джефф Голдблюм, Ричард Э. Грант, Таня Гунади, Сэмюэл Л. Джексон, Том КенниПеревод: ДублированныйЯзык субтитров: РусскийПродолжительность: 01:17:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71AE6AFD741D737C93F7A43E23FF259AC7F4E8B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 828641   (439883) от 06.10.2014
 
 Геркулес / Hercules (1997) Blu-Ray  [1080p]
@@ -6,7 +136,7 @@
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439883.jpg" />
 </div>
 
 
@@ -33,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439657.jpg" />
 </div>
 
 
@@ -59,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439649.jpg" />
 </div>
 
 
@@ -85,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439647.jpg" />
 </div>
 
 
@@ -111,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_439393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_439393.jpg" />
 </div>
 
 
@@ -138,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439369.jpg" />
 </div>
 
 
@@ -164,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439321.jpg" />
 </div>
 
 
@@ -190,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438775.jpg" />
 </div>
 
 
@@ -216,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438644.jpg" />
 </div>
 
 
@@ -242,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_438531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_438531.jpg" />
 </div>
 
 
@@ -268,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438283.jpg" />
 </div>
 
 
@@ -294,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438161.jpg" />
 </div>
 
 
@@ -320,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437968.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437920.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437919.jpg" />
 </div>
 
 
@@ -398,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437575.jpg" />
 </div>
 
 
@@ -424,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437565.jpg" />
 </div>
 
 
@@ -450,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437544.jpg" />
 </div>
 
 
@@ -476,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437048.jpg" />
 </div>
 
 
@@ -502,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436764.jpg" />
 </div>
 
 
@@ -528,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436670.jpg" />
 </div>
 
 
@@ -539,139 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC7AA003A0DF3772B5E3F185FA3209829BF84F56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554390   (436429) от 01.10.2012
-
-Короли и капуста  (1996) [H.264] DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веселый, запутанный, таинственный мюзикл для взрослых про происшествие в стране тайн, любви и цветов - Анчурии.
-По мотивам романа О. ГенриЖанр: Кукольный мультфильмРежиссер: Мария МуатПродолжительность: 00:51:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CABE7194E9D505602106FED18F597C0C63D748B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165043   (436387) от 11.09.2017
-
-Звёздный десант: Предатель Марса / Starship Troopers: Traitor of Mars (2017) HDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436387.jpg" />
-</div>
-
-
-###  Подробнее
-
-На колонизированном людьми Марсе жизнь течёт мирно и спокойно. В остальной Федерации марсиан считают недалёкими, и десантник Джон Рико уже тоже начинает сомневаться в способностях своего отряда - раз за разом команда проваливает на симуляторе миссии по уничтожению колонии жуков. И когда внезапно Марс атакуют полчища уже настоящих гигантских насекомых, отряду новичков (   Читать дальше...   )Производство: Япония, США | Lucent Pictures Entertainment, Sola Digital Arts, Stage 6 FilmsЖанр: Мультфильм, фантастика, боевикРежиссер: Синдзи Арамаки, Масару МацумотоПерсонажи: Каспер Ван Дин, Дина Мейер, ДеРэй Дэвис, Люси Кристиан, Джастин ДоранПеревод: Многоголосый закадровый (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:27:44Реклама: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2BF6478EB1D26E3840DB94B333C0951EAEE6343
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410418   (435959) от 21.09.2020
-
-История игрушек 2 / Toy Story 2 (1999) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ковбой Вуди и другие игрушки мальчика по имени Энди продолжают жить, радуясь каждому дню. Но неожиданно все меняется, когда Вуди похищает коварный коллекционер. Оказывается, что Вуди - очень ценная игрушка из коллекции, за которую японский музей игрушек готов заплатить огромную сумму. В доме коллекционера он находит своих родственников. В это время игрушки во главе (   Читать дальше...   )Производство: США / Walt Disney Pictures, Pixar Animation StudiosЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Джон Лассетер, Эш Браннон, Ли АнкричПеревод: Дублированный, многоголосый профессиональный, авторскийСубтитры: русскиеПродолжительность: 01:32:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D014A1DBEA89CCA0DCCDD6B4B6553A6B1E97B90E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397863   (435798) от 21.09.2020
-
-Кипо и Эра Чудесных Зверей / Kipo and the Age of Wonderbeasts (2020) WEBRip (сезон 2, серии 1-10 из 10) NewStation
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435798.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девочка по имени Кипо прожила всю жизнь в подземном убежище, но однажды она выбирается на поверхность и вместе с группой выживших отправляется в путешествие по постапокалиптической Земле.Производство: США, DreamWorks Animation TelevisionЖанр: Фэнтези, ПриключенияРежиссер: Чейз КонлиПеревод: Многоголосый профессиональный (NewStation)Субтитры: отсутствуютПродолжительность: ~00:24:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04763F97F59E1F06C125008A9E3CB7FA73AD0DEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410414   (435667) от 21.09.2020
-
-История игрушек / Toy Story (1995) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый ребенок верит, что когда он оставляет свои игрушки одни, они начинают заниматься своими делами. Этот мультипликационный фильм позволяет убедиться им в своей правоте.
-
-Основная идея фильма - каждая игрушка боится надоесть, стать забытой, замененной другой, так как весь смысл их существования - доставлять счастье своим хозяевам.Производство: США / Walt Disney Pictures, Pixar Animation StudiosЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Джон ЛассетерПеревод: Дублированный, многоголосый профессиональный, авторскийСубтитры: русскиеПродолжительность: 01:21:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B95CBA4EF94B126977C6A469E85FAF4822BF0404
 ```
 
 https://mybot314.ru/tekegram_catalog/

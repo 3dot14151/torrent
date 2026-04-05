@@ -1,3 +1,29 @@
+###  Публикация: 988539   (920015) от 20.02.2016
+
+mp3DirectCut 2.22 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшой редактор mp3 файлов. Позволяет обрезать тишину в начале и/или конце файла, нормализировать звук, а также плавно убирать его в конце композиции, объединять файлы, редактировать ID3-тэги и записывать mp3 непосредственно на диск.Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8F4146B1F026965681D64C7FF77EB716AB8840A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366424   (920008) от 13.03.2020
 
 Роскомнадзор изучает сети на предмет блокировки
@@ -6,7 +32,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920008.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Resident Evil 0 / biohazard 0 HD REMASTER (2016) [Ru/Multi] (1.0/dlc) Repack SEY
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919934.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Evernote Premium 7.6 [Ru/Multi] - Создание заметок
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919864.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ HUMANKIND (2021) [Ru/Multi] (1.0.01.0034-S10/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919863.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Parallels Desktop for Mac Business Edition 11.1.3 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919861.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Ctlos Linux Xfce v1.6.0 [x86-64] 1xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919751.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919732.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919558.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919496.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919024.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ Dr.Web CureIt! Updater 21.01.2017 by SlimRG [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918532.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ Crysis Warhead (2008) [Ru/En] (1.1.1.711) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918523.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918315.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918299.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918217.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ VA - ABC...Euro - Italo - Disco (378 CD) (2006-2015) [MP3|192-320 kbps]<Euro-Ita
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918211.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918208.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918113.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918107.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ SOMA (2015) [Ru/Multi] (19.02.2016) Repack R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918105.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ Sabayon 15.02 (KDE, XFCE, GNOME, SpinBase, Minimal) [amd64] 5xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917980.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917951.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917940.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917877.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ Depeche Mode - Delta Machine (Deluxe Edition) 2CD (2013) [FLAC|Lossless|tracks +
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917614.jpg" />
 </div>
 
 
@@ -653,32 +679,6 @@ Depeche Mode - Delta Machine (Deluxe Edition) 2CD (2013) [FLAC|Lossless|tracks +
 
 01 | Long Time Lie | 04:23
 02 | Happens All The Time | 04:20(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096843   (917201) от 25.01.2017
-
-В Южной Корее начата разработка сверхскоростного поезда, способного двигаться со скоростью, близкой к скорости звука
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Имеется достаточно большой шанс того, что в не очень отдаленном будущем в Южной Корее появится наземный железнодорожный транспорт, способный развивать скорость, близкую к скорости звука. Такой сверхскоростной поезд разрабатывается сейчас в государственном железнодорожном научно-исследовательском институте (Korea Railroad Research Institute, KRRI) по заказу правительства (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

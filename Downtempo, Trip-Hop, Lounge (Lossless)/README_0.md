@@ -6,7 +6,7 @@ VA - The Orient Collective: Golden Horizon (2026) [FLAC|Lossless|WEB-DL|tracks] 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054381.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Island Grooves: Chillout Your Mind (2026) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054236.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Breeze & Echoes: Chillout Your Mind (2026) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054014.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Best Chillout Music - Fashion Forward Edition (2025) [FLAC|Lossless|WEB-DL|
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053959.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - The Orient Collective: Oasis Dreams (2026) [FLAC|Lossless|WEB-DL|tracks] <W
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053213.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Relaxing Background Music for Spa & Lounge (2025) [FLAC|Lossless|WEB-DL|tra
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052855.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Chillout Reflections: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051862.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Metropolitan Chillhouse: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tr
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051316.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Velvet Lounge Bar: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051142.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - The Orient Collective: Sand & Silence (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049516.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Balearic Chill Out Winter 2026 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049425.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Chill Lounge del Mar 2026 (Café Chillout Playlist Compilation, Vol.9 - mix
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048939.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - The Orient Collective: Mystic Dunes (2025) [FLAC|Lossless|WEB-DL|tracks] <W
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048665.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - The Orient Collective: Oriental Sunrise (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048294.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Massive Attack - Heligoland (2010) Bonus Edition, 2010, Virgin Records [FLAC|Los
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048211.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - After Work Chill: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048163.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Schwarz & Funk - 25 Years (Chillhouse) (2025) [FLAC|Lossless|WEB-DL|tracks] <Chi
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047736.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - The Orient Collective: Sands Of Time (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047723.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - The Orient Collective: Echoes of the Pyramids (2025) [FLAC|Lossless|WEB-DL|
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047570.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Winter Chillout Lounge 2025 - Smooth Lounge Sounds for the Cold Season (202
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047560.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - The Orient Collective: Mystical Stories (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047498.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - 100% Ibiza (The Chill Out Closings 2025) (2025) [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046979.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ V.A. - Autumn Lounge Mix (2025) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046837.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ V.A. - Soothing Sounds: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046122.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Chill Out Vocal Trance 2023 [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downte
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045919.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - Lounge & Chill Out Moods, Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Chil
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045860.jpg" />
 </div>
 
 

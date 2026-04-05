@@ -6,7 +6,7 @@ Mystique (Трилогия)
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921499.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Minecraft Earth 0.14.0 + MOD [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921472.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VideoShow: Video Editor & Maker v8.7.3rc [Ru/Multi]  - видеоредакто�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921447.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Bornaria antivirus 1.5.81 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920768.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Drum Pad Machine - Beat Maker v2.2.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920568.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Meme Generator Pro v4.117 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920453.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Phone Booster Pro v8.4 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920451.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Ravic - Icon Pack v1.6.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920450.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Turbo Dismount v1.43.0 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920446.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Music Racer v21.0 + Mod [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920439.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Bitcoin Billionaire v4.10.3 + Mod (v4.4.1) [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920437.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Idle Miner Simulator - Tap Tap Bitcoin Tycoon v0.8.4 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920309.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Devo - Icon Pack v5.0.3 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920302.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ LEGO Star Wars: TCS + Mod v1.8.60 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920294.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ PC Architect Advanced Premium v1.6.2 build 218 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920146.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Door Kickers v1.1.14 + Mod [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920142.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ PC Simulator v1.5.6 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920132.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Zombie Shooter v3.1.5 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919986.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919898.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Audienza: Планирование встреч v1.0.8 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919150.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ TwitPanePlus for Twitter v11.6.3 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919148.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Downloader & Private Browser 2.4.18 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919139.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Lomotif Editor Pro v15 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919085.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919081.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919039.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Download Accelerator Plus v20190816 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918976.jpg" />
 </div>
 
 

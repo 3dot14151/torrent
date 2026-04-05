@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351417.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351399.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351302.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350991.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350945.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350841.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350821.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350733.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350702.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350429.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350413.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350023.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349848.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349568.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349565.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349440.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349168.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Robert Kirkman | Ходячие мертвецы / The Walking Dead [133 кни�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349026.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348997.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348963.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348871.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348865.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348816.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348608.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348416.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348228.jpg" />
 </div>
 
 

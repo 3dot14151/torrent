@@ -1,137 +1,3 @@
-###  Публикация: 1732595   (52159) от 25.06.2024
-
-Д.З. Каган | Решение основных задач линейной алгебры на языке R и Excel (2024) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52159.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии рассматриваются основные темы курса линейной алгебры, связанные с матричной алгеброй: матрицы, определители, методы решения систем линейных уравнений. Объясняются способы вычисления определителей нахождения обратной матрицы, ранга матрицы. Разбираются методы Гаусса, Крамера, обратной матрицы для решения систем уравнений.
-Для всех разделов приводятся (   Читать дальше...   )Жанр: Компьютерная литература, математикаИздательство: ПрометейФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACFAD7F54D9826699E062B7325338D66EB5C8EB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732563   (52148) от 25.06.2024
-
-С.В. Борзунов, С.Д. Кургалин | Задачи по дискретной математике с алгоритмами на Python. 2-е изд. (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52148.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебное пособие включены задачи и упражнения вузовского курса дискретной математики, включая разделы, связанные со спецификой информационно-коммуникационных технологий. В каждой главе приводятся теоретические сведения, необходимые для решения задач разного уровня сложности, ответы и во многих случаях подробные пояснения к решениям. Второе издание книги отражает (   Читать дальше...   )Жанр: Компьютерная литература, математикаИздательство: БХВ-ПетербургФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9A005DCC58A20928396245E3D9B4B7CA7EFB758
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732510   (52111) от 25.06.2024
-
-М.В. Гальперин | Электротехника и электроника (2020) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52111.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебнике рассмотрены электрические и электромагнитные поля, электрические цепи постоянного и переменного тока, трансформаторы, электрические машины и электропривод, передача и распределение электроэнергии, физические принципы действия, структуры и схемы включения полупроводниковых и фотоэлектронных приборов (диодов, тиристоров, биполярных и полевых транзисторов, (   Читать дальше...   )Жанр: ЭлектроникаИздательство: ИД «ФОРУМ»; ИНФРА-МФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3649B0AD6C59164C1F752E4B68369313FB319BA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732907   (51851) от 27.06.2024
-
-Е.В. Сысоев (редактор) | Военно-инженерное дело. Учебное пособие 1946 года (2023) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой курс военно-инженерного дела и предназначена в качестве учебного пособия для студентов гражданских строительных вузов. При освещении в книге основных вопросов военно-инженерного дела учтен опыт Великой Отечественной войны, в связи, с чем она может быть использована также и в качестве пособия для офицерского состава Красной Армии.Жанр: учебное пособиеИздательство: А.В. ВоробьевФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED318371B03C003EFD6A909E92321F8FB1A29DB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732973   (51838) от 27.06.2024
-
-М.Л. Рысин | Введение в современную Android-разработку на языке Java. [2 части] (2023) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие посвящено современным подходам к созданию Android-приложений.
-Показаны приѐмы разработки средствами языка высокого уровня Java в инструментальной
-среде  Android  Studio.  Приводятся  необходимые  теоретические  сведения  и  практические
-задания для самостоятельного освоения материала и организации практических занятий.(   Читать дальше...   )Жанр: Компьютерная литератураИздательство: МИРЭА – Российский технологический университетФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78D726A5652921EA7766002306D2D0385D7ED38D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1732899   (51822) от 27.06.2024
 
 Э. Гурса | Курс математического анализа [6 книг] (1933) [DJVU]
@@ -140,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51822.jpg" />
 </div>
 
 
@@ -166,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51690.jpg" />
 </div>
 
 
@@ -192,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51267.jpg" />
 </div>
 
 
@@ -218,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51238.jpg" />
 </div>
 
 
@@ -244,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51204.jpg" />
 </div>
 
 
@@ -271,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51177.jpg" />
 </div>
 
 
@@ -297,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51169.jpg" />
 </div>
 
 
@@ -325,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50988.jpg" />
 </div>
 
 
@@ -351,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50956.jpg" />
 </div>
 
 
@@ -377,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50888.jpg" />
 </div>
 
 
@@ -404,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50879.jpg" />
 </div>
 
 
@@ -431,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50775.jpg" />
 </div>
 
 
@@ -457,7 +323,7 @@ J.W. Rohen, C. Yokochi | Anatomy: A Photographic Atlas. Еighth edition (2016) [
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50689.jpg" />
 </div>
 
 
@@ -483,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50643.jpg" />
 </div>
 
 
@@ -509,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50595.jpg" />
 </div>
 
 
@@ -535,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50593.jpg" />
 </div>
 
 
@@ -561,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50590.jpg" />
 </div>
 
 
@@ -587,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50574.jpg" />
 </div>
 
 
@@ -614,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50555.jpg" />
 </div>
 
 
@@ -640,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50549.jpg" />
 </div>
 
 
@@ -666,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50542.jpg" />
 </div>
 
 
@@ -678,6 +544,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C784B41B9EF73FFD65EF79740331A76E38A046F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735881   (50458) от 10.07.2024
+
+М.В. Никольский | Shahed-136 и другие БПЛА Ирана. Ударные и разведывательные беспилотники (2023) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Беспилотные летательные аппараты (БПЛА) занимают исключительно важное место в структуре вооруженных сил Ирана и Корпуса стражей Исламской революции, а такого значения беспилотникам не придается даже в США и Израиле. Эта книга впервые во всех подробностях рассказывает обо всех типах иранских БПЛА самолетного типа и их богатом опыте боевого применения. Большая часть (   Читать дальше...   )Жанр: Учебно-справочное пособиеИздательство: Яуза-ПрессФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C74F27678783728FD1484AEF432FC6A51F53160
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735844   (50434) от 10.07.2024
+
+Н.К. Никифоров | Электронная аппаратура. Основные материалы и технологии микро- и наноэлектроники (2023) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассматриваются материалы и технологии, наиболее широко применяемые в микро- и наноэлектронике, изготовлении микросхем, микромодулей и блоков электронной аппаратуры.
+Для студентов электротехнических и радиотехнических специальностей и специалистов, занимающихся разработкой радиоэлектронной и силовой электронной аппаратуры.Жанр: ЭлектроникаИздательство: Инфра-инженерияФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9548C6B07BFCFDB407A14AE9E715131108F093BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733729   (50406) от 11.07.2024
+
+Книжная серия | Математическая библиотечка (1962 - 1974) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50406.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Математическая библиотечка» — серия из 8 книг издаваемая с 1962 по 1974 год. Книги рассчитаны на любителей математики, не имеющих специального математического образования.Жанр: МатематикаИздательство: НаукаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AC4EE5487E0019B75855FB68252D57A7E9677CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736259   (50385) от 11.07.2024
+
+Б.Н. Кутузов, Г.А. Нишпал | Технология и безопасность изготовления и применения взрывчатых веществ на горных предприятиях (2004) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приведены классификация и характеристики промышленных взрывчатых веществ (ВВ), изготавливаемых на горных предприятиях. Дана характеристика компонентов, изложены технологии приготовления и применения сухих гранулированных и водосодержащих взрывчатых веществ. Описано оборудование для приготовления и применения этих ВВ. Приведены сведения о ВВ, полученных из утилизированных (   Читать дальше...   )Жанр: Учебники и учебные пособия для вузовИздательство: Московский государственный горный университетФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E0A2B00654B977F498899EEEA8A26177CED2102
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736065   (50350) от 11.07.2024
+
+Ю.Б. Румер, М.С. Рывкин | Теория относительности (1960) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50350.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящей книге изложены основные положения и результаты теории относительности, а также важнейшие ее приложения (квантовая теория света, некоторые вопросы теории ускорителей, энергетика ядерных реакций и т.д.). Авторы стремились рассматривать сложные проблемы теории относительности исходя из широко известных элементарных процессов и законов физики (упругий и неупругий (   Читать дальше...   )Жанр: ФизикаИздательство: УчпедгизФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABB6CF4D343814AC511C3531307BB2B85594C141
 ```
 
 https://mybot314.ru/tekegram_catalog/

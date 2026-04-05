@@ -1,3 +1,162 @@
+###  Публикация: 1292343   (1033800) от 12.03.2023
+
+Громкая связь (2019) WEB-DL [H/264/1080p-LQ]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семеро друзей, собравшись в загородном доме, в шутку начинают игру — участники должны зачитывать вслух все приходящие им сообщения, а на звонки отвечать только по громкой связи. Они и представить себе не могут, какие удивительные откровения им предстоит сделать друг о друге.Производство: Россия / Марс Медиа Энтертейнмент, СтрелаЖанр: КомедияРежиссер: Алексей НужныйАктеры: Анастасия Уколова, Леонид Барац, Ирина Горбачёва, Ростислав Хаит, Мария Миронова, Камиль Ларин, Вероника Корниенко, Александр Демидов, Анастасия ЯсеваПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:35:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:138283A994FE5378D63D2EB29CD60FD51C736A80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444910   (1033633) от 05.02.2021
+
+«Совершенно новая» мобильная ОС Huawei оказалась клоном Android
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американский исследователь, пожертвовав приватностью, после двух дней ожидания с момента подачи заявки смог получить доступ к инструментам разработки для «совершенно новой» мобильной операционной системы Huawei Harmony OS 2.0. В ходе тестирования новинки специалист выяснил, что у нее очень много общего с Android. По его мнению, это и есть Android с минимальными правками.Harmony (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445224   (1033610) от 05.02.2021
+
+Минцифры предложило вывести данные о геолокации из-под действия тайны связи
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Министерство цифрового развития, связи и массовых коммуникаций предложило отменить действие охраны тайны связи на геоданные абонентов. Это следует из проекта поправок в закон «О связи» и пояснительной записки к нему, сообщает РБК.Ведомство предлагает вывести информацию о местоположении мобильных устройств из-под охраны тайны связи, что позволит силовикам получать (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438501   (1033594) от 05.02.2021
+
+Linux Mint 20.1 Ulyssa (XFCE, Mate, Cinnamon) [64bit] 4xDVD
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как сообщает OpenNet: представлен релиз дистрибутива Linux Mint 20.1, продолжающий развитие ветки на основе пакетной базы Ubuntu 20.04 LTS. Дистрибутив полностью совместим с Ubuntu, но существенно отличается подходом к организации интерфейса пользователя и подбором используемых по умолчанию приложений. Разработчики Linux Mint предоставляют десктоп-окружение, соответствующее (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01D158C3429D8390C33391B2694AA9E3FE909C1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444743   (1033593) от 05.02.2021
+
+Microsoft рассказала о последствиях «убийства» Windows 7
+
+>>3
+>>13
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прекращение поддержки Windows 7 вызвало череду обновлений на более современные ОС. Об этом сообщает издание Softpedia со ссылкой на материалы Microsoft.В заявлении корпорации, связанном с публикацией квартального финансового отчета, отмечается успех новых операционных систем. По словам журналистов, Microsoft положительно оценивает востребованность Windows 10 после (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594710   (1033571) от 13.03.2023
+
+Windows 11 Enterprise x64 Micro 22H2 build 22621.900 by Zosma[Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1033571.jpg" />
+</div>
+
+
+###  Подробнее
+
+Максимально облегченная сборка основана на официальном образе Microsoft:
+ru-ru_windows_11_business_editions_version_22h2_updated_nov_2022_x64_dvd_bf0f2f9b
+В сборке используется загрузчик на основе модифицированных ядер WinPe 10 от Xemom1 & korsak7.
+Удалены компоненты связанные с шпионством и отправкой телеметрии.(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92FA041783ABBD8A0F539F288B92F75F34A99ADD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445411   (1033431) от 06.02.2021
 
 Очередное достижение: 1000 релизов от sanekakula!
@@ -6,7 +165,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033431.jpg" />
 </div>
 
 
@@ -33,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033374.jpg" />
 </div>
 
 
@@ -59,7 +218,7 @@ Nioh 2 (2021) [Ru/Multi] (1.25) License CODEX [Complete Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033340.jpg" />
 </div>
 
 
@@ -85,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033336.jpg" />
 </div>
 
 
@@ -111,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033331.jpg" />
 </div>
 
 
@@ -137,7 +296,7 @@ WinPE 11 Sergei Strelec x64 2023.03.14 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033320.jpg" />
 </div>
 
 
@@ -163,7 +322,7 @@ Avira Phantom VPN Pro 2.37.1.24458 (06.02.2021) RePack by elchupacabra [Multi/Ru
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033106.jpg" />
 </div>
 
 
@@ -189,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033097.jpg" />
 </div>
 
 
@@ -215,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033092.jpg" />
 </div>
 
 
@@ -241,7 +400,7 @@ Wondershare Filmora 10.1.20.16 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033091.jpg" />
 </div>
 
 
@@ -267,7 +426,7 @@ ESET NOD32 Antivirus/Internet Security/Internet Security(Для всех уст�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033090.jpg" />
 </div>
 
 
@@ -293,7 +452,7 @@ BELOFF 2021 (Авторская раздача)
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1033089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1033089.jpg" />
 </div>
 
 
@@ -319,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033088.jpg" />
 </div>
 
 
@@ -345,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033075.jpg" />
 </div>
 
 
@@ -371,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032862.jpg" />
 </div>
 
 
@@ -397,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032844.jpg" />
 </div>
 
 
@@ -423,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032838.jpg" />
 </div>
 
 
@@ -449,7 +608,7 @@ NordVPN безвозмездно открыла доступ к своему ч�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032835.jpg" />
 </div>
 
 
@@ -475,7 +634,7 @@ Dungeon ni Deai o Motomeru no wa Machigatteiru Darou ka? IV / Danmachi IV / Мо
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032830.jpg" />
 </div>
 
 
@@ -502,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032827.jpg" />
 </div>
 
 
@@ -513,162 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05DDF93C7D5D59E7252F36BA1EBC15DF0CF74EEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606202   (1032824) от 16.03.2023
-
-Одни из нас / The Last of Us (2023) WEB-DL [H.264/720p] (сезон 1, серии 1-9 из 9) Red Head Sound, Lostfilm, Jaskier, Dubbing-Pro, HDrezka, NewComers, TVShows, LineFilm
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация культовой видеоигры. Человечество столкнулось с грибковой пандемией. Заражённые превращаются в зомби, выжившие борются за ресурсы воцарившегося постапокалипсиса. Контрабандист Джоэл получает задание вывести из карантинной зоны 14-летнюю Элли, чей иммунитет к болезни может помочь в разработке вакцины.Производство: Канада, США / HBO, Naughty Dog, PlayStation ProductionsЖанр: ужасы, фантастика, боевик, драмаРежиссер: Али Аббаси, Джереми Уэбб, Нил ДракманнАктеры: Педро Паскаль, Белла Рэмси, Гэбриел Луна, Ник Офферман, Кон О`Нилл, Мерл Дэндридж, Джеффри Пирс, Анна Торв, Мюррэй Бартлетт, Марли Грэйс БекерПеревод: Дублированный (Red Head Sound), Многоголосый профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full)Продолжительность: ~00:55:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B77BDED82A9CF844CED045E906C2506C462150A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605008   (1032823) от 16.03.2023
-
-Одни из нас / The Last of Us (2023) WEB-DL [H.265/2160p] [4K, HDR10, 10-bit] (сезон 1, серии 1-9 из 9) RHS, Dubbing-Pro, LineFilm, HDrezka, Кашкин, Цікава Ідея
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032823.jpg" />
-</div>
-
-
-###  Подробнее
-
-Закалённый в борьбе за выживание Джоэл и Элли — отважная, не по годам смышлёная девушка-подросток — вынуждены объединиться и помогать друг другу в странствиях по руинам Соединённых Штатов.Производство: Канада, США / Naughty Dog, PlayStation Productions, Sony Pictures TelevisionЖанр: ужасы, фантастика, боевик, драмаРежиссер: Али Аббаси, Джереми Уэбб, Нил ДракманнАктеры: Педро Паскаль, Белла Рэмзи, Анна Торв, Ламар Джонсон, Мелани Лински, Нико Паркер, Мерл Дэндридж, Keivonn Woodard, Джеффри Пирс, Джон ГецПеревод: дублированный (RHS), многоголосый (Dubbing-Pro, LineFilm, HDrezka, Цікава Ідея, DniproFilm, BaibaKo), авторский (Кашкин)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH), украинские (Forced)Продолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAEC628936BE0C9982F51476013FC75EDAF16D49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445359   (1032816) от 08.02.2021
-
-Apple патентует кабель, который не ломается у коннектора
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Apple подала заявку на патент на кабель зарядки, который не ломается у коннектора благодаря использованию материалов различной жёсткости в защитном слое, говорится на сайте Ведомства по патентам и товарным знакам США.Apple признаёт, что изгиб кабеля вблизи коннектора вызывает излишнее напряжение в соединении проводов, что приводит к выходу кабеля из строя. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443315   (1032804) от 08.02.2021
-
-Windows 10 20H2 (19042.746) x64 Home + Pro + Enterprise (3in1) by Brux v.01.2021 [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка windows 10 выполнена на основе оригинальных образов Microsoft Windows 10.0.19042.746 Version 20H2 (January 2021 Update) (MSDN) и содержит три редакции ОС в одном образе. Предназначена как для домашних пользователей, так и для рабочих станций, где требуется минимальное отклонение от оригинала. Все изменения в сборке производились исключительно при помощи DISM. (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED1E776426C37A380DD532E34D75CD2261B18FCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444809   (1032801) от 08.02.2021
-
-Обратная связь (2020) WEBRip [H.264/1080p-LQ] [PR]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032801.jpg" />
-</div>
-
-
-###  Подробнее
-
-31 декабря семеро друзей вновь собираются в загородном доме, чтобы вместе встретить Новый год, но предновогодний вечер полон сюрпризов.Производство: Россия / АМЕДИА, Марс Медиа Энтертейнмент, СтрелаЖанр: КомедияРежиссер: Алексей НужныйАктеры: Леонид Барац, Ирина Горбачева, Ростислав Хаит, Мария Миронова, Камиль Ларин, Анастасия Уколова, Александр ДемидовПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:36:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE75C0603158BCE831F20733115EFCEF9B67177E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362201   (1032799) от 08.02.2021
-
-КВН-2020. Высшая лига (2021.02.07) SATRip
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что такое КВН, знают, без сомнения, все. В КВН играют во всем мире, это прежде всего молодежная игра. Постоянные конкурсные задания: "Визитная карточка", "Разминка", "Конкурс капитанов", "Музыкальный конкурс", "Домашнее задание". Игру команд оценивает профессиональное жюри — люди, у которых с чувством юмора все в (   Читать дальше...   )Телекомпания: Первый каналЖанр: ЮморПродолжительность: 01:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13686E967AD50AFC32DBDB824E21ED54558F5FF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1365636   (928558) от 08.03.2020
+
+Middle-earth: Shadow of War / Средиземье: Тени войны (2017) [Ru/Multi] (1.21/dlc) Repack xatab [Definitive Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Средиземье: Тени войны продолжает историю следопыта Талиона и призрака Келебримбора. Ныне им предстоит проникнуть в тыл вражеской армии и обратить силы Мордора против самого Темного Властелина. События игры продолжают сюжет первой главы серии и относятся к периоду времени между «Хоббитом» и «Властелином колец».Тип издания: RepackРазработчик: Monolith ProductionsЖанр: Action, RPG, 3D, 3st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE266603EBBB0B6B3DA215231706E76DB3A594A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984924   (928543) от 15.02.2016
 
 М.П. Кулакова, М.М. Кулакова (ред.) | Библия [Книги Священного Писания Ветхого и Нового Завета в современном русском переводе] (2015) [DJVU, FB2]
@@ -6,7 +32,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928543.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928431.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Wolfenstein The Old Blood (2015) [Ru/Multi] (1.0.0.1464/upd1) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928422.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928398.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Navitel / Навител Навигатор 9.7.2172 Full [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928397.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928396.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928048.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ Max Payne 2: The Fall of Max Payne (2003) [Ru/En] (1.01) Repack R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928044.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927735.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ Halo Legends / Легенды Halo [2010, OVA, 8 of 8 ep.] BDRip 720p raw + rus
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927667.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ CRAM - новый робот-таракан, способный "просачи�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927596.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927325.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ Acronis True Image 2017 New Generation Build 6116 BootCD [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927206.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927196.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927192.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ Opera 12.18 Build 1872 (32bit) / 1873 (64bit) Final Portable by PortableAppZ [Mu
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927177.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927174.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927171.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926744.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ OTUS | Linux для начинающих (2019) PCRec [H.264/1080p-LQ]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926605.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926523.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926502.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926074.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ City Navigator Russia NT 2013.40 [Карта] (Garmin)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926039.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ Sword Art Online -Infinity Moment- [PSP] [JPN] (2013)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_926034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_926034.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ Sword Art Online -Infinity Moment- [PSP] [JPN] (2013)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0304F263D0C194507DB26BFBEDEA8A345C7AAAC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613829   (926029) от 16.03.2013
-
-Dead Space 3 (2013) [Ru/En] (1.0.0.1/3dlc) Repack R.G. Revenants [Limited Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926029.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Dead Space 3 Айзек Кларк и суровый солдат Джон Карвер отправляются в космическое путешествие, чтобы узнать о происхождении некроморфов. После жесткой посадки на ледяной планете Тау Волантис Айзек прочесывает окрестности в поисках материалов и деталей, чтобы создать и модифицировать оружие и средства выживания. У Айзека есть возможность навсегда покончить с некроморфами, но для этого нужно пережить лавины, восхождения на ледяные вершины и другие опасности замерзшей планеты. Враги сильны как никогда, но бороться за выживание человечества можно не только в одиночку, но и вместе с другом. В каждом режиме есть свои сюжетные и геймплейные нюансы, а новая технология позволяет быстро войти и выйти из многопользовательской игры.(   Читать дальше...   )Тип издания: LossLess RePackРазработчик: Visceral GamesЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4741C69E329D56511CD78526984D87FCC9EBBBA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

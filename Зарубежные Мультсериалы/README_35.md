@@ -1,3 +1,55 @@
+###  Публикация: 839581   (341591) от 09.11.2014
+
+Лего. Подружки из Хартлейк Сити / Lego: Friends (2012-2014) WEB-DLRip (1 сезон: 1-6 серии + Бонусы)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341591.jpg" />
+</div>
+
+
+###  Подробнее
+
+На озере в форме сердца расположен маленький замечательный город Хартлейк Сити. Здесь и живут наши подружки Андреа, Эмма, Оливия, Мия, Стефани. Героини очень разные по характеру, взглядами, интересами. Но не смотря на это они крепко дружат, находят взаимопонимание, поддерживают друг друга. У них много друзей, увлечений, каждая из героинь имеет свою точку зрения на (   Читать дальше...   )Жанр: Мультсериал, приключения, романтика, комедияРежиссер: Педер ПедерсенАктеры: Рич Баклойд, Ракель Кристиана, Джессика Ги, Тейлор Генри, Венди Ли, Софи РобертсПеревод: ДублированныйПродолжительность: Каждая серия х 00:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83154142BA4A357713062FF55A5652FD65D2042B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 411122   (340484) от 15.11.2011
+
+Том и Джерри / Tom and Jerry (1940-1945) BDRip [720p] (Часть 1)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кот Том и мышонок Джерри вызывали смех и покоряли сердца детей и взрослых всего мира на протяжении десятилетий. До сих пор эти два мультгероя-суперзвезды с неизменным успехом поражают зрителей своим мастерством перевоплощения, новыми изобретательными трюками и розыгрышами. Следите за уморительными проделками этой неуловимой парочки в первоклассной коллекции незабываемых (   Читать дальше...   )Жанр: Рисованная анимация, Детский, КомедияРежиссер: Джозеф Барбера, Ханна УильямПерсонажи: Том и ДжерриПеревод: Профессиональное (многоголосое)Продолжительность: 20 серий по ~00:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA7E3F9A0C62D886B9B945C64D451AEAE6AA5474
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 475532   (339376) от 26.11.2012
 
 Шоу Луни Тюнз / The Looney Tunes Show (2011-2012) (Сезон: 1, Серии: 1-26 из 26) WEB-DL [H.264/720p-LQ] [Обновляемая]
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_339376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_339376.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ LEGO Ниндзяго: Мастера кружитцу / LEGO Ninjago: Masters o
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339171.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ LEGO Ниндзяго: Мастера кружитцу / LEGO Ninjago: Masters o
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339066.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338128.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336243.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335438.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_335044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_335044.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335038.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_335029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_335029.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334832.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334299.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334228.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334170.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334157.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334083.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333186.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330825.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330314.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330296.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330159.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329243.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_327540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_327540.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324209.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323048.jpg" />
 </div>
 
 
@@ -621,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7B62E569A47905E669E05CE6DDC7EECCFF2004C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957413   (321496) от 22.11.2015
-
-Робоцып / Robot Chicken (2011) WEB-DLRip (5 сезон, 20 серий из 20) [КетчупТВ]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321496.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новом, 5 сезоне Робоцыпа - Всеми любимые герои комиксов, такие как Бэтмен, Халк и супермен живут в одном доме. Всё это мог придумать только воспалённый куриный мозг с буйной фантазией. Сумасшедший профессор заменил одно крыло цыпленка на стальное, заменил его ногу на металлическую, а глаз – на лазерный. Получившийся киборг, был усажен перед миллионами телезрителей (   Читать дальше...   )Производство: СШАЖанр: Фантастика, пародия, мультфильмРежиссер: Крис МакКэйк, Мэттью СенрейчПеревод: Одноголосый закадровый, профессиональныйОзвучка / Автор перевода: КетчупТВПродолжительность: 20 серий по 00:11:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B3429AE5512D7D54E8305C4D9C77B85EF420B44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 416773   (321184) от 29.11.2011
-
-Клуб Винкс СпецВыпуски (3 серия из 4) / Winx club Specials 2011 SATRip [H.264]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321184.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Winx Club:The Battle for Magix» - третий одночасовой спецвыпуск мультсериала «Winx club» от канала Никелодион. («Winx Club: One Hour Special Nick»). Третий спецвыпуск кратко пересказывает события, происходящие в конце сезона сериала. В общем целом, мы не видим особых изменений в сюжетной линии.. Также можно отметить небольшую разницу в графике, измененную концовку по сравнению с оригиналом, замену опенинга и эндинга.Жанр: Анимационный, Приключения, СемейныйРежиссёр: Иджинио Страффи (Iginio Straffi)Перевод: Профессиональный (дублированный)Формат: MKVПродолжительность: 00:45:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93932FCEC46AF22ED1964D1A5962B20464081810
 ```
 
 https://mybot314.ru/tekegram_catalog/

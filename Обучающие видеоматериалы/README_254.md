@@ -1,3 +1,31 @@
+###  Публикация: 1673886   (162690) от 03.11.2023
+
+Udemy, 3D Tudor | Blender Beginner’s Bootcamp (2023) WEB-DL [AD] [EN, RU / EN, RU Sub]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы хотите овладеть искусством 3D-моделирования в Blender?
+
+Обратите внимание на наш курс "Blender Beginner's Bootcamp", где мы проведем вас через все этапы процесса создания 20 проектов, охватывающих широкий спектр тем, и гарантируем, что вы покинете этот курс с богатым багажом знаний и уверенностью в себе, чтобы с головой окунуться в мир 3D-моделирования. (   Читать дальше...   )Производство: UdemyЖанр: Обучающий курсЯзык озвучки: Английский, РусскийПродолжительность: 13:02:55Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF68D24E469D2C927AABE268CC81D81422FFEB09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1432716   (162638) от 18.12.2020
 
 Полина Ишханова | Портрет карандашом-New (2020) HDTVRip
@@ -6,7 +34,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162638.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ Skillbox, Марина Брагинская и др. | Декорировани�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162520.jpg" />
 </div>
 
 
@@ -63,7 +91,7 @@ Udemy, Visadi Khalikov | Этичный хакинг с Metasploit для нач
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162508.jpg" />
 </div>
 
 
@@ -89,7 +117,7 @@ Gumroad, Duard Mostert | AAA Game Assets with Fusion 360 Tutorial (2021) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162488.jpg" />
 </div>
 
 
@@ -116,7 +144,7 @@ XYZ School, Женя Пак | Hard Surface (2020) HDTVRip
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162477.jpg" />
 </div>
 
 
@@ -144,7 +172,7 @@ Udemy, Mrawan Hussain | BLENDER: Learn how to create the military Black Hornet d
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162260.jpg" />
 </div>
 
 
@@ -170,7 +198,7 @@ Skillbox, Андрей Котельников, Никита Акулич | По�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162228.jpg" />
 </div>
 
 
@@ -198,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162197.jpg" />
 </div>
 
 
@@ -224,7 +252,7 @@ Kalachevaschool, Виктория Акулова | Эмоциональная а
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162135.jpg" />
 </div>
 
 
@@ -253,7 +281,7 @@ PBS, Джозеф Кэмпбелл, Билл Мойерс | Сила Мифа (1
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162128.jpg" />
 </div>
 
 
@@ -279,7 +307,7 @@ Schoolism, Thomas Fluharty | Oil Painting (2016) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162074.jpg" />
 </div>
 
 
@@ -305,7 +333,7 @@ KkartSchool, Карина Кино | Создание книги (2023) WEB-DL [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162055.jpg" />
 </div>
 
 
@@ -331,7 +359,7 @@ Schoolism, Jonathan Hardesty | Essentials of Realism (2016) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162044.jpg" />
 </div>
 
 
@@ -360,7 +388,7 @@ Schoolism, Jason Seiler | Realistic Portraits (2018) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162037.jpg" />
 </div>
 
 
@@ -386,7 +414,7 @@ Schoolism, Djamila Knopf | Story-Driven Illustrations (2019) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162030.jpg" />
 </div>
 
 
@@ -412,7 +440,7 @@ New Masters Academy, Glenn Vilppu | Многофигурная композиц�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161964.jpg" />
 </div>
 
 
@@ -439,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161956.jpg" />
 </div>
 
 
@@ -468,7 +496,7 @@ Schoolism, Craig Mullins | Painting Sci-Fi from Start to Finish (2020) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161950.jpg" />
 </div>
 
 
@@ -494,7 +522,7 @@ Learn Squared, Pablo Dominguez | Vehicle Concept Art (2020) PCRec [EN, ES]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161899.jpg" />
 </div>
 
 
@@ -520,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161827.jpg" />
 </div>
 
 
@@ -548,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161817.jpg" />
 </div>
 
 
@@ -577,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161815.jpg" />
 </div>
 
 
@@ -603,7 +631,7 @@ Cubebrush, Marc Brunet | ULTIMATE Guide Drawing The Human Anatomy (2019) WEB-DLR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161800.jpg" />
 </div>
 
 
@@ -629,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161750.jpg" />
 </div>
 
 
@@ -658,7 +686,7 @@ Study Kvo, Саня Кво | Марафон по UX UI дизайну мобил
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161747.jpg" />
 </div>
 
 
@@ -672,35 +700,6 @@ Study Kvo, Саня Кво | Марафон по UX UI дизайну мобил
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B8B6E5C8CFD6D42470E9A19D814295ACE58BA8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674189   (161725) от 04.11.2023
-
-Udemy, Luis Ramirez Jr | Complete Modern PHP Developer Course in 2023 (2023) WEB-DL [AD] [EN, RU / EN, RU Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161725.jpg" />
-</div>
-
-
-###  Подробнее
-
-PHP - один из самых популярных языков программирования в мире. На нем работает весь современный Интернет. Он обеспечивает миллионы высокооплачиваемых рабочих мест по всему миру.
-
-Поэтому вы тоже хотите изучать PHP. И вы пришли по адресу!
-(   Читать дальше...   )Производство: UdemyЖанр: Обучающий курсЯзык озвучки: Английский, РусскийПродолжительность: 23:35:31Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C4AEF99C83A56ACF9EE437CDC44D5861B04EE43
 ```
 
 https://mybot314.ru/tekegram_catalog/

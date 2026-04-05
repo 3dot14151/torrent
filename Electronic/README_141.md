@@ -1,3 +1,61 @@
+###  Публикация: 1203246   (788608) от 01.02.2018
+
+Krama - Made in Dancefloors (2018) [MP3|320 Kbps] <Psy-Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neelix & Caroline Harrison – Makeup (Krama Remix)
+02. Krama & Linimi – Made in Dancefloors (Original Mix)
+03. Krama & Normalize – Hexapole (Original Mix)
+04. Krama – Master of Elements (Extended Mix)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:00:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E92BB2E7CCD63BC9DCE9BE03664951E2521C3B6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203336   (788603) от 01.02.2018
+
+IAMX - Alive In New Light (2018) [MP3|320 Kbps] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stardust
+02. Alive In New Light
+03. Break the Chain
+04. Body Politics(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:40:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9164C859E3386B3C5B67368BFB1B89985C56196
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511766   (788367) от 22.11.2021
 
 VA - Fitness Unlimited 2021 Made For Workout & Running [MP3|320 Kbps] <House>
@@ -6,7 +64,7 @@ VA - Fitness Unlimited 2021 Made For Workout & Running [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788367.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Suanda Music Radio Top 25 (January / February) (2018) [MP3|320 Kbps] <Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788239.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Gym Floor Energy 2019 [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788229.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Markus Schulz - Global DJ Broadcast - World Tour Los Angeles (2019) [MP3|32
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788228.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Reanimate Music Volume 1 (Mixed by Somna) (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788227.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Maayan Nidam - Sea of Thee (2018) [FLAC|Lossless|tracks + .cue] <Tech House, Dee
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788226.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Best Of Trancer 2018 (Mixed by Nick Turner) (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788223.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Markus Schulz - Global DJ Broadcast - New Year's Rehab (2019) [MP3|320 Kbps
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788221.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Big Party: EDM Anthems (2018) [MP3|320 Kbps] <House, Melbourne Bounce, Club
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788217.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Markus Schulz - Global DJ Broadcast 2 Hour Mix (2018) [MP3|320 Kbps] <Tranc
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788211.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Arabian Shisha Lounge Vol.3 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788207.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Drinks at Sunset, Vol. 3 (2019) [MP3|320 Kbps] <Electro, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788198.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Winter Sessions 2019 (Mixed by Milk and Sugar) (2019) [MP3|320 Kbps] <House
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788192.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Ori Uplift - Uplifting Only 260 (incl. Vocal Trance) (2018) [MP3|320 Kbps] 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788178.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Klaada - Breaking The Cycle (2018) [MP3|320 Kbps] <Balearic,Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788169.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Armin Van Buuren & Gareth Emery & Ashley Wallbridge - A State of Trance 850
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788132.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Armin Van Buuren and Above & Beyond - A State of Trance Episode 850 (Part 1
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788130.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ François X (Francois X) - Irregular Passion (2017) Dement3d [FLAC 2.0|44.1/24|t
 >>Trance, House, Techno (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788127.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Pill-Oh (Zinovia) - Vanishing Mirror (2012) Kitchen. Label [FLAC|Lossless|WEB-DL
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787973.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Valentines Day Collection, King Street Sounds, 25 Years Essentials (2018) [
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787913.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Voskoley - Uninhabited Planet (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787731.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - EDM Dance For Valentines Day (2018) [MP3|320 Kbps] <House, Nu Disco, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787729.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Trance Favorites Episode #011 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787721.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Known Rebel - Discography 4 Releases (2010-2014) [FLAC|Lossless|tracks+.cue, tra
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787719.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Known Rebel - Discography 4 Releases (2010-2014) [FLAC|Lossless|tracks+.cue, tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D75FFF2571CE3084ED0859AAEDA2186286B0ABE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203631   (787717) от 03.02.2018
-
-VA - Relax Culture Vol.1 (2018) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Cayo Largo  -  I Don't Need Your Number (Original Mix)  3:55
-02.  Eguana  -  Puddles Of Autumn (Original Mix)  5:07
-03.  D. Batistatos  -  This Road (Original Mix)  5:32
-04.  GMO & Dense  -  Into A New Dimension (Original Mix)  7:36(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:13:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3A70A385083CF35F7C94AA2CCFD3D1A1D60380C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203630   (787715) от 03.02.2018
-
-VA - Late Night Disco House, Vol. 1 (2018) [MP3|320 Kbps] <House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Nothlich - Need You 04:13
-02. Jonse - Paradise 06:54
-03. Julian MC Cain - Dark Side 06:42
-04. Soulful-Cafe - Hey Baby Baby 03:10(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 02:59:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:490239B99EB655D16E82567043CEC4D6BD087EB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

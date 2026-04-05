@@ -1,164 +1,3 @@
-###  Публикация: 1841200   (1047860) от 09.12.2025
-
-Е.Ю. Хрусталева | 1С:Аналитика. BI-система в «1С:Предприятии 8» (2021) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга адресована широкому кругу читателей: менеджерам, аналитикам и специалистам по внедрению прикладных решений на платформе «1С:Предприятие». С ее помощью можно освоить новый механизм «1С:Аналитика». Он предоставляет пользователям прикладных решений дополнительный визуальный интерфейс, позволяющий быстро строить аналитические отчеты и оперативно анализировать данные (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: 1С-ПаблишингФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA6B84F51B0C60E4A9AE46890A5230D6376D14D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841206   (1047857) от 14.12.2025
-
-Фабрицио Романо, Генрих Крюгер | Весь Python. Самое актуальное и исчерпывающее руководство [4-е издание] (2026) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047857.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всеобъемлющее современное руководство по программированию на Python, охватывающее фундаментальные идеи и практические приемы!
-Вы научитесь писать собственные программы и получите четкое представление о том, куда двигаться дальше и как использовать полученные знания. Изучение Python подкреплено практикой — огромным количеством примеров приложений. К концу книги вы (   Читать дальше...   )Жанр: ПрограммированиеИздательство: Спринт БукФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3913DE72D9F8D1A18DE2D89DA9E8348A7E34F6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840854   (1047581) от 07.12.2025
-
-Евгений Моргунов | PostgreSQL. Профессиональный SQL (2025) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы научитесь:
-- понимать план выполнения и писать эффективные запросы;
-- применять встроенные оконные и статистические функции;
-- расширять функциональность сервера собственными функциями и процедурами;(   Читать дальше...   )Жанр: Базы данныхИздательство: Postgres ProfessionalФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01F929AA45C324E3D0CA1F21EC795E2087722936
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840640   (1047514) от 06.12.2025
-
-Джозеф Албахари | С# 12. Справочник. Полное описание языка (2024) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047514.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом уже ставшем бестселлером руководстве читатель найдет все необходимые ответы на разнообразные вопросы по языку C# 12 или библиотекам .NET 8. Язык C# обладает замечательной гибкостью и широким размахом, но такое непрекращающееся развитие означает, что по-прежнему есть многие вещи, которые предстоит изучить. В соответствии с традициями справочников O'Reilly это (   Читать дальше...   )Жанр: ПрограммированиеИздательство: ДиалектикаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26C503C839C0452897B5D93E641283872F261E17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840467   (1047425) от 05.12.2025
-
-Реувен Лернер | Python: Pandas на практике. 200 упражнений по анализу данных с решениями и пояснениями (2025) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сегодня трудно представить аналитика данных, не пользующегося библиотекой Pandas, но в тонкостях работы с ней немудрено запутаться. В этой книге собраны упражнения, основанные на многолетней преподавательской практике автора. Прочитав ее, вы будете чувствовать себя уверенно при встрече с недостатками реальных данных в виде пропущенных значений, смешанных форматов (   Читать дальше...   )Жанр: Анализ данныхИздательство: ДМК ПрессФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44FBDB6183A5FA93D25D5E43674B97F3D1F2C869
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840468   (1047424) от 05.12.2025
-
-Ханспетер Мёссенбёк | Конструирование компиляторов (2025) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047424.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассматриваются практические основы конструирования компиляторов – от лексического и синтаксического анализа до семантической обработки и генерирования кода. В качестве сквозного примера описан и реализован компилятор простого Java-подобного языка программирования (MicroJava). Навыки
-конструирования компиляторов найдут применение всюду, где есть структурированные (   Читать дальше...   )Жанр: ПрограммированиеИздательство: ДМК ПрессФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E4D3379AE250C8965B59FCD34307CDBEE2B9DA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840350   (1047296) от 04.12.2025
 
 Л.А. Залогова | Разработка Паскаль-компилятора [5-е издание] (2021) [PDF]
@@ -167,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047296.jpg" />
 </div>
 
 
@@ -195,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047293.jpg" />
 </div>
 
 
@@ -223,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047292.jpg" />
 </div>
 
 
@@ -250,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047291.jpg" />
 </div>
 
 
@@ -276,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047268.jpg" />
 </div>
 
 
@@ -302,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047267.jpg" />
 </div>
 
 
@@ -328,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047195.jpg" />
 </div>
 
 
@@ -355,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047194.jpg" />
 </div>
 
 
@@ -381,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047190.jpg" />
 </div>
 
 
@@ -407,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047187.jpg" />
 </div>
 
 
@@ -433,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047186.jpg" />
 </div>
 
 
@@ -459,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047184.jpg" />
 </div>
 
 
@@ -485,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047149.jpg" />
 </div>
 
 
@@ -512,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047094.jpg" />
 </div>
 
 
@@ -538,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1047028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1047028.jpg" />
 </div>
 
 
@@ -565,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1047019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1047019.jpg" />
 </div>
 
 
@@ -592,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046987.jpg" />
 </div>
 
 
@@ -619,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046812.jpg" />
 </div>
 
 
@@ -645,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046770.jpg" />
 </div>
 
 
@@ -671,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046767.jpg" />
 </div>
 
 
@@ -682,6 +521,164 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4BB82C4FB17C8BF7644FCB037CB2598BE30893E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839599   (1046718) от 29.11.2025
+
+Хьюберт Дюлей, Ральф М. Дебусманн | Потоковые базы данных. Объединение пакетной и потоковой обработки (2026) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046718.jpg" />
+</div>
+
+
+###  Подробнее
+
+В наши дни приложения реального времени стали нормой. Но для построения корректно работающей модели требуется, чтобы данные обрабатывались на лету и анализировались с низкой задержкой. Из этой практической книги инженеры, архитекторы и аналитики данных узнают, как использовать потоковые базы данных для создания решений, действующих в режиме реального времени.
+
+Авторы, (   Читать дальше...   )Жанр: Базы данныхПеревод: С. ЧерниковИздательство: Спринт БукФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8E85BBFD401EC39881644C9207CC21E828D7FF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839609   (1046715) от 29.11.2025
+
+Саурабх Шривастава, Ниланджали Шривастав | Solutions architect: Архитектура и проектирование ИТ-решений [3-е изд.] (2025) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Овладейте искусством дизайна архитектур и станьте успешным архитектором решений. Книга, написанная опытными техлидами AWS Саурабхом Шриваставой и Ниланджали Шривастав, выходит за рамки традиционных руководств для подготовки к сертификации. В ней вы найдете подробную аналитику и описания передовых методов, предназначенных для удовлетворения конкретных потребностей (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: Е. МатвеевИздательство: Спринт БукФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D36B21F78F0923A7380B688AA123DBB318B821D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839642   (1046692) от 30.11.2025
+
+Джо Аттарди | Web API. Сборник рецептов. Повысьте уровень Javascript-приложений (2025) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046692.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена разработке современных веб-приложений с использованием JavaScript и встроенных возможностей браузера на основе Web API. Приведены практические примеры реализации функций, которые ранее требовали сторонних плагинов: диалоговые окна, работа с геолокацией и другими возможностями, предоставляемыми браузером. Освещаются как устоявшиеся, так и находящиеся (   Читать дальше...   )Жанр: ПрограммированиеИздательство: ТОО "АЛИСТ"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AE9BE166FF7F3D6FE67DC6512EB6CCCA8B4B37C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839482   (1046657) от 29.11.2025
+
+Робин Никсон | Создаем динамические веб-сайты с помощью PHP, MySQL, JavaScript, CSS и HTML5 [7-е издание] (2025) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Владея лишь основами HTML, вы сможете научиться создавать интерактивные веб-сайты, управляемые данными, используя мощное сочетание веб-стандартов и технологий с открытым исходным кодом. В последнем издании этого популярного практического руководства вы освоите динамическое веб-программирование с использованием новейших версий современных технологий — PHP, MySQL, (   Читать дальше...   )Жанр: ПрограммированиеПеревод: с англ., А. КиселевИздательство: Астана: «Спринт Бук»Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5149401F8F978D2CD6308EF3A7CAF64BF0873D19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839483   (1046656) от 29.11.2025
+
+Вадим Смоляков | Алгоритмы машинного обучения (2025) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046656.jpg" />
+</div>
+
+
+###  Подробнее
+
+Узнайте тонкости работы алгоритмов ML, чтобы эффективно решать задачи и повышать производительность используемых моделей. Познакомьтесь с фундаментальными математическими основами важнейших алгоритмов машинного обучения и вариантами их реализации на Python. Особое внимание уделяется вероятностным методам. В книге анализируются и объясняются десятки алгоритмов, применяемых (   Читать дальше...   )Жанр: ПрограммированиеИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E58701265E4BF727B58A91C27C42334A50C34C01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839556   (1046617) от 29.11.2025
+
+Somanath Tripathy, Harsh Kasyap, Minghong Fang | Federated learning. Security and privacy (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046617.jpg" />
+</div>
+
+
+###  Подробнее
+
+This book begins by introducing the fundamentals of Machine Learning, along with core Deep Learning architectures. The book provides an in-depth exploration of FL’s various forms, system architectures, and practical applications. A significant emphasis is placed on the growing security and privacy concerns in FL, particularly poisoning (both data poisoning and model (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: CRC PressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD29FECF1DAB5EA4B9FBEE6830006992B3259B0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

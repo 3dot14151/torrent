@@ -1,139 +1,3 @@
-###  Публикация: 1784993   (24694) от 14.03.2025
-
-Юрий Глазков | Колени без боли. Взгляд оперирующего хирурга (2024) [PDF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24694.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современная медицина предлагает широкий ассортимент методов и стратегий по восстановлению поврежденных органов и тканей. Однако только профессиональный хирург способен грамотно и максимально эффективно применить их в конкретной ситуации.
-
-В этой книге собраны самые важные данные о здоровье колена:
-- чем опасны гипермобильность и иммобилизация;(   Читать дальше...   )Жанр: МедицинаИздательство: ЭксмоФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7354CD38373D932637DDB0B022C804C00B7BE30F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784997   (24681) от 14.03.2025
-
-Екатерина Филиппова | Тазовая боль. Почему она возникает и что с ней делать (2024) [FB2, RTF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чувствуете дискомфорт, жжение и боль "там"? Часто ходите в туалет? Испытываете боли во время секса? Давно и безуспешно лечитесь у урологов или гинекологов?
-Синдром хронической тазовой боли - заболевание, которое не вписывается в традиционные медицинские шаблоны и не поддается стандартным алгоритмам лечения. Оно возникает "из ниоткуда" - ни явных (   Читать дальше...   )Жанр: МедицинаИздательство: БомбораФормат: FB2, RTFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF41DDCAA7614A9C7DE0400DE768DCEC3E0184E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785427   (24617) от 15.03.2025
-
-Иван Мосин | Сюрреализм. Большая иллюстрированная энциклопедия (2017) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24617.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена одному из самых ярких художественных направлений в истории искусства XIX века, его зарождению и развитию.
-
-Сюрреализм - уникальное художественное течение, которое более полувека доминировало в мировом искусстве, определяя облик художественной действительности. Чрезвычайный успех этого движения заключался в том, что сюрреализм был не просто локальным (   Читать дальше...   )Жанр: Искусство и культураИздательство: СЗКЭОФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40286AA829052FEDC27D82A9F6C815FCDFBDC2C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785435   (24614) от 15.03.2025
-
-Иван Мосин | Импрессионизм. Большая иллюстрированная энциклопедия (2017) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена одному из самых ярких художественных направлений в истории искусства XIX века, его зарождению и развитию. В ней представлено творчество не только самых прославленных представителей импрессионизма, таких как Дега, Мане, Моне, Писсарро, Ренуар, Сислей, но и художников, чьи имена менее знамениты, а то и вовсе неизвестны широкому читателюЖанр: Искусство и культураИздательство: СЗКЭОФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F28FD4F12BC593A20C8A741BCDBC900C1D65BD25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785378   (24609) от 15.03.2025
-
-Светлана Варшавская | Учебник ненормативной лексики английского языка (2014) [PDF, DJVU] [RU, EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24609.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник Ненормативной Лексики Английского Языка разработан Лингвистическим Университетом Светланы Варшавской, как дополнительное и общеобразовательное учебное пособие для всех, кто знает английский язык хотя бы на базовом разговорном уровне, но при этом есть стремление расширить свои знания. Это как раз будет тот вариант владения языком, когда «я английский не знаю, (   Читать дальше...   )Жанр: Языки. УчебникиИздательство: ООО «ЗУКЦ»Формат: PDF, DJVUКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7644E3889BA23D444664658A69FCCB353CA530F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785444   (24515) от 16.03.2025
 
 Карл Саган | Космос (2024) [PDF, FB2, RTF, EPUB]
@@ -142,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24515.jpg" />
 </div>
 
 
@@ -168,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24513.jpg" />
 </div>
 
 
@@ -194,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24511.jpg" />
 </div>
 
 
@@ -222,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24488.jpg" />
 </div>
 
 
@@ -248,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24485.jpg" />
 </div>
 
 
@@ -274,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24480.jpg" />
 </div>
 
 
@@ -300,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24476.jpg" />
 </div>
 
 
@@ -327,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24462.jpg" />
 </div>
 
 
@@ -353,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24456.jpg" />
 </div>
 
 
@@ -379,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24380.jpg" />
 </div>
 
 
@@ -405,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24354.jpg" />
 </div>
 
 
@@ -431,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24296.jpg" />
 </div>
 
 
@@ -457,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24285.jpg" />
 </div>
 
 
@@ -483,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24262.jpg" />
 </div>
 
 
@@ -509,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24142.jpg" />
 </div>
 
 
@@ -535,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24092.jpg" />
 </div>
 
 
@@ -561,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23984.jpg" />
 </div>
 
 
@@ -589,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23966.jpg" />
 </div>
 
 
@@ -615,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23960.jpg" />
 </div>
 
 
@@ -643,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23889.jpg" />
 </div>
 
 
@@ -669,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23860.jpg" />
 </div>
 
 
@@ -681,6 +545,140 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CA7A32A5CEB416EFD4B36CC31309214FCB90888
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786829   (23859) от 22.03.2025
+
+Андрей Школьников | Национальные стратегии: Геостратегический взгляд на будущее мира и России (2021-2090 годы) (2023) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами уникальная книга, посвященная вопросам теории и практики современной геостратегии. Книга включает подробное описание методологии сценарных и стратегических решений для мира в целом, России, крупнейших стран, союзов и территорий на период 2021–2090 годов. Настоящая книга является расширенной, фундаментально дополненной и доработанной версией первого издания, (   Читать дальше...   )Жанр: ГеостратегияИздательство: Издательский дом «КОРВУС»Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7B4AB04881CBA97DC3E9F3B73BC32AE7FF9A7DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786957   (23769) от 23.03.2025
+
+Альберт Шубаев | Английский в деталях. Изучаем тонкости языка с @VeryEnglish! (2025) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучаете английский язык? Не упустите шанс познакомиться с книгой лингвиста Альберта Шубаева, оформленной в стиле газеты!
+
+Внутри вас ждет:
+1. 35 глав на самые актуальные темы: от тонкостей грамматики до полезных лайфхаков.(   Читать дальше...   )Жанр: Изучение языковИздательство: Эксмо, БОМБОРАФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5428A2062A7C35ED9B5579B8486A1CFB2FE29997
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786987   (23757) от 23.03.2025
+
+Иоханнес Иттен | Искусство цвета (2014) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иоханнес Иттен - швейцарский художник, крупнейший исследователь цвета в искусстве и один из ведущих преподавателей знаменитого Баухауза, знаток классического и новейшего европейского искусства, а также философии и культуры Индии и Китая. Книга написана на основе наблюдений художника за цветом в природе и произведениях искусства различных времен и народов. Автор разбирает (   Читать дальше...   )Жанр: Графический дизайнФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAFE496AF45BC883192842A1259D6B0DB06E3770
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786959   (23744) от 23.03.2025
+
+Киран Сетия | Жизнь жестче (2024) [FB2, RTF, EPUB]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вам нелегко – вы в этом не одиноки. В книге «Жизнь жестче» американский философ Киран Сетия на личных примерах рассказывает, как мы сталкиваемся с физической болью, горем из-за утраты близких, ощущением, что каждый день происходит худшее, и ничего не изменишь. Но отчаиваться не стоит. Призывая на помощь Аристотеля и Канта, Теодора Адорно и Симону Вейль, а также (   Читать дальше...   )Жанр: Научная и научно-популярная литератураИздательство: ИндивидуумФормат: FB2, RTF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C27AB5A37AD252975C9DF464AB0135C172971CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786922   (23740) от 23.03.2025
+
+Д. Элуэлл | Искусственные драгоценные камни (1986) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23740.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге Д. Элуэлла (Великобритания) рассмотрены методы выращивания синтетических минералов, используемых в ювелирной промышленности, в том числе соединений, не имеющих аналогов в природе, описаны их свойства, определяющие пригодность для использования в украшениях.
+Для специалистов, выращивающих и обрабатывающих искусственные драгоценные материалы, а также для любителей (   Читать дальше...   )Жанр: ХимияИздательство: МирФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47FE21B2FF5F8C6038DD618459E5DD05EB1C87EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

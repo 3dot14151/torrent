@@ -6,7 +6,7 @@ Stephane Wrembel - Dreamer Of Dreams (2014) Water Is Life Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298869.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Stephane Wrembel - The Django Experiment I (2017) Water Is Life Records [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298861.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ AHA! Quintet - Freespace (2012) [FLAC|Lossless]<Hard Bop, Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_298822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_298822.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Terry Pollard - Terry Pollard (1955) Remaster, 2014, Solid Records[FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298311.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Sonny Rollins - Horn Culture (1973) 1992, Fantasy[FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298221.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Paris Jazz Big Band - Mediterraneo (2002) Cristal Production[FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298219.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Mel Torme and The Marty Paich Dek-Tette - The 1956 Torme-Paich Legendary Session
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298217.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Mongo Santamaria - Mongo At Montreux (1971) 2012, Atlantic/Warner Japan/WEA/Rhin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298216.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Klaus Doldingers Passport - Balance Of Happiness (1990) WEA[FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298212.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Bud Powell - The Ultimate Bud Powell (1947 - 1959) 2012, 2CD, Blue Note [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298155.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Dakota Staton - Dakota Staton (1991) Muse Records [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298076.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Ella Fitzgerald & Louis Armstrong - The Wonderful World Of Ella Fitzgerald & Lou
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298061.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Jeremy Wall - Cool Running (1991) Amherst Records [FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297540.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Chantale Gagne - Rooftop Jazz (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297444.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Don Friedman - Hope For Tomorrow (1975) 2015, Universal[FLAC|tracks+.cue]<Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297238.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Archie Shepp - Live In San Francisco (1966) 2015, Universal[FLAC|tracks+.cue]<Av
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297237.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Roy Haynes, Phineas Newborn, Paul Chambers - We Three (1958) 2007, Concord[FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297230.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Kirk Lightsey Trio with Chet Baker - Everything Happens To Me (1983) 2015, Timel
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297227.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Cannonball Adderley - The Complete Albums Collection 1955-1958 (2016) 4CD, Enlig
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297023.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Stephane Wrembel - The Django Experiment II (2017) Water Is Life Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297019.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Anita O'Day - Cocktail Hour 1950-e - 1960-e (2000) 2CD, Allegro [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296921.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Oliver Nelson and His Orchestra - Fantabulous (1964) 2008, Verve[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296510.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Los Amigos Invisibles - A Typical & Autoctonal Venezueland Dance Band (1995) 200
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296502.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Michael Lee Thomas - Far Away Near (2016) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296499.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Los Amigos Invisibles - The New Sound Of The Venezuelan Gozadera (1998) [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296493.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ Chucho Valdes - Border-Free (2013) Jazz Village[FLAC|Lossless|tracks + .cue] <Af
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296393.jpg" />
 </div>
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1474600   (1012861) от 03.06.2021
+
+Daniel Arriaga | Characters for Animated Film (2014) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Персонажи для мультипликационных фильмов должны быть настолько хорошо проработаны, чтобы захватить внимание зрителей на два часа и рассказать за эти два часа историю. В этом курсе художник студии Pixar Дэниэль Арьяга расскажет вам о том, как создаются персонажи для мультипликационного фильма, и как этим персанажам удается захватить внимание зрителей.
+Дэниэль вам (   Читать дальше...   )Производство: SchoolismЖанр: Создание видеоПродолжительность: 10:38:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33E0097B872A6FD9ACCB288EEB40B83C292F8944
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1474598   (1012817) от 03.06.2021
 
 Sam Nielson | Fundamentals of Lighting (2014) PCRec [En, Ru]
@@ -6,7 +33,7 @@ Sam Nielson | Fundamentals of Lighting (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012817.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Stephen Silver | Fundamentals of Character Design (2014) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012813.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ Udemy, Rob Tuytel | Создание 3D окружения в Blender 2.81 / Cre
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012795.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ Justin Marshall | Quick Start to Modeling in Maya.Volume 2 PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012664.jpg" />
 </div>
 
 
@@ -115,7 +142,7 @@ Udemy, Valentyna Dyka | Разработка сайта на WordPress без з
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012617.jpg" />
 </div>
 
 
@@ -142,7 +169,7 @@ Alan Ayoubi | Мега-курс Adobe Illustrator - от новичка до п�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012613.jpg" />
 </div>
 
 
@@ -168,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012491.jpg" />
 </div>
 
 
@@ -194,7 +221,7 @@ Udemy, Dmitry Zinoviev | Несложно о сложных сетях для п
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012481.jpg" />
 </div>
 
 
@@ -220,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012462.jpg" />
 </div>
 
 
@@ -247,7 +274,7 @@ ITVDN, Виталий Мазяр | Angular 11.0 Базовый (2021) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012314.jpg" />
 </div>
 
 
@@ -273,7 +300,7 @@ Udemy, Антон Кучер | Как стать классным менедже
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012174.jpg" />
 </div>
 
 
@@ -299,7 +326,7 @@ Udemy, Исмаил Усеинов | Язык программирования P
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012173.jpg" />
 </div>
 
 
@@ -326,7 +353,7 @@ Justin Marshall | Quick Start to Modeling in Maya. Volume 4 PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011959.jpg" />
 </div>
 
 
@@ -353,7 +380,7 @@ Gumroad, Olav3D Tutorials | Упрощённая разработка аддон
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011943.jpg" />
 </div>
 
 
@@ -379,7 +406,7 @@ Justin Marshall | Quick Start to Modeling in Maya.Volume 5 PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011922.jpg" />
 </div>
 
 
@@ -406,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011916.jpg" />
 </div>
 
 
@@ -432,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011878.jpg" />
 </div>
 
 
@@ -461,7 +488,7 @@ Udemy, Alla Yurina | Английский язык для работы. Усто
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011869.jpg" />
 </div>
 
 
@@ -487,7 +514,7 @@ SwiftBook, Иван Акулов и др. | SwiftBook (2016-2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011762.jpg" />
 </div>
 
 
@@ -513,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011757.jpg" />
 </div>
 
 
@@ -542,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011737.jpg" />
 </div>
 
 
@@ -569,7 +596,7 @@ ZTM, Andrea Bizzotto | Dart: The Complete Developer's Guide (2021) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011636.jpg" />
 </div>
 
 
@@ -596,7 +623,7 @@ Udemy, Lukman Hakim | SAP Workflow with Practise (2021) PCRec [En / En Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011598.jpg" />
 </div>
 
 
@@ -623,7 +650,7 @@ Liveclasses, Павел Лебедев | PowerPoint: расширенные во
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011578.jpg" />
 </div>
 
 
@@ -649,7 +676,7 @@ EngExpert, Диана Семенычева | Английская граммат
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011566.jpg" />
 </div>
 
 
@@ -661,33 +688,6 @@ EngExpert, Диана Семенычева | Английская граммат
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:541E4C4ABCCF66F4BF083B3DE704FE61AE555333
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476611   (1011562) от 11.06.2021
-
-Udemy, Никита Хохлов | Парсинг сайтов PYTHON (2020) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011562.jpg" />
-</div>
-
-
-###  Подробнее
-
-После прохождения данного курса вы сможете разрабатывать парсеры, авторегеры, различных ботов для автоматизации действий в браузере и имитировать все действия, которые может совершить человек используя браузер и определенные сайты.
-Услуги парсинга и автоматизации веб-ресурсов очень часто встречаются на фрилансе, поэтому окупить данные знания можно практически сразу (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеПродолжительность: 00:50:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C73620255A7C0E2E1CCD4AB53CBD2379764145B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

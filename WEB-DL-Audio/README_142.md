@@ -6,7 +6,7 @@ JP LeBlanc - All In My Blood / Je l'ai dans l'sang (2025) [FLAC 24/44.1|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6583.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Dashiell Royston - Soul and Beyond (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6582.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Deftones - Private Music (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Nu-Metal, S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6425.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Myrath - Reflections: Best Of (2025) [FLAC 24/44.1, 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6415.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Rise Against - Ricochet (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Punk Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6414.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Feuerschwanz - Knightclub (2025) Deluxe Version, 2025, Napalm Records Handels Gm
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6413.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Jack The Joker - The Devil To Pay In The Backlands (2025) [FLAC 24/96|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6396.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ John Fogerty - Legacy: the Creedence Clearwater Revival years (John's Version) (
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6299.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Three Days Grace - Alienation (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Altern
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6278.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Fabia Mantwill Orchestra - IN.SIGHT (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6264.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Helloijan - Senja di Pantai Morib (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6262.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Greenberg Group - More Swans! (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6248.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Heber Ataza - Viajando (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6247.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Adegoke Steve Colson & Iqua Colson - Glow: Music for Trio... Add Voice (2025) [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6246.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Bob Forte - Quarter Till Midnight (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6245.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Greg Chako - Comfort Food (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6244.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Felice Lionetti - True (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6243.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Geoff Mann, Herbie Mann - Underground (2025) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6241.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Heidarlegur - Time Machine to Travel Back to Childhood (2025) [FLAC 24/44.1|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6239.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ The Hives - The Hives Forever Forever The Hives (2025) [FLAC 24/96|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5801.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ In Mourning - The Immortal (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5509.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Asymmetric Universe - A Memory And What Came After (2025) [FLAC 24/48|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5490.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Suotana - Ounas II (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Death, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5488.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Manegarm - Edsvuren (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Viking-Black-F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5482.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Headless - Transitional Objects (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Prog
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5481.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Bryan Adams - Roll With The Punches (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5370.jpg" />
 </div>
 
 

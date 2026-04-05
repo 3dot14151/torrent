@@ -6,7 +6,7 @@ BBC. Белая королева и ее соперницы / The Real White Que
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209885.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209593.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209490.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ PBS. Охотники за воспоминаниями / Memory Hackers (2016) 
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209280.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208942.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ BBC. Как действуют наркотики / How Drugs Work (2011) HDTVRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208846.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208694.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208686.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208643.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208464.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208343.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208212.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208081.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208049.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ BBC: Планета Земля 2 / Planet Earth II (2016) HDRip (серии 1-6 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207777.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207459.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207391.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ BBC: Армада. Неизвестная история / Armada: The Untold St
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207042.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206964.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ BBC: Чудеса Солнечной системы / Wonders of the Solar Syste
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206960.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206807.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ NG: Апокалипсис: Первая мировая война (5 серий
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206647.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206572.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ NG. Загадка акул Мауи / Maui Shark Mystery (2022) WEB-DL [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206528.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206091.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206065.jpg" />
 </div>
 
 

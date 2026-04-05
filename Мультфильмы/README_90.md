@@ -1,3 +1,133 @@
+###  Публикация: 879787   (832958) от 20.03.2015
+
+Школа Монстров: Призрачно / Monster High: Haunted (2015) BDRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Страшно представить, какие захватывающие приключения ждут девочек из Школы монстров в стенах таинственной Школы призраков! Монстряшки под предводительством Спектры Вондергейст случайно попадают в параллельный Мир Духов и их особую школу, которой руководит строгая Директор-Призрак. Она удерживает Спектру среди призраков, не позволяя ей вернуться домой. Пришло время (   Читать дальше...   )Производство: США / Playground ProductionsЖанр: комедия, приключения, семейныйРежиссер: Дэн Фрага, Уильям ЛауРоли озвучивают: Лора Бэйли, Тодд Хаберкорн, Кэм Кларк, Карен Страссман, Хэвиланд Стиллвелл, Паула Родс, Синди Робинсон, Америка Янг, Эрин Фицджералд, Салли СаффиотиПеревод: дублированный (лицензия)Субтитры: вшитые отключаемыеЯзык субтитров: английскиеПродолжительность: 01:15:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3A5D4B87923A8FF9D1F068F0E605924EB2CEEF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380466   (832941) от 03.05.2020
+
+Тайна Коко / Coco (2017) BDRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832941.jpg" />
+</div>
+
+
+###  Подробнее
+
+12-летний Мигель живёт в мексиканской деревушке в семье сапожников и тайно мечтает стать музыкантом. Тайно — потому что в его семейном клане музыка считается проклятием. Когда-то его прапрадед оставил свою жену, прапрабабку Мигеля, ради мечты, которая теперь не даёт спокойно жить Мигелю. С тех пор музыкальная тема в семье стала табу. Мигель обнаруживает, что между (   Читать дальше...   )Производство: США / Walt Disney Pictures, Pixar Animation StudiosЖанр: мультфильм, фэнтези, детектив, приключения, семейный, музыкаРежиссер: Ли Анкрич, Эдриан МолинаПеревод: Дублированный, авторскийСубтитры: русские (Forced, Full), английские (Full, SDH, SDH-Colored)Продолжительность: 01:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B66022689C26CC6FB7445E173374C0E105B4435
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380470   (832937) от 03.05.2020
+
+Тайна Коко / Coco (2017) BDRemux [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832937.jpg" />
+</div>
+
+
+###  Подробнее
+
+12-летний Мигель живёт в мексиканской деревушке в семье сапожников и тайно мечтает стать музыкантом. Тайно — потому что в его семейном клане музыка считается проклятием. Когда-то его прапрадед оставил свою жену, прапрабабку Мигеля, ради мечты, которая теперь не даёт спокойно жить Мигелю. С тех пор музыкальная тема в семье стала табу. Мигель обнаруживает, что между (   Читать дальше...   )Производство: США / Walt Disney Pictures, Pixar Animation StudiosЖанр: мультфильм, фэнтези, детектив, приключения, семейный, музыкаРежиссер: Ли Анкрич, Эдриан МолинаПеревод: Дублированный, авторскийСубтитры: русские (Forced, Full, Full (FOCS)), английские (Full, SDH, SDH-Colored)Продолжительность: 01:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFF235AC06B83319C82736F46C5529C0D14B52AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 879786   (832863) от 20.03.2015
+
+Школа Монстров: Призрачно / Monster High: Haunted (2015) HDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832863.jpg" />
+</div>
+
+
+###  Подробнее
+
+Страшно представить, какие захватывающие приключения ждут девочек из Школы монстров в стенах таинственной Школы призраков! Монстряшки под предводительством Спектры Вондергейст случайно попадают в параллельный Мир Духов и их особую школу, которой руководит строгая Директор-Призрак. Она удерживает Спектру среди призраков, не позволяя ей вернуться домой. Пришло время (   Читать дальше...   )Производство: США / Playground ProductionsЖанр: комедия, приключения, семейныйРежиссер: Дэн Фрага, Уильям ЛауРоли озвучивают: Лора Бэйли, Тодд Хаберкорн, Кэм Кларк, Карен Страссман, Хэвиланд Стиллвелл, Паула Родс, Синди Робинсон, Америка Янг, Эрин Фицджералд, Салли СаффиотиПеревод: дублированный (лицензия)Продолжительность: 01:15:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:862E2141D8FF5CAD437B915E3E612E855F784BAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380485   (832817) от 03.05.2020
+
+Тайна Коко / Coco (2017) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832817.jpg" />
+</div>
+
+
+###  Подробнее
+
+12-летний Мигель живёт в мексиканской деревушке в семье сапожников и тайно мечтает стать музыкантом. Тайно — потому что в его семейном клане музыка считается проклятием. Когда-то его прапрадед оставил свою жену, прапрабабку Мигеля, ради мечты, которая теперь не даёт спокойно жить Мигелю. С тех пор музыкальная тема в семье стала табу. Мигель обнаруживает, что между (   Читать дальше...   )Производство: США / Walt Disney Pictures, Pixar Animation StudiosЖанр: мультфильм, фэнтези, детектив, приключения, семейный, музыкаРежиссер: Ли Анкрич, Эдриан МолинаПеревод: ДублированныйСубтитры: русские (Forced, Full), украинские (Forced), английские (Full, SDH)Продолжительность: 01:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAF25E73BA76CEE1D6F50A143ADEE132349AA4C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380564   (832814) от 03.05.2020
 
 Аладдин и король разбойников / Aladdin and the King of Thieves (1996) BDRip [H.264/1080p-LQ]
@@ -6,7 +136,7 @@
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832814.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Angry Birds в кино / Angry Birds (2016) BDRip [H.264/720p] 60fps
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832809.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832781.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832695.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832690.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832685.jpg" />
 </div>
 
 
@@ -163,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832619.jpg" />
 </div>
 
 
@@ -189,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832604.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832542.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832537.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832053.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831902.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831807.jpg" />
 </div>
 
 
@@ -345,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831739.jpg" />
 </div>
 
 
@@ -371,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831734.jpg" />
 </div>
 
 
@@ -397,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831558.jpg" />
 </div>
 
 
@@ -423,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831422.jpg" />
 </div>
 
 
@@ -451,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831273.jpg" />
 </div>
 
 
@@ -477,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831172.jpg" />
 </div>
 
 
@@ -503,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831168.jpg" />
 </div>
 
 
@@ -531,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831113.jpg" />
 </div>
 
 
@@ -542,136 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C1E6BB1140D6996186BED5C64A30898E47593FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 804088   (831008) от 15.03.2017
-
-Механика сердца / Jack et la mecanique du coeur (2013) BDRip [1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эдинбург, 1874 год. Джек, главный персонаж анимационного фильма «Механика сердца» (Jack et la mcanique du coeur), появился на свет в невероятно холодный день, и его сердце тут же остановилось, замерзнув. Мать бросила ребенка, и его спасла доктор Мадлен, волшебница, которая заменила погибшее сердце механическими часами. Такое сердце будет исправно работать, но лишь (   Читать дальше...   )Производство: Франция, Бельгия / Canal+ (fr), France 3 CinmaЖанр: Мультфильм, мюзикл, фэнтези, драма, мелодрама, приключенияРежиссер: Стефан Берла / Stphane Berla, Матиас Мальзьё / Mathias MalzieuАктеры: Матиас Мальзьё, Оливия Руис, Гран Кор Маляд, Жан Рошфор, Росси де Пальма, Мари Винсент, Эмили Луазо, Артур Х., ДаниПеревод: Двухголосый закадровый (любительский)Субтитры: ОтсутствуютПродолжительность: 01:32:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:601DF455AFDC0517D06BD53A1E46169729D4BA2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380741   (830949) от 04.05.2020
-
-Союз зверей: Спасение двуногих / Pets United (2019) WEB-DL [H.264/1080p-LQ] [PL] [PR]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830949.jpg" />
-</div>
-
-
-###  Подробнее
-
-В суперсовременном комфортабельном мегаполисе Робо-Сити всегда порядок и спокойствие, ведь за этим следят роботы. Они — главные помощники людей и их питомцев. Единственный нарушитель спокойствия — местный «Робин Гуд», бродячий пес Роджер, который крадет еду у богатых избалованных зверюшек и раздает ее бездомным. Как же он злит гламурную кошечку Белль! Вот только (   Читать дальше...   )Производство: Германия, Китай, Великобритания / China Film, Euro Sino Entertainment, Fish Blowing BubblesЖанр: мультфильм, комедия, приключения, семейныйРежиссер: Райнхард КлооссАктеры: Натали Дормер, Эдди Марсан, Джефф Баррелл, Харви Фридман, Иэн Одль, Брайан Ларкин, Наоми МакДональд, Андрес Уильямс, Феликс АуэрПеревод: отсутствуетЯзык озвучки: дублированный - польскийСубтитры: ОтсутствуютПродолжительность: 01:28:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96C775F55F1EBADA1EF3033341367E80F687FF07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315009   (830879) от 04.05.2020
-
-Моана / Moana (2016) BDRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесстрашная Моана, дочь вождя маленького племени на острове в Тихом океане, больше всего на свете мечтает о приключениях и решает отправиться в опасное морское путешествие. Вместе с некогда могущественным полубогом Мауи им предстоит пересечь океан, сразиться со страшными чудовищами и разрушить древнее заклятие.Производство: США / Hurwitz Creative, Walt Disney Animation Studios, Walt Disney PicturesЖанр: мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Рон Клементс, Джон Маскер, Дон ХоллПеревод: Дублированный, авторскийСубтитры: русские, английскиеПродолжительность: 01:47:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3B6A9A0B1BCDF6EDBB8D1A65FD5E581D1DC5048
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380748   (830752) от 04.05.2020
-
-Моана / Moana (2016) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесстрашная Моана, дочь вождя маленького племени на острове в Тихом океане, больше всего на свете мечтает о приключениях и решает отправиться в опасное морское путешествие. Вместе с некогда могущественным полубогом Мауи им предстоит пересечь океан, сразиться со страшными чудовищами и разрушить древнее заклятие.Производство: США / Hurwitz Creative, Walt Disney Animation Studios, Walt Disney PicturesЖанр: мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Рон Клементс, Джон Маскер, Дон ХоллПеревод: Дублированный, авторскийСубтитры: русские, английскиеПродолжительность: 01:47:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60D4AC01B1B81242491782A23C7191B67E47C29E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 653406   (830380) от 07.05.2013
-
-Мулан / Mulan (1998) BDRip [1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830380.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для великого народа наступили тяжелые времена: на страну напало воинственное племя гуннов. Переодевшись в мужскую одежду, Мулан присоединяется к другим воинам и отправляется в опасный поход к подножию заснеженных гор. Ее сопровождает забавный дракончик Мушу, который больше похож на маленькую собачку, чем на мифическое чудовище. Пытаясь скрыть тайну, они попадают (   Читать дальше...   )Жанр: Мультфильм, мюзикл, приключения, семейныйРежиссер: Тони Бэнкрофт, Бэрри КукПерсонажи: Эдди Мёрфи (Mushu, озвучка), Лиа Салонга (Mulan, озвучка), Мигель Феррер (Shan-Yu, озвучка), Харви Фирштейн (Yao, озвучка), Фреда  Фо Шен (Fa Li, озвучка), Джун Форэй (Grandmother Fa, озвучка), Джеймс Хонг (Chi Fu, озвучка), Мириам Маргулис (The Matchmaker, озвучка), Пэт Морита (The Emperor, озвучка), Марни Никсон (Grandmother Fa, озвучка), О Сун Тек (Fa Zhou, озвучка), (   Читать дальше...   )Перевод: ДублированныйЯзык субтитров: Русские (4 вида), английские (2 вида), украинскиеПродолжительность: 01:27:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99DDD9907D4FB0690C4BF24A84C33A85B7E5EECE
 ```
 
 https://mybot314.ru/tekegram_catalog/

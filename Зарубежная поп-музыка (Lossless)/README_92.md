@@ -6,7 +6,7 @@ VA - Soulmates (2025) [FLAC|Lossless|WEB-DL|tracks] <Soul, Funk, R&B>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66406.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Spencer Sutherland - The Drama Deluxe (The Encore!) (2025) [FLAC|Lossless|WEB-DL
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66373.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Cher - Love Hurts (1991) CD, Album [FLAC|Lossless|tracks + .cue] <Electronic, Ro
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66340.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Ultimate Dance Party 1997 (1996) [FLAC|Lossless|tracks + .cue] <Electronic,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66330.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ The Temptations - Reflections (2006) CD, Album [FLAC|Lossless|tracks + .cue] <Da
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66242.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Lonestar - Lonely Grill (1999) [FLAC|Lossless|tracks + .cue] <Country Rock, Pop 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66117.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ slo/tide - The Blur (2025) [FLAC 16,24/44.1,48|Lossless|WEB-DL|tracks] <Synthpop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66115.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Nick Carter - LOVE LIFE TRAGEDY (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65999.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Shazam Hall Of Fame (2015) 2 x CD, Compilation [FLAC|Lossless|tracks + .cue
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65882.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Billboard Top Hits: 1987 (1994) [FLAC|Lossless|tracks + .cue] <Soft Rock, S
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65872.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - That Ole Devil Called Love (2016) 2 x CD, Compilation [FLAC|Lossless|tracks
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65854.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Global Pop Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65667.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Grupo Bryndis - Tu Amor Secreto (1995) [FLAC|Lossless|WEB-DL|tracks] <Latin, Cum
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65614.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Kohl's Cares For Kids: Songs Of The Season 2001 (2001) CD, Compilation [FLA
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65407.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Sirena (ex-Sister Siren) - Innocent Killah (2011) [FLAC|Lossless|tracks + .cue] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65156.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Silent Circle - № 1 (1986) 1st German Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65073.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Madonna - Madonna (1983) 1st German Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65072.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Black - Wonderful Life (1987) 1st German Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65060.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Bryan Ferry - Boys And Girls (1985) 1st German Press [APE|Lossless|image + .cue]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65045.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Double - Blue (1985) 1st German Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65034.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Double - Dou3le (1987) 1st German Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65030.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Selena Gomez & Benny Blanco - I Said I Love You First... And You Said It Back (2
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65010.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Ten Sharp - Under The Water-Line (1991) 1st Holland Press [APE|Lossless|image + 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64772.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Nick Kamen - Move Until We Fly (1990) 1st German Press [APE|Lossless|image + .cu
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64681.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Nick Kamen - Whatever, Wherever (1992) 1st German Press [APE|Lossless|image + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64678.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Right Said Fred - Up (1992) 1st US Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64672.jpg" />
 </div>
 
 

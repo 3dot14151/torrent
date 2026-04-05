@@ -6,7 +6,7 @@ Windows Server, Version 20H2 (10.0.19042.1826) (Updated July 2022) - Ориги�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499270.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Hyper-V Server 2012 (RUS/ENG) 9200.16384 [Английский, Рус
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490518.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ Microsoft Windows Server 2019 RTM, Version 1809 Build 10.0.17763.1 - Ориги�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410578.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Microsoft Windows Server 2019 RTM, Version 1809 Build 10.0.17763.1 - Ориги�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410574.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Microsoft Windows Server 2012 Storage Server and Foundation (x64) [Ru/En]
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_394373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_394373.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Microsoft Windows Server 2008 SP2 (x64-x86) VOLUME [RUSSIAN]
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_386637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_386637.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Windows Server, Version 20H2 (10.0.19042.508) - Оригинальные обр�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355205.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Windows Server, Version 1909 (10.0.18363.418) - Оригинальные обр�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322373.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Windows Server 2022 LTSC [10.0.20348.4405], Version 21H2 (Updated November 2025)
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257669.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Windows Server 2025 LTSC [10.0.26100.7171], Version 24H2 (Updated November 2025)
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257668.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Windows Server [10.0.25398.1965], version 23H2 (Updated November 2025) - Ори�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257667.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Windows Server 2003 R2 Standard OEM SP1 (x86) [ENGLISH]
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256545.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.1726 (Updated May 2023) - О�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252227.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.587 (Updated March 2022) - О
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250039.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.643 (Updated April 2022) - О
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240584.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.707 (Updated May 2022) - Ор
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234619.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.768 (Updated June 2022) - О�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213132.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.825 (Updated July 2022) - О�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212379.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.1006 (Updated September 2022)
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207617.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.887 (Updated August 2022) - �
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205464.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.1129 (Updated October 2022) -
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205053.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.1547 (Updated February 2023) 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202489.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.1607 (Updated March 2023) - �
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200928.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.1668 (Updated April 2023) - �
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199566.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.1787 (Updated June 2023) - О
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196731.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.1850 (Updated July 2023) - О
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195505.jpg" />
 </div>
 
 

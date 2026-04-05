@@ -6,7 +6,7 @@ Discovery: Я не должен был выжить / I Shouldn't Be Alive (2005
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217276.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Discovery: Разрушители легенд. Челюсти: месть / Myt
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215930.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Discovery. История Пластика / The Story of Plastic (2019) HDTV [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214168.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Discovery. Люди, которые продали Кубок Мира / The Men
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213393.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Discovery. Как устроена Вселенная / How the Universe Works (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213207.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Discovery. Отравление в Солсбери / Secrets of the Salisbury P
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205839.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Discovery. Виагра: маленькая голубая таблетка, и�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_200994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_200994.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Discovery: Как устроена Вселенная / How the Universe Works (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199490.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Discovery. Канализационные водолазы / Sewer Divers / (202
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196625.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Discovery: Тайны катакомб Ватикана / Mystery Of The Lost Ca
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192623.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Discovery: В поисках Святого Грааля / In Search of the Holy
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192385.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Discovery: Последние тайны "Титаника" / Last Mysteries of 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191172.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Discovery. Потерянный город Тутанхамона / Tut's Lost C
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190541.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Discovery: Ниндзя. Демоны ночи / Unsolved History. Ninjas (2004)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_187056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_187056.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Discovery: Покушение на Гитлера / Virtual History: The Secret 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186400.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Discovery. Взрывая историю / Blowing up History (2022) HDTV [H.264
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185776.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Discovery: Современные Шерлок Холмсы / In the Mind of Cri
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180053.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Discovery. Джереми Уэйд: Тайны океана / Mysteries of the D
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179597.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Discovery. Московская осада / The Moscow Siege (2002) SatRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178719.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Discovery: Будущее с Джеймсом Вудсом / Futurescape with Ja
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178004.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Discovery: Тайна убийства Наполеона / The Napoleon Murder 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177294.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Discovery: Техногенная катастрофа: Японская тра�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176454.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Discovery: Высадка союзников - цветная съемка / D-d
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175485.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Discovery: Идеальный путеводитель: Змеи / The Ultimate 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175481.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Discovery. Загадки высадки на Луну / Truth Behind the Moon L
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168523.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Discovery: Nasa и SpaceX: путешествие в будущее / NASA and S
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166652.jpg" />
 </div>
 
 

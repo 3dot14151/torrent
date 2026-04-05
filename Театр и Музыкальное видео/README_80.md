@@ -6,7 +6,7 @@ David Gilmour - Europejska Stolica Kultury Wroclaw Part.1 (2016) HDTV [H.264/108
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478922.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Colonia - Laz za laz (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478713.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Igor Garnier feat. Malena - Feel Desire (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478696.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ DJ VJ Magrao Videomix Volume 10 (2011) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478526.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Madonna: The MDNA Tour (2013) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478384.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Nikita - Avocado (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478379.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478306.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ PEZET - Supergirl (Uncensored) (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478280.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Linkin Park - Honda Civic Tour (2012) [1080i] HDTVRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478211.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ The Prodigy / Live World's On Fire (2011) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478124.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Dream Theater - Breaking the Fourth Wall (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477535.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ The Beatles: Вечер трудного дня / A Hard Day's Night (1964) BDRi
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477258.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Skillet - Awake & Live (2013) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477210.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Ayreon - Electric Castle Live and Other Tales (2020) Blu-ray [H.264/1080p] [Cust
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476660.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476649.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Madonna - The MDNA Tour (2013) BDRemux [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476335.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Frank Sinatra – A Man and His Music Part II (1966) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476138.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475841.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475826.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Dio - Singles Box Set (2012) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473970.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Graham Bonnet Band: Live...Here Comes the Night (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473769.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Live At Wacken Open Air 2011 (2011) [1080p] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473727.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Status Quo - The Last Night Of The Electrics (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473647.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ VA - Осенний марафон № 192 /  Видеоклипы (Сборни
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473086.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Uriah Heep-The Magician's Birthday Party (2001) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472811.jpg" />
 </div>
 
 
@@ -711,7 +711,7 @@ Metallica - Live at Rock in Rio (2015) HDTV [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472795.jpg" />
 </div>
 
 

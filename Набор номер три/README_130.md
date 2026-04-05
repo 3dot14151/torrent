@@ -1,3 +1,162 @@
+###  Публикация: 123095   (875870) от 17.02.2017
+
+Ленокс Люис / Lennox Lewis [вся карьера] (1983-2003) TVRip [En]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_875870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все бои Леннокса Люиса с 1983 до 2003 (включая бои с олимпийских игр 1984 - 1988 годов) + очень итересные интервю с драками (с Тайсоном и Хасимим Рахманом)!
+Качество различное (старые бои похуже, новые получше)
+Он один из самых сильных боксёров тяжоловесов за всю историю бокса.Жанр: СпортПеревод: нет
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:246C6A7ECBBAB8C198FD6A1BE2B72C07CB97CAA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105237   (875868) от 17.02.2017
+
+HitmanPro 3.7.15 Build 281 [x64] [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_875868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hitman Pro обнаруживает, идентифицирует и удаляет вирусы, шпионские программы, трояны, руткиты и другие вредоносные программы.
+Утилита использует собственный движок поведенческого анализа и экспертизы файлового кластера, а также инновационную облачную технологию проверки с помощью антивирусной базы данных SophosLabs. Сканер HitmanPro обнаруживает и удаляет потенциально (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA3BAADBDCD196BB1F7B4233FD925721AA34F593
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105701   (875864) от 17.02.2017
+
+Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4498.1000 VL (x86) RePack by SPecialiST v17.2 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2016 хорошо демонстрирует, как сегодня изменился сам подход к созданию документов и совместной работе с ними. Многие из нас начинают работу на одном компьютере, продолжают её на другом, а демонстрируют на третьем, попутно успевая вносить мелкие правки за ноутбуком, на планшете или даже смартфоне. Поэтому Office 2016 постарались сделать концептуально (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CFD96453339209681493597BDD69710EB2E55C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105307   (875859) от 17.02.2017
+
+Tales of Berseria (2017) [Ru/Multi] (1.48.00/dlc) License CPY
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875859.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Tales of Berseria вы отправитесь в путешествие в поисках себя. Станьте Велвет — в прошлом любящей и доброй девушкой, в сердце которой теперь пылает ненависть. Все изменилось, когда с ней случилась ужасная трагедия, произошедшая за три года до начала действия игры Tales of Berseria.Тип издания: LicenseРазработчик: Bandai Namco GamesЖанр: RPG (Japanese-style), 3D, 3rd PersonЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86E4D03F95E28FD969C5D183FE034599CE978C9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 823003   (875857) от 17.02.2017
+
+Panzar: Новый рассвет (2012) [Ru/En] (42.8) License
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Panzar – бесплатная клиентская онлайн-игра в фентезийном стиле, где игрокам придется сразиться в битвах на аренах. В игре представлены четыре расы: люди, орки, гномы и эльфы, каждая из которых имеет по 2 класса: паладин и инквизитор, канонир и сапер, танк и берсерк и заклинатели огня и льда от расы эльфов.Тип издания: LicenseРазработчик: Panzar StudioЖанр: MMORPG, MOBA, ActionЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DB72071C57A50EAD49A61414735DBF556CFE8AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104981   (875856) от 17.02.2017
+
+iGO Primo NextGen 9.18.27.687519 [Ru/Multi]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875856.jpg" />
+</div>
+
+
+###  Подробнее
+
+Навигационное ПО iGO Primo NextGen (Israel) версии 9.18.27.687519Тип издания: ПираткаРелиз состоялся: 26.01.2017Разработчик: NNGПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF9EEFCBC55B409CC471D88608DE7172651F4E20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 487610   (875496) от 11.03.2014
 
 Вот такие мы - Человеки =)
@@ -6,7 +165,7 @@
 >>42
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875496.jpg" />
 </div>
 
 
@@ -37,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875495.jpg" />
 </div>
 
 
@@ -63,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875493.jpg" />
 </div>
 
 
@@ -89,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875452.jpg" />
 </div>
 
 
@@ -115,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875447.jpg" />
 </div>
 
 
@@ -141,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_875446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_875446.jpg" />
 </div>
 
 
@@ -167,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875440.jpg" />
 </div>
 
 
@@ -193,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875432.jpg" />
 </div>
 
 
@@ -219,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875431.jpg" />
 </div>
 
 
@@ -245,7 +404,7 @@ Adobe Photoshop 2021 22.5.1.441 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875430.jpg" />
 </div>
 
 
@@ -271,7 +430,7 @@ Cyberpunk 2077 (2020) [Ru/Multi] (1.31/dlc) Repack =nemos=
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875428.jpg" />
 </div>
 
 
@@ -297,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875336.jpg" />
 </div>
 
 
@@ -323,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875267.jpg" />
 </div>
 
 
@@ -349,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>15
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875263.jpg" />
 </div>
 
 
@@ -377,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875257.jpg" />
 </div>
 
 
@@ -403,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874765.jpg" />
 </div>
 
 
@@ -429,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874754.jpg" />
 </div>
 
 
@@ -455,7 +614,7 @@ Fallout New Vegas: Ultimate Edition (2012) [PS3] [EUR] 4.21+ [Repack / ALL DLC +
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874589.jpg" />
 </div>
 
 
@@ -483,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_874585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874585.jpg" />
 </div>
 
 
@@ -512,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874584.jpg" />
 </div>
 
 
@@ -523,175 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:492D95095DF1049B95B886C0C6EAA72D99ED3A7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996986   (874583) от 16.03.2016
-
-Windows 7 SP1 IE11+ RUS-ENG x86-x64 18in1 Activated v4 (AIO)
-
->>3
->>99
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная сборка является правопреемницей сборки Windows 7 SP1 IE11+ RUS-ENG x86-x64 -18in1- Activated v3 (AIO). Ее отличает от своей предшественницы то, что в текущую сборку включены обновления по состоянию на 15 марта 2016 года и свежие пакеты .NET Framework и Visual C++ Redistributable. Также, произведена некоторая оптимизация, благодаря чему даже после всех изменений (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FB199C7877B6F4C1646973A7EF7CC49B230545D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 187626   (874543) от 29.03.2010
-
--=Windows FAN SE7EN X64 RUS 2010=- 7600.16385 х64 RUS [только русский]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_874543.jpg" />
-</div>
-
-
-###  Подробнее
-
-
--=Windows FAN SE7EN X64 RUS 2010=-• Год выпуска: 2010
-• Версия:  7600.16385 х64 RUS
-• Разработчик: Microsoft Corporation
-• Платформа:  X64(64bit) 
-• Совместимость с Vista: полная
-• Совместимость с Seven: полная
-• Формат файла: ISO
-• Авторы сборки: SPA(   Читать дальше...)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 187635   (874541) от 29.03.2010
-
-MICROSOFT WINDOWS 7 ULTIMATE x86 & x64 RETAIL MSDN RUS.DVD   (by xalex & zhuk.m)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Образ сделан из оригинальных (MSDN) русских версий. При установке имеется выбор редакций.
-При создании ничего не удалялось, исправлены названия на Ultimate, папка winsxs сжата, папка winsxs\Backup очищена.
-Узкое меню "Пуск".
-Исправлены все известные глюки.Разработчик: MICROSOFTЯзык интерфейса: только русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 175475   (874540) от 29.03.2010
-
-Neverwinter Nights [Ru] (L) 2002
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874540.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Neverwinter Nights» — это ролевая игра от компании «Bioware» ( создатели «Baldur’s Gate» ), основанная на системе правил «Dungeons & Dragons» ( D&D ). Игра создавалась не только как он-лайн игра, с мультиплеерными окружениями и последними 3D технологиями, но также для того, чтобы вы смогли испытать все прелести настольной игры D&D на своем компьютере. Используя мощный игровой редактор вы можете создавать свои собственные модули и делиться ими со всем миром. Вы можете входить в мультиплеерную игру в качестве Dungeon Master’а, чтобы быть ведущим приключения, управляя действиями NPC и боями, которые проходят в реальном времени.
-
-Действие в «Neverwinter Nights» происходит в северном регионе Sword Coast ( Побережье Мечей ) в мире «Forgotten Realms». Вы начинаете игру в качестве неопытного персонажа, которому необходимо закончить обучение в военной академии города Neverwinter. В городе объявлен карантин, так как люди начали умирать от смертельной болезни. Вы беретесь за расследование причин болезни, а также (   Читать дальше...   )Тип издания: лицензияРазработчик: BioWare CorporationЖанр: RPG (Hack-and-slash) / 3D / 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 636257   (874408) от 13.04.2013
-
-Discovery: Эд Стаффорд: Выживание без купюр (Голое выживание) / Ed Stafford: Naked and Marooned (2013) SATRip (Сезон 1, серий 3 из 4)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874408.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эд высадился на берег одинокого острова (архипелаг Фиджи) без средств выживания, кроме одной камеры, которая наблюдает, живой ли он. Стаффорд начнет один из сложнейших экспериментов с выживания, которые сняты на телекамеру. Стоит жара. У него очень мало времени на поиски воды, чтобы не умереть от обезвоживания с самого начала своего эксперимента. Используя камеры, (   Читать дальше...   )Производство: Великобритания, Tigress ProductionsЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 3 х 00:44:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28D87FD2F4DB11B3026EC113FF249055CD87633D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 641926   (874397) от 13.04.2013
-
-OS X Mountain Lion 10.8.3 VMware Image (Soul Dev Team) [AMD&Intel] [Multi]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_874397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mountain Lion включает в себя более 200 новых функций, расширяющих возможности вашего Mac. С новым приложением Сообщения вы можете отправлять текст, фотографии, видеофайлы, контакты, ссылки и документы любым пользователям Mac, iPhone, iPad или iPod touch — вы даже можете начать переписку на одном устройстве, а продолжить на другом. Новая кнопка экспорта позволяет (   Читать дальше...   )Тип издания: OS X Mountain Lion 10.8.3 VMware Image (Soul Dev Team)Релиз состоялся: 2013Разработчик: Apple Inc/Soul Dev TeamЯзык интерфейса: Multi
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,59 +1,3 @@
-###  Публикация: 1623203   (238832) от 31.03.2023
-
-Алекс Коваль | Брат моего жениха (2023) [MP3, Тина Голд]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238832.jpg" />
-</div>
-
-
-###  Подробнее
-
-– Лана, знакомься, это мой брат Алексей, – звучит на периферии сознания голос моего жениха Славы.
-Вот только меня с этим «братом» знакомить не нужно. Я и так прекрасно знаю, кто этот мужчина, стоящий напротив и прожигающий меня шоколадным взглядом.
-Он Алексей Рысев, по прозвищу Рысь. Мировая звезда хоккея, топовый игрок НХЛ и любимец женщин. Моя неразделенная любовь (   Читать дальше...   )Жанр: Любовный романПродолжительность: 09:10:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8121034C5324BA5F27DD6A5B1479D2DB6714CAE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442131   (238596) от 24.01.2021
-
-Ирина  Мамаева | Земля Гай (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238596.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ирина Мамаева — молодой прозаик из Петрозаводска. За свой дебют, повесть «Ленкина свадьба», получила премию имени Соколова на Пятом форуме молодых писателей России.
-
-Жители поселка Гай постоянно вспоминают счастливые времена расцвета бывшего леспромхоза, из которого последние пятнадцать лет уходит жизнь. Время, как скорый поезд, проносится мимо испуганных героев (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 04:55:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4436F85E45978CFCE6421603CDEF545F0F6FCA47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449483   (237657) от 21.02.2021
 
 Константин Тренёв | В семье (1984) [MP3]
@@ -62,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237657.jpg" />
 </div>
 
 
@@ -88,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237058.jpg" />
 </div>
 
 
@@ -114,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236655.jpg" />
 </div>
 
 
@@ -141,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236651.jpg" />
 </div>
 
 
@@ -167,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235079.jpg" />
 </div>
 
 
@@ -193,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234373.jpg" />
 </div>
 
 
@@ -220,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234313.jpg" />
 </div>
 
 
@@ -246,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234265.jpg" />
 </div>
 
 
@@ -274,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234036.jpg" />
 </div>
 
 
@@ -301,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233249.jpg" />
 </div>
 
 
@@ -327,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233029.jpg" />
 </div>
 
 
@@ -353,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232177.jpg" />
 </div>
 
 
@@ -381,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231075.jpg" />
 </div>
 
 
@@ -409,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230753.jpg" />
 </div>
 
 
@@ -435,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230701.jpg" />
 </div>
 
 
@@ -461,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230549.jpg" />
 </div>
 
 
@@ -487,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229779.jpg" />
 </div>
 
 
@@ -513,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229036.jpg" />
 </div>
 
 
@@ -540,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228875.jpg" />
 </div>
 
 
@@ -567,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228612.jpg" />
 </div>
 
 
@@ -593,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227744.jpg" />
 </div>
 
 
@@ -620,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227511.jpg" />
 </div>
 
 
@@ -646,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_227345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_227345.jpg" />
 </div>
 
 
@@ -672,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227227.jpg" />
 </div>
 
 
@@ -683,6 +627,61 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F26331739C3EF3ED577568DE8AE5E5AA95211F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965427   (226096) от 14.12.2015
+
+Харпер Ли | Пойди поставь сторожа (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226096.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение легендарного романа Харпер Ли «Убить пересмешника…»
+…Непростые тридцатые годы остались в прошлом. На смену им пришли «золотые» пятидесятые. Выросли дети, состарились взрослые. Повзрослевшая Джин-Луиза возвращается в родной город навестить больного отца. Но что ждет ее там? Как изменились те, с кем прошло ее детство?..
+Роман «Убить пересмешника» мгновенно (   Читать дальше...   )Жанр: Зарубежная прозаПродолжительность: 07:54:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA936044F83F5AF07089C93DC752E49316A9A9CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342234   (225859) от 01.12.2019
+
+Петр Сажин | Сирень (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Война подарила чешской девушке и советскому офицеру- танкисту любовь.
+Трудные послевоенные годы развели два любящих сердца по разным странам. Долгие годы обстоятельства мешали им встретиться вновь. Но сохраняя верность и своё чувство они через много лет вновь смогли обрести друг другаЖанр: прозаПродолжительность: 07:03:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04AE5BBEB1253714475B9D6E7FB8BF634C32213D
 ```
 
 https://mybot314.ru/tekegram_catalog/

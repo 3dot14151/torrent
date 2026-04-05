@@ -1,3 +1,55 @@
+###  Публикация: 1568206   (205528) от 06.08.2022
+
+Topaz Gigapixel AI 6.2.0 RePack (& Portable) by elchupacabra [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205528.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz A.I. Gigapixel — это первое и единственное приложение, использующее силу искусственного интеллекта для увеличения ваших изображений, добавляя естественные детали для удивительного результата. Используя технологию глубокого обучения, A.I.Gigapixel ™ может увеличить изображение и заполнить детали, которые другие продукты для изменения размеров не учитываются. (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2E1FAE14C421286EA77CAEA56B451C1998F6380
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572027   (205377) от 27.08.2022
+
+Немецкая техподдержка Samsung предложила пользователю просверлить SSD или разбить его молотком в рамках гарантийного обслуживания
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Samsung подняла защиту данных на новый уровень. Во время переписки с одним из пользователей в Германии, который обратился за гарантийным обслуживанием, техподдержка компании предложила уничтожить твердотельный накопитель Samsung 980 Pro.Причём ему вполне серьёзно предложили просверлить накопитель или разбить его молотком, и отправить его в таком виде для (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585169   (204790) от 25.10.2022
 
 Российские работодатели всё чаще следят за своими сотрудниками
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_204790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_204790.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204180.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_204099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_204099.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ Microsoft представила VALL-E — ИИ-модель, которая и
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_204023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_204023.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_203175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_203175.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ SpaceX запустила ракету-носитель с 55 спутникам
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_202714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_202714.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_202613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_202613.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_202571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_202571.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_202521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_202521.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202413.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202358.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ Fallout 4 (2015) [Ru/Multi] (1.10.163.0/dlc) License GOG [Game of the Year Editi
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202305.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_202235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_202235.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202171.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202141.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202090.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202088.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202086.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ ARMORED CORE VI FIRES OF RUBICON (2023) [Ru/Multi] (1.01/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201984.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201965.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201962.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201842.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201795.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201791.jpg" />
 </div>
 
 
@@ -624,59 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADD32522AA6A0C5BCE49A6454A71CA644CAA9F02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 862078   (201789) от 31.08.2023
-
-Бесстыжие / Бесстыдники / Shameless (US) (2011–2015) BDRip, HDTVRip [H.264/720p-LQ] (сезон 1-5, серии 1-60 из 60)  (AlexFilm)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ремейк одноименного британского сериала, транслируемого по каналу ShowTime. Он повествует о семействе Галахеров. Мать бросила их, а отец редко бывает настолько трезв, чтобы признать своих шестерых детей. В результате, все заботы о куче разновозрастных недорослей ложатся на плечи старшей дочери.
-Пытаясь выжить в этом суровом мире они постоянно попадают во всевозможные (   Читать дальше...   )Производство: СШАЖанр: драма, комедияРежиссер: Марк Майлод, Джон Уэллс, Мими Ледер, Санаа Хамри, Питер СигалАктеры: Уильям Х. Мэйси, Эмми Россам, Камерон Монахэн, Джереми Аллен Уайт, Эмма Кинни, Итэн Каткоски, Блейк Александр Джонсон, Бреннан Кэйн Джонсон, Шанола Хэмптон, Стив Хоуи, Джоан Кьюсак, Ноэль Фишер, Эмма Гринвелл, Джэйк Макдорман и др.Перевод: многоголосый закадровый, профессиональный - AlexFilmЯзык субтитров: русский, английский, 3 сезон - только английскийФормат: MKVПродолжительность: ~ 00:55:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:625DB4AB388805FDD12A09E3479A6BA7322451D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619660   (201023) от 19.03.2023
-
-Учёные стали ближе к реализации настоящей квантовой телепортации данных — мгновенной связи через червоточины без передачи энергии
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201023.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классическая квантовая телепортация — это условность, которая требует параллельной передачи данных по обычным каналам связи. Телепортацией она называется потому, что квантовая информация разрушается в одном месте и как бы мгновенно возникает в другом: одна из двух спутанных частиц исчезает, а её квантовое состояние с помощью обычной связи воспроизводится в другой (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

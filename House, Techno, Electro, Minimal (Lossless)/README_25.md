@@ -1,3 +1,32 @@
+###  Публикация: 1214511   (764056) от 22.03.2018
+
+The Other People Place - Lifestyles Of The Laptop Cafe (2001) Warp Records [FLAC|Lossless|tracks+.cue] <Electro, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eye Contact (05:30)
+ 02. It's Your Love (07:31)
+ 03. Moonlight Rendezvous (07:07)
+ 04. You Said You Want Me (04:24)(   Читать дальше...   )Жанр: Electro, DowntempoПродолжительность: 00:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C2F8D43DECF46B9FAF2A3A748E553C592FE9905
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280127   (763648) от 01.02.2019
 
 VA - Best Aerobic Remixes 2019 [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House, Dance>
@@ -6,7 +35,7 @@ VA - Best Aerobic Remixes 2019 [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763648.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Riccicomoto - Huge Distances (2021) LP [FLAC|Lossless|WEB-DL|tracks] <Deep House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761915.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Back To Love 03.02 (2002) [FLAC|Lossless|tracks] <House, Breakbeat, Hip-Hop
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761819.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Fortunato & Montresor - Imagine (Original & Reissue) (1997 / 2003) Elektrolux, B
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760628.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ S.A.M. - Retrospect One (2018) Delaphine [FLAC|Lossless|WEB-DL|tracks] <Dub Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758228.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Steve Parker - Interplanetary Dust LP (2018) Planet Rhythm [FLAC|Lossless|WEB-DL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758220.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - Back To Love 03.03 (2003) [FLAC|Lossless|tracks] < House, Disco, Hip-Hop, A
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758217.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Luke Vibert - Arcadia (2018) De:tuned [FLAC|Lossless|WEB-DL|tracks] <Electro, Ac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758111.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Tripswitch - Vagabond (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757629.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - Jeju 濟州 (2019) Oslated [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756978.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Downscope - Sojourn in Canaan (2019) alternating.bit music [FLAC|Lossless|WEB-DL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756975.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Dirty Vegas - Electric Love (2011) Om Records [FLAC|Lossless|tracks + .cue] <Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756735.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Andrea Cossu - Spira (2018) TGP [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756616.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ The Mover - Undetected Act from the Gloom Chamber (2018) Planet Phuture [FLAC|Lo
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756604.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Boris Brejcha - Live Stream Mix (Continuous Mix) (2020) [FLAC|Lossless|WEB-DL|im
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755281.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ E.R.P. - Afterimage (2018) Forgotten Future [FLAC|Lossless|Vinyl|tracks] <Electr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755201.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Sascha Dive - Back 2 Life (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_755171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_755171.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Mohlao - Ambrose (2009) Meanwhile [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ele
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753594.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ Tension (GER) - Currents (2019) Be Sure [FLAC|Lossless|WEB-DL|tracks] <Techno, A
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753492.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ R.I.O. - Shine On (2008) [FLAC|Lossless]<House / Electro>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_752317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_752317.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ VA - Jobe Presents Authentic Steyoyoke #012 (2018) [FLAC|Lossless|WEB-DL|tracks]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751358.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ Enrico Sangiuliano - Discography 14 Releases (2009-2018) [FLAC|Lossless|WEB-DL|t
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751030.jpg" />
 </div>
 
 
@@ -640,7 +669,7 @@ Soul Button - Ojas (2018) Maxi Single [FLAC|Lossless|WEB-DL|tracks] <Tech House,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_749578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749578.jpg" />
 </div>
 
 
@@ -669,7 +698,7 @@ George FitzGerald - All That Must Be (2018) [FLAC|Lossless|WEB-DL|tracks] <House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749330.jpg" />
 </div>
 
 
@@ -698,7 +727,7 @@ VA - Sounds Of Instruments 03 (Mixed by Terry Lee Brown Jr.) (2007) [FLAC|Lossle
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748511.jpg" />
 </div>
 
 
@@ -712,35 +741,6 @@ VA - Sounds Of Instruments 03 (Mixed by Terry Lee Brown Jr.) (2007) [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E978370DA95C11F0AC40AE73919A7E413623F3DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396438   (746847) от 15.07.2020
-
-Ben Bohmer (Ben Böhmer) - Breathing (Remixed) (2020) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breathing (Boris Brejcha Remix) (feat. nils hoffmann & Malou) (03:50)
-02. Lost In Mind (Volen Sentir Vision) (feat. Malou) (04:25)
-03. In Memoriam (Tim Green Remix) (04:25)
-04. Hunting (Kidnap Remix) (feat. Jonah) (04:35)(   Читать дальше...   )Жанр: Deep Progressive HouseПродолжительность: 01:04:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5C3EC1F0AA61D267A6CFB3F76D7141DCF5DEFD1
 ```
 
 https://mybot314.ru/tekegram_catalog/

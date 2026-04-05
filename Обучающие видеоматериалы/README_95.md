@@ -1,3 +1,29 @@
+###  Публикация: 1385747   (796482) от 26.05.2020
+
+Udemy | Машинное обучение: нейросети и глубокое обучение на Python (2020) PCRec [H.264/720p-LQ]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы разберем сегментацию и классификацию изображений облаков с помощью сверточных, пирамидальных, остаточных и полносвязных нейронных сетей в соревновании на Kaggle вплоть до формирования конечного результата.Производство: Центр digital-профессий ITtensiveЖанр: Машинное обучение, нейросети, PythonЯзык озвучки: РусскийПродолжительность: 3:12:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A9B72E938BA90CB409246AF544662DAAFA21CF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385398   (796480) от 26.05.2020
 
 Udemy | Data Science на Python 3 с нуля (2020) PCRec [H.264/720p-LQ]
@@ -6,7 +32,7 @@ Udemy | Data Science на Python 3 с нуля (2020) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796480.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ Udemy | Веб разработка - с нуля до профессионал�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796475.jpg" />
 </div>
 
 
@@ -63,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796094.jpg" />
 </div>
 
 
@@ -89,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796003.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ Javabegin | Новый пошаговый курс Angular + Java/Spring + Hiber
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795747.jpg" />
 </div>
 
 
@@ -143,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795746.jpg" />
 </div>
 
 
@@ -169,7 +195,7 @@ PhLearn | Photoshop Compositing Essential Tools & Techniques (2017) TS [H.264/72
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795391.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ ITVDN | SQL Практикум (2015) PCRec [H.264/720p]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795145.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ ITVDN | Основы использования Git (2016) PCRec [H.264/720p]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795132.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ Udemy | Машинное обучение: кластеризация и кла�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795105.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795102.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ javascript.ru | Интенсив по TypeScript (2020) PCRec [H.264/900p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795096.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ PhLearn Pro | Phlearn - Night Fairy (2014) PCRec [H.264/720p-LQ] [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794746.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794705.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ IY Beats, Иван Юрченко | Курс по cозданию музыки 7
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794677.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ Skillshare, Neil Bettison | Blender 2.9 Creating a Medieval Castle Kitbash Modul
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794657.jpg" />
 </div>
 
 
@@ -435,7 +461,7 @@ PhLearn Pro | Photoshop Compositing Masking and Cutting Out Subjects (2017) TS [
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794615.jpg" />
 </div>
 
 
@@ -463,7 +489,7 @@ Skillbox, Артём Кожуховский | Базы данных для ра�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794536.jpg" />
 </div>
 
 
@@ -489,7 +515,7 @@ Lynda.com | SketchUp 2017 Essential Training (2016) PCRec [H.264/720p-LQ]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794508.jpg" />
 </div>
 
 
@@ -518,7 +544,7 @@ Udemy | React For The Rest Of Us (2020/05) PCRec [H.264/1080p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794326.jpg" />
 </div>
 
 
@@ -547,7 +573,7 @@ Anton Kreil (Антон Крил) | Professional Trading (Профессиона
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794146.jpg" />
 </div>
 
 
@@ -573,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793925.jpg" />
 </div>
 
 
@@ -599,7 +625,7 @@ Skillshare, Neil Bettison | Blender to Unreal Engine 5 - Medieval Windmill (2021
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793678.jpg" />
 </div>
 
 
@@ -627,7 +653,7 @@ Udemy, Neil Bettison | Blender to Unreal Engine 5 - 3D Props - Medieval Gallows 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793672.jpg" />
 </div>
 
 
@@ -654,7 +680,7 @@ PhLearn Pro | Swimwear Retouching (2017) TS [H.264/720p-LQ] [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793598.jpg" />
 </div>
 
 
@@ -665,33 +691,6 @@ PhLearn Pro | Swimwear Retouching (2017) TS [H.264/720p-LQ] [EN]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5D004DDF6D06F3DBFF9E24DB0ABBD4AE4B1625B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122782   (793368) от 06.04.2017
-
-top3travel | Путешествие в Лаос (2015) PCRec
-
->>Обучающие видеоматериалы
->>Другие видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лаос — государство в Юго-Восточной Азии, в центре Индокитайского полуострова. Без выхода на море.Краткая история: В 14-17 веках здесь было государство Лансанг. В 1893 году эти земли перешли во владение Франции и стали частью Французского Индокитая. В 50-х годах 20 века в Северном Лаосе к власти пришли коммунисты, в 1975 году  подчинившие себе Лао.
-Поездка в Лаос может (   Читать дальше...   )Производство: Жанр: Путешествие,видеогидПродолжительность: 05:25:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:880AADFC2DE809F8E43FCB99D772963223C57A16
 ```
 
 https://mybot314.ru/tekegram_catalog/

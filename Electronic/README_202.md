@@ -1,3 +1,61 @@
+###  Публикация: 1222259   (687490) от 28.04.2018
+
+VA - Toxic Nights Sensual Jazz Tracks (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matteo Curcio – Morbossa (Original Mix)
+02. Randy Phillips – Down To The Bone (Original Mix)
+03. Ingvi Thor Kormaksson – Enduring Love (Original Mix)
+04. Image Sounds – Jazz Lounge Pt.1 (Original Mix}(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:44:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:954B1C78DB6D7F92A3D73074FBA2193D3EC28631
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222266   (687487) от 28.04.2018
+
+VA - Workout Vol. 5 (2018) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ivanshee - Eclipse  07:03
+02. Coffein - Detective  05:45
+03. Andrew MacTire - Insurrection  08:22
+04. Superidea - Ocean  02:57(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:16:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:336C87A523DD8AF75F095AE1775560AC75042E40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222295   (687482) от 28.04.2018
 
 Kuba - Animalia (2018) [MP3|320 Kbps] <Electronica, Psybient, Chillout>
@@ -6,7 +64,7 @@ Kuba - Animalia (2018) [MP3|320 Kbps] <Electronica, Psybient, Chillout>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687482.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Soul Button - Master of My Fate (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Deep Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687445.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Lifebloom - Satsang (2017) [FLAC|Lossless|WEB-DL|tracks] <Psybient, Progressive 
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687443.jpg" />
 </div>
 
 
@@ -92,7 +150,7 @@ Sigur Rós - Route One (2018) Ess Err [FLAC|Lossless|WEB-DL|tracks] <Abstract, A
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687359.jpg" />
 </div>
 
 
@@ -121,7 +179,7 @@ Seven24 & Soty - 6 Years (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687350.jpg" />
 </div>
 
 
@@ -150,7 +208,7 @@ One Arc Degree - Cosmos in Flux (2017) Synphaera Records [FLAC|Lossless|WEB-DL|t
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687346.jpg" />
 </div>
 
 
@@ -179,7 +237,7 @@ Saad Ayub & Cristina Soto - Daylight (Amir Hussain Remix) (2018) Single [MP3|320
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687122.jpg" />
 </div>
 
 
@@ -205,7 +263,7 @@ VA - Female Vocal Trance (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687110.jpg" />
 </div>
 
 
@@ -234,7 +292,7 @@ Rainforest - Life On Earth (2017) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Ju
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687083.jpg" />
 </div>
 
 
@@ -263,7 +321,7 @@ Prairie - After the Flash Flood (Bonus Track) (2018) Denovali Records [FLACFLAC|
 >>Experimental, Industrial (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687008.jpg" />
 </div>
 
 
@@ -292,7 +350,7 @@ Alexander Som - Axtone House Party (2022-03-04) [MP3|~245 Kbps (V0)] <House>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686834.jpg" />
 </div>
 
 
@@ -321,7 +379,7 @@ Cassy - Donna LP (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686759.jpg" />
 </div>
 
 
@@ -350,7 +408,7 @@ LAU - Circumstance (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Re
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686721.jpg" />
 </div>
 
 
@@ -379,7 +437,7 @@ GARRISON (Игорь Савосин) - The Dreams of Morpheus (2019) [FLAC|Lossl
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686716.jpg" />
 </div>
 
 
@@ -408,7 +466,7 @@ GARRISON (Игорь Савосин) - Signal (2018) [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686712.jpg" />
 </div>
 
 
@@ -437,7 +495,7 @@ Afrojack - Tomorrowland Friendship Mix (2022-03-03) [MP3|320 Kbps] <Electro Hous
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686711.jpg" />
 </div>
 
 
@@ -466,7 +524,7 @@ GARRISON (Игорь Савосин) - Musical Lifeforms (2020) [FLAC|Lossless|W
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686709.jpg" />
 </div>
 
 
@@ -495,7 +553,7 @@ Tinlicker - Tomorrowland Friendship Mix (2022-02-24) [MP3|320 Kbps] <Progressive
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686707.jpg" />
 </div>
 
 
@@ -524,7 +582,7 @@ Aivö (Aivo) - Infinite Path (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, So
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686705.jpg" />
 </div>
 
 
@@ -553,7 +611,7 @@ Roger Shah - Magic Island - Music for Balearic People, Vol. 7 (2016) [FLAC|Lossl
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686647.jpg" />
 </div>
 
 
@@ -582,7 +640,7 @@ VA - Sensual Nights Elegant Chillout Music for Sexy Time at Home (2019) [MP3|320
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686632.jpg" />
 </div>
 
 
@@ -611,7 +669,7 @@ Eisfabrik - Life Below Zero (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Futu
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686573.jpg" />
 </div>
 
 
@@ -640,7 +698,7 @@ VA - Cafe del Mar 40th Anniversary (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy Li
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686326.jpg" />
 </div>
 
 
@@ -669,7 +727,7 @@ Erasure - The Neon (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686321.jpg" />
 </div>
 
 
@@ -683,67 +741,6 @@ Erasure - The Neon (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3882F5567546F14CB01E7A86E8DCC53AD2445590
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 505237   (686268) от 07.06.2012
-
-Ghosting Season - The Very Last Of The Saints (2012) [MP3|320 кб/с]<Deep House, Ambient, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Deep House, Ambient, ElectronicПродолжительность: 01:03:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46A8350D325D953B52E998091A37DA51FDD1F3BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 506572   (686130) от 07.06.2012
-
-VA - Club Session Pres. Ibiza Beach Clubbing 2012 (2012) [MP3|320 кб/с]<House, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Micah The Violinist - Sunshine of Ibiza - Les Schmitz and Alex Del Amo Remix (6:48)
-02. D-Wave - Calinda - Menini & Viani Remix (7:30)
-03. Jochen Pash - Voyage - Dj PP Remix (7:30)
-04. Coqui Selection - Push Me! - Original Mix (6:54)
-05. Drumcomplex - Insomniac - Original Mix (8:34)
-06. Alex Del Amo - We Are Family - DJ PP Remix (7:21)
-07. Haroun Hickman - Lets Be Free - David Amo & Julio Navas Remix (6:16)
-08. Funkagenda - Antidote - Sonny Wharton Remix (6:25)
-09. Andy Vajna - Sensations - Javi Del Valle Remix (7:07)
-10. Jesse Voorn - Pop - Midnite Sleaze Remix (6:35)(   Читать дальше...   )2012Жанр: House, Club HouseПродолжительность: 02:16:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF44F666753EAE3A201E72D1DBC2EC687F271E08
 ```
 
 https://mybot314.ru/tekegram_catalog/

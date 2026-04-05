@@ -1,3 +1,61 @@
+###  Публикация: 1211108   (778069) от 05.03.2018
+
+ДиДюЛя & Chris Wonderful - Аквамарин (2017) [FLAC|Lossless|image + .cue] <Instrumental, Flamenco, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Свадебное путешествие (4:16)
+02. Страна дураков (3:59)
+03. Белый месяц (3:41)
+04. Посох шамана (3:48)(   Читать дальше...   )Жанр: Instrumental, Flamenco, New AgeПродолжительность: 00:38:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50895595C4F6B115FF169FE69F992B65446617D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013172   (777975) от 03.05.2016
+
+Salvador Candel - Armonia (2016) [MP3|320 кб/с] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Merlin
+02. En tu mirada
+03. Danza Medieval
+04. Evolucion(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:43:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B908D78504836CDB5B03835EA78DEE93AADC7B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012985   (777961) от 03.05.2016
 
 Guy Sweens - Pathways (2016) [FLAC|Lossless|tracks] <New Age, Ethnic>
@@ -6,7 +64,7 @@ Guy Sweens - Pathways (2016) [FLAC|Lossless|tracks] <New Age, Ethnic>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777961.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Mike Oldfield - 9 Albums Deluxe Edition (1973-1984) 2009-2016 / Mercury, Univers
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777772.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Medwyn Goodall - Manitou the Great Spirit (2015) [MP3|320 кб/с] <Native ameri
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777655.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Kathryn Kaye - There Was a Time (2016) [FLAC|Lossless|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777654.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Danny Rayel - Blue Skies (2016) [MP3|320 кб/с] <New Age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777649.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Peter Kater & Tina Guo - Inner Passion (2016) [MP3|320 кб/с] <New Age, Relax,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777622.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Emir Kusturica & The No Smoking Orchestra - Unza Unza Time (2000) [FLAC|Lossless
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777603.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Francis Goya - Musica Espectacular (2016) [FLAC|Lossless|WEB-DL|tracks] <Easy-Li
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777576.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Maximus & Felix - 2 Albums (1993, 1996) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777564.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Maximus & Felix - 2 Albums (1993, 1996) [FLAC|Lossless|tracks + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777561.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Michael Brant DeMaria - Ama (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777558.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Morcheeba - Beats & B-Sides (1996) [FLAC|Lossless|tracks + .cue] <Инструм
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777541.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Sal Oliveri - Piano Prayers: Peace for Stress & Anxiety (2018) [MP3|320 Kbps] <N
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777510.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Jean-Michel Jarre - Electronica 2: The Heart of Noise (2016) [MP3|320 кб/с] <
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777184.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ James Shanon, Chris Mercer, Ed Clarke, Richie Aikman - Acoustic Guitar Playlist 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777163.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777148.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Jean-Michel Jarre - Electronica 2: The Heart of Noise (2016) [FLAC|Lossless|imag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777102.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Ani Yun Wiya - Indian Nation (2016) [MP3|320 кб/с] <World, Native American, E
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776889.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Jeff Grace - Cold in July (2014) [FLAC|Lossless] <Soundtrack, Electronic>
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776874.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Audiomachine - Life (2017) [MP3|320 Kbps] <Soundtrack, Trailer music, Classical 
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776673.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Audiomachine - Volturnus (2018) [MP3|320 Kbps] <Soundtrack, Trailer music, Class
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776661.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Michael Sheehan - Radiance (2004) [MP3|320 кб/с] <New Age, Instrumental, Pian
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776559.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Sverre Knut Johansen - Earth From Above (2016) [MP3|320 кб/с] <Ambient, New a
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776530.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Orbis Mundi - Adia (2000) [FLAC|Lossless|tracks] <New Age, Folk Rock, Modern Cla
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776494.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Orbis Mundi - Adia (2000) [FLAC|Lossless|tracks] <New Age, Folk Rock, Modern Cla
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C37661A547F453042E57E1395BD7A02B304CEE2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014389   (776486) от 07.05.2016
-
-Dagaz - Reflection Of The Soul (2014) [FLAC|Lossless|tracks] <New Age, Downtempo, Chill Out>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stay With Me    03:38
-02. Silver Lights    04:42
-03. Philadelphia    04:34
-04. Reflection Of The Soul    03:41(   Читать дальше...   )Жанр: New Age, Downtempo, Chill OutПродолжительность: 00:01:20:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:023EAF47CA71B3DDD4A5A82F8F426F35ADF22367
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014354   (776481) от 07.05.2016
-
-Wong Wai Ming - Romance On Violin (2013) [FLAC|Lossless|tracks + .cue] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If (2:52)
-02. Song From Secret Garden (2:59)
-03. Make It With You (3:21)
-04. First Of May (4:05)(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:47:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1102DD8B89D8DE35FBE2E6A695FBC8BADFB27E60
 ```
 
 https://mybot314.ru/tekegram_catalog/

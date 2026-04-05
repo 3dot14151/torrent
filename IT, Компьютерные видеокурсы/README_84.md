@@ -1,32 +1,3 @@
-###  Публикация: 1604818   (204001) от 15.01.2023
-
-ЯЮниор, Роман Сакутин, Валентин Кравченко | C# c 0 до профи (2022) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полный курс C# от ЯЮниор, таймкоды онлайн-версии и перечень тем:
-00:00:00 - Предисловие от Романа Сакутина
-00:02:27 - Введение в программирование
-00:05:15 - Установка Visual Studio бесплатно(   Читать дальше...   )Производство: ЯЮниорЖанр: Программирование, C#Язык озвучки: РусскийПродолжительность: 09:19:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:572985A62F88231D848A93B41B1ED813967B8CD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1606696   (203652) от 23.01.2023
 
 e-Business | Webflow intensive 2.0 (2022) WEB-DL [RU]
@@ -35,7 +6,7 @@ e-Business | Webflow intensive 2.0 (2022) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203652.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Udemy, Ashutosh Pawar | The Complete FastAPI Course With OAuth & JWT Authenticat
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203484.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203431.jpg" />
 </div>
 
 
@@ -121,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203426.jpg" />
 </div>
 
 
@@ -150,7 +121,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203309.jpg" />
 </div>
 
 
@@ -178,7 +149,7 @@ HolyJS 2020 Piter | Конференция для JavaScript-разработч�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202901.jpg" />
 </div>
 
 
@@ -204,7 +175,7 @@ Brad Traversy | Modern JavaScript From The Beginning 2.0 (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202312.jpg" />
 </div>
 
 
@@ -230,7 +201,7 @@ Podlodka Crew | Backend Crew #4 (2022) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202310.jpg" />
 </div>
 
 
@@ -258,7 +229,7 @@ Podlodka Crew | Java Crew #1 (2022) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202306.jpg" />
 </div>
 
 
@@ -287,7 +258,7 @@ ZTM Academy, Luis Ramirez Jr | Unity Bootcamp: 3D Game Development (2023) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202302.jpg" />
 </div>
 
 
@@ -315,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202289.jpg" />
 </div>
 
 
@@ -344,7 +315,7 @@ JavaBegin | Авторизация OAuth2 из frontend – на основе Ja
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202287.jpg" />
 </div>
 
 
@@ -372,7 +343,7 @@ Udemy, Arno Pretorius | Python Django: Build an E-commerce Store - 2023 (2023) W
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202273.jpg" />
 </div>
 
 
@@ -398,7 +369,7 @@ Udemy, Arno Pretorius | Python Django: Ultimate Web Security Checklist (2023) WE
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202211.jpg" />
 </div>
 
 
@@ -427,7 +398,7 @@ Udemy, John Purcell | Learn Advanced Java (2022) WEB-DL [EN / EN Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202197.jpg" />
 </div>
 
 
@@ -453,7 +424,7 @@ Udemy, Jose Portilla | Python for Machine Learning & Data Science Masterclass (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202173.jpg" />
 </div>
 
 
@@ -479,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202127.jpg" />
 </div>
 
 
@@ -505,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201799.jpg" />
 </div>
 
 
@@ -533,7 +504,7 @@ Udemy, Destiny Franks | Build a Video Upload Website Using Django (2023) WEB-DL 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201740.jpg" />
 </div>
 
 
@@ -562,7 +533,7 @@ Udemy, Parwiz Forogh | Python GUI Development with PySide6 - Qt for Python (2022
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201698.jpg" />
 </div>
 
 
@@ -591,7 +562,7 @@ Udemy, Very Academy | Django Project: Building a Python Package - SQL Middleware
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201672.jpg" />
 </div>
 
 
@@ -617,7 +588,7 @@ Udemy, Jonas Schmedtmann | Crash Course: Build a Full-Stack Web App in a Weekend
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201497.jpg" />
 </div>
 
 
@@ -646,7 +617,7 @@ Udemy, Mohamed Hajji | BUILD THE BEST ECOMMERCE WEBSITE EVER with REACT JS NEXT 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201491.jpg" />
 </div>
 
 
@@ -672,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201465.jpg" />
 </div>
 
 
@@ -699,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201443.jpg" />
 </div>
 
 
@@ -711,6 +682,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:505B6F2E609C83D67E29FFDF46B5AAE68386F8CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620703   (201059) от 21.03.2023
+
+Udemy, Kyle Schaub | Lua Programming and Game Development with LÖVE (2021) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как для начинающих, так и для опытных программистов одним из лучших инструментов для изучения разработки игр является LÖVE (также известный как Love2D), игровой движок с открытым исходным кодом, который позволяет пользователям писать логику своих игр на Lua, легком для понимания. скриптовый язык. Эти скрытые жемчужины индустрии разработки идеально подходят для (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 08:25:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E9A6DCEF396537D325ECE3F42289563A38F3293
 ```
 
 https://mybot314.ru/tekegram_catalog/

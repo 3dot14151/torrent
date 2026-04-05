@@ -1,3 +1,55 @@
+###  Публикация: 1788683   (22935) от 31.03.2025
+
+Men of Valor (2004) [Ru/Multi] (1.3) License GOG
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22935.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вьетнамская война… Самый кровавый конфликт второй половины двадцатого века. Война, расколовшая пополам американское общество. Война, споры о которой не умолкают до сих пор. Жестокая игра политических амбиций, пешками в которой стали простые солдаты - мальчишки, вырванные из мирной жизни и брошенные в самое пекло. В Man of Valor: Vietnam вам предстоит выступить в (   Читать дальше...   )Тип издания: LicenseРазработчик: 2015Жанр: ЭкшеныЯзык озвучки: Английский, Итальянский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Итальянский, Французский и другиеЯзык интерфейса: Русский, Английский, Итальянский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FFBC6D200CDD0C0FCCF0787D32E6AC61E88A4F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788676   (22910) от 31.03.2025
+
+Men of Valor (2004) [Ru] (1.3) License
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вьетнамская война… Самый кровавый конфликт второй половины двадцатого века. Война, расколовшая пополам американское общество. Война, споры о которой не умолкают до сих пор. Жестокая игра политических амбиций, пешками в которой стали простые солдаты - мальчишки, вырванные из мирной жизни и брошенные в самое пекло. В Man of Valor: Vietnam вам предстоит выступить в (   Читать дальше...   )Тип издания: LicenseРазработчик: 2015Жанр: ЭкшеныЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1CBF75C0B7843406778FB132094353CAFB6BBBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1752215   (22417) от 05.04.2025
 
 I Am Your Beast (2024) [En] (March 20 Minor Update) License GOG
@@ -6,7 +58,7 @@ I Am Your Beast (2024) [En] (March 20 Minor Update) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22417.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Metro: Exodus / Метро: Исход (2021) [Ru/Multi] (2.0.1.1/2.0.7.1/dlc) R
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21922.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Prey (2006) [Ru] (1.4) Repack/Mod seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21902.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Echo Point Nova (2024) [Ru/Multi] (1.41) Repack Let'sРlay [Digital Deluxe Editi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21400.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Dying Light: The Following (2016) [Ru/En] (1.50.0/dlc) Repack Other s [Definitiv
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21375.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Call of Juarez: Gunslinger (2013) [Ru/En] (1.0.5/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21285.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Sons of the Forest (2023) [Ru/Multi] (1.0.53951) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21186.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Soulslinger: Envoy of Death (2023) [Ru/Multi] (1.0) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21062.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Vampire Hunters (2023) [Ru/Multi] (1.3.0.CL11455) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20951.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ DOOM (2016) [Ru/Multi] (20240321-110145) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20876.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Soulslinger: Envoy of Death (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20850.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ DOOM (2016) [Ru/Multi] (20240321-110145-gentle-wolf/dlc) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20640.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Sker Ritual (2022) [Ru/Multi] (1.2.3.25254/dlc) Repack seleZen [Anniversary Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20306.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Sker Ritual (2022) [Ru/Multi] (1.2.3.25254/dlc) Repack FitGirl [Anniversary Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20250.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Forgive Me Father 2 (2023) [Ru/Multi] (1.1.1.8) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19989.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Turok: Dinosaur Hunter (1997) [Multi] (kex4-3.0.1013) License GOG [Remastered]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19821.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Viscerafest (2021) [Ru/Multi] (1.2) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19646.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Skin Deep (2025) [Ru/Multi] (2025.04.27.1441) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19515.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Viscerafest (2021) [Ru/Multi] (1.2) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19045.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Forgive Me Father 2 (2023) [Ru/Multi] (1.1.1.85) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18728.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Forgive Me Father (2021) [Ru/Multi] (1.4.1) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18704.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Doom 3: BFG Edition (2012) [Ru/En] (1.14 20230201) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18688.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Battle Shapers (2024) [Ru/Multi] (1.1.2.10449) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18270.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Avium (2024) [Ru/Multi] (Patch 43/dlc) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18166.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Avium (2024) [Ru/Multi] (Patch 43/dlc) Repack Let'sРlay
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D46DA3902E8EFA671F2A6FFEF82E26993AD39D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703157   (17742) от 20.05.2025
-
-Dying Light 2: Stay Human (2022) [Ru/En] (1.22.4/dlc) Repack Other s [Digital Extras Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Более двадцати лет назад мы пытались побороть этот вирус в Харране... и потерпели поражение. Теперь мы проигрываем вновь. Город - последнее из крупных человеческих поселений - раздирает внутренняя вражда. Цивилизация отброшена во тьму средневековья, но надежда еще жива. Вы скиталец, которому по силам решить судьбу Города, но ваши исключительные способности имеют (   Читать дальше...   )Тип издания: RepackРазработчик: TechlandЖанр: Action, RPG, AdventureЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C49D65BF846504B18FA623D369326A7DE0B194A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758006   (17721) от 20.05.2025
-
-Crime Boss Rockay City (2023) [Ru/Multi] (1.15.1.0/dlc) Repack seleZen
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пристегните ремни, потому что эта игра бросит вас с головой в мрачную подноготную города, кишащего преступностью. Вы не какой-то там мелкий бандит, вы - криминальный авторитет, жаждущий власти. Продуманные ограбления, напряженные решения и перехитрить всех. Однопользовательская кампания - это ваше личное восхождение к славе. Каждый ваш шаг - подбор команды, обследование (   Читать дальше...   )Тип издания: RepackРазработчик: INGAME STUDIOSЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4D2D19C0C3891CBFD80A96DB5C56B3637520331
 ```
 
 https://mybot314.ru/tekegram_catalog/

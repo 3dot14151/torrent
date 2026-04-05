@@ -1,3 +1,110 @@
+###  Публикация: 1621800   (244956) от 26.03.2023
+
+Altair Compose 2022.2.0 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Altair Compose высокоуровневый язык вычислений основанный на числовом решении матриц предоставляющий единую среду для всех типов математических вычислений. Программа предоставляет широкий набор инструментов для решения матриц, дифференциальных уравнений и задач оптимизации.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EF5D57CBFCE72350E61597725C801EFEF22A3A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621928   (244873) от 26.03.2023
+
+Altair SimSolid 2022.2.1 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244873.jpg" />
+</div>
+
+
+###  Подробнее
+
+SIMSOLID – разработка одноименной американской компании SIMSOLID Corporation, программный продукт, разработанный специально для инженеров-конструкторов, который позволяет проводить прочностной анализ деталей со сложной геометрией и крупных сборок.
+
+Главное преимущество SIMSOLID – автоматизированное упрощение сложной геометрии и автоматическая генерация КЭ-сетки. (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA73910372AC8BB2C6BC91953916B5B1C960F28F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621913   (244817) от 26.03.2023
+
+Altair Flux & FluxMotor 2022.2.0 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Altair Flux- программный продукт для электромагнитного и термодинамического низкочастотного анализа.
+Altair FluxMotor — автономная программа ориентированная на предварительное проектирование электрических двигателей.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:704C365520BFF3E94C9B77F51C97FC0999577104
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621717   (244740) от 25.03.2023
+
+Altair Activate 2022.2.1 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Altair Activate позволяет конструкторам моделировать и оптимизировать мультидисциплинарные системы. Использование различных оптимизационных моделей обеспечивают выполнение всех поставленных конструкторских требований и выявление проблем на ранней стадии проектирования.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08EFB7D43D9299D9387057F694BD9B78B6EBEFE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541744   (244050) от 04.04.2022
 
 AMP Font Viewer 3.86 + Portable [Multi]
@@ -6,7 +113,7 @@ AMP Font Viewer 3.86 + Portable [Multi]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244050.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ Lahey/Fujitsu Fortran 7.9 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243389.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ Code Composer Studio 12.2.0.00009 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241408.jpg" />
 </div>
 
 
@@ -85,7 +192,7 @@ IDM UltraCompare Pro 22.20.0.26 / UltraEdit 29.1.0.90 Portable by AlexYar [Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241100.jpg" />
 </div>
 
 
@@ -111,7 +218,7 @@ Blumentals Rapid PHP 2022 17.3.0.244 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239779.jpg" />
 </div>
 
 
@@ -137,7 +244,7 @@ Altair SimLab 2022.3 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236468.jpg" />
 </div>
 
 
@@ -163,7 +270,7 @@ Resource Tuner Business 2.23.0.0 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233584.jpg" />
 </div>
 
 
@@ -190,7 +297,7 @@ Turbo Studio 22.9.6 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232980.jpg" />
 </div>
 
 
@@ -216,7 +323,7 @@ PeStudio 9.43 Portable [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232967.jpg" />
 </div>
 
 
@@ -242,7 +349,7 @@ GameMaker 2022.8.1.37 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232958.jpg" />
 </div>
 
 
@@ -268,7 +375,7 @@ Microsoft Endpoint Configuration Manager 2203 [Multi/Ru]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232838.jpg" />
 </div>
 
 
@@ -294,7 +401,7 @@ Keysight EMPro 2023 Update 0.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231260.jpg" />
 </div>
 
 
@@ -323,7 +430,7 @@ Geomagic Control X 2020.1.1 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230450.jpg" />
 </div>
 
 
@@ -349,7 +456,7 @@ MInstAll by StartSoft Lite 09-2020 [Ru/En]
 >>WPI
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228296.jpg" />
 </div>
 
 
@@ -375,7 +482,7 @@ IBM Rational Software Architect 9.0 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223031.jpg" />
 </div>
 
 
@@ -401,7 +508,7 @@ Developer Express VCL for Delphi 14.2.2 Full Sources для IDE Delphi 7 - XE7 [
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221595.jpg" />
 </div>
 
 
@@ -428,7 +535,7 @@ Gstarsoft GstarCAD 2016 Build 151116 (x64) [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219587.jpg" />
 </div>
 
 
@@ -454,7 +561,7 @@ Intel Parallel Studio XE 2017 Update 1 Cluster Edition [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215369.jpg" />
 </div>
 
 
@@ -480,7 +587,7 @@ CSoft WiseImage Pro Standalone 22.0.1741 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214346.jpg" />
 </div>
 
 
@@ -506,7 +613,7 @@ JetBrains Rider 2025.2.4 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213478.jpg" />
 </div>
 
 
@@ -532,7 +639,7 @@ WYSIWYG Web Builder 17.3.1 [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213146.jpg" />
 </div>
 
 
@@ -558,7 +665,7 @@ Jetbrains IntelliJ IDEA Ultimate 2025.2.4 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212527.jpg" />
 </div>
 
 
@@ -569,114 +676,6 @@ JetBrains IntelliJ IDEA Ultimate - это профессиональный ин�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85C6F0817DA1DC587EDC64628462CDFF286B7287
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1831154   (212521) от 28.10.2025
-
-JetBrains GoLand 2025.2.4 (x64-arm64) Repack by IDE`a [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212521.jpg" />
-</div>
-
-
-###  Подробнее
-
-GoLand - это интегрированная среда разработки (IDE) от компании JetBrains, специально разработанная для работы с языком программирования Go. Она предоставляет разработчикам удобную среду для написания кода, анализа и отладки программ на Go.
-
-IDE GoLand предлагает широкий спектр инструментов, специфичных для языка Go, таких, как автодополнение кода, быструю навигацию (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56FC4381A564A4DFA318C29F93394FAA04A78DBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1831156   (212514) от 28.10.2025
-
-JetBrains PhpStorm 2025.2.4 (x64-arm64) Repack by IDE`a [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212514.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhpStorm – это интегрированная среда разработки на PHP с интеллектуальным редактором, которая глубоко понимает код,
-поддерживает PHP 5.3, 5.4, 5.5, 5.6, 7.0, 7.1, 7.2, 7.4, 8.0, 8.1, 8.2, 8.3, 8.4 и PHP 8.5 для современных и классических проектов, обеспечивает лучшее в индустрии автодополнение кода, рефакторинги, предотвращение ошибок налету и поддерживает смешивание (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6017B2C9AD8C93F56777BD7BA9281C43E3C9E79C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1831167   (212505) от 28.10.2025
-
-JetBrains PyCharm Professional 2025.2.4 (x64-arm64) Repack by IFE`a [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212505.jpg" />
-</div>
-
-
-###  Подробнее
-
-JetBrains PyCharm Professional – это мощная и многофункциональная интегрированная среда разработки, предназначенная для работы с языком программирования Python. Она разработана компанией JetBrains, которая также создала такие продукты, как IntelliJ IDEA, RubyMine и WebStorm. PyCharm включает в себя все необходимые инструменты для быстрой и эффективной разработки (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:711A2B4A1EB5486FEB01BD5EDA7403D339A2A832
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1831179   (212499) от 28.10.2025
-
-JetBrains RubyMine 2025.2.4 (x64-arm64) Repack by IDE`a [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212499.jpg" />
-</div>
-
-
-###  Подробнее
-
-RubyMine — умная и удобная интегрированная среда разработки для языка Ruby и веб-фреймворка Rails, которая включает в себя все необходимые разработчику инструменты и поддерживает наиболее востребованные технологии из мира Ruby.
-Как и все IDE, разработанные на основе платформы IntelliJ, RubyMine обладает уникальным механизмом анализа кода, который лежит в основе таких (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB2504EAF4A74CC9DD6F1ECE060D36EFD4E1A49E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,57 @@
+###  Публикация: 1112810   (840852) от 09.03.2017
+
+Atelier Firis: The Alchemist and the Mysterious Journey (2017) [En] (1.0.0.9/dlc) License CODEX
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая игра из серии Mysterious рассказывает историю энергичной девушки Firis Mistlud и ее заботливой старшей сестры Liane Mistlud. Сестры провели всю жизнь в уединенном городке Ertona, где Firis регулярно упражнялась в поиске месторождений кристаллов. Волей случая Firis узнает про Alchemy Exam и решает сделать первый шаг на пути в большой мир, где ей предстоит стать (   Читать дальше...   )Тип издания: LicenseРазработчик: KOEI TECMO GAMES COЖанр: RPG (Japane Style), Third-person, 3D,Язык озвучки: Английский, ЯпонскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D118538B6075632C35C3EF597244E0D953B2DDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 794716   (838482) от 17.03.2015
+
+The Incredible Adventures of Van Helsing II/2 / Van Helsing 2: Смерти вопреки (2014) [Ru/Multi] (1.3.0d/7dlc) Repack R.G. Механики
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра Van Helsing 2: Смерти вопреки (The Incredible Adventures of Van Helsing II) — это не только коллекция десятка новых карт и монстров, но настоящее продолжение, сохранившее все лучшее из первой игры. Кроме небольших улучшений и доделок, оно также обрело множество новых особенностей.
+
+И еще... Это не совсем особенность, но если вам нравились живые диалоги, развязный юмор и «пасхалки» первой игры, то вы будете счастливы услышать, что в продолжении такого еще больше.Тип издания: RepackРазработчик: Neocore GamesЖанр: Action / RPGЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05EEC8526D26F3DB4488A7017D6641638B13D72C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113263   (837500) от 11.03.2017
 
 Torment: Tides of Numenera (2017) [Ru/En] (1.0.1/dlc) Repack R.G. Механики
@@ -6,7 +60,7 @@ Torment: Tides of Numenera (2017) [Ru/En] (1.0.1/dlc) Repack R.G. Механик
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837500.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Blood Omen: Legacy of Kain (1996) [En] (1.0hf) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833099.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ Shadowrun: Dragonfall (2014) [Ru/En] (2.1.1.8) License GOG [Director's Cut]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830968.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ Children of Zodiarcs (2017) [Multi] (1.0.3.7-2f11118c226f) License GOG [Collecto
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830762.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ Convoy (2015) [Ru/En] (1.1.51) Repack ARMENIAC
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830075.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ Dragon Ball Z: Kakarot (2020) [Ru/Multi] (1.10/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829056.jpg" />
 </div>
 
 
@@ -162,7 +216,7 @@ Fallout [Ru] (P) 1997
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828340.jpg" />
 </div>
 
 
@@ -188,7 +242,7 @@ Dungeon Encounters (2021) [Multi] (7222979) License DARKSiDERS
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826217.jpg" />
 </div>
 
 
@@ -214,7 +268,7 @@ The Tenth Line (2017) [En] (1.0.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825805.jpg" />
 </div>
 
 
@@ -240,7 +294,7 @@ DeathSpank Trilogy (2010-2011) [Ru/En] (1.0/dlc) Lossless Repack R.G. Revenants
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825680.jpg" />
 </div>
 
 
@@ -266,7 +320,7 @@ Wintermoor Tactics Club (2020) [En] (2020-05-04/dlc) License GOG [Wintermost Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823846.jpg" />
 </div>
 
 
@@ -292,7 +346,7 @@ Dex (2015) [Multi] (5.3.0.0/dlc) Repack R.G. Механики [Enhanced Version]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823810.jpg" />
 </div>
 
 
@@ -318,7 +372,7 @@ Dragon’s Dogma: Dark Arisen (2016) [Ru/En] (1.0/upd7/dlc) Repack =nemos=
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823728.jpg" />
 </div>
 
 
@@ -344,7 +398,7 @@ Megadimension Neptunia VIIR (2018) [Multi] (1.0/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822695.jpg" />
 </div>
 
 
@@ -370,7 +424,7 @@ Tyranny (2016) [Ru/Multi] (1.0.4.0048/dlc) SteamRip Let'sPlay [Overlord Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820216.jpg" />
 </div>
 
 
@@ -396,7 +450,7 @@ Cyber Manhunt (2021) [Multi] (1.3.30/dlc) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819071.jpg" />
 </div>
 
 
@@ -422,7 +476,7 @@ The Dwarves (2016) [Ru/Multi] (1.2.0.74) SteamRip Let'sPlay [Digital Deluxe Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_818459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_818459.jpg" />
 </div>
 
 
@@ -448,7 +502,7 @@ Dragon's Dogma: Dark Arisen (2016) [Ru/En] (1.0.0.18) Repack xatab (обновл
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816591.jpg" />
 </div>
 
 
@@ -474,7 +528,7 @@ Legends Of Dawn (2013) [Ru/Multi] (1.52s) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816348.jpg" />
 </div>
 
 
@@ -500,7 +554,7 @@ NieR Replicant ver.1.22474487139... (2021) [Multi] (7396468) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815250.jpg" />
 </div>
 
 
@@ -526,7 +580,7 @@ Nanotale - Typing Chronicles (2021) [Ru/Multi] (1.95) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815237.jpg" />
 </div>
 
 
@@ -552,7 +606,7 @@ Dungeon Defenders (2011) [Multi] (8.3/dlc) License PLAZA [Collection Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815007.jpg" />
 </div>
 
 
@@ -578,7 +632,7 @@ Masquerada: Songs and Shadows (2016) [Ru/Multi] (1.22) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814874.jpg" />
 </div>
 
 
@@ -604,7 +658,7 @@ The Elder Scrolls V: Skyrim (2016) [Ru/Multi] (1.5.23.0.8) License PROPHET [Spec
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814871.jpg" />
 </div>
 
 
@@ -615,58 +669,6 @@ The Elder Scrolls V: Skyrim Special Edition — это улучшенное и �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14770860E28199C1EF96E6C313876EEDBB59C670
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197341   (814869) от 07.01.2018
-
-Fallen Legion+ (2018) [Ru/Multi] (1.0) Repack Covfefe
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fallen Legion — это напряженная ролевая игра, в которой каждая битва захватывает дух, а каждое принятое решение может вызвать муки совести, но при этом влияет на судьбу вашего королевства.Тип издания: RepackРазработчик: YummyYummyTummy, MintsphereЖанр: Action, RPGЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D38749BCB6C6157841EAD12D6742B3640E7BC2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504172   (813356) от 22.10.2021
-
-This Land Is My Land (2021) [Ru/Multi] (0.0.9.18436) License CODEX
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813356.jpg" />
-</div>
-
-
-###  Подробнее
-
-Возьмите верный лук, быстрого коня и верните Ваши земли. Сражайтесь с патрулями, пробирайтесь в форты и поселения, исследуйте прекрасный мир, изготавливайте оружие и пищу, охотьтесь на животных, ведите своих верных товарищей к победе! This Land Is My Land предлагает Вам уникальное сочетание стелс-экшена и стратегии, позволяя Вам выбирать самые разные подходы к каждой (   Читать дальше...   )Тип издания: LicenseРазработчик: Game-LabsЖанр: Survival, Action, Stealth, Strategy, Open World, RPG, Crafting, SandboxЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43F50B04C1A15976356034A7E6153C73ABE39F33
 ```
 
 https://mybot314.ru/tekegram_catalog/

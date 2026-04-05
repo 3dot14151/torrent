@@ -1,3 +1,55 @@
+###  Публикация: 1425192   (215330) от 23.11.2020
+
+Air Explorer Pro 4.0.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Air Explorer Pro — один из лучших файловых менеджеров для работы с облачными хранилищами. Программа поддерживает работу с такими сервисами: OneDrive, Google Drive, 4shared, Box, Dropbox, Mega, Copy, Mediafire, Yandex, Baidu, Mail.ru, поддержка подключения по протоколам WebDAV, FТP и SFTP.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68ED067DD3A2A2721940108CADD72CE0CF99EB7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343589   (215329) от 07.12.2019
+
+Ночь в осаде / Trauma Center (2019) WEB-DLRip [H.264/1080p-LQ] [MVO] [AD]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Испуганная женщина, избитая неизвестными, оказывается ночью одна в больничном изоляторе травматологического центра. Раненная и обессиленная, она должна найти в себе силы сбежать от двух киллеров, которые пришли извлечь важную улику, указывающую на их причастие к громким криминальным делам. К счастью, ветеран полиции получает задание защищать главную героиню, и он (   Читать дальше...   )Производство: США / BondIt Media Capital, Buffalo 8 Productions, Emmett/Furla/Oasis FilmsЖанр: Боевик, триллерРежиссер: Мэтт ЭскандариАктеры: Брюс Уиллис, Никки Уилан, Стив Гуттенберг, Тексас Бэттл, Роман Митичян, Тайлер Джон Олсон, Хезер Йохансен, Тито Ортис, Дэйв Медоуз, Линн ГилмартинПеревод: Многоголосый закадровый, любительский (AlphaProject)Субтитры: ОтсутствуютПродолжительность: 01:26:10Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACCB7BE6A8DAA7CF53A89C39D94346125F416F5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206586   (215316) от 07.12.2019
 
 Cкин New Navitel 320х240 для Navitel 9.8.187 на WinCE [Ru/En] + спидкамы
@@ -6,7 +58,7 @@ Cкин New Navitel 320х240 для Navitel 9.8.187 на WinCE [Ru/En] + спи�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215316.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215237.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215088.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Malwarebytes Anti-Malware Premium 3.0.5.1299 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215078.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Ookami to Koushinryou II / Spice and Wolf II / Волчица и пряност�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215023.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ XRECODE 3 Build 1.44 + Portable (x64) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215014.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Red Giant Universe 2.0.0 CE Repack by TeamVR [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214996.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Windows Update MiniTool 20.12.2016 Portable [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214987.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ SketchUp Pro 2017 17.1.174 (x64) RePack by D!akov [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214943.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214940.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214930.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Adobe Lightroom Classic for Mac 12.4 U2B [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214874.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214842.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214691.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214635.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214585.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214564.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ Heroes of Might and Magic VII / Меч и Магия Герои VII (2015) [Ru/E
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214540.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214520.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214517.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214269.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ Linux для дома 22.7.7 (Mint, Mate DE) [amd64]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214194.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ Microsoft Office 2016-2021 LTSC Professional Plus / Standard + Visio + Project 1
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214187.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214180.jpg" />
 </div>
 
 
@@ -619,61 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F243EE3BDD21475AF95DAB3A2333C2E8E6D9EB49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 101505   (214154) от 28.10.2022
-
-Товарищ Президент 1 и 2; Курск – подводная лодка в мутной воде; Норд-Ост (2004-2007) TVRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильмы рассказывают о движении В.В. Путина к власти, причины развязывания войны в Чечне и другие важные события до и во время правления В.В. Путина, а также рассказывает о доводах оппозиции, некоторые ложные факты из официальных заявлений..... (Борис Березовский, Евгений Киселёв, Виктор Шендерович, Борис Немцов и др.)Жанр: ДокументальныйПродолжительность: 03:45:00
-
-Видео: XviD, 384x288, 384 Kbps, 0,12 b/px
-Аудио: MP3, 64 Kbps
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C9D2E063AFCB2C29EB643B0B2D0FF73FD8ED3E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 140419   (213907) от 08.12.2019
-
-Последний дюйм (1958) DVDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213907.jpg" />
-</div>
-
-
-###  Подробнее
-
-По одноименному рассказу Джеймса Олдриджа. Пожилой летчик Бен Энсли, нуждающийся в средствах, соглашается для телевидения сделать опасные подводные съемки. Вместе с 12-летним сыном Дэви он летит на легком спортивном самолете в Акулью бухту. В результате несчастного случая Бен не может управлять самолетом, помощи ждать неоткуда, и только Дэви может их спасти. Мальчик (   Читать дальше...   )Производство: СССРЖанр: Драма, ПриключенияРежиссер: Теодор Вульфович, Никита КурихинАктеры: Слава Муратов, Николай Крюков, Михаил Глузский, Алиага Агаев, Мухлис Джанни-Заде, Алексей РозановПеревод: Оригинальная русская озвучкаСубтитры: ОтсутствуютПродолжительность: 01:24:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D98373FEF0414B5D49B86CAFB22F91131D3D8776
 ```
 
 https://mybot314.ru/tekegram_catalog/

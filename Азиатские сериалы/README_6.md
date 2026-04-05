@@ -1,3 +1,31 @@
+###  Публикация: 1634286   (233528) от 19.05.2023
+
+Законные деньги / Расплата / Beopjjeon / Payback (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-12 из 12) Softbox Plus
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233528.jpg" />
+</div>
+
+
+###  Подробнее
+
+История мести тех, кто рискует всем, чтобы бороться с финансовым картелем в сговоре с законом.
+Ын Ён зарабатывает большие деньги в качестве безликого менеджера хедж-фонда за границей.. Из-за неожиданного инцидента он возвращается в родной город через 10 лет.
+Пак Джун Гён - майор армии, элитный офицер, сдавшая экзамен на адвоката и окончившая институт с высшими баллами. (   Читать дальше...   )Производство: Южная Корея, Rednine PicturesЖанр: драмаРежиссер: Ли Вон-тхэАктеры: Ли Сон-гюн, Мун Чхэ-вон, Кан Ю-сок, Пак Хун, Ким Хон-пха, Ким Хе-хва, Чхве Дон-мун, Ким Ми-сук, Сон Ын-со, Пак Хван-хиПеревод: двуголосый любительский (Softbox Plus)Язык озвучки: русский, корейскийСубтитры: английскиеПродолжительность: ~01:05:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3009A731DA1167C532123DFAC7BBF3D9F4AD2896
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1575858   (232974) от 26.09.2022
 
 Суринам / Наркосвятые / Surinam / The Accidental Narco / Narco-Saints (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6) HDRezka, TVShows
@@ -6,7 +34,7 @@
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232974.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231321.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230886.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228552.jpg" />
 </div>
 
 
@@ -110,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228467.jpg" />
 </div>
 
 
@@ -136,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227996.jpg" />
 </div>
 
 
@@ -162,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226659.jpg" />
 </div>
 
 
@@ -188,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225381.jpg" />
 </div>
 
 
@@ -214,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217490.jpg" />
 </div>
 
 
@@ -240,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215992.jpg" />
 </div>
 
 
@@ -266,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215661.jpg" />
 </div>
 
 
@@ -292,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213438.jpg" />
 </div>
 
 
@@ -318,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212920.jpg" />
 </div>
 
 
@@ -345,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212427.jpg" />
 </div>
 
 
@@ -371,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212110.jpg" />
 </div>
 
 
@@ -397,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211212.jpg" />
 </div>
 
 
@@ -423,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210905.jpg" />
 </div>
 
 
@@ -449,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210506.jpg" />
 </div>
 
 
@@ -476,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210416.jpg" />
 </div>
 
 
@@ -502,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209540.jpg" />
 </div>
 
 
@@ -529,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209418.jpg" />
 </div>
 
 
@@ -555,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209411.jpg" />
 </div>
 
 
@@ -581,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209382.jpg" />
 </div>
 
 
@@ -607,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208749.jpg" />
 </div>
 
 
@@ -635,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208380.jpg" />
 </div>
 
 
@@ -646,33 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA2F7C48692BBAEE8DE5C596F74D000706AF7DF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573350   (207641) от 19.09.2022
-
-Болтун / Bik mauseu / Big Mouth (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-16 из 16) SOFTBOX
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Странные вещи происходят, когда третьесортный адвокат случайно берется за дело об убийстве и старается докопаться до скрытой правды. Это история битвы, с которой столкнулся юрист из низшего класса, который должен стать злее, чем сами злодеи, чтобы защитить себя и свою семью и наказать плохих парней в мире, полном заговоров и алчности.
-Пак Чан Хо – юрист, который (   Читать дальше...   )Производство: Южная Корея, MBC ProductionsЖанр: детектив, криминалРежиссер: О Чхун-хванАктеры: Ли Джон-сок, Лим Юн-а, Ян Гён-вон, Ким Джу-хон, Ок Ча-ён, Квак Тон-ён, О И-щик, Ли Ю-джун, О Рюн, Чон Гук-хванПеревод: Двуголосый любительский (SOFTBOX)Язык озвучки: русский, корейскийПродолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F5497E9F8E6E566B7E5759B700A38200DAE7B42
 ```
 
 https://mybot314.ru/tekegram_catalog/

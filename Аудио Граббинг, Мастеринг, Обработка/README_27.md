@@ -1,3 +1,186 @@
+###  Публикация: 1344876   (168839) от 12.12.2019
+
+Electronik Sound Lab - 808 Bass Module III 3.3.1 VSTi, VSTi3 (x86/x64) Retail + Dynamite Expansion v.5 [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168839.jpg" />
+</div>
+
+
+###  Подробнее
+
+808 Bass Module III - мощный бас модуль с широким спектром различных 808 басов, готовых к использованию. Более 200 различных пресетов были разработаны для быстрого и вдохновляющего продакшена.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A4F149758F6A039D5AB864398686EBD6A8C859D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516035   (167722) от 09.12.2021
+
+PSPaudioware - PSP NobleQ 1.8.0 VST, VST3, AAX (x64) RePack by R2R [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167722.jpg" />
+</div>
+
+
+###  Подробнее
+
+PSP NobleQ объединяет возможности пассивных эквалайзеров с широким диапазоном настроек частот и расширенной функциональностью. Чтобы сделать этот плагин универсальным, мы добавили несколько современных функций, таких как настраиваемый high pass фильтр и возможность переключать усиление или ослабление в high peak и shelf фильтрах.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7283006A50D1C1EED54ACB5B012228B876981D6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431637   (166710) от 14.12.2020
+
+Streaming Audio Recorder 4.3.5.0 Repack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Streaming Audio Recorder - программа для записи всех звуков, которые проходят через звуковую карту компьютера. Всё, что Вам нужно сделать, чтобы записать песню, играющую на Интернет радио – это нажать кнопку Record и сохранить её в формате MP3, ACC, OGG, WMA, WAV, FLAC. Если вы занимаетесь музыкой, то Вы сможете записать Ваш голос через микрофон. Используя этот инструмент, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28A8739E08154FBB28D949351CAAF20E3A22E299
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673410   (165183) от 01.11.2023
+
+Acoustica Premium Edition 7.5.1 (x64) RePack (& Portable) by TryRooM [Ru/En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Acoustica Premium Edition - профессиональная программа, которая позволит на высоком уровне вести аудио запись, редактирование и мастеринг. Хочется отметить интуитивно понятный интерфейс в котором приятно работать. Он был разработан таким образом, чтобы вы максимально быстро могли в нем освоится и приступить к работе, получая доступ к мощным инструментам. Все аудио (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F8BC07071B7EBE2DEBEB320925A23191A0062DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345791   (164907) от 17.12.2019
+
+Arturia - Synth Collection 2019.12 STANDALONE, VSTi, VSTi3, AAX (x64) RePack by VR [EN]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Synth Collection, содержащий 15 программных инструмента и тысячи встроенных звуков, считается «обязательным справочником для музыкантов, продюсеров, звукорежиссеров и любителей клавиатуры».
+В Synth Collection Arturia использовала методы моделирования для создания точных версий программного обеспечения десятков проверенных временем инструментов.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BB3487883224FF2CD0EDC63F35FA64294854627
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517071   (164421) от 13.12.2021
+
+Tone2 - RayBlaster 2.6.0 STANDALONE, VSTi (x64) RePack by R2R [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164421.jpg" />
+</div>
+
+
+###  Подробнее
+
+RayBlaster 2 - воплощает новый метод синтеза под названием Impulse Modelling Synthesis (IMS). Вместо зацикливания формы звуковой волны, IMS создает звук посредством коротких всплесков энергии, которые затем объединяются, формируя определенный звук. Все это позволяет свободно манипулировать высотой тона, временем и тембром в реальном времени для создания комплексных (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04B5E4F367EE54D4B895F280E57AA8B5BCF85FF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673761   (164254) от 02.11.2023
+
+Acoustica Premium Edition 7.5.2 (x64) Portable by 7997 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164254.jpg" />
+</div>
+
+
+###  Подробнее
+
+Acoustica Premium Edition - профессиональная программа, которая позволит на высоком уровне вести аудио запись, редактирование и мастеринг. Хочется отметить интуитивно понятный интерфейс в котором приятно работать. Он был разработан таким образом, чтобы вы максимально быстро могли в нем освоится и приступить к работе, получая доступ к мощным инструментам. Все аудио (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20A0294D16066F9A59FEA462AF4AFC471E987371
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517215   (163347) от 14.12.2021
 
 UVI - Falcon v2.5.3 STANDALONE, EXE/VST/AAX(MOD) x64 RePack by R2R [En]
@@ -6,7 +189,7 @@ UVI - Falcon v2.5.3 STANDALONE, EXE/VST/AAX(MOD) x64 RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163347.jpg" />
 </div>
 
 
@@ -32,7 +215,7 @@ UVI - Synth Anthology 3 v1.0.1 (UVI Falcon) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162848.jpg" />
 </div>
 
 
@@ -58,7 +241,7 @@ UVI - Key Suite Digital v1.1.1 (UVI Falcon) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162821.jpg" />
 </div>
 
 
@@ -84,7 +267,7 @@ Gospel Musicians - FM TiNES for (UVI Falcon) 2.0 [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162717.jpg" />
 </div>
 
 
@@ -110,7 +293,7 @@ reFX - Nexus 3.4.4 VSTi (x64) + Content [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162479.jpg" />
 </div>
 
 
@@ -137,7 +320,7 @@ Antares - AVOX 4 v4.2.0 VST, AAX (x64) RePack by VR [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161770.jpg" />
 </div>
 
 
@@ -164,7 +347,7 @@ UVI - Austrian Grand v.1.0.3 (UVI Falcon) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161561.jpg" />
 </div>
 
 
@@ -190,7 +373,7 @@ UVI - Model D Falcon 1.6 [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161539.jpg" />
 </div>
 
 
@@ -219,7 +402,7 @@ VI Labs Audio - Ravenscroft 275 (UVI Falcon) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161480.jpg" />
 </div>
 
 
@@ -245,7 +428,7 @@ Cableguys - ShaperBox 3 3.2 VST, VST 3, AAX (x64) RePack by TeamCubeadooby [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161298.jpg" />
 </div>
 
 
@@ -273,7 +456,7 @@ Boz Digital Labs - Sasquatch 2.0.5 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161141.jpg" />
 </div>
 
 
@@ -299,7 +482,7 @@ Boz Digital Labs - ProVocative 1.0.6 VST, VST3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161088.jpg" />
 </div>
 
 
@@ -326,7 +509,7 @@ Boz Digital Labs - Pan Knob 1.0.2 VST, VST3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161058.jpg" />
 </div>
 
 
@@ -352,7 +535,7 @@ The Tunes - Navira 1.1.6 VSTi [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159595.jpg" />
 </div>
 
 
@@ -379,7 +562,7 @@ FAW SubLab 1.1.9 STANDALONE, VSTi, VSTi3, AAX (x86/x64) RePack by TeamCubeadooby
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159301.jpg" />
 </div>
 
 
@@ -406,7 +589,7 @@ Xfer Records - Serum & SerumFX 1.35b7 VSTi, VSTi3, AAX (x86/x64) RePack by TCD [
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159247.jpg" />
 </div>
 
 
@@ -432,7 +615,7 @@ Plugin Alliance - All Bundle 2022 VST / VSTi, VST3 / VSTi3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159160.jpg" />
 </div>
 
 
@@ -458,7 +641,7 @@ Dawesome - Kult 1.0.0 VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158992.jpg" />
 </div>
 
 
@@ -484,7 +667,7 @@ Cherry Audio - GX-80 1.0.9.123 Standalone, VSTi, VSTi 3, AAX (x64) RePack by R2R
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158918.jpg" />
 </div>
 
 
@@ -495,190 +678,6 @@ GX-80 - это не просто еще одна эмуляция CS-80. GX-80 �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2240C471E6F586EF3C04D772C7DBDF40A8D7E34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518077   (157503) от 18.12.2021
-
-iZotope Music Production Suite Pro 2021.12 STANDALONE, VST, VST3, AAX (x64) RePack by VR (Rev2) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157503.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все подключаемые модули, которые понадобятся вам для профессионального создания музыки, в одном наборе. Получите доступ к RX Pro for Music, VocalSynth Pro, Ozone Pro, Neutron Pro, Nectar Pro, Neoverb Pro, Tonal Balance Control Pro, Insight Pro, Melodyne 5 Essential, а также к пресетам, семплам и обновлениям для всех продуктов Pro. Добавьте к своему набору навыков (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CDC9CC86306BA0A2173F55D3C5184454B2F6C02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600640   (155638) от 28.12.2022
-
-Sonible - smart:limit 1.1.3 VST, VST3, AAX (x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155638.jpg" />
-</div>
-
-
-###  Подробнее
-
-smart:limit предоставляет настройки лимитера, которые позволяют вашему миксу «дышать», и дает вам всю информацию о громкости и динамике, необходимую для уверенной публикации.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:283C1C08DF21CBFB0FB5BEB1B19010FD8C1FACF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270642   (155618) от 20.12.2018
-
-Rob Papen - Go2 1.0.1b VSTi, AAX (x86/x64) Repack by VR [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Независимый разработчик Роб Пейпен выпустил VST-синтезатор Rob Papen Go2. По мнению создателя, у новинки есть все шансы стать одним из основных синтезаторов в любой студии звукозаписи.
-Виртуальный инструмент отличается простым и понятным интерфейсом и большим количеством функций, управляемых и вызываемых через единственное окно программы. Несмотря на простоту, Пейпен (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B5452A01E7168CC4C6E7BE158C7629FB381E8D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270663   (155212) от 20.12.2018
-
-Roland VS - SRX DANCE TRAX VSTi, VSTi3, AAX 1.0.1 [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Roland Cloud представляет SRX DANCE TRAX, созданный в духе оригинальной аппаратной платы Roland с переосмысленной функциональностью.
-Как это было - В начале 2000-х платы расширения Roland SRX были инновационным способом добавления свежих ароматов в ваш синтезатор. Установленные непосредственно в аппаратные синтезаторы Roland, каждая плата создавала крошечный жанрово-ориентированный (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D287F3C30735B41EDF2515C2C892EA96E83D8098
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346812   (155174) от 21.12.2019
-
-Tone2 - Warmverb Multi-FX 1.2.1/1.2.2 VST (x86/x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tone2 - Warmverb - гибкий мульти-эффект процессор, предоставляющий возможность создавать уникальные звуковые эффекты. Он может делать не только классические эффекты с наилучшим качеством, но и сумасшедшие вещи, такие как связка эффектов дисторшн-реверб-фейзер-задержка-вокодер. Включая высококачественные технологии реверберации из синтезатора Gladiator, Warmverb также (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90B731E8FEE38AA9731F438E1A4A8345AE96ADF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518503   (153969) от 20.12.2021
-
-Adam Szabo - Viper 1.0.91 VSTi (x86/x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153969.jpg" />
-</div>
-
-
-###  Подробнее
-
-Viper стремится передать звуковые характеристики легендарных аппаратных синтезаторов в виртуальном формате. Он поставляется с множеством функций, таких как: несколько типов осцилляторов, синхронизация, частотная модуляция, кольцевая модуляция, унисон до 8 голосов, насыщенность фильтра, маршрутизация фильтра, матрица модуляции, высококачественные эффекты, мощный арпеджиатор (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C292DDEE1633D0BC2E258481AA6B569F19C89671
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518480   (153954) от 20.12.2021
-
-UVI - Key Suite Electric 1.0.6 (UVI Falcon) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153954.jpg" />
-</div>
-
-
-###  Подробнее
-
-В результате более чем 20 лет в создании инструментов на основе сэмплов, Key Suite Electric был разработан, чтобы стать вашей библиотекой электрических клавиатур. Наслаждайтесь богатством глубоко сэмплированных и безукоризненно записанных инструментов с уровнем качества звука и контроля, который вы ожидаете найти только в профессиональной студии звукозаписи. С 63 (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E9F704D3C45B1B2BE30A5D72103A3DD1FA96B06
 ```
 
 https://mybot314.ru/tekegram_catalog/

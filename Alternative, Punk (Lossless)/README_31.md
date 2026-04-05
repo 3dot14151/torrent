@@ -6,7 +6,7 @@ The Dangerous Summer - Mother Nature (2019) Hopeless Records [FLAC|Lossless|WEB-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553950.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Reptaliens - Valis (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop, Lo-Fi>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553781.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Panic! At the Disco - Pray For The Wicked (2018) [FLAC|Lossless|tracks + .cue] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553276.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Tal Wilkenfeld - Love Remains (2019) [FLAC|Lossless|tracks + .cue] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552881.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Bring Me The Horizon - 2004-2013 (2017) Compilation [FLAC|Lossless|WEB-DL|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552357.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Bad Wolves - Disobey (2018) Eleven Seven Music [FLAC|Lossless|tracks + .cue] <Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552341.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Bad Omens - Bad Omens (2016) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551790.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Rustin Man - Drift Code (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551218.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Bill Callahan - Shepherd in a Sheepskin Vest (2019) [FLAC|Lossless|tracks + .cue
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550538.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Two Door Cinema Club - False Alarm (2019) [FLAC|Lossless|tracks + .cue] <Alterna
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550436.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ The Get Up Kids - Problems (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Emo
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548855.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Broken Bells - Broken Bells (2010) [FLAC|Lossless|tracks + .cue] <Alternative Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548852.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Sick Puppies - Fury (2016) Best Buy Edition [FLAC|Lossless|tracks] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548250.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ I See Stars - Treehouse (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronicore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548198.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Ducktails - Watercolors (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547864.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Ducktails - The Flower Lane (2013) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547863.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Ducktails - III: Arcade Dynamics (2011) [FLAC|Lossless|tracks + .cue] <Indie Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547861.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Ducktails - St. Catherine (2015) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547858.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ She Pleasures Herself - XXX (2019) [FLAC|Lossless|tracks + .cue] <Post-Punk, Col
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547686.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ The Veils - Total Depravity (2016) [FLAC|Lossless|tracks] <Alternative Rock, Ind
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547275.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ LP (Laura Pergolizzi) - Death Valley (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547134.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Mono Inc. - Welcome to Hell (2018) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547025.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Puscifer (Maynard James Keenan of Tool & A Perfect Circle) - Money $hot (Shot) (
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546419.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Florence + The Machine - Wish That You Were Here (From "Miss Peregrine’s Home 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546416.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ VA - Shine 3 (1995) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545751.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ The Cat Empire - Stolen Diamonds (2019) [FLAC|Lossless|tracks + .cue] <Funk, Alt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545241.jpg" />
 </div>
 
 

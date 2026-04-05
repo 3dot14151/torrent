@@ -1,3 +1,32 @@
+###  Публикация: 1384744   (801674) от 21.05.2020
+
+Юлия Бердникова | Любимые русские сказки. Читаем с малышом и решаем эмоциональные проблемы (2019) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801674.jpg" />
+</div>
+
+
+###  Подробнее
+
+С кого брать пример маленькому читателю?
+Что почитать с малышом для развлечения и пользы?
+Хотите, чтобы ребёнок вырос смелым и отзывчивым?
+Мечтаете, чтобы он с раннего детства научился дружить?(   Читать дальше...   )Жанр: Сказки для детей, Воспитание детейФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E290061EA3F6DAEC6E328A9CC770DFF0F1F0819A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1384689   (801671) от 21.05.2020
 
 Даниэлле Граф, Катя Зайде | Самый любимый ребенок в мире сводит меня с ума. Как пережить фазу упрямства без стресса и драм (2019) [EPUB]
@@ -6,7 +35,7 @@
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801671.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801656.jpg" />
 </div>
 
 
@@ -60,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801648.jpg" />
 </div>
 
 
@@ -87,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801594.jpg" />
 </div>
 
 
@@ -113,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801582.jpg" />
 </div>
 
 
@@ -139,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801577.jpg" />
 </div>
 
 
@@ -165,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801565.jpg" />
 </div>
 
 
@@ -193,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801538.jpg" />
 </div>
 
 
@@ -219,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801522.jpg" />
 </div>
 
 
@@ -246,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801504.jpg" />
 </div>
 
 
@@ -272,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801472.jpg" />
 </div>
 
 
@@ -298,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801462.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801461.jpg" />
 </div>
 
 
@@ -353,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801379.jpg" />
 </div>
 
 
@@ -379,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801317.jpg" />
 </div>
 
 
@@ -408,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801261.jpg" />
 </div>
 
 
@@ -434,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801252.jpg" />
 </div>
 
 
@@ -460,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801244.jpg" />
 </div>
 
 
@@ -486,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801239.jpg" />
 </div>
 
 
@@ -512,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801164.jpg" />
 </div>
 
 
@@ -538,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801153.jpg" />
 </div>
 
 
@@ -564,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801114.jpg" />
 </div>
 
 
@@ -591,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801112.jpg" />
 </div>
 
 
@@ -618,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801053.jpg" />
 </div>
 
 
@@ -647,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800971.jpg" />
 </div>
 
 
@@ -659,35 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02E5DEDFE205BFC87183F53F8BEEAC4C335C0CC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506323   (800970) от 30.10.2021
-
-О.В. Кишенкова | ОГЭ 2022. Обществознание: тематические тренировочные задания (2021) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800970.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие адресовано выпускникам средней школы для подготовки к ОГЭ по обществознанию. Издание содержит:
-- задания по основным темам курса;
-- примерные тренировочные варианты;
-- методический комментарий;(   Читать дальше...   )Жанр: ОГЭ/ОбществознаниеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E4297DB141224FBE19B1A2000B6344D64247150
 ```
 
 https://mybot314.ru/tekegram_catalog/

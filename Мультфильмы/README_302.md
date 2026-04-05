@@ -1,3 +1,133 @@
+###  Публикация: 1639132   (211627) от 12.06.2023
+
+Оранжевая корова (2018-2022) WEB-DLRip [H.264] (сезон 1-4, серии 1-104 из 104)
+
+>>Мультфильмы
+>>Отечественные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герои сериала — телята Бо и Зо, их родители и многочисленные друзья. Как и в реальной жизни, дети ищут приключений и попадают в самые разные ситуации — от смешных до опасных, но всё всегда заканчивается хорошо, потому что рядом с ними есть надежные и понимающие взрослые.Производство: Россия / СоюзмультфильмЖанр: мультфильм, детскийРежиссер: Елена Чернова, Мария Конева, Ирина ЭльшанскаяПеревод: Не требуетсяПродолжительность: ~00:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:969B70ADB8F9CE82957333B2782DFDDF32378663
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 389796   (211613) от 30.07.2022
+
+Сладкая сказка (1970) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маленький и смешной Дракончик съел с утра все, что было в доме приготовлено на завтрак, обед и ужин, а потом пошел на день рождения Мишки. Он был в доме Мишутки первым гостем и сразу принялся за угощенья. Все приходили с подарками, а дракончик не отрывался от еды. А потом он и остальные гости попали внутрь телевизора на кондитерскую фабрику. Что там было! Столько (   Читать дальше...   )Производство: СССР, СоюзмультфильмЖанр: Детский, КукольныйРежиссер: Владимир ДегтяревАктеры: Клара Румянова, Юрий Хржановский, Бронислава Захарова, Тамара ДмитриеваСубтитры: ОтсутствуютПродолжительность: 00:15:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F3806F44ED77E0D0F49A50E06371F8EEC122E17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 396771   (211608) от 30.07.2022
+
+Зимняя сказка (1981) DVDRip [H.264]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211608.jpg" />
+</div>
+
+
+###  Подробнее
+
+С приходом зимы медвежонок захотел съесть все кругом, чтобы вся красота зимнего пейзажа была всегда с ним рядом — в его животе. Однако объевшись снежинками, он заболевает и всю зиму бредит, что он снежинка. На выручку приходит его верный друг — ежик.Производство: СССР / ТО "Экран"Жанр: Детский, Короткометражка, Рисованная анимацияРежиссер: Юрий БутыринПродолжительность: 00:09:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AF3012EEC4EAFEE67FBB7C93AC19B03CBA81BDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 416081   (211502) от 31.07.2022
+
+Про Веру и Анфису. Сборник мультфильмов (1986-1988) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трёх-серийный мультфильм о девочке Вере и ее подружке обезьянке Анфисе.Производство: СССР, Свердловская киностудияЖанр: Детский, Кукольный, КороткометражныйРежиссер: Валерий ФоминАктеры: Олег БасилашвилиСубтитры: ОтсутствуютПродолжительность: 00:26:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:112A7181EAFBE2B5862089481816B253B947A8E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 393619   (211488) от 25.10.2022
+
+Вдоль да по речке... (1975) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм-концерт с участием ансамблей "Озорные голоса" и "Саратовские гармоники" Дворца культуры профтехобразования.Производство: СССР, СаратовтелефильмЖанр: детский, рисованная анимация, музыкальныйРежиссер: Юрий КлючниковСубтитры: ОтсутствуютПродолжительность: 00:14:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DEAE241F0256F5D08E7D9EC7AD2EADADC4C73F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617974   (211478) от 14.06.2023
 
 Гриффины / Family Guy (2022) WEBRip [H.264/720p-LQ] (сезон 21, серии 1-20 из 20)
@@ -6,7 +136,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211478.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211387.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211385.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211366.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211363.jpg" />
 </div>
 
 
@@ -137,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211284.jpg" />
 </div>
 
 
@@ -163,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211273.jpg" />
 </div>
 
 
@@ -189,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211259.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211254.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211201.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211191.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211182.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211169.jpg" />
 </div>
 
 
@@ -345,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211140.jpg" />
 </div>
 
 
@@ -371,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211095.jpg" />
 </div>
 
 
@@ -397,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211092.jpg" />
 </div>
 
 
@@ -426,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211078.jpg" />
 </div>
 
 
@@ -452,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211068.jpg" />
 </div>
 
 
@@ -478,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211053.jpg" />
 </div>
 
 
@@ -504,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211003.jpg" />
 </div>
 
 
@@ -530,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210993.jpg" />
 </div>
 
 
@@ -541,139 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F288D52099FBFE25D980771A15D2A95FC693A27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 198070   (210871) от 09.08.2022
-
-Темный кардинал / Oscuro Cardinal (2008) HDTVRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210871.jpg" />
-</div>
-
-
-###  Подробнее
-
-После долгого путешествия, отец с двумя детьми приезжают в загородный дом. Неугомонные и нетерпеливые дети, оставив отца, начинают играть в «войнушку», бегая по окрестностям. Увлечённые в свою игру, стреляя и уворачиваясь от воображаемых пуль, они сталкиваются с остатками старого бронированного танка.
-
-Взволнованные, они бегут исследовать танк, находящийся в том (   Читать дальше...   )Производство: ИспанияЖанр: Компьютерная анимация, Для взрослыхРежиссер: Адриан ГуераПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: ОтсутствуютПродолжительность: 00:07:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93BF78FAD5AFFA060A4E7022FE5BE879F19CAB6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602096   (210863) от 04.01.2023
-
-Мартынко (1987) DVDRip [H.265/2160p] [10-bit] [hand made Upscale AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210863.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мартынко находясь на гауптвахте нашёл колоду волшебных карт, с помощью которой смог запросто обыграть любого! Он сделал быструю карьеру до таможенного министра, обирающего всех иностранцев до нитки прямо при пересечении границы. Однако неразделённые чувства принцессы привели к тому, что его карьере пришёл конец, а его бросили в лесу. Наевшись чудесных яблок, он разрабатывает (   Читать дальше...   )Производство: СССР, СоюзмультфильмЖанр: мультфильм, комедия, короткометражкаРежиссер: Эдуард НазаровАктеры: Леонид Куравлёв, Нина Русланова, Нина КорниенкоСубтитры: отсутствуютПродолжительность: 00:10:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF6C1067938D861F9A18C107F728F30ADEE3DA9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 328569   (210734) от 11.08.2022
-
-Крылатый, мохнатый да масленый (1990) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жили-были три братца: Воробей крылатый, Мышонок мохнатый да Блин масляный...
-Мультфильм по мотивам русской народной сказки в обработке И.Карнауховой о том, как разладилось счастливое житье трех друзей — Воробья крылатого, Мышонка мохнатого и Блина масленого, каждый из которых решил, что его дело — самое трудное, самое хлопотное.Производство: СССР, СоюзмультфильмЖанр: Детский, сказкаРежиссер: Владимир АрбековАктеры: Анатолий Баранцев, Юрий Пузырёв, Мария Виноградова, Маргарита КорабельниковаПродолжительность: 00:08:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30C6F35574B993D5C02F814D2AE1E2067994FD35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641868   (210721) от 24.06.2023
-
-Братья Супер Марио в кино / The Super Mario Bros. Movie (2023) BDRip [H.264/1080p] [MVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Братья-водопроводчики Марио и Луиджи открывают портал в подземный город, из которого должны вызволить пленённую принцессу Пич и сразиться с заклятым врагом Боузером.Производство: США, Япония / Universal Pictures, Nintendo Co. Ltd., Illumination EntertainmentЖанр: Мультфильм, фэнтези, приключения, комедияРежиссер: Аарон ХорватАктеры: Крис Пратт, Чарли Дэй, Аня Тейлор-Джой, Джек Блэк, Кигэн-Майкл Ки, Сет Роген, Фред Армисен, Себастьян Манискалко, Кевин Майкл Ричардсон, Хари ПэйтонПеревод: Профессиональный многоголосый (TVShows), Любительский дублированный (HotVoice 41, Red Head Sound)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Full от Cool Story Blog), Украинские (Full), Английские (Full, SDH)Продолжительность: 01:32:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7386D983AF9178B61047A211D58FAA6899C0225B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569112   (210720) от 11.08.2022
-
-Я есть Грут / I Am Groot (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-5 из 5)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия небольших короткометражек, которые рассказывают о приключениях забавного малыша Грута и его друзей.Производство: США / Marvel StudiosЖанр: мультфильм, короткометражка, фантастика, фэнтези, боевик, комедия, приключенияРежиссер: Керстен ЛепореПеревод: дублированный (Red Head Sound)Субтитры: отсутствуютПродолжительность: ~00:04:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:927B991C6FB3AD2680CC7737AD330DFCE1D31D4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

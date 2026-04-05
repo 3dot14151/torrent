@@ -6,7 +6,7 @@ Discovery: Понимание: Пещеры / Understanding: Caves (1998) TVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905897.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Discovery: В мире машин: Трансатлантические испы
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905756.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Discovery: Поля сражений. Борьба с немецкими суб�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905728.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905080.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905025.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904909.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ NG: Осушить океан. Бермудский треугольник / Dra
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904602.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ NG: Чудеса инженерии: Панамский канал / Big Bigger 
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904417.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904356.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904340.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ PBS. Снежные макаки Японии / Snow Monkeys (2014) BDRip [H.264
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903855.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903224.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903124.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903097.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902981.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Discovery: Почему? Вопросы мироздания. Можем ли м
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900413.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ BBC: Путешествие человека / The Incredible Human Journey   (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900193.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899833.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899663.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898746.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897845.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897325.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ N.G. Дикие животные 24 часа / Wild 24 (2015) HDTVRip [H.264/720
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896013.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ BBC: Охота на гравитационные волны / The hunt for grav
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895853.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895483.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ NG. 9/11: Один день из жизни Америки / 9/11: One Day in Am
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893394.jpg" />
 </div>
 
 

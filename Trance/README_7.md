@@ -1,3 +1,61 @@
+###  Публикация: 991239   (908019) от 27.02.2016
+
+Ferry Corsten - Hello World (2016) [MP3|320 кб/с] <Progressive Trance, Progressive House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart's Beating Faster (feat Ethan Thompson) (3:03)
+02. Find A Way (4:08)
+03. Beat As One (feat Angelika Vee) (2:56)
+04. Homeward (5:32)(   Читать дальше...   )Жанр: Progressive Trance, Progressive HouseПродолжительность: 01:17:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46CF2848F3E20AD6C8840A538281BD7D782BD696
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368286   (907418) от 21.03.2020
+
+VA - Black Hole Trance Music 03-20 (2020) [MP3|320 Kbps] <Trance, UpliftingTrance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunlight Project, Fanizza - Light Me Up (Extended Mix) 5:10
+02. Dave Neven, Ocata - Sirens In The Sky (Extended Mix) 8:07
+03. Solarstone, Robert Nickson - Voyager II (Extended Club Mix) 7:59
+04. Somna, Jennifer Rene - Stars Collide (Extended Mix) 5:56(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:615C068ACE44669AED1E157B82E01891A61F6D90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991339   (906432) от 28.02.2016
 
 VA - Trance Flight Vol. 5 (2016) [MP3|320 кб/с] <Trance>
@@ -6,7 +64,7 @@ VA - Trance Flight Vol. 5 (2016) [MP3|320 кб/с] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906432.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Dj Бинокль - Rafinad (2007) [MP3|320 Kbps] <Trance, Techno, Electro>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905698.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - We Love Trance (2020) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905627.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Robbie van Doe - 16 Singles, 11 Remixes, 1 Tracks (2007 - 2016) [MP3|320 кб/с
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902434.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Best of Uplifting Trance (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, V
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901596.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Condura Selection Part 1 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889697.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Uplifting Only Top15: February (2017) [MP3|320 Kbps] <Trance, Uplifting Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889673.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Physical Dreams - Cosmos (2016) [MP3|320 кб/с] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886151.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Love Hits Vol.1 (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885883.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - The Best Of Silver Waves Recordings 2016 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883720.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - TranceMission 2017 (Mixed by Feel & Roman Messer) (2017) [MP3|320 Kbps] <Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883633.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Physical Dreams - Orbital (2016) [MP3|320 кб/с] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880933.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Armin Van Buuren A State Of Trance 800 (The Official Compilation) (2017) [M
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876284.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ DJ Dado - DJ Dado (2020) [MP3|320 Kbps] <Trance, Classic Trance, Downtempo, Drea
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872561.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Black Hole Trance Music 09-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871413.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Electronic Dance Music Vol.14 (2017) [MP3|320 Kbps] <Trance, Tech Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864830.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Black Hole Trance Music 04-20 (2020) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860375.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Trance In Space Vol.3 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857441.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Global DJ Broadcast Top 20 March (2016) [MP3|320 кб/с] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853922.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Alex M.O.R.P.H. - 6 Albums , 7 Compilations (2006 - 2014) [MP3|320 кб/с]<Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848874.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ VA - Trance Only Vol.6 (Future Club and Hardtrance Anthems) (2016) [MP3|320 кб
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841894.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ Gareth Emery - 100 Reasons to Live (2016) [MP3|320 кб/с] <Progressive Trance,
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841844.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ VA - Vocal Trance Philosophy Vol.2 (Mixed by Vyze) (2016) [MP3|320 кб/с] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840015.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ Martin Graff & Eva Kade - Destiny (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832087.jpg" />
 </div>
 
 
@@ -684,64 +742,6 @@ Martin Graff & Eva Kade - Destiny (2017) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73040F657F292F4047371A4739A8B2FFFD6ACA92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115131   (829898) от 16.03.2017
-
-VA - Best Of Progressive Vocal Trance (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mino Safy & Maria Nayler - A Second Breath (Original Mix)  5:57
-02.  Somna & Sarah Russell - Story Untold (Original Mix)  6:26
-03.  Ana Criado - Vulnerable (Denis Kenzo Remix)  6:45
-04.  Aurosonic & Sue McLaren - Captured By Gravity (Original Mix)  8:08(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70FEA77E16B175EE7BA546081E0F64957E3DDCBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115187   (828250) от 17.03.2017
-
-VA - Melodic Trance Vol.2 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sunset Present Symsonic & Lucid Blue - Desert Rain (Radio Edit)  4:18
-02.  Roman Messer - True (Temple One Remix)  6:41
-03.  Luke Terry & Paul Gibson - Achelous (Radio Edit)  3:09
-04.  NoMosk - Journey (Original Mix)  6:31(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:07:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ADBC2AC7524A0B37A957D9385FE468D42CC965D
 ```
 
 https://mybot314.ru/tekegram_catalog/

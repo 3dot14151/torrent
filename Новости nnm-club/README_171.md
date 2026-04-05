@@ -1,3 +1,55 @@
+###  Публикация: 509168   (452831) от 13.09.2020
+
+Полосатое счастье (1-12 серии из 12) (2012) SATRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452831.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Полосатое счастье». Это добрая и веселая история дружбы забитого ботаника и хитрого кота, выросшая в настоящую семейную сказку, полную удивительных приключений. Жизнь 9-летнего Петьки Одинцова (в исполнении актера Ильи Копанца) совсем не была похожа на сахар — самый слабый в классе, очкарик-ботаник, у него совсем нет друзей, а еще он буквально опутан заботой своей (   Читать дальше...   )Производство: Россия. Студия 217Жанр: Комедия, детскийРежиссер: Александр Кананович, Ирина ВасильеваАктеры: Эвелина Сакуро, Юлия Кадушкевич, Илья Копанец, Лиза Сурунова, Игорь Сигов, Вера Кавалерова, Оксана Лесная, Дмитрий Ратомский, Сергей Новицкий, Павел Харланчук, Александр БранкевичСубтитры: ОтсутствуютПродолжительность: 00:48:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AF2D8D39A52282A797B2AC822916EDDB4CAE66F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942628   (452820) от 01.10.2015
+
+Атака титанов. Фильм первый: Жестокий мир / Shingeki no kyojin (2015) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452820.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сотни лет назад самым страшным кошмаром людей были Титаны, появившиеся неизвестно откуда. Человечество было для исполинов всего лишь кормом. Когда люди возвели вокруг своих городов огромную защитную стену, жизнь изменилась — в ней появились спокойствие и беззаботность. Как оказалось, лишь на время. Страх и ужас вернулись, когда стена пала и первобытные гиганты вновь (   Читать дальше...   )Производство: Япония, Kdansha, Licri, Nikkatsu SeeЖанр: Фэнтези, Боевик, ПриключенияРежиссер: Синдзи ХигутиАктеры: Харума Миура, Кико Мидзухара, Каната Хонго, Сатоми Исихара, Нанами Сакураба, Такахиро Миура, Хироки Хасегава, Аямэ Мисаки, Пьер Таки, Дзюн КунимураПеревод: Дублированный (iTunes)Продолжительность: 01:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2EEF813D98244B21469FE460F520A235C18C22F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 942099   (452818) от 01.10.2015
 
 ITVDN | C# для профессионалов - Обновленный (2015) PCRec [H.264/720p]
@@ -6,7 +58,7 @@ ITVDN | C# для профессионалов - Обновленный (2015) P
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452818.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452816.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_452515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_452515.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_452415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_452415.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_452292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_452292.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ TradeLikeaPro | Форекс для "Чайников" (2016) [unpacked] [Обн
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452244.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Autodesk AutoCAD LT 2013 SP1.1 x86-x64 RUS-ENG (AIO)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_452121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_452121.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_451014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_451014.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Pinnacle Studio Ultimate 26.0.0.168 (x64) + Content Pack [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450840.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450832.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450831.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ Autodesk AutoCAD 2015 for Mac [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450797.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ Profileschool | Adobe Premiere Pro.  Базовый уровень (2014) PCRec 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450794.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ V-Ray 5.00.05 for 3ds Max 2016-2021 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450756.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450751.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ Microsoft Office 2016 Install v4.2 by Ratiborus [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450663.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450657.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450648.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ Microsoft Office 2016 Professional Plus VL 16.0.4266.1001 (x86/x64) RePack by D!
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450645.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_450530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_450530.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ Facebook начнет проверять фото и видео на досто�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_450454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_450454.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450399.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ Microsoft Windows Server 2016 Release Version 1607 build 14393.0 RS1 (Evaluation
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449973.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ Dj Ikonnikov - E.x.c Version Vol.01-30 (2013-2016) [MP3|320 кб/с]<Spacesynth,
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449965.jpg" />
 </div>
 
 
@@ -622,60 +674,6 @@ Dj Ikonnikov - E.x.c Version Vol.01-30 (2013-2016) [MP3|320 кб/с]<Spacesynth,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C34BBCAAAC6B2312B1FC4327B3B9A6877753A728
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 766074   (449961) от 09.10.2016
-
-Next Launcher 3D 3.7.3.2 [Ru/Multi] - Лончер
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая оболочка рабочего стола с шикарными возможностями, 3D режимом, большой кастомизацией и фантастическими эффектами.
-Поддерживает работу на планшетах.Тип издания: ПираткаРелиз состоялся: 09.10.16Разработчик: GO Dev TeamПоддерживаемая ОС: Android. Зависит от устройстваЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C85ADF5315B474E026985A6DDE97D9A80846FC62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551698   (449929) от 25.09.2012
-
-Минэкономразвития выступило против отмены «мобильного рабства»
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_449929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Минэкономразвития выступило против введения услуги сохранения номера при переходе абонента от одного оператора к другому. Соответствующее заключение ведомства опубликовано на его сайте. В министерстве считают, что переносимость номеров (Mobile number portability, MNP) не будет востребована населением и не скажется на конкуренции, но повлечет значительные затраты со стороны операторов сотовой связи.В ведомстве ссылаются на данные востребованности MNP в странах, где эта услуга действует. Так, в Болгарии после ввода переносимости номеров в 2008 году только один процент абонентов воспользовался услугой, а к 2009 году число ее потребителей упало еще в два раза. В Чехии показатель составляет еще меньше — 0,1 процента всех абонентов. В Белоруссии — 0,019 процента абонентской базы.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

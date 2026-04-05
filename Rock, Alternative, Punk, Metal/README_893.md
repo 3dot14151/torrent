@@ -1,3 +1,32 @@
+###  Публикация: 1628157   (233278) от 22.04.2023
+
+Wolfnaut - Return Of The Asteroid (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brother Of The Badlands [00:04:26]
+02. My Orbit Is Mine [00:03:07]
+03. The Mighty Pawns [00:05:43]
+04. Crash Yer Asteroid [00:02:47](   Читать дальше...   )Жанр: Heavy Rock, StonerПродолжительность: 00:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DF8C3C8F5C85E2C56710AFC35DCBEC802163C44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1645298   (233276) от 09.07.2023
 
 The Flaming Lips - Zaireeka (1997) 4CD Deluxe, Warner Records Inc., 2023 [FLAC|24/44.1|tracks|WEB-DL] <Alternative-rock, psychedelic, experimental-rock>
@@ -6,7 +35,7 @@ The Flaming Lips - Zaireeka (1997) 4CD Deluxe, Warner Records Inc., 2023 [FLAC|2
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233276.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ The London Suede - Autofiction (2022) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233272.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Today's Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233270.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Fish - 13th Star (2007) Deluxe Digital 2023 Remix, 7Hz Productions [FLAC|24/44.1
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233262.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Wolfheart - King Of The North (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233261.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Nova Era - The Curse (2021) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233258.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Circus Of Rock - Lost Behind The Mask (2023) Japanese Edition [FLAC|Lossless|ima
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233251.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Greg Puciato - 1 Album, 3 Singles (2021-2022) [FLAC|24/48, 96|WEB-DL|tracks] <Ma
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233245.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Ignis Noctem - Desecrated Darkness (2021) [FLAC|Lossless|image + .cue] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233242.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Kotipelto - Coldness (2004) [OGG Vorbis|484 Kbps] <Rock, Speed Metal, Heavy Meta
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233229.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Nita Strauss - The Call of the Void (2023) [FLAC|24/48|tracks|WEB-DL] <Heavy Met
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233224.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Boys From Heaven - The Descendant (2023) [FLAC|Lossless|image + .cue] <Melodic R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233216.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ VA - Tailgate rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233195.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Thelemite - Survival Of The Fittest (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233191.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ VA - classic rock classics (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233184.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Def Leppard - Let's Get Rocked (1992) Single [OGG Vorbis|484 Kbps] <Rock, Hard R
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233174.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ Raven - All Hell's Breaking Loose (2023) [FLAC|Lossless|WEB-DL|tracks] <NWOBHM, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233172.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ Deville - Heavy Lies the Crown (2022) [MP3|320 Kbps] <Heavy Rock, Stoner Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233167.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ Vortex - The Future Remains In Oblivion (2023) [MP3|320 Kbps] <Melodic Death Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233160.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ Hermh - Before the Eden - Awaiting the Fire (2004) [APE|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233159.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ Def Leppard with the Royal Philharmonic Orchestra - Drastic Symphonies (2023) [F
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233158.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ Lamp of Murmuur - Saturnian Bloodstorm (2023) [FLAC|Lossless|WEB-DL|tracks] <Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233153.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ Def Leppard - Songs From The Sparkle Lounge (2008) [OGG Vorbis|484 Kbps] <Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233152.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ Lotan - Lotan (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233147.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ Huracan - We Are Very Happy (2022) [MP3|320 Kbps] <Sludge, Stoner Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233146.jpg" />
 </div>
 
 
@@ -717,35 +746,6 @@ Huracan - We Are Very Happy (2022) [MP3|320 Kbps] <Sludge, Stoner Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:813447EED5A6F3772017F987FCF022BBB294CC1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642882   (233145) от 29.06.2023
-
-Rhegia - The Battle of Deliverance (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Forest Whispers (03:08)
-02 - Beyond the Last Bend of the River (05:50)
-03 - Cocares (05:44)
-04 - Guardians of Pain (05:56)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 01:10:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64E7920C4C262D394A2C88FE333AC3526A62D12F
 ```
 
 https://mybot314.ru/tekegram_catalog/

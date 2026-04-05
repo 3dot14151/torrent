@@ -6,7 +6,7 @@ NG: Живая Земля / X-Ray Earth (Faszination Erde) (2011) BDRip [H.264/7
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685472.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NGW: Животные 24 часа / Animal 24 (2017) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685171.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NGW: Короли убийства / Kings of the Kill (2017) HDTV [H.264/1080i-
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685158.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NGW: Морские котики-убийцы / Killer seals (2017) HDTV [H.264/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685157.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NGW: Амазонская электрическая рыба / Amazon's electri
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685054.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NGW: Орлы / The Eagles (2014) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685048.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ NGW: Животные без правил / Animals Gone Wild (2015) HDTVRip [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685033.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ NGW: Хищники Африки / Africa's Deadliest (2011-2016) HDTV [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684945.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ NG: Разгадка тайн Мачу-Пикчу / Machu Picchu Decoded (Ghosts
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681681.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ NGW: Животные года / Animals of the year (2017) HDTV [H.264/1080i-LQ
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679277.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ NGW: Путешествие короля джунглей / The jungle king (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679257.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ NGW: Самые опасные животные Америки / America's deadl
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679248.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ NGW: Уцелевшая природа Европы / Europe's last wilderness (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679183.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ NGW: Море надежды. Подводные сокровища Америк
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679173.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ NGW: Воины новой волны / New Wave Warriors (2017) HDTV [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679171.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ NGW: Джейн Гудолл. Спасение рая / Jane Goodall: Saving Par
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679163.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ NGW: Год диких животных. Сибирь / Siberia's wild year (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679151.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ NGW: Бесплодные земли / Badlands hard rock - tough lives (2017) H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678998.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ NG: Подъем Атлантиды (Открытая Атлантида) / Atla
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678449.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ NGW: Прирождённые монстры. Змееголовая рыба / 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677279.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ NGW: Человек и природа / Man and the Wild (2014) HDTV [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677275.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ NGW: Морские котики: битва за выживание / Fur Seals
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677271.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ NGW: Дикая природа Аргентины. Убийственное по
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677135.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ NGW: Глубоководные киты / Whales of the deep (2017) HDTV [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677132.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ NGW: Невероятные клыки / Incredible Fangs (2016) HDTVRip [H.264/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676482.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ NGW: Маленький гигант / Little giant (2015) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673298.jpg" />
 </div>
 
 

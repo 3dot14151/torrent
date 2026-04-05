@@ -1,3 +1,119 @@
+###  Публикация: 1648911   (231159) от 26.07.2023
+
+VA - Levitated Trance - Summer (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexey Mushkin - Emotion Talking (Extended Mix) (06:01)
+02. Soarsonic - Sunrise (Extended Mix) (06:37)
+03. Daniele Filaretti - Recursive Dream (Extended Mix) (05:41)
+04. Alexey Mushkin - Dreams Before Sunset (Extended Mix) (07:32)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89374DE0DDCB8163F94E47B642CA8019486A0F54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649023   (231130) от 26.07.2023
+
+Sung - Metal Age (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Darksynth>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Promise [00:01:55]
+02. Solaire [00:03:46]
+03. Civilization [00:03:33]
+04. Cosmetic Love [00:03:30](   Читать дальше...   )Жанр: Synthwave, Retrowave, DarksynthПродолжительность: 00:24:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:712E81413E70C3A766BB85CB2DFF00D9019AA1AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647018   (231101) от 21.07.2023
+
+Recite The Cynic - Recite The Cynic (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Rock, Modern Metal>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taunting the Jesters [00:03:50]
+02. Parasites and Leeches [00:04:43]
+03. Never Question [00:02:52]
+04. Take the Bullet [00:04:03](   Читать дальше...   )Жанр: Industrial Rock, Modern MetalПродолжительность: 00:34:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65CCEB293ACEF6FFC7DC2B59791BBF5E3B05C1FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648587   (231099) от 23.07.2023
+
+Mega Drive - 200XAD (2023) [FLAC|Lossless|WEB-DL|tracks] <Retrowave, Punk, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Orion [00:01:13]
+02. Mnemonic Head Trip [00:04:53]
+03. NARC³ [00:05:08]
+04. Persona Sync [00:05:34](   Читать дальше...   )Жанр: Retrowave, Punk, New WaveПродолжительность: 01:12:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79940431D39BDA08A6E46925178DF77E6A9C7F60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648566   (231095) от 23.07.2023
 
 Landscape - Before and After (2023) [MP3|320 Kbps] <New Wave, Synthpop>
@@ -6,7 +122,7 @@ Landscape - Before and After (2023) [MP3|320 Kbps] <New Wave, Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231095.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Landscape - Landscape a Go-Go (The Story of Landscape 1977-83) (2023) 5CD, Remas
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231067.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Nouveau Arcade - Dead Hearts (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Cy
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231038.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IDM
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231023.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - 40 Summer Hits 2023 [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231017.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Black Hole House Music 07-23 (2023) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230958.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Black Hole Trance Music 07-23 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230956.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Dvar - Madegirah II (2023) [FLAC|Lossless|WEB-DL|tracks] <Darkwave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230930.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Armin van Buuren - A State Of Trance 1130 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230911.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Milk & Sugar Summer Sessions 2023 [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230857.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Stahlnebel & Black Selket - Time Between Passion & Despair (2019) Limited Editio
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230817.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Silent Shore Trance - Summer (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230718.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - 15 Years Of Enhanced Music, Mixed by Tritonal (2023) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230699.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - Keep It Trance Vol. 14 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230693.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ VA - Maretimo Chill Radio - Best of, Vol. 2 - Positive Summer Vibes (2023) [FLAC
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230689.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - Bossa N' Elvis (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo, B
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230662.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Kerala Dust - Violet Drive (2023) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Org
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230658.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Hot Unkle T - Stay In A Club (2023) [FLAC 2.0|44.1/24|image +.cue|WEB-DL] <Nu Di
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230370.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Ioon Cosmic Downtempo - Unearthed Chants (2023) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230367.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ VA - Lovely Evening Lounge Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230102.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - Black Hole Trance Music 10-22 (2022) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230099.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Above & Beyond - 10 Years of Group Therapy (Part 2) (2022) Compilation [FLAC|Los
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230089.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Above & Beyond - 10 Years of Group Therapy (Part 2) (2022) Compilation [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F3E4D10F68E47259C8DC5173440874EDE9D17E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268158   (230057) от 09.12.2018
-
-Science Deal - Past To Present 2003 - 2018 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Science Deal - Angelica (Original Mix)
-02. Science Deal & Angelica S - Nocturne (Original Mix)
-03. Science Deal - Wish You Were Here (Treasured Beyond Doubt Mix)
-04. Science Deal - Unspoken (Original Mix Remastered)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:58:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A0849AE7D65049494C785FDAB99F7E75AD7F61B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583313   (230044) от 14.10.2022
-
-VA - A State Of Trance Top 20 - Vol.3 - (Selected by Armin van Buuren) - (Extended Versions) (2022) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren & Diane Warren feat. My Marianne - Live On Love (Extended Mix)
-02. Above & Beyond feat. Marty Longstaff - Chains (Extended Mix)
-03. Gareth Emery feat. Annabel - Breathe (Original Mix)
-04. Paul van Dyk & Rafael Osmo - Two Rivers (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:16:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E7CCBF1D5ADFE74D9F32C7B7A2334DE97B34283
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267540   (230029) от 09.12.2018
-
-VA - DMC Dance Mixes 215 (September 2018) (2018) [MP3|320 Kbps] <House, Dance, Rap>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Eyed Peas Feat. Slick Rick - Constant Pt. 1 & 2
-02. Boston Bun - Spread Love (Paddington) (Paul Woolford Extended Remix)
-03. Calvin Harris & Sam Smith - Promises (Kue's Bringin' Disco Back Remix)
-04. George Morel - Let's Groove (Mele Extended)(   Читать дальше...   )Жанр: House, Dance, RapПродолжительность: 01:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:087D8AF00C172A23B8D956DE744296D5C1CABE66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268111   (229973) от 09.12.2018
-
-VA - Ibiza 2019 Winter Clubbing (2018) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_229973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bang Bang, Tidy Daps - Susan Cries (Tidy Daps Remix) 5:59
-02. Dubeats - Tender Love (Dub Mix) 6:23
-03. G Spice, Flected - Reshape (Flected Remix) 6:11
-04. Jeff El Jefe - Sensual (Original Mix) 6:04(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:56:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05C7228E081DD87CA5A9398EF5F3BA83DB49C93B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 1415680   (373527) от 13.10.2020
+
+Павел Чистов | Сборник задач по разработке на платформе 1С:Предприятие (1C:Enterprise) (2020) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373527.jpg" />
+</div>
+
+
+###  Подробнее
+
+В издании представлены задачи по разработке информационных систем на платформе «1С:Предприятие 8» (1C:Enterprise 8), рекомендованные к использованию в учебном процессе в образовательных программах высшего и среднего профессионального образования по ИТ-направлениям с учетом требований ФГОС и профессиональных стандартов.
+Книга ориентирована на преподавателей ИТ-дисциплин, (   Читать дальше...   )Жанр: Учебники и пособия для вузовФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70C2A25A8B9DC4FD49AD42488990418BA87F914C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253940   (373008) от 14.10.2018
+
+Д.В. Лысенко | Комплексный экономический анализ хозяйственной деятельности (2008) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анализ представлен как метод обоснования управленческих решений, направленный на поиск резервов и выбор путей повышения эффективности производства. Показаны методы выявления интенсивных и экстенсивных резервов основных факторов производства: трудовых ресурсов, производственных и материально-энергетических ресурсов, оценки их комплектности и возможностей учета при (   Читать дальше...   )Жанр: ЭкономикаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE68D39D79F41AB3CFA7721872A6D8087E614C96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1176298   (372025) от 21.10.2017
 
 В.А. Харитонов | Строительство магистрального трубопровода нефти и газа (2008) [PDF]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372025.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372022.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371999.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371989.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371921.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371461.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370430.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369517.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368211.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368004.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367953.jpg" />
 </div>
 
 
@@ -294,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367906.jpg" />
 </div>
 
 
@@ -320,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367885.jpg" />
 </div>
 
 
@@ -346,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367466.jpg" />
 </div>
 
 
@@ -373,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367465.jpg" />
 </div>
 
 
@@ -399,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367248.jpg" />
 </div>
 
 
@@ -425,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367245.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365837.jpg" />
 </div>
 
 
@@ -480,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365665.jpg" />
 </div>
 
 
@@ -506,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365656.jpg" />
 </div>
 
 
@@ -532,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365641.jpg" />
 </div>
 
 
@@ -559,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365531.jpg" />
 </div>
 
 
@@ -585,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365442.jpg" />
 </div>
 
 
@@ -611,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365168.jpg" />
 </div>
 
 
@@ -623,58 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A1180472ECA56BD48462F6FD13412A638246B49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177070   (365031) от 24.10.2017
-
-В.Ю. Шишмарев | Автоматика (2017) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365031.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник посвящен основным методам построения систем автоматического управления (САУ). В нем представлена классификация и общие характеристики элементов автоматики и измерительных преобразователей, рассмотрены типовые звенья САУ, их соединение, синтез, а также анализ устойчивости и качества работы. Книга дополнена приложениями, которые помогут студентам освоить материалы (   Читать дальше...   )Жанр: АвтоматикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC929B0122CF895EE69CD4EEB6AD1130447E5F21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255610   (363273) от 18.10.2018
-
-Л.Н. Гулидова и др. | Начертательная геометрия и инженерная графика [2 части] (2013) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обобщен и систематизирован с учетом профессиональной направленности подготавливаемых специалистов известный материал по начертательной геометрии и инженерной графике, основанный на действующих руководящих документах, стандартах н нормативах. В соответствии с программой даны основные теоретические положения курса инженерной графики, разработаны задания для самостоятельного (   Читать дальше...   )Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD5AF7F781A08B675990C272E232C3601C1D80D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

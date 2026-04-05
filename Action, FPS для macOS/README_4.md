@@ -6,7 +6,7 @@ ShellShock 2: Blood Trails [WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498846.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Forsaken Remastered v1.4.1.22928 (2018) [Multi] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491668.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ EVERSPACE™ v1.3.2.36168 (22808) (2016) [Multi] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491543.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Descent 2 v2.1.0.13 (1996) [En] [macOS DOSbox]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489839.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Max Payne 3 v1.0.009388 (2012) [Multi/Ru] [macOS Native port]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475443.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Hybrid Wars (24.09.2016) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465802.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ SOMA v. 2.1.0.3 (0) (2015) [Multi/Ru] [OS X Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455144.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Shadow of the Tomb Raider: Definitive Edition 1.0.4 (2018) [Multi/Ru] [macOS Nat
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454924.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Hades v.1.38291 (2020) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437486.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_415567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_415567.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Left 4 Dead 2 v2.1.5.2 (2010) [En/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412945.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Portal 2 v2.0.0.1 (2011) [En/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412929.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ The Darkness II v1.0.8032 (2012) [Ru] [macOS Native port]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410720.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Half-Life Classic: Half-Life, Opposing Force, Blue Shift (2013) [Ru] [macOS Nati
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410593.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Dishonored [RUS] [WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_406861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_406861.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ XCOM: Enemy Unknown [WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_405132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_405132.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Immortal Redneck v.1.2.3 (2017) [Multi/Ru] [OS X Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391033.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ S.T.A.L.K.E.R.: The Priboy Story [WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_379960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_379960.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ S.T.A.L.K.E.R.: Call of Pripyat [WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_379693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_379693.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ S.T.A.L.K.E.R.: Secret Trails 2 [WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_379673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_379673.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ S.T.A.L.K.E.R.: Clear Sky [WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_377294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_377294.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl [WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_377288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_377288.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Dark Messiah of Might & Magic [WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_369718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_369718.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Drifting Lands (2017) [Multi] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361224.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Crysis 2 (2011) [Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355256.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Alien: Isolation v.1.0 (2015) [Multi/Ru] [OS X Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354922.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ FIFA 12 (2011) [Multi/Eng] [OS X Native game]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936434.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Army Men: Sarge's Heroes (2000) [En] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935159.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Assassin's Creed (2008) [Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931893.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Assassin's Creed II (2010) [Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931776.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Assassin’s Creed: Brotherhood (2011) [Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931626.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Assassin's Creed: Revelations (2011) [Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931622.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Army Men Sarge's War (2004) [Ru/En] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930446.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Lonely Mountains: Downhill v1.0.0 (2019) [Multi/Ru] [macOS Native game]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928812.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Paradise (2006) [Ru] [macOS WineSkin]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927614.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Trainz Simulator 2 Mac (2014) [En] [OS X Native game]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927187.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ A New Beginning - Final Cut v2.0.4 (2012) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926999.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Beyond Eyes (2015) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925819.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Between Me and The Night (2016) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925814.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ LA Cops (2015) [Multi/Ru] [OS X Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925810.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Layers of Fear (2016) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925745.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Leo's Fortune - HD Edition (2015) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925729.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ GRID Autosport + DLC (2014) [Multi/Ru] [OS X Native game]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925524.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ MISSING: An Interactive Thriller - Episode One (2015) [Multi/Ru] [OS X Native ga
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924107.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Toby: The Secret Mine (2015) [Eng] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924035.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Fallout Tactics: Brotherhood of Steel (2001) [Ru] (License GOG) [macOS WineSkin]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923860.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Fallout 2 (1998) [En] (License GOG) [macOS WineSkin]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920188.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Castle of Illusion Starring Mickey Mouse v. 1.0 (2014) [Ru] [OS X Native game]
 >>Kinder Games для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919511.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Tom Clancy's Rainbow Six: Vegas 2 (2008) [Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918907.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ The Saboteur (2009) [Ru] (License GOG) [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918860.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Crysis (2007) [Ru] (License GOG) [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918857.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Cities XL 2011 (P) [WineSkin]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918045.jpg" />
 </div>
 
 

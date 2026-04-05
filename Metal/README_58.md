@@ -6,7 +6,7 @@ Nightwish - Decades (2018) 2CD Compilation [MP3|320 Kbps] <Symphonic Power Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549569.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ My Regime - Dogmas (2016) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548354.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Dio - Singles Box Set (2012) Anthology [MP3|320 кб/с]<Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547610.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Vicious Rumors - Concussion Protocol (2016) Japanese Edition [MP3|320 Kbps] <Hea
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547425.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Kuolemanlaakso - M. Laakso - Vol. 1: The Gothic Tapes (2016) [MP3|320 Kbps] <Got
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547418.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Crystal Ball - Deja-Voodoo (2016) [MP3|320 Kbps] <Melodic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547348.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Ministry - From Beer To Eternity (2013) Special Fanbox Edition [MP3|320 кб/с]
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545665.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Kreator - Dying Alive (2013) 2CD, Live [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544729.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Lord of the Lost - Thornstar (2018) 2CD, Deluxe Edition [MP3|320 Kbps] <Gothic M
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543702.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Zandelle - Perseverance (2015) [MP3|320 кб/с]<Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543162.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Left In The Dark - Shadowglass (2015) [MP3|320 кб/с]<Alternative Metal, Progr
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543002.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Saralee - Darkness Between (2006) [MP3|320 кб/с]<Gothic Metal, Love Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542852.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Maylene and the Sons of Disaster (Dallas Taylor, vox ex-Underoath) - 7 Releases 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542829.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Stygian Oath - Midnight Flames (2022) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542826.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Sorrowful Winds - Deny Reality (2022) [MP3|235-244 kbps VBR (V0)] <Progressive P
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542819.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Eye Of Solitude - Cenotaph (2016) [MP3|320 Kbps] <Funeral Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542355.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Bloodred Hourglass (BRHG) - Godsend (2019) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541970.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Chemical Burn - Raining Anvils (2015) [MP3|320 кб/с]<Thrash / Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541493.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Red Razor - Beer Revolution (2015) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541490.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Nachtgeschrei - Staub Und Schatten (2015) [MP3|320 кб/с]<Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539303.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Tungsten - Bliss (2022) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539193.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Clouds - Destin (2017) EP [MP3|320 Kbps] <Ambient, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539078.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Lysithea - Realms (2015) [MP3|320 кб/с]<Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537277.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Rings Of Saturn - Ultu Ulla (2017) [MP3|320 Kbps] <Technical Deathcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537070.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Pain - Coming Home (2016) [MP3|320 Kbps] <Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536079.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ Stormzone - Seven Sins (2015) [MP3|320 кб/с]<Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535587.jpg" />
 </div>
 
 

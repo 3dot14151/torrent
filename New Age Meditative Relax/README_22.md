@@ -1,3 +1,32 @@
+###  Публикация: 953497   (349436) от 04.11.2015
+
+Anima - Sacred Alliance (2015) [MP3|320 кб/с]<New Age, Electronic, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Great Mother's Dominion
+02. Surrender
+03. Sewa
+04. Sacred Lands(   Читать дальше...   )Жанр: New Age, Electronic, AmbientПродолжительность: 01:14:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE06C3BEC98DC222AEA6CEA4EC77C8D6879F620F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1073424   (345841) от 16.11.2016
 
 Bob Lowey - The Journey (An Emotional Soundscape) (2016) [MP3|320 Kbps] <New Age>
@@ -6,7 +35,7 @@ Bob Lowey - The Journey (An Emotional Soundscape) (2016) [MP3|320 Kbps] <New Age
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345841.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Paul Joe Fish & Gamma - Silver Sound (2015) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344579.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Gregorian - Masters of Chant X: The Final Chapter (2015) [MP3|320 кб/с]<New A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343923.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ ERA - The 7th Sword (2017) [MP3|320 Kbps] <New-Age, Ethereal>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341973.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Robert Thies & Damjan Krajacic - Blue Landscapes II: Discoveries (2016) [MP3|320
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340563.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Wychazel - Arcana (2016) [MP3|320 Kbps] <New age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338593.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Leo Rojas - Leo Rojas (2017) [MP3|320 Kbps] <Native american, Ethnic, Folk>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335067.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Michel Pépé - La montagne sacrée (Michel Pepe - La montagne sacree) (2019) [M
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333646.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Mythos - Iridescence (1997) [OGG Vorbis|484 Kbps] <Pop, Electronic, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333495.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Mythos - The Reality Of A Dreamer (2000) [OGG Vorbis|484 Kbps] <Electronic, New 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333492.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Mythos - Eternity (2002) [OGG Vorbis|484 Kbps] <Electronic, Pop, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333365.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Mythos - Purity (2006) [OGG Vorbis|484 Kbps] <Electronic, Pop, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333362.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Mythos - Mythos (1998) [OGG Vorbis|484 Kbps] <Electronic, Pop, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333361.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Mythos - Introspection (1995) [OGG Vorbis|484 Kbps] <Electronic, Vocal, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329913.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ VA - Тихая ночь /3CD/ (2009) [MP3|320 kbps]<New age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329021.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ Deep Forest - La Selection: Best Of Deep Forest (2014) 3CD, Box Set, Limited Edi
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328966.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ Eric Tingstad - Mississippi (2015) [OGG|442-502 кб/с]<New Age, Contemporary G
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328444.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ Crimeanization - Without Someone - (2011) [MP3|320 кб/с]<New Age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326721.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ Kory Caudill - Tree of Life (2015) [OGG|452-545 кб/с]<New Age, Neoclassical, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326707.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ Enya - Dark Sky Island (2015) Deluxe Edition [MP3|320 кб/с]<New Age, Celtic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325619.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ Midori - A Very Midori Christmas (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321152.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ Al Conti - Mystic (2016) [MP3|320 Kbps] <New Age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321008.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ Medwyn Goodall - Dreamweaver (2014) [MP3|320 кб/с]<New Age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319269.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ Wuauquikuna - XI Magic Of The Andes (2018) [MP3|320 Kbps] <Native american, Ethn
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316589.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ VA - Ocean Music Love. Best Relax And Sex Music (2010) [MP3|128-256 kbps]<Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315727.jpg" />
 </div>
 
 
@@ -711,41 +740,6 @@ VA - Ocean Music Love. Best Relax And Sex Music (2010) [MP3|128-256 kbps]<Relax>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B327FEEB3CB5E0963A8B1B52317E39ECC0D4E2E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 208992   (314859) от 01.12.2012
-
-Jesse Cook - 11 albums (1995-2012) [MP3|320 кб/с]<New age, Flamenco, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314859.jpg" />
-</div>
-
-
-###  Подробнее
-
-(2:58) 01. I put a spell on you
-(3:19) 02. Broken Moon
-(3:00) 03. Witching hour
-(2:40) 04. Toybox
-(3:19) 05. Fields of blue
-(2:49) 06. Miles shorter
-(3:27) 07. Gone
-(4:16) 08. Ne me quitte pas
-(3:10) 09. Diminished
-(3:08) 10. The road(   Читать дальше...   )Жанр: New age, Flamenco, InstrumentalПродолжительность: 00:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5BCF0E63C3B0BF88930B22BEB2653681D2B62B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

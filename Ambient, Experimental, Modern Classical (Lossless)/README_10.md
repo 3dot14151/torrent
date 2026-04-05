@@ -6,7 +6,7 @@ Interference Of Frequencies - The Orphic Continuum (2016) [FLAC|Lossless|WEB-DL|
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619256.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Moby - Long Ambients Two (2019) Little Idiot [FLAC|Lossless|WEB-DL|tracks] <Ambi
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614932.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614768.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Alphaxone - Edge Of Solitude (2018) Cryo Chamber [FLAC|Lossless|WEB-DL|tracks] <
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614060.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Alphaxone - Edge Of Solitude (2018) Cryo Chamber [FLAC 2.0|44.1/24|tracks|WEB-DL
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613864.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Martin Stig Andersen - Discography 4 Releases (2004-2011) Usagi [FLAC|Lossless|W
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612341.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Jon Hassell - Listening To Pictures (Pentimento Volume One) (2018) Ndeya [FLAC|L
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609025.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Ian Hawgood - Impermanence (2019) Slowcraft Records [FLAC|Lossless|WEB-DL|tracks
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606926.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - 2004' Ambient Album (2004) [APE|Lossless|image + .cue] <Ambient>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604259.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Soma Coma 7 (2018) Soma Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602772.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Lagowski - Ashita (1997) Side Effects [FLAC|Lossless|tracks+.cue] <Experimental,
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602681.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Dreaming Cooper - Exploring the Universe (2019) Altar Records [FLAC|Lossless|WEB
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602157.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Vallmo - Ruin Walls (2019) Northern Electronics [FLAC|Lossless|WEB-DL|tracks] <A
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600158.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Music for Brainwaves (2019) Erased Tapes Records [FLAC|Lossless|WEB-DL|trac
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600035.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Richard Clayderman - Plays the Songs of Love (2003) [FLAC|Lossless|image + .cue]
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599523.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ VA - Active Agent Of Sound (2007) Klangwirkstoff Records [FLAC|Lossless|tracks] 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596480.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Dense & Translippers - Entitas (2019) Cosmicleaf Records [FLAC|Lossless|WEB-DL|t
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596158.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ VA - Tomb of Primordials (from Tomb of.. Series by Cryo Chamber) (2022) [FLAC 2.
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594740.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ One Arc Degree - The Glow Beneath (2018) Synphaera Records [FLAC 2.0|44.1/24|tra
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593768.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Tsode - Innerity (2019) [FLAC|Lossless|WEB-DL|24Bit] <Ambient, New Age, Downtemp
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588044.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Chronos - Friendology Vol.1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psyb
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582259.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Asger Kudahl - Sketches For Revolution (2018) Resonans [FLAC|Lossless|WEB-DL|tra
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578273.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Cholosus - Momentum EP (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574457.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Robert Rich & Markus Reuter - Flood Expeditions: The Gatherings, 19 May 2018 (20
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569361.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Palta & Ti - Palta Og Ti På Den Tolvte Ø (2018) 12th Isle [FLAC|Lossless|WEB-D
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567962.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Hipnotic Earth - Suspended In Silence (2019) Whitelabrecs [FLAC|Lossless|tracks+
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565539.jpg" />
 </div>
 
 

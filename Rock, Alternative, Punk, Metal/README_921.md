@@ -1,3 +1,32 @@
+###  Публикация: 1649784   (228588) от 29.07.2023
+
+Korn - Untitled (2007) Deluxe, 2023, Tempo Music [MP3|320 Kbps] <Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:01:57]
+02. Starting Over [00:04:02]
+03. Bitch We Got a Problem [00:03:22]
+04. Evolution (Album) [00:03:37](   Читать дальше...   )Жанр: Nu MetalПродолжительность: 00:56:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E5F451CCB267F567A041D02B7137E1CD3426218
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 964995   (228584) от 13.12.2015
 
 Annalist - Artemis (1995) [FLAC|Lossless|image+.cue]<Neo-Progressive Rock>
@@ -6,7 +35,7 @@ Annalist - Artemis (1995) [FLAC|Lossless|image+.cue]<Neo-Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228584.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228581.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ Hydra - Rock The World (1976) Reissue, 2010, Crossroad Productions [MP3|320 кб
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228567.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ Nolan Potter's Nightmare Band - Honey - Tales From the Library of the Occult (20
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228551.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ U.D.O. - The Legacy (Best Of) (2022) Compilation [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228534.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ Paul Gilbert - The Dio Album (2023) [MP3|320 Kbps] <Hard Rock, Heavy Metal, Inst
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228508.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228390.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228290.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ Wastefall - Fallen Stars And Rising Scars (2003) [FLAC|Lossless|image + .cue] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228249.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ VA - Made In Ural Vol.3 (2015) [MP3|320 кб/с]<Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228178.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ Intronaut - Fluid Existential Inversions (2020) [FLAC|Lossless|image + .cue] <Pr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228157.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Coure - Inversum Nema (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228137.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ Negative Concept - Unwelcome (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom, Sludge,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228130.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ Bilmuri - GOBLIN HOURS (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Post-H
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228121.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ Disharmonic Orchestra - Fear of Angst (2016) Limited edition [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228113.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ Hydra Vein - Unlamented (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228105.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ Satin - Appetition (2022) [FLAC|Lossless|WEB-DL|tracks] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228097.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Avi Rosenfeld & Marco Buono - Tell Me Something (2020) [MP3|320 Kbps] <Classic R
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228075.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ The Southern Pilots - Southern Shuffle (2022) [FLAC|Lossless|WEB-DL|tracks] <Sou
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228065.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ The Ryszard Kramarski Project - Sounds From The Past (2018) [MP3|320 Kbps] <Prog
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228063.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ Avi Rosenfeld - Be The Moon (2020) [MP3|320 Kbps] <Classic Rock, Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228051.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ Raider - Runaway (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228045.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ Dawn Patrol - Bring On The Good Times (2022) Japanese Edition [FLAC|Lossless|ima
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228034.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ Ashtar - Wandering Through Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228030.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ Infection Code - Intimacy (2007) [FLAC|Lossless|image + .cue] <Industrial, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228022.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ Infection Code - Intimacy (2007) [FLAC|Lossless|image + .cue] <Industrial, Thras
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CC06AB9D6125FD7ED4EA850EB54A87AAFABA240
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424546   (228020) от 17.11.2020
-
-BPMD - American Made (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wang Dang Sweet Poontang (Ted Nugent cover)
-02. Toys In The Attic (Aerosmith cover)
-03. Evil (Cactus cover)
-04. Beer Drinkers & Hell Raisers (ZZ Top cover)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:38:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10E7D19B25AE56146C4E7C3AF06EAEB140672E08
 ```
 
 https://mybot314.ru/tekegram_catalog/

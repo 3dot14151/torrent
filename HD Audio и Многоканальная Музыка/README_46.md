@@ -1,32 +1,3 @@
-###  Публикация: 1627632   (254994) от 20.04.2023
-
-Раймондс Паулс - Raimonds Pauls - В Тональности Раймондса Паулса - In The Mood Of Raimonds Pauls (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Jazz, Funk / Soul, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254994.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1		Беспокойный Пульс = Restless Beat	4:10
-A2		Печаль = Sadness	4:20
-A3		Испанский Мотив = Spanish Theme	3:40
-A4		Все Твое = All Yours	3:12(   Читать дальше...   )Жанр: Jazz, Funk / Soul, PopПродолжительность: 00:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45D975DEF44FD0773D4E03B10D2CD3B14F0BF69A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1628322   (254888) от 23.04.2023
 
 Раймондc Паулс - Мой Путь (1980) Мелодия [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Smooth Jazz, Easy Listening>
@@ -35,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254888.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Kim Carnes - Barking At Airplanes (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254852.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Underworld - Underneath The Radar (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254819.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Kylie Minogue - Kiss Me Once (2014) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Ele
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254741.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254728.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Red Hot Chili Peppers - The Getaway (2016) [FLAC 2.0|192/24|image + .cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254717.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254673.jpg" />
 </div>
 
 
@@ -239,7 +210,7 @@ Diana Krall - The Girl In The Other Room (2004) [DTS 5.1 CD-DA|44.1/24|image+.cu
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254485.jpg" />
 </div>
 
 
@@ -268,7 +239,7 @@ VA - Good Morning America (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254164.jpg" />
 </div>
 
 
@@ -297,7 +268,7 @@ Rod McKuen - Love's Been Good To Me (1970) [FLAC 2.0|192/24|image +.cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254151.jpg" />
 </div>
 
 
@@ -326,7 +297,7 @@ Orquesta Balkanton - Orquesta Balkanton (1967) [FLAC 2.0|192/24|image +.cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254150.jpg" />
 </div>
 
 
@@ -355,7 +326,7 @@ Roberto Delgado & His Orchestra - South America In Super Stereo (1970) Series: P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254149.jpg" />
 </div>
 
 
@@ -384,7 +355,7 @@ Herb Alpert - Rise (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soul-Jazz>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253082.jpg" />
 </div>
 
 
@@ -413,7 +384,7 @@ The Pretty Reckless - Studio Albums (6 releases) (2011-2025) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253061.jpg" />
 </div>
 
 
@@ -443,7 +414,7 @@ Godark - Studio Albums (3 releases) (2015-2025) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252509.jpg" />
 </div>
 
 
@@ -471,7 +442,7 @@ Accept - Stalingrad (2012) 2LP [WavPack 2.0 32/96|image (Vinyl-Rip)]<Heavy Metal
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251202.jpg" />
 </div>
 
 
@@ -500,7 +471,7 @@ Various - We Love Bobby O (2019) [WavPack|Lossless|tracks + .cue] <Electronic>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250468.jpg" />
 </div>
 
 
@@ -529,7 +500,7 @@ Insomnium - Studio Albums (10 releases) (2002-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250260.jpg" />
 </div>
 
 
@@ -558,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250117.jpg" />
 </div>
 
 
@@ -587,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250027.jpg" />
 </div>
 
 
@@ -616,7 +587,7 @@ Masterplan - Studio Albums (6 releases) (2003-2017) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249886.jpg" />
 </div>
 
 
@@ -645,7 +616,7 @@ Mutiny Within - Studio Albums (3 releases) (2010-2017) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249796.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Pink Floyd - A Momentary Lapse Of Reason (1987) Remastered, 2021, Pink Floyd Rec
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249634.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ Kylie Minogue - Дискография (20 releases) (1988-2020) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249436.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ Londonbeat - In the blood (1990) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245973.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ Londonbeat - In the blood (1990) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AFEFC598317CCC86A898A06537414A1903E48D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620919   (245804) от 22.03.2023
+
+Laibach - Sketches Of The Red Districts (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Industrial, Neo-Classical, Experimental, Ambient, Spoken-Word>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - 01. 06. 1924 [00:04:09]
+02 - Glück Auf! [00:06:33]
+03 - Moralna Zaslomba [00:05:09]
+04 - Smrt In Pogin [00:06:08](   Читать дальше...   )Жанр: Industrial, Neo-Classical, Experimental, Ambient, Spoken-WordПродолжительность: 00:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2895E481C4B41BCAFB20D46CD884D8332EDAEF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

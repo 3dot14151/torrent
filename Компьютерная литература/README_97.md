@@ -1,160 +1,3 @@
-###  Публикация: 1605947   (203802) от 20.01.2023
-
-Mark J. Price | C# 11 and .NET 7 – Modern Cross-Platform Development Fundamentals, 7th Edition (2022) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Extensively revised to accommodate the latest features that come with C# 11 and .NET 7, this latest edition of our guide will get you coding in C# with confidence.
-You'll learn object-oriented programming, writing, testing, and debugging functions, implementing interfaces, and inheriting classes. Next, you'll take on .NET APIs for performing tasks like managing and (   Читать дальше...   )Жанр: ПрограммированиеЯзык: EnglishФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9502F4E946EF1683348C4CA582F76E031923E088
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606159   (203779) от 20.01.2023
-
-С. Яманур, Ш. Яманур | Raspberry Pi Pico в любительских проектах (2022) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга поможет вам начать работу с миниатюрным и быстрым микроконтроллером Pico и использовать его возможности для разработки инновационных продуктов. Вы узнаете о периферийных устройствах микроконтроллера, а также о разновидностях плат Pico, разработанных и изготовленных различными производителями; затем освоите практические навыки на ряде проектов – начиная (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: Ю.В. РевичФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F331EA07ABC13522AE3D988A1C871F53D0F350CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606277   (203738) от 21.01.2023
-
-Арсений Матыцин | Я верстальщик. Веб-верстальщик (2020) [PDF, EPUB, RTF]
-
->>Компьютерная литература
->>Веб-дизайн
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203738.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный материал предназначен в первую очередь для тех, кто только начал осваивать веб, не знает за какие ниточки потянуть и что сделать, чтобы понять, как это все работает. Не менее полезен материал будет и дизайнерам, которые рисуют макеты и слабо представляют, что с этим потом делает верстальщик. Скорее, он даже очень нужен, так как давно существует проблема взаимопонимания (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF, EPUB, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E3439168106D861BEE0E9BF303482CE1F493FD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607906   (203430) от 28.01.2023
-
-Артем Груздев | Предварительная подготовка данных в Python [2 тома] (2023) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203430.jpg" />
-</div>
-
-
-###  Подробнее
-
-В двухтомнике представлены материалы по применению классических методов машинного обучения в различных промышленных задачах. Первый том посвящен инструментам Python – основным библиотекам, классам и функциям, необходимым для предварительной подготовки данных, построения моделей машинного обучения, выполнения различных стратегий валидации. В конце первого тома разбираются (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EF772B190A023B4B430C8A4AF4D648B7321E36F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608118   (203388) от 29.01.2023
-
-Уильям Лион | Разработка веб-приложений GraphQL с React, Node.js и Neo4j (2023) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Язык запросов API GraphQL заметно упрощает обмен данными с серверами, позволяя приложениям получать данные в виде простых для понимания графов. Преимущества GraphQL можно усилить за счет таких графовых инструментов и хранилищ данных, как React, Apollo и Neo4j. Подход к разработке графовых приложений полного цикла обеспечивает согласованную модель данных от начала (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: А.Н. КиселевФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:347DFC567283CB680B3FEB4909A5B4583A4FC51B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608384   (203359) от 30.01.2023
-
-Айгуль Султанова, Алёна Шаронова | 1С:Счетчик ворон. Мастер-класс по мобильной разработке в среде «1С:Предприятие» (2023) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203359.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга адресована широкому кругу читателей: тем, кто совсем не знает программирования, но хочет попробовать себя в сфере ИТ, и тем, кто уже знаком с разработкой программ и хотел бы попробовать свои силы в создании мобильных приложений. Пособие подойдет и школьникам 12-16 лет, и студентам для самостоятельного знакомства с мобильной платформой «1С:Предприятие 8», и (   Читать дальше...   )Жанр: Программирование, ПрограммыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:636A4FAF469ACD11D00A35935135BCCB058FD104
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1656564   (203239) от 31.08.2023
 
 Сергей Тарасов | СУБД для программиста. Базы данных изнутри (2018) [PDF]
@@ -163,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203239.jpg" />
 </div>
 
 
@@ -189,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203183.jpg" />
 </div>
 
 
@@ -215,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203147.jpg" />
 </div>
 
 
@@ -241,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203080.jpg" />
 </div>
 
 
@@ -267,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203070.jpg" />
 </div>
 
 
@@ -293,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203056.jpg" />
 </div>
 
 
@@ -319,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203020.jpg" />
 </div>
 
 
@@ -347,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202908.jpg" />
 </div>
 
 
@@ -373,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202772.jpg" />
 </div>
 
 
@@ -399,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202719.jpg" />
 </div>
 
 
@@ -425,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202686.jpg" />
 </div>
 
 
@@ -452,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202685.jpg" />
 </div>
 
 
@@ -479,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202644.jpg" />
 </div>
 
 
@@ -506,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202615.jpg" />
 </div>
 
 
@@ -533,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202545.jpg" />
 </div>
 
 
@@ -562,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202470.jpg" />
 </div>
 
 
@@ -588,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202469.jpg" />
 </div>
 
 
@@ -614,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202468.jpg" />
 </div>
 
 
@@ -640,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202467.jpg" />
 </div>
 
 
@@ -666,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202337.jpg" />
 </div>
 
 
@@ -677,6 +520,167 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14997661AFBB0AABAA49B6352807689B5835A691
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654567   (202333) от 21.08.2023
+
+Книжная серия "Head First O'Reilly" в 26 книгах +1CD (2011-2023) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202333.jpg" />
+</div>
+
+
+###  Подробнее
+
+В серию входят переводные книги издательства O'Reilly. Это уникальная серия "визуальных" книг, созданных по последним методикам эффективного обучения. Книги имеют огромное количество иллюстраций, графиков и таблиц, что позволяет усваивать материал намного эффективнее. Разговорный стиль изложения концентрирует внимание читателя, а упражнения, контрольные (   Читать дальше...   )Жанр: ПрограммированиеИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2153A8C0B85AB95C36A3D68537E89956436F808D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654395   (202325) от 21.08.2023
+
+Дэвид Гриффитс, Дон Гриффитс | Head First. Программирование для Android на Kotlin, 3-е издание (2023) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам уже пришла в голову гениальная идея мобильного приложения, которое завоюет весь мир? Дело за малым — воплотить ее в жизнь.
+
+Эта полностью переработанная и обновленная книга поможет сразу приступить к работе. Вы на практике узнаете, как структурировать приложение, создавать гибкие и интерактивные пользовательские интерфейсы, сохранять информацию в базе данных (   Читать дальше...   )Жанр: ПрограммированиеИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B32C748BDA4A06691C4B64D76DF4F54B6C32F0EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655659   (201993) от 27.08.2023
+
+Пьер-Оливье Лоране и др. | Программирование на Kotlin для Android (2024) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена разработке мобильных приложений для Android на языке Kotlin. Рассмотрены основные структуры и элементы языка, подробно описан фреймворк коллекций Kotlin. Показана архитектура операционной системы Android, приложений и их контейнеров, изучаются основы параллельного программирования. Рассказано о потокобезопасности, работе с параллелизмом с использованием (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БХВ-ПетербургФормат: PDFКачество: обработанный скан с OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:736FBB65AF2BD7C8DAAD1A1F5868D3B86657D5C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616463   (201933) от 02.03.2023
+
+Коллектив авторов | Анатомия для 3D-художников. Курс для разработчиков персонажей компьютерной графики (2022) [PDF]
+
+>>Компьютерная литература
+>>3D графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201933.jpg" />
+</div>
+
+
+###  Подробнее
+
+3D-моделирование и CGI — стремительно развивающееся направление в современной графике и дизайне, а профессия CG-художника является одной из самых востребованных на творческом рынке. Вместе с новой книгой от 3dtotal вы получите базу для работы с персонажами в таких программах, как 3ds Max или ZBrush, а также советы от профессионалов индустрии.
+Иностранные дизайнеры, (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFCD4D9753320881A5EFD4377296EA4953895CA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1829989   (201766) от 26.10.2025
+
+Олег Скрынник | DevOps для ИТ-менеджеров. Концентрированное структурированное изложение передовых идей [2-e издание] (2019) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201766.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге четко и последовательно изложены ключевые понятия, принципы и практики DevOps, дано определение DevOps и его место относительно других методологий управления ИТ, включая Agile. Эта книга не про автоматизацию, она акцентирована на разъяснение сути DevOps, построение команды и управление ИТ, без привязки к конкретным технологиям и инструментам. Книга не носит (   Читать дальше...   )Жанр: ПрограммированиеИздательство: ДМК ПрессФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5813C641CFF419E37DE017BE8CA9AE3F88DC6459
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617198   (201690) от 05.03.2023
+
+Sandeep Rawat | CI/CD Pipeline with Docker and Jenkins (2023) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга  представляет собой правильное сочетание повествования, концепций и реальной реализации. Книга фокусируется на пути к CI/CD зрелости команды с точки зрения DevOps.
+
+Книга проведет вас по CI/CD-пути проекта, начиная с определения проблем, с которыми столкнулась команда, и того, как команда использует CI в качестве первого шага для преодоления проблем. Далее в (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A85724F9D24ED2B9D43CC38E32A4A3CC79C58D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

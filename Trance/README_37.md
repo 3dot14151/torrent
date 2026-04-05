@@ -1,3 +1,60 @@
+###  Публикация: 564165   (304368) от 05.12.2012
+
+DJ Aligator - 7 Альбомов (2000 - 2012) [MP3|320 кб/с]<Trance , Progressive House>
+
+>>След.
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_304368.jpg" />
+</div>
+
+
+###  Подробнее
+
+DJ Aligator - 7 Альбомов (2000 - 2012)
+Год: 2000 - 2012
+Жанр: Trance , Progressive House(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184460   (301506) от 17.11.2017
+
+VA - Trance The Annual 2018 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Svenson & Gielen - We Know What You Did... (Alex M.O.R.P.H. remix)
+02. Marcel Woods - Tomorrow (M.I.K.E. Push remix - radio edit)
+03. Marco V - Switchim
+04. Jochen Miller - Head On(   Читать дальше...   )Жанр: TranceПродолжительность: 01:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD0E920F06948240FD84613CD8D2E6A982928B4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184325   (301501) от 17.11.2017
 
 VA - Trance 2018 (2017) [MP3|320 Kbps] <Uplifting, Vocal Trance>
@@ -6,7 +63,7 @@ VA - Trance 2018 (2017) [MP3|320 Kbps] <Uplifting, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301501.jpg" />
 </div>
 
 
@@ -35,7 +92,7 @@ VA - 20 Best Trance Hits 2017 - 2018 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301495.jpg" />
 </div>
 
 
@@ -64,7 +121,7 @@ VA - A State Of Trance Top 20: November (Selected By Armin Van Buuren) (2017) [M
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301373.jpg" />
 </div>
 
 
@@ -93,7 +150,7 @@ VA - Abora 200 Timeless Favorites (Mixed By Ori Uplift) (2019) [MP3|320 Kbps] <U
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298831.jpg" />
 </div>
 
 
@@ -122,7 +179,7 @@ VA - Future Sound of Egypt 600 - Sands of Time (Mixed by Aly & Fila & Ciaran Mca
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298745.jpg" />
 </div>
 
 
@@ -151,7 +208,7 @@ NX-Trance - CY 3000 (2016) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298213.jpg" />
 </div>
 
 
@@ -180,7 +237,7 @@ VA - Magic Island - Music For Balearic People Vol. 9 (Mixed  by Roger Shah) (201
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296823.jpg" />
 </div>
 
 
@@ -209,7 +266,7 @@ VA - Achromania - A Journey Through White Label Trance Vol. 8 (2017) [MP3|320 Kb
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295223.jpg" />
 </div>
 
 
@@ -238,7 +295,7 @@ VA - Trancemission Vol.2 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295216.jpg" />
 </div>
 
 
@@ -267,7 +324,7 @@ VA - Recoverworld Radio 016 (Mixed by Para X) (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295205.jpg" />
 </div>
 
 
@@ -296,7 +353,7 @@ VA - Amsterdam Trance Sessions Vol.13 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295192.jpg" />
 </div>
 
 
@@ -325,7 +382,7 @@ VA - The Best Of Deepsink Digital Trance Vol 2 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293744.jpg" />
 </div>
 
 
@@ -354,7 +411,7 @@ VA - Best of Trance 2017, Vol. 06 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293743.jpg" />
 </div>
 
 
@@ -383,7 +440,7 @@ VA - Recoverworld Trance Sessions 17.06 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293740.jpg" />
 </div>
 
 
@@ -412,7 +469,7 @@ VA - Markus Schulz - Global DJ Broadcast: Top 20 November (2018) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293516.jpg" />
 </div>
 
 
@@ -441,7 +498,7 @@ VA - Trance 2019 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293514.jpg" />
 </div>
 
 
@@ -470,7 +527,7 @@ VA - Pure Trance 7 (Mixed by  Kristina Sky & Solarstone & Lostly) (2018) [MP3|32
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293505.jpg" />
 </div>
 
 
@@ -499,7 +556,7 @@ VA - Trance Travel Vol. 1 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291812.jpg" />
 </div>
 
 
@@ -528,7 +585,7 @@ Dream Travel - Trance Cloud (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291811.jpg" />
 </div>
 
 
@@ -557,7 +614,7 @@ VA - Adedition: Trance Collection Of Amsterdam (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291739.jpg" />
 </div>
 
 
@@ -586,7 +643,7 @@ VA - Trance Cloud (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291738.jpg" />
 </div>
 
 
@@ -615,7 +672,7 @@ Solarstone - One (Limited Edition) (2019) Box Set [MP3|320 Kbps] <Trance, Progre
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291664.jpg" />
 </div>
 
 
@@ -644,7 +701,7 @@ Stoneface & Terminal - Altered Floors (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291558.jpg" />
 </div>
 
 
@@ -673,7 +730,7 @@ VA - Sarah Lynn - Clear As The Sky: The Best Of (Extended Mixes) (2018) [MP3|320
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291554.jpg" />
 </div>
 
 
@@ -687,64 +744,6 @@ VA - Sarah Lynn - Clear As The Sky: The Best Of (Extended Mixes) (2018) [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34DFF3B7E691354F31B76F4637AD82B389A40847
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080246   (290413) от 06.12.2016
-
-VA - Absolute Uplifter (Euphoric Trance) Vol. 2 (2016) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christian Peter Stier - Last Summer (Original Mix) 08:35
-02. Yakoff - Suspense (Advent's Rising Remix) 07:29
-03. Carpathian Paths - Burkut (Original Mix) 08:00
-04. Mark Found - Cutting The Clouds (One Million Toys Remix) 07:32(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:01:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96323873DC3EADAF120E3C03D0D1395BE39E20CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263149   (290031) от 18.11.2018
-
-VA - ReOrder - Iamready (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ReOrder – Reinstate (Original Mix )(02:48)
-02. ReOrder & Weldon – Entropy (Original Mix) (04:31)
-03. ReOrder & Emma Chatt – Alive Tonight (Original Mix) (04:14)
-04. ReOrder – Alone (Original Mix) (07:21)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:01:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70DBBBE6E432051638A3530619DA249D3F10821C
 ```
 
 https://mybot314.ru/tekegram_catalog/

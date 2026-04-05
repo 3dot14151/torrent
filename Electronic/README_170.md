@@ -1,3 +1,61 @@
+###  Публикация: 1215593   (758108) от 26.03.2018
+
+VA - Ori Uplift & Baco - Uplifting Only 267 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grande Piano - Only Mine (Intro Mix)
+02. FAN FAVORITE: Dreamlife & Blue Moon - Last Farewell (George Crossfield Emotional Remix)
+03. Alex Wright - Mnemba
+04. Etasonic & Dany G - Flying in a Dream (RAM & Cari Remix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:59:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B64153098A3480FBE46F970F4C826D3E323C28B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215499   (758107) от 26.03.2018
+
+Michael E - Cotton Blossom (2018) [MP3|320 Kbps] <Downtempo, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cotton Blossom (Original Mix)  5:35
+02.  Tropic Of Capricorn (Original Mix)  8:01
+03.  Recuring Dream (Original Mix)  6:00
+04.  It's True (Original Mix)  6:05(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:57:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EC38DD603B0160DC1C3F2B2CD3CB9DFE5387A1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215566   (758103) от 26.03.2018
 
 VA - Deep House Spring Essentials 2018 [MP3|320 Kbps] <Deep House>
@@ -6,7 +64,7 @@ VA - Deep House Spring Essentials 2018 [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758103.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Fa Calor - A Chill Out Moment (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758101.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Michael E - Cotton Blossom (2018) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chil
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758094.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Peru - 7 Studio Albums (1981-1993) [MP3|320 Kbps] <Electronic, Synth-pop, Ambien
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757933.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Chilling Sunset Island (2016) [MP3|320 кб/с] <Downtempo, Chillout, Loung
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757730.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Tripswitch - Vagabond (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757629.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Coffee Lounge Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757562.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Chillout Top 100 - Best And Hits of Relaxation Chillout Music (2016) [MP3|3
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757459.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Heisenberg - Thoughts (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757181.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Monolock - Best Of RELOOPED (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757118.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Laidback Luke - Yearmix 2021 (2021-12-16) [MP3|320 Kbps] <Electro Pop, Tech Hous
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757025.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Jeju 濟州 (2019) Oslated [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756978.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Downscope - Sojourn in Canaan (2019) alternating.bit music [FLAC|Lossless|WEB-DL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756975.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Celer - Xièxie (Xiexie) (2019) Two Acorns [FLAC|Lossless|WEB-DL|tracks] <Ambien
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_756974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_756974.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Tarena - Suncatcher (2019) [MP3|320 Kbps] <Ambient, Relax Electronic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756972.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Antigen Shift - Discography 7 Releases (2002-2014) [FLAC|Lossless|tracks+.cue, t
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756840.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ AM 1984 (Maurizio Avossa) - 3 Albums (2018-2020) [FLAC|Lossless|WEB-DL|tracks] <
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756769.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - New Prog Order Vol. 3 (Compiled by Shyisma)(2018) [MP3|320 Kbps] <Trance,Pr
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756738.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Recoverworld Radio 018 (Mixed by Para X)(2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756736.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Dirty Vegas - Electric Love (2011) Om Records [FLAC|Lossless|tracks + .cue] <Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756735.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Invisible Smile: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756641.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Andrea Cossu - Spira (2018) TGP [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756616.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ The Mover - Undetected Act from the Gloom Chamber (2018) Planet Phuture [FLAC|Lo
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756604.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Coastal Remixes Vol.01 (2018) [MP3|320 Kbps] <Progressive House, House,Tran
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756600.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Coastal Remixes Vol.01 (2018) [MP3|320 Kbps] <Progressive House, House,Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1C66E6157BB1AB918D922DBBF706D875E865853
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215783   (756509) от 27.03.2018
-
-VA - A State Of Trance Episode 850 – Ultra Music Festival, Miami (2018) [MP3|~256 - 320 Kbps] <Trance,Progressive Trance,House,Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fernando Olaya – Coffee With U (Pacco & Rudy B Remix)
-02. A.M.R. – Uncharted
-03. Hello Machines – Air
-04. Quivver – A Higher State(   Читать дальше...   )Жанр: Trance,Progressive Trance,House,Progressive HouseПродолжительность: 11:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FC62BB2CA62B7CB506E1D917A514038B5D7B6E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215644   (756478) от 27.03.2018
-
-DJ Krush - Cosmic Yard (2018) Es.U.Es Corporation [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Breakbeat, Trip Hop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Regulus (03:49)
-02. Stellar Wind (03:21)
-03. Divine Protection (feat. 渥美幸裕) (04:18)
-04. Asterism (Interlude) (01:37)(   Читать дальше...   )Жанр: Downtempo, Breakbeat, Trip HopПродолжительность: 00:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30CAB3F06285BA56ED1E64A19C310835E79B5DD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

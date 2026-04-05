@@ -1,3 +1,30 @@
+###  Публикация: 1638334   (237853) от 08.06.2023
+
+WiFi Explorer 3.4.3 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237853.jpg" />
+</div>
+
+
+###  Подробнее
+
+WiFi Explorer быстро определяет конфликты в каналах связи, overlapping сигнала или просто проблемы в конфигурации, которые мешают стабильной работе сигнала в беспроводной сети вашего офиса или дома.
+WiFi Explorer Pro берет базу кода Wi-Fi Explorer и добавляет набор функций, которые делают его подходящим инструментом для WLAN и IT-специалистов. Вы можете использовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.06.2023Разработчик: © 2012-2020 Intuitibits LLCПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17B982F6FA573867CC5A7D94C8338C6268658ED6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1638707   (237761) от 09.06.2023
 
 SSH Config Editor Pro 2.6.2 [En]
@@ -6,7 +33,7 @@ SSH Config Editor Pro 2.6.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237761.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Gestimer 1.2.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237688.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ Magic Battery Mini 4.2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237589.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ USBclean 3.6.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237575.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ App Tamer 2 v.2.7.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237561.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ Script Debugger 7 v7.0.13 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237465.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ BetterMouse 1.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237110.jpg" />
 </div>
 
 
@@ -191,7 +218,7 @@ iRightMouse Pro 2.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237043.jpg" />
 </div>
 
 
@@ -217,7 +244,7 @@ Lasso 1.1.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237003.jpg" />
 </div>
 
 
@@ -243,7 +270,7 @@ BetterDisplay Pro for Mac 2.0.1 pre-release [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236639.jpg" />
 </div>
 
 
@@ -269,7 +296,7 @@ Boss Radar 3.05 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236614.jpg" />
 </div>
 
 
@@ -295,7 +322,7 @@ Mirror for TCL TV 3.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236457.jpg" />
 </div>
 
 
@@ -321,7 +348,7 @@ BetterDisplay Pro for Mac 1.4.15 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235694.jpg" />
 </div>
 
 
@@ -347,7 +374,7 @@ Resolutionator 2.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235570.jpg" />
 </div>
 
 
@@ -374,7 +401,7 @@ Battery Indicator for Mac 2.16.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235372.jpg" />
 </div>
 
 
@@ -400,7 +427,7 @@ ColoFolXS 2.2.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235272.jpg" />
 </div>
 
 
@@ -429,7 +456,7 @@ Disk PLUS 1.73 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235261.jpg" />
 </div>
 
 
@@ -455,7 +482,7 @@ mcZoomOn 5 v5.0.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235171.jpg" />
 </div>
 
 
@@ -481,7 +508,7 @@ Audio Ease Snapper 3.1.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234908.jpg" />
 </div>
 
 
@@ -507,7 +534,7 @@ Script Debugger 8 v.8.0.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234882.jpg" />
 </div>
 
 
@@ -534,7 +561,7 @@ Irvue 2.7.14 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234659.jpg" />
 </div>
 
 
@@ -560,7 +587,7 @@ TG Pro (Temperature Gauge Pro) 2.81 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234613.jpg" />
 </div>
 
 
@@ -587,7 +614,7 @@ Cisdem Duplicate Finder 6.4.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234598.jpg" />
 </div>
 
 
@@ -614,7 +641,7 @@ BetterSnapTool 1.9.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234505.jpg" />
 </div>
 
 
@@ -641,7 +668,7 @@ Gas Mask 0.8.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234365.jpg" />
 </div>
 
 
@@ -653,32 +680,6 @@ Gas Mask — файловый менеджер hosts, предназначенн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1BEF3331AABB383EEE5BF6C62F3D9CF7B7E9429
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544598   (234364) от 16.04.2022
-
-Seasonality Core 2.7.3 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Seasonality Core - превращает ваш Mac в домашнюю метеостанцию, показывая вам, прогноз погоды с использованием спутниковых и радиолокационных изображений, с помощью которых вы сможете посмотреть облачность и где идет дождь или снег. Также можно посмотреть погоду на следующие 7 дней. Вы можете следить за погодой не только в вашем городе, но и по городам всего мира. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.04.2022Разработчик: © 2005-2022 Gaucho Software, LLC.Поддерживаемая ОС: macOS 10.10.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEC8ACA8BE7C9496134BC0813B74AA12E6870DF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

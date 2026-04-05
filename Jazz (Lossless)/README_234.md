@@ -6,7 +6,7 @@ Jaki Byard Quartet - Live! (1965) 1992, Prestige [APE|Lossless|image + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264462.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Roy Haynes - True Or False 1986 (1997) Evidence [FLAC|Lossless|image + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264312.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Lionel Hampton & Friends (1990) Groove Merchant [FLAC|Lossless|tracks + .cue] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264185.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Chris Potter - Pure (1994) Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264184.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ George Otsuka Trio - Page 2 (1968) 2014, Nippon Columbia [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264183.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Chris Potter - Moving In (1996) Concord Records [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264181.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Wes Montgomery - Dangerous (1961 - 1963) 1999, Milestone Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264177.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ George Otsuka Trio - Last Summer: Page 3 (1969) 2014, Nippon Columbia [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264176.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Optimystica Orchestra - Полубоги Вина (2005) 2018, Remastered [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264016.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Chris Potter - Coming Together (2009) Inarhyme Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263918.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ George Shearing & Brian Torff - Lullaby of Birdland (1979, 1980) 2CD, 2000, Conc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263914.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Dave Brubeck Quartet - At Wilshire Ebell (1953) 2006, Fresh Sound Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263901.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Brian Culbertson - 15 Альбомов (1995-2018) [FLAC|Lossless|image+ .cue, t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263789.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Bud Powell Trio - Bouncing With Bud 1962 (1997) Mobile Fidelity Sound Lab [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263629.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Dave Brubeck - Time Signatures: A Career Retrospective 1950-e - 1970-e (1992) 4C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263626.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Denny Zeitlin & David Friesen - Live at the Jazz Bakery (1996) 1999, Intuition R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263561.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Lionel Hampton - Hamp's Blues & Flying Home (1969, 1974) 2CD, 1992, Lester Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263538.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Earl Hines - Here Comes Earl 'Fatha' Hines & Spontaneous Explorations (1964, 196
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263536.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Benjamin Herman featuring Daniel von Piekartz - Trouble (2014) Dox Records [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263535.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Art Farmer with Joe Henderson - Yama (1979) 2017, King Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263531.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Herbie Hancock - Dancin' Grooves (1999) SME Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263521.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ George Benson - Pacific Fire (1983) Japan, 2017 [FLAC|Lossless|tracks + .cue] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263479.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Seal - Standards (2017) Japan SHM-CD [FLAC|Lossless|image + .cue] <Vocal Jazz, F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263396.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Farmers Market - Slav to the Rhythm (2012) [FLAC|Lossless|tracks + .cue] <Jazz R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263302.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Radare - Der Endless Dream (2019) [FLAC|Lossless|Web-DL|tracks] <Doom Jazz, Expe
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263296.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Stephane Grappelli - Live 1992 (2002) Disques Dreyfus [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263257.jpg" />
 </div>
 
 

@@ -1,3 +1,55 @@
+###  Публикация: 1640205   (237640) от 16.06.2023
+
+Моя дорогая Клементина / My Darling Clementine (1946) BDRip [H.264] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237640.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноимённой книге Стюарта Лейка. Аризона. 1882 год. Братья Эрп — Уайетт, Морган, Вирджил и Джеймс — гонят скот в Калифорнию. По дороге они встречают семью скотоводов Клэнтонов, старика с четырьмя сыновьями, и от них узнают о ближайшем городке Тумстоуне. Братья едут в город, оставив самого младшего, Джеймса, караулить скот. По их возвращении в лагерь видят, что (   Читать дальше...   )Производство: США, Twentieth Century Fox Film CorporationЖанр: драма, мелодрама, вестернРежиссер: Джон ФордАктеры: Генри Фонда, Линда Дарнелл, Виктор Мэтьюр, Кэти Даунс, Уолтер Бреннан, Тим Холт, Уорд Бонд, Алан Маубрэй, Джон Айрлэнд, Рэй РобертсПеревод: профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:37:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E18FDCD8E47A7EEDF8013FED9C2C64938A49DE69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624243   (237639) от 29.04.2023
+
+Провинциальные актеры / Aktorzy prowincjonalni / Provincial Actors (1979) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой режиссёр, вдохновлённый новаторскими идеями, приезжает в провинциальный город. Здесь он планирует поставить классическую пьесу, придав её новое звучание. Однако придётся столкнуться с серьёзным сопротивлением местной труппы.Производство: Польша / Film Polski, Polish Corporation for Film Production, Zespol Filmowy XЖанр: драма, комедияРежиссер: Агнешка ХолландАктеры: Халина Лабонарска, Тадеуш Хук, Ивона Бернацкая, Эва Далковска, Слава Квасьневска, Казимира Ногаева, Янина Орденжанка, Кристина Вахелько-Залеска, Штефан Бурчик, Андрей БушевичПеревод: Одноголосый любительский (Мика Бондарик)Язык озвучки: русский, польскийСубтитры: английские, русскиеПродолжительность: 01:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59801305949805909A2EEB22346158B75D424875
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1630437   (237184) от 30.04.2023
 
 Марни / Marnie (1964) BDRip
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237184.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237136.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237125.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236712.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236620.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236580.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236234.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236119.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235673.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235529.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235473.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235350.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235335.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235060.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234881.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234853.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234687.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234510.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234314.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234212.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234138.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233912.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233875.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233021.jpg" />
 </div>
 
 
@@ -618,58 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A5632A63E4F3C54057AEC1CB0705F8D73C43E27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632176   (232915) от 23.05.2023
-
-Квадратные джунгли / The Square Jungle (1955) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232915.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пэт Куэйд, вдовец-алкоголик из Сан-Франциско, попадает в тюрьму. Его сыну, продавцу бакалейной лавки, Эдди, нужно 25 долларов, чтобы внести за него залог. Эдди участвует в любительском соревновании по борьбе и выигрывает его. Джули Уолш влюблена в Эдди, но ее отец не одобряет семью Куэйдов, особенно отца мальчика, поэтому он заставляет Джули держаться подальше. Пэт (   Читать дальше...   )Производство: США / Universal International Pictures (UI)Жанр: фильм-нуар, драма, спортРежиссер: Джерри ХопперАктеры: Тони Кертис, Пэт Краули, Эрнест Боргнайн, Пол Келли, Джим Бакус, Ли Сноуден, Джон Дахейм, Джо Луис, Дэвид Джэнссен, Кармен МакРейПеревод: Одноголосый любительский (sephiroth)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:26:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77BB20E69CE92E37D610BF6D8E716BF12726AEC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575421   (232762) от 27.09.2022
-
-Огонь из преисподней / Fire Down Below (1957) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232762.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два владельца одной мелкой транспортной компании Тони и Феликс выполняют различные работы в Карибском море. Однажды они соглашаются перевезти девушку без документов по имени Ирена. Они оба в нее влюбляются, но Ирен выбирает Тони, и мужской дружбе приходит конец. Тони устраивается матросом на грузовое судно. Во время сильного тумана судно налетает на другой корабль. (   Читать дальше...   )Производство: Великобритания, США / Warwick Film Productions Ltd.Жанр: Драма, Приключения, МелодрамаРежиссер: Роберт ПэрришАктеры: Джек Леммон, Роберт Митчем, Рита Хэйворт, Герберт Лом, Бонар Коллеано, Бернард Ли, Эдрик Коннор, Питер Иллинг, Джоан Миллер, Энтони НьюлиПеревод: Многоголосый профессиональный, Первый каналСубтитры: АнглийскиеПродолжительность: 01:55:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97082DE2EA3A973382028236915FE5041647C9FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

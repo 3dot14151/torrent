@@ -1,3 +1,55 @@
+###  Публикация: 1659102   (186191) от 24.09.2023
+
+Случай с Полыниным (1970) WEBRip [VP9/2160p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186191.jpg" />
+</div>
+
+
+###  Подробнее
+
+В первые дни войны молодая московская актриса Галина Прокофьева вместе с фронтовой актерской бригадой была направлена на Карельский фронт. Именно там впервые услышал ее песни командир авиационного полка Полынин. Вскоре она уехала, а Полынин продолжал воевать, думать о Галине и писать короткие письма женщине, на которой решил жениться...Производство: СССР / МосфильмЖанр: драма, военныйРежиссер: Алексей СахаровАктеры: Георгий Бурков, Анастасия Вертинская, Лев Дуров, Олег Ефремов, Нонна Мордюкова, Александр Пороховщиков, Олег Табаков, Виктор Шульгин, Евгения Мельникова, Виктор Колпаков и др.Субтитры: отсутствуютПродолжительность: 01:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F86E08AAA83881D94B96BD711B4D9A951A28CAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660688   (186180) от 24.09.2023
+
+Звезда пленительного счастья (1975) BDRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186180.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основу сюжетной линии положены судьбы декабристов: князя Трубецкого Сергея Петровича, его жены Трубецкой Екатерины Ивановны, князя Волконского Сергея Григорьевича и его жены Волконской Марии Николаевны, а также поручика Ивана Анненкова и его жены Прасковьи Анненковой. После подавления восстания на Сенатской площади события развивались трагически: пятеро декабристов (   Читать дальше...   )Производство: СССР, Ленфильм, Второе творческое объединениеЖанр: Исторический, ДрамаРежиссер: Владимир МотыльАктеры: Ирина Купченко, Алексей Баталов, Наталья Бондарчук, Олег Стриженов, Эва Шикульска, Игорь Костолевский, Раиса Куркина, Татьяна Панкова, Олег Янковский, Татьяна ФедороваПродолжительность: 02:45:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92E9891A4A12E857E344EA13C2CAEBA156BD5F92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1827381   (186108) от 21.10.2025
 
 Блондинка за углом (1984) WEBRip [H.264/1080p]
@@ -6,7 +58,7 @@
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186108.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_185977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_185977.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183027.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181907.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181697.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176462.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176439.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176263.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173802.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173416.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171684.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171651.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170016.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169264.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168770.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167613.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167570.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164846.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164016.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161865.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160953.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160944.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159193.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158839.jpg" />
 </div>
 
 
@@ -622,58 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B048D37040E9ECCEDD3F0D6DD8009586989A3F19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671425   (158825) от 12.11.2023
-
-Жена керосинщика (1988) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из братьев оперировал мальчика. Другой ему ассистировал. Понадобилось переливание крови. Дорожа мгновением, хирург не проверил поданный ассистентом материал и влил больному кровь не той группы. Ребенок умер. Жизнь братьев резко изменилась. Один стал керосинщиком, другой - председателем горсовета.Производство: СССР, МосфильмЖанр: фэнтези, драмаРежиссер: Александр КайдановскийАктеры: Александр Балуев, Сергей Векслер, Михаил Данилов, Николай Исполатов, Михаил Крылов (Шулейкин), Алла Малкова (Мараш), Евгений МироновСубтитры: отсутствуютПродолжительность: 01:34:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4AF481D54B7E55D54D8CAE915067AC5C2DC1C6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582467   (158815) от 26.12.2022
-
-Отель «У погибшего альпиниста» (1979) BDRemux [H.264/1080p]
-
->>След.
->>Отечественная Классика (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приехав по срочному вызову в отель, инспектор полиции не обнаружил ничего уголовнонаказуемого, но подметил происходящие там странности. Снежная лавина не позволила ему уехать в тот же день, и вскоре инспектор обнаружил тело убитого постояльца. Подозрение падает на всех, кто живет в отеле.Производство: CCCP, ТаллинфильмЖанр: фантастика, драма, детективРежиссер: Григорий КромановАктеры: Улдис Пуцитис, Юри Ярвет, Лембит Петерсон, Микк Микивер, Карл Себрис, Сулев Луйк, Тийт Хярм, Нийоле Ожелите, Каарин Райд, Ирена КряузайтеПеревод: дублированныйСубтитры: английские, эстонские, немецкие, французские, португальские, русские, испанскиеПродолжительность: 01:23:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDE957690E43BF9CE6FF8D7C04EA0424E46F76DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

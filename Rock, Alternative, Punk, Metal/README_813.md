@@ -1,3 +1,32 @@
+###  Публикация: 1452666   (244366) от 07.03.2021
+
+Телепорт - Огни маленького человека (2021) [MP3|320 Kbps] <Rock, Funk, Soul>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Огни маленького человека [00:00:34]
+02 - Холод [00:03:45]
+03 - Самовлюблённый [00:03:13]
+04 - Фантом [00:03:45](   Читать дальше...   )Жанр: Rock, Funk, SoulПродолжительность: 00:31:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BE92A0284BC88436F0B37208ED1A6796A05E56B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625606   (244363) от 11.04.2023
 
 Urantia - Innerverse (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Power Metal>
@@ -6,7 +35,7 @@ Urantia - Innerverse (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244363.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ A Lake Of Ayes - Ouro Sobre Azul (2021) [FLAC|Lossless|tracks + .cue] <Post Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244362.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Sweetlee - К​р​у​г р​а​з​у​м​а (2023) EP [FLAC|Lossles
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244357.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Djevel - Naa skrider natten sort (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244348.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Empire - Sound Barrier (1995) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244339.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Absurd - Asgardsrei (1999) 2017 Remastered, IG Farben [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244335.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Chris Angels - Gods (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244327.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Angel Vivaldi - Away With Words, Part 1-2 (2014-2023) 2EP [MP3|320 Kbps] <Progre
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244323.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ The Bronx Casket Co. - Sweet Home Transylvania (2001) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244317.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Void Column - Admonition of Clarity (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244293.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Noctem - Credo certe ne cras (2022) [MP3|320 Kbps] <Black, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244276.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244275.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Peter Gee - Pilgrim (2023) [MP3|320 Kbps] <Neo-Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244268.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244265.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Phil Campbell and the Bastard Sons - Live In The North (Live) (2023) [FLAC 2.0|9
 >>Hard Rock (Hi Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244259.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Heryos - The Magician (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Doom Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244257.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Amartia - Daylight Beauty (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244255.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Silhouette - Les retranchements (2022) [MP3|320 Kbps] <Atmospheric Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244250.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Ampacity - IV (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244240.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Morghash - Cosmogony (2019) EP [MP3|320 Kbps] <Symphonic Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244232.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Second Story - Thin Twisting Line (2020) 2CDSet [MP3|320 Kbps] <Progressive Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244228.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Little Bob Story – Livin' In The Fast Lane & 6 Inedits (1977) Reissue, 1991, F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244222.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Caspar McCloud - Game Changers (2020) [FLAC|Lossless|WEB-DL|tracks] <Classic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244220.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244209.jpg" />
 </div>
 
 
@@ -704,7 +733,7 @@ Dave Kerzner - The Traveler (2022) 2CD, Special Edition [MP3|320 Kbps] <Progress
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244203.jpg" />
 </div>
 
 
@@ -718,35 +747,6 @@ Dave Kerzner - The Traveler (2022) 2CD, Special Edition [MP3|320 Kbps] <Progress
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68DA8898AA3ACE5C684AEA7443598A6B2E024600
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454071   (244201) от 13.03.2021
-
-ПсиХХХо - Молиться, умирать, молчать... (Часть 1) (2021) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Молиться, умирать, молчать... [00:05:21]
-02. Помощь идет! [00:03:49]
-03. Если я не плыву [00:04:22]
-04. Гори, оставайся! [00:03:29](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:30:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52336055CA197952E6F1E6217F1E6D51A6571388
 ```
 
 https://mybot314.ru/tekegram_catalog/

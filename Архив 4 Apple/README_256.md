@@ -6,7 +6,7 @@ Smooze Pro 2.0.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722785.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Find Any File (FAF) 2.3.3b2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722784.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Rectangle Pro 2.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722781.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ SiteSucker Pro 4.3.3 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722780.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ File Cabinet Pro 4.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722719.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ TaskPaper 3.8.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722709.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ NCH Doxillion Plus 5.76 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722706.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Tower Pro 8 v8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722699.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Two Point Hospital v1.12.27083 [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722673.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ goPanel 1.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722611.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ liquivid Video Improve 1.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722511.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ SyncMate Expert 6.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722495.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ TG Pro (Temperature Gauge Pro) 2.9.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722349.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Vellum 1.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722259.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Default Folder X 5.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722257.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ StatsBar 2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722256.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Transmit 5.8.4 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722235.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722162.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ MONIT 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722158.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722021.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Pixelmator 3.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721704.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Privatus 6.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721549.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ WiFiSpoof 3.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721526.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ iCollections 6 v6.5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721423.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ CoLocalizer Pro 7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721415.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ DVD-Cloner 2020 v7.20.717 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721414.jpg" />
 </div>
 
 

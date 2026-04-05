@@ -1,32 +1,3 @@
-###  Публикация: 1370499   (896785) от 27.03.2020
-
-Jelly Roll - A Beautiful Disaster (2020) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Hip-Hop, Country Rap, Blues Rock>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Bottom (2:37)
- 02. I Need You (2:52)
- 03. Nothing Left At All (3:24)
- 04. Suicide (3:43)(   Читать дальше...   )Жанр: Hardcore Hip-Hop, Country Rap, Blues RockПродолжительность: 00:40:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53F98A72074D54BFD017029D909BDC311198D198
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370540   (896704) от 27.03.2020
 
 Childish Gambino - 3.15.20 (2020) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, R&B>
@@ -35,7 +6,7 @@ Childish Gambino - 3.15.20 (2020) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, R&B>
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896704.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Jessie Reyez - BEFORE LOVE CAME TO KILL US (2020) [FLAC|Lossless|WEB-DL|tracks] 
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896689.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ N.Masteroff - Все мечты давно сгорели (2020) [MP3|320 Kbps] 
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895294.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895284.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895268.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Kyok - DECADANCE 3 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895233.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Horus & Зараза - Баланс чёрного (2019) [MP3|320 Kbps] <Rap, H
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895226.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_895218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_895218.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Horus - Рифмономикон (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895199.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ PHARAOH - Правило (2020) [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895109.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893681.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893646.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893402.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Rag'N'Bone Man - Wolves (2014) [MP3|320 Kbps] <Alternative Hip Hop, Indie>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890608.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ The Weeknd - After Hours (22-Track - Deluxe - Explicit) (2020) [FLAC 2.0|44.1/24
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889843.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Jay Electronica - A Written Testimony (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888679.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Slim Thug - THUG LIFE (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888588.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Jadakiss - Ignatius (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888582.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Conway the Machine & The Alchemist - LULU (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888579.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Joyner Lucas - ADHD (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888575.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Rag'n'Bone Man - Human (2017) Deluxe Edition [FLAC|Lossless|Web-DL|tracks] <R'n'
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886881.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ A$AP Twelvyy - Before Noon (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885431.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Dropout Kings - GlitchGang (2020) [MP3|320 Kbps] <Rap, Rapcore, Nu Metal>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885362.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ Enemy Radio - Loud Is Not Enough (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885357.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885210.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FF52E76393AE12F92F1CFBD58F630D37819C4CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995402   (884509) от 11.03.2016
+
+Apollo Brown - Grandeur (2015) [FLAC|Lossless|tracks + .cue] <Hip Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Finally (0:25)
+02. Neva Eva (feat. Barrel Brothers) (3:19)
+03. What You Were Looking For (feat. Oddisee) (3:38)
+04. Detonate (feat. M.O.P.) (3:16)(   Читать дальше...   )Производство: Mello Music Group – MMG-00077-2Жанр: Hip HopПродолжительность: 01:03:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDE0E07217ADD9BB00BE6FE15E45824C7572E3A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

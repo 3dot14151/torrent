@@ -1,32 +1,3 @@
-###  Публикация: 1815430   (5134) от 30.08.2025
-
-Carolyn Jones - All in divine timing (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Stand (4:46)
-02.  Toy (3:29)
-03.  Without you (5:51)
-04.  Bliss (3:38)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCCCFCBDB61B3FEEC5EAB9A866230184D348EBA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815441   (5123) от 30.08.2025
 
 Knox Vortex - Darling I Don’t Mind (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
@@ -35,7 +6,7 @@ Knox Vortex - Darling I Don’t Mind (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5123.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ David Rose - Be a Gentleman (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5117.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Eric Gales - A Tribute To LJK (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5116.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Liora Stedman - Spirit of Cobalt (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4931.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Luna Artisan - Ego Rush (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4929.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Michael Jackson - Off The Wall (1979) SACD, Reissue, Remastered, 2025, Mobile Fi
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4847.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Soundset City - Beyond Lounge (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Loun
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4831.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Nick Manzer - Through The Veil (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4791.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Nelson Bragg - Melodie de Nelson: A Pop Anthology (2025) [FLAC 24/48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4790.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Mr. Creatovsky - Braincity Blues EP (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4789.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Huntress - Studio Albums (4 releases) (2010-2015) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4788.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Slant KX - Endless Love (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4787.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Steve Fair - Play Fair (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4785.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Maria Oswen - Nu Woman (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4781.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ No Bull - Rock N Roll Remains Forever (2025) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4777.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Evocatus - Studio Albums (4 releases) (2014-2025) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4771.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Makiisma - The Heart Remains (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4770.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Ghosts of Sunset - California Girl (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4769.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Maria Muldaur - One Hour Mama: The Blues of Victoria Spivey (2025) [FLAC 24/44.1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4768.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Insania (a.k.a. Insania Stockholm) - Studio Albums (6 releases) (1999-2025) hand
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4658.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Sabrina Carpenter - Man’s Best Friend (2025) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4538.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ Lady Gaga - Mayhem (2025) Deluxe Edition, Interscope Records [FLAC 24/44.1|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4439.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ De Profundis, Eamonn Dougan - Morales: Requiem a 5 & Officium defunctorum (2025)
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4419.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ Joris Voorn - Serotonin (2025) 2CD [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4417.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ Laufey - A Matter of Time (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4416.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ Laufey - A Matter of Time (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:847596AEFB22E97BCEACF43C56F0540B58A4A005
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816273   (4415) от 04.09.2025
+
+Dj Cult Music - Blues Rock Cult Songs (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bourbon Powered Blues (3:24)
+02.  Chrome Heart Shuffle (3:59)
+03.  Echoes in Leather Boots (3:30)
+04.  Gravel Voice Lullaby (3:43)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C7A6EE7640362E98276612A661D5153B27F4EC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

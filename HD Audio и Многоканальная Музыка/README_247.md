@@ -1,32 +1,3 @@
-###  Публикация: 1811374   (16141) от 10.08.2025
-
-Cradle of Filth - Existence Is Futile (2021) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Black Metal, Extreme Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16141.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Fate Of The World On Our Shoulders
-A2 Existential Terror
-A3 Necromantic Fantasies
-A4 Crawling King Chaos(   Читать дальше...   )Жанр: Symphonic Black Metal, Extreme Gothic MetalПродолжительность: 01:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F031FE3B26D502E91ED370A97AECEE2E56AA4B85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1571438   (16061) от 31.05.2025
 
 Rivers of Nihil - Дискография (7 releases) (2010-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Technical/Progressive Death Metal>
@@ -35,7 +6,7 @@ Rivers of Nihil - Дискография (7 releases) (2010-2025) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16061.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ The Haunted - Studio Albums (10 releases) (1998-2025) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15841.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Papik & Frankie Lovecchio - Memories (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15836.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Manowar - Kings Of Metal (1988)[APE|24/96|image + .cue|Vinyl-Rip]  <Heavy Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15642.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ The Mamas & The Papas - Best Of The Mamas & The Papas: California Dreamin' (1977
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15620.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Volbeat - God Of Angels Trust (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15581.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Edgar Blues Trio - SHINE (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15561.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Joe Kelly & The Royal Pharmacy - Cast Me Down (2025) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15560.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Keb' Mo', Taj Mahal - Room On The Porch (2025) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15559.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Joe & The Regulators - Are You Regulated? (2025) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15557.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Gary Hoey - Avalanche (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15555.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15552.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ When Rivers Meet - Addicted To You (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15551.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Honeyboy Slim & The Bad Habits - Honeyboy Slim & The Bad Habits (2025) [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15541.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Umpfel - Studio Albums (2 releases) (2015-2019) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15539.jpg" />
 </div>
 
 
@@ -468,7 +439,7 @@ Cardinal Black - Midnight at The Valencia (2025) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15535.jpg" />
 </div>
 
 
@@ -497,7 +468,7 @@ WellBad - Oyster & Pearl (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15534.jpg" />
 </div>
 
 
@@ -526,7 +497,7 @@ Linkin Park - Studio Albums (10 releases) (2000-2024) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15506.jpg" />
 </div>
 
 
@@ -556,7 +527,7 @@ Joanne Shaw Taylor - Black & Gold (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Mo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15467.jpg" />
 </div>
 
 
@@ -585,7 +556,7 @@ Pink Martini - Bella ciao (2025) EP [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop-Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15464.jpg" />
 </div>
 
 
@@ -614,7 +585,7 @@ Volbeat - Studio Albums (9 releases) (2005-2025) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15417.jpg" />
 </div>
 
 
@@ -643,7 +614,7 @@ Brian Eno & Beatie Wolfe - 2 Albums (2025) [FLAC 24/44.1, 96|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15356.jpg" />
 </div>
 
 
@@ -672,7 +643,7 @@ Blank & Jones - Milchbar - Seaside Season 17 (2025) [FLAC 24/44.1 - 24/48|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15350.jpg" />
 </div>
 
 
@@ -701,7 +672,7 @@ Glen Barbuto - CONCEPT ALBUM / DEMO 4 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15147.jpg" />
 </div>
 
 
@@ -730,7 +701,7 @@ Cat Tales - Fables and Stories (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15146.jpg" />
 </div>
 
 
@@ -744,6 +715,35 @@ Cat Tales - Fables and Stories (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jaz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D5A577CC62BD9E892CDE5F4FAE6B8C770E174FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801290   (15144) от 09.06.2025
+
+Hotpot of Genres - Impress to Express (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Impress to Express (4:05)
+02.  Fire & Ash (5:08)
+03.  What about us (4:34)
+04.  Drowning (4:21)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D0D199316E512574CF3554B2FF817F064A6CFFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

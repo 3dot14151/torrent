@@ -1,140 +1,3 @@
-###  Публикация: 1098594   (908953) от 30.01.2017
-
-А. Леонтьев | О ленинских "тетрадях по империализму" (1941) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Задача книжки — облегчить читателю самостоятельное изучение ленинских «Тетрадей по империализму».
-
-Эти тетради были опубликованы в течение ряда лет в нескольких «Ленинских сборниках». Одна из тетрадей была обнаружена и увидела свет лишь в 1938 г. С выходом отдельного издания «Тетрадей» в 1939 г. подготовительные материалы к ленинской работе об империализме оказались (   Читать дальше...   )Жанр: История, политология, философия, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:158EDF7863FC073AE74C027BFE1AA5E5C3F0A0D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098589   (908947) от 30.01.2017
-
-Э. Ходжа | АПТ в борьбе против хрущевского ревизионизма [Материалы, взятые из 19-го тома] (1977) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документы настоящего тома занимают особое место в серии Сочинений товарища Энвера Ходжа. Эти документы, большинство которых публикуется впервые, охватывают период с июня по декабрь 1960 года. Это весьма сложный период, когда в международном коммунистическом движении и во взаимоотношениях между некоторыми партиями возникли глубокие идеологические и политические разногласия. (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDC5FE3B9C214348BDEF4933955ED58B2863BEA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098590   (908857) от 30.01.2017
-
-Э. Ходжа | Хрущевцы: Воспоминания (1980) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908857.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Хрущевцы" - это другая книга, которая издается в серии воспоминаний товарища Энвера Ходжа. Это произведение, написанное в 1976 г., охватывает личные воспоминания и впечатления автора от непосредственных встреч и других многочисленных контактов с руководителями КПСС и других коммунистических и рабочих парий в период 1953-1961 гг.
-
-Книга "Хрущевцы" (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A816631D6DC698AA26E3D1700BDABC09278A67BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368513   (908831) от 20.03.2020
-
-В.Г. Пименов | Численные методы часть 1 (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908831.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии даются основные понятия, изучаемые в первой части курса «Численные методы»: теория погрешностей; методы решения нелинейных уравнений, линейных и нелинейных систем; теории интерполяции, численного дифференцирования и численного интегрирования.
-Учебное пособие предназначено для изучения дисциплины «Численные методы» по специальностям среднего профессионального (   Читать дальше...   )Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA1B434EE689EBF58E699D1B981C6743E5ECC854
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367747   (908804) от 20.03.2020
-
-А.В. Астахов, Ю.М. Широков | Курс физики [3 книги] (1977-1983) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник физики для втузов. Написан на основе программы преподавания в МГИ (Московском горном институте). Ориентирован на трёхсеместровый курс общей физики.
-Из предисловия: «Основная цель курса заключается в изложении физики как единой науки, опирающейся на небольшое число фундаментальных законов, обобщающих колоссальное множество опытных фактов.
-В современных условиях (   Читать дальше...   )Жанр: ФизикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4258A04C5D79580C64E9D7E1CF79BF4F52CF2D80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368472   (908607) от 20.03.2020
 
 Анна Виноградова | Английский за 3 месяца. Интенсивный курс (2017) [PDF]
@@ -143,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908607.jpg" />
 </div>
 
 
@@ -169,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908497.jpg" />
 </div>
 
 
@@ -195,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908394.jpg" />
 </div>
 
 
@@ -221,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908284.jpg" />
 </div>
 
 
@@ -247,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908136.jpg" />
 </div>
 
 
@@ -273,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907827.jpg" />
 </div>
 
 
@@ -299,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907781.jpg" />
 </div>
 
 
@@ -327,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907777.jpg" />
 </div>
 
 
@@ -353,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907770.jpg" />
 </div>
 
 
@@ -379,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907754.jpg" />
 </div>
 
 
@@ -405,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907533.jpg" />
 </div>
 
 
@@ -433,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907452.jpg" />
 </div>
 
 
@@ -459,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907189.jpg" />
 </div>
 
 
@@ -485,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907184.jpg" />
 </div>
 
 
@@ -511,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907095.jpg" />
 </div>
 
 
@@ -537,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907040.jpg" />
 </div>
 
 
@@ -565,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906974.jpg" />
 </div>
 
 
@@ -591,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906972.jpg" />
 </div>
 
 
@@ -617,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906970.jpg" />
 </div>
 
 
@@ -643,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906954.jpg" />
 </div>
 
 
@@ -669,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906908.jpg" />
 </div>
 
 
@@ -680,6 +543,141 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38BDCD7B800E72F852EF6B8043B8D12EAD8F76D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491940   (906897) от 27.08.2021
+
+Бессонов Л.А. | Теоретические основы электротехники. Методические указания и контрольные задания (2003) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс «Теоретические основы электротехники» состоит из трех частей. Первая и вторая части — теория линейных и нелинейных электрических цепей (этот раздел иногда называют в учебных планах курсами «Теория цепей» или «Теория цепей и сигналов»). Третья часть — «Теория электромагнитного поля».
+В данном пособии представлены курсовые (контрольные) задания по всем трем частям (   Читать дальше...   )Жанр: ЭлектротехникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD52BB63DDB2C650A0EFE56C090C7664862C726D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491742   (906868) от 27.08.2021
+
+К.М. Поливанов | Теоретические основы электротехники [3 книги] (1965 - 1969) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известное пособие по теоретическим основам электротехники для студентов электротехнических специальностей вузов из трёх частей.
+
+1 часть - Линейные электрические цепи с сосредоточенными постоянными
+2 часть - Четырёхполюсники, длинные линии, нелинейные цепи(   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:106EB7EB065E1605DEE930AE4EC446BED71C4462
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368836   (906825) от 21.03.2020
+
+И.И. Панова и др. | Английский язык для начинающих [+AudioCD] (2014) [PDF, MP3]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемое пособие представляет собой начальный курс обучения английской устной и письменной речи. Первая его часть – фонетика - поможет заложить основы грамотного произношения и восприятия на слух английского языка. Вторая часть содержит наиболее употребительные грамматические и лексические темы, которые закладывают базу для глубокого освоения языка. Издание предназначено (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDFПродолжительность: 02:58:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82F1C2F61F94BD3AE1159FAB52C19BFB9D12207C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368901   (906819) от 21.03.2020
+
+В. Обручев (отв. ред.) | Динозавры. Большая энциклопедия (2017) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как выглядели динозавры? Как они зародились и почему вымерли? Прогуляйтесь по доисторическому миру с помощью нашей книги, и вы встретите удивительных монстров – тираннозавра, трицератопса, брахиозавра, птеранодона и многих других фантастических ящеров. Вы узнаете об образе жизни динозавров, их истинных размерах, самых интересных фактах. Увидите воочию, как они выглядели, (   Читать дальше...   )Жанр: Энциклопедия, ПалеонтологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D74C648097C42A9650CB1C8E34EF95220DA36734
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368507   (906811) от 21.03.2020
+
+Минздрав России | Профилактика, диагностика и лечение новой коронавирусной инфекции COVID-19 (2020) [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906811.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Временные методические рекомендации. Профилактика, диагностика и лечение новой коронавирусной инфекции (2019-nCoV). Версия 3 (03.03.2020)» (утв. Минздравом России)
+Методические рекомендации предназначены для врачей-терапевтов, врачей общей практики, врачей-инфекционистов, врачей-педиатров, врачей - акушеров-гинекологов, врачей-реаниматологов отделений интенсивной (   Читать дальше...   )Жанр: Медицина и здоровьеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:381AF8EFC2E29D2B31241C99BD6478B7FB217070
 ```
 
 https://mybot314.ru/tekegram_catalog/

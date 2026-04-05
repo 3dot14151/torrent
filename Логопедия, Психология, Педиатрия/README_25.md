@@ -1,3 +1,31 @@
+###  Публикация: 1783828   (69753) от 07.03.2025
+
+Валентина Паевская | Детская ревность. Особенности воспитания нескольких детей в семье (2019) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Родителям, воспитывающим более одного ребенка в семье, рано или поздно приходится задуматься об отношениях между детьми. Большинство родителей хотят вырастить братьев и сестер дружными, любящими друг друга, умеющими поддержать в различных ситуациях.
+Но порой это кажется непосильным трудом, особенно когда слышишь вопли из детской комнаты или разнимаешь драку.
+Из этой (   Читать дальше...   )Жанр: Детская психологияИздательство: ФениксФормат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1982C8CDCA131727F3047B7EFA338C60940BD662
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 521416   (55173) от 28.05.2024
 
 И.Ю. Кулагина | Возрастная психология. Развитие ребенка от рождения до 17 лет (1999) [PDF]
@@ -6,7 +34,7 @@
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55173.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41904.jpg" />
 </div>
 
 
@@ -59,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28038.jpg" />
 </div>
 
 
@@ -85,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27813.jpg" />
 </div>
 
 
@@ -111,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27327.jpg" />
 </div>
 
 
@@ -138,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7854.jpg" />
 </div>
 
 
@@ -167,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7853.jpg" />
 </div>
 
 
@@ -180,32 +208,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:485482575F3CE3CCAB9B57A9C4AF3A0970013F6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817738   (3206) от 12.09.2025
-
-Шамиль Ахмадуллин | Развитие памяти у детей. Как научить ребенка запоминать легко и надолго. Тренинг для детей 6-16 лет (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор книги - основатель и руководитель сети школ скорочтения и эффективного обучения TurboRead.ru - описывает в этом пособии одну из самых эффективных методик развития памяти и внимания у детей. Это книга-тренинг, в которой даны пошаговые инструкции, позволяющие всего за 12 занятий вывести память вашего ребенка на невероятный уровень и повысить эффективность его (   Читать дальше...   )Жанр: Воспитание детейИздательство: БилингваФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92462426BD46C24C65936F6027F2B1AD57C556C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

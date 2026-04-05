@@ -6,7 +6,7 @@
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945218.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Beatles: Вечер трудного дня / A Hard Day-s Night (1964) BDRi
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944450.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939489.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936671.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929537.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927621.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925801.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920681.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918683.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ The Beatles: Вечер трудного дня / A Hard Day's Night (1964/2014)
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913032.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910556.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903877.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ The Beatles: Вечер трудного дня / A Hard Day's Night (1964/2014)
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884230.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881060.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877550.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867434.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861819.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861417.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ The Beatles: Вечер трудного дня / A Hard Day's Night (1964/2014)
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852255.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850460.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849748.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843691.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843512.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838899.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Giuseppe Verdi - NABUCCO (Teatre alla Scala) (2004) DVD9
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838058.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837757.jpg" />
 </div>
 
 

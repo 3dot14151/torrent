@@ -6,7 +6,7 @@ BBC: Дневник большой кошки / Big Cat Diary (Big Cat Week) (19
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265498.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264933.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264798.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263551.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Discovery. Хранители болот Эверглейдс / Guardians of the
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263505.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263354.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ BBC: Битва экзопланет / Battle of the exoplanets (2018) HDTVRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263224.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ NG: ЭкзоМарс: В поисках жизни / Exomars: The Hunt for Life 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263060.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ RD: Удивительные подземные секреты (Природны
 >>Readers Digest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263012.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262863.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ NGW: Потерянный рай Колумбии / Wild Colombia's Lost Eden (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262439.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ BBC: Я и гравитация. Сила, формирующая нашу жи�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262050.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ NG. Настоящие Красные хвосты / The Real Red Tails (2024) W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260921.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ NG: Секретные материалы древности: Расшифров
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260008.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ NG. Ангкор-Ват. Жемчужина Древней Азии / Glories Of
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258512.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ BBC. Преступники Британии: разбойники, пираты
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257948.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257206.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Discovery: Знакомство с Лох-Несским чудовищем / Th
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257132.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ NG: Суперсооружения: Мегакорабли. Крупнейший
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256171.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ NG: Титаник: Заключительное слово с Джеймсом 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255834.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255815.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Animal Planet & BBC: Дикая планета / Wild Planet (2003-2005) TVRip [
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254514.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ BBC. Йеллоустоун: Борьба за жизнь / Yellowstone: Battle 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254430.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Discovery: Апокалипсис 2012-Откровения / Maya 2012 Prophecy
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253706.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253279.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ NG: Взгляд изнутри. Супертрава марихуанна / Ins
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252709.jpg" />
 </div>
 
 

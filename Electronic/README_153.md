@@ -1,3 +1,61 @@
+###  Публикация: 1206944   (781319) от 16.02.2018
+
+VA - Dave202 - Backstage Hits (2018) [MP3|320 Kbps] <House, Future House, Big Room>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dave202  -  Open Up Your Heart (Original Club Mix)  4:26
+02.  Dave202 & Gino G  -  Along With You (Extended Mix)  4:33
+03.  Dave202 & Gino G  -  Like An Animal (Club Mix)  4:15
+04.  Dave202  -  Kimura (Original Club Mix)  4:44(   Читать дальше...   )Жанр: House, Future House, Big Room, Electro HouseПродолжительность: 02:54:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:655303D3294844E7536DF1F99C4118757935B34A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206914   (781317) от 16.02.2018
+
+VA - Deep Progressive House Set | Mixed by Johnny M (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Johnny M - Deep Progressive House Set (Dj Continuous Mix) (2:01:36)
+02. Nahuel Carrizo - Blind in the Mist (Original Mix) (8:44)
+03. Robert R. Hardy - Sensus (GMJ Rmx) (9:14)
+04. Robert R. Hardy - Chasing Pleasure (Silinder Rmx) (9:01)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 04:22:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A98CA3BA4109400723AEED5866D75D37527ECCA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 976010   (781305) от 16.02.2018
 
 Anenon - Discography 9 Releases (2010-2018) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Downtempo, Avant-Garde Jazz, Experimental>
@@ -6,7 +64,7 @@ Anenon - Discography 9 Releases (2010-2018) [FLAC|Lossless|WEB-DL|tracks] <IDM, 
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781305.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Magnetik - Body Language (2018) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks]
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781297.jpg" />
 </div>
 
 
@@ -62,7 +120,7 @@ Zetandel & Tiff Lacey - Songs Under Moonlight (2020) RNM Bundles [FLAC|Lossless|
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_781020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_781020.jpg" />
 </div>
 
 
@@ -91,7 +149,7 @@ VA - Lullaby Ambient (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780901.jpg" />
 </div>
 
 
@@ -120,7 +178,7 @@ VA - Relax At The Fireplace Vol.2 - Warm & Sensitive Lounge Music (2018) [MP3|32
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780853.jpg" />
 </div>
 
 
@@ -149,7 +207,7 @@ VA - Running Electronica, Vol. 10 (For a Cool Rush of Blood to the Head) (2018) 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780850.jpg" />
 </div>
 
 
@@ -178,7 +236,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Experimental, Industrial (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780741.jpg" />
 </div>
 
 
@@ -207,7 +265,7 @@ Lane 8 - Little By Little (2018) This Never Happened [FLAC|Lossless|tracks+.cue]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780606.jpg" />
 </div>
 
 
@@ -236,7 +294,7 @@ VA - Global DJ Broadcast - Top 20 February (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780602.jpg" />
 </div>
 
 
@@ -265,7 +323,7 @@ VA - Melodic Trance Vol.3 (2018) [MP3|320 Kbps] <Uplifting Trance, Melodic Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780427.jpg" />
 </div>
 
 
@@ -294,7 +352,7 @@ VA - Black Hole Trance Music 02-18 (2018) [MP3|320 Kbps] <Trance, Progressive Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780423.jpg" />
 </div>
 
 
@@ -323,7 +381,7 @@ VA - Vocal House Traxx Vol. 1 (2018) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780419.jpg" />
 </div>
 
 
@@ -352,7 +410,7 @@ VA - Future Vocal Trance Vol.1 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780418.jpg" />
 </div>
 
 
@@ -381,7 +439,7 @@ Autumn of Communion - Streams (2018) ...txt [FLAC 2.0|44.1/24|tracks|WEB-DL] <Am
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780387.jpg" />
 </div>
 
 
@@ -410,7 +468,7 @@ VA - Nothing But... The Future Of Trance Vol.06 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780313.jpg" />
 </div>
 
 
@@ -439,7 +497,7 @@ VA - Nothing But... Essential House Music Vol.01 (2018) [MP3|320 Kbps] <House, D
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780304.jpg" />
 </div>
 
 
@@ -468,7 +526,7 @@ Manuel Rocca - The Soul Healer (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780303.jpg" />
 </div>
 
 
@@ -497,7 +555,7 @@ VA - Fresh Squeezed Chillout (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780302.jpg" />
 </div>
 
 
@@ -526,7 +584,7 @@ Schwefelgelb - Den Umgekehrten Atem (2017) Fleisch [FLAC|Lossless|WEB-DL|tracks]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780298.jpg" />
 </div>
 
 
@@ -555,7 +613,7 @@ Sam Feldt - After The Sunset (2018) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780285.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780277.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ VA - Ladies Of Synth (Compiled by Scott Forte) (2017) [MP3|320 Kbps] <Synthpop, 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780251.jpg" />
 </div>
 
 
@@ -642,7 +700,7 @@ Midnight Danger - Malignant Force (2018) [FLAC|Lossless|WEB-DL|tracks] <Darksynt
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780236.jpg" />
 </div>
 
 
@@ -671,7 +729,7 @@ Midnight Danger - Malignant Force (2018) [MP3|320 Kbps] <Darksynth, Retrowave, S
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780212.jpg" />
 </div>
 
 
@@ -685,64 +743,6 @@ Midnight Danger - Malignant Force (2018) [MP3|320 Kbps] <Darksynth, Retrowave, S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EBBB76971F9CBE76F6B3FF29B74842DFE619A31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208140   (780129) от 21.02.2018
-
-VA - Power Sounds (Volume 1) (2018) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. WTDJ, Mark Vox, Robbie Mirello - Dirty Sound  04:18
-02. Denis Dawydow, Simon Aces - F.A.Q.  05:15
-03. Julian Blaze, StarBouncers - Valentine (Time to Groove)  04:43
-04. Grimm Brothers - Back to Trumpets  04:52(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:37:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AE5201ABF7BB3643285CE8A64BEA1FDCFA0C1E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208325   (780128) от 21.02.2018
-
-John Shima - Elements Unknown (2017) FireScope [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elements (08:27)
- 02. Symbols (07:15)
- 03. Implant (07:17)
- 04. Illuminate (07:24)Жанр: Electro, IDM, TechnoПродолжительность: 00:30:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:421DD4CBB53312BED78054C89BD42CFAEE35FC1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

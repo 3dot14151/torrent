@@ -1,3 +1,55 @@
+###  Публикация: 831986   (313711) от 11.11.2017
+
+Чернобыль. Зона отчуждения (2014) WEB-DLRip [H.264/720p-LQ] (Сезон 1, Серии 1-8 из 8)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пятеро молодых людей прыгают в старую «Волгу» и отправляются на поиски вора, часом ранее укравшего из квартиры родителей главного героя восемь миллионов рублей. Грабитель — обычный московский айтишник, — вместо того чтобы залечь на дно, тут же записывает видеоотчет, в котором сообщает, что финальная точка его путешествия — Чернобыльская АЭС и город Припять.Производство: "СинеЛаб Продакшн", РоссияЖанр: ТриллерРежиссер: Андерс БанкеАктеры: Кристина Казинская, Анвар Халилулаев, Сергей Романович, Евгений Стычкин, Валерия Дмитриева, Константин Давыдов, Илья Щербинин, Николай Иванов, Дарья Лузина, Евгения КаверауПродолжительность: ~ 00:54:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFF678750A6C86FDB4DB676516611CF60B1F5A24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182555   (313701) от 11.11.2017
+
+Телохранитель киллера / The Hitman's Bodyguard (2017) BDRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он — телохранитель мирового уровня. Его новая работа — охранять киллера, которого все мечтают убить. Он и сам с удовольствием прикончил бы этого гада. Но работа есть работа: смертельные враги в прошлом, они вынуждены объединиться в настоящем, чтобы выжить. Однако их методы настолько различны, а принципы противоположны, что вопрос выживания — под большим вопросом.Производство: США, Campbell Grobman Films, Cristal Pictures, East Light Media, Millennium Films, Nu Boyana Film Studios, Skydance Productions, TDMPЖанр: Боевик, КомедияРежиссер: Патрик ХьюзАктеры: Райан Рейнольдc, Сэмюэл Л. Джексон, Элоди Юнг, Цуваюки Саотомэ, Рой Хилл, Ричард Э. Грант, Гари Олдман, Род Халлетт, Юрий Колокольников, Надя КоначкиеваПеревод: Дублированный (iTunes), Авторский одноголосый (Михаил Чадов) ненормативная лексикаСубтитры: Английские (Full)Продолжительность: 01:58:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E85E5D3D9EF94EC4796C4B35387E691354774DB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1260053   (313450) от 06.11.2018
 
 Скрипты - VideoHive - Big Pack of Elements v.1.5 - 19888878 [JSX, JSXBIN, EXE, REG]
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313450.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313424.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313415.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313169.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ macOS INSTALLERS (WIN/BDU & MAC/DU) - ACTUALLY BUILDS 20.10.19 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313165.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312981.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312392.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_311575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_311575.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311573.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_311572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_311572.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ Hitman Absolution: Special Edition [Ru/En/Multi8] (Lossless Repack/1.0.438.0/11 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311570.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ Boot.wim (x86) на основе Win8* для Win7 + комплект автоу
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_311568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_311568.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ Hitman Absolution: Professional Edition [Ru/En/Multi8] (Steam-Rip/1.0.438.0/11 D
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_311560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_311560.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311366.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311348.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ Dr.Web Katana 1.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311345.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ Shadow Defender 1.4.0.608 RePack by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311343.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311340.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ Emsisoft Anti-Malware 2017.10.1.8165 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311260.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ Expeditions: Viking (2017) [Ru/Multi] (1.0.7.1) License GOG [Deluxe Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311254.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ Intel представила 48-ядерные процессоры Xeon рек�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_311079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_311079.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ Big Lebowski, The / Большой Лебовски (1998) DVDRip (Goblin)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310943.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ Call Of Duty: Ghosts (2013) [Ru] (1.0.647482 upd3) Rip Fenixx
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310843.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_310831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_310831.jpg" />
 </div>
 
 
@@ -622,58 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 844229   (310585) от 28.11.2014
-
-Екатерина (2014) SATRip (сезон 1, серии 1-11 из 11)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310585.jpg" />
-</div>
-
-
-###  Подробнее
-
-1745. Царствующая императрица Елизавета Петровна бесплодна. Единственный наследник — ее слабоумный племянник Петр III. Елизавета не может допустить, чтобы Петр взошел на престол, поэтому решает женить цесаревича, дождаться рождения сына, а потом забрать мальчика и самой воспитать его настоящим русским императором. В Петербург съезжаются невесты. Среди них прелестная, (   Читать дальше...   )Жанр: Драма, мелодрамаРежиссер: Александр Баранов, Рамиль СабитовАктеры: Марина Александрова, Владимир Меньшов, Константин Лавроненко, Александр Лазарев мл., Юлия Ауг, Александр Яценко, Риналь Мухаметов, Иван Добронравов, Николай Козак, Светлана КорчагинаПродолжительность: Каждая серия х 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EBEABFF9681638DD42D3C4B886723EBB927C4CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076608   (310520) от 26.11.2016
-
-AusLogics BoostSpeed 9.1.0.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics BoostSpeed - популярный набор инструментов для оптимизации и настройки вашей операционной системы. С помощью этой программы вы сможете значительно оптимизировать работу вашей системы, с легкостью настроить различные параметры Windows, очистить жесткий диск и системный реестр от мусора и ненужных записей, сделать дефрагментацию дисков и реестра, а также (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F69D2F813491BA12E741085D766A61EB7DC1242
 ```
 
 https://mybot314.ru/tekegram_catalog/

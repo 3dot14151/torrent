@@ -1,3 +1,29 @@
+###  Публикация: 572843   (377769) от 11.11.2012
+
+Jane Air - 6 альбомов + 10 синглов + 2 EP + Live (2001-2012) [MP3|320 кб/с]<Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: AlternativeПродолжительность: 00:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F702C3DAAFD30FE3C4EE8D1C1A1B7B61662E55E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1069017   (377719) от 02.11.2016
 
 АлисА - Эксцесс (2016) [FLAC|Lossless|image + .cue] <Rock>
@@ -6,7 +32,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377719.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377713.jpg" />
 </div>
 
 
@@ -64,7 +90,7 @@ Syris - Syris (1995) [FLAC|image+.cue]<Power, Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377707.jpg" />
 </div>
 
 
@@ -93,7 +119,7 @@ Death Dealer - Hallowed Ground (2015) [FLAC|image+.cue]<Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377594.jpg" />
 </div>
 
 
@@ -122,7 +148,7 @@ VA - Охота 84 (2018) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377509.jpg" />
 </div>
 
 
@@ -151,7 +177,7 @@ VA - MOJO Presents. Let It Be. Revisited (tribute) (2010) [MP3|320 кб/с]<Clas
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377416.jpg" />
 </div>
 
 
@@ -180,7 +206,7 @@ Amberian Dawn - Innuendo (2015) Japanese Edition [MP3|320 кб/с]<Symphonic Pow
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377415.jpg" />
 </div>
 
 
@@ -209,7 +235,7 @@ Nazareth - Tattooed on My Brain (2018) Frontiers Records [FLAC|Lossless|WEB-DL|t
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377371.jpg" />
 </div>
 
 
@@ -238,7 +264,7 @@ Suzi Quatro - The Wild One (1993) Japanese Edition [FLAC|Lossless]<Rock, Glam Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377348.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ Dave Gahan & Soulsavers - Angels & Ghosts (2015) [FLAC|tracks|WEB-DL]<Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377346.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ Leaves' Eyes - King of Kings (2015) 2CD Digibook Edition [MP3|320 кб/с]<Symph
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377345.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ VA - Mojo presents. Return To The Dark Side Of The Moon (2011) [MP3|320 кб/с]
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377338.jpg" />
 </div>
 
 
@@ -354,7 +380,7 @@ Thick - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Punk, Garage Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377202.jpg" />
 </div>
 
 
@@ -381,7 +407,7 @@ Wired Ways - Wired Ways (2022) [MP3|320 Kbps] <Retro Prog, Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377201.jpg" />
 </div>
 
 
@@ -410,7 +436,7 @@ Northern Revival - Modification (2022) [MP3|320 Kbps] <Heavy Rock, Stoner, Sludg
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377200.jpg" />
 </div>
 
 
@@ -439,7 +465,7 @@ Stratovarius - Visions (1997) Remastered, 1997, T&T [OGG Vorbis|485 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377199.jpg" />
 </div>
 
 
@@ -468,7 +494,7 @@ High Tone Son of a Bitch - Live At The Hallowed Halls (2022) [MP3|320 Kbps] <Hea
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377198.jpg" />
 </div>
 
 
@@ -497,7 +523,7 @@ Blackment - Plains Of Oblivion (2022) [MP3|320 Kbps] <Melodic Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377197.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Mael - Sentinel of Dark Divinity (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377196.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ A Sound of Thunder - The Krimson Kult (2022) [MP3|320 Kbps] <Heavy Metal, Hard R
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377195.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ Until I Wake - Inside My Head (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377194.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ Allen/Olzon - Army Of Dreamers (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377193.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377191.jpg" />
 </div>
 
 
@@ -671,7 +697,7 @@ Lunarian - Burn The Beauty (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377189.jpg" />
 </div>
 
 
@@ -700,7 +726,7 @@ Dave Gahan & Soulsavers - Angels & Ghosts (2015) [MP3|320 кб/с]<Alternative R
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377140.jpg" />
 </div>
 
 
@@ -714,35 +740,6 @@ Dave Gahan & Soulsavers - Angels & Ghosts (2015) [MP3|320 кб/с]<Alternative R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:488DD43824310784D5C02D3338AB98351ACD43BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575157   (377108) от 09.09.2022
-
-Allen/Olzon - Army Of Dreamers (2022) [MP3|320 Kbps] <Melodic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Army of Dreamers 04:30
-02. So Quiet Here 04:47
-03. Out of Nowhere 04:31
-04. A Million Skies 05:19(   Читать дальше...   )Жанр: Melodic MetalПродолжительность: 00:53:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B47CE87469FFC0D141B469FF80E04381DFC5244
 ```
 
 https://mybot314.ru/tekegram_catalog/

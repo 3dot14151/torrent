@@ -1,3 +1,60 @@
+###  Публикация: 1062364   (441957) от 13.10.2016
+
+Mountain Duck 1.5.8 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mountain Duck позволяет монтировать любой удаленный FTP, SFTP, WebDAV, Azure Cloud Storage, S3, Google Cloud Storage, Google Drive и OpenStack Swift как локальный диск в Finder.
+
+В приложении реализована поддержка всех основных протоколов для подключения к любому серверу. Открывайте файлы на удаленном сервере любым приложением и работайте как на локальном томе, а (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 07 октября 2016Разработчик: iterate GmbHПоддерживаемая ОС: OS X 10.8.3 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:646F4FE30BAA81517EA69B995AE432B8294CACAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164137   (441843) от 09.09.2017
+
+Kardnote - Daily Note-Taking with Markdown 1.0.7 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441843.jpg" />
+</div>
+
+
+###  Подробнее
+
+Организуйте свои заметки в карточках
+Kardnote стремится предоставить ежедневный инструмент для заметок с силой Markdown. Тем не менее, Markdown не является обязательным. У Kardnote есть интуитивно понятный режим редактирования текста. В этом режиме вам даже не нужно знать, что такое Markdown.
+
+WonderPen поддерживает переключение режима редактора между Markdown или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.08.2017Разработчик: EDGENIUS PTY LIMITEDПоддерживаемая ОС: OS X 10.11 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39205857C6FD3E48DE7AA07A867FCCAA8479F68A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1062385   (441762) от 13.10.2016
 
 Business Card Shop 7.0.2 [En]
@@ -6,7 +63,7 @@ Business Card Shop 7.0.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441762.jpg" />
 </div>
 
 
@@ -34,7 +91,7 @@ Mountain Duck 2.0.0 (7169) [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441514.jpg" />
 </div>
 
 
@@ -62,7 +119,7 @@ CrossOver 15.3.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441405.jpg" />
 </div>
 
 
@@ -91,7 +148,7 @@ qBittorrent 3.3.16 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441317.jpg" />
 </div>
 
 
@@ -117,7 +174,7 @@ Deliveries 3.2.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440959.jpg" />
 </div>
 
 
@@ -143,7 +200,7 @@ Glyphs 3 v 3.1.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440480.jpg" />
 </div>
 
 
@@ -170,7 +227,7 @@ Publisher Plus 1.7.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439813.jpg" />
 </div>
 
 
@@ -198,7 +255,7 @@ Micromat ATOMIC 1.0.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439801.jpg" />
 </div>
 
 
@@ -227,7 +284,7 @@ BitMedic AntiVirus - Malware & Adware Security 2.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439419.jpg" />
 </div>
 
 
@@ -255,7 +312,7 @@ SopoTube for YouTube + AdBlock 1.0 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439316.jpg" />
 </div>
 
 
@@ -281,7 +338,7 @@ Data Rescue Pro 4.3.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438786.jpg" />
 </div>
 
 
@@ -309,7 +366,7 @@ MaCleaner X 14.5.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438502.jpg" />
 </div>
 
 
@@ -336,7 +393,7 @@ TeoreX PhotoStitcher 3.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438472.jpg" />
 </div>
 
 
@@ -363,7 +420,7 @@ DMG Master 2.9.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438375.jpg" />
 </div>
 
 
@@ -390,7 +447,7 @@ Teorex Inpaint 9.2.2 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438292.jpg" />
 </div>
 
 
@@ -417,7 +474,7 @@ Aiseesoft Mac Video Downloader 3.3.6 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437679.jpg" />
 </div>
 
 
@@ -445,7 +502,7 @@ Paragon NTFS 12.2.313 [En/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437542.jpg" />
 </div>
 
 
@@ -473,7 +530,7 @@ CameraBag Cinema 3.0.000 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436948.jpg" />
 </div>
 
 
@@ -499,7 +556,7 @@ Flame Painter 3 Pro 3.2.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436605.jpg" />
 </div>
 
 
@@ -527,7 +584,7 @@ Rebelle 1.5.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436602.jpg" />
 </div>
 
 
@@ -555,7 +612,7 @@ MKVtools 2.4 [Eng]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436276.jpg" />
 </div>
 
 
@@ -581,7 +638,7 @@ Alien Skin Bokeh 2.0.0.339 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436261.jpg" />
 </div>
 
 
@@ -608,7 +665,7 @@ Master of Typing - Мастер Печати на Китайском  7.3.1 [Mul
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436224.jpg" />
 </div>
 
 
@@ -634,7 +691,7 @@ Scrutiny 9 v9.11.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436223.jpg" />
 </div>
 
 
@@ -646,59 +703,6 @@ Scrutiny проверит ваши изображения, ваши внутре
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81124C4DFAD61933B28A5A1569CFBC3B65DF026C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410505   (436216) от 21.09.2020
-
-Master of Typing : Состязание 2 v8.5.2 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прими участие в соревновании на скорость набора текста!Тип издания: macOS SoftwareРелиз состоялся: 21.09.2020Разработчик: Learn & Practice Labs LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7E91B75D0A517F7B619CC288717264C4A3F9F94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571164   (436181) от 20.08.2022
-
-4Videosoft Screen Capture for Mac 2.1.10 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436181.jpg" />
-</div>
-
-
-###  Подробнее
-
-Screen Capture - приложение для захвата нужной области рабочего стола и записи видео и аудио.
-Вам надо отметить область или сразу весь рабочий стол для начала работы, после нажимаем кнопку записи, далее видео можно сохранить в высоком качестве. Вам надо просто выбрать полноэкранный режим записи или выбранной области, можно изменить настройки выходного видео и указать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.07.2022Разработчик: © 2022 4Videosoft StudioПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBFDAA4E27BA432C03C941F890EAA90792945638
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1660657   (189404) от 13.09.2023
-
-Roger Whittaker - Butterfly (1979) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop, Folk, Country>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189404.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Settle Down
-A2 After The Laughter (Came Tears)
-A3 Butterfly
-A4 Acre Of Wheat(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 00:26:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FBB13E834ED2BDBEBF9B3C19D4183F1176DFC80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1660750   (189373) от 13.09.2023
 
 Johann Strauss - Vienna Promenade Orchestra - The Strauss Selection (1973) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Classical, Orchestra>
@@ -35,7 +6,7 @@ Johann Strauss - Vienna Promenade Orchestra - The Strauss Selection (1973) [FLAC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189373.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Suzi Quatro - Suzi Quatro (1973) [DSD 128|tracks|Vinyl-Rip] <Glam, Hard Rock, Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189035.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189034.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Berlin Philharmonic Orchestra • Herbert von Karajan - Beethoven - Symphony No.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188800.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Suzi Quatro - Uncovered (2022) [DSD 128|tracks|Vinyl-Rip] <Glam-Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188658.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Red Hot Chili Peppers - Дискография (16 releases) (1983 - 2022) hand 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_188589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188589.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Demons & Wizards (Blind Guardian; Iced Earth) - Studio Albums (3 releases) (2000
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188563.jpg" />
 </div>
 
 
@@ -237,7 +208,7 @@ Rage of Angels - Rage of Angels (1989) [WavPack|32/192|image + .cue|Vinyl-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188544.jpg" />
 </div>
 
 
@@ -266,7 +237,7 @@ Vindictiv - Studio Albums (4 releases) (2008-2016) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188279.jpg" />
 </div>
 
 
@@ -295,7 +266,7 @@ Mark Boals (Shining Black; The Codex) - Studio Albums (6 releases) (1998-2022) h
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188255.jpg" />
 </div>
 
 
@@ -323,7 +294,7 @@ Stone Sour (Corey Taylor, Slipknot) - Studio Albums (10 releases) (2002 - 2022) 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_188193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188193.jpg" />
 </div>
 
 
@@ -352,7 +323,7 @@ Vince Neil (Motley Crue) - Studio Albums (3 releases) (1993-2010) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188101.jpg" />
 </div>
 
 
@@ -380,7 +351,7 @@ Seventh Wonder - Studio Albums (6 releases) (2005-2022) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188078.jpg" />
 </div>
 
 
@@ -409,7 +380,7 @@ Rory Gallagher - Big Guns – The Very Best Of (2005) 2 x SACD, Compilation, Rem
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187674.jpg" />
 </div>
 
 
@@ -438,7 +409,7 @@ Timo Tolkki's Avalon - Angels of the Apocalypse (2014) [FLAC|24/96|tracks|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187530.jpg" />
 </div>
 
 
@@ -467,7 +438,7 @@ VA - Favourite Operatic Duets - Duets From Composers Operas Rossini, Verdi, Pucc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187452.jpg" />
 </div>
 
 
@@ -496,7 +467,7 @@ The Who - Who’s Next : Life House (Super Deluxe) (2023) [FLAC 24/96|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187437.jpg" />
 </div>
 
 
@@ -525,7 +496,7 @@ The National - Laugh Track (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alterna
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187205.jpg" />
 </div>
 
 
@@ -554,7 +525,7 @@ Coldstream Guards - Changing The Guard At Buckingham Palace (1983) [FLAC 2.0|24/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187201.jpg" />
 </div>
 
 
@@ -583,7 +554,7 @@ Lords of Sorcery - Nemesis (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dark He
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187195.jpg" />
 </div>
 
 
@@ -612,7 +583,7 @@ Heavenly - Studio Albums (5 releases) (2000-2009) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187193.jpg" />
 </div>
 
 
@@ -641,7 +612,7 @@ Neuromancer - Hardwired (2023) [FLAC 24/44.1|WEB-DL|tracks] <Darksynth, Synthwav
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187160.jpg" />
 </div>
 
 
@@ -670,7 +641,7 @@ Sundayman - Melodyssey (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <New Age>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187149.jpg" />
 </div>
 
 
@@ -699,7 +670,7 @@ Rage Against The Machine - Studio Albums (4 releases) (1992 - 2000) hand made [r
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187128.jpg" />
 </div>
 
 
@@ -728,7 +699,7 @@ Heathen - Studio Albums (5 releases) (1987 - 2020) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_187108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187108.jpg" />
 </div>
 
 
@@ -742,6 +713,35 @@ Heathen — группа из США, играющая в стиле спид/т
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3F67AB7F0FAA9CAD2F25CBEEE20A8E1EA2D17AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572601   (187065) от 20.09.2023
+
+Myrath - Дискография (8 albums) (2005-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Oriental Progressive Metal, Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Myrath (араб. ميراث‎, наследие) — ориентал-метал-группа, основанная в 2001 году в Тунисе.2005 - Double Face
+2007 - Hope
+2010 - Desert Call
+2011 - Tales of the SandsЖанр: Oriental Progressive Metal, Power MetalПродолжительность: 07:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDB5B44803276518C7572F62433471C016577E89
 ```
 
 https://mybot314.ru/tekegram_catalog/

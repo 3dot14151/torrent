@@ -1,3 +1,162 @@
+###  Публикация: 1373530   (868453) от 12.04.2020
+
+Гретель и Гензель / Gretel & Hansel (2020) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая версия старинной сказки братьев Гримм о зловещих приключениях брата и сестры в Очарованном лесу. В поисках еды голодные Грета и Гензель отправляются в лес, не подозревая, что им предстоит отведать обед дьявольской кухни и пройти все круги ада...Производство: Канада, Ирландия, США, ЮАР / Automatik Entertainment, Orion Pictures, BRON StudiosЖанр: ужасы, фэнтези, триллерРежиссер: Оз ПеркинсАктеры: София Лиллис, Сэмми Лики, Чарльз Бабалола, Элис Крайдж, Джессика Де Гау, Беатрикс Перкинс, Йен Кенни, Абдул Альшариф, Мануэль ПомбоПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:23:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DBE2DBB831DC57A8279C159A61BD02A5E1D3A18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998658   (868398) от 20.03.2016
+
+Китай планирует запуск собственного космического телескопа, превосходящего по многим параметрам телескоп Hubble
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_868398.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом году, во время одной из последних сессий парламента, китайское правительство объявило о начале новой программы, в ходе которой на околоземную орбиту будет выведен китайский космический телескоп. Это даст Китаю возможность проводить собственные исследовательские программы, подобные программам, в которых задействован американский телескоп Hubble, и это, в свою очередь, должно упрочнить положение Китая в качестве мировой супердержавы в области исследований космоса и некоторых других наук.(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496905   (867726) от 20.09.2021
+
+«Росатом» завершил испытания ядерного «топлива будущего»
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_867726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эксплуатационные испытания твэлов с РЕМИКС-топливом успешно завершились на Балаковской АЭС в Саратовской области. Об этом 16 сентября 2021 года сообщила пресс-служба топливной компании «ТВЭЛ» (топливный дивизион Росатома).РЕМИКС-топливо призвано снизить потребление природного урана в атомной энергетике и повторно использовать компоненты уже облучённого топлива. Основное (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 864349   (867721) от 28.02.2015
+
+Heroes of Might & Magic III (2015) [Ru/En] (1.15) SteamRip DWORD [HD Edition]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867721.jpg" />
+</div>
+
+
+###  Подробнее
+
+С ностальгией вспоминаете о бессонных ночах, проведенных в сражениях с Черными Драконами, Архангелами, Демонами и Чародеями? Настоящие фанаты Heroes® of Might & Magic® III, у нас есть отличные новости!
+
+Самая популярная игра в серии – теперь в HD-качестве! Сыграйте в обновленную версию пошаговой стратегии: помогите королеве Катрине Железный Кулак восстановить (   Читать дальше...   )Тип издания: Steam-RipРазработчик: DotEmuЖанр: Strategy (Turn-based) / Top-downЯзык озвучки: Русский, Английский,Язык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4290026B7156C436FA230E559E539E29AE14817A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 188091   (867639) от 02.04.2010
+
+Утиные Истории / Duck Tales (1987-1990)  9 х DVD9
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультсериал о дядюшке Скрудже, мультимиллиардере, большом добряке, скряге и бизнесмене, и его трех племянниках-утятах. В каждой истории дядюшка влипает в какие-нибудь неприятности, а верные племянники спасают его самыми невероятными способами с множеством уморительных приключений!
+Утиные Истории - интереснейший и непревзойденный сериал, в эпизодах которого потрясающим, (   Читать дальше...   )Жанр: Детский, Приключения, Рисованая анимацияРежиссер: Алан ЗасловПеревод: Дублированный, профессиональныйПродолжительность: 03:03:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980496   (867572) от 20.09.2021
+
+Брат и Брат 2: Дилогия (1997,2000) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брат: Демобилизованный из армии, Данила Багров вернулся в родной городок. Но скучная жизнь российской провинции не устраивала его, и он решился податься в Петербург, где, по слухам, уже несколько лет процветает его старший брат. Данила нашел брата. Но все оказалось не так просто — брат был наемным убийцей…Производство: Россия / Кинокомпания CTB, Студия Горького, РоскомкиноЖанр: Боевик, Криминал, Драма, МузыкаРежиссер: Алексей БалабановАктеры: Сергей Бодров мл., Виктор Сухоруков, Светлана Письмиченко, Мария Жукова, Юрий Кузнецов, Василиса Стрельникова, Константин Анисимов, Алексей Севостьянов, Андрей Федорцов, Андрей Краско, Вячеслав Бутусов, Игорь Шибанов, Сергей Дебижев, Владимир Ермилов, Анатолий Горин, Денис Кириллов, Наталья Львова, Артур Харман, Андрей Розин, Сергей Астахов, Виталий Матвеев, Сергей (   Читать дальше...   )Продолжительность: 01:35:23 + 02:02:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BD4664D5C924797E65DC8C3FA1D1A9CD1F844F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364329   (867571) от 20.09.2021
 
 ARK: Survival Evolved (2017) [Ru/Multi] (678.51/dlc) SteamRip =nemos=
@@ -6,7 +165,7 @@ ARK: Survival Evolved (2017) [Ru/Multi] (678.51/dlc) SteamRip =nemos=
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867571.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ Kaspersky Endpoint Security 10.2.4.674 sp1 (mr2) RePack by alex zed [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867403.jpg" />
 </div>
 
 
@@ -58,7 +217,7 @@ Adobe Photoshop Lightroom 6.5 RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867396.jpg" />
 </div>
 
 
@@ -85,7 +244,7 @@ Skype v6.26.0.1313 Free / AD-Free и Mod 3.2.0.6673 v19.1 [Ru/Multi] - прог�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867393.jpg" />
 </div>
 
 
@@ -111,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867392.jpg" />
 </div>
 
 
@@ -137,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867389.jpg" />
 </div>
 
 
@@ -163,7 +322,7 @@ XCOM 2 (2016) [Ru/En] (1.0.0.39847/upd3/dlc) Repack xatab [Digital Deluxe Editio
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867387.jpg" />
 </div>
 
 
@@ -189,7 +348,7 @@ BERSERK and the Band of the Hawk (2017) [En] (1.0.0.1) License HI2U
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867206.jpg" />
 </div>
 
 
@@ -215,7 +374,7 @@ Call of Duty: Modern Warfare - Remastered (2016) [Ru/En] (1.7.83/u4) Rip R.G. Re
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867203.jpg" />
 </div>
 
 
@@ -241,7 +400,7 @@ Windows XP SP3 OSKIT 2.7.1 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867202.jpg" />
 </div>
 
 
@@ -267,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866958.jpg" />
 </div>
 
 
@@ -293,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866924.jpg" />
 </div>
 
 
@@ -319,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866916.jpg" />
 </div>
 
 
@@ -345,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866912.jpg" />
 </div>
 
 
@@ -371,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866906.jpg" />
 </div>
 
 
@@ -397,7 +556,7 @@ Microsoft Windows 7 SP1 RUS-ENG x86-x64 -8in1- KMS-activation (AIO)
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866823.jpg" />
 </div>
 
 
@@ -425,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_866784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_866784.jpg" />
 </div>
 
 
@@ -451,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>23
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_866781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_866781.jpg" />
 </div>
 
 
@@ -477,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866777.jpg" />
 </div>
 
 
@@ -506,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866776.jpg" />
 </div>
 
 
@@ -518,162 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:113EE26CE177C210273CC977DAEECF471775A844
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 804034   (865957) от 01.03.2015
-
-The Forest (2014) [En] (0.14/alpha) Repack R.G. Games
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой игры остается в живых после крушения самолета на необитаемом острове. Основная задача - выжить: рубите деревья, чтобы построить себе убежище, охотьтесь на диких животных или ищите и садите плоды, чтобы не умереть с голоду, а также не забывайте поддерживать очаг, чтобы не замерзнуть. С наступлением ночи все меняется: на охоту выходят мутанты-каннибалы. (   Читать дальше...   )Тип издания: Steam Early AccessРазработчик: Endnight Games LtdЖанр: Action (FPS) / Adventure / Indie / SimulatorЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40971D86FE082D2827193C11C259407894F94BB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999062   (865945) от 21.03.2016
-
-Роботы, действующие на станции Фукусима, продолжают "гибнуть" от радиации
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_865945.jpg" />
-</div>
-
-
-###  Подробнее
-
-Напомним нашим читателям, что пять лет назад землетрясение, силой 9 баллов по шкале Рихтера, вызвало появление огромной волны-цунами, которая обрушилась на северо-восточное побережье Японии. Эта волна буквально стерла с лица Земли прибрежные районы четырех перфектур (областей) Японии. Количество жертв этой катастрофы превысило 19 тысяч человек, а самые разрушительные (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496549   (865933) от 21.09.2021
-
-Почему лунная пыль может отравить организм человека
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_865933.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследовав образцы лунной пыли, в свое время добытые астронавтами, ученые пришли к выводу, что содержащиеся в ней минералы крайне токсичны и могут спровоцировать у человека рак.Мечты о колонии на Луне, где люди ходят по покрытой пылью поверхности и живут внутри огромных куполов, скорее всего так и не станут реальностью в ближайшие десять или даже двадцать лет. Да, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497082   (865924) от 21.09.2021
-
-Верховный суд  запретил разводить на садовых участках сельскохозяйственных животных
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_865924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Россиянам нельзя держать мелкую сельхозживность, в том числе кур, на землях для садоводства. Соответствующий запрет подтвердил Верховный суд, сообщает «Российская газета». За нарушение этой нормы гражданам грозит крупный штраф.Поводом для разбирательств стал конфликт жительницы Волгограда с областной инспекцией по использованию и охране земель. Инспекторы обнаружили (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497103   (865920) от 21.09.2021
-
-NVIDIA GeForce Desktop Game Ready 472.12 WHQL + DCH [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865920.jpg" />
-</div>
-
-
-###  Подробнее
-
-NVIDIA GeForce Driver — драйвера для видеокарт производства NVIDIA. Предназначены для видеокарт семейства GeForce, работающих в операционной системе Windows. Унифицированная архитектура драйверов (CUDA) гарантирует прямую и обратную совместимость драйверов с различными поколениями графических процессоров NVIDIA, что упрощает процесс замены видеоподсистемы, так как (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE3EFB3A0ECAF22F1EDBA7D8080781F7CF1E349D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 162736   (865905) от 21.09.2021
-
-Windows 7 RTM USB-DVD Download Tool 1.0.30.0 [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows USB/DVD Download Tool - инструмент от компании Microsoft, переназначенный для быстрого и простого создания загрузочных USB-флешек или DVD-дисков и образами операционной системы Windows. Она позволяет записать образ системы на флешку или DVD-диск, чтобы затем использовать его для установки на компьютер или ноутбук. При этом, программа очень проста в использовании (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:433AB10E00123E8CCF7677FCB93B4AA51A3FB38D
 ```
 
 https://mybot314.ru/tekegram_catalog/

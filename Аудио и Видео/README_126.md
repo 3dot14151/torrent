@@ -6,7 +6,7 @@ Marga Sol, Darles Flow - Levitation (Deep House Experience) (2018) [AAC|~321 Kbp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678668.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Pool Chill Time (2022) [AAC|~297 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678662.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Marga Sol - Satisfied (2019) [AAC|~312 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678660.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Marga Sol - Soultalk (2020) [AAC|~310 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678658.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Underwater Oasis: Chillout Your Mind (2022) [AAC|~326 Kbps] <Lounge, Chill 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678656.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Urban City Vibes 9: Urban Chillhop, Soul & Nu Jazz Music (2022) [AAC|~302 K
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678654.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Wellness, Spa & Meditation, Vol. 4 (2022) [AAC|~287 Kbps] <Chill Out, Loung
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678650.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Marga Sol - Reflections (2021) [AAC|~313 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678646.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678124.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677989.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677986.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677981.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677312.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_677261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_677261.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677030.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676864.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676724.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ VA - Chillout & Lounge Classics, Volume Two (2022) [AAC|~291 Kbps] <Lounge, Chil
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676696.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676613.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676601.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676336.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676199.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676197.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676194.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_675987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_675987.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675901.jpg" />
 </div>
 
 

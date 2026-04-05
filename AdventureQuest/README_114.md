@@ -1,3 +1,81 @@
+###  Публикация: 1813952   (6541) от 22.08.2025
+
+The Beast Inside (2019) [Ru/Multi] (1.05) Repack Yaroslav98
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6541.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Beast Inside – психологический хоррор с современной графикой и новыми впечатлениями для любителей ужастиков. Помимо обычного прохождения страшных локаций, в этой игре присутствует отличный сюжет, в котором вы поиграете за двух персонажей, попавших в мрачную историю. Действия разворачиваются в 1979 и повествуют об Адаме, работнике ЦРУ, который переехал в загородный (   Читать дальше...   )Тип издания: RepackРазработчик: Illusion Ray StudioЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A493A1C3A2C90D0B4174300DDB0251DEBED7776
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767444   (6506) от 22.08.2025
+
+Monospaced Lovers (2024) [Ru/Multi] (1.0.5.0) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Monospaced Lovers сочетает в себе несколько жанров. Это и платформер, и адвенчура, и визуальная новелла, и пулевой ад. Здесь надо прыгать по платформам, исследовать локации, выполнять квесты, болтать с неписями, искать секреты и подсказки, решать джамп-пазлы, разбираться с головоломками и даже сражаться с боссами. Поединки с главарями напоминают боссфайты из скролл-шутеров, (   Читать дальше...   )Тип издания: LicenseРазработчик: Scarlet String StudiosЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Испанский, Японский и другиеЯзык интерфейса: Русский, Английский, Испанский, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF09464914CF98667F5E04F3A4B1AF859C84D10C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813944   (6486) от 22.08.2025
+
+Herdling (2025) [Ru/Multi] (1.1.2) Repack seleZen
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Herdling - это новое приключение от Okomotive, создавших атмосферные и полюбившиеся критикам игры серии FAR, а также от Panic, издателей Firewatch. Отправляйтесь в грандиозную горную экспедицию со стадом очаровательных животных. Вам предстоит пробираться узкими тропами, сталкиваться с жуткими опасностями и неожиданными препятствиями и раскрыть тайну на вершине.Тип издания: RepackРазработчик: OkomotiveЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CBCF11DE8FE4CB3E8879E83ED8E2F888D7CB861
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1067510   (6229) от 24.08.2025
 
 Primordia (2012) [Multi] (5.3) License GOG
@@ -6,7 +84,7 @@ Primordia (2012) [Multi] (5.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6229.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ The Blackwell Deception (2011) [En] (3.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6218.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ The Blackwell Legacy (2006) [En] (4.0c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6212.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Bendy: Lone Wolf (2025) [Ru/Multi] (2.0.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6184.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Bendy: Lone Wolf (2025) [Ru/Multi] (2.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6145.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Dave the Diver (2023) [Ru/Multi] (1.0.5.1674/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6052.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Skully (2020) [Ru/Multi] (1.0.161.6416) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6042.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ The Garden Path (2024) [Multi] (1.0) Scene Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6018.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Herdling (2025) [Ru/Multi] (1.1.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6009.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Spirit of the North 2 (2025) [Ru/Multi] (12765-13132) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5772.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Vlad Circus: Curse of Asmodeus (2025) [Ru/Multi] (1.6.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5738.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ The Drifter (2025) [Ru/Multi] (1.0.7) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5685.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ BROK The InvestiGator (2022) [Ru/Multi] (1.5.3.7/dlc) License GOG [Deluxe Editio
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5632.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Aurelia (2024) [Ru/Multi] (1.0.1) Repack Let'sРlay [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5624.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Herdling (2025) [Ru/Multi] (1.2.3.p) Repack Let'sРlay [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5611.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ BROK the InvestiGator - The Brawl Bar (2025) [Ru/Multi] (1.5.3.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5598.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Ithya: Magic Studies / Итийя: Волшебные занятия (2025) [Ru/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5554.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Ithya: Magic Studies / Итийя: Волшебные занятия (2025) [Ru/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5518.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.3) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5451.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Caput Mortum (2025) [Ru/Multi] (1.1.0.0) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5264.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ SkullX: Aibohphobia (2025) [En] (1.0.4) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5033.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ NODE: The Last Favor of the Antarii / NODE: последняя услуга Ан
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5029.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Veil of the Skies (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4974.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Veil of the Skies (2025) [En] (1.0) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94AB697EA219DE10DC09ACA526DD9A4F73FBF9ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759869   (4708) от 02.09.2025
-
-Dave the Diver (2023) [Ru/Multi] (1.0.5.1702/dlc) Repack Let'sРlay [Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dave the Diver - это казуальная приключенческая RPG для одного игрока, в которой днем проводятся глубоководные исследования и рыбалка, а ночью - управление суши-рестораном. Присоединяйтесь к Дэйву и его причудливым друзьям, которые стремятся раскрыть секреты таинственной Голубой бездны. Исследуйте и разгадывайте тайны в глубинах Голубой бездны днем и управляйте успешным (   Читать дальше...   )Тип издания: RepackРазработчик: MINTROCKETЖанр: Приключенческие игры, Казуальные игры, Ролевые игры, СимуляторыЯзык субтитров: Русский, Английский, Корейский, Японский и другиеЯзык интерфейса: Русский, Английский, Корейский, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2834D2D74D2AB3CD8E4B2E1C440851E9F3A37589
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792439   (4689) от 02.09.2025
-
-REPOSE (2025) [Multi] (1.1.0.4) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4689.jpg" />
-</div>
-
-
-###  Подробнее
-
-Опять спишь на работе? Твой первый день в Компании. Твоя работа - искать поврежденные кислородные баллоны по всему объекту. Не спрашивай, зачем они. Не спрашивай, откуда здесь взялись. Раньше этим занимался Аарон. Не спрашивай про Аарона. Лучше подумай о Синтии. Она к тебе добра, так? Ей же не все равно? Стоит ли что-то спасения в мертвом интернете?Тип издания: LicenseРазработчик: Bozó Attila BertoldЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Английский, Немецкий, Французский, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06BF490A698334D2A76D548D035A5B23D9A4CB0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815986   (4685) от 02.09.2025
-
-A Shelter Full of Cats (2024) [Ru/Multi] (1.0.5c) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4685.jpg" />
-</div>
-
-
-###  Подробнее
-
-A Shelter Full of Cats приглашает геймеров в уютный мир кошачьей спасательной операции. В центре - Ханна, спасательница кошек, которая управляет приютом, предназначенным для кошек с особыми потребностями. У этих животных уникальные потребности, и приют - их надежное убежище. Вместе с Ханной геймеры готовят приют к важному благотворительному мероприятию, цель которого (   Читать дальше...   )Тип издания: LicenseРазработчик: DevcatsЖанр: Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0EC8C85ECB84008CA8C9D9EADB7D41E09D70C2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

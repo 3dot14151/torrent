@@ -1,135 +1,3 @@
-###  Публикация: 1581267   (327996) от 04.10.2022
-
-Steven J. Zaloga | Early US Armor: Tanks 1916–40 (2017) [PDF] [New Vanguard #245] [EN]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327996.jpg" />
-</div>
-
-
-###  Подробнее
-
-245-я книга серии New Vanguard ("Новый авангард") издательства Osprey содержит цветные иллюстрации, качественные черно-белые фотографии и посвящена ранним танкам Армии США: от использования французского Renault FT и британского Mark V во время Первой мировой войны до собственных разработок межвоенного периода (легкие танки M1 и M2, средний танк M2).Жанр: Военная история, военное делоЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFB566DC4A1DC66726E59EF61AA88E7BB4848938
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957292   (327665) от 17.11.2015
-
-Р. Гаузнер (ред.) | Труд и капитал в США (1949) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемая в сокращенном переводе вниманию советских читателей книга "Труд и капитал в США" не есть дельное монографическое исследование положения рабочего класса в США. Книга представляет собой сборник фактических материалов, характеризующих положение и борьбу американского пролетариата в период 1945 — 1946 гг. Она составлена Ассоциацией по исследованию (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B25E95ACD987525DB0E8E55E246C20D0FA8BA33E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957294   (327661) от 17.11.2015
-
-Л. В. Скворцов | Обретает ли метафизика «второе дыхание»? Критический анализ  методологии буржуазной  историко-философской  мысли XIX—XX вв. (1966) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Правильный анализ прошлого возможен лишь в том случае,  если верно схвачено настоящее. История философии, как и история вообще, является цепью, в которой все звенья сцеплены  друг с другом, а прошлое неразрывно связано с настоящим.  Неверная оценка настоящего, возникновение которого было подготовлено всем предшествующим развитием, неизбежно приводит  (   Читать дальше...   )Жанр: История, философияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:333D9AEFE1BE7799ADE1BD7BA155ABF7A517C015
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956661   (327659) от 17.11.2015
-
-Ю. В. Воронцов | Операция «Брейнуошинг» (1971) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга посвящена исследованию средств массовой коммуникации Соединенных Штатов Америки, показу их пагубного воздействия на широкие слои населения этой страны, особенно молодежь, изощренной научно разработанной системе «брейнуошинг» - «промывание мозгов» - дезинформации читателей, радиослушателей, телезрителей, просто учащихся.
-
-Автор книги, доктор философских (   Читать дальше...   )Жанр: История, политология, психология, социология, культурологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB20282102ECC4EEC75BDDB25183B6EF1305094D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957285   (327632) от 17.11.2015
-
-С. Я. Шейнман-Топштейн | Платон и ведийская философия (1978) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327632.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой опыт сравнительного исследования учения великого греческого мыслителя Платона и древнеиндийского учения упанишад. В приложении к книге даются авторский перевод сочинения Платона «Политик» и отрывки из «Бхагавадгиты» в переводе Б. Л. Смирнова.Жанр: История, философия, онтология, космология, этика, социология, гносеология, эстетикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3124F8835F350EF92511A562DDBA9C12651C8244
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 956863   (327630) от 17.11.2015
 
 Томас Венцлова | Вильнюс: город в Европе (2012) [DJVU]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327630.jpg" />
 </div>
 
 
@@ -164,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327609.jpg" />
 </div>
 
 
@@ -190,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327606.jpg" />
 </div>
 
 
@@ -216,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327600.jpg" />
 </div>
 
 
@@ -242,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327595.jpg" />
 </div>
 
 
@@ -269,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327553.jpg" />
 </div>
 
 
@@ -295,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327431.jpg" />
 </div>
 
 
@@ -322,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327403.jpg" />
 </div>
 
 
@@ -348,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327377.jpg" />
 </div>
 
 
@@ -374,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327362.jpg" />
 </div>
 
 
@@ -400,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327300.jpg" />
 </div>
 
 
@@ -426,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327278.jpg" />
 </div>
 
 
@@ -452,7 +320,7 @@ John Farndon | Inventions: A Visual Encyclopedia (2018) [PDF]
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327079.jpg" />
 </div>
 
 
@@ -479,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326664.jpg" />
 </div>
 
 
@@ -505,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326354.jpg" />
 </div>
 
 
@@ -531,7 +399,7 @@ Steven J. Zaloga | French Tanks of World War I (2011) [PDF] [New Vanguard #173] 
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326343.jpg" />
 </div>
 
 
@@ -559,7 +427,7 @@ Robert Dinwiddie | Ocean - The Definitive Visual Guide (2014) [PDF]
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326256.jpg" />
 </div>
 
 
@@ -586,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326250.jpg" />
 </div>
 
 
@@ -613,7 +481,7 @@ Katie Derham | The classical music book: big ideas simply explained (2018) [EPUB
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326242.jpg" />
 </div>
 
 
@@ -640,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326206.jpg" />
 </div>
 
 
@@ -667,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326190.jpg" />
 </div>
 
 
@@ -679,6 +547,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A2F121375023746D83F34701A1B3BE221A10096
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957698   (325876) от 19.11.2015
+
+Р. Гароди | Марксистский гуманизм (1959) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Р. Гароди, вышедшая в свет в 1957 году, логически связана с той идеологической борьбой, которую вели марксисты Франции (в том числе и автор) против клеветников и извратителей марксизма. Она хорошо передает атмосферу этой борьбы, которая с особенной силой развернулась в 1956—1957 годах в связи с преодолением последствий культа личности в СССР и международном (   Читать дальше...   )Жанр: История, философия, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C91765A5A7EEF30B5950D0ECDC9C01B76DEC2C84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957902   (325875) от 19.11.2015
+
+И. М. Бохенский | Современная европейская философия (1959) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга И. Бохенского «Современная европейская философия» впервые была опубликована в 1947 году. В 1951 году вышло второе, дополненное автором издание. Перевод на русский язык сделан с авторизованного издания этой книги на английском языке (1956 год). И. Бохенский — буржуазный философ-неотомист, написавший ряд работ по различным вопросам философии и религии: «Изучение (   Читать дальше...   )Жанр: История, философияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E0AA79FF820C8D92C9D01361629130E3DA394EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957694   (325874) от 19.11.2015
+
+Р. Гароди | Вопросы марксистско-ленинской теории познания (1955) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325874.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящем труде Р. Гароди рассматривает основные вопросы марксистско-ленинской теории познания как теории отражения; вопросы об отношении мышления к бытию, о познаваемости мира, о роли общественно-исторической практики в познании действительности, о соотношении теории познания и логики. Автор использует новейшие данные и положения науки, в особенности физики и (   Читать дальше...   )Жанр: История, философия, логикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0335184B3C5EED77A2F9E71BE8C5EAA36775384A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957843   (325831) от 19.11.2015
+
+Ю. Бохеньский | Сто суеверий: Краткий философский словарь предрассудков (1993) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга "Сто суеверий" написана в особом жанре, редком для философа-профессионала. Она представляет собой словарь терминов, неверное толкование которых приводит, по мнению автора, к возникновению разного рода предрассудков, мировоззренческих иллюзий, стереотипов сознания. По своей антидогматической направленности книга Ю. Бохеньского близка той философской (   Читать дальше...   )Жанр: История, философия, словарьФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A7A69E6B35F69A8B44C95637F5B235303241F40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956657   (325829) от 19.11.2015
+
+В. П. Даркевич | Светская праздничная жизнь Средневековья IX—XVI вв. (2006) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга посвящена светской праздничной жизни Средневековья. Ее главным источником послужили произведения изобразительного искусства, переносящие нас в живую действительность того времени.
+При неполноте письменных свидетельств, в которых нерегламентированная духовная культура находила одностороннее и тенденциозное освещение, памятники искусства приобретают особую (   Читать дальше...   )Жанр: Культурология, ИсторияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:268D0071DD41D079BFFB1937AA020F936F0CF08F
 ```
 
 https://mybot314.ru/tekegram_catalog/

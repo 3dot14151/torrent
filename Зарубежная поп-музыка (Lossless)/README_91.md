@@ -6,7 +6,7 @@ The Steve Miller Band - Abracadabra (1982) [FLAC|Lossless]<Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77584.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ Highland - Bella Stella / Dimmi Perche (2000, 2008) [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_73499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73499.jpg" />
 </div>
 
 
@@ -68,7 +68,7 @@ Cock Robin - Precious Dreams (2024) 3xCD [FLAC|Lossless|image + .cue] <Pop-Rock,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71628.jpg" />
 </div>
 
 
@@ -97,7 +97,7 @@ Michael Medrano - The Penthouse (2025) [FLAC|Lossless|WEB-DL|tracks] <Disco, Dan
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71261.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Banshee - FABLES (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71256.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ VA - Valentines Day 2025 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71186.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Nej (Nej') - SOS IV (Paranormal) (2025) [MP3|320 Kbps] <Soul, Funk, R&B>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71131.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70849.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ V.A. - Viva Italia (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70555.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Anastacia - Not That Kind (25th Anniversary) (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69992.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Heidi Montag - Superficial (2010) Anniversary Edition, 2025, Pratt Productions [
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69540.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Karen Cheryl - Étonnamment Romantique - Best Of (2025) [FLAC|Lossless|WEB-DL|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69436.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ RaiNao - Capicu (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, jazz, R&B
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68822.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Bordeaux - Pesa tutto il mondo addosso (2025) [FLAC|Lossless|WEB-DL|tracks] <Ita
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68614.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ The Dark Tenor - 2 Albums (2014, 2025) [FLAC 16/44.1|Lossless|WEB-DL|tracks] <Ne
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68556.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Meghan Trainor - Title (2015) 10th Anniversary Edition, 2025, Epic Records [FLAC
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68537.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Mark Ambor - Rockwood (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67832.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ The Fleetwoods - Mr. Blue (1959) Expanded Edition, 2025, CAPITOL CATALOG MKT (C9
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67509.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ VA - Dance Classics - Pop Edition Vol. 1-3 (2009-2010) [FLAC|Lossless|tracks + .
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67330.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Michael Bublé - Crazy Love (2009) [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67256.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ KT Tunstall - Eye To The Telescope (2004) [FLAC|Lossless|tracks + .cue] <Rock, P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67234.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Barry Manilow - Ultimate Manilow (2002) CD, Compilation, Club Edition [FLAC|Loss
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66772.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ NSYNC - Celebrity (2001) CD, Album, Enhanced [FLAC|Lossless|tracks + .cue] <Pop,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66702.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ MIKA - The Boy Who Knew Too Much (2009) CD, Album [FLAC|Lossless|tracks + .cue] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66635.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ VA - Ultimate Dance Divas (2003) CD, Compilation [FLAC|Lossless|tracks + .cue] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66629.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ PinkPantheress - Fancy That (2025) Mixtape [FLAC|Lossless|tracks + .cue] <Dance-
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66606.jpg" />
 </div>
 
 

@@ -1,3 +1,61 @@
+###  Публикация: 1164765   (439895) от 10.09.2017
+
+VA - Sheridan Grout Presents Escape Vol.1 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sheridan Grout - The Last Word (Extended Mix)
+02. Somna - Story Untold
+03. Sheridan Grout - Escape
+04. Sheridan Grout - Alpha (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:18:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C69E98A72EFD28373D94B9349E8FA27132252E5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410188   (438507) от 20.09.2020
+
+VA - Aurosonic - Winter Sessions (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raz Nitzan & Jess Morgan - Not Like Everyone (Aurosonic Remix) (Mixed)
+02. Aurosonic & Ana Criado - Ask Me Anything (Mixed)
+03. Aurosonic & Stine Grove - In Euphoria We Rise (Mixed)
+04. Sleepthief & Zoe Johnston - Alice's Door (Aurosonic Remix) (Mixed)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:27:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEFC87CDCADC09FEFDB316301C6548575D5D9664
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1570915   (438307) от 19.08.2022
 
 VA - Vocal Trance Gems - Summer 2022 [MP3|320 Kbps] <Uplifting Trance>
@@ -6,7 +64,7 @@ VA - Vocal Trance Gems - Summer 2022 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438307.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Black Hole Trance Music 08-22 (2022) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438298.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Voice Hits Vol. 2 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438013.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Uplifting Trance Essentials Vol 3 (2020) [MP3|320 Kbps] <Trance, UpliftingT
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436161.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Amsterdam Trance Sessions Vol.12 (2017) [MP3|320 Kbps] <Trance, Uplifting T
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435229.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ DJ Ensamble - Trancing Queen (2005) [MP3|320 Kbps] <Trance, Eurodance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433886.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Utrecht Series - Vol XXVI (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432933.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Nothing But... The Future Sound Of Trance Vol 03 (2017) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432757.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Trance Rave Vol.1 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431387.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Pacific Trance Waves (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431384.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Future Trance 85 (2018) [MP3|320 Kbps] <Trance,Progressive Trance,House,>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431198.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Paul Oakenfold - Generations - Three Decades Of Dance (2017) 3 CD[Box set] [MP3|
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430611.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Trance International (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428655.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Markus Schulz - Global DJ Broadcast - Top 20 September (2017) [MP3|320 Kbps
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428485.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - A State Of Trance Top 20 - September 2020 (Selected By Armin van Buuren) - 
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427538.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Levitated Radio Top 20 (Selected by Manuel Rocca) (2018) [MP3|320 Kbps] <Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427116.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Particle Of Emotions Chapter 017 (2022) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425602.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Uplifting Only Top 15: August  (Extended Mixes) (2022) [MP3|320 Kbps] <Upli
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425588.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Big Room Bass Vol.5 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424863.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Lost In Trance (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424862.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Summer Hits 2022 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423521.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - A State Of Trance, Ibiza 2022 (Mixed by Armin van Buuren) [MP3|320 Kbps] <U
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423384.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Aly & Fila - FSOE Top 20: September (2020) [MP3|320 Kbps] <Trance, Upliftin
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423151.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Internal Sign CMPL (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421600.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Internal Sign CMPL (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A34B2753193E411DEC7328AE7E9956C6219E58A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166892   (421440) от 18.09.2017
-
-Aly & Fila - Beyond The Lights (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aly & Fila – Rebirth (03:37)
-02. Aly & Fila & Paul Thomas – Uv (05:14)
-03. Aly & Fila – Breathe Us to Life (with HALIENE) (03:54)
-04. Aly & Fila – Sunrise At Cala Bassa (05:43)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:13:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B9B8FE3C6123820B9224C55FAA8E6F98E221991
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947152   (420700) от 16.10.2015
-
-VA - Markus Schulz - Global DJ Broadcast - Top 20 October (2015) [MP3|320 кб/с]<Trance, Progressive House, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nifra feat. Seri - Army Of Lights (Original Mix) (05:54)
-02. Tritonal - Gamma Gamma (Ferry Corsten Radio Fix) (03:02)
-03. Judge Jules - Turn On The Lights (Original Mix) (06:26)
-04. Marlo feat. Jano - The Dreamers (Original Mix) (06:26)(   Читать дальше...   )Жанр: Trance, Progressive House, Progressive TranceПродолжительность: 02:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C031641863ACD6C6C9C06D9A4D84A2D11A5F7176
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 943743   (446800) от 04.10.2015
+
+Картинки - Старинные карты [JPG, PNG, GIF]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник старинных карт мира.Формат: JPG, PNG, GIFРазрешение файлов: 275х183 - 21657х930
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C65B59140D1EC9813BE6F3E10138290E3C8CC7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566983   (446548) от 15.08.2022
 
 Фотография - ArtStation - Mels Mneyan - DOLLY ANIME REFERENCE POSES 300+ [Accent on Legs] [JPG]
@@ -6,7 +32,7 @@
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446548.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446519.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446118.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445740.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445071.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445070.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444908.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444344.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444244.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442774.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442389.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442387.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442383.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442252.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442250.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442249.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442246.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442244.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442242.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442181.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442095.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442045.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442042.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440232.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440089.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6602C54980C7AA9D762F8CC24C513EBF32A89647
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944529   (439739) от 07.10.2015
-
-Современное искусство - Работы Michael MacRae [JPG]
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439739.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы Michael MacRaeФормат: JPGРазрешение файлов: 600x900 - 6981x9119
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F5A6D53602F533AA63FB19732C1643C70F0A680
 ```
 
 https://mybot314.ru/tekegram_catalog/

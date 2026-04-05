@@ -1,135 +1,3 @@
-###  Публикация: 1750502   (42952) от 20.09.2024
-
-Г.Б. Гуревич | Проективная геометрия (1960) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник по курсу проективной геометрии для физико-математических факультетов педагогических институтов.Жанр: МатематикаИздательство: ФизматгизФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E028E627B6713FEB3B02263409C88CCF3B38FB7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750504   (42917) от 20.09.2024
-
-Н.Ф. Четверухин | Проективная геометрия (1969) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник по курсу проективной геометрии для физико-математических факультетов педагогических институтов.Жанр: МатематикаИздательство: ПросвещениеФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC4D61DEAB82BA9B3615BB0D401C7F4865CD3D4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750717   (42818) от 21.09.2024
-
-В.В. Тетельмин | Нефтегазовое дело. Полный курс. Том 2. Третье издание (2024) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42818.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приведено систематическое описание процессов и агрегатов, используемых в нефтегазовой отрасли. Освещены вопросы общей и нефтепромысловой геологии, последовательно изложены основные стадии производства буровых работ, испытания и обустройства нефтяных и газовых скважин. Рассмотрены физика нефтяного пласта, порядок исследования скважин, реологические и технологические (   Читать дальше...   )Жанр: Учебное пособие. Природные ресурсыИздательство: Москва, Вологда: «Инфра-Инженерия»Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1195FDD3DB8859DB646D82607F1DACAA031E7A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750715   (42815) от 21.09.2024
-
-В.В. Тетельмин | Нефтегазовое дело. Полный курс. Том 1. Третье издание (2024) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приведено систематическое описание процессов и агрегатов, используемых в нефтегазовой отрасли. Освещены вопросы общей и нефтепромысловой геологии, последовательно изложены основные стадии производства буровых работ, испытания и обустройства нефтяных и газовых скважин. Рассмотрены физика нефтяного пласта, порядок исследования скважин, реологические и технологические (   Читать дальше...   )Жанр: Учебное пособие. Природные ресурсыИздательство: Москва, Вологда: «Инфра-Инженерия»Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF9AACB2F133A6FB04398A24A63F18FE5D3AF857
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750911   (42785) от 22.09.2024
-
-Д.Ю. Петров | Английский язык за 16 уроков. Продвинутый курс (2016) [DJVU]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42785.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге изложен продвинутый курс английского языка по методу Дмитрия Петрова, адаптированный для самостоятельных занятий.
-В каждом уроке - большое количество практических заданий, которые помогут сформировать навыки применения основных структур английского языка.
-Учебник является продолжением базового курса.Жанр: УчебникИздательство: Москва: Издательство Дмитрия ПетроваФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AED291A83B2D9D5123FC391BBBCA82CD2A928CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751036   (42784) от 22.09.2024
 
 Н.Е. Бурдакова | Автономное выживание в условиях природной среды (2024) [PDF]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42784.jpg" />
 </div>
 
 
@@ -165,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42736.jpg" />
 </div>
 
 
@@ -191,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42709.jpg" />
 </div>
 
 
@@ -217,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42707.jpg" />
 </div>
 
 
@@ -244,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42664.jpg" />
 </div>
 
 
@@ -270,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42642.jpg" />
 </div>
 
 
@@ -298,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42635.jpg" />
 </div>
 
 
@@ -324,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42521.jpg" />
 </div>
 
 
@@ -351,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42435.jpg" />
 </div>
 
 
@@ -379,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42421.jpg" />
 </div>
 
 
@@ -408,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42340.jpg" />
 </div>
 
 
@@ -434,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42259.jpg" />
 </div>
 
 
@@ -462,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42233.jpg" />
 </div>
 
 
@@ -488,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42225.jpg" />
 </div>
 
 
@@ -514,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42151.jpg" />
 </div>
 
 
@@ -540,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42014.jpg" />
 </div>
 
 
@@ -566,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42010.jpg" />
 </div>
 
 
@@ -592,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41999.jpg" />
 </div>
 
 
@@ -618,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41998.jpg" />
 </div>
 
 
@@ -644,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41985.jpg" />
 </div>
 
 
@@ -670,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41980.jpg" />
 </div>
 
 
@@ -681,6 +549,140 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9747F7DA0C25138282F152E96BFD33EB573308C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752363   (41979) от 29.09.2024
+
+Юрий Лубченков | 100 великих маршалов (2018) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маршал - воинское звание (или чин) высшего генеральского состава в армиях ряда государств. В России генерал-фельдмаршал было высшим воинским званием до 1917 года.
+Звание маршала в армии впервые стали использовать в Тевтонском ордене; отсюда появилось наименование фельдмаршала, сначала для полковников кавалерии. Во Франции маршал, ведавший королевской конюшней, прежде (   Читать дальше...   )Жанр: История. Биография.Издательство: Москва: «Вече»Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8821474C0CC0BCADD27CE25F7D18F016CBF1EF76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752191   (41976) от 29.09.2024
+
+А.А. Петров, Х.В. Бальян, А.Т. Трощенко | Органическая химия (1981) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41976.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебнике систематически изложены основы современной органической химии. В доступной форме даются сведения о квантово-химической природе простых и кратных связей. Излагаются современные взгляды на механизмы важнейших реакций. Большое внимание уделено практическому использованию достижений органической химии. Пятое издание существенно переработано и дополнено новыми (   Читать дальше...   )Жанр: УчебникИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B761561E6D75A933CCEFE00834745C50F7D03E2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466177   (41946) от 30.09.2024
+
+А.Д. Александров, Н.Ю. Нецветаев | Геометрия (1990) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Содержит основные разделы курса геометрии: аналитическую геометрию, элементарную геометрию на основе аксиоматики, включая геометрические преобразования и построения, элементы многомерной и проективной геометрии, дифференциальной геометрии и топологии, основания геометрии с обзором теорий «высшей» геометрии.
+
+Для студентов математических специальностей педвузов и (   Читать дальше...   )Жанр: МатематикаИздательство: НаукаФормат: DJVUКачество: Черно-белый скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76A68081D39FFAC3B6E192BFFBF9DF0A97352D31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752519   (41925) от 30.09.2024
+
+А.М. Кугушев, Н.С. Голубева | Основы радиоэлектроники (Нелинейные электромагнитные процессы) (1977) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41925.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге изложены основы теории нелинейных электромагнитных процессов в средах (нелинейная электродинамика). Процессы описываются на основе уравнений электромагнитного поля и квантовой механики. Даются принципы работы квантовых генераторов и усилителей оптического диапазона и диапазона СВЧ (парамагнитных и молекулярных), а также электронных генераторов и усилителей (   Читать дальше...   )Жанр: ЭлектроникаИздательство: ЭнергияФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3455597C4744DF070649CCB6A80273F29A400DDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752521   (41924) от 30.09.2024
+
+А.М. Кугушев, Н.С. Голубева | Основы радиоэлектроники (Линейные электромагнитные процессы) (1969) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41924.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге изложены основы теории линейных электромагнитных процессов в средах (электродинамика) и в цепях (теория линейных цепей). Процессы описываются на основе уравнений электромагнитного поля (уравнения Максвелла). В дополнительной главе приводится краткое изложение применяемого математического аппарата.
+Книга может служить учебным пособием для студентов радиоэлектронных (   Читать дальше...   )Жанр: ЭлектроникаИздательство: ЭнергияФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A11A5E44BD0EF91BFC890A9D2D71F447A44E90F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

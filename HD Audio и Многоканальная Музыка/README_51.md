@@ -1,32 +1,3 @@
-###  Публикация: 1629816   (237820) от 27.04.2023
-
-Baccara - Baccara (1977)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Yes Sir, I Can Boogie (Dostal - Soja) 4:37
-02 Love You Till I Die (Dostal - Soja) 4:29
-03 Granada (Lara) 4:21
-04 Gimme More (Soja - Zentner) 3:54(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CCFF4D651623339252A73CA4D8A37716199A78F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1630140   (237801) от 29.04.2023
 
 Rena Rolska/Рена Рольска - Поет Рена Рольска (1970) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Pop>
@@ -35,7 +6,7 @@ Rena Rolska/Рена Рольска - Поет Рена Рольска (1970) [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237801.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Убойная Сила. Любимые песни из телесериа�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237777.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - XXXL Европейский 5 (2000) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237749.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Poets of the Fall - Дискография (12 releases) (2005 - 2022) hand made
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237707.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Holy Moses (& Temple Of The Absurd) - Studio Albums (16 releases) (1986-2023) ha
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237690.jpg" />
 </div>
 
 
@@ -181,7 +152,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237599.jpg" />
 </div>
 
 
@@ -210,7 +181,7 @@ Dee D. Jackson - Thunder & Lightning (1980) [FLAC 2.0|192/24|image + .cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237534.jpg" />
 </div>
 
 
@@ -239,7 +210,7 @@ Dee D. Jackson - Cosmic Curves (1978) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237451.jpg" />
 </div>
 
 
@@ -268,7 +239,7 @@ Helloween - Легенды Зарубежного Рока (2000) Compilation, U
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237412.jpg" />
 </div>
 
 
@@ -297,7 +268,7 @@ VA - Le Canzoni D'Oggi (1987) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Italo Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237374.jpg" />
 </div>
 
 
@@ -326,7 +297,7 @@ The International Pop Orchectra & Chorus - At Last 26 Non-Stop Hits For Dancing 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237318.jpg" />
 </div>
 
 
@@ -355,7 +326,7 @@ INXS - Kick (1987) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip]<Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237289.jpg" />
 </div>
 
 
@@ -384,7 +355,7 @@ Sentenced - Studio Albums (12 releases) (1990-2005) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237261.jpg" />
 </div>
 
 
@@ -413,7 +384,7 @@ VA - Italian Hit-Parade 2 (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rips] <Italo P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237259.jpg" />
 </div>
 
 
@@ -442,7 +413,7 @@ Raffaella Carra/Рафаэлла Карра - Поёт Рафаэлла Карр
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237241.jpg" />
 </div>
 
 
@@ -471,7 +442,7 @@ Kenichi Sonoda & His Dixie Kings - Russian Album (1971) [FLAC 2.0|96/24|image+.c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237227.jpg" />
 </div>
 
 
@@ -500,7 +471,7 @@ VA - San Remo '88 (1988) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Italo Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237215.jpg" />
 </div>
 
 
@@ -529,7 +500,7 @@ Tom Jones/Том Джонс - Лучшие песни из репертуара.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237201.jpg" />
 </div>
 
 
@@ -558,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237198.jpg" />
 </div>
 
 
@@ -587,7 +558,7 @@ VA - Superstars (1974) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237196.jpg" />
 </div>
 
 
@@ -616,7 +587,7 @@ Gorillaz - Cracker Island (2023) [DSD128 2.0|tracks|Vinyl-Rip] <Electronic, Hip 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237159.jpg" />
 </div>
 
 
@@ -645,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237126.jpg" />
 </div>
 
 
@@ -674,7 +645,7 @@ Rupert Hine - Immunity (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electroni
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236992.jpg" />
 </div>
 
 
@@ -703,7 +674,7 @@ Manfred Mann's Earth Band - Ансамбль Мэнфреда Мэнна (1980) 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236921.jpg" />
 </div>
 
 
@@ -732,7 +703,7 @@ John Di Martino's Romantic Jazz Trio - So In Love (2015) [DSD64 2.0|1bit/2822,4k
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236491.jpg" />
 </div>
 
 
@@ -746,6 +717,35 @@ John Di Martino's Romantic Jazz Trio - So In Love (2015) [DSD64 2.0|1bit/2822,4k
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1CE7CEED1D139182288E974135F470CBA93685D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630815   (236410) от 04.05.2023
+
+Depeche Mode - Playing The Angel (2005)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236410.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. A Pain That I'm Used To (4:11)
+A2. John The Revelator (3:43)
+A3. Suffer Well (3:49)
+B1. The Sinner In Me (4:56)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:53:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE6A86AAFF7E3EB1C8F7E43049BAAEE7137C8110
 ```
 
 https://mybot314.ru/tekegram_catalog/

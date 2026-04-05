@@ -1,3 +1,55 @@
+###  Публикация: 1043959   (568320) от 18.08.2016
+
+Anima: Gate of Memories (2014) [Ru/Multi] (1.0) Repack Valdeni
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568320.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Анима: врата воспоминаний» - ролевая боевая игра от третьего лица. Она основана на истории пары, связанной невольным договором: легендарного чудища и девушки без прошлого... Они должны быть вместе, и их судьба меняется, когда они обнаруживают, что втянуты в зловещую тайную войну.Тип издания: RepackРазработчик: Edge EntertainmentЖанр: RPG (Rogue, Action), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D08B0CB156EBEBC760B6B774CE65C8ACA8A7A14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043964   (568312) от 18.08.2016
+
+Xuan-Yuan Sword EX: The Gate of Firmament (2016) [En/Multi] (1.0) Repack АRMENIAC
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет игры вращается вокруг наследников двух павших династий - Юй Вэнь Ту и Чэнь Цзин Цзоу. Они собираются восстановить и вернуть то, что им по праву унаследовано – династии Чэнь и Северная Чжоу. Но чтобы получить желаемое, для начала им необходимо отыскать мистическое оружие, которое обладает невероятной силой, что поможет им закрыть врата ада, тем самым не впустив (   Читать дальше...   )Тип издания: RepackРазработчик: DOMO StudioЖанр: Action RPGЯзык озвучки: КитайскийЯзык субтитров: Английский, Китайский (упрощенный, традиционный), ЯпонскийЯзык интерфейса: Английский, Китайский (упрощенный, традиционный), Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FB46FE3858C7F8D79FCEFBE1ECE26C683C59EE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 922770   (567801) от 29.07.2015
 
 Kyn (2015) [En/De] License FAiRLIGHT
@@ -6,7 +58,7 @@ Kyn (2015) [En/De] License FAiRLIGHT
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567801.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Avernum 2 (2000) [En] (1.0.1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566810.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Assassin's Creed: Valhalla (2020) [Ru/Multi] (1.1.2) Repack Decepticon
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566432.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ ICY (2015) [En] (1.0) Rip ALiAS
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566011.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Corpse Party: Blood Drive (2019) [Multi] (0.95) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564847.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ The Fall of the Dungeon Guardians (2015) [En/Multi] (1.0e) License PROPHET
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564668.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Rage of the Battlemage (2016) [Ru/Multi] (1.0) License PROPHET
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562717.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Hero Defense - Haunted Island (2016) [Ru/Multi] (1.2.6.3610r) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558881.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Deus Ex: Human Revolution: The Missing Link / Deus Ex: Human Revolution Augmente
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558318.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ SpellForce 3: Soul Harvest (2019) [Ru/Multi] (1.0) License HOODLUM
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557751.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ Blood & Gold: Caribbean! (2015) [Ru/En] (2.065/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557413.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ ATOM RPG: Post-apocalyptic indie game (2018) [Ru/En] (1.1) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556904.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ City of Brass (2018) [Ru/Multi] (1.6.0/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556892.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ Yonder: The Cloud Catcher Chronicles (2017) [En] (1.0) Repack Covfefe
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556690.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ Vambrace: Cold Soul (2019) [Ru/Multi] (1.0) License HOODLUM
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556342.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ Deep Sky Derelicts (2018) [Ru/En] (1.2/dlc) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556297.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ Warhammer: Chaosbane (2019) [Ru/Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555961.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ Mary Skelter: Nightmares (2018) [En/Jp] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553761.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ Overlord II / Overlord 2 (2009) [Ru/Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552098.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ SteamWorld Quest: Hand of Gilgamech (2019) [Ru/Multi] (1.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550003.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ Zombasite (2016) [En] (1.000) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549823.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ SpellForce 3 (2017) [Ru/Multi] (1.40.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549177.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ Bastion (2011) [Ru/Multi] (1.50436) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547511.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ Divinity Original Sin 2 / Divinity Original Sin II (2017) [Ru/Multi] (3.6.44.404
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547493.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ Divinity: Original Sin 2 – является продолжением леге�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CAE0B4C8FA46B1011B7D55821B2AF2C8CEEA6DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310764   (545062) от 26.06.2019
-
-Outward (2019) [Multi] (1.0upd2/dlc) Repack R.G. Catalyst
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545062.jpg" />
-</div>
-
-
-###  Подробнее
-
-Outward – приключенческая РПГ, события которой разворачиваются в большом открытом мире. Вам предстоит выступить в роли путешественника, отправившегося исследовать неизведанные земли, населенные опасными существами, неприятелями и интересными персонажами. Играть вы сможете как в одиночку, так и с друзьями в кооперативном режиме локально или онлайн.Тип издания: RepackРазработчик: Nine Dots StudioЖанр: Ролевые игрыЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F488F2A82B3DF1C4E76A66062EA8E7598FA349BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238916   (543549) от 02.08.2018
-
-Sword Art Online: Hollow Realization (2017) [Multi] (1.00) License SKIDROW [Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sword Art Online: Hollow Realization - это очередная часть приключенческой ролевой игры, созданной по мотивам вселенной аниме Sword Art Online, события которой разворачиваются в новом мире очередной многопользовательской онлайн игры в виртуальной реальности.Тип издания: LicenseРазработчик: AQURIAЖанр: Action, 3rd Person, RPGЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEEDF4851644399011BEBD4FE6EB6383BB2E244C
 ```
 
 https://mybot314.ru/tekegram_catalog/

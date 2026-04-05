@@ -6,7 +6,7 @@ Jackie McLean - It's Time! (1964) 2006, Blue Note [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102794.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Jimmy Raney & Sonny Clark - Together! (1954) 1994, Xanadu Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102781.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Fusion Funk Excursions (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102779.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Michael Lington - Everything Must Change (2002) CD, Album, Enhanced [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102778.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Smooth Jazz All Stars - Smooth Jazz Renditions of Lady Gaga (Instrumental) (2024
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102767.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Mel Torme & The Marty Paich Dek-Tette - In Concert Tokyo (1989) Concord Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102762.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Smooth Jazz All Stars - Smooth Jazz Renditions of Dua Lipa (Instrumental) (2024)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102748.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Lizzie Thomas - Lizzie Thomas - This Christmas (2024) [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102747.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Jimmy Heath - Love And Understanding (1973) 1995, Xanadu Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102741.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ The L.A.4 - The L.A.4 (1976) 1987, Concord Jazz [FLAC|Lossless|tracks + .cue] <B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102723.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ The Great Jazz Trio - Love For Sale (1976) 1986, Nippon [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102722.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Ann Hampton Callaway - This Christmas (1997) Angel Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102719.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Club des Belugas - Forward (2012) [FLAC|Lossless]<Soul, Nu Jazz, Electro Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_102679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102679.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Astrud Gilberto - Verve Jazz Masters 9 (1993) [FLAC|Lossless]<Vocal Jazz, Bossa 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_102568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102568.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Aziza Mustafa Zadeh 3 CD [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_101819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_101819.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ John Hicks - John Hicks (1982) 2003, Evidence [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101524.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Ella Fitzgerald - Ken Burns Jazz (2000) CD, Compilation, Club Edition [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101498.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Nat Adderley Sextet - Autumn Leaves: Live At Sweet Basil (1990) 1994, Evidence [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101484.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Booker Little - Booker Little (1960) 2017, Solid Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101483.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Randy Newman - Randy Newman's Faust (1995) CD, Album [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101474.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Teddy Wilson And His Orchestra - 1934 - 1935 (1990) Classics [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101461.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Shelly Manne & Bill Russo - Deep People (1951, 1952) 1992, Savoy Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101400.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Katie Melua - Call Off The Search (2004) CD, Album, Enhanced [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101344.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ J.J. Johnson - J.J. Johnson's Jazz Quintets (1946 - 1949) 1992, Savoy Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101332.jpg" />
 </div>
 
 
@@ -713,7 +713,7 @@ The Oscar Peterson Trio - Another Day (1970) 2024, MPS [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101243.jpg" />
 </div>
 
 
@@ -742,7 +742,7 @@ Jelly-Roll Morton - 1928 - 1929 (1992) Classics [FLAC|Lossless|tracks + .cue] <N
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101215.jpg" />
 </div>
 
 

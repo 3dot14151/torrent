@@ -1,3 +1,56 @@
+###  Публикация: 1262699   (287404) от 19.11.2018
+
+Неукротимый / Untamed (1955) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во времена Ирландского картофельного голода в 1845-1849 годах из страны эмигрировали тысячи семей. Среди них была и Кэти О'Нилл с мужем, которые выбрали Южную Африку в качестве "земли обетованной". Оказавшись там, они испытывают все тяготы жизни переселенцев, а для Кэти судьбоносной становится встреча с Полом Ван Рибеком, любовью всей ее жизни…Производство: США / 20th Century Fox Film CorporationЖанр: Драма, Мелодрама, ПриключенияРежиссер: Генри КингАктеры: Тайрон Пауэр, Сьюзен Хэйуорд, Ричард Иган, Джон Джастин, Агнес Мурхед, Рита Морено, Хоуп Эмерсон, Брэд Декстер, Генри О’Нилл, Пол ТомпсонПеревод: Многоголосый закадровый (РенТВ)Субтитры: ОтсутствуютПродолжительность: 01:46:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B58EAEEC91E865FD8D5BF2E18AB00C397DFEC897
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962618   (287139) от 08.12.2015
+
+55 дней в Пекине / 55 Days at Peking (1963) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287139.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о мужестве и борьбе за жизнь военных и дипломатов, в 1900 г. попавших в западню в закрытой зоне Пекина. С молчаливой поддержки императрицы Китая, их осадили тысячи восставших против иностранцев китайских фанатиков.
+ Разногласия забыты перед лицом опасности, забыта и борьба за сердце прекрасной русской графини. Все вовлечены в ужасные события…Производство: США / Samuel Bronston ProductionsЖанр: Боевик, Драма, Военный, ИсторияРежиссер: Николас Рэй, Гай ГринАктеры: Чарлтон Хестон, Ава Гарднер, Дэвид Нивен, Флора Робсон, Джон Айрленд, Гарри Эндрюс, Лео Генн, Роберт Хелпманн, Курт Казнар, Филипп ЛеруаПеревод: Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 02:35:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65C291D3F0AAF7FCD3F873733D8D5A0CB9F72A63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263241   (285932) от 20.11.2018
 
 Четыре пера / The Four Feathers (1939) DVDRip [H.264]
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285932.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285896.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285596.jpg" />
 </div>
 
 
@@ -88,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285476.jpg" />
 </div>
 
 
@@ -115,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284269.jpg" />
 </div>
 
 
@@ -141,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284111.jpg" />
 </div>
 
 
@@ -167,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284078.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282852.jpg" />
 </div>
 
 
@@ -220,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282369.jpg" />
 </div>
 
 
@@ -246,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282333.jpg" />
 </div>
 
 
@@ -273,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282043.jpg" />
 </div>
 
 
@@ -299,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280508.jpg" />
 </div>
 
 
@@ -325,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280308.jpg" />
 </div>
 
 
@@ -351,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280291.jpg" />
 </div>
 
 
@@ -377,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280073.jpg" />
 </div>
 
 
@@ -403,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279027.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278975.jpg" />
 </div>
 
 
@@ -457,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278633.jpg" />
 </div>
 
 
@@ -483,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278485.jpg" />
 </div>
 
 
@@ -509,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278405.jpg" />
 </div>
 
 
@@ -535,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278366.jpg" />
 </div>
 
 
@@ -562,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278337.jpg" />
 </div>
 
 
@@ -589,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277501.jpg" />
 </div>
 
 
@@ -615,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276969.jpg" />
 </div>
 
 
@@ -626,59 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7BF441B21114D5311DBDBF739A3C353B4D2C49D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080118   (276745) от 13.12.2016
-
-Битва за Рим / Kampf um Rom (1968-1969) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276745.jpg" />
-</div>
-
-
-###  Подробнее
-
-По роману Феликса Дана.
-Действие картины начинается в конце IV века нашей эры, когда Римская империя распалась. В 476 году был низложен последний римский император Ромул Августус. Готы, завоевавшие Рим, и Византия - вот враги, которые поведут битву за Рим, надеясь подмять по себя древний город. За освобождение города от варваров после смерти короля вестготов Теодориха (   Читать дальше...   )Производство: ФРГ, Румыния, Италия (CCC-Studios, Германия, "Бухарест" Румыния, "Документа-фильм" Италия)Жанр: Драма, ИсторическийРежиссер: Роберт Сьодмак, Эндрю Мортон, Серджиу НиколаескуАктеры: Лоуренс Харви, Орсон Уэллс, Сильвия Кошина, Хонор Блэкман, Роберт Хоффман, Майкл Данн, Ингрид Бретт, Ланг Джефрис, Флорин Пьерсик, Эманоил Петруц, Фридрих фон Ледебур, Дитер Эпплер и др.Перевод: Дублированный (к/с М.Горького) + вставки авторского (grombg)Язык субтитров: РусскийПродолжительность: 01:34:51 + 01:16:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:566E0A9111C834CDBE770F23F50AC37FB03CB6BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183375   (276700) от 30.11.2017
-
-Близкие контакты третьей степени / Close Encounters of the Third Kind (1977) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сбои в подаче электроэнергии, возвращение из ниоткуда самолетов, исчезнувших в 1945 году, обескураживают ученых. Наименее скептичные люди науки расценивают эти явления, как прямое доказательство существования разумной инопланетной формы жизни. Рой Неари едет в пустыню, где были найдены самолеты, чтобы провести собственное расследование. Ночью его автомобиль застревает (   Читать дальше...   )Производство: США / Columbia Pictures Corporation, EMI Films Ltd., Julia Phillips and Michael Phillips ProductionsЖанр: Фантастика, ДрамаРежиссер: Стивен СпилбергАктеры: Ричард Дрейфусс, Франсуа Трюффо, Тери Гарр, Мелинда Диллон, Боб Бэлабан, Дж. Патрик МакНамара, Уоррен Дж. Кеммерлинг, Робертс Блоссом, Филип Доддс, Кэри ГуффиПеревод: Многоголосый, двуголосый закадровый, авторскийСубтитры: Русские, английскиеПродолжительность: 02:17:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55B5A11D7A9F65DB2758A07CD12ED86F3C11B11D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,82 @@
+###  Публикация: 1576416   (366162) от 14.09.2022
+
+Составители П. С. Гуревич, В. И.Столяров | Мир философии. Книга для чтения в 2-х частях. Часть 1. Исходные философские проблемы, понятия и принципы (2010) [MP3, Юрий Рудник]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366162.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Издательство: Политической литературы, Москва, 1991 г.
+Книга представляет собой антологию (в 2-х частях) тематически сгруппированных философских текстов - извлечений из трудов мыслителей разных эпох, включая современность. В текстах первой части книгиосвещаются вопросы смысла и назначения философии, ее истории, исходныефилософские проблемы (бытие и познание), (   Читать дальше...   )Жанр: ФилософияПродолжительность: 40:35:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E4E47EF3A20489818D5839E09D6118A18D51B16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1323501   (365709) от 29.09.2019
+
+Джозеф Мэрфи | Чудодейственная сила Вселенной (2017) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эффективная методика достижения счастья и богатства от автора бестселлера «Сила вашего подсознания» Джозефа Мерфи! В вас заключена великая сила, способная изменить вашу жизнь до неузнаваемости. Джозеф Мерфи призывает каждого слушателя пробудить её, установить сознательный контакт со Вселенной – и тогда вы сможете решить любые проблемы, найти своё место в жизни и (   Читать дальше...   )Жанр: Практическая эзотерикаПродолжительность: 07:53:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AFCE89F622FF3A2E42BFA6D21084B24D1A96714
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328124   (365695) от 29.09.2019
+
+Тим Скоренко | Изобретено в СССР. История изобретательской мысли с 1917 по 1991 год (2019) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365695.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изобретательская мысль в Советском Союзе развивалась своеобразно. Ее поощряли в избранных областях – космической, военной, научной – и практически игнорировали в бытовой. Иначе говоря, мы совершали важнейшие прорывы в ракетостроении и фундаментальных исследованиях, но серьёзно отставали во всём, что касалось повседневной жизни, от пылесосов до автомобилей. У этой (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 18:11:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72862ABDCF56164BB52DD7610445BAD893FA2254
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416675   (365244) от 17.10.2020
 
 Рейчел Кларк | Рука на пульсе (2020) [MP3]
@@ -6,7 +85,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365244.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364748.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362999.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362717.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361484.jpg" />
 </div>
 
 
@@ -138,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360242.jpg" />
 </div>
 
 
@@ -164,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359615.jpg" />
 </div>
 
 
@@ -190,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359064.jpg" />
 </div>
 
 
@@ -217,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358318.jpg" />
 </div>
 
 
@@ -243,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358287.jpg" />
 </div>
 
 
@@ -270,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357389.jpg" />
 </div>
 
 
@@ -305,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356885.jpg" />
 </div>
 
 
@@ -331,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355948.jpg" />
 </div>
 
 
@@ -357,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355282.jpg" />
 </div>
 
 
@@ -385,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352319.jpg" />
 </div>
 
 
@@ -411,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351973.jpg" />
 </div>
 
 
@@ -437,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348935.jpg" />
 </div>
 
 
@@ -463,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345789.jpg" />
 </div>
 
 
@@ -489,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343517.jpg" />
 </div>
 
 
@@ -515,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343384.jpg" />
 </div>
 
 
@@ -541,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343179.jpg" />
 </div>
 
 
@@ -567,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342943.jpg" />
 </div>
 
 
@@ -593,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342834.jpg" />
 </div>
 
 
@@ -604,86 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E9F19ACB2804C8F9BE515EA5394702EAFAA141E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953724   (342006) от 07.11.2015
-
-Барбара Де Анджелис | Секреты о жизни, которые должна знать каждая женщина (2011) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342006.jpg" />
-</div>
-
-
-###  Подробнее
-
-Барбара де Анджелис - автор популярных бестселлеров по проблемам женской психологии, и ее `Секреты жизни` - нечто большее, чем просто книга. Барбара хочет подарить своим читательницам долгожданный душевный мир, гармонию и уверенность, которые они обретут,воспользовавшись ее секретами. Ее главный девиз - будьте такой, какая вы есть, любите себя и относитесь с уважением (   Читать дальше...   )Жанр: ПсихологияПродолжительность: 12:34:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE8A2FDC02AC501D2CAEC8C890C5FF5F419F9CCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180214   (341971) от 03.11.2017
-
-Джаред Даймонд | Ружья, микробы и сталь (2017) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор – знаменитый американский ученый. Газета New York Times назвала его «Дэном Брауном научной литературы». Книга удостоена Пулитцеровской премии в номинации нехудожественная проза.
-Почему евразийские цивилизации занимают доминирующее положение в современном мире?
-Почему европейская, а позже и евро-атлантическая цивилизация добились самых грандиозных успехов в (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 14:45:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACAC6E65B68CDF7B68FFBB59C312F5445AFBF4A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419181   (341849) от 27.10.2020
-
-Наталия Басовская | Древний мир. Все герои мировой истории (2020) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Истории жизни всех самых интересных и ярких исторических личностей, рассказанные известным историком Наталией Басовской. Истории жизни всех самых интересных и ярких исторических личностей, рассказанные известным историком Наталией Басовской собраны в этой книге. Герои, злодеи, роковые женщины, владыки полумира и бунтари любили, ненавидели, боролись, проигрывали и (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 09:52:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2C5FA0D95DBFF2F15AC5DC7C196E3A513BE8336
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1130287   (716790) от 01.05.2017
+
+Roy Clark - The Lightning Fingers of Roy Clark (1999) [FLAC|Lossless|image + .cue] <Surf, Rock & Roll, Country>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Twelfth Street Rag  (02:45) 
+02.  Texas Twist  (02:09) 
+03.  Golden Slippers  (02:28) 
+04.  Weepin' Willow Twist  (02:21) (   Читать дальше...   )Жанр: Surf, Rock & Roll, CountryПродолжительность: 00:30:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3021C7BB0B4CB60E62AA14F3A8ABA9B5AD04B3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129867   (716787) от 01.05.2017
+
+Flame - Flame (1992) Japanese Edition, 1st Press [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Razor Blade Road (Prelude) 00:46
+02. Rain 04:35
+03. Electraglide 04:13
+04. Wild One 04:52(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:59:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4676F7644635ACF16380A68CC60022B76CB08A1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532151   (716762) от 18.02.2022
+
+Schizophrenia - Recollections Of The Insane (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Divine Immolation
+02. Cranial Disintigration
+03. Sea Of Sorrow
+04. Monolith(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A17E60241358CF44F756BA4FBA6286CF45340455
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532108   (716758) от 18.02.2022
+
+Glasya - Attarghan (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Attarghan
+02. From Enemy To Hero
+03. Way To Victory
+04. Retalation(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:06:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05238A825AE14BC699A7A211AEBD61980409BED5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286012   (716681) от 28.02.2019
+
+Bryan Adams - Shine a Light (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shine A Light
+02. That’s How Strong Our Love Is
+03. Part Friday Night, Part Sunday Morning
+04. Driving Under The Influence Of Love(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FE12DB83A681DEC39F0FBA102AB35D706008E3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285839   (716680) от 28.02.2019
 
 Deserted Fear - Drowned By Humanity (2019) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Death Metal>
@@ -6,7 +151,7 @@ Deserted Fear - Drowned By Humanity (2019) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Dea
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716680.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Mythra - Still Burning (2017) [MP3|320 Kbps] <NWOBHM>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716661.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Tak Matsumoto & Daniel Ho - Electric Island, Acoustic Sea (2017) [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716653.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Swallow the Sun - Live In Helsinki (20 Years Of Gloom, Beauty And Despair) (2021
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716642.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ In Flames - I, The Mask (2019) [MP3|320 Kbps] <Modern Metal, Alt. Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716560.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Thurston Moore - Rock N Roll Consciousness (2017) [FLAC|Lossless|WEB-DL|tracks +
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716538.jpg" />
 </div>
 
 
@@ -181,7 +326,7 @@ Re-Machined - Brain Dead (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716498.jpg" />
 </div>
 
 
@@ -210,7 +355,7 @@ Spirits Of Fire - Embrace The Unknown (2022) [FLAC|Lossless|WEB-DL|tracks] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716497.jpg" />
 </div>
 
 
@@ -239,7 +384,7 @@ Ty Morn - Last Villain Testament (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716490.jpg" />
 </div>
 
 
@@ -268,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716427.jpg" />
 </div>
 
 
@@ -297,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716387.jpg" />
 </div>
 
 
@@ -326,7 +471,7 @@ Volbeat - Servant of the Mind (2021) Japanese Edition [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716331.jpg" />
 </div>
 
 
@@ -355,7 +500,7 @@ Golden Earring - 50 Years Anniversary Album (2015) [FLAC|Lossless|image + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716326.jpg" />
 </div>
 
 
@@ -384,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716268.jpg" />
 </div>
 
 
@@ -413,7 +558,7 @@ Bat - Wings Of Chains (2016) [MP3|320 кб/с] <Thrash Metal, Speed Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716214.jpg" />
 </div>
 
 
@@ -442,7 +587,7 @@ Bloodywood - Rakshak (2022) [MP3|320 Kbps] <Nu-Metal, Modern Metal, Rap Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716167.jpg" />
 </div>
 
 
@@ -471,7 +616,7 @@ Stretch - You Can't Beat Your Brain For Entertainment (1976) [MP3|320 кб/с] <
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716129.jpg" />
 </div>
 
 
@@ -500,7 +645,7 @@ Monument - Hair Of The Dog (2016) [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716128.jpg" />
 </div>
 
 
@@ -529,7 +674,7 @@ Phantom 5 - Phantom 5 (2016) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716038.jpg" />
 </div>
 
 
@@ -558,7 +703,7 @@ Shakra - High Noon (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Hard & Heavy>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716024.jpg" />
 </div>
 
 
@@ -587,7 +732,7 @@ The Alan Parsons Symphonic Project - Live In Colombia (2CD) (2016) [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715953.jpg" />
 </div>
 
 
@@ -601,151 +746,6 @@ CD 01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B5555B1D6976057D35ED05E5A1A36D963611C5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024758   (715949) от 09.06.2016
-
-Margenta & Андрей Кустарёв - Дым. Крепости. Волк (2016) [MP3|320 кб/с] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Нeбо. Крепости. Рельсы.
-02. Блюз Для Розы
-03. Дым Стоит Стеною
-04. Степной Волк(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC962C7595C90BB2A2466CBD52B09CD3FA6019DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130488   (715751) от 01.05.2017
-
-Brutto - Рокi (2017) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Рокі
-02. Саботаж
-03. Новый Сайгон
-04. Телевизор(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:40:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:852D90A837DA32023E8DF6052197FA94D1E48858
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219187   (715734) от 13.04.2018
-
-Директор Азовского Моря - Здравствуй И Прощай (2015) [MP3|320 Kbps] <Rockabilly, Rock'n'roll>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Здравствуй, и прощай! (03:42)
-02. Пилот (04:01)
-03. Лето (03:39)
-04. Не бiда (Егеж) (04:01)(   Читать дальше...   )Жанр: Rockabilly, Rock'n'rollПродолжительность: 00:48:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FD53AD6220D583187CFF5E700D09B09287FE3F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219301   (715620) от 13.04.2018
-
-НОМ - Я тебя услышал (2018) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715620.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Жили-были
-2. Раньше было лучше
-3. Я тебя услышал
-4. Песня про зайцев(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0BE22FEE1BE5A96D94A40748FB0E6FAA1FCEE5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024710   (715618) от 09.06.2016
-
-Garbage - Strange Little Birds (2016) [MP3|320 кб/с] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sometimes
-02. Empty
- 03. Blackout
- 04. If I Lost You(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:52:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2DA15B7843E230902B39276C8268FDEE264DF3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

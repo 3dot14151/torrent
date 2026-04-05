@@ -1,3 +1,133 @@
+###  Публикация: 1543216   (631665) от 10.04.2022
+
+Зеленые яйца с ветчиной / Green Eggs and Ham (2022) WEB-DL [H.264/1080p] (сезон 2, серии 1-10 из 10) Пифагор
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631665.jpg" />
+</div>
+
+
+###  Подробнее
+
+В причудливом мире полные противоположности Чувак и Сэм учатся новому – например, дружить и готовить восхитительное блюдо.Производство: США | Gulestream Pictures, A Stern Talking To, Warner Bros. AnimationЖанр: Мультфильм, комедия, приключения, семейныйРежиссер: Коуди Кэмерон, Ориан Редсон, Lawrence GongАктеры: Майкл Дуглас, Адам Дивайн, Илана Глейзер, Дайан Китон, Джиллиан Белл, Эдди Иззард, Кигэн-Майкл Ки, Джеффри Райт, Ди Брэдли Бейкер, Кит ФергюсонПеревод: Дублированный (Пифагор)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), английские (SDH), немецкие, французские и др.Продолжительность: ~00:27:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:975DE1F6200C52980FCABD1BA7D7F53ED41B2220
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294111   (631551) от 06.04.2019
+
+Утиные Истории / DuckTales (2017) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-25 из 25) [UKR,EN]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Билли, Вилли и Дилли — три брата, которые обожают приключения. Их дядюшка, Дональд Дак, вынужден отправиться на важное собеседование, поэтому он нанял няню, чтобы она присмотрела за неусидчивыми сорванцами. Вот только женщина не смогла прибыть вовремя, поэтому у Дональда не осталось другого выбора, как отвести племянников к Скруджу МакДаку, самому богатому селезню (   Читать дальше...   )Производство: США / Disney Television AnimationЖанр: Детский, Приключения, КомедияРежиссер: Дэна Террас, Джон Аошима, Том ОуэнсПеревод: ОтсутствуетОзвучка / Автор перевода: ТК ПлюсПлюсЯзык озвучки: украинский, английскийСубтитры: отсутствуютПродолжительность: ~00:21:15 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5927F522279DC3C8961E89ADA8DA6E271EB8DD19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294039   (631550) от 06.04.2019
+
+Астерикс и тайное зелье / Asterix: Le secret de la potion magique (2018) BDRip [H.264/720p] [PR]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Могучие галлы издревле черпали силу в секретном напитке, который готовил великий старец. Но пришла беда, откуда не ждали — почтенный друид свалился с дерева и сломал обе ноги. Теперь Астериксу и Обеликсу предстоит отправиться в опасное путешествие, чтобы отыскать нового друида, достойного постичь рецепт тайного зелья.Производство: Франция, M6 Studio, M6 Films, Les Editions Albert RenéЖанр: Мультфильм, Комедия, Семейный, ФэнтезиРежиссер: Александр Астье, Луи КлишиПеревод: Дублированный (iTunes)Субтитры: Русские (Full)Продолжительность: 01:24:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D2D2A41A29CF588C8F8E59992DF82911DD36B11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294128   (631548) от 06.04.2019
+
+Астерикс и тайное зелье / Asterix: Le secret de la potion magique (2018) BDRemux [H.264/1080p] [2D/3D] [ISO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Могучие галлы издревле черпали силу в секретном напитке, который готовил великий старец. Но пришла беда, откуда не ждали — почтенный друид свалился с дерева и сломал обе ноги. Теперь Астериксу и Обеликсу предстоит отправиться в опасное путешествие, чтобы отыскать нового друида, достойного постичь рецепт тайного зелья.Производство: Франция, M6 Studio, M6 Films, Les Editions Albert RenéЖанр: Мультфильм, Комедия, Семейный, ФэнтезиРежиссер: Александр Астье, Луи КлишиПеревод: Дублированный (iTunes)Субтитры: Русские (Full), ФранцузскиеПродолжительность: 01:24:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EDCAA0E9206CF62F6BD69C5994E45EFE2C2AC18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294077   (631545) от 06.04.2019
+
+Астерикс и тайное зелье / Asterix: Le secret de la potion magique (2018) BDRemux [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Могучие галлы издревле черпали силу в секретном напитке, который готовил великий старец. Но пришла беда, откуда не ждали — почтенный друид свалился с дерева и сломал обе ноги. Теперь Астериксу и Обеликсу предстоит отправиться в опасное путешествие, чтобы отыскать нового друида, достойного постичь рецепт тайного зелья.Производство: Франция, M6 Studio, M6 Films, Les Editions Albert RenéЖанр: Мультфильм, фэнтези, приключения, детский, семейный, полнометражныйРежиссер: Александр Астье, Луи КлишиПеревод: Дублированный (iTunes)Субтитры: Русские (полные)Продолжительность: 01:24:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB83C9015413D5C5F00355FD10369CCC5AE116AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280666   (631542) от 06.04.2019
 
 Гринч / The Grinch (2018) BDRemux [H.264/1080p] [2D/3D] [ISO]
@@ -6,7 +136,7 @@
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631542.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631541.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631529.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631426.jpg" />
 </div>
 
 
@@ -111,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631395.jpg" />
 </div>
 
 
@@ -137,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631387.jpg" />
 </div>
 
 
@@ -163,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631269.jpg" />
 </div>
 
 
@@ -190,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631258.jpg" />
 </div>
 
 
@@ -217,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631255.jpg" />
 </div>
 
 
@@ -243,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631248.jpg" />
 </div>
 
 
@@ -269,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630937.jpg" />
 </div>
 
 
@@ -295,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630924.jpg" />
 </div>
 
 
@@ -321,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630384.jpg" />
 </div>
 
 
@@ -347,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630379.jpg" />
 </div>
 
 
@@ -373,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630264.jpg" />
 </div>
 
 
@@ -399,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630238.jpg" />
 </div>
 
 
@@ -425,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630169.jpg" />
 </div>
 
 
@@ -451,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630158.jpg" />
 </div>
 
 
@@ -477,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630153.jpg" />
 </div>
 
 
@@ -503,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630037.jpg" />
 </div>
 
 
@@ -530,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629942.jpg" />
 </div>
 
 
@@ -542,136 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A1BE7CDEC34290FD6E67D5BB09BF6777F7FD04F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682483   (629861) от 23.07.2013
-
-Риф / The Reef 2: High Tide (2012) BDRip [720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пай живет на прекрасном коралловом Рифе, а по соседству обитают сотни злобных акул. Пай — единственный на Рифе, кто уверен, рано или поздно акулы атакуют и нужно быть готовым за себя постоять. Жители Рифа всегда мирно соседствовали с акулами и не планируют ни с кем воевать. Пай пытается организовать занятия по самообороне, но на них никто не приходит, и ему приходится (   Читать дальше...   )Жанр: мультфильм, мюзикл, семейныйРежиссер: Марк А.З. Диппе, Тадонг ПакПерсонажи: Дрейк Белл, Энди Дик, Фрэн Дрешер, Фрэнки Джонас, Джейми Кеннеди, Донал Лог, Бизи Филиппс, Роб Шнайдер, Стефен Стэнтон, Мэттью УиллигПеревод: ДублированныйЯзык субтитров: ОтсутствуютПродолжительность: 01:20:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D739D385A468F2D5DD130E221EAA864C99BF530
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229082   (629842) от 04.06.2018
-
-Зверопой / Sing (2016) DVD9
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629842.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире, который населяют звери, коала по имени Бастер Мун изо всех сил пытается предотвратить закрытие своего театра. В итоге Бастер и его друг, баран Эдди, устраивают конкурс певцов, предлагая принять участие каждому жителю города.Производство: Япония, США / Universal Pictures, Illumination Entertainment, Fuji Television Network Inc., DentsuЖанр: Мультфильм, мюзикл, комедия, семейный, музыкаРежиссер: Гарт Дженнингс, Кристоф ЛурделеПерсонажи: Мэттью МакКонахи, Риз Уизерспун, Сет МакФарлейн, Скарлетт Йоханссон, Джон Си Райли, Тэрон Эджертон, Тори Келли, Дженнифер Сондерс, Дженнифер Хадсон, Гарт ДженнингсПеревод: Дублированный (лицензия)Субтитры: Русские, английские, эстонские, латышские, литовскиеПродолжительность: 01:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:566F10B521B41B5963A228A9D79A8055A4114E3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229092   (629837) от 04.06.2018
-
-Зверопой / Sing (2016) DVD5 [Custom]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629837.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире, который населяют звери, коала по имени Бастер Мун изо всех сил пытается предотвратить закрытие своего театра. В итоге Бастер и его друг, баран Эдди, устраивают конкурс певцов, предлагая принять участие каждому жителю города.Производство: Япония, США / Universal Pictures, Illumination Entertainment, Fuji Television Network Inc., DentsuЖанр: Мультфильм, мюзикл, комедия, семейный, музыкаРежиссер: Гарт Дженнингс, Кристоф ЛурделеПерсонажи: Мэттью МакКонахи, Риз Уизерспун, Сет МакФарлейн, Скарлетт Йоханссон, Джон Си Райли, Тэрон Эджертон, Тори Келли, Дженнифер Сондерс, Дженнифер Хадсон, Гарт ДженнингсПеревод: Дублированный (лицензия)Субтитры: Русские, английские, эстонские, латышские, литовскиеПродолжительность: 01:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:663EEF615848F852873C0BE0EA7897AEC8851EC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294263   (629633) от 07.04.2019
-
-Астерикс и тайное зелье / Asterix: Le secret de la potion magique (2018) BDRip 3D [H.264/1080p-LQ] [вертикальная анаморфная стереопара] [hand made 16:9]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Могучие галлы издревле черпали силу в секретном напитке, который готовил великий старец. Но пришла беда, откуда не ждали — почтенный друид свалился с дерева и сломал обе ноги. Теперь Астериксу и Обеликсу предстоит отправиться в опасное путешествие, чтобы отыскать нового друида, достойного постичь рецепт тайного зелья.Производство: Франция, M6 Studio, M6 Films, Les Editions Albert RenéЖанр: Комедия, Семейный, ПриключенияРежиссер: Александр Астье, Луи КлишиАктеры: Astérix - Кристиан Клавье (Иван Калинин), Obélix - Гийом Бриа (Алексей Колган), Teleferix - Алекс Лутц (Евгений Толоконников), Cubitus - Эли Семун (Александр Скиданов), Sulfurix - Даниэль Месгиш (Олег Зима), Panoramix - Бернар Алан (Игорь Ясулович), Ordralfabétix - Франсуа Морель (Владимир Паляница), Cetautomatix - Лионель Астье (Денис Беспалый), Bonemine (   Читать дальше...   )Перевод: ДублированныйСубтитры: русские (полные)Продолжительность: 01:24:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDBB855A801C56628F34817434772CA1796E4D7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294356   (629617) от 07.04.2019
-
-Астерикс и тайное зелье / Asterix: Le secret de la potion magique (2018) BDRip [H.264/1080p-LQ] [hand made 16:9]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629617.jpg" />
-</div>
-
-
-###  Подробнее
-
-Могучие галлы издревле черпали силу в секретном напитке, который готовил великий старец. Но пришла беда, откуда не ждали — почтенный друид свалился с дерева и сломал обе ноги. Теперь Астериксу и Обеликсу предстоит отправиться в опасное путешествие, чтобы отыскать нового друида, достойного постичь рецепт тайного зелья.Производство: Франция, M6 Studio, M6 Films, Les Editions Albert RenéЖанр: Комедия, Семейный, ПриключенияРежиссер: Александр Астье, Луи КлишиАктеры: Astérix - Кристиан Клавье (Иван Калинин), Obélix - Гийом Бриа (Алексей Колган), Teleferix - Алекс Лутц (Евгений Толоконников), Cubitus - Эли Семун (Александр Скиданов), Sulfurix - Даниэль Месгиш (Олег Зима), Panoramix - Бернар Алан (Игорь Ясулович), Ordralfabétix - Франсуа Морель (Владимир Паляница), Cetautomatix - Лионель Астье (Денис Беспалый), Bonemine (   Читать дальше...   )Перевод: ДублированныйСубтитры: русские (полные)Продолжительность: 01:24:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F282343AB35FD703A7CF13871357245AE4F2763A
 ```
 
 https://mybot314.ru/tekegram_catalog/

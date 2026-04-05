@@ -6,7 +6,7 @@ BBC: Дикая Африка и Маленькие гиганты / Wild Africa 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587015.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ NGW: Дикие охотники. Змеи / Wild Hunters. Snakes (2019) HDTV [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586168.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ NG: Миссия Плутон (Встреча с Плутоном) / Mission Plu
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585749.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585586.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Animal Planet: В дикие края с Эваном. Киты и акулы / 
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585103.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ BBC: Галапагосы / Galapagos (2006) HDTVRip [720p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_584600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_584600.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ BBC: Прогулки с чудовищами / Walking with Beasts (2001) 2хDV
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_584590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_584590.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Discovery: Под Нью Йорком / UnderNew York (2008) IPTVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584136.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Discovery: Спасение подлодки - Специальный выпус
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584050.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Animal Planet: Cинее царство (Лазурная страна). Кит�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583816.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ BBC: Мир природы. Бабочки. Британская страсть 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583811.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Discovery: Любитель опасностей / Dangerman (2004) IPTVRip [4 �
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583094.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Animal Planet: Дикие реки Африки / Wild Africa. Rivers of Life (2
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582972.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ BBC: Секреты Рейха. Тайны нацизма / BBC: Secrets of Worl
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_582557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_582557.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582055.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580913.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580873.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ NG: Секретные материалы древности: Меч в камн
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580813.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ BBC. Планета людей - Арктика / Human planet - Arctic (2011) H
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580799.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Discovery: Разрушители легенд. Шпионские машины 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580785.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ BBC. Освенцим (Аушвиц): Нацисты и «Окончательн
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579798.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ NG: Секретные материалы древности: На заре ци
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579748.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ NG: Секретные материалы древности. Содом и Го
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579710.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ BBC: Как искусство сотворило мир / How Art Made the Worl
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_579698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_579698.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ BBC: Всемирная история живописи / Sister Wendy’s Story
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_579620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_579620.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ BBC: Встреча с Ураном / Horizon. Uranus Encounter (1986) VHSRip [E
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578927.jpg" />
 </div>
 
 

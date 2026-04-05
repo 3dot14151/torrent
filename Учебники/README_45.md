@@ -1,3 +1,58 @@
+###  Публикация: 1543825   (627354) от 12.04.2022
+
+А.Н. Фомичев | Исследование систем управления (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627354.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебнике комплексно изложены основные проблемные вопросы теории, методологии и практики исследования систем управления, предложены возможные варианты их решения, обозначены перспективы развития данного направления менеджмента в современных социально-экономических условиях.
+Для студентов высших учебных заведений, обучающихся по программам бакалавриата, а также для (   Читать дальше...   )Жанр: МенеджментФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D18148DEC8D5ACE0DF4C0A6C7E149882F1282BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144540   (627226) от 22.06.2017
+
+Ю.С. Соколова, С.Ю. Жулева | Разработка приложений в среде Delphi. Части 1, 2
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга отличается доступностью изложения с содержит большое количество примеров, предназначенных для быстрого освоения основных методов создания приложений различного уровня сложности. Предполагается, что читатель знаком со средой программирования языка Object Pascal Delphi и имеет опыт разработки проектов.
+
+Для студентов вузов, обучающихся по специальности 230105 (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28F6408EDB055535CB7B67C982FD4B3BAA22EEEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035587   (626503) от 17.07.2016
 
 Ю.Б. Кудасов | Электрофизические измерения (2010) [PDF]
@@ -6,7 +61,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626503.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624336.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624242.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623940.jpg" />
 </div>
 
 
@@ -111,7 +166,7 @@ Tektronix | Генераторы сигналов от А до Я (2008) [PDF]
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623839.jpg" />
 </div>
 
 
@@ -138,7 +193,7 @@ Tektronix | Пробники от А до Я (2013) [PDF]
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623546.jpg" />
 </div>
 
 
@@ -164,7 +219,7 @@ Tektronix | Осциллографы. Основные принципы изме
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623531.jpg" />
 </div>
 
 
@@ -190,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623530.jpg" />
 </div>
 
 
@@ -217,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623518.jpg" />
 </div>
 
 
@@ -243,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622617.jpg" />
 </div>
 
 
@@ -269,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622615.jpg" />
 </div>
 
 
@@ -296,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622523.jpg" />
 </div>
 
 
@@ -323,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622199.jpg" />
 </div>
 
 
@@ -350,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622115.jpg" />
 </div>
 
 
@@ -377,7 +432,7 @@ Tektronix | Основные сведения о логических анали
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622109.jpg" />
 </div>
 
 
@@ -404,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622017.jpg" />
 </div>
 
 
@@ -430,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621775.jpg" />
 </div>
 
 
@@ -456,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620596.jpg" />
 </div>
 
 
@@ -482,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620243.jpg" />
 </div>
 
 
@@ -509,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620238.jpg" />
 </div>
 
 
@@ -535,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620107.jpg" />
 </div>
 
 
@@ -561,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620045.jpg" />
 </div>
 
 
@@ -587,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619973.jpg" />
 </div>
 
 
@@ -613,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619902.jpg" />
 </div>
 
 
@@ -625,60 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16DE3EBAE60D039E3825CFE979C5C064CB46A696
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145641   (619704) от 26.06.2017
-
-А.В. Росляков | Зарубежные и отечественные платформы сетей NGN (2015) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены принципы построения, применения и проектирования оборудования зарубежных и отечественных коммуникационных платформ, используемых для построения сетей связи следующего поколения NGN. Обобщена и систематизирована информация о мультисервисных платформах NGN на базе гибких коммутаторов (softswitch).
-Материал по каждой платформе NGN представлен по однотипной (   Читать дальше...   )Жанр: Сетевые технологииФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:429FE7F0361BBC67CA69A740EE998E3D9D5723CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910800   (619697) от 21.06.2015
-
-Е.И. Гольдштейн, П.Ф. Коробко | Теория решения изобретательских задач (2009) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619697.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии рассмотрены основные вопросы курса "Теория решения изобретательских задач". Отличительной чертой пособия является его практическая направленность - приводится большое количество конкретных примеров защиты различных видов интеллектуальной собственности: патентов на изобретение, на полезную модель и др.
-Предназначено для студентов ВУЗов. (   Читать дальше...   )Жанр: Учебная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E083B7147B2A9A0A840C544D1E682EEECB04C67A
 ```
 
 https://mybot314.ru/tekegram_catalog/

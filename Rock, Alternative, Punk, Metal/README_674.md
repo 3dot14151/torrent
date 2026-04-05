@@ -1,3 +1,32 @@
+###  Публикация: 1574764   (381660) от 07.09.2022
+
+Naked Soldier - Naked Soldier (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Green Pool (00:03:19)
+02 - No Option (00:03:58)
+03 - Embrace the Chaos (00:04:19)
+04 - Wicked Man (00:04:16)(   Читать дальше...   )Жанр: Stoner Rock, Doom MetalПродолжительность: 00:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B16B316875243E82992CE5444FFE9434600819B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574738   (381659) от 07.09.2022
 
 Mirror To The Moon - Fluorescent Glow (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Metal>
@@ -6,7 +35,7 @@ Mirror To The Moon - Fluorescent Glow (2022) [FLAC|Lossless|WEB-DL|tracks] <Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381659.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Born In Black - Moving out the Gate (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381658.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Existenter - 3 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Met
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381656.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Drifting Sun - Twighlight (2017) [FLAC|Lossless|image + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381654.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Sedate Illusion - 4 Albums (2014-2022) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381652.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Flight Paths - American Renaissance (2022) [FLAC|Lossless|WEB-DL|tracks] <Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381648.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Soilwork - Övergivenheten (Overgivenheten) (2022) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381646.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Monster Truck - 3 Albums (2013-2018) [FLAC|Lossless|image + .cue] <Hard Rock, So
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381623.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Mojo Wizard - Butter Drippin' Dream (2020) [FLAC|Lossless|WEB-DL|tracks] <Stoner
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381603.jpg" />
 </div>
 
 
@@ -270,7 +299,7 @@ Rise to the Sky - Will Not Keep Us Apart (2020) [FLAC|Lossless|WEB-DL|tracks] <A
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381601.jpg" />
 </div>
 
 
@@ -299,7 +328,7 @@ KNEEL - AILMENT (2020) [MP3|320 Kbps] <Metalcore, Experimental Metal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381600.jpg" />
 </div>
 
 
@@ -328,7 +357,7 @@ Motionless In White - Creatures (2010) Deluxe Edition, Remaster, 2020, Fearless 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381591.jpg" />
 </div>
 
 
@@ -357,7 +386,7 @@ Crippled Black Phoenix - Banefyre (2022) [MP3|320 Kbps] <Progressive Post, Folk,
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381562.jpg" />
 </div>
 
 
@@ -386,7 +415,7 @@ It's A Beautiful Day - Pacific High Recording Studios (1971) live, 2022, Pacific
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381549.jpg" />
 </div>
 
 
@@ -415,7 +444,7 @@ Burning Point - The Blaze (2016) [FLAC|Lossless|image + .cue] <Melodic Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381542.jpg" />
 </div>
 
 
@@ -444,7 +473,7 @@ Saltatio Mortis - Für immer frei (2020) [FLAC|Lossless|WEB-DL|tracks] <Folk Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381455.jpg" />
 </div>
 
 
@@ -473,7 +502,7 @@ Motorhead - On Parole (1979) Expanded and Remastered, 2020, Parlophone UK [FLAC|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381426.jpg" />
 </div>
 
 
@@ -502,7 +531,7 @@ Wine From Tears - I'm Fine (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381423.jpg" />
 </div>
 
 
@@ -531,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381379.jpg" />
 </div>
 
 
@@ -560,7 +589,7 @@ Plunk Tone - Комплекс Мессии (2009) [FLAC|Lossless|tracks + .cue] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381257.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ Kamelot - Ghost Opera (Limited Edition) (2007) [MP3|320 кб/с]<Power Metal / S
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381227.jpg" />
 </div>
 
 
@@ -624,7 +653,7 @@ Mendelbaum - Mendelbaum (1969-70) Compilation, 1991, Shadoks Music, 2CD [MP3|320
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381178.jpg" />
 </div>
 
 
@@ -653,7 +682,7 @@ Southern Gentlemen - S G Double 20 (2020) [MP3|320 Kbps] <Hard Rock, Blues Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381177.jpg" />
 </div>
 
 
@@ -682,7 +711,7 @@ Mark Boals & Ring Of Fire - All The Best! (2020) 2xCD [MP3|320 Kbps] <Melodic He
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381169.jpg" />
 </div>
 
 
@@ -711,7 +740,7 @@ Wings - Wings Greatest (1978) [MP3|256 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381110.jpg" />
 </div>
 
 
@@ -731,35 +760,6 @@ Wings - Wings Greatest (1978) [MP3|256 кб/с]<Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62E2FBD407C54A2F3B091172DA44B4157F147423
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326985   (381089) от 22.09.2019
-
-Apocalypse Orchestra - The End Is Nigh (2017) [FLAC|Lossless|image + .cue] <Doom Metal, Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Garden Of Earthly Delights (8:40)
-02. Pyre (6:33)
-03. Flagellants' Song (8:23)
-04. Exhale (7:34)(   Читать дальше...   )Жанр: Doom Metal, Folk MetalПродолжительность: 00:59:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A35C0E6CC09311571FDAE6E62316DE1C8F6F9FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

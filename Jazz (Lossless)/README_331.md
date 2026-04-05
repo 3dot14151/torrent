@@ -6,7 +6,7 @@ Herbie Mann's Californians - Great Ideas Of Western Mann (1957) 2001, Original J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106582.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Stan Getz - Four Classic Albums (1955 - 1961) 2CD, 2012, Avid Jazz [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106579.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Renato Sellani Trio - Grand Piano: The Music Of Michel Legrand (2010) Philology 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106569.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Milt Jackson - To Bags... With Love: Memorial Album (1954 - 1983) 2000, Pablo Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106556.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ The Ex-Hermanites - The Ex-Hermanites (1957) 2001, V.S.O.P. Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106555.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Eddie Reed Big Band - Hollywood Jump (1997) Royal Big Mac Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106551.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Nat Adderley - Introducing Nat Adderley (1955) 2001, Verve Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106522.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Anne Sajdera - New Year (2018) Bijuri Records [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106521.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Nat Adderley Quintet - The Old Country (1990) 1992, Enja Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106520.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Idyllic Vacation Tranquil Vacation Getaway Instrumentals for Leisure and Pl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106517.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Idyllic Vacation Chilly Lounge Vacation Getaway Instrumentals for Leisure a
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106516.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ T.S. Monk - Take One (1992) Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106499.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ John Patton - Soul Connection (1983) 2008, Just A Memory [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106498.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Junior Mance - Holy Mama (1976) 2008, Test Of Time Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106494.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ T.S. Monk - Changing Of The Guard (1993) Blue Note [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106493.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Lorne Lofsky, Guido Basso, Joey DeFrancesco, Vito Rezza - Alma Records Presents 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106479.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ T.S. Monk - The Charm (1995) Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106441.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ George Benson & The Robert Farnon Orchestra - Dreams Do Come True: When George B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106408.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Junior Mance - Harlem Lullaby & I Believe To My Soul (1967, 1968) 2000, Collecta
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106403.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Bud Powell - The Complete RCA Trio Sessions (1956, 1957) 2009, EJC [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106359.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Richard "Groove" Holmes - Groove (1961) 1990, Pacific Jazz [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106356.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Saxtribution - Refreshing Soothing Saxophone Classics (2024) [FLAC|Lossless|WEB-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106296.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Saxtribution - Relaxing Smooth Saxophone Tunes (2024) [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106294.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ The Swing Bot - Tournedisc (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106290.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Richard "Groove" Holmes - Comin' On Home (1971) 2002, Blue Note [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106289.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Richard "Groove" Holmes - Legends Of Acid Jazz: Spicy (1966) 1999, Prestige [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106279.jpg" />
 </div>
 
 

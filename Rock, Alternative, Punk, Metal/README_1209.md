@@ -1,3 +1,38 @@
+###  Публикация: 450687   (75544) от 11.02.2012
+
+Alice Cooper - 12 Albums (1969 -1978) Mini LP SHM-CD / 2011, Warner Music Japan / [FLAC|Lossless]<Rock / Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы:
+1969 - Pretties For You (SHM-CD WPCR-14299)
+1970 - Easy Action (SHM-CD WPCR-14300)
+1971 - Love It To Death (SHM-CD WPCR-14301)
+1971 - Killer (SHM-CD WPCR-14302)
+1972 - School's Out (SHM-CD WPCR-14303)
+1973 - Billion Dollar Babies (SHM-CD WPCR-14304)
+1973 - Muscle Of Love (SHM-CD WPCR-14305)
+1975 - Welcome To My Nightmare (SHM-CD WPCR-14306)
+1977 - Goes To Hell (SHM-CD WPCR-14307)(   Читать дальше...   )Жанр: Rock / Hard Rock / Glam Rock / Shock RockПродолжительность: 07:52:23
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 450806   (75459) от 11.02.2012
 
 Мумий Тролль - Большая Российская Музыкальная Энциклопедия (2000) [APE|image + .cue]<Rock>
@@ -6,7 +41,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75459.jpg" />
 </div>
 
 
@@ -35,7 +70,7 @@ Carlos Santana - Multi Dimensional Warrior (2008) [FLAC|Lossless]<Rock, Bluers R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75259.jpg" />
 </div>
 
 
@@ -70,7 +105,7 @@ The Cranberries - Tomorrow [Single] (2012) [MP3|256 kbps]<Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75213.jpg" />
 </div>
 
 
@@ -97,7 +132,7 @@ Bleeding Through - The Great Fire (2012) [FLAC|Lossless]<Symphonic Metalcore / H
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75211.jpg" />
 </div>
 
 
@@ -132,7 +167,7 @@ System of a Down - Mezmerize (2005) [FLAC|Lossless]<Nu-Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74893.jpg" />
 </div>
 
 
@@ -161,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74528.jpg" />
 </div>
 
 
@@ -187,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74456.jpg" />
 </div>
 
 
@@ -213,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_73977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73977.jpg" />
 </div>
 
 
@@ -242,7 +277,7 @@ Kittie - Дискография [6 Альбомов, 3 Ep] (1999-2011) [MP3|320 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_73073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73073.jpg" />
 </div>
 
 
@@ -268,7 +303,7 @@ Venom - Canadian Assault (2024) [FLAC|Lossless|WEB-DL|tracks] <NWOBHM, Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71973.jpg" />
 </div>
 
 
@@ -297,7 +332,7 @@ Aillion - Война Миров (2015) [FLAC|Lossless|tracks] <Melodic Heavy Met
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71970.jpg" />
 </div>
 
 
@@ -326,7 +361,7 @@ Lord Agheros - Anhedonia (2025) [FLAC|Lossless|WEB-DL|tracks] <Italian ambient b
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71943.jpg" />
 </div>
 
 
@@ -355,7 +390,7 @@ Pacho Brea - 4CD (2013-2019) [FLAC|Lossless|image + .cue] <Melodic Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71919.jpg" />
 </div>
 
 
@@ -384,7 +419,7 @@ Reminor - 2 альбома (2011-2013) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71916.jpg" />
 </div>
 
 
@@ -413,7 +448,7 @@ WhoreMother - Slayed in Poland (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71915.jpg" />
 </div>
 
 
@@ -442,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71914.jpg" />
 </div>
 
 
@@ -471,7 +506,7 @@ Saedin - Entre Rios (2020) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71911.jpg" />
 </div>
 
 
@@ -500,7 +535,7 @@ Big One - Pink floyd Show (2006) [MP3|320 Kbps] <Rock, Alt Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71893.jpg" />
 </div>
 
 
@@ -529,7 +564,7 @@ Nazty Gunz - Hot Mess (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71885.jpg" />
 </div>
 
 
@@ -558,7 +593,7 @@ Post Meridiem - Академистика (2015) [MP3|256 Kbps] <Hard Rock, Heavy
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71881.jpg" />
 </div>
 
 
@@ -587,7 +622,7 @@ Wolf Rahm - Фольклорище (2014) [FLAC|Lossless|image + .cue] <Folk Met
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71877.jpg" />
 </div>
 
 
@@ -616,7 +651,7 @@ Noirad - Aegean Legacy (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71869.jpg" />
 </div>
 
 
@@ -645,7 +680,7 @@ Kamanchaka Iquique - Esmeralda (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71868.jpg" />
 </div>
 
 
@@ -674,7 +709,7 @@ Enchanted Steel - Might and Magic (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71866.jpg" />
 </div>
 
 
@@ -703,7 +738,7 @@ Reog - Reog (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71849.jpg" />
 </div>
 
 
@@ -717,35 +752,6 @@ Reog - Reog (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7143FEB21D227CF656E896FCD4697168526412C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771573   (71824) от 07.01.2025
-
-Ecclesia - Ecclesia Militans (2024) [FLAC|Lossless|image + .cue] <Doom, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vade Retro
-02. If She Floats
-03. Et Cum Spiritu Tuo
-04. Antecclesia(   Читать дальше...   )Жанр: Doom, Heavy MetalПродолжительность: 00:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E542D1F5384603FF8CB65DE3E701AF3A89438E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

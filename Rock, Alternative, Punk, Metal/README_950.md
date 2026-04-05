@@ -1,3 +1,32 @@
+###  Публикация: 1586752   (215838) от 27.10.2022
+
+Bon Jovi - Have A Nice Day (2005) [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Have A Nice Day
+02. I Want To Be Loved
+03. Welcome To Wherever You Are
+04. Who Says You Can't Go Home(   Читать дальше...   )Жанр: Rock, Hard Rock, Pop RockПродолжительность: 00:53:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7C0B24EC73F7486C70E312889BB3A8280527E26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1586465   (215822) от 27.10.2022
 
 Техногион - Тамахаганэ (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
@@ -6,7 +35,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215822.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Crimson - Black Carpet (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215794.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Debauchery - Back in Blood (2007) Reissue, 2021, Fono [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215764.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Electric Light Orchestra - A New World Record (1976) Remastered, 2006, 30th Anni
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215692.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Corners Of Sanctuary - Blood And Steel: Fight Till The End (2021) [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215664.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Geist - Kainsmal (2006) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_215642.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Dr. Feelgood - Classic (1988) [FLAC|Lossless|tracks + .cue]<Pub Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215636.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Eliminator - The One They Were Waiting For (2011) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_215635.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Eliminator - And the Brokenhearted Balladeers (2011) [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_215629.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ The Cars & Ric Ocasek - 15 Studio Albums (1978 - 2011) CD [MP3|320 Kbps] <Electr
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215564.jpg" />
 </div>
 
 
@@ -297,7 +326,7 @@ M-Hunter - 2 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215555.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215540.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Richard Soucy - Freedom (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_215530.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Sorg - Norðandrekar (2022) [FLAC|Lossless|WEB-DL|tracks] <Viking Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215519.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Etreum - Evolucion (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_215472.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Enuff Z'Nuff - 1985 (1994) [FLAC|Lossless|image + .cue] <Rock, Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_215420.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Cordovas - The Rose of Aces (2023) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_215388.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Asia - Resonance (2010) The Omega Tour 2010 - Live In Basel, Switzerland, 4th Ma
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_215363.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Various Artists - Immortal Randy Rhoads - The Ultimate Tribute (2015) [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_215328.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Unanimated - Annihilation (2018) EP [FLAC|Lossless|image + .cue] <Melodic Death,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215208.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Mountaineer - Bloodletting (2020) [FLAC|Lossless|tracks + .cue] <Post Metal, Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215168.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Chris Norman - Just A Man (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Soft R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215144.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Communic - Hiding from the World (2020) [MP3|320 Kbps] <Progressive Metal, Power
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215136.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Motorhead - Unreleased Track (1990) Japan [APE|Lossless|image + .cue] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215109.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Armored Saint - Punching The Sky (2020) [FLAC|Lossless|image + .cue] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215072.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Armored Saint - Punching The Sky (2020) [FLAC|Lossless|image + .cue] <Heavy Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4BDFB46D130C274AFFB59F334C5F87BFA9529F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426337   (215045) от 24.11.2020
-
-The Samurai Of Prog - Beyond The Wardrobe (2020) [FLAC|Lossless|image + .cue] <Progressive Rock, Symphonic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another Time (6:23)
-02. Dear Amadeus (8:53)
-03. King of Spades (5:55)
-04. Forset Rondo (5:51)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 00:55:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F5026BE9540FB3E3E31959C1F64E9CF3162C6C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

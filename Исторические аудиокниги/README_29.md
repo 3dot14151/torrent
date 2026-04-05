@@ -1,57 +1,3 @@
-###  Публикация: 1576151   (370836) от 12.09.2022
-
-Исабель Альенде | Зорро (2022) [MP3, Нона Трояновская]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исабель Альенде называют королевой магического реализма и достойной продолжательницей традиций Маркеса. В романе 2005 года главным героем становится неожиданный персонаж – красавец и авантюрист, герой многочисленных книг, фильмов и комиксов: дон Диего де ла Вега по прозвищу Зорро. Писательница создает настоящую литературную биографию вымышленного персонажа, погружая (   Читать дальше...   )Жанр: Исторические приключенияПродолжительность: 14:16:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BD19931D64E2C8FFC5FA8B1BA84D7B6BEF6A80E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254798   (370284) от 15.10.2018
-
-Уолтер Айзексон | Леонардо да Винчи (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исчерпывающее исследование жизни и творчества Леонардо да Винчи. Фантастические открытия, гениальные прозрения, великие шедевры и невероятные повороты судьбы одного из самых выдающихся ученых и художников в истории человечества.
-Леонардо да Винчи – один из самых ярких, разносторонних и загадочных гениев эпохи Возрождения.
-Вокруг него уже при жизни сложилось огромное (   Читать дальше...   )Жанр: Биографии и мемуарыПродолжительность: 21:46:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83278C5EE7916458DB19018D4A017ADB7DDC9AD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 721569   (369053) от 12.11.2013
 
 Борис Акунин | История Российского Государства (Том 1). От истоков до монгольского нашествия (2013) [MP3, Александр Клюквин]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369053.jpg" />
 </div>
 
 
@@ -87,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367981.jpg" />
 </div>
 
 
@@ -113,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367489.jpg" />
 </div>
 
 
@@ -139,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366177.jpg" />
 </div>
 
 
@@ -168,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364472.jpg" />
 </div>
 
 
@@ -194,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363857.jpg" />
 </div>
 
 
@@ -221,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363632.jpg" />
 </div>
 
 
@@ -247,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362851.jpg" />
 </div>
 
 
@@ -273,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361370.jpg" />
 </div>
 
 
@@ -299,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360218.jpg" />
 </div>
 
 
@@ -325,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357135.jpg" />
 </div>
 
 
@@ -351,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356380.jpg" />
 </div>
 
 
@@ -377,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354585.jpg" />
 </div>
 
 
@@ -403,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352257.jpg" />
 </div>
 
 
@@ -430,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349938.jpg" />
 </div>
 
 
@@ -456,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349860.jpg" />
 </div>
 
 
@@ -484,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349553.jpg" />
 </div>
 
 
@@ -510,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349098.jpg" />
 </div>
 
 
@@ -536,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348058.jpg" />
 </div>
 
 
@@ -564,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347921.jpg" />
 </div>
 
 
@@ -592,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347608.jpg" />
 </div>
 
 
@@ -618,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347607.jpg" />
 </div>
 
 
@@ -647,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347515.jpg" />
 </div>
 
 
@@ -673,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346448.jpg" />
 </div>
 
 
@@ -684,6 +630,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00C2F339B2C57AB563B9E20598908E5007CC9506
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578571   (345691) от 23.09.2022
+
+Олег Соколов | Плащ и шпага. Испанская война и тайна тамплиеров (2022) [MP3, Вячеслав Задворных]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам нравятся "Три мушкетера", "Двадцать лет спустя", "Приключения капитана Алатристе"?
+Значит книга, которую вы держите в руках, написана именно для вас!
+В этом романе бурные события Испанской войны Наполеона причудливо переплетаются с таинственной историей поиска сокровищ тамплиеров и страстным любовным романом. Всё это — и любовная (   Читать дальше...   )Жанр: Исторические приключенияПродолжительность: 13:53:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5151D9EA5407EBDA10C464B830EB03DB5ED15ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330415   (341295) от 10.10.2019
+
+Владимир Муравьёв | Карамзин (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Николай Михайлович Карамзин — великий российский историк и писатель, реформатор отечественной словесности. Создатель бессмертной повести «Бедная Лиза», он не только положил начало новому литературному направлению — сентиментализму, но и определил дальнейшие пути развития отечественной литературы. Однако главным трудом всей его жизни по праву считается двенадцатитомная (   Читать дальше...   )Жанр: Биографии и мемуарыПродолжительность: 22:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64830A864B8FC19B361F85C70D235D192616FC4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

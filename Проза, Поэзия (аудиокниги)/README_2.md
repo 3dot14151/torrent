@@ -1,3 +1,57 @@
+###  Публикация: 1840100   (1047005) от 02.12.2025
+
+Митчелл Уилсон | Брат мой, враг мой (2025) [MP3, Александр Чернов]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1047005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гениальность, предательство и любовь – что окажется сильнее?
+История братьев-изобретателей, которые прошли через предательство, жестокий выбор и внутренние конфликты на пути к великому открытию.
+Братья Дэви и Кен Мэллори – будущие изобретатели телевидения, страстно увлеченные своей работой. Им не раз предстоит натолкнуться на высокомерные отказы потенциальных спонсоров, (   Читать дальше...   )Жанр: Проза, драма, социальноеИздательство: АСТПродолжительность: 18:18:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:073109608B15B442FF0107C2AD2E229EE3D88C48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601701   (1046420) от 01.01.2023
+
+Дина Рубина | Когда же пойдёт снег? (2010) [MP3, Дина Рубина]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046420.jpg" />
+</div>
+
+
+###  Подробнее
+
+Литературную известность Дине Рубиной принесла публикация в 1977-м году в журнале «Юность» повести «Когда же пойдёт снег?..». В ней девочка встречает свою любовь накануне смертельно опасной операции… По этому произведению был снят фильм, поставлены теле- и радиоспектакль, написана пьеса, которая много лет шла на сцене Московского ТЮЗа. А теперь вы можете прослушать (   Читать дальше...   )Жанр: современная русская литератураПродолжительность: 01:30:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18C6ED4C6FEC64EDA6928EEDB694860384E8D5BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601847   (1046331) от 02.01.2023
 
 Марина Степнова | Хирург (2020) [MP3, Алексей Багдасаров]
@@ -6,7 +60,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046331.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046328.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046325.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046205.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045852.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045847.jpg" />
 </div>
 
 
@@ -162,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045756.jpg" />
 </div>
 
 
@@ -190,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045750.jpg" />
 </div>
 
 
@@ -216,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045749.jpg" />
 </div>
 
 
@@ -242,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045679.jpg" />
 </div>
 
 
@@ -270,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045331.jpg" />
 </div>
 
 
@@ -296,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044542.jpg" />
 </div>
 
 
@@ -324,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044141.jpg" />
 </div>
 
 
@@ -350,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044061.jpg" />
 </div>
 
 
@@ -376,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044054.jpg" />
 </div>
 
 
@@ -402,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043035.jpg" />
 </div>
 
 
@@ -428,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042268.jpg" />
 </div>
 
 
@@ -454,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039603.jpg" />
 </div>
 
 
@@ -480,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038871.jpg" />
 </div>
 
 
@@ -506,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038515.jpg" />
 </div>
 
 
@@ -532,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038255.jpg" />
 </div>
 
 
@@ -560,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038122.jpg" />
 </div>
 
 
@@ -586,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037856.jpg" />
 </div>
 
 
@@ -612,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037855.jpg" />
 </div>
 
 
@@ -623,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BF06D95FB94EF4E938F324C92257F0D014869E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615488   (1037583) от 26.02.2023
-
-Злата Романова | Жена чужого мужа. Счастье взаймы (2023) [MP3, Римма Макарова]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Булат Тагиров бросил меня, как неисправную игрушку, после нескольких лет счастливого, но бездетного брака, но через два года снова появился на моем пороге, раненный, с ребенком на руках. Всучив мне маленького кроху, бывший муж потребовал, чтобы я его сохранила, и исчез, пообещав вернуться за ним. Вот только я уже не хочу отдавать ему и его жене малыша, который стал (   Читать дальше...   )Жанр: РоманПродолжительность: 07:50:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:446720AE4ADB3F81B48F8A8CFEC034C81D186A58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441599   (1037476) от 22.01.2021
-
-Юрий Беккер | Свидетели самоизоляции (2021) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иногда мужчины становятся взрослыми, не достигнув и сорока… Иногда женщины не попадают в плен к принцам из волшебных сказок и не различают оттенки серого, даже если их меньше пятидесяти… Иногда… Юрию Беккеру, казалось бы, нечего желать сверх того, что у него уже есть: молодая жена, собственный бизнес, уютная квартира в зеленом районе… но жизнь игнорирует романтические (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 12:16:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:471259F3D371F27BE30780B3A1D79DC273A2A5F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

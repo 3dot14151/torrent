@@ -1,3 +1,119 @@
+###  Публикация: 1257669   (343434) от 27.10.2018
+
+Ametsub - Discography 7 Releases (2006-2017) [FLAC|Lossless|tracks+.cue, tracks] <Glitch, IDM, Downtempo, Future Jazz, Experimental, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mbr / Northbound (06:00)
+ 02. Mbr / Mbirambient (05:45)
+ 03. Mbr / Ajisai (05:39)
+ 04. From The Mountain (06:34)(   Читать дальше...   )Жанр: IDM/Downtempo/AmbientПродолжительность: 00:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6E997E98D7E765D9E70824C34C81811C352A34B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257613   (343305) от 27.10.2018
+
+S:cage - Discography 2 Albums (2004-2006) Ant-Zen [FLAC|Lossless|tracks+.cue] <Rhythmic Noise, Industrial, Ambient>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Madness (13:38)
+ 02. Vapour (06:05)
+ 03. Collapsing Breath (06:10)
+ 04. Gone (Undone) (05:37)(   Читать дальше...   )Тип издания: CD •Жанр: Rhythmic Noise, Industrial, Ambient •Продолжительность: 01:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D212C8BCF4DAF060BBB5D2AF80339B6704804908
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257623   (343299) от 27.10.2018
+
+end.user - Resurface (2018) Hands Productions [FLAC|Lossless|WEB-DL|tracks] <Drum n Bass, Breakcore>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Resurface (05:02)
+ 02. A Bell In Hell (04:32)
+ 03. A Familiar Face (03:57)
+ 04. Rotation (feat. 2methyl) (04:27)(   Читать дальше...   )Жанр: Drum n Bass, BreakcoreПродолжительность: 00:30:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:916F958E5C1324EB65E80B37278E51D85A98706C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073432   (343221) от 17.11.2016
+
+VA - Deep House Edition #003 (2016) [MP3|320 Kbps] <Deep House, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Damon Grey (Aka Lucas Reyes) - Don't Stop
+02. Dario Leone - Waiting for Tonight
+03. Gray - Falling Deeper
+04. Jaques Le Noir - Conger(   Читать дальше...   )Жанр: Deep House, Club HouseПродолжительность: 01:32:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08A084415864BAE50A7AD5476C5A2253A3A4965D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1073491   (343216) от 17.11.2016
 
 VA - Deep House Edition #004 (2016) [MP3|320 Kbps] <Deep House, Club House>
@@ -6,7 +122,7 @@ VA - Deep House Edition #004 (2016) [MP3|320 Kbps] <Deep House, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343216.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Deep House Top 50 (2016) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343052.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Deep House Edition #005 (2016) [MP3|320 Kbps] <Deep House, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343049.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Sylvgheist Maelstrom (Sylvgheist Maëlström) - Discography 4 Releases (2010-201
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342938.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Deru - Discography 12 Releases (2003-2018) [FLAC|Lossless|tracks+.cue, tracks] <
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342911.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Nothing But... The Future Of Trance Vol. 04 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342810.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Forever Dance (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342808.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Ghost And Tape - Vár (2017) Home Normal [FLAC|Lossless|WEB-DL|tracks] <Ambient,
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342807.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - New Grooves, Vol. 1 (25 Funky Lounge & Electronica) (2017) [MP3|320 Kbps] <
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342800.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Wonderful Chillout Lounge Music, Vol. 1 (2017) [MP3|320 Kbps] <Balearic, Do
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342795.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Chillout Music 2017, Vol. 1 (Mixed By Gerti Prenjasi) [MP3|320 Kbps] <Balea
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342787.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ hologram_ - Discography 6 Releases (2014-2017) Ant-Zen, Audiotrauma [FLAC|Lossle
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342652.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ The Seven Fields Of Aphelion - Discography 2 Releases (2010-2017) Graveface Reco
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342649.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - Psygressive Vol.1 (2017) [MP3|320 Kbps] <Psy-Trance>
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342526.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Brookes Brothers - Orange Lane (2017) LP [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342512.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - Recoverworld Radio 001 (Mixed by Rich Smith) (2015) [MP3|320 кб/с]<Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342416.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Scandroid - Monochrome (Instrumentals) (2017) [MP3|320 Kbps] <Synthpop, Synthwav
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342351.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Aeondelit - Editing Destiny (2020) Insurgentes [FLAC|Lossless|WEB-DL|tracks] <ID
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342203.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ David Moufang & Jordan Czamanski - Live in Seattle (2015) Further Records [FLAC|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342200.jpg" />
 </div>
 
 
@@ -555,7 +671,7 @@ David Moufang - Solitaire (1995) Fax +49-69/450464 [FLAC|Lossless|tracks+.cue] <
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342194.jpg" />
 </div>
 
 
@@ -584,7 +700,7 @@ TribalNeed - Capetown Sessions (2015) [FLAC|Lossless|tracks+.cue] <Deep House, D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342190.jpg" />
 </div>
 
 
@@ -613,7 +729,7 @@ VA - Cappuccino Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342045.jpg" />
 </div>
 
 
@@ -627,122 +743,6 @@ VA - Cappuccino Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FD91FD24F0A41E2C61AB43DCC9861DAE38F4EF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419230   (342042) от 27.10.2020
-
-VA - Ensancha El Alma Vol. 2 (2020) Ensancha El Alma Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient, Psy-Trance, Progressive Trance>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Androcell - Earth And Sky (09:17)
- 02. Lab's Cloud - Su Alma, Su Cuerpo Y Su Corazón (09:09)
- 03. Gaudi - In The Middle Of Bad And Good (05:51)
- 04. Mindsphere - Consciousness (07:11)(   Читать дальше...   )Жанр: Psybient, Downtempo, Ambient, Psy-Trance, Progressive TranceПродолжительность: 01:17:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4634C257C74EC27A4841F686018874ABEBD83BB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179976   (341955) от 03.11.2017
-
-ScAnDroid Experiment's - Outside the Atmosphere (2017) Авторская раздача [MP3|320 Kbps] <Experimental Electronic, Ambient, Drum'n'Bass>
-
->>Electronic
->>Experimental Electronic
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Almost Above the Clouds
-02. Light Sphere Surrounding World
-03. Calm Outer Space
-04. A Journey Into the Unknown(   Читать дальше...   )Жанр: Experimental Electronic, Ambient, Drum'n'BassПродолжительность: 01:13:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02D5DB0CCBE7B54CE3D31C5CB5218054FC981745
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419144   (341928) от 27.10.2020
-
-VA - Smooth Vocal Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Triangle Sun - Tonight (Original Mix)
-02. Lounge Groove Avenue - Take a Little Time
-03. Lazygrooves - Walk with Me (Original Mix)
-04. Marga Sol - Prayer for Love (Soul Avenue's Balearic Blues Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:20:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75585A1A7354EBE813423F2DB1335FC2FD2B2ABE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075039   (341647) от 27.10.2020
-
-Toytronic - Label-Pack 25 Releases (1997-2009) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Downtempo, Glitch, Leftfield, Electro, Ambient>
-
->>Electronic
->>Label-Packs
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Remember Now (07:28)
- 02. X Insert (06:03)
- 03. A Computer (09:02)
- 04. One Movie (03:47)(   Читать дальше...   )Жанр: IDM, Downtempo, Glitch, Leftfield, Electro, Abstract, Ambient •Продолжительность: 16:57:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7143E3BCCBA87AEB1C87E21914906FFDC79BA51
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Duplicate Photos Detective 1.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677151.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Capture One 22 Enterprise v15.2.0.69 Beta [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675014.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ HDR projects 5 professional v5.52 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672862.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Adobe InDesign CC 2014 (10.0.0.70) [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672737.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ TiltShift 1.0.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671059.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Bokeh - Focus with Background Blur Photo Effects 1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670078.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Glyphs 2.0.1 (727) [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669199.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Photo Batch 1.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667870.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Circular Studio 1.9 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667818.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ MediaChance Dynamic Auto Painter PRO 5.21 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665833.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ CorelDRAW Graphics Suite 2022 v24.0.0.301 (Incl. CorelDRAW Technical Suite 2022 
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664051.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Colol 1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663153.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Movavi Picverse Photo Editor 7.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661183.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Sketch 50.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659546.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ CollageIt 3 Pro 3.5.7 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656178.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Video Copilot Element 3D 2.0.7.2008 (Motion Design Bundle) for Mac [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656163.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Video Copilot - Heat Distortion 1.0.30 for Mac [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655110.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Image2icon - Make your icon‪s‬ 2.17 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655009.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Smart Shooter 4 v4.24 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654909.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ JPEG Jackal PRO 2.0.6 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652640.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Snapheal Pro 1.4 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651006.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ HDR Effect 1.11 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650755.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Adobe Animate CC 2015.2 (15.2.0.66) [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645351.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Adobe Illustrator CC 2015.3 (20.0.0) [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645151.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ PitStop Pro 11 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_642432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_642432.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ VSCO Film 01-07 in LUTs (cube, 3dl) for AE, PP and FCPX [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640964.jpg" />
 </div>
 
 

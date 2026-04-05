@@ -1,3 +1,56 @@
+###  Публикация: 1180972   (307676) от 14.11.2017
+
+Кровавая аллея / Blood Alley (1955) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307676.jpg" />
+</div>
+
+
+###  Подробнее
+
+Местные повстанцы спасают из рук китайских коммунистов капитана американского торгового судна и просят его помочь в осуществлении своего плана — угнать старый речной пароход и бежать на нём в Гонконг.Производство: США / Batjac Productions, Warner Bros. PicturesЖанр: Боевик, ПриключенияРежиссер: Уильям А. Уэллмен, Джон УэйнАктеры: Джон Уэйн, Лорен Бэколл, Пол Фикс, Джой Ким, Берри Крёгер, Майк Мазурки, Анита Экберг, Джордж Чан, Спенсер Чан, Дэнни ЧангПеревод: Многоголосый закадровый (Петербург 5-й канал)Субтитры: Русские, английскиеПродолжительность: 01:55:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A9342AA8348AC3B2ABD35C3D289B81C699987AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959088   (307241) от 28.11.2015
+
+Ворон / The Raven (1963) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пожилой маг Эрасмус Крэйвен, скорбящий вдовец, скучает дома в компании своей очаровательной дочки. Привычное семейное спокойствие нарушается появлением ворона, вернее, другого волшебника в образе ворона, который самым бесцеремонным образом требует сначала вина, а потом — чтобы его срочно превратили обратно в человека, а именно, в волшебника Адольфуса Бэдлоу.
+Превращение (   Читать дальше...   )Производство: США / Alta Vista ProductionsЖанр: Ужасы, Фэнтези, КомедияРежиссер: Роджер КорманАктеры: Винсент Прайс, Петер Лорре, Борис Карлофф, Хэйзел Корт, Олив Старгесс, Джек Николсон, Конни Уоллес, Уильям Баскин, Аарон Саксон, Джон ДиркесПеревод: Многоголосый, двуголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:26:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A509808A88128E99A524E018FEBB3D0DB73C2EBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 584161   (307190) от 04.12.2012
 
 Закон есть закон / La legge e legge (1958) DVDRip [H.264]
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307190.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307055.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306958.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306857.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306823.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306632.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306587.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306436.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305906.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305298.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305222.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305131.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304464.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304019.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304010.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303909.jpg" />
 </div>
 
 
@@ -427,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302925.jpg" />
 </div>
 
 
@@ -454,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301852.jpg" />
 </div>
 
 
@@ -480,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301755.jpg" />
 </div>
 
 
@@ -506,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301655.jpg" />
 </div>
 
 
@@ -532,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301643.jpg" />
 </div>
 
 
@@ -559,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300991.jpg" />
 </div>
 
 
@@ -586,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299995.jpg" />
 </div>
 
 
@@ -612,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298628.jpg" />
 </div>
 
 
@@ -624,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C369491F44A7374299B086B8B28389B256E2DE3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076831   (297279) от 02.12.2016
-
-Трава зеленее / The Grass Is Greener (1960) BDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в старой доброй Англии. Любовный треугольник вырисовывается между графом, его женой и жутко романтичным американским миллионером, который забредает в запретную зону — в комнату миледи — во время осмотра замка графа. Как поражённый громом, он моментально и непоправимо влюбляется в неё, а она в него…Производство: Великобритания / Grandon Productions Ltd.Жанр: КомедияРежиссер: Стенли ДоненАктеры: Кэри Грант, Дебора Керр, Роберт Митчум, Джин Симмонс, Морэй Уотсон, Джоан Бенхэм, Элизабет Орион, Гвен УотфордПеревод: Авторский (С.Кузнецов)Язык субтитров: АнглийскийПродолжительность: 01:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AF8A326A4DF38355F80CD6B4CFE41C74E3FB952
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421024   (297194) от 14.11.2020
-
-Лунный гонщик / Moonraker (1979) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297194.jpg" />
-</div>
-
-
-###  Подробнее
-
-За маской добропорядочного американского миллиардера Дракса скрывается сумасшедший учёный. Он вынашивает безумный план: устроить на Земле апокалипсис, и когда на планете не останется ни одной живой души, населить её выращенными на космической станции суперлюдьми. Чтобы помешать планам Дракса, Бонду приходится побывать в Калифорнии, Бразилии, джунглях Амазонки и, (   Читать дальше...   )Производство: Великобритания, Франция /  Les Productions Artistes Associés, Eon ProductionsЖанр: фантастика, боевик, триллер, приключенияРежиссер: Льюис ГилбертАктеры: Роджер Мур, Лоис Чайлз, Микаэль Лонсдаль, Ричард Кил, Коринн Клери, Бернард Ли, Джеффри Кин, Десмонд Ллевелин, Лоис Максуэлл, Тоширо СугаПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 02:06:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07234AA9945BE5D17DA3D50B3F21CE4D7B2643A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

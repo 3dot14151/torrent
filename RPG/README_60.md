@@ -1,3 +1,55 @@
+###  Публикация: 1749659   (43510) от 15.09.2024
+
+Vampire: The Masquerade - Reckoning of New York (2024) [Multi] (1.0.1.1147) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vampire: The Masquerade - Reckoning of New York приглашает геймеров в густую паутину вампирской политики, разворачивающуюся в Нью-Йорке. Город, который никогда не спит, является идеальным фоном для противостояния Камарильи и Анархов, двух враждующих фракций в мире вампиров. Игроки перемещаются по этому миру в качестве родственных существ, которым предстоит принимать (   Читать дальше...   )Тип издания: RepackРазработчик: Draw DistanceЖанр: Инди, Ролевые игрыЯзык субтитров: Английский, ФранцузскийЯзык интерфейса: Английский, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72E0C2B3234FD812946ABDE45B6C1E6056C14D1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749608   (43480) от 15.09.2024
+
+Vampire: The Masquerade - Reckoning of New York (2024) [Multi] (1.0.1.1147) Scene SKIDROW
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vampire: The Masquerade - Reckoning of New York приглашает геймеров в густую паутину вампирской политики, разворачивающуюся в Нью-Йорке. Город, который никогда не спит, является идеальным фоном для противостояния Камарильи и Анархов, двух враждующих фракций в мире вампиров. Игроки перемещаются по этому миру в качестве родственных существ, которым предстоит принимать (   Читать дальше...   )Тип издания: SceneРазработчик: Draw DistanceЖанр: Инди, Ролевые игрыЯзык субтитров: Английский, ФранцузскийЯзык интерфейса: Английский, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C71FDB8FB3EBAAF248F7A10797311D78683E2F04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1577564   (43422) от 16.09.2024
 
 Roadwarden (2022) [En] (1.2.0) License GOG
@@ -6,7 +58,7 @@ Roadwarden (2022) [En] (1.2.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43422.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ The Land of the Magnates (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43408.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Tactical Breach Wizards (2024) [En] (20240912) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43328.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Enotria: The Last Song (2024) [Ru/Multi] (1.002.26228) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43323.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ The Ascent (2021) [Ru/Multi] (72946/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43222.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Pirates Journey (2024) [Ru/Multi] (0.1.0.6) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42883.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Castle of Lord Velimir (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42770.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Garlant: My Story (2024) [Multi] (1.1.0.8) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42769.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Starcom: Nexus (2018) [Ru/Multi] (1.0.13c) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42762.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Perennial Order (2024) [Ru/Multi] (1.0.1 HotFix 3) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42681.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Wolcen: Lords of Mayhem (2020) [Ru/Multi] (1.1.7.16/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42665.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Just a To the Moon Series Beach Episode (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42650.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Last Epoch (2024) [Ru/Multi] (1.1.7.4/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42158.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Frontier Hunter: Erza's Wheel of Fortune / Пограничный охотник
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42147.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Shadows of Doubt (2024) [Ru/Multi] (39.07) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42054.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Dwarven Realms (2022) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42045.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Nigate Tale (2021) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41949.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Rogue Waters (2024) [Ru/Multi] (1.0.0.3149) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41836.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Rogue Waters (2024) [Ru/Multi] (1.0.0.3149) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41831.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Starfield (2023) [Ru/Multi] (1.14.70.0/dlc) Repack FitGirl [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41752.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Dread Dawn (2024) [Ru/Multi] (2024.10.1.1000) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41751.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ NieR Replicant ver.1.22474487139... (2021) [Ru/Multi] (1.0.3.0/dlc) Repack Other
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41655.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ REYNATIS (2024) [Multi] (1.0.3/dlc) Scene FAiRLiGHT
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41500.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Dread Dawn (2024) [Ru/Multi] (2024.10.1.1000) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41418.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Dread Dawn (2024) [Ru/Multi] (2024.10.1.1000) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9528AE775CA35C50AC98D192B2A81EBA9B3036C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737911   (41413) от 05.10.2024
-
-Flintlock: The Siege of Dawn (2024) [Ru/Multi] (1.1.72) Scene Rune
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Flintlock: The Siege of Dawn с головой окунает вас в огромный открытый мир, пылающий мечами и заклинаниями. Вы возьмете под свой контроль Нор Ванек, крутую воительницу с таинственным лисом-компаньоном по имени Энки. Вместе они - последняя надежда человечества, противостоящая ужасной ситуации - в буквальном смысле этого слова. Сами боги стали злыми, выпустив на землю (   Читать дальше...   )Тип издания: SceneРазработчик: A44 GamesЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и дугиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A7DB438074D09C50A59978DEBB8C689364E8381
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753590   (41375) от 05.10.2024
-
-Space Prison (2024) [Ru/Multi] (1.0.8/dlc) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Space Prison бросает вас в холодную реальность галактической тюрьмы. Забудьте об идиллических космических прогулках и мерцающих инопланетных пейзажах, здесь все сводится к тому, чтобы прожить еще один день. Ваши сокамерники - разношерстная команда, каждый из которых имеет суровую внешность, скрывающую окутанное тайнами прошлое. Заслужить их доверие - первостепенная (   Читать дальше...   )Тип издания: LicenseРазработчик: Wooden AlienЖанр: Приключенческие игры, Ролевые игры, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Польский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Польский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82E6B48DB36B3B250EC6F32343B0E87E6F18890E
 ```
 
 https://mybot314.ru/tekegram_catalog/

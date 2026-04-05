@@ -1,3 +1,29 @@
+###  Публикация: 1440386   (1037600) от 21.01.2021
+
+Девушка, подающая надежды / Promising Young Woman (2020) WEB-DL [H.264/1080p] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивая, невероятно умная и подающая большие надежды студентка престижного университета – казалось ее будущее предопределено. Но одно трагическое событие меняет все. Теперь она ведет двойную жизнь и уверена, что нет ничего соблазнительнее, чем месть.Производство: Великобритания, США / FilmNation Entertainment, Focus Features, LuckyChap EntertainmentЖанр: Триллер, драма, криминалРежиссер: Эмиральд ФеннелАктеры: Кэри Маллиган, Бо Бёрнэм, Элисон Бри, Клэнси Браун, Дженнифер Кулидж, Лаверн Кокс, Крис Лоуэлл, Конни Бриттон, Адам Броди, Кристофер Минц-Плассе, Макс ГринфилдПеревод: Многоголосый закадровый, любительский (MUZOBOZ)Субтитры: ОтсутствуютПродолжительность: 01:53:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF3BD7A97678C830C9084C81AE69633BA792160D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1614958   (1037413) от 26.02.2023
 
 Стук в хижине / Knock at the Cabin (2023) WEB-DLRip [H.264] [MVO]
@@ -6,7 +32,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037413.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037363.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Flowx Smart Weather (ранее WeatherBomb) v3.316 [Ru/En] - приложени
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037310.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037157.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037139.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037015.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Raspberry выпустила Pi Pico — свой самый маленький 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036786.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036752.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036746.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ OpenAI открыли вакансию «инженер-выключатель»
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036655.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036504.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036453.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036379.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036367.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ Drug Dealer Simulator (2020) [Ru/Multi] (1.0.7.15) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036170.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036074.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036073.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036072.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035905.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035879.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035790.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035237.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035236.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ F-Secure Freedome VPN 2.64.767.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034981.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ Opera 73.0.3856.344 Portable by JolyAnderson [Multi/Ru] (авторская ра
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034815.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ Opera — веб-браузер, разрабатываемый компание
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D27FFD5162C3A058DF1A110158BDB424B6564576
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617546   (1034724) от 08.03.2023
-
-Угроза для миллиардов компьютеров: в TPM 2.0 обнаружили опасные уязвимости
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эксперты по кибербезопасности из компании Quarkslab обнаружили две уязвимости в реализации Trusted Platform Module (TPM) 2.0, создающие потенциальную угрозу для миллиардов компьютеров с такими чипами.Чипы TPM 2.0 устанавливаются на материнские платы компьютеров с середины 2016 года. Технология, уточняют в Microsoft, необходима для реализации функций, связанных с (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

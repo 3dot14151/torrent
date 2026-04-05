@@ -1,3 +1,151 @@
+###  Публикация: 1272370   (718471) от 27.02.2019
+
+Scorpions - Gentle Power (Best Of The Ballads) (2018) Remastered, Unofficial [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Send Me An Angel
+02. You And I
+03. Is There Anybody There
+04. When The Smoke Is Going Down(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:11:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95B13F17AF60921BE7A59DEAF5DE848FE9B00BC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130047   (718431) от 30.04.2017
+
+All That Remains - Madness (2017) [MP3|320 Kbps] <Metalcore, Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Safe House 03:38
+02. Madness 03:25
+03. Nothing I Can Do 03:42
+04. If I'm Honest 04:24(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:50:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B67C76883719B6D2DFB63DB18021A31CBEBCCA82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130148   (718344) от 30.04.2017
+
+Ночные Снайперы - разбуди меня (2017) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718344.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. разбуди меняЖанр: RockПродолжительность: 00:02:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:952BC4B424DF1E609A4D7A150D8AE217123D5202
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024459   (718254) от 08.06.2016
+
+Severoth - Solitude (2016) [MP3|320 кб/с] <Atmospheric Black Metal, Ambient>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718254.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Гроза / Storm
+2. Самітність / Solitude
+3. Дихання Осені I / Autumn's Breath I
+4. Останні Птахи / Last Birds(   Читать дальше...   )Жанр: Atmospheric Black Metal, AmbientПродолжительность: 01:07:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A3B954D0A4B34560711E5981EB3A7E8D726D5A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 326955   (718208) от 25.04.2011
+
+Dub War - 4 альбома + 3 сингла (1994-1998) [MP3|192-320 kbps]<Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_718208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Chill - Aphrodite 'Smash Up The Place' Remix (5:32)
+02. Million Dollar Love - DJ Rap Remix (5:25)
+03. Nations - Aphrodite Remix (5:39)
+04. Over Now - 'Bonobo's Tea Party' Remix (4:13)
+05. Strike It - Attica Blues (Mo'Wax) Remix (4:26)
+06. Silencer - Boilerhouse Boys Remix (5:02)
+07. Mental - 'Jazzid' Remix (Mo'Wax) (3:41)
+08. Strike It - DJ Hurricane Remix (4:40)
+09. Nar Say A Thing - Rootsman Dub Remix (5:34)
+10. Mental - Haggis (Senser) Remix (3:48)(   Читать дальше...   )Жанр: Reggae / Alternative / PunkПродолжительность: 01:09:52
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024380   (718150) от 08.06.2016
 
 Vega - Who We Are (2016) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
@@ -6,7 +154,7 @@ Vega - Who We Are (2016) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718150.jpg" />
 </div>
 
 
@@ -35,7 +183,7 @@ Torrent - Gods Of A Fallen Empire (2016) [MP3|320 кб/с] <Melodic Death Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718060.jpg" />
 </div>
 
 
@@ -64,7 +212,7 @@ The Screaming Jets - Chrome (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock, Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718058.jpg" />
 </div>
 
 
@@ -93,7 +241,7 @@ Whitesnake - 1987 (2015) Remaster [APE|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717901.jpg" />
 </div>
 
 
@@ -122,7 +270,7 @@ Volbeat - Seal The Deal & Let's Boogie (2016) [FLAC|Lossless|image + .cue] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717769.jpg" />
 </div>
 
 
@@ -151,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717758.jpg" />
 </div>
 
 
@@ -180,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717481.jpg" />
 </div>
 
 
@@ -209,7 +357,7 @@ The Mamas & The Papas - All The Leaves Are Brown: The Golden Era Collection (2CD
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_717437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_717437.jpg" />
 </div>
 
 
@@ -235,7 +383,7 @@ Opeth - 13 Albums, 2 Live (1995-2016) [MP3|320 Kbps] <Progressive Death Metal, D
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717396.jpg" />
 </div>
 
 
@@ -264,7 +412,7 @@ Bonfire - Temple of Lies (2018) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717295.jpg" />
 </div>
 
 
@@ -293,7 +441,7 @@ Crematory - Oblivion (2018) [MP3|320 Kbps] <Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717293.jpg" />
 </div>
 
 
@@ -322,7 +470,7 @@ Paul Cotton - When The Coast Is Clear (2004) [FLAC|Lossless|image + .cue] <Class
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717222.jpg" />
 </div>
 
 
@@ -351,7 +499,7 @@ Emerson, Lake & Palmer - From the Beginning [5 CD Boxset] (2007) [MP3|320 kbps]<
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_717193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_717193.jpg" />
 </div>
 
 
@@ -377,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717168.jpg" />
 </div>
 
 
@@ -406,7 +554,7 @@ Firewind - Firewind (2020) [FLAC|Lossless|image + .cue] <Heavy Metal,  Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717110.jpg" />
 </div>
 
 
@@ -435,7 +583,7 @@ Spirits of Fire - Spirits of Fire (2019) [FLAC|Lossless|image + .cue] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716955.jpg" />
 </div>
 
 
@@ -464,7 +612,7 @@ Weezer - Weezer (Black Album) (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716947.jpg" />
 </div>
 
 
@@ -493,7 +641,7 @@ Jaime Kyle - Untangled (1999) [FLAC|Lossless|image + .cue] <Soft Rock, Pop Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716887.jpg" />
 </div>
 
 
@@ -522,7 +670,7 @@ Adia Victoria - Silences (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716821.jpg" />
 </div>
 
 
@@ -551,7 +699,7 @@ Statement - Force of Life (2019) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716813.jpg" />
 </div>
 
 
@@ -580,7 +728,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716810.jpg" />
 </div>
 
 
@@ -594,151 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA9E09B92B748C1C17490803542FE25513315F21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130287   (716790) от 01.05.2017
-
-Roy Clark - The Lightning Fingers of Roy Clark (1999) [FLAC|Lossless|image + .cue] <Surf, Rock & Roll, Country>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Twelfth Street Rag  (02:45) 
-02.  Texas Twist  (02:09) 
-03.  Golden Slippers  (02:28) 
-04.  Weepin' Willow Twist  (02:21) (   Читать дальше...   )Жанр: Surf, Rock & Roll, CountryПродолжительность: 00:30:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3021C7BB0B4CB60E62AA14F3A8ABA9B5AD04B3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129867   (716787) от 01.05.2017
-
-Flame - Flame (1992) Japanese Edition, 1st Press [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Razor Blade Road (Prelude) 00:46
-02. Rain 04:35
-03. Electraglide 04:13
-04. Wild One 04:52(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:59:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4676F7644635ACF16380A68CC60022B76CB08A1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532151   (716762) от 18.02.2022
-
-Schizophrenia - Recollections Of The Insane (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Divine Immolation
-02. Cranial Disintigration
-03. Sea Of Sorrow
-04. Monolith(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A17E60241358CF44F756BA4FBA6286CF45340455
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532108   (716758) от 18.02.2022
-
-Glasya - Attarghan (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Attarghan
-02. From Enemy To Hero
-03. Way To Victory
-04. Retalation(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:06:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05238A825AE14BC699A7A211AEBD61980409BED5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286012   (716681) от 28.02.2019
-
-Bryan Adams - Shine a Light (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shine A Light
-02. That’s How Strong Our Love Is
-03. Part Friday Night, Part Sunday Morning
-04. Driving Under The Influence Of Love(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FE12DB83A681DEC39F0FBA102AB35D706008E3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

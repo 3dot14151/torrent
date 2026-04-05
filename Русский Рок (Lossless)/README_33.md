@@ -1,131 +1,3 @@
-###  Публикация: 572352   (382757) от 09.11.2012
-
-Ногу свело! - 2 Альбома (1993, 2011) [FLAC|Lossless] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_382757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сибирская любовь (02:16)
-02. Московский романс (02:47)
-03. Идем на Восток (03:45)
-04. Черная - рыжая (04:27)
-05. 7 планет (03:08)
-06. Лилипутская любовь (03:50)
-07. Бензин (03:16)
-08. Из Алма-Аты (04:17)
-09. Свинка - Свинка (02:17)
-10. Хару Мамбуру (03:45)(   Читать дальше...   )Жанр: Rock |Продолжительность: 01:00:26
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 250744   (382575) от 27.10.2010
-
-[AMATORY] - Инстинкт Обречённых (2010) [FLAC|Lossless]<Metalcore / Nu-Metal / Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_382575.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Сквозь Закрытые Веки
-2. Стеклянные Люди
-3. Империя Зла
-4. Белый Шум
-5. Инферно
-6. F20
-7. Молчи!
-8. Горизонты Снов
-9. Один Час До Конца Света
-10. Ответ Знает…(   Читать дальше...   )Жанр: Metalcore / Nu-Metal / Alternative MetalПродолжительность: 00:44:11
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574464   (381656) от 07.09.2022
-
-Existenter - 3 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Melodic Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Times [00:04:35]
-02. Cyber Pirates (feat. Diego Teksuo) [00:04:48]
-03. Revolution Against Evolution [00:04:07]
-04. Lonely Artist [00:05:21](   Читать дальше...   )Жанр: Progressive Metal, Melodic Metal, Female VocalПродолжительность: 3 CD, 01:33:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:298229617E0E3065C6CF8C999D694BE850F998F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574713   (381423) от 07.09.2022
-
-Wine From Tears - I'm Fine (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Gothic Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Whales Swim Up (00:06:00)
-02 - Cotard's Delusion (00:06:19)
-03 - The Point of No Return (00:06:56)
-04 - No Future (00:07:56)(   Читать дальше...   )Жанр: Melodic Death, Gothic Doom MetalПродолжительность: 01:07:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE3D976B1A2830480BFA12911A99DE561C804F68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414969   (380888) от 10.10.2020
 
 Ensemble of Christ the Saviour and Crude Mother Earth - Third World War: Police Hell (2020) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Punk>
@@ -134,7 +6,7 @@ Ensemble of Christ the Saviour and Crude Mother Earth - Third World War: Police 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380888.jpg" />
 </div>
 
 
@@ -163,7 +35,7 @@ Light? - Преждевременно и Навсегда (2022) [FLAC|Lossless|
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379425.jpg" />
 </div>
 
 
@@ -192,7 +64,7 @@ Mysterious Narrators - EPISODE I (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379348.jpg" />
 </div>
 
 
@@ -221,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379121.jpg" />
 </div>
 
 
@@ -250,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378478.jpg" />
 </div>
 
 
@@ -279,7 +151,7 @@ Atoll Nerat - Путешествия в отдельные реальности 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_378430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_378430.jpg" />
 </div>
 
 
@@ -312,7 +184,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_378278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_378278.jpg" />
 </div>
 
 
@@ -347,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377719.jpg" />
 </div>
 
 
@@ -376,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377713.jpg" />
 </div>
 
 
@@ -405,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377191.jpg" />
 </div>
 
 
@@ -434,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377099.jpg" />
 </div>
 
 
@@ -463,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377054.jpg" />
 </div>
 
 
@@ -491,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376199.jpg" />
 </div>
 
 
@@ -520,7 +392,7 @@ Humaniac - 3 Albums (2014-2022) [FLAC|Lossless|WEB-DL|tracks] <Sympho Progressiv
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375486.jpg" />
 </div>
 
 
@@ -549,7 +421,7 @@ Miami - Sexy, Wet & Wild (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Punk>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375404.jpg" />
 </div>
 
 
@@ -578,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374499.jpg" />
 </div>
 
 
@@ -607,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374319.jpg" />
 </div>
 
 
@@ -636,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373811.jpg" />
 </div>
 
 
@@ -665,7 +537,7 @@ Frankie Potts - Военные преступления в Нижнем Черк
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373262.jpg" />
 </div>
 
 
@@ -694,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_372780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_372780.jpg" />
 </div>
 
 
@@ -729,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372465.jpg" />
 </div>
 
 
@@ -758,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371876.jpg" />
 </div>
 
 
@@ -772,6 +644,119 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BD8014CFA4C61645DC3A53055D7246392EC86A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327827   (369958) от 27.09.2019
+
+Евгений Маргулис - Вечный блюз (2019) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369958.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мой друг лучше всех играет блюз
+2. Шанхай-блюз
+3. Дороги наши разошлись
+4. Старые песни(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:03:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:332AFE6B6BE96A28141EC0827474EB2A36FDFB4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416215   (369540) от 15.10.2020
+
+Дмитрий Ревякин - Kosmotango (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369540.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мандарины
+2. День раздет
+3. Дубровник
+4. Лаэтана(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:156CD51748636F7A08960651E0487117F4937679
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176409   (368970) от 22.10.2017
+
+Би-2 - The Best of (2016) 2CD [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 00:55:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D07DFF710D9B16C6BB8ECF02B874371C44FC4526
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576147   (368688) от 13.09.2022
+
+Astral Mantra - Rise of the Lords (2022) [FLAC|Lossless|WEB-DL|tracks] <Gothic Doom, Melodic Death>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Ritual I
+03. Ritual II
+04. Ritual III(   Читать дальше...   )Жанр: Gothic Doom, Melodic DeathПродолжительность: 00:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FA27427E9B919A5AB56BF4ED57CF2AD477C108F
 ```
 
 https://mybot314.ru/tekegram_catalog/

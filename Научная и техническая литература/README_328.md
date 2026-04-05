@@ -1,136 +1,3 @@
-###  Публикация: 1309319   (551138) от 19.06.2019
-
-Лаллу джи Лал | Легенды о Кришне. Прем Сагар [Том 1] (1936) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551138.jpg" />
-</div>
-
-
-###  Подробнее
-
-В предлагаемом первом томе дается „Прем Сагар“ Лаллу джи Лала. „Прем Сагар“ — памятник поздний, созданный на рубеже 18 и 19 вв. Он избран для первого тома по следующим мотивам.
-
-Во-первых, большинство авторов, давших высокохудожественные произведения, посвященные Кришне, либо касаются относительно немногих легенд, либо осложняют их изложение большим количеством побочного (   Читать дальше...   )Жанр: История, литературоведение, фольклористика, искусство, филология, социология, философия, религиоведение, этнографияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF6865750594C6F9384A9CBC87870DA024DAAC8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309399   (551134) от 19.06.2019
-
-А.П. Гулов | 30 форматов олимпиадных заданий по английскому языку (2018) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие предназначено для подготовки к олимпиадам по английскому языку учащихся 9–11 классов, включает в себя материалы по разделам «Лексика» и «Грамматика». Материалы пособия могут быть использованы для подготовки ко всем этапам олимпиад, от школьного до всероссийского; как при индивидуальных занятиях, так и при работе в классе.Жанр: Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C185C4FA3D05B0D32A105C3ADF02A06B108525F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309400   (551061) от 19.06.2019
-
-Т.В. Пархамович | Англо-русский, русско-английский словарь фразеологизмов (2011) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный словарь содержит более 1000 русских идиом и их английских эквивалентов, сопровождающимися примерами использования в разговорной и письменной печи, а при необходимости - и пояснениями. Кто изучает какой-нибудь иностранный язык часто возникают трудности с пониманием и употреблением идиом. Для широкого круга лиц, овладевающих английским языком.Жанр: Учебное пособие, СловарьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6726433BCB4D86B2AC1BB5C09DD216C7C6932986
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309077   (551056) от 19.06.2019
-
-А.П. Кравченко | Немецкий язык для колледжей (2014, Изд. 2-е) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее учебное пособие предназначено для студентов колледжей, владеющих немецким языком в объеме программы средней школы. Пособие соответствует программе по иностранным языкам для учебных заведений среднего профессионального образования, но может быть использовано и лицами, нуждающимися в совершенствовании языковых знаний и развитии речевых навыков. Учебное пособие (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D602A628F3BE530BCC4EB49FF3B8E5DFB20AEE65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309404   (550980) от 19.06.2019
-
-А. Моисеенко, С. Язев | Загадка Патомского кратера (2010) [PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Патомский кратер в Восточной Сибири — якуты называют его «Гнездом Огненного Орла» — одно из самых загадочных мест на нашей планете: представьте себе древнеегипетскую пирамиду, возвышающуюся над тайгой, или римский Колизей, возведенный в пяти днях пути от ближайшего жилья.
-Посреди ярко-зеленой тайги стоит мрачная серая гора с ровной, будто бы ножом срезанной вершиной. (   Читать дальше...   )Жанр: Научно-популярная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C4FD90A186069FA9F3684A963F7F556B93C79D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1309391   (550979) от 19.06.2019
 
 Е.А. Агеева | Английский язык для сварщиков. English for Welders (2018) [PDF]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550979.jpg" />
 </div>
 
 
@@ -165,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550971.jpg" />
 </div>
 
 
@@ -192,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550970.jpg" />
 </div>
 
 
@@ -218,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550920.jpg" />
 </div>
 
 
@@ -245,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550911.jpg" />
 </div>
 
 
@@ -271,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550908.jpg" />
 </div>
 
 
@@ -297,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550873.jpg" />
 </div>
 
 
@@ -326,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550717.jpg" />
 </div>
 
 
@@ -352,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550572.jpg" />
 </div>
 
 
@@ -378,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550483.jpg" />
 </div>
 
 
@@ -404,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550392.jpg" />
 </div>
 
 
@@ -432,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550358.jpg" />
 </div>
 
 
@@ -460,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550192.jpg" />
 </div>
 
 
@@ -486,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550181.jpg" />
 </div>
 
 
@@ -512,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550174.jpg" />
 </div>
 
 
@@ -540,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550160.jpg" />
 </div>
 
 
@@ -567,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550104.jpg" />
 </div>
 
 
@@ -593,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550027.jpg" />
 </div>
 
 
@@ -621,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550018.jpg" />
 </div>
 
 
@@ -647,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550016.jpg" />
 </div>
 
 
@@ -673,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550011.jpg" />
 </div>
 
 
@@ -687,6 +554,140 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30C9C61CF28A84B0C18D0DFAEC0039C1E5806EE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046615   (549933) от 29.08.2016
+
+И.Ю. Темпер, В.Е. Ошеров | Справочник радиолюбителя (1949) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549933.jpg" />
+</div>
+
+
+###  Подробнее
+
+Справочник содержит данные по радиодеталям, лампам и методикам расчёта схем. Много справочного материала полезного для начинающих радиолюбителей.Жанр: Электроника, радиотехникаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:171D1D1BC0464CBB912EB230C7EAC3014C4A3FD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046917   (549926) от 29.08.2016
+
+З. А. Цейтлин | Наука и гипотеза (1926) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Историко-критическое исследование математических начал натуральной философии в связи с учением о методе естествознания и общественных наук.Жанр: История, философия, математика, естествознание, физика, науковедениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F915BEE97BE734C4443CCB410707F0FF8B68E9A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046771   (549851) от 29.08.2016
+
+Г.С. Гендин | Школа радиолюбителя (2003) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это вторая книга из серии изданий, адресованных начинающему радиолюбителю в качестве учебно-практического пособия. В этой книге на более серьезном уровне продолжено знакомство с различными схемами на полупроводниковой и радиовакуумной базе, основами звукотехники, электро- и радиоизмерениями.
+Изложение сопровождается большим количеством иллюстраций и практических (   Читать дальше...   )Жанр: Электроника, радиотехникаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25380F1381D241C0DB05F43A04C8EE16037378B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045774   (549812) от 29.08.2016
+
+Игорь Прокопенко | Военная тайна [25 книг] (2011-2016) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549812.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Военная тайна» - серия книг Игоря Прокопенко, ведущего РенТВ, телеканала, известного своими расследованиями таинственного и загадочного, малоизвестного и малоизученного в нашей истории и повседневной жизни. Книги для тех, кому интересны тайны и загадки, а также нетрадиционный взгляд на традиционные факты.
+
+Военные тайны ХХ века
+Откуда взялись деньги на Великую Октябрьскую (   Читать дальше...   )Жанр: История, Военная история, Тайны, ЗагадкиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:089F3D52CA0E8D6575C0A5BFFA518FBC0314F970
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237577   (549690) от 26.07.2018
+
+Фрэнсис Коппола | Живое кино: Секреты, техники, приемы (2018) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549690.jpg" />
+</div>
+
+
+###  Подробнее
+
+«С начала 1990-х гг. кино перешло от фото-химико-механических носителей к электронно-цифровым. Казалось, эта революция случилась в одно мгновение, но на самом деле перемены подступали маленькими шажками: все началось со звука, затем перекинулось на монтаж, потом в съемочном процессе задействовали цифровые камеры, и наконец кинотеатры стали демонстрировать цифровые (   Читать дальше...   )Жанр: Зарубежная литература о культуре и искусстве, Кинематограф/театр, Советы от гуруФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE4E1DF34A71FBCE8B86AEE6FB97381C2C1F3918
 ```
 
 https://mybot314.ru/tekegram_catalog/

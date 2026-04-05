@@ -1,3 +1,61 @@
+###  Публикация: 944274   (426683) от 13.10.2015
+
+Голдфингер / Goldfinger (1964) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426683.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этот раз Джеймс Бонд борется со злом в лице международного преступника Голдфингера. Негодяй планирует уничтожить золотой запас США, и таким образом ввергнуть в пучину хаоса все капиталистическое общество.
+Помешать этим дерзким планам может только один человек. При помощи нескольких прекрасных женщин и множества хитроумных приспособлений агент 007 обезвреживает (   Читать дальше...   )Производство: Великобритания / Eon Productions Ltd.Жанр: Боевик, Триллер, ПриключенияРежиссер: Гай ХэмилтонАктеры: Шон Коннери, Онор Блэкман, Герт Фрёбе, Ширли Итон, Таня Мале, Харольд Саката, Бернард Ли, Мартин Бенсон, Сек Линдер, Остин УиллисПеревод: Дублированный, многоголосый закадровый, авторскийЯзык субтитров: Русский, английскийПродолжительность: 01:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE59D18237984B29A9010DC30B51B0C4EC9A9FCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 195036   (426671) от 13.10.2015
+
+Вокруг света за 80 дней / Around the World in Eighty Days (1956) [H.264] DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426671.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обогнуть земной шар всего в 80 дней? Смешно! Даже лучшие паровые
+корабли Ее Величества Виктории не смогут сделать это. Но точный
+и пунктуальный Филеас Фогг заявил, что сможет. А когда члены
+лондонского престижного Реформ-Клуба попросят Фогга подкрепить(   Читать дальше...   )Жанр: Комедия, ПриключенияРежиссер: Майкл АндерсонПеревод: Профессиональный (многоголосый, закадровый) + Оригинальная дорожкаСубтитры: русские, английские (вшитые)
+
+ФайлФормат: MP4Продолжительность: 02:52:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18082A5F65E7DD204055F60412BFDB80D91DA8C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1572086   (425518) от 25.08.2022
 
 Посвящение Сары / The Initiation of Sarah (1978) BDRip [H.264] [AVO]
@@ -6,7 +64,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425518.jpg" />
 </div>
 
 
@@ -32,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425453.jpg" />
 </div>
 
 
@@ -58,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425074.jpg" />
 </div>
 
 
@@ -84,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423955.jpg" />
 </div>
 
 
@@ -111,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423377.jpg" />
 </div>
 
 
@@ -137,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423242.jpg" />
 </div>
 
 
@@ -163,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423230.jpg" />
 </div>
 
 
@@ -189,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422839.jpg" />
 </div>
 
 
@@ -215,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422791.jpg" />
 </div>
 
 
@@ -241,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422581.jpg" />
 </div>
 
 
@@ -268,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422399.jpg" />
 </div>
 
 
@@ -294,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422149.jpg" />
 </div>
 
 
@@ -320,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421630.jpg" />
 </div>
 
 
@@ -349,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421613.jpg" />
 </div>
 
 
@@ -381,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420841.jpg" />
 </div>
 
 
@@ -407,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420211.jpg" />
 </div>
 
 
@@ -433,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_418642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_418642.jpg" />
 </div>
 
 
@@ -459,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_418562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_418562.jpg" />
 </div>
 
 
@@ -485,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418526.jpg" />
 </div>
 
 
@@ -511,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418525.jpg" />
 </div>
 
 
@@ -537,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418414.jpg" />
 </div>
 
 
@@ -571,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418347.jpg" />
 </div>
 
 
@@ -599,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418293.jpg" />
 </div>
 
 
@@ -625,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418245.jpg" />
 </div>
 
 
@@ -636,59 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5E8577734E00532EDA6D92BE884AB4B34DD05EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947537   (417974) от 17.10.2015
-
-Горизонты запада / Horizons West (1952) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два брата после Гражданской война возвращаются домой, в Техас. Но одному из них суждено получить пулю в погоне за легкими деньгами.Производство: США / Universal International Pictures (UI or U-I)Жанр: ВестернРежиссер: Бадд БоттичерАктеры: Роберт Райан, Джули Адамс, Рок Хадсон, Джудит Браун, Джон МакИнтайр, Рэймонд Бёрр, Джеймс Арнесс, Деннис Уивер, Фрэнсис Бавьер, Том ПауэрсПеревод: Двуголосый закадровый (А. Воронов и Л. Смирнова "Chayka")Субтитры: ОтсутствуютПродолжительность: 01:17:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A52F9DDE6C8283E14F4F29487D1C6B3783404963
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947717   (417819) от 17.10.2015
-
-Диверсанты / Commandos (1968) DVDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая Мировая война 1942 год. Командование приказывает сержанту Салливану создать группу коммандос из солдат итальянского происхождения. Задание коммандос, проникнуть на базу снабжения в Северной Африке в расположение итальянцев-союзников фашистов и удерживать его до подхода основных сил американского батальона…Производство: Италия, Германия (ФРГ) / CCC Filmkunst GmbH, G.G.I. SpA Rome, PIC (Produzione Intercontinentale Cinematografica)Жанр: Боевик, Драма, ВоенныйРежиссер: Армандо КриспиноАктеры: Ли Ван Клиф, Джек Келли, Джампьеро Альбертини, Марино Мазе, Гёц Георге, Пьер Паоло Каппони, Ивано Стацциоли, Марилу Толо, Йоахим Фуксбергер, Хайнц РайнкеПеревод: Авторский, С.Рябов
-(с вставками VO Stalk и Nike Freman на непереведённые сцены)Субтитры: ОтсутствуютПродолжительность: 01:54:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C44D091BAE09A2CBB807904EF0571503CCE79132
 ```
 
 https://mybot314.ru/tekegram_catalog/

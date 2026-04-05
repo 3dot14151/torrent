@@ -1,3 +1,32 @@
+###  Публикация: 1569541   (451904) от 13.08.2022
+
+Motherslug - 2 Relises (2014-2015) [MP3|320 Kbps] <Stoner Rock, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Devils Rise [00:06:27]
+02. Rollin' [00:05:52]
+03. Trippin' On Evil [00:07:33]
+04. Space Man [00:08:35](   Читать дальше...   )Жанр: Stoner Rock, Doom MetalПродолжительность: 2 CD, 00:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CCD3E4EDDB421159EADD168CFAC56B9C02A0B6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569604   (451903) от 13.08.2022
 
 Pezu - Dinossauro de Percata (2022) EP [MP3|320 Kbps] <Heavy Rock, Stoner, Punk, Experimental>
@@ -6,7 +35,7 @@ Pezu - Dinossauro de Percata (2022) EP [MP3|320 Kbps] <Heavy Rock, Stoner, Punk,
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451903.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Atramentum - Through Fire, Everything is Renewed (2022) [FLAC|Lossless|WEB-DL|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451902.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Starchaser - Starchaser (2022) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451899.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Fogteeth - Headspace (2022) [MP3|320 Kbps] <Psychedelic Stoner Rock, Space Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451898.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Soulwound - The Suffering (2020) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451840.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Fixation - Global Suicide (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451831.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Weesp - 4CD: (The Void/Black Sails/Crystal Clean Waters/Боль) (2015-2020) [M
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451826.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Jani Liimatainen - My Father’s Son (2022) [FLAC|Lossless|image + .cue] <Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451823.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Grace - Hope (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451821.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Fortune - Level Ground (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451812.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ DREGG - The DREGGmusic Mixtape (2022) [MP3|320 Kbps] <Hardcore, Rap-Metal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451807.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Collective Soul - Vibrating (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451801.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Bomber - Nocturnal Creatures (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451799.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ New Haven - New Haven (1987-1990) Compilation, 2022, FnA Records [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451793.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Atrox Trauma - On the Line of Nothing and Something (2022) [FLAC|Lossless|WEB-DL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451792.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Godhound - Refueled (2022) [MP3|320 Kbps] <Hard Rock, Stoner Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451790.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Hydra - Point Break (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451789.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Sinead O'Connor - Sean-Nos Nua (2002) [APE|image+.cue]<Folk Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451748.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Stryper - Even The Devil Believes (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451710.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Sunstorm - Afterlife (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melod
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451662.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Def Leppard - Hysteria (1987) [OGG|485 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451656.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Nordic Union - Animalistic (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451655.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ H.E.A.T - Force Majeure (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Me
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451649.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Gloryhammer - Space 1992: Rise of the Chaos Wizards (2015) Limited Edition 2CD [
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451642.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Children Of Bodom - I Worship Chaos (2015) Deluxe Edition [FLAC|Lossless|WEB-DL]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451610.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Children Of Bodom - I Worship Chaos (2015) Deluxe Edition [FLAC|Lossless|WEB-DL]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18AE3048FB53284DC3D7FC9733C325D1A40636AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408965   (451602) от 14.09.2020
-
-Arctic Rain - The One (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Of My Life (04:15)
-02. Lost (04:01)
-03. Friends (04:09)
-04. Night After Night (04:34)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:48:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC5AC71A7027EDFE4AFEFE0C932E6670D23614A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

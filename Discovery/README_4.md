@@ -6,7 +6,7 @@ Discovery. Техногеника. Лефортовский тоннель (2017
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835105.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831752.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831367.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Discovery: Скорость жизни / Speed of Life (2010) Blu-Ray [H.264/108
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828481.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Discovery. Техногеника. Царь-Бомба (2017) HDTVRip [H.264/720
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_822317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822317.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Discovery: Секреты подземелья / Secrets of the Underground (201
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818527.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Discovery. Северная Америка / North America (2013) HDTVRip [H.264
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816993.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Discovery. Как устроена Вселенная / How the Universe Works (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816857.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Discovery. Аполлон: найденные видео / Apollo: The Forgotten
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813844.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Discovery. Беар Гриллс: Как остаться в живых / Bear G
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809553.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Discovery. Техногеника. Вертолеты-гиганты (2017) HDTV
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809012.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Discovery. Взрывая историю / Blowing up History (2017) HDTVRip [H.
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807619.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807219.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Discovery: Остров с Беаром Гриллсом / The Island with Bear 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805115.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Discovery. Величайшая загадка Эвереста / Everest's Grea
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804131.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Discovery. Чудаки и акулы / Jackass Shark Week (2021) HDTVRip [H.264
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804000.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Discovery. COVID-19: Китай против вируса / COVID-19: Battling t
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801437.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Discovery. Техногеника. Стратегические Бомбарди
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799181.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Discovery. Северная Америка / North America (2013) HDTV [H.264/10
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797130.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Discovery: Бушкрафт: лесная лига / Bushcraft Build-Off (2017) 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794592.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Discovery. Научные приколы / SciJinks (2018) WEB-DL [H.264/1080p] 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792357.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Discovery. Как построить... что угодно / How to Build... Ev
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792352.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Discovery. Тонущие города / Sinking Cities (2018) HDTVRip [H.264/72
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789215.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Discovery. Мастера оружия / Mad Dog Made (2018) HDTVRip (серии
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786944.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Discovery: Забытая инженерия / Abandoned Engineering (2016) HDTV
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785494.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Discovery. Астронавты SpaceX: первый полёт / Space Launch: 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784459.jpg" />
 </div>
 
 

@@ -1,3 +1,133 @@
+###  Публикация: 1454458   (1026391) от 14.03.2021
+
+Европейцы / The Europeans (1979) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Середина XIX века. К проживающему в окрестностях Бостона мистеру Вентворту приезжают гости из Европы - Евгения и Феликс, дети его сводной сестры. А его дочь Гертруда оказывается так очарована манерами Феликса, что отвергает ухаживания мистера Брэнда, местного члена правительства. А к Евгении неравнодушен преуспевающий мистер Эктон, но она все еще не успела развестись (   Читать дальше...   )Производство: Великобритания / Merchant Ivory ProductionsЖанр: Драма, МелодрамаРежиссер: Джеймс АйвориАктеры: Робин Эллис, Ли Ремик, Уэсли Эдди, Тим Чоут, Лиз Айкхорн, Кристин Гриффит, Нэнси Нью, Норман Сноу, Хелен Стенборг, Тим ВудвордПеревод: Многоголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:30:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:461C5AAD515BFEB3FBCC70EE45B5FF682EBEA1D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454639   (1026256) от 15.03.2021
+
+Роско Арбакл. Томалио / Tomalio (1933) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фатти с другом попадают в вымышленную страну Томалио, в которой заправляет сумасбродный генерал.Производство: СШАЖанр: Комедия, короткометражныйРежиссер: Рэй МакКериАктеры: Роско Арбакл, Чарльз Джуделс, Фриц Хьюберт, Филлис Холден, Джон Барклай, Джерри Берген, Аристидес де Леони, Лью Кесслер, Джозеф Макколей, Детмар ПоппенПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские и русские отдельным файломПродолжительность: 00:21:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A76E09DD1D99EB36DEABC1F3E1818E9042C3509D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454633   (1026254) от 15.03.2021
+
+Сегундо Де Шомон. Короткометражки / Segundo de Chomon (1908) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026254.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжаем знакомиться с творчеством Сегундо Де Шомона. Очередная подборка короткометражек, как всегда буйство фантазии.Производство: Франция, Испания, Pathé Frères, Ibérico FilmЖанр: Короткометражный, немое киноАктеры: Жюльенна Мэтью, Лои Фуллер, Макс Линдер, Андре ДидПеревод: НемойСубтитры: ОтсутствуютПродолжительность: ~01:35:00 (суммарно 19 роликов)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DF1711F1E1D6A8DF4EC5D3584B89EBC8AFB9D72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454580   (1026222) от 15.03.2021
+
+Честь семьи Прицци / Prizzi's Honor (1985) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чарли — «крестный сын» клана Прицци, который не лезет в чужие дела, любит вкусно поесть и выпить, стремится поиметь побольше женщин и поубивать всех, кто стоит на пути «семьи». Влюбившись в шикарную блондинку Айрин, он только после свадьбы узнает, что его красавица жена — наемная убийца, одна из лучших в этом бизнесе. А когда Чарли отправляют в Лас-Вегас, чтобы «выправить» (   Читать дальше...   )Производство: США / ABC Motion PicturesЖанр: Драма, Мелодрама, КриминалРежиссер: Джон ХьюстонАктеры: Джек Николсон, Кэтлин Тёрнер, Уильям Хикки, Роберт Лоджа, Анжелика Хьюстон, Джон Рэндольф, Ли Ричардсон, Майкл Ломбард, Си Си Эйч Паундер, Лоуренс ТирниПеревод: Дублированный, многоголосый профессиональный, двуголосый профессиональный, авторскийСубтитры: АнглийскиеПродолжительность: 02:09:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC38A84EEC17DAFD0EFAD6AD88B7AC667490FC96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454797   (1026135) от 16.03.2021
+
+Сегундо Де Шомон. Короткометражки / Segundo de Chomon (1909-1910) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026135.jpg" />
+</div>
+
+
+###  Подробнее
+
+И снова этот великолепный фантазер - Сегундо Де Шомон.Производство: Франция, Pathé FrèresЖанр: Короткометражный, немое киноАктеры: НеизвестныПеревод: НемойСубтитры: Отсутствуют (в двух роликах русские отдельным файлом)Продолжительность: 01:14:00 (суммарно, 11 роликов)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4261BE870FFF3F57783E13352B47BF0167BDCFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454812   (1026129) от 16.03.2021
 
 Гарольд Ллойд. Люк вербуется на флот / Luke Joins the Navy (1916) DVDRip
@@ -6,7 +136,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026129.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026034.jpg" />
 </div>
 
 
@@ -61,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025996.jpg" />
 </div>
 
 
@@ -87,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025975.jpg" />
 </div>
 
 
@@ -113,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025804.jpg" />
 </div>
 
 
@@ -139,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025796.jpg" />
 </div>
 
 
@@ -165,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025771.jpg" />
 </div>
 
 
@@ -191,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025672.jpg" />
 </div>
 
 
@@ -217,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025648.jpg" />
 </div>
 
 
@@ -243,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025635.jpg" />
 </div>
 
 
@@ -269,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025493.jpg" />
 </div>
 
 
@@ -295,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025479.jpg" />
 </div>
 
 
@@ -321,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025431.jpg" />
 </div>
 
 
@@ -347,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025316.jpg" />
 </div>
 
 
@@ -373,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025305.jpg" />
 </div>
 
 
@@ -399,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025282.jpg" />
 </div>
 
 
@@ -425,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025133.jpg" />
 </div>
 
 
@@ -451,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025127.jpg" />
 </div>
 
 
@@ -477,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025110.jpg" />
 </div>
 
 
@@ -503,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024940.jpg" />
 </div>
 
 
@@ -529,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024934.jpg" />
 </div>
 
 
@@ -540,136 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86735E81ADE890979E7C0AD6EE38922B289241AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456661   (1024906) от 23.03.2021
-
-Чаманго / Cjamango (1967) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как только Чаманго выиграл мешок золота за игровым столом, на него напали бандиты Эль Тигре и дон Пабло. Залечивая раны, полученные в драке, Чаманго привязывается к мексиканскому мальчику Мануэлю и красавице Перле. Тем временем у Эль Тигре и дона Пабло появляются разногласия насчёт золота, и Чаманго пытается сыграть на этом, настраивая их друг против друга. Но в (   Читать дальше...   )Производство: Италия / CIO, Intercontinental ProduktionЖанр: ВестернРежиссер: Эдуардо МулагрияАктеры: Иван Рассимов, Мики Харгитей, Элен Шанель, Ливио Лоренцон, Игнацио Спалла, Пьеро Лулли, Федерико Бойдо, Нино Муско, Джорджо Саббатини, Валерио ФьоравантиПеревод: Одноголосый любительскийСубтитры: ОтсутствуютПродолжительность: 01:22:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8504847969483C49F0F8CCCEC2F636FB32F92667
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456599   (1024891) от 23.03.2021
-
-Дон Камилло / Don Camillo (1984) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024891.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дон Камилло — священник и очень богобоязненный человек. Именно поэтому он очень нервничает, когда приходится поиграть в карты с приятелем или покататься по собору на роликовых коньках. А уж принять участие в любительском чемпионате по гольфу — это вообще выше его сил. Только как же еще доносить простые христианские истины до простых итальянских прихожан? Вот такой (   Читать дальше...   )Производство: Италия, Paloma Films, Cinemaster S.r.l.Жанр: Комедия, боевикРежиссер: Теренс ХиллАктеры: Теренс Хилл, Колин Блейкли, Мимзи Фармер, Энди Луотто, Лью Эйрз, Сэм Уиппл, Джозеф Раньо, Дженнифер Хингел, Франко Диоджене, Моника ГравинаПеревод: Многоголосый профессиональныйСубтитры: отсутствуютПродолжительность: 02:03:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FA2746DC27262E1303541C354FB0E7B02B629EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456997   (1024769) от 24.03.2021
-
-Марсель Перез. Автомобиль Робинэ / L'auto di Robinet (1911) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024769.jpg" />
-</div>
-
-
-###  Подробнее
-
-Короткометражка, в которой Робинэ участвует в захватывающей гонке с полицией, которая преследует его за то, что он не показал номер авто. Результат - череда комичных, захватывающих инцидентов.Производство: Италия, Società Anonima AmbrosioЖанр: Комедия, короткометражный, немое киноРежиссер: НеизвестенАктеры: Марсель Перез, Ercole VaserПеревод: НемойСубтитры: ОтсутствуютПродолжительность: 00:03:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9235F7F67593A3AD989B125ECE19F689130A3E1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457001   (1024766) от 24.03.2021
-
-Гарольд Ллойд. Почему выбирают меня? / Why Pick on Me? (1918) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024766.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гарольд развлекается на пляже, но тут влюбляется в девушку, у которой, оказывается, уже есть поклонник.Производство: СШАЖанр: Комедия, короткометражный, немое киноРежиссер: НеизвестенАктеры: Гарольд Ллойд, Снуб Поллард, Биби Дэниелс, Уильям Блэйсделл, Сэмми Брукс, Гарри Барнс, Уильям Гиллеспи, Хелен Гилмор, Лью Харви, Бад ДжеймисонПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:12:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36ACD1033B86B06DE377EE508473EFBBBDE9BB56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457301   (1024638) от 25.03.2021
-
-Гарольд Ллойд. Машина молодости / Hear 'Em Rave (1918) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гарольд работает в салоне красоты. И однажды к нему приходит дама, которая желает помолодеть.Производство: СШАЖанр: Комедия, короткометражный, немое киноРежиссер: Гилберт ПрэттАктеры: Гарольд Ллойд, Снуб Поллард, Биби Дэниелс, Уильям Блэйсделл, Уильям Гиллеспи, Лью Харви, Бад Джеймисон, Оскар Ларсон, Джеймс Пэррот, Дороти УолпертПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:10:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBC4CC1E6F574B17F1BD9D86F10EAE07FA3CF7BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

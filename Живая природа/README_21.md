@@ -1,3 +1,29 @@
+###  Публикация: 1235222   (562044) от 10.07.2018
+
+Живой свет с Дэвидом Аттенборо. Биолюминесценция / David Attenborough’s Light on Earth (Life That Glows) (2016) BDRemux [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Биолюминесценция во многом загадочное явление. Ученые обнаруживают по всему миру множество удивительных живых существ, способных излучать свет. А открытие все большего количества странных светящихся созданий, порождает еще большее количество вопросов. Почему, для чего и каким образом они производят этот свет? В последние годы ученые начали находить ответы на эти (   Читать дальше...   )Производство: Австрия, Великобритания, Terra Mater Factual Studios, Ammonite FilmsЖанр: Документальный, природа, флора, фаунаРежиссер: Джо ЛонкрейнПеревод: Одноголосый закадровый, профессиональныйСубтитры: Русские, АнглийскиеПродолжительность: 00:59:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0AE8966968E0DE9FCF665467F8AA6C7168DA6F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1235185   (562040) от 10.07.2018
 
 IMAX: Вулканы в морских глубинах / IMAX: Volcanoes of the Deep Sea (2003) BDRip [H.264/1080p] [PR]
@@ -6,7 +32,7 @@ IMAX: Вулканы в морских глубинах / IMAX: Volcanoes of the
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562040.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560513.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560269.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559789.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Nat Geo Wild: Самые опасные змеи Азии / Asia's Deadliest sna
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558729.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557984.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557405.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557258.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556415.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556414.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556409.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556274.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555548.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554661.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554630.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554473.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554043.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553825.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553712.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553511.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553510.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553197.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552288.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ Nat Geo Wild: Реальные "Злые птицы" / Real Angry Birds (2014) H
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551346.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549447.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:567FEE2AC0A519A164B37F83DF0A4C406930F4F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310165   (548655) от 22.06.2019
-
-700 Акул / 700 Sharks (2018) HDTV [H.264/1080i-LQ]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548655.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Полинезии группа ученых намерена изучать повадки акул, проводя свои беспрецедентные по масштабам эксперименты среди популяции акул из 700 особей.Производство: Франция, Le Cinquieme ReveЖанр: Документальный, природа, фаунаРежиссер: Люк МарескотПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CF58B96D41854F817F505E90F7536D8CC409441
 ```
 
 https://mybot314.ru/tekegram_catalog/

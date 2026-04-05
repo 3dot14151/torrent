@@ -1,3 +1,32 @@
+###  Публикация: 1319814   (479236) от 14.08.2019
+
+B.T.R - Чужая война (2019) [MP3|320 Kbps] <Industrial Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479236.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Кто-то
+2. Дыши
+3. Война
+4. Шаг(   Читать дальше...   )Жанр: Industrial Hard RockПродолжительность: 00:42:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:129F792E522AAFAED9604CF7D1EB29A5058E55E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1056712   (479177) от 26.09.2016
 
 Tracktor Bowling - 20:16 (2016) [MP3|320 Kbps] <Alternative Metal>
@@ -6,7 +35,7 @@ Tracktor Bowling - 20:16 (2016) [MP3|320 Kbps] <Alternative Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479177.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ David Gilmour - David Gilmour (1978) Reissue, Remastered, 2015, Warner Music Rus
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479146.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Metallica - Moth Into Flame (2016) Single [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479046.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ Wigelius - R3INV3NT1ONS (2012) [FLAC|Lossless]<Melodic Rock/AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478982.jpg" />
 </div>
 
 
@@ -125,7 +154,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478979.jpg" />
 </div>
 
 
@@ -154,7 +183,7 @@ Deep Purple - Live On The BBC (2004) SACD Version [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478966.jpg" />
 </div>
 
 
@@ -183,7 +212,7 @@ Green Day - Revolution Radio (2016) [MP3|320 Kbps] <Punk Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478926.jpg" />
 </div>
 
 
@@ -212,7 +241,7 @@ Slowbone - Tales Of A Crooked Man (1972-74) (1992) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478858.jpg" />
 </div>
 
 
@@ -247,7 +276,7 @@ Neal Morse - Momentum (2012) [FLAC|Lossless]<Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478839.jpg" />
 </div>
 
 
@@ -282,7 +311,7 @@ John Wetton & Geoffrey Downes - 25 albums, 29 CD (1980-2017) [FLAC|Lossless|imag
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478815.jpg" />
 </div>
 
 
@@ -311,7 +340,7 @@ Coroner - R.I.P. (1987) 2005 Reissue [FLAC|Lossless]<Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478805.jpg" />
 </div>
 
 
@@ -340,7 +369,7 @@ Whipstriker - Only Filth Will Prevail (2016) [FLAC|Lossless|image + .cue] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478652.jpg" />
 </div>
 
 
@@ -369,7 +398,7 @@ A Feast For Lampreys - Graveyard Abyss (2022) [FLAC|Lossless|WEB-DL|tracks] <Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478649.jpg" />
 </div>
 
 
@@ -398,7 +427,7 @@ Abstract Dream - A Vision Among The Stars (2021) [FLAC|Lossless|image + .cue] <A
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478648.jpg" />
 </div>
 
 
@@ -427,7 +456,7 @@ Alcoholator - Escape from Reality (2015) [FLAC|Lossless|image + .cue] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478647.jpg" />
 </div>
 
 
@@ -453,7 +482,7 @@ Alcoholator - Coma (2011) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478645.jpg" />
 </div>
 
 
@@ -482,7 +511,7 @@ Einherjer - North Star (2021) [FLAC|Lossless|image + .cue] <Black Metal, Folk Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478642.jpg" />
 </div>
 
 
@@ -513,7 +542,7 @@ Madhouse - Down 'N' Dirty (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478639.jpg" />
 </div>
 
 
@@ -542,7 +571,7 @@ Crystal Gates - Torment & Wonder: The Ways Of The Lonely Ones (2022) [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478638.jpg" />
 </div>
 
 
@@ -571,7 +600,7 @@ Avi Rosenfeld - After The Battle (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478499.jpg" />
 </div>
 
 
@@ -600,7 +629,7 @@ Michael Schenker Group - Universal (2022) Japanese Edition [FLAC|Lossless|image 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478489.jpg" />
 </div>
 
 
@@ -629,7 +658,7 @@ The Prog Collective - Billy Sherwood Project (2012) [FLAC|Lossless]<Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478460.jpg" />
 </div>
 
 
@@ -661,7 +690,7 @@ Lacrimosa - Revolution (2012) [FLAC|Lossless]<Symphonic Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478380.jpg" />
 </div>
 
 
@@ -696,7 +725,7 @@ Styx - 7CD (1975-1983) (Japan Mini LP SHM-CD Limited Edition Releases) (2009) [F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478368.jpg" />
 </div>
 
 
@@ -730,7 +759,7 @@ VA - Desperate Rock'n'Roll (20CD Set) (2000) [MP3|320 кб/с]<Rock & Roll, Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478222.jpg" />
 </div>
 
 
@@ -750,32 +779,6 @@ VA - Desperate Rock'n'Roll (20CD Set) (2000) [MP3|320 кб/с]<Rock & Roll, Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C61B10483990B7FE88739B99FF733337F33C9C47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545794   (478217) от 13.09.2012
-
-МашнинБэнд - 13 альбомов (1988 - 2006) [MP3|128-320 кб/с]<Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: АльтернативаПродолжительность: 00:12:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F78EB86C7E9276D5B9DAF4F520B917A23D6A216A
 ```
 
 https://mybot314.ru/tekegram_catalog/

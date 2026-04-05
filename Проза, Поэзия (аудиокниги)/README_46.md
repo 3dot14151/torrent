@@ -1,58 +1,3 @@
-###  Публикация: 1542879   (635329) от 08.04.2022
-
-Исабель Альенде | Остров под морем (2022) [MP3, Юлия Яблонская]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Захватывающая семейная сага об истории рабства и жизни на Карибских островах в 18-19 веках, роман о мужестве и страстной любви к свободе. Эпическое повествование о судьбе юной рабыни Тете, которой предстоит пережить множество крутых поворотов прежде чем она обретет свободу. Увлекательный рассказ о драматической судьбе героини сплетается с описанием единственного (   Читать дальше...   )Жанр: Зарубежная литератураПродолжительность: 18:10:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2EA0B274F058E6C82CC0907EA94DB8727E4720A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542862   (635184) от 08.04.2022
-
-Андрей Шляхов | Доктор Смерть (2022) [MP3, Сергей Уделов]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Говорят, что у каждого врача есть свое кладбище… Дело не столько в наличии кладбища, сколько в его размерах.
-Говорят, что человеку свойственно ошибаться… Дело не в ошибках, а в том, как часто они происходят.
-Он считал себя хроническим неудачником, но на самом деле ему постоянно везло. А вот его пациентам – нет.
-Знаете, в чем заключается главное отличие между врачом (   Читать дальше...   )Жанр: Современная русская литератураПродолжительность: 08:00:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56D80877E2BC3BC857733239CA9646E9A774FEEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143470   (635130) от 18.06.2017
 
 Чайна Мьевиль и др. | Адамово яблоко. Сборник рассказов (2017) [MP3]
@@ -61,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635130.jpg" />
 </div>
 
 
@@ -88,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635102.jpg" />
 </div>
 
 
@@ -115,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634306.jpg" />
 </div>
 
 
@@ -141,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634239.jpg" />
 </div>
 
 
@@ -167,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633260.jpg" />
 </div>
 
 
@@ -193,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632603.jpg" />
 </div>
 
 
@@ -219,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630590.jpg" />
 </div>
 
 
@@ -247,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630581.jpg" />
 </div>
 
 
@@ -274,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629732.jpg" />
 </div>
 
 
@@ -303,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629652.jpg" />
 </div>
 
 
@@ -330,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629497.jpg" />
 </div>
 
 
@@ -356,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628491.jpg" />
 </div>
 
 
@@ -382,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628490.jpg" />
 </div>
 
 
@@ -408,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628486.jpg" />
 </div>
 
 
@@ -434,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628484.jpg" />
 </div>
 
 
@@ -460,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628483.jpg" />
 </div>
 
 
@@ -486,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628482.jpg" />
 </div>
 
 
@@ -515,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628479.jpg" />
 </div>
 
 
@@ -541,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628478.jpg" />
 </div>
 
 
@@ -567,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628364.jpg" />
 </div>
 
 
@@ -595,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628363.jpg" />
 </div>
 
 
@@ -621,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628265.jpg" />
 </div>
 
 
@@ -647,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628243.jpg" />
 </div>
 
 
@@ -673,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627985.jpg" />
 </div>
 
 
@@ -685,6 +630,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEDA3DE4F1F4838DB7153D110AC64E8059C7C3E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543658   (627891) от 12.04.2022
+
+Майкл Джон Гаррисон | Затонувшая земля поднимается вновь (2022) [MP3, Виктор Бабков]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вся жизнь Шоу - неуклюжая попытка понять, кто он. Съемная комната, мать с деменцией и редкие встречи с женщиной по имени Виктория - это подобие жизни, или было бы ею, если бы Шоу не ввязался в теорию заговора, которая в темные ночи у реки кажется все менее и менее теоретической… Виктория ремонтирует дом умершей матери, пытаясь найти новых друзей. Но что случилось (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 08:21:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87928C5059D619C5D362403E3754E508E0DB47C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144516   (627750) от 22.06.2017
+
+Василий Алёхин | Сполохи над Сеймом (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман "Сполохи над Сеймом" создавался в течение пятнадцати лет. Его документальная основа воссоздает события, связанные с партизанской деятельностью секретаря Крупецкого райкома комсомола Александры Зайцевой. Это имя хорошо известно на Брянщине, Украине, в Курской области. В селе Крупец установлен памятник этой легендарной женщине. Писатель разыскал многочисленные (   Читать дальше...   )Жанр: ПрозаПродолжительность: 23:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93E907EEE6F212D3A490766A3E4A792D6A08AF82
 ```
 
 https://mybot314.ru/tekegram_catalog/

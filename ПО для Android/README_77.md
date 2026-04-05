@@ -1,3 +1,107 @@
+###  Публикация: 1567399   (211358) от 02.08.2022
+
+VPNhub - Безлимитный и безопасный 3.24.1-mobile Mod by derrin [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211358.jpg" />
+</div>
+
+
+###  Подробнее
+
+VPNhub - Безлимитный и безопасный - очень популярный способ преодоления самых разнообразных преград на просторах современного интернета. А так же он обладает весьма схожим логотипом с одним, всем известным ресурсом, что ещё более привлекает пользователей к данному приложению. При этом программа обеспечивает не только доступом к закрытым "территориям", но (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 28.07.2022Разработчик: Appatomic LtdПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:483AEFCAD37BE929BCCE23E828375C5B8F0D3E47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567414   (211332) от 02.08.2022
+
+Turbo VPN - безопасный ВПН 3.8.3.1 Mod by LeeApk [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Turbo VPN - безопасный ВПН - ещё один проект, что обязательно стоит рассмотреть всем кто хочет получить возможность свободного и безопасного перемещения по интернету со своего мобильного устройства. Пользователи смогут снова посещать закрытые ранее для них ресурсы, получать с них информацию и файлы, и при этом быть уверенным в том, что их конфиденциальность и защита (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 14.07.2022Разработчик: Innovative ConnectingПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:424B23C5BA82AD54E34F4CF11A1D577B5431DAC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567525   (211245) от 03.08.2022
+
+tTorrent Pro - Торрент-клиент 1.8.2 Mod by Number one' [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211245.jpg" />
+</div>
+
+
+###  Подробнее
+
+tTorrent - удобный, функциональный и из-за прочих свойств весьма востребованный торрент-клиент, что помогает пользователям легко и без каких-либо проблем загружать нужные им файлы. При этом можно будет не только скачивать, но и выгружать. Создавая и оформляя раздачи не сталкиваясь с неудобствами из управления. Ну а разнообразные настройки помогут подобрать оптимальный (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 21.04.2022Разработчик: tagsoftПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30C8D8FD62B72B9B3A5286F514268BFF3C8875D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531693   (211098) от 01.01.2023
+
+Stickman v4.1 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stickman: рисовать мультики, создать мультик. Как сделать мультик? Нарисуй его сам! Сделай несколько кадров и они оживут на твоём экране. Сделай мультфильм своими руками: рисовать мультфильмы поэтапно легко! Используй приложение для рисования, чтобы создать несколько кадров и анимировать их в собственный мультфильм. Рисуем мультик поэтапно: рисование и анимация комиксов (   Читать дальше...   )Тип издания: Пиратка (открыт Premium)Релиз состоялся: 25.12.2022Разработчик: Appache Tools: easy to useПоддерживаемая ОС: Android 4.2+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B662856160AD157FEA42AFE96CB7216D9030876A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601816   (211026) от 02.01.2023
 
 Photo Scan App by Photomyne v20.8.5700L [Ru/Multi]
@@ -6,7 +110,7 @@ Photo Scan App by Photomyne v20.8.5700L [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211026.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Poster Maker & Flyer Maker v3.6 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210899.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210839.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Naplarm - Location Alarm / GPS Alarm v6.5.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210678.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ ToonApp: AI Cartoon Photo Editor, Cartoon Yourself v2.5.5.8 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210666.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ DNS Changer & Net Speed Test 1312r [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210663.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ Nomad Sculpt v1.70 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210610.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210576.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ Cool VPN Pro 1.0.122 Mod by ModExPro [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210305.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ WhatWeather - Метеостанция 1.18.0-pro [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210299.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ PixeLeap - Улучшение фотографий 1.0.9.3 Mod by Mixroot [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210189.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ Easy Voice Recorder - Pro / Простой диктофон - Про 2.8.5 Mod b
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210146.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ Adobe Lightroom - Фоторедактор 8.4.1 Mod by Balatan, Mixroot, frost_
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210135.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ AirBrush v5.7.1 Mod by KirillCXV [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210120.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210110.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ ArtJourney - AI Art Generator v1.1.5 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210096.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ WOT — защита вашего устройства 2.12.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209970.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ SnapEdit - ИИ фоторедактор 4.3.1 Mod by Mixroot, maxi123444, Oflar
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209962.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ Dynamic Island (iOS 16 Notch) 8.9 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209940.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ Retouch - удаление объектов 2.1.6.3 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209825.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209766.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ Clipboard Pro / Буфер обмена Pro 3.0.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209724.jpg" />
 </div>
 
 
@@ -565,111 +669,6 @@ Clipboard Pro или Буфер обмена Pro - это приложение, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E41EE5DF6210633751CE007586790DE1C1086B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644706   (209709) от 06.07.2023
-
-Energy Ring: Universal Edition ER_UNI_FREE_4.5 Mod by youarefinished [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Energy Ring - ещё один проект по персонализации, что предназначен только для определённых моделей мобильных гаджетов. А всё из-за того, что в данном случае пользователи смогут добавить информационное кольцо вокруг фронтальной камеры на устройства на которых экран занимает максимально количество пространства панели. Таким образом объектив окружён сенсорной поверхностью, (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 22.06.2023Разработчик: IJPПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20B28A1F80B8C594D1C96FF3E6643B7B6C7E8231
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644741   (209654) от 06.07.2023
-
-AOA: Always on Display 5.7.1 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209654.jpg" />
-</div>
-
-
-###  Подробнее
-
-AOA: Always on Display - проект по персонализации, что предлагает пользователям существенно расширить возможности их мобильного гаджета и при этом сделать его ещё более стильным и радующим глаз. Данная программа включает постоянно отображаемый экран на который могут выводиться полезная информация, уведомления и так далее. При этом вся структура подвержена контролю (   Читать дальше...   )Тип издания: ProРелиз состоялся: 06.07.2023Разработчик: newGen MobileПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8EFD82209EC6A7EBBD9147CE6FA3105D6D4AB95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644871   (209491) от 07.07.2023
-
-Блокировщик Камеры и Микрофона 1.10.2 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Блокировщик Камеры и Микрофона предоставляет два уровня защиты:
-Базовый уровень, при котором пароль не задействован. Усиленный уровень, при котором пароль заблокирован (например, в Режиме Местоположения камера/микрофон блокируются в случае, если местоположение устройства не может быть определено.Тип издания: ModРелиз состоялся: 22.11.2020Разработчик: GuardevПоддерживаемая ОС: 5.0+Язык интерфейса: Русский, английский и др
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F027640E4B97D5D09079261A344CE22AED924BAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645428   (209437) от 09.07.2023
-
-PlayerPro Music Player 5.34 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209437.jpg" />
-</div>
-
-
-###  Подробнее
-
-PlayerPro Music Player - аудиоплеер, что предоставляет пользователям доступ к многим функциям, что понравятся меломанам. Тут не только удобный поиск по всему разнообразию, интуитивное управление, а так же симпатичный внешний вид оболочки, но и многочисленные настройки, эквалайзер, система создания плейлистов и многое другое. Поклонники нестандартных проектов по достоинству (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 02.07.2023Разработчик: BlastOn SAПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D7FD2AE299BF252C6C696925F2709F5655CB5B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

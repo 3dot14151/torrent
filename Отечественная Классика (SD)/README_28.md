@@ -1,3 +1,55 @@
+###  Публикация: 582100   (537151) от 05.09.2014
+
+Солярис (1972) HDRip [H.264]
+
+>>След.
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537151.jpg" />
+</div>
+
+
+###  Подробнее
+
+На космическую станцию, сотрудники которой давно и тщетно пытаются сладить с загадкой планеты Солярис, покрытой Океаном, прибывает новый обитатель, психолог Крис Кельвин, чтобы разобраться в странных сообщениях, поступающих со станции, и «закрыть» ее вместе со всей бесплодной «соляристикой». Поначалу ему кажется, что немногие уцелевшие на станции ученые сошли с ума. Потом он и сам становится жертвой жуткого наваждения: ему является его бывшая возлюбленная Хари, некогда на земле покончившая с собой.Жанр: фантастика, драма, мелодрама, детектив, приключенияРежиссер: Андрей ТарковскийАктеры: Донатас Банионис, Наталья Бондарчук, Юри Ярвет, Владислав Дворжецкий, Николай Гринько, Анатолий Солоницын, Ольга Барнет, Виталик Кердимун, Ольга Кизилова, Татьяна МалыхПеревод: ОригинальныйПродолжительность: 02:46:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FCEE2884F915E7E8BFCAF5BDD5090317195183E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923332   (536931) от 08.08.2015
+
+Невероятные приключения итальянцев в России (1973) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536931.jpg" />
+</div>
+
+
+###  Подробнее
+
+В одной из больниц Рима скончалась русская эмигрантка. Перед смертью пожилая дама, некогда эмигрировавшая из России, успела поведать своей внучке Ольге, что всё её огромное состояние спрятано в Ленинграде «подо львом». Это обстоятельство явилось причиной срочного старта в Ленинград всех тех, кто случайно был посвящен в эту тайну - самой В одной из римских больниц (   Читать дальше...   )Производство: СССР, Италия / Мосфильм, Dino de Laurentiis Cinematografica, Produzioni Cinematografiche Inter. Ma. Co.Жанр: Комедия, ПриключенияРежиссер: Эльдар РязановАктеры: Андрей Миронов, Нинетто Даволи, Антония Сантилли, Алигьеро Носкезе, Тано Чимароза, Джиджи Баллиста, Евгений Евстигнеев, Ольга Аросева, Лариса Виккел, Александр ЛукьяновПродолжительность: 01:38:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FD002F370A216F88863FD8EA104860FA0747DE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 366740   (536631) от 23.07.2011
 
 Не ходите, девки, замуж (1985) DVDRip
@@ -6,7 +58,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536631.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533023.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531802.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530126.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529913.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529007.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528431.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528374.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526586.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524800.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524171.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523891.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523205.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521131.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520953.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519060.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518198.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517688.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517523.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517210.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516150.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516079.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515996.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515578.jpg" />
 </div>
 
 
@@ -622,59 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E2AE18FEE3DA7C2FED856CB19C046D774448B5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928998   (515000) от 23.08.2015
-
-Будьте моим мужем (1981) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детский врач отправляется в отпуск на Юг, где его услуги в качестве… мужа понадобились молодой и очень красивой женщине. Дело в том, что одной с ребенком ей никто сдавать квартиру в курортном городе не хотел. Нравы тогда такие были.
-Вот ей и понадобился человек, который мог бы разыграть из себя ее мужа для поселения в частном секторе. Ну а как у них сложатся отношения (   Читать дальше...   )Производство: СССР / Киностудия «Мосфильм»Жанр: Комедия, Мелодрама, ДрамаРежиссер: Алла СуриковаАктеры: Елена Проклова, Андрей Миронов, Филипп Адамович, Нина Русланова, Наталья Крачковская, Владимир Басов, Антон Табаков, Баадур Цуладзе, Олег Анофриев, Николай Гринько, Георгий Штиль, Леонард Саркисов, Михаил Светин, Анна Варпаховская, Семен Фарада, Валентина Воилкова, Михаил ХерхеулидзеПродолжительность: 01:22:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6F605C987EE90DB61BA894329BB6131153C8BE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 817540   (513321) от 06.07.2022
-
-Адмирал Нахимов (1946) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Россия. 1853 год. После победы русского флота под командованием адмирала Нахимова над турками создается мощная антирусская коалиция. Душой Севастополя вновь становится Нахимов…Производство: СССР / МосфильмЖанр: Военный, ДрамаРежиссер: Всеволод ПудовкинАктеры: Алексей Дикий,  Евгений Самойлов, Владимир Владиславский, Всеволод Пудовкин, Николай Чаплыгин, Василий Ковригин, Пётр Соболевский, Леонид Князев, Александр Хохлов, Рубен Симонов, Павел Гайдебуров, Борис Оленин, Николай Бриллинг, Георгий Гумилевский, Константин СтаростинСубтитры: отсутствуютПродолжительность: 01:28:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDBED0EAE42482264E3F1D9A660F8662F0AF79B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

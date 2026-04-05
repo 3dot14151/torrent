@@ -1,29 +1,3 @@
-###  Публикация: 915192   (595144) от 04.07.2015
-
-Инаба Чихару | Японский резидент против Российской империи. Полковник Акаси Мотодзиро и его миссия 1904-1905 гг. (2013) [PDF, DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Деятельность Акаси Мотодзиро описана во многих японских исторических романах. Во всех случаях речь идет о шпионаже и подрывных операциях против России, которые по заданию своего правительства он проводил в Европе. Главные его усилия были направлены на сбор секретной информации о России и ослабление, ее изнутри путем финансирования российского революционного и оппозиционного (   Читать дальше...   )Жанр: ИсторияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:172C2F4E1879A0252081AA5441F4723AB389CE51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 915055   (595043) от 04.07.2015
 
 Михаил Болтунов | Разведка «под крышей». Из истории спецслужбы (2015) [FB2]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595043.jpg" />
 </div>
 
 
@@ -59,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594928.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593127.jpg" />
 </div>
 
 
@@ -113,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591854.jpg" />
 </div>
 
 
@@ -139,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591850.jpg" />
 </div>
 
 
@@ -165,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591761.jpg" />
 </div>
 
 
@@ -191,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591387.jpg" />
 </div>
 
 
@@ -217,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590989.jpg" />
 </div>
 
 
@@ -245,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589516.jpg" />
 </div>
 
 
@@ -272,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589504.jpg" />
 </div>
 
 
@@ -298,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588683.jpg" />
 </div>
 
 
@@ -324,7 +298,7 @@ Rocky Wood, Lisa Morton | Witch Hunts: A Graphic History of the Burning Times (2
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588112.jpg" />
 </div>
 
 
@@ -350,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588066.jpg" />
 </div>
 
 
@@ -376,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587998.jpg" />
 </div>
 
 
@@ -402,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587997.jpg" />
 </div>
 
 
@@ -429,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587521.jpg" />
 </div>
 
 
@@ -457,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587427.jpg" />
 </div>
 
 
@@ -485,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586639.jpg" />
 </div>
 
 
@@ -514,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585869.jpg" />
 </div>
 
 
@@ -540,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585718.jpg" />
 </div>
 
 
@@ -566,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585211.jpg" />
 </div>
 
 
@@ -592,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584523.jpg" />
 </div>
 
 
@@ -620,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583018.jpg" />
 </div>
 
 
@@ -648,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582695.jpg" />
 </div>
 
 
@@ -674,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582449.jpg" />
 </div>
 
 
@@ -685,6 +659,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5F5A1841723A35E8B958430F0A38ACC6EBD9D2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302347   (581142) от 15.05.2019
+
+Кэтрин Грей | Средневековье. Полная история эпохи (2019) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Средневековье. Самая спорная и противоречивая эпоха в истории человечества. Одни воспринимают ее как времена прекрасных дам и благородных рыцарей, менестрелей и скоморохов, когда ломались копья, шумели пиры, пелись серенады и звучали проповеди. Для других же Средневековье - это время фанатиков и палачей, костров инквизиции, вонючих городов, эпидемий, жестоких обычаев, (   Читать дальше...   )Жанр: ИсторияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BF665BD66C68E0D27B518CEF15573E7E4F09D97
 ```
 
 https://mybot314.ru/tekegram_catalog/

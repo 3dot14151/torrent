@@ -1,3 +1,32 @@
+###  Публикация: 1450775   (245114) от 27.02.2021
+
+Vas' - Быстрее послушать (2021) [MP3|320 Kbps] <Indie-Rock / Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Будет ли это важно через год [00:03:02]
+02 - Бинго [00:03:16]
+03 - Оставь свет включённым [00:03:29]
+04 - Голышом [00:03:58](   Читать дальше...   )Жанр: Indie-Rock / Pop-RockПродолжительность: 00:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFAC63003370DCC3DBC7B91B481C7AE1555946C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1624558   (245113) от 07.04.2023
 
 Coiotes S.A. - Daqui Pra Frente Eh Nois (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner Metal>
@@ -6,7 +35,7 @@ Coiotes S.A. - Daqui Pra Frente Eh Nois (2023) [FLAC|Lossless|WEB-DL|tracks] <He
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245113.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Odessa - L'Alba Della Civiltà (2023) [FLAC|Lossless|tracks + .cue] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245111.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Vass/Katsionis - Cynical Silence (2023) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245105.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ WICCA - Bloodrush (2010) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245089.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ David Cross - Crossing The Tracks (2018) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245087.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Riverside - ID.Entity (2023) 2CD, Deluxe Edition [FLAC|Lossless|image + .cue] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245083.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ The Adekaem - 5 Albums (2015-2023) [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245078.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Sharp Edges - Slice of Life (1983) [MP3|320 Kbps] <AOR, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245069.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Marco Bernard (The Samurai Of Prog) - The Boy Who Wouldn’t Grow Up (2023) [MP3
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245061.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Winger - Seven (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245051.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Leatherwolf - Kill The Hunted (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245046.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Parasite - Parasite (1984) Mini-Album, Reissue, 2018, No Remorse [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245041.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Tygers Of Pan Tang - Bloodlines (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245030.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ R.A.F. - Restless Spirit (1986) [MP3|320 Kbps] <AOR, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245029.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Amon Amarth - Тhе Рursuit Оf Vikings (2018) Live [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245011.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245010.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ Dead Original - Bought & Sold (2021) [FLAC|Lossless|WEB-DL|tracks] <Grunge>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245009.jpg" />
 </div>
 
 
@@ -500,7 +529,7 @@ Leprous - Aphelion (Tour Edition) (2023) 2xCD [FLAC 2.0|44/24|tracks|WEB-DL] <Pr
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245001.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ Attick Demons - 5 Studio Albums (2000-2020) 5xCD [FLAC|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244999.jpg" />
 </div>
 
 
@@ -559,7 +588,7 @@ Forces United - Hits From Metal Musicals vol.2 (2022) [FLAC|Lossless|image + .cu
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244994.jpg" />
 </div>
 
 
@@ -588,7 +617,7 @@ DizzRoxx - Personal Message (2016) [MP3|320 Kbps] <Blues Rock, Hard Rock, Rock &
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244977.jpg" />
 </div>
 
 
@@ -617,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244969.jpg" />
 </div>
 
 
@@ -646,7 +675,7 @@ The Enigma Division - The Enigma Division (2023) [MP3|320 Kbps] <Progressive Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244958.jpg" />
 </div>
 
 
@@ -675,7 +704,7 @@ Motorbiscuit - Into The Fray (2014) [MP3|320 Kbps] <Hard & Heavy>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244945.jpg" />
 </div>
 
 
@@ -704,7 +733,7 @@ Royal Hunt - Dystopia - Part II (2022) [FLAC|Lossless|image + .cue] <Melodic Pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244944.jpg" />
 </div>
 
 
@@ -718,35 +747,6 @@ Royal Hunt - Dystopia - Part II (2022) [FLAC|Lossless|image + .cue] <Melodic Pro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DB37519B21A65A3BFE4DD3ECBCB637FA90095A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631330   (244937) от 05.05.2023
-
-Burning Witches - The Dark Tower (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rise Of Darkness
-02. Unleash The Beast
-03. Renegade
-04. Evil Witch(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 01:04:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79973634C1A7D71D38A0CAA7731A058071F17EFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

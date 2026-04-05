@@ -1,3 +1,108 @@
+###  Публикация: 628450   (603994) от 22.04.2019
+
+Infinite Painter v6.3.21  [Ru/Multi] - редактор растровой графики
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выбросьте свой этюдник! С бесконечным запасом инструментов и упрощенной, настраиваемым интерфейсом, вы будете ограничены только вашим воображением. Представьте. Создайте. Экспериментируйте в естественной художественной среде Infinite Painter. Это приложение предложит вам множество кистей для создания реалистичной среды.
+Оно хорошо работает с приложением Infinite (   Читать дальше...   )Тип издания: Взломана / Пиратка (PREMIUM features Unlocked)Релиз состоялся: 19.04.2019Разработчик: Sean BrakefieldПоддерживаемая ОС: Android 4.2 +Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FCA21DFEDC2071EFF6F7BDB7766915315E1A130
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547219   (602944) от 28.04.2022
+
+Garmin: Topo Spain V7 PRO [Es]
+
+>>Программы, Игры и прочее
+>>Карты для навигационного ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот продукт, созданный в сотрудничестве с Национальным географическим институтом Испании и Картографическим и геологическим институтом Каталонии, содержит большое количество редакторского картографического контента, в том числе топографические карты масштаба 1:25 000 и популярные тропы для вашего отдыха.Тип издания: карта разблокированаРелиз состоялся: апрель 2020Разработчик: HereПоддерживаемая ОС: GarminЯзык интерфейса: испанскийФормат: .IMG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:344D706160F992D2518AA30546D939778B5EED20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547489   (602936) от 28.04.2022
+
+Garmin: City Navigator Thailand NT 2021.20 + 2021.40 (Dual) [En/Th]
+
+>>Программы, Игры и прочее
+>>Карты для навигационного ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Карта Таиланда для навигаторов Гармин.Тип издания: карты разблокированыРелиз состоялся: (2021.20 - февраль 2021) (2021.40 - август 2021)Разработчик: GarminПоддерживаемая ОС: GarminЯзык интерфейса: Английский, Тайский (см. "Дополнительная информация")Формат: .IMG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C534D32EC3CC5D424857193EFD06B9396597C36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298931   (601540) от 29.04.2019
+
+Реальные Шахматы v2.85 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почувствуй новое поколение графики в сплаве со всеми знакомой и любимой игре в шахматы.Тип издания: AdFree (удалена реклама)Релиз состоялся: 1.06.2018Разработчик: AlienforceПоддерживаемая ОС: Android 4.1+Жанр: Настольные игрыЯзык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D3010A513A37EFC8F47B745F6FD933243C5E7E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 913853   (601130) от 30.06.2015
 
 Аудио Сказки Шарля Перро детям 1.1 [Ru]
@@ -6,7 +111,7 @@
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601130.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601084.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601080.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601078.jpg" />
 </div>
 
 
@@ -112,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601076.jpg" />
 </div>
 
 
@@ -140,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601069.jpg" />
 </div>
 
 
@@ -166,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600997.jpg" />
 </div>
 
 
@@ -192,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600938.jpg" />
 </div>
 
 
@@ -218,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600934.jpg" />
 </div>
 
 
@@ -245,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600073.jpg" />
 </div>
 
 
@@ -273,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599981.jpg" />
 </div>
 
 
@@ -302,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599835.jpg" />
 </div>
 
 
@@ -330,7 +435,7 @@ Garmin: TOPO Andes v.4 (2016.10) [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599079.jpg" />
 </div>
 
 
@@ -356,7 +461,7 @@ Hydro Coach - пейте воду 2.9.2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598330.jpg" />
 </div>
 
 
@@ -382,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598163.jpg" />
 </div>
 
 
@@ -410,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598001.jpg" />
 </div>
 
 
@@ -436,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597727.jpg" />
 </div>
 
 
@@ -463,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597540.jpg" />
 </div>
 
 
@@ -492,7 +597,7 @@ Microsoft Office Mobile 15.0.4220.2300 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597436.jpg" />
 </div>
 
 
@@ -518,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596424.jpg" />
 </div>
 
 
@@ -544,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596369.jpg" />
 </div>
 
 
@@ -570,7 +675,7 @@ Superuser 3.1.3 [Ru]
 >>Вспомогательное ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595849.jpg" />
 </div>
 
 
@@ -584,112 +689,6 @@ Superuser 3.1.3 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D338775D74FC431D1BBEBE812A11585702F7A5F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 892182   (595671) от 03.07.2015
-
-Prince of Persia Classic 2.0.2 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перерождение легендарного экшен-платформера с новыми визуальными эффектами и управлением, разработанным специально для вашего устройства.
-Действие происходит после событий Prince of Persia Classic, Prince of Persia The Shadow и Flame, продолжая сагу о страннике, рожденном принцем. Теперь он должен отправиться в эпическое путешествие на поиски своего прошлого, которое (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 10 июня 2015 г.Разработчик: Ubisoft EntertainmentПоддерживаемая ОС: Android 2.3+Жанр: AdventureЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C84CADC1B81CCF793D87B4D486417DB544C9AD45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150095   (595160) от 14.07.2017
-
-Garmin: Basarsoft NavCity Turkey 2016 T3 [En]
-
->>Программы, Игры и прочее
->>Карты для навигационного ПО
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дорожная карта Турции для навигаторов ГарминТип издания: карта разблокированаРелиз состоялся: октябрь 2016Разработчик: BaytekinПоддерживаемая ОС: GarminЯзык интерфейса: АнглийскийФормат: .IMG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82271AB4C10310859ABE69851152E145DD216AE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150118   (594940) от 14.07.2017
-
-Isoland v2.0.2 [Ru/Multi]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Isoland - в этой игре вы будете помогать главному герою, который получил несколько дней назад письмо. В письме была только карта. Герой отправляется в путешествие по этой карте. В скором времени он натыкается на необычный остров по среди океана. Как только герой вышел на берег, он понимает, что сам стал частью большой головоломки
-и разгадать её сможет только настоящий (   Читать дальше...   )Тип издания: ПираткаРазработчик: http://www.redfishgamestudio.com/Поддерживаемая ОС: Android 2.3 и вышеЖанр: Квест, ГоловоломкиЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04D50ACDB0AFBB7095F4EC106EDF71A94B74BE04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150162   (594819) от 14.07.2017
-
-Garmin: Ukraine Topo Map v1.07 [Ru/Multi]
-
->>Программы, Игры и прочее
->>Карты для навигационного ПО
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Топографическая карта УкраиныТип издания: карты не блокированыРелиз состоялся: февраль 2017Поддерживаемая ОС: GarminЯзык интерфейса: русский, украинский, английскийФормат: .IMG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CB694B6A9EAD5480D5909377D8527FA72BA57AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

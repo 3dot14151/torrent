@@ -1,3 +1,29 @@
+###  Публикация: 800301   (639919) от 29.06.2014
+
+Lynda.com | HTML (2010-2014) [PCRec] [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это сборник видеуроков от Lynda.com по HTML за 2010 - 2014 года. Сюда вошли 27 курсов от Lynda.com. Отличие от подобных раздач - нумерация и имена файлов полностью совпадают с оригинальными, файлы примеров вынесены в отдельный архив. По мере появления новых курсов раздача будет оперативно обновлятьсяЖанр: WebПродолжительность: 48:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D9E7AB0D7C41D6D07DCDD03FF7896737A4B541D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 679797   (639756) от 18.07.2013
 
 Евгений Попов | Как быстро и бесплатно создать 3D-обложку [2012] PCRec
@@ -6,7 +32,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639756.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ Volfix.net (Вохмянина) | Market Profile - новое мышление �
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639578.jpg" />
 </div>
 
 
@@ -64,7 +90,7 @@ Volfix.net | LEVEL 3 Высокоэффективная торговая стр�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639574.jpg" />
 </div>
 
 
@@ -93,7 +119,7 @@ Volumexpert (Вохмянина Л.) | Базовый курс по объемн
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639573.jpg" />
 </div>
 
 
@@ -122,7 +148,7 @@ Volumexpert  | КУРС ПРОФЕССИОНАЛ (2014) PCRec
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639570.jpg" />
 </div>
 
 
@@ -150,7 +176,7 @@ ITVDN | Unity3D Написание игрового сервера и созда
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639367.jpg" />
 </div>
 
 
@@ -176,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639350.jpg" />
 </div>
 
 
@@ -202,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639033.jpg" />
 </div>
 
 
@@ -230,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638756.jpg" />
 </div>
 
 
@@ -256,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638747.jpg" />
 </div>
 
 
@@ -282,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638584.jpg" />
 </div>
 
 
@@ -310,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638456.jpg" />
 </div>
 
 
@@ -336,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638451.jpg" />
 </div>
 
 
@@ -365,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638450.jpg" />
 </div>
 
 
@@ -391,7 +417,7 @@ Lynda.com | CSS (2009-2013) [PCRec] [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638061.jpg" />
 </div>
 
 
@@ -417,7 +443,7 @@ Lynda.com | JavaScript (2011-2014) [PCRec] [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637963.jpg" />
 </div>
 
 
@@ -443,7 +469,7 @@ Volfix.net | Валютные фьючерсы - рабочие параметр
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637933.jpg" />
 </div>
 
 
@@ -472,7 +498,7 @@ Volumexpert (Вохмянина Л.) | Интрадей или поиск иде
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637925.jpg" />
 </div>
 
 
@@ -498,7 +524,7 @@ Volfix.net (Михаил Лемах) | Практическое применен
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637923.jpg" />
 </div>
 
 
@@ -524,7 +550,7 @@ Volfix.net | Торговые тактики для фьючерса на инд
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637782.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ Volfix.net (Михаил Лемах) | Симбиоз технического �
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637770.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ Volumexpert (Вохмянина Л.) | Реверс и Арбитраж (2012) P
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637647.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637069.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637066.jpg" />
 </div>
 
 
@@ -664,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636937.jpg" />
 </div>
 
 
@@ -675,35 +701,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0582907F78249661D37D31BD8431FBD6E57D01CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143074   (636933) от 17.06.2017
-
-Виктор Стиннер | Оптимизации, сделавшие Python 3.6 быстрее Python 3.5 (2017) HDTV
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636933.jpg" />
-</div>
-
-
-###  Подробнее
-
-Различные оптимизации сделали Python 3.6 быстрее Python 3.5. Давайте разберём, что и как было сделано.
-
-Python 3.6 превосходит любую другу версию во многих тестах производительности. Мы познакомимся с результатами тестов на Python 2.7, 3.5 и 3.6.
-(   Читать дальше...   )Производство: PSFЖанр: ПрограммированиеПродолжительность: 00:28:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5CE43C689AAB04C74F584A475F8E6EF2C0E4C43
 ```
 
 https://mybot314.ru/tekegram_catalog/

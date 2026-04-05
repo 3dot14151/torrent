@@ -1,3 +1,159 @@
+###  Публикация: 977649   (964217) от 22.01.2016
+
+Последний охотник на ведьм / The Last Witch Hunter (2015) BDRip[H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современный мир скрывает множество секретов, но самым удивительным из них является то, что ведьмы до сих пор живут среди нас. Это злобные сверхъестественные существа, чья цель — наслать на мир смертоносную чуму. Армии охотников на ведьм сражались с ними на протяжении многих веков. В наши дни остался всего лишь один охотник на ведьм, Колдер, которому однажды удалось (   Читать дальше...   )Производство: США / Summit Entertainment, Lionsgate CompanyЖанр: Фэнтези, боевик, приключенияРежиссер: Брек ЭйснерАктеры: Вин Дизель, Роуз Лесли, Элайджа Вуд, Оулавюр Дарри Оулафссон, Рина Оуэн, Юли Энгельбрехт, Майкл Кейн, Джозеф Гилган, Исаак Де Банколе, Майкл Халсли, Слоун Кумбс, Лотте Вербеек, Доун Оливери, Инбар Лави, Армани Джексон, Эйми Карреро, Бекс Тейлор-Клаус, Дэвид Уэйлен, Джэк Эрди, Туссэн Рафаэль АбессолоПеревод: Дублированный (iTunes)Субтитры: отсутствуютПродолжительность: 01:46:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC26345978F3CCAA04664230B478E93A74EFD1E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942507   (964213) от 22.01.2016
+
+Armikrog (2015) [Ru/Multi] (1.04 b20161201) License GOG
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Armikrog – это уникальное пластилиновое приключение в жанре ""point and click"" от создателей таких шедевров, как Earthworm Jim и The Neverhood. Составьте компанию космическому разведчику Томминоту и его слепому говорящему псу-инопланетянину по кличке Бик-Бик – они как раз должны сбежать из таинственной крепости, попутно решая загадки и головоломки!Тип издания: ЛицензияРазработчик: Doug TenNapel / Pencil Test StudiosЖанр: Adventure (Puzzle), LogicЯзык озвучки: АнглийскийЯзык субтитров: Русский,  Немецкий, Французский, Итальянский, Испанский, ПольскийЯзык интерфейса: Русский,  Немецкий, Французский, Итальянский, Испанский, Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F8AF315A6C8660954AA3C8542FB7AC57DB296E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949954   (964212) от 22.01.2016
+
+The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота [patch] (2015) (1.12.1) Official GOG
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный патч позволяет обновить игру до версии 1.12.1 . Вносит ретро-активные исправления на некоторые достижения, которые не были внесены в поправки патча 1.12.Тип издания: Официальный патчРазработчик: CD Projekt RED и CD Projekt RED KrakwЖанр: RPG, AdventureЯзык озвучки: -/-Язык интерфейса: -/-
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84B5E7D626703B1D459784AFD6C807232B886695
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978078   (964210) от 22.01.2016
+
+Лунная афера / Moonwalkers (2015) WEB-DLRip [VO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тайный агент ЦРУ отправляется в Лондон, чтобы разыскать там Стэнли Кубрика и заказать ему фильм про высадку астронавтов на лунную поверхность на случай провала реальной миссии. Но вместо Кубрика агент нарывается на афериста Джонни, который устраивает съемки сверхсекретного видео на стремной студии порнофильмов, где невесомость достигается благодаря крепкому косяку…Производство: ФранцияЖанр: КомедияРежиссер: Антуан Бардо-ЖакеАктеры: Руперт Гринт, Рон Перлман, Роберт Шиэн, Джинн Абрахам, Керри Шейл, Джей Бенедикт, Эрик Лёмпарт, Дэн Пул, Том Ауденарт, Джон ФландерсПеревод: Любительский одноголосый (kim-de-form_jr)Субтитры: ОтсутствуютПродолжительность: 01:36:22Реклама: Oтсутствует какая-либо реклама
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A8C5DE52CE56406FB4FD826CEC7B51D31E600D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977765   (964209) от 22.01.2016
+
+Лунная афера / Moonwalkers (2015) WEB-DL [H.264/720p-LQ] [VO]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964209.jpg" />
+</div>
+
+
+###  Подробнее
+
+А что если «Аполлон 11» никуда не высаживался? А знаменитое видео о высадке людей на Луну на самом деле снято Стэнли Кубриком по заказу правительства США, в обстановке строжайшей секретности. Эта вполне правдоподобная теория заговора и легла в основу «Гуляющих по Луне». Страдающий расстройствами психики агент Кидман отправляется в хиппующий Лондон, чтобы поручить (   Читать дальше...   )Производство: ФранцияЖанр: КомедияРежиссер: Антуан Бардо-ЖакеАктеры: Руперт Гринт, Рон Перлман, Роберт Шиэн, Стивен Кэмпбелл Мур, Том Ауденарт, Кевин Бишоп, Эрик Лёмпарт, Эрика Сэйнт, Джей Бенедикт, Джон ФландерсПеревод: Одноголосый закадровый, любительский (kim-de-form_jr)Продолжительность: 01:36:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F60DAB9D5942AAB0455FAAA6029C66C07FA955F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359211   (963951) от 12.02.2020
+
+Ученые открывают новую квазичастицу: Пи-Тон
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследователи находят ранее неизвестную квазичастицу в компьютерных симуляциях. Получивший название pi-ton, он содержит 2 электрона и 2 отверстия. Некоторые эксперименты, проведенные на материале титаната Самария, дают убедительные доказательства существования pi-ton.уществует несколько типов частиц, например, элементарные частицы, которые классифицируются в соответствии (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358986   (963944) от 12.02.2020
 
 Интернет-пользователи назвали главные научные достижения 2019 года
@@ -6,7 +162,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963944.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>12
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963882.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963875.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963869.jpg" />
 </div>
 
 
@@ -111,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963353.jpg" />
 </div>
 
 
@@ -137,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963333.jpg" />
 </div>
 
 
@@ -163,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963332.jpg" />
 </div>
 
 
@@ -189,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963176.jpg" />
 </div>
 
 
@@ -216,7 +372,7 @@ Splash Premium 2.0.0.0 [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963174.jpg" />
 </div>
 
 
@@ -242,7 +398,7 @@ Adobe Illustrator CC 2015 (v19.2.1) x86-x64 RUS/ENG Update 5
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963106.jpg" />
 </div>
 
 
@@ -268,7 +424,7 @@ Don't Starve: Shipwrecked (2013) [Ru/En] (1.162564/dlc) Unofficial
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963105.jpg" />
 </div>
 
 
@@ -294,7 +450,7 @@ Heroes 3 Complete (Герои 3 Полное собрание) + HD Mod (1999) [
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963103.jpg" />
 </div>
 
 
@@ -322,7 +478,7 @@ Windows 10 / 8.1 / 7 SP1 x64 pe MBR-UEFI StartSoft 1-2016 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963102.jpg" />
 </div>
 
 
@@ -348,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>36
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963099.jpg" />
 </div>
 
 
@@ -374,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962980.jpg" />
 </div>
 
 
@@ -400,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962868.jpg" />
 </div>
 
 
@@ -427,7 +583,7 @@ JetBrains PhpStorm 2019.3.3 Build #PS-192.5728.108 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962811.jpg" />
 </div>
 
 
@@ -453,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>11
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962809.jpg" />
 </div>
 
 
@@ -479,7 +635,7 @@ Windows 7 Professional SP1 x64 Game OS 2.9 by CUTA [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962807.jpg" />
 </div>
 
 
@@ -505,7 +661,7 @@ Windows 10 Pro 1909 b18363.657 x64 ru by SanLex (edition 2020-02-12) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962806.jpg" />
 </div>
 
 
@@ -517,164 +673,6 @@ Windows 10 Pro 1909 b18363.657 x64 ru by SanLex (edition 2020-02-12) [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E8AD1185913B6BA1C51410EFFFE7413DA8BDAA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359370   (962803) от 13.02.2020
-
-"КамАЗ" запатентовал электрогрузовик без кабины
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акционерное общество "КамАЗ" оформило патент на грузовой электрический автомобиль, не предполагающий наличие кабины. Детали проекта опубликованы на портале Федерального института промышленной собственности.Концепт электрического беспилотного грузовика "КамАЗ"Судя по снимкам, машина представляет собой прямоугольный кузов на двухосном шасси. Электромобиль (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359970   (962795) от 13.02.2020
-
-Wolcen: Lords of Mayhem (2019) [Ru/Multi] (1.0) License CODEX
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы – один из трех выживших в резне при Кастагате. Вас спас Великий инквизитор Хэймлок, и вы с самых ранних лет связали свою жизнь с республиканской армией Искоренителей, поступив в военную академию, чтобы стать идеальным борцом со сверхъестественным. Хэймлок не оставался в стороне от вашего обучения, и благодаря его вниманию, тренировкам и советам вас и ваших друзей (   Читать дальше...   )Тип издания: LicenseРазработчик: WOLCEN StudioЖанр: Hack-and-Slash, RPG, ActionЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:738152B8F1EE06686C7CCFE0962FA5AC52C21A20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280117   (962786) от 13.02.2020
-
-Resident Evil 2 Remake / Biohazard RE:2 (2019) [Ru/Multi] (1.04/dlc) License CODEX [Deluxe Edition]
-
->>3
->>10
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выход Resident Evil 2 состоялся в 1998 году, и теперь одна из самых знаменитых игр всех времен возвращается на современные консоли в совершенно новом облике. Пройдите отдельные кампании за Leon Kennedy и Claire Redfield в новом режиме от третьего лица.Тип издания: LicenseРазработчик: CAPCOMЖанр: Action (Shooter), Survival Horror, 3 rd Person, 3D, PuzzleЯзык озвучки: Английский, Немецкий и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2888895DDCD73B5EBB8EE10368CE0E3A82959239
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 170127   (962252) от 28.01.2010
-
-Paragon Partition Manager Server Edition 10.0 [ENG/RUS] x86-x64 bit
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Paragon Partition Manager Server - это интегрированный набор мощных инструментов, которые специально предназначены для решения большинства проблем, c которыми пользователь может столкнуться при использовании компьютера. А очень умный движок программы вместе со встроенными передовыми технологиями восстановления объектов, позволяет безопасно выполнять операции разметки (   Читать дальше...   )Язык интерфейса: русский, английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592929   (962241) от 20.02.2013
-
-Just Dance 4 DLC Хак [Wii] [PAL/NTSC] (2012)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это DLC Хак для игры Just Dance 4 . В него входят большинство треков из магазина (в том числе и Gangnam Style).
-Just Dance 4Разработчик: UbisoftЖанр: ТанцыЯзык интерфейса: У DLC интерфейса нету. Поэтому язык равен языку игры.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A635FC80194C4BFEEE1AB70D9EF05A1F9EBFC273
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 621432   (962240) от 20.02.2013
-
-Euro Truck Simulator 2 / С грузом по Европе 3 [Ru/En/Multi34] (L/1.3.1.43709) 2012 | COGENT
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962240.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Euro Truck Simulator 2 дарит вам опыт управления самыми мощными машинами, когда-либо появлявшимися на шоссейных магистралях и автобанах Европы. Вы сможете пройти весь путь - от энтузиаста-дальнобойщика, до обладателя собственной транспортной империи.
-Настраивайте грузовики с нуля, максимально расширяйте свой автопарк, наймите водителей, купите гараж в каждом городе и исследуйте каждую дорогу - и это только часть доступных возможностей. (   Читать дальше...   )Тип издания: ЛицензияЖанр: Racing / Simulator / 3DЯзык озвучки: -/-Язык субтитров: Русский / Английский / Multi34Язык интерфейса: Русский / Английский / Multi34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73DDDAFDF1BCB729EB3EE33E1AFB1EEBFE64EFDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

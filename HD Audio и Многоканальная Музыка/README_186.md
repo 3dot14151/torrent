@@ -1,32 +1,3 @@
-###  Публикация: 1784802   (69481) от 13.03.2025
-
-Surya - Into the Emerald (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Evergreen River (1:28)
-02.  A Blazing Crusade (3:43)
-03.  Through the Stone (4:15)
-04.  Beyond Eyes of Gold (8:56)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD3E323D8CA5A1C18BB6ECD6A5F7A211EE7C9BEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784936   (69480) от 13.03.2025
 
 The Witches´ Dream - Muses & Conjurations (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
@@ -35,7 +6,7 @@ The Witches´ Dream - Muses & Conjurations (2025) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69480.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Tomislav Goluban & Crooked Eye Tommy - Nashville Road (2025) [FLAC 24/48|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69479.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Avion - Lady Of The Night (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69478.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Moonsorrow - Voimasta Ja Kunniasta (2001) Released, 2017, Blood Music [FLAC|24/1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69477.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Arthur Guyard - Pocket Grooves (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69476.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ The Late Speakers - Freaking News (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69475.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Untold Stories - Wind and Memories (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69474.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Pioneers - In A State Of Rock (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69473.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Beppe Capozza - T O U C H (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusio
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69472.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Space Chaser - Studio Albums (5 releases) (2013-2021) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69471.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Saraya - When The Blackbird Sings (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69469.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Zventa Sventana - коллекция (4 издания) (2006-2023) hand made [r
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69424.jpg" />
 </div>
 
 
@@ -384,7 +355,7 @@ Coolio - Greatest Hits (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hip-Hop, Rap,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69418.jpg" />
 </div>
 
 
@@ -413,7 +384,7 @@ Legion of the Damned - The Poison Chalice (2023) [FLAC|24/192|image + .cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69412.jpg" />
 </div>
 
 
@@ -442,7 +413,7 @@ Sentenced - Shadows of the Past (1991) Released, 2011, Century Media [FLAC|24/96
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69410.jpg" />
 </div>
 
 
@@ -471,7 +442,7 @@ Seventh Storm - Maledictus (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progress
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69406.jpg" />
 </div>
 
 
@@ -500,7 +471,7 @@ Wrath of the Machines - Blood and Oil (2025) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69402.jpg" />
 </div>
 
 
@@ -529,7 +500,7 @@ Sentenced - North From Here (1993) Reissue, 2009, 	Century Media [FLAC|24/96|tra
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69400.jpg" />
 </div>
 
 
@@ -558,7 +529,7 @@ Jon Anderson - Perpetual Change (Live) (2025) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69354.jpg" />
 </div>
 
 
@@ -587,7 +558,7 @@ Karen Cheryl - Etonnamment Romantique  Best Of (2025) Remastered [FLAC 24/96|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69342.jpg" />
 </div>
 
 
@@ -616,7 +587,7 @@ Manntra - Titans (2025) [FLAC 24/44.1, 24/48|Lossless|WEB-DL|tracks] <Industrial
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69341.jpg" />
 </div>
 
 
@@ -645,7 +616,7 @@ The Hot Rod Gang - Can U Dig It? (40th Anniversary) (2025) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69338.jpg" />
 </div>
 
 
@@ -674,7 +645,7 @@ Streetlight - Night Vision (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69334.jpg" />
 </div>
 
 
@@ -703,7 +674,7 @@ Confidence Man - 4AM (LA LA LA) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Te
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69333.jpg" />
 </div>
 
 
@@ -732,7 +703,7 @@ Swallow The Sun - Studio Albums (10 releases) (2003-2024) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69331.jpg" />
 </div>
 
 
@@ -746,6 +717,35 @@ Swallow the Sun — финская группа из Йювяскюля, осн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C43FC1B90DBC99B4E9153207DA5894F9AB1C1352
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785364   (69328) от 15.03.2025
+
+David Rose - My Only One (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  My Only One (3:34)
+02.  Dancing Alone (6:26)
+03.  Sunset Boulevard (3:43)
+04.  Shades of Blue (3:52)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:54:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B34ACAA46927E0BE5463B3691F45F2EC7F158372
 ```
 
 https://mybot314.ru/tekegram_catalog/

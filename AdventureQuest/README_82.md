@@ -1,3 +1,81 @@
+###  Публикация: 1738572   (49093) от 23.07.2024
+
+SCHiM (2024) [Ru/Multi] (1.0) Repack dixen18
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шхим - это дух, сущность любого объекта, вещи или живого существа. У всего в мире есть свой шхим, и его ни в коем случае нельзя отделять! К несчастью, именно это произошло с твоим шхимом. Сможешь ли добраться до него, пока не станет слишком поздно?Тип издания: RepackРазработчик: Ewoud van der Werf, Nils SlijkermanЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55C5E350C43E334F57FA7060EA8A4727CA545AD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738518   (49074) от 23.07.2024
+
+ReThink 5 (2024) [En] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49074.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ReThink 5 вы окажетесь в футуристическом мире, где свет и цвет - ваши главные инструменты. Управляя лазерами, вы будете распутывать хитросплетения головоломок от первого лица. Каждая загадка - это вызов вашей сообразительности, а спокойная атмосфера игры позволит сосредоточиться на решении даже самых сложных задач.Тип издания: RepackРазработчик: YaekoЖанр: Logic, PuzzleЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9126E3B9D70A64CD99314BF00130349F6D2D5EDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738852   (48927) от 25.07.2024
+
+Nobody Wants to Die (2024) [Ru/Multi] (1.0.1.0.46.065) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48927.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nobody Wants to Die с головой окунает вас в Нью-Йорк будущего, где смерть - пережиток прошлого. Сейчас 2329 год, и Большое Яблоко - это огромный мегаполис, стоящий на краю пропасти. Бессмертие стало реальностью, но за него приходится платить. Добро пожаловать в мир, где все поставлено на карту. Вы становитесь на место детектива Джеймса Карры. Он опытный следователь (   Читать дальше...   )Тип издания: LicenseРазработчик: Critical Hit GamesЖанр: Приключение, Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54EA9AA81242A0CC7C38DA4CA25A8B7A11859073
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727305   (48908) от 25.07.2024
 
 Nine Sols (2024) [Multi] (b7ca1880) Scene Rune
@@ -6,7 +84,7 @@ Nine Sols (2024) [Multi] (b7ca1880) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48908.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ The Longing (2020) [Ru/Multi] (1.8.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48895.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Etera (2024) [En] (1.0.0) Scene SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48885.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ The Star Named EOS (2024) [Ru/Multi] (1.0.0_03) Repack Other s [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48605.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Undying (2021) [Ru/Multi] (1.0.2.41413/dlc) Repack FitGirl [Premium Edition - Se
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48582.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Over Islands (2024) [Multi] (2.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48558.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Monolith (2023) [Multi] (1.1.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48524.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ THE ORIGIN: Blind Maid (2021) [Multi] (1.3.0) Repack FitGirl [Definitive Edition
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48491.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ The Renovator: Origins (2024) [Ru/Multi] (1.02) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48439.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Conscript (2024) [Ru/Multi] (1.0.0.2/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48407.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Nobody Wants to Die (2024) [Ru/Multi] (1.0.1.0.46.065) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48248.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Abnormal1999:Sector 49 / Аномалия1999:Зона 49 (2024) [Ru/Multi] (1.0
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48233.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Tales from the Borderlands (2014) [Ru/En] (1.0.1) Repack FitGirl [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48199.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ The Darkside Detective (2017) [Multi] (2.127.4.167d) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48141.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ It Takes Two (2021) [Ru/Multi] (1.0.0.4) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48135.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ The Darkside Detective: A Fumble in the Dark (2021) [Multi] (2.32.2089.160d) Lic
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48093.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ The Backrooms: Survival (2022) [En] (1.28) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48087.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48033.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Brothers: A Tale of Two Sons Remake (2024) [Ru/Multi] (20240717.09.4260763) Lice
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48030.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Blacklist Mafia (2024) [Ru/En] (Build 15226435) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48016.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Back (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47988.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Blacklist Mafia (2024) [Ru/En] (Build 15226435) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47984.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ The Mortuary Assistant (2022) [Multi] (3.0.0) Repack Other s [Definitive Edition
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47890.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ The Mortuary Assistant (2022) [Multi] (3.0.0) Repack Other s [Definitive Edition
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71FBFB36186CCA4E8EF7465DFA9D3287A894E057
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740958   (47884) от 04.08.2024
-
-Shift 87 (2024) [Ru/Multi] (1.0f9) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47884.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shift 87 – самая необычная рабочая смена ждет вас, в данной хорроре вам предстоит найти аномалии, находящиеся на 3 уровнях. Ходите по мрачным кабинетам и коридорам, проявляйте максимальную внимательность, ведь вам необходимо обнаружить все 66 аномалий, которые отличаются друг от друга и некоторые сложно заметны.Тип издания: LicenseРазработчик: PixelsplitЖанр: Приключенческие игры, Казуальные игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Испанский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6636B88D5872F2392357860B7092BEAA5CF8A3AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740896   (47872) от 04.08.2024
-
-realMyst (2000) [En] (1.11) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ремастированная версия самой продаваемой приключенческой игры Myst. Теперь со свободным движением на 360°, улучшенными анимациями и многими другими вещами! Именно так создатели этой игры хотели, чтобы она выглядела с самого начала! Поэтому погасите свет, включите колонки и приготовьтесь к одному из самых захватывающих и сюрреалистичных впечатлений в вашей жизни!Тип издания: LicenseРазработчик: Cyan WorldsЖанр: Adventure, Puzzle, Mystery, 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ED9BBB88A6DA080D6EBA9F119B6DDB92EFEC688
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741105   (47783) от 05.08.2024
-
-Thank Goodness You're Here! (2024) [Ru/Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Thank Goodness You're Here! – перенесет вас в Англию, в город Барнсворт, где забавный и мелкий коммивояжер решил наведаться к местному мэру, но не рассчитал время и явился слишком рано, теперь у него есть много времени на прогулку по городку, с этого и начинаются приключения. Жители городка очень странные люди, и при общении они обязательно попросят вас о каком-то (   Читать дальше...   )Тип издания: SceneРазработчик: Coal SupperЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCBCF56AC4FADDE8DD569E4E2B8198641A53AE1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

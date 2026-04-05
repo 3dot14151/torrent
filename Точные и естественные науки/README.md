@@ -1,4 +1,83 @@
 https://t.me/izofen
+###  Публикация: 1862819   (1063557) от 
+
+Б. Робертсон | Современная физика в прикладных науках (1985) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063557.jpg" />
+</div>
+
+
+###  Подробнее
+
+Написанная канадским физиком книга для студентов нефизических специальностей дает наглядное представление о физических основах явлений, используемых для создания многих современных технических устройств, в том числе в электронике (прежде всего твердотельной), лазерной оптике, ядерной энергетике и т. д. В книге много иллюстраций, каждая глава снабжена задачами. По (   Читать дальше...   )Жанр: ФизикаИздательство: МирФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF8712A5908A1A6E4FA8A4CE5CDC862F47100066
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862817   (1063556) от 
+
+Р. Спроул | Современная физика (1961) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой удачное изложение основных вопросов современной физики для инженеров. Автор книги поставил себе целью дать в руки инженера не столько практическое пособие, сколько книгу, где излагаются физические основы тех явлений, которые в настоящее
+время широко используются . Материал изложен легко, вполне доступно для инженера и в то же время достаточно (   Читать дальше...   )Жанр: ФизикаИздательство: ФизматлитФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8A5BB12B86B5D9B6E29BCC2BB29CB1C8EA2ABE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862855   (1063530) от 
+
+Книжная серия | Физико-математическая библиотека инженера [70 книг] (1946 - 1991) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063530.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данной раздаче собраны книги, вышедшие в серии "Физико-математическая библиотека инженера". Эта серия содержит книги по общим и специальным вопросам математики, физики и механики, встречающимся в практической и научно-исследовательской работе инженера.Жанр: МатематикаИздательство: Государственное издательство технико-теоретической литературы, Государственное издательство физико-математической литературы, НаукаФормат: PDF, DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B6288BE74F1CE7C591F9776761976F0B5DD5BD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861623   (1062771) от 
 
 У.У. Сойер | Прелюдия к математике (1972) [DJVU]
@@ -7,7 +86,7 @@ https://t.me/izofen
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062771.jpg" />
 </div>
 
 
@@ -34,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062182.jpg" />
 </div>
 
 
@@ -60,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062178.jpg" />
 </div>
 
 
@@ -87,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062172.jpg" />
 </div>
 
 
@@ -114,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062170.jpg" />
 </div>
 
 
@@ -140,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061775.jpg" />
 </div>
 
 
@@ -166,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061767.jpg" />
 </div>
 
 
@@ -194,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061765.jpg" />
 </div>
 
 
@@ -220,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061350.jpg" />
 </div>
 
 
@@ -246,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061245.jpg" />
 </div>
 
 
@@ -273,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061056.jpg" />
 </div>
 
 
@@ -299,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060906.jpg" />
 </div>
 
 
@@ -327,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060212.jpg" />
 </div>
 
 
@@ -353,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060201.jpg" />
 </div>
 
 
@@ -379,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059077.jpg" />
 </div>
 
 
@@ -405,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058403.jpg" />
 </div>
 
 
@@ -431,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056757.jpg" />
 </div>
 
 
@@ -460,7 +539,7 @@ R.W. Chabay, B.A. Sherwood | Matter and Interactions (2015) [PDF, DJVU] [En]
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056677.jpg" />
 </div>
 
 
@@ -486,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056329.jpg" />
 </div>
 
 
@@ -512,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056328.jpg" />
 </div>
 
 
@@ -538,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055906.jpg" />
 </div>
 
 
@@ -564,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055619.jpg" />
 </div>
 
 
@@ -590,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055616.jpg" />
 </div>
 
 
@@ -601,86 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7FB698614E868C8F76376E3075847BF3FD61C92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852201   (1055615) от 06.02.2026
-
-Ф.М. Морс, Г. Фешбах | Методы теоретической физики [2 книги] (1958 - 1960) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двухтомный курс Ф. Морса и Г. Фешбаха занимает особое место в литературе по математической физике. Он написан физиками для физиков и инженеров и показывает в действии математические методы, наиболее успешно применяемые при изучении различных полей.
-В книге излагается ряд важнейших разделов современной математики в плане их применения к задачам физики и техники. Большим (   Читать дальше...   )Жанр: МатематикаИздательство: Издательство иностранной литературыФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9BC504AB07997E08DCD0FEDA7D66375C3B4A049
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851305   (1055303) от 02.02.2026
-
-P. Grohs, M. Holler, A. Weinmann | Handbook of Variational Methods for Nonlinear Geometric Data (2020) [PDF] [En]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга охватывает различные современные направления исследований в контексте вариационных методов для нелинейных геометрических данных. Каждая глава написана ведущими специалистами в соответствующей дисциплине и содержит введение, обзор и описание современного состояния техник, применяющихся в ней.Жанр: МатематикаИздательство: SpringerФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31C5C309378FED9BE253E2FDB2FB629295CD8638
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851237   (1055050) от 01.02.2026
-
-В.И. Глебов, С.Я. Криволапов | Практикум по математической статистике. Проверка гипотез с использованием Excel, MatCalc, R и Python (2019) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055050.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии приведено около 100 задач, посвященных проверке статистических гипотез. Представлены темы: 1) общие свойства (статистика критерия, мощность критерия, Р-значение); 2) критерии случайности, независимости, однородности; 3) критерии согласия (простые гипотезы); 4) критерии согласия (сложные гипотезы); 5) параметрические гипотезы.
-Разобраны примеры решения задач (   Читать дальше...   )Жанр: Компьютерная литература, МатематикаИздательство: ПрометейФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B710ED35D4380AB1174BA9D4799781C9509DFF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

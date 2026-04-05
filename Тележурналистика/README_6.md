@@ -1,3 +1,29 @@
+###  Публикация: 975598   (972188) от 15.01.2016
+
+Человек и закон (15.01.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что нас ждет в Новом году (продажа алкоголя - закон об электронном учете алкогольной продукции через систему ЕГАИС, которая позволяет отследить путь каждой бутылки спиртного от производителя до кассы магазина; в экстренном случае теперь появляется "право на звонок"; штрафы – если готов расплатиться в установленные законом сроки, то обойдется это на 50% (   Читать дальше...   )Телекомпания: Первый каналЖанр: ТелепередачаПродолжительность: 00:51:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10A4DC98DA17203739BCFC15B6B64D841293D86D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975473   (972187) от 15.01.2016
 
 Линия защиты. Состояние республики (2016.01.14) SATRip
@@ -6,7 +32,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972187.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970380.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969772.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969566.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968803.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968741.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967715.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967235.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967232.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967191.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966839.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966835.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966826.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965792.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965791.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965783.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965772.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965749.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964816.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964814.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964803.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964797.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964707.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964703.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964349.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81F291CEC56AA290E6EEC89292E1D82964E129B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978339   (963722) от 23.01.2016
-
-Смех сквозь слёзы (2016) HDTVRip [720p-LQ]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Они бегут от войны и невыносимых условий жизни. Долгий и опасный путь в Европу преодолён – вот только уверенности в завтрашнем дне и поводов для веселья у беженцев нет. Но сегодня они смеются – в лагерь для мигрантов приехали клоуны…  Дурар Афанди из Сирии улыбается – впервые за очень долгое время. Преодолев отчаяние и страх, она вместе с маленькой дочерью пересекла (   Читать дальше...   )Телекомпания: RTДЖанр: ДокументальныйРежиссер: Егор Зимин, Александр ЛуценкоПродолжительность: 00:26:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7861EA6CF40EBD73321989F46F04223D9506A206
 ```
 
 https://mybot314.ru/tekegram_catalog/

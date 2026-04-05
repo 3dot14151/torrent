@@ -1,3 +1,133 @@
+###  Публикация: 912780   (609219) от 27.06.2015
+
+Журнал | Yana Luxury Travel №10 (лето 2015) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609219.jpg" />
+</div>
+
+
+###  Подробнее
+
+Yana Luxury Travel (YLT) – журнал, посвящённый элитному туризму. Каждый выпуск содержит подробную информацию о жизненном спектре в стиле “luxury”. Коллектив журнала призван донести до читателей самую полную и подробную информацию о туристических предложениях на мировом рынке и интересную информацию для путешественников, что делает журнал популярным. YLT рассказывает (   Читать дальше...   )Жанр: Путешествия, туризмФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B9BF2A2BB2FE111557317F37298DDEF84C1669B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912761   (609218) от 27.06.2015
+
+Журнал | Дачные секреты №2 (июль 2015) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609218.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Дачные секреты» - это универсальный помощник всем садоводам и огородникам. В каждом номере: наиболее интересные советы читателей, мнение экспертов и рекомендации специалистов по благоустройству садового участка. Основные рубрики журнала: на огороде, работы в саду, плодовый сад, цветник, своими руками, будьте здоровы, дачные рецепты.Жанр: Дача, сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A07124A25DEFD2AB20320C678BD87AF5B106A0E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231223   (609040) от 16.06.2018
+
+Журнал | Elle Decoration [Spain] №6 (июнь 2018) [PDF] [Sp]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609040.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пользующийся большой популярностью журнал "Elle Decoration" - замечательный и полезный интернациональный журнал о современном интерьере. Для тех, кто думает о перестройке и обустройстве дома, журнал будет помощником в области качественных материалов и тенденций интерьерной моды. В любом номере — дизайнерские новости, демонстрация лучших дизайн-объектов (   Читать дальше...   )Жанр: Дизайн, архитектураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CED0C0B60180371D0E52EF5CC1E870E61284F9A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231213   (609037) от 16.06.2018
+
+Газета | 1000 секретов [Украина] №11 (июнь 2018) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609037.jpg" />
+</div>
+
+
+###  Подробнее
+
+«1000 секретов» - это полная энциклопедия домашнего хозяйства, в которой можно найти советы на все случаи жизни: по обустройству квартиры, по уходу за собой и растениями, о взаимоотношениях в семье, кулинарные рецепты и схемы вязания, а также многие другие. Перед вами издание, которое не только собирает по крупицам народную мудрость, но и дает возможность каждому (   Читать дальше...   )Жанр: Народные советыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82A8AE75BFB159B681B79257D4E9BB1CE25E7F8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231222   (609034) от 16.06.2018
+
+Журнал | Elle Decoration [Россия] №7-8 (26) (июль-август 2018) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609034.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Elle Decoration" является источником вдохновения для ведущих дизайнеров и декораторов мира. Для людей, задумывающихся о строительстве и обустройстве дома, он служит путеводителем в мире современных материалов и тенденций интерьерной моды. В каждом номере — архитектурные новости, выбор лучших дизайн-объектов и знакомство с их создателями, практические советы (   Читать дальше...   )Жанр: Дизайн, архитектураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDDAFEE54637204A4660078FA196889709850CF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1231217   (609030) от 16.06.2018
 
 Журнал | Budujemy Dom [Poland] №4 (2018) [PDF] [Pl]
@@ -6,7 +136,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609030.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609026.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609023.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609015.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609011.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609002.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608936.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608921.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608816.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608709.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608706.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608648.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608525.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608517.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608484.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608371.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608370.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608317.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608168.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608114.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608100.jpg" />
 </div>
 
 
@@ -537,137 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6035504CE077F8607CD0F765DBA242461AEB48C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525676   (607873) от 21.07.2012
-
-Журнал | 25 Золотых рецептов №7 [2012] [DJVU]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607873.jpg" />
-</div>
-
-
-###  Подробнее
-
-В журнале опубликованы пошаговые рецепты различных блюд. Все рецепты уникальны, так как присланы в редакцию читателями журнала.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62EA7BC7578E467FE8D7495F0BE14F4D4ECC9532
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525510   (607741) от 21.07.2012
-
-Журнал | Лиза. Приятного аппетита №8 (август) [2012] [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607741.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Лиза. Приятного аппетита!» - журнал для тех, кто любит готовить, печь и радовать близких кулинарными сюрпризами.
-Это журнал, целиком посвященный только одной теме - домашней кулинарии. На страницах издания - лучшие рецепты русской кухни и самое вкусное со всего света, советы по приготовлению традиционных и экзотических блюд.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C085F4C352CFC1E413A16D788A66E30A5CC331B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147745   (607718) от 03.07.2017
-
-Журнал | Всему свету по совету №13 (240) (июль 2017) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал "Всему свету по совету" - содержит информацию познавательного характера, а также практические советы как редакции, так и читателей в области здоровья, красоты, кулинарии, домоводства, садоводства. В каждом номере – актуальная тема сезона: будь то встреча Нового года или празднование Пасхи, защита от простудных заболеваний, секреты высадки рассады (   Читать дальше...   )Жанр: Сад, огород, домоводствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ABB083B9F0C222534E35F76BA7A5B4CCAC8C9BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147666   (607717) от 03.07.2017
-
-Газета | Дача №13 (85) (июль 2017) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Газета "Дача" - верный ассистент для садоводов и огородников. Все ответы на основные вопросцы дачников и садоводов Вы просто отыщите на страничках издания. Своими секретами больших урожаев, советами и фуррорами делятся огородники со стажем Воспользуйтесь их опытом и таковым образом Вы убережете высадки от почти всех напастей. На страничках журнальчика - (   Читать дальше...   )Жанр: Сад, огородФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A4773FA3C701C6CA991EB54A800B10F0EC02E54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147746   (607711) от 03.07.2017
-
-Журнал | Огородник №7 (июль 2017) [PDF] [Ru, Ua]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607711.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Огородник» - красочный современный журнал для любителей дач и огородов. В каждом номере интересные статьи и полезные советы по уходу за различными культурами, а также по дизайну участка.Жанр: Сад, огород, дачаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C852B03B630089DFB4D97E13614137FC91F462E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

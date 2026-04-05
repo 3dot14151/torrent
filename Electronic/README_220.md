@@ -1,3 +1,119 @@
+###  Публикация: 1141303   (650432) от 10.06.2017
+
+VA - 2017 Music for Massage Relaxation Chillout [MP3|320 Kbps] <Downtempo, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diamans - Reach Heavens - Chillout Mix
+02. Seven24 - Behind the Sky - Chillout Mix
+03. Sad radio on Cassini - Clear Sky - Chillout Mix
+04. Georgy Om - Path - Chillout Mix(   Читать дальше...   )Жанр: Downtempo, LoungeПродолжительность: 00:50:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA44DF45C3DD65009F5852B27BDD94E7515CC64D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227169   (650389) от 24.05.2018
+
+Sea Of Sin - Future Pulse (2018) [FLAC|Lossless|image + .cue] <ElectroPop, SynthPop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Live My Life
+02. Truth
+03. Hold On To Your Dreams
+04. Closer To Sin(   Читать дальше...   )Жанр: ElectroPop, SynthPopПродолжительность: 00:45:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5B4C923AFF31EBEFB95AE64B588973FAE8B59DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227079   (650379) от 24.05.2018
+
+VA - A State Of Trance (Mixed By Armin van Buuren) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren vs Shapov - The Last Dancer (Original Mix)
+02. Whiteout & Wilderness - Yalung (Original Mix)
+03. Tom Fall - Cyclone (Original Mix)
+04. Estiva - Bloom (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:54:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59764B7173F28FCE3C5DA1B47A809DD664D076DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031907   (649832) от 05.07.2016
+
+VA - Ibiza Goes Deeper: A Unique Selection Of Deep House Tunes (2016) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Sandemann - Do It Yourself
+ 02. Ron John - The Last Photo - Frank Fox Mix
+ 03. Modell & Mercier - Black Coral - Lovin' Fashion Mix
+ 04. Greg Vasarely - Notting Hill(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:39:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:910E51EF39EF71CE04BA1756E38EA3A0E6B3548F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031919   (649830) от 05.07.2016
 
 VA - Dezza Pres. Best of Progressive House, Vol. 07 (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
@@ -6,7 +122,7 @@ VA - Dezza Pres. Best of Progressive House, Vol. 07 (2016) [FLAC|Lossless|WEB-DL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649830.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Sensation Angels and Demons (2016) [MP3|320 Kbps] <House, Electro-House, Pr
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649821.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Ibiza Vocal Trance (2016) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649817.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Session Victim - The Haunted House Of House (2012) [MP3|320 кб/с]<Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649708.jpg" />
 </div>
 
 
@@ -119,7 +235,7 @@ VA - Earotic Vol 1 (Chill Out For Your Ears) (2016) [MP3|320 Kbps] <Deep House, 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649684.jpg" />
 </div>
 
 
@@ -148,7 +264,7 @@ Marga Sol - Colours (2016) [MP3|320 Kbps] <Lounge, Chill Out, Easy Listening>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649683.jpg" />
 </div>
 
 
@@ -177,7 +293,7 @@ Mahamudra - ScreenSaver (2015) [MP3|320 Kbps] <Morning, Progressive>
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649549.jpg" />
 </div>
 
 
@@ -205,7 +321,7 @@ VA - Tresor - Lounge Chillout (2015) [MP3|320 кб/с]<Lounge, Chillout>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649483.jpg" />
 </div>
 
 
@@ -234,7 +350,7 @@ VA - Summer Chill (2015) [MP3|320 кб/с]<Chillout, Lounge, Deep>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649480.jpg" />
 </div>
 
 
@@ -263,7 +379,7 @@ VA - Hed Kandi Pres: Beach House (2012) [MP3|320 кб/с]<Deep House, Funky Hous
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649471.jpg" />
 </div>
 
 
@@ -298,7 +414,7 @@ David Wright - 21 albums (1991 - 2011) [MP3|128-320 кб/с]<Progressive Electro
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648992.jpg" />
 </div>
 
 
@@ -324,7 +440,7 @@ Norihito Suda, Stijn Huwels - Sansui (2019) [FLAC|Lossless|tracks + .cue] <Elect
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648850.jpg" />
 </div>
 
 
@@ -353,7 +469,7 @@ Tomoyoshi Date, Stijn Huwels - Hochu-Ekki-Tou (2019) [FLAC|Lossless|tracks + .cu
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648844.jpg" />
 </div>
 
 
@@ -381,7 +497,7 @@ Devon Church - We Are Inextricable (2018) [FLAC|Lossless|tracks + .cue] <Electro
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648842.jpg" />
 </div>
 
 
@@ -410,7 +526,7 @@ Infrequency - Trip Journal (2019) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psydu
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648841.jpg" />
 </div>
 
 
@@ -439,7 +555,7 @@ Bjarki - Happy Earthday (2019) [FLAC|Lossless|tracks + .cue] <Electronic, IDM, A
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648839.jpg" />
 </div>
 
 
@@ -468,7 +584,7 @@ VA - Mykonos Sunset Vol 4 (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648813.jpg" />
 </div>
 
 
@@ -497,7 +613,7 @@ Vintage Culture - Live @ Carnaval, Warung Beach Club, Brazil (2022-02-26) [MP3|3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648758.jpg" />
 </div>
 
 
@@ -526,7 +642,7 @@ Koan - Briar Rose Side A (2019) [MP3|320 Kbps] <Electronic, Downtempo, Ambient>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648752.jpg" />
 </div>
 
 
@@ -555,7 +671,7 @@ Leon Vynehall - DJ-Kicks (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Techn
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648750.jpg" />
 </div>
 
 
@@ -584,7 +700,7 @@ VA - Colorful Downbeats Vol​.​2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Chillo
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648749.jpg" />
 </div>
 
 
@@ -613,7 +729,7 @@ Dense - Contact (2019) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Psychill, Chillg
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648744.jpg" />
 </div>
 
 
@@ -627,122 +743,6 @@ Dense - Contact (2019) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Psychill, Chillg
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CCDD0E374CAD347638C003D4B7798698F346431
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292028   (648743) от 28.03.2019
-
-VA - Prophet Collection Vol.6 by Manuel Defi (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Soulful, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. J.M. Mantecon - Mama Africa (Original Mix) 3:07
-02. Mandarin Plaza - 2 23 AM (Original Mix) 5:42
-03. Yussi Wenger - Zen Prophesy (Original Mix) 4:00
-04. Sander Costanzi - Fede (Original Mix) 6:50(   Читать дальше...   )Жанр: Downtempo, ChillOut, Soulful, LoungeПродолжительность: 01:48:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E70EBE0B66CBBC75CAE6B4E666DAEBD2B7D73B21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291935   (648740) от 28.03.2019
-
-Ioon Cosmic Downtempo - Brave New Breath (2019) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo, Downbeat>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Psilocymango (10:14)
-02. Soothe (9:05)
-03. Inemuri Extended (10:16)
-04. The Death of Capitalism (10:38)(   Читать дальше...   )Жанр: Psychill, Downtempo, DownbeatПродолжительность: 00:49:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08AC53D2FDDC8135BAC99E5221793B849581842C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292185   (648739) от 28.03.2019
-
-Koan - Briar Rose Side B (2019) [MP3|320 Kbps] <Electronic, Downtempo, Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Koan - Briar Rose (Radio Version) (4:17)
-02. Koan - My Personal Dark Knight (The Kiss of Dark Knight Version) (7:18)
-03. Koan - Dream in Kaiser Gardens (Radio Version) (3:51)
-04. Koan - The Star of Pytheas (7:44)(   Читать дальше...   )Жанр: Electronic, Downtempo, AmbientПродолжительность: 01:07:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C5F15972F4136FF09D184AC698C6A6B7861ABFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291960   (648738) от 28.03.2019
-
-VA - Colorful Downbeats Vol.1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Progressive Chill, Downtempo, Downbeat>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Koan - Ruins of Amber Kingdom 06:30
-02. Ghost Rider - You Sun 08:17
-03. Darish - Marrakesch Nights 05:16
-04. Koan - Dolphin & Eos (Suduaya Remix) 06:16(   Читать дальше...   )Жанр: Psychill, Progressive Chill, Downtempo, DownbeatПродолжительность: 01:05:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5243A5DA9BB4B33B4B369F5344DC7842A92DFF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

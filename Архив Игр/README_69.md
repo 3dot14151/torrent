@@ -1,3 +1,60 @@
+###  Публикация: 495986   (255980) от 19.05.2012
+
+[RePack] The Walking Dead: Episode 1 [Ru] 2012 l Fenixx {обновляемая}
+
+>>След.
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255980.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Walking Dead: The Game – адвенчура с элементами «хоррора».
+Cюжет освещает приключения новой группы «выживших», которые резонно вознамерились сбежать из Атланты в свете нашествия зомби.Посмотрите на то, что творилось в первые дни неожиданно нагрянувшего апокалипсиса, и примите участие в событиях, которые так или иначе пересекаются с похождениями шерифа Рика Граймса.(   Читать дальше...   )Тип издания: RePackЖанр: Adventure / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D96737B878055F96880AAD035208CC0CBF6D40C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 498930   (255979) от 19.05.2012
+
+[RePack] Wargame: European Escalation [Ru/En] 2012 l R.G. ReCoding
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два лагеря, восемь государств, один театр военных действий – Европа!
+"Wargame: Европа в огне" - это увлекательная и зрелищная стратегическая игра в реальном времени, отличающаяся невероятным реализмом и глубиной стратегии.
+Соберите собственную армию из более чем 350 различных видов войск и техники и начните грандиозную военную кампанию в Европе 1980-х, сделав шаг от Холодной войны к Третьей мировой.
+Благодаря передовой технологии IRISZOOM ™ игра Wargame обладает непревзойденным качеством графики: зрелищность этой игры не уступает ее реализму. Готовьтесь командовать сотнями боевых единиц - от танков и вертолетов до пехотных отрядов - на огромных полях сражений площадью до 150 квадратных километров!
+Сетевая служба EugenNet© поддерживает все функции коллективной игры, включая создание кланов, организацию турниров и мировые рейтинги, а в грандиозных сетевых битвах могут участвовать до 8 игроков одновременно!(   Читать дальше...   )Тип издания: RePackРазработчик: Eugen SystemsЖанр: Strategy (Real-time) / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8F25DB47D17EE99D326E62D7E1C6921F79DCC87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 498833   (255845) от 19.05.2012
 
 Gas Guzzlers: Combat Carnage [En] (RePack) 2012
@@ -6,7 +63,7 @@ Gas Guzzlers: Combat Carnage [En] (RePack) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255845.jpg" />
 </div>
 
 
@@ -32,7 +89,7 @@ WWE 2K23 (2023) [Multi] (1.08/dlc) License TENOKE [Icon Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254891.jpg" />
 </div>
 
 
@@ -58,7 +115,7 @@ Game of Thrones / Игра престолов [Multi3/-] (L) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254235.jpg" />
 </div>
 
 
@@ -86,7 +143,7 @@ Warhammer 40.000: Space Marine (RePack/1.0.156.0) + 13 DLC [Ru/En] 2011 l R.G. O
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254143.jpg" />
 </div>
 
 
@@ -112,7 +169,7 @@ Treasure Trap [En] (RePack) 1990 | Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253927.jpg" />
 </div>
 
 
@@ -140,7 +197,7 @@ Game of Thrones / Игра престолов [En] (L) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253886.jpg" />
 </div>
 
 
@@ -168,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253863.jpg" />
 </div>
 
 
@@ -196,7 +253,7 @@ Nexuiz [En] (Repack) 2012 | R.G. UniGamers
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253858.jpg" />
 </div>
 
 
@@ -226,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253856.jpg" />
 </div>
 
 
@@ -253,7 +310,7 @@ Counter-Strike 1.6 Original [Ru/En] (pv47/48/No-Steam) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253579.jpg" />
 </div>
 
 
@@ -282,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253550.jpg" />
 </div>
 
 
@@ -308,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253544.jpg" />
 </div>
 
 
@@ -336,7 +393,7 @@ Warhammer 40.000: Dawn of War II - Retribution (RePack/3.19.1.6123) + 13 DLC [Ru
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253525.jpg" />
 </div>
 
 
@@ -363,7 +420,7 @@ Warhammer 40 000: Space Marine + 13 DLC [Ru/En] (RePack/1.0.156.0) 2011 l  Serap
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253497.jpg" />
 </div>
 
 
@@ -389,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253464.jpg" />
 </div>
 
 
@@ -415,7 +472,7 @@ L. A. Noire The Complete Edition [Ru/En] (1.3.2613/Repack) 2011 | UltraISO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253332.jpg" />
 </div>
 
 
@@ -441,7 +498,7 @@ Call of Duty: Modern Warfare 2 [Ru] (RePack/Multiplayer Only|alterRev1.3.37a++b1
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253326.jpg" />
 </div>
 
 
@@ -471,7 +528,7 @@ Confrontation / Confrontation: Последняя битва [Ru] (RePack/1.0.0.
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253290.jpg" />
 </div>
 
 
@@ -497,7 +554,7 @@ Stacking + DLC [Ru] (1.0.0.3/Repack) 2012 | R.G. ReCoding {обновлено 13
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253281.jpg" />
 </div>
 
 
@@ -526,7 +583,7 @@ Confrontation (L) [En] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253013.jpg" />
 </div>
 
 
@@ -552,7 +609,7 @@ Realms (RePack) [En] 1991 | Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252888.jpg" />
 </div>
 
 
@@ -578,7 +635,7 @@ Angry Birds Anthology / Сердитые Птицы: Антология [En] (2.
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252799.jpg" />
 </div>
 
 
@@ -608,7 +665,7 @@ Day of Defeat: Source {1.0.0.37} (P) [Ru] 2005 | tdc-team
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252763.jpg" />
 </div>
 
 
@@ -634,7 +691,7 @@ Counter Strike 1.6 Cyber Monitoring v1.3 [Ru] (pv47/48/No-Steam) 2012 | jesuspun
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252747.jpg" />
 </div>
 
 
@@ -648,61 +705,6 @@ Counter Strike 1.6 Cyber Monitoring v1.3 [Ru] (pv47/48/No-Steam) 2012 | jesuspun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6280B3B5B2073BAB4F6F228B18083E44B7C5BF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495584   (252702) от 13.05.2012
-
-Stacking + DLC [Ru] (RePack) 2012 | R.G. PowerPack
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stacking – приключение с элементами головоломок, которое способно развеселить любого и заставить мозг работать активнее.
-
-Сюжет игры рассказывает о том, как семья русских матрешек была разъединена в связи с тяжелым экономическим положением. Самый младший представитель этого семейства, Чарли Блэкмор, отправляется в путешествие, чтобы снова объединить свою родню. Однако он – самая маленькая матрешка во всем мире и это поначалу оказывается немалой проблемой. Игрокам предстоит научиться правильно использовать эту особенность Чарли. Как оказывается, маленький размер совсем не минус, и только помогает ему во время нелегкого путешествия. Малыш Чарли может без проблем запрыгнуть в любую из больших матрешек, пока та не смотрит в его сторону и контролировать ее.
-Если под управлением игрока уже находится какая-то матрешка, можно взять под контроль еще одну, но только большую по размеру. У каждой из матрешек, которую можно взять под контроль, есть особое умение. Одна, например, сможет открывать двери, а другая – приманивать другие куклы. Пользоваться можно только способностью самой большой контролируемой на данный момент куклы. Используя различные способности, игроку предстоит проходить уровни-головоломки, причем некоторые из них будет иметь множество способов решения различными способами.(   Читать дальше...   )Тип издания: RepackРазработчик: Double Fine ProductionsЖанр: Adventure (Puzzle) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FE83D62A792821C2F6D912F3104F7ACCF3B2E4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613102   (252014) от 26.05.2023
-
-Wild West Dynasty (2023) [Ru/Multi] (0.1.8238) License GOG [Early Access]
-
->>След.
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сочетание RPG и симулятора с открытым миром, действие которого происходит на Диком Западе. Ковбои, колонисты и стрелки. Приготовьтесь исследовать, выживать, строить на Диком Западе и написать свою собственную историю! Сумеете ли вы построить империю на Диком Западе или кончите свои дни на виселице?Тип издания: LicenseРазработчик: Moon Punch StudioЖанр: Симулятор, Приключение, ExplorationЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:194B85461E925754C71C2F5E6AE2976EAFE9A601
 ```
 
 https://mybot314.ru/tekegram_catalog/

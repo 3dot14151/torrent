@@ -1,3 +1,119 @@
+###  Публикация: 1601908   (210931) от 03.01.2023
+
+Moby - Ambient 23 (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. amb23 - 1 [00:08:01]
+02. amb23 - 2 [00:09:06]
+03. amb23 - 3 [00:05:23]
+04. amb23 - 4 [00:07:57](   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 02:26:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF1AE33A438148FF5D1D6F5BE18DDB0E77DF2404
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641392   (210748) от 23.06.2023
+
+VA - Nothing But... Trancetopia, Vol. 04 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. STNX - Meyena (Original Mix) [3:47]
+02. Alphed Le Cornett & Dropper Vampire - Closer To Heaven (Original Mix) [4:21]
+03. Intra De Aeris - Breath Of The Universe (Original Mix) [4:15]
+04. Heaven & Alone - Immersion (Original Mix) [3:30](   Читать дальше...   )Жанр: TranceПродолжительность: 01:52:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A034E6C4553CA75D85CCA57C0E01DC1EA6C3E3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641656   (210741) от 23.06.2023
+
+VA - Suanda Ibiza (2023) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer & Gid Sedgwick - This Is Real (Christopher Corrigan Extended Remix) [7:05]
+02. SMR LVE & Jennifer Rene - Stay (Extended Mix) [5:45]
+03. Feel & Papulin & Ren Faye - The Way Of Magic (Alex M.O.R.P.H. Extended Remix) [7:33]
+04. DJ T.H. & Sharon Valerona - Only Now I See (Extended Mix) [5:54](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:55:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:789263E5DF94EEADEC1DD9728B04E20B3319D347
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640965   (210719) от 23.06.2023
+
+Jessi Frey - Warrior (2022) [MP3|320 Kbps] <Industrial Rock, Synthpop, Electronic>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Future Hackers [00:03:41]
+02 - A Thousand Cuts [00:04:08]
+03 - Antifragile [00:03:25]
+04 - We Don't Need Another Hero [00:04:34](   Читать дальше...   )Жанр: Industrial Rock, Synthpop, ElectronicПродолжительность: 00:32:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:173C4A29715512792B97F6B2F5C39707BF64016F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641405   (210699) от 23.06.2023
 
 VA - Cathy Burton - 30 Vocal Trance Hits (2023) [MP3|320 Kbps] <Trance, Vocal Trance>
@@ -6,7 +122,7 @@ VA - Cathy Burton - 30 Vocal Trance Hits (2023) [MP3|320 Kbps] <Trance, Vocal Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210699.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Relaxing Melodies: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210668.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Sex Music Zone - Orgasm after Orgasm: Seductive Chillout (2023) [FLAC|Lossless|W
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210517.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Tensnake - Stimulate (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210495.jpg" />
 </div>
 
 
@@ -119,7 +235,7 @@ Tomcraft - 4 Альбома (2002 - 2007) [FLAC, APE|Lossless]<House, Electro, A
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210444.jpg" />
 </div>
 
 
@@ -145,7 +261,7 @@ VA - Silent Shore - Euphoric Trance Vol. 2 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210403.jpg" />
 </div>
 
 
@@ -174,7 +290,7 @@ VA - Vocal Trance: London (2023) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210364.jpg" />
 </div>
 
 
@@ -203,7 +319,7 @@ Alphaville - First Harvest 1984-92 (1992) [FLAC|Lossless|tracks + .cue] <Synth-p
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210038.jpg" />
 </div>
 
 
@@ -232,7 +348,7 @@ Lemongrass - Mosaic (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout, Bale
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209972.jpg" />
 </div>
 
 
@@ -261,7 +377,7 @@ VA - Melodies of the Ocean: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|trac
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209195.jpg" />
 </div>
 
 
@@ -290,7 +406,7 @@ W O L F C L U B (Wolfclub) - Desert Hearts (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208874.jpg" />
 </div>
 
 
@@ -319,7 +435,7 @@ Zardonic - Superstars (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Rock, Dru
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208802.jpg" />
 </div>
 
 
@@ -348,7 +464,7 @@ VA - Morning Mood: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Bale
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208613.jpg" />
 </div>
 
 
@@ -377,7 +493,7 @@ VA - Armada Music - Ibiza 2023 [MP3|320 Kbps] <Progressive House, Deep House, Te
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208284.jpg" />
 </div>
 
 
@@ -406,7 +522,7 @@ Marco Rochowski - Voyage Of Discovery (2023) [MP3|320 Kbps] <Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208275.jpg" />
 </div>
 
 
@@ -435,7 +551,7 @@ Marco Rochowski - The Essential Collection (2023) 2CD [MP3|320 Kbps] <Spacesynth
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208239.jpg" />
 </div>
 
 
@@ -464,7 +580,7 @@ VA - BBC Radio One: Essential Mix (2022) [MP3|~245 Kbps (V0)] <House, Techno, Dr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207933.jpg" />
 </div>
 
 
@@ -493,7 +609,7 @@ VA - Balearic Breeze: Chillout Your Mind (2023) [FLAC|Lossless|tracks] <Balearic
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207841.jpg" />
 </div>
 
 
@@ -522,7 +638,7 @@ The Prodigy - The Fat Of The Land 25th Anniversary - Remixes (2023) [FLAC|Lossle
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207701.jpg" />
 </div>
 
 
@@ -551,7 +667,7 @@ Aphex Twin - Blackbox Life Recorder 21f In A Room7 F760 (2023) [FLAC|Lossless|WE
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207652.jpg" />
 </div>
 
 
@@ -580,7 +696,7 @@ Beheat Gorum de Mentheurd - The Voyage Of Life (2016) [FLAC|Lossless|image + .cu
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207503.jpg" />
 </div>
 
 
@@ -609,7 +725,7 @@ VA - 80s & 90s Remixed - The Dance HIT Workout (2023) [FLAC|Lossless|WEB-DL|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207151.jpg" />
 </div>
 
 
@@ -623,122 +739,6 @@ VA - 80s & 90s Remixed - The Dance HIT Workout (2023) [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:031DC77B62D77805B57FAAED54C30B6FE750C7C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650986   (207087) от 05.08.2023
-
-Depeche Mode - Sounds Of The Universe | The 12" Singles (2023) [MP3|320 Kbps] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Wrong [00:03:13]
-02 - Wrong (Thin White Duke Remix) [00:07:39]
-03 - Wrong (Trentemøller Club Remix) [00:06:56]
-04 - Wrong (Caspa Remix) [00:05:03](   Читать дальше...   )Жанр: SynthpopПродолжительность: 03:28:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E37FBCF52FB3866A198946D8A5D4E09F8C068580
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650989   (207051) от 05.08.2023
-
-Depeche Mode - Sounds Of The Universe | The 12" Singles (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Wrong [00:03:13]
-02 - Wrong (Thin White Duke Remix) [00:07:39]
-03 - Wrong (Trentemøller Club Remix) [00:06:56]
-04 - Wrong (Caspa Remix) [00:05:03](   Читать дальше...   )Жанр: SynthpopПродолжительность: 03:22:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C235292CD5541B18C5DFF3AF3B0A17148CF72EE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613704   (206802) от 21.02.2023
-
-Skrillex - Don’t Get Too Close (2023) [MP3|320 Kbps] <Dubstep, Trap, Dance, UK Bass>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don’t Leave Me Like This [00:01:42]
-02. Way Back [00:01:59]
-03. Selecta [00:03:10]
-04. Ceremony [00:03:12](   Читать дальше...   )Жанр: Dubstep, Trap, Dance, UK BassПродолжительность: 00:33:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8583AFA69B3A201BC267CCA85CA36BC715DF6EBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652236   (206657) от 10.08.2023
-
-VA - Dominator 2023 (Voyage of the Damned) (2023) [MP3|320 Kbps] <Hardcore, Hard Beat, Hardtechno, Gabber>
-
->>Electronic
->>Hardstyle, Jumpstyle, Hardcore
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anime - Voyage Of The Damned (Official Dominator 2023 Anthem) (Original Mix)
-02. Angerfist - The Fist And The Hammer (Original Mix)
-03. Broken Minds - Wild Animals (Original Mix)
-04. Tha Playah - Psychopath (Original Mix)(   Читать дальше...   )Жанр: Hardcore, Hard Beat, Hardtechno, GabberПродолжительность: 02:40:32 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D50E4F4F75B36F605B2F52C17BA5CE02457BA8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

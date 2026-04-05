@@ -1,32 +1,3 @@
-###  Публикация: 1753535   (41371) от 05.10.2024
-
-Coldplay - Moon Music (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - MOON MUSiC [4:37]
-02 - feelslikeimfallinginlove [3:57]
-03 - WE PRAY [3:54]
-04 - JUPiTER [4:01](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B93F7798D2C3D1702F13DFDE49664E12C5221A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1549920   (41235) от 07.10.2024
 
 Judas Priest - Дискография (26 releases) (1974-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
@@ -35,7 +6,7 @@ Judas Priest - Дискография (26 releases) (1974-2024) hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41235.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41198.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Coldplay - Moon Music (Full Moon Edition) (2024) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41178.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Soror Dolorosa - Mond (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Goth Rock, P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41152.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Bal-Sagoth - Studio Albums (6 releases) (1995-2006) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40998.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Drowning Pool - Studio Albums (7 releases) (2001-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40997.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Steve Roach - One Day of Forever (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Amb
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40876.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Juke Joint, The Everblades - Can’t Slow Me (2024) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40875.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ The Smoothies - SoulFingers (Soul Velvet Nights) (2024) [FLAC 24/44.1|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40871.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ The Smile - Cutouts (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative & 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40867.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ The Suspenders - Funky Love Affair (Starry Night Fever) (2024) [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40811.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ E-Rotic - The Hits (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Eurodance, Euro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40805.jpg" />
 </div>
 
 
@@ -380,7 +351,7 @@ Crossbone Skully - High On You (feat. Nikki Sixx) (2024) (EP) [FLAC 24/96|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40791.jpg" />
 </div>
 
 
@@ -409,7 +380,7 @@ The Chickens - Fused Minds (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40789.jpg" />
 </div>
 
 
@@ -438,7 +409,7 @@ Mario Le Mole - Evolution (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40788.jpg" />
 </div>
 
 
@@ -467,7 +438,7 @@ Inertia - Estranged Icon (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industria
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40787.jpg" />
 </div>
 
 
@@ -496,7 +467,7 @@ The Suspenders - Funkology (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Funk>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40786.jpg" />
 </div>
 
 
@@ -525,7 +496,7 @@ The Smoothies - Echoes of Velvet: A Journey Through (2024) [FLAC 24/48|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40785.jpg" />
 </div>
 
 
@@ -554,7 +525,7 @@ The Smoothies - Soulful Moments (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <So
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40783.jpg" />
 </div>
 
 
@@ -583,7 +554,7 @@ Summer Jazz Paradise, Instrumental Jazz Music Ambient and Swing Background - Sum
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40781.jpg" />
 </div>
 
 
@@ -612,7 +583,7 @@ The Smoothies - Velvet Vibes (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soul>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40776.jpg" />
 </div>
 
 
@@ -641,7 +612,7 @@ John Lennon - Mind Games (Meditation Mixes) (2024) [FLAC 24/96|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40772.jpg" />
 </div>
 
 
@@ -670,7 +641,7 @@ Ezra Collective - Dance, No One's Watching (2024) [FLAC 24/96|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40767.jpg" />
 </div>
 
 
@@ -699,7 +670,7 @@ Blacksmith Tales - Pathway to Hamlet’s Mill (2024) [FLAC 24/96|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40766.jpg" />
 </div>
 
 
@@ -728,7 +699,7 @@ Axel Rudi Pell - Studio Albums (28 releases) (1989-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40712.jpg" />
 </div>
 
 
@@ -742,6 +713,35 @@ Axel Rudi Pell - Studio Albums (28 releases) (1989-2024) hand made [restored, de
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:584F4A6A3A62C72AC07FA1D95796F2C7D873DD02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754491   (40684) от 11.10.2024
+
+The Offspring - Supercharged (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Punk-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Looking Out For #1 (3:17)
+02. Light It Up (2:53)
+03. The Fall Guy (2:35)
+04. Make It All Right (3:34)(   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:32:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F653A821D829308402A5726D6B7AAF6403F82E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

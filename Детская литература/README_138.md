@@ -1,29 +1,3 @@
-###  Публикация: 1576809   (364113) от 15.09.2022
-
-Братья Гримм | Сказки (1939) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник сказок Братьев Гримм для детей дошкольного возраста.Жанр: СказкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEA685ED2EA3EB98115996BE0A8313918CF3F40A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 951356   (363870) от 29.10.2015
 
 Л. Ларина | Подпольщики (1926) [DJVU]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363870.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363867.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363670.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363662.jpg" />
 </div>
 
 
@@ -139,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363485.jpg" />
 </div>
 
 
@@ -165,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363480.jpg" />
 </div>
 
 
@@ -192,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363467.jpg" />
 </div>
 
 
@@ -221,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363203.jpg" />
 </div>
 
 
@@ -247,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363187.jpg" />
 </div>
 
 
@@ -273,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362844.jpg" />
 </div>
 
 
@@ -299,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361885.jpg" />
 </div>
 
 
@@ -326,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361880.jpg" />
 </div>
 
 
@@ -352,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361830.jpg" />
 </div>
 
 
@@ -380,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361824.jpg" />
 </div>
 
 
@@ -409,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361695.jpg" />
 </div>
 
 
@@ -436,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361283.jpg" />
 </div>
 
 
@@ -463,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361223.jpg" />
 </div>
 
 
@@ -489,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360565.jpg" />
 </div>
 
 
@@ -516,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360500.jpg" />
 </div>
 
 
@@ -542,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359607.jpg" />
 </div>
 
 
@@ -569,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359443.jpg" />
 </div>
 
 
@@ -595,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359275.jpg" />
 </div>
 
 
@@ -622,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359137.jpg" />
 </div>
 
 
@@ -648,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359038.jpg" />
 </div>
 
 
@@ -674,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358410.jpg" />
 </div>
 
 
@@ -688,6 +662,34 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6153C99184792744435405FA8F825C2FA0A7412
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071769   (357349) от 11.11.2016
+
+Александр Батров | Завтра – океан (1954) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все свое творчество А. М. Батров посвятил детям. Многие писатели среднего и младшего поколения вырастали, зачитываясь его книжками. Но во много раз больше число его читателей, излеченных романтикой моря, которая буквально пронизывает все произведения Александра Батрова, стали моряками.
+
+"...Море навеяло на них теплую целебную дрему. Вода до самого дна просвечивалась (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5551AF4BE9BE49F44B6C3767DB8E8BC3E2E9AC6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

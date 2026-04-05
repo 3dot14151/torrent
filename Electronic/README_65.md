@@ -1,3 +1,61 @@
+###  Публикация: 1089536   (950862) от 04.01.2017
+
+VA - Hot Wave Chillout (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miraflores - Riverbendґs Song 6:11
+02. Zero Feedback - Rien Ne Va Plus (Don Gorda Project Remix) 7:00
+03. Maremare - That Beach Is Mine 6:09
+04. Boring Sax - Subway Underground 6:19(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:31:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF9D04A034A5DD1DE1E74FD6BF48BBCFB27D8267
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089540   (950791) от 04.01.2017
+
+VA - Magics - Reflex Recordings Masterpieces (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meckie Mex - Telling Nice but Spice (05:02)
+02. Hondale - Motor Brain (03:50)
+03. A M G - 100 (Klav Version) (07:35)
+04. Reflex Artists - Physalis (Reflex Mix) (04:42)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:00:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E09F358B4E34725102C9C1E668926FB13AD8027C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089596   (950787) от 04.01.2017
 
 VA - Atmosfera Records Best Of 2016 (2017) [MP3|320 Kbps] <Uplifting Trance>
@@ -6,7 +64,7 @@ VA - Atmosfera Records Best Of 2016 (2017) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950787.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Christmas Chill (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950786.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Just Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950774.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Chill In The Summer: Chillout Collection (2016) [MP3|320 Kbps] <Chillout, L
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950772.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - 6 Years Of CibiCaldi Records (2017) [MP3|320 Kbps] <Minimal, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950760.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - If House Like To Party (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950712.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Global Chillout Ambient: New Year Pack 2017 (2016) [MP3|320 Kbps] <Downtemp
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950711.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Bikini Lounge: The Best Chillout 2017  [MP3|320 Kbps] <Downtempo, Chillout,
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950710.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Late Night Acoustic Sessions (2016) [MP3|320 Kbps] <Downtempo, Chillout, In
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950708.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Spring Blossom: 20 Smooth & Relaxing Jazz Lounge Tunes (2016) [MP3|320 Kbps
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950706.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Acoustic Songs: 14 Classic Songs Reimagined Acoustically (2016) [MP3|320 Kb
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950704.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Romantic Lounge Music Winter Session (2016) [MP3|320 Kbps] <Downtempo, Chil
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950701.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Electro House Hits January Top 10  2017  [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950700.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Relaxing Music for Massage: Relax Chill Out Music for Relaxation Massage (2
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950631.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Hed Kandi: Nu Disco (2010) [MP3|128-192 kbps]<House / Vocal House / Disco H
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950358.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ VA - Dubstep 2017 (30 Top Best Of Hits) (2016) [MP3|320 Kbps] <Dirty Dubstep, Tr
 >>Dubstep, Future Garage, Bass Music, UK Garage
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950228.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ VA - OWSLA Worldwide Broadcast (2016) [MP3|320 кб/с] <Dubstep, Future Bass, T
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949865.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ Koan - Eddur: Second Scroll (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient Dub, P
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949801.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ Zimmer - Zimmer (2019) [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep House, Nu Disco,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949612.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ VA - Anjunadeep 11 (Mixed by Jody Wisternoff & James Grant) (2020) [FLAC|Lossles
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949547.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ Peter Pearson - Making Waves (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, C
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949506.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ Mano Le Tough - Changing Days (2013) [FLAC|Lossless]<Tech House, Deep House, Min
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949379.jpg" />
 </div>
 
 
@@ -638,7 +696,7 @@ VA - Lounge On Stage (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949297.jpg" />
 </div>
 
 
@@ -667,7 +725,7 @@ VA - Acoustic Pop (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949287.jpg" />
 </div>
 
 
@@ -681,64 +739,6 @@ VA - Acoustic Pop (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AE660A137B3722D2A300C5A99F578A9B39F720D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090124   (949163) от 05.01.2017
-
-Jens Buchert - Electronic Moods (2013) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, Trip Hop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Orbiting (4:27)
- 02. Satelight (4:06)
- 03. Love Double (Reloaded Mix) (4:37)
- 04. Thoughts (6:47)(   Читать дальше...   )Жанр: Ambient, Downtempo, Trip HopПродолжительность: 01:17:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F1FA40F6B888258C46452FBACE0242040697CCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982148   (948429) от 03.02.2016
-
-Daniel Masson - Ten Particles (2015) [MP3|320 кб/с] <Downtempo, Chillout, Acoustic Guitar>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emetteur 05:03
-02. Terres Sauvages 05:04
-03. Icarus Ballad 05:13
-04. Hope 04:37(   Читать дальше...   )Жанр: Downtempo, Chillout, Acoustic GuitarПродолжительность: 00:52:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19AE42DFC5AA96A4BB34581D1EDDCCBB8C00B1D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

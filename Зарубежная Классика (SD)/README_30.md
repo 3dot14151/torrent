@@ -1,3 +1,57 @@
+###  Публикация: 1115284   (828055) от 17.03.2017
+
+Грабители поездов / The Train Robbers (1973) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три ветерана Гражданской войны объединяются в одну команду с вдовой грабителя поездов, чтобы отыскать спрятанную добычу размером в полмиллиона долларов. Обаятельная вдова, у которой «все на месте», хочет вернуть доброе имя своему покойному мужу.
+Трое друзей хотят помочь ей и получить награду в $ 50 000. Но сообщники покойного хотят получить все золото, если потребуется (   Читать дальше...   )Производство: США / Batjac ProductionsЖанр: ВестернРежиссер: Берт КеннедиАктеры: Джон Уэйн, Энн-Маргрет, Род Тейлор, Бен Джонсон, Кристофер Джордж, Бобби Уинтон, Джерри Гэтлин, Рикардо Монтальбан, Ральф ВолькиПеревод: Дублированный (Варус Видео)Субтитры: Английские (полные, SDH, SDH Colored)Продолжительность: 01:31:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A47378F1B8A712EBBFCF6225E849E45F64479CB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039921   (827872) от 14.10.2021
+
+Жан де Флоретт / Jean de Florette (1986) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первая часть экранизации романа Марселя Паньоля "Вода с холмов".
+Вернувшись с военной службы, молодой Юголен решил выращивать цветы, но гвоздикам нужна вода. Богатый дядюшка готов помочь племяннику в надежде, что тот продолжит его род. Он решил прикупить поле с родником у соседа-врага. Цепь событий, преступлений и затаенных надежд приводит к тому, что на (   Читать дальше...   )Производство: Франция, Швейцария, Италия, АвстрияЖанр: Драма, экранизацияРежиссер: Клод БерриАктеры: Ив Монтан, Жерар Депардьё, Даниель Отой, Элизабет Депардьё, Маргарита Лосано, Арман Меффр, Пьер Нугаро, Жан Морель, Роже Суза, Дидье ПэнПеревод: Профессиональный многоголосыйСубтитры: Русские, английскиеПродолжительность: 02:01:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9BB01A1138B6AC79005E39019D180AC753E93AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 312799   (826698) от 24.03.2011
 
 Одержимая / Possessed (1931) DVDRip
@@ -6,7 +60,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_826698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_826698.jpg" />
 </div>
 
 
@@ -34,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826608.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826415.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825940.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823430.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823346.jpg" />
 </div>
 
 
@@ -168,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823182.jpg" />
 </div>
 
 
@@ -194,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_822226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822226.jpg" />
 </div>
 
 
@@ -220,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821291.jpg" />
 </div>
 
 
@@ -246,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821197.jpg" />
 </div>
 
 
@@ -272,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821100.jpg" />
 </div>
 
 
@@ -299,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820795.jpg" />
 </div>
 
 
@@ -325,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819237.jpg" />
 </div>
 
 
@@ -351,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819004.jpg" />
 </div>
 
 
@@ -377,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818159.jpg" />
 </div>
 
 
@@ -404,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817779.jpg" />
 </div>
 
 
@@ -430,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817492.jpg" />
 </div>
 
 
@@ -456,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817468.jpg" />
 </div>
 
 
@@ -482,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817006.jpg" />
 </div>
 
 
@@ -508,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816998.jpg" />
 </div>
 
 
@@ -534,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816973.jpg" />
 </div>
 
 
@@ -560,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816954.jpg" />
 </div>
 
 
@@ -587,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816820.jpg" />
 </div>
 
 
@@ -616,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816798.jpg" />
 </div>
 
 
@@ -627,60 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA89EE57E9ACE173AD51CADBA788B1C443973C6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 882763   (816605) от 29.03.2015
-
-Привидение / Призрак / Ghost (1990) BDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Счастливая пара возвращается домой после вечера в театре. На тёмной аллее на них нападает грабитель… Защищаясь, Сэм погибает. Теперь он только призрак, но всё еще может помочь своей возлюбленной. Сэм-привидение узнаёт, что его смерть не была случайной, а над Молли нависла смертельная опасность. Но для Молли он теперь «человек-невидимка», которого она не видит и не (   Читать дальше...   )Производство: СШАЖанр: Фэнтези, Мелодрама, ДетективРежиссер: Джерри ЦукерАктеры: Патрик Суэйзи, Деми Мур, Вупи Голдберг, Тони Голдуин, Армилия МакКуин, Гэйл Боггс, Рик Авилес, Винсент Скьявелли, Стэнли Лоуренс, Кристофер Дж. Кин, Сьюзен Бреслау, Мартина Дэйнан, Мэка Фоли, Фил Лидс, Джон Хью, Сэм Цуцувас, Шарон Бреслау, Анджелина Эстрада, Том Керли, Стивен Рут, Лаура Дрэйк, Альма Белтран, Вивиан Боннел, Дерек Томпсон, Дж. Кристофер Салливан, Шарлотта (   Читать дальше...   )Перевод: Авторский (одноголосый, закадровый) Михалев, МишинСубтитры: Отключаемые (SRT / UTF-8)Язык субтитров: РусскийПродолжительность: 02:06:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE1CB813E4487460FE5542765C2170937DB60F4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 82685   (816172) от 03.05.2010
-
-Высокий блондин в черном ботинке / Le grand blond avec une chaussure noire / The Tall Blond Man with One Black Shoe (1972) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Талантливый скрипач Франсуа Перрен невообразимо рассеян. И поэтому все время попадает в комичные и курьезные ситуации.
-А тут еще в результате интриг руководителей секретной службы Тулуза и Милана его принимают за суперагента и устанавливают за ним слежку.
-Однако Перрен с легкостью избегает всех опасностей, даже не подозревая о них...Жанр: КомедияРежиссер: Ив РоберАктеры: Пьер Ришар, Мирей Дарк, Бернар Блие, Жан Рошфор, Жан Карме, Ив Робер, Поль Ле Персон, Роже Кашиа.Перевод: ДублированныйЯзык субтитров: Русские, в моментах вырезанных советской цензурой.Продолжительность: 01:25:58
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

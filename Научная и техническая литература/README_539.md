@@ -1,137 +1,3 @@
-###  Публикация: 1663116   (187029) от 20.09.2023
-
-Г. Гамов | Великие физики от Галилео до Эйнштейна. Как были сделаны самые значимые научные открытия (2021) [PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187029.jpg" />
-</div>
-
-
-###  Подробнее
-
-Георгий Гамов — физик с мировым именем, блестящий популяризатор науки, на страницах своей книги освещает эволюцию научных представлений от Античности до середины ХХ века. Автор знакомит читателя с открытиями Архимеда, Кеплера, Галилея и других великих ученых прошлого, наглядно воспроизводит эксперименты Исаака Ньютона и Майкла Фарадея, живым и доступным языком объясняет (   Читать дальше...   )Жанр: Научно-популярная литератураПеревод: Л.А. ИгоревскийЯзык: РусскийИздательство: ЦентрполитграфФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70D655C877D493E4F5AD1390B58ABF9286A15A35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663007   (187028) от 20.09.2023
-
-Кристофер Харт | Руководство по рисованию манги (2008) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие по рисованию манги для всех фанатов аниме и любителей японской культуры! Кристофер Харт – один из самых популярных современных художников и автор книг-бестселлеров по рисованию. В своей новой книге он приготовил еще больше увлекательных мастер-классов, необычных лайфхаков и техник рисования в популярном японском жанре манга. Благодаря подробным пошаговым (   Читать дальше...   )Жанр: Учебник, РисованиеПеревод: Мария МельниковаЯзык: РусскийИздательство: ЭксмоФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEE42BBA3C733082705EAEDA804C280C64462DCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662981   (187023) от 20.09.2023
-
-В. Миронова | Как рисовать мангу. От классических героев до оригинальных персонажей (2021) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187023.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сейчас ты держишь в руках гайд по одному из самых интересных культурных феноменов мира – манге. Вместе с этой книгой ты сможешь почувствовать себя частью огромной вселенной и начать создавать свои комиксы в этом популярном японском жанре.
-
-С помощью простых пошаговых инструкций пособие расскажет об основах рисунка персонажей, их анатомии, особенностях внешности и (   Читать дальше...   )Жанр: Учебник, РисованиеЯзык: РусскийИздательство: ООО «Издательство «Эксмо»Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F453A41EC38FB94726EEA4DBFEE95136E00D1518
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663381   (186820) от 21.09.2023
-
-У. Харрисон | Электронная структура и свойства твердых тел [2 книги] (1983) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Монография известного американского физика У. Харрисона, автора теории псевдопотенциала. В книге изложены современные представления об электронных свойствах твердых тел, основанные на квантовохимическом подходе. Представлены как учебный материал, так и новые простые и доступные методы расчета электрических, оптических и упругих свойств кристаллов.
-
-На русском языке (   Читать дальше...   )Жанр: ФизикаИздательство: МирФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B806224B1A60D4BCB0CC9A1D78D7B02DF1C6ADB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591810   (186799) от 19.11.2022
-
-Росс Кинг | Книготорговец из Флоренции (2022) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Флоренция эпохи Возрождения. Эти слова приводят на память образы прекрасных творений искусных художников и архитекторов. Но не менее значимыми были свершения творцов в иной области: флорентийских охотников за рукописями, писцов, ученых и книготорговцев, которые смахнули пыль веков с античного знания, открывая и распространяя которое они творили новый просвещенный (   Читать дальше...   )Жанр: Биографии и мемуары, популярно об историиПеревод: Екатерина Доброхотова-МайковаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45FDBE61598898E74CC03D0898CB4990CCBE1584
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1591778   (186770) от 19.11.2022
 
 В.Г. Шипинский | Методы инженерного творчества (2016) [PDF]
@@ -140,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186770.jpg" />
 </div>
 
 
@@ -166,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186757.jpg" />
 </div>
 
 
@@ -194,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186747.jpg" />
 </div>
 
 
@@ -222,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186697.jpg" />
 </div>
 
 
@@ -248,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186663.jpg" />
 </div>
 
 
@@ -274,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186442.jpg" />
 </div>
 
 
@@ -300,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186388.jpg" />
 </div>
 
 
@@ -326,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186363.jpg" />
 </div>
 
 
@@ -353,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186358.jpg" />
 </div>
 
 
@@ -379,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186357.jpg" />
 </div>
 
 
@@ -406,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186209.jpg" />
 </div>
 
 
@@ -432,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_186030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_186030.jpg" />
 </div>
 
 
@@ -458,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_186014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_186014.jpg" />
 </div>
 
 
@@ -484,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_186008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_186008.jpg" />
 </div>
 
 
@@ -510,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_185999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_185999.jpg" />
 </div>
 
 
@@ -536,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_185967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_185967.jpg" />
 </div>
 
 
@@ -563,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_185946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_185946.jpg" />
 </div>
 
 
@@ -592,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185941.jpg" />
 </div>
 
 
@@ -619,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185937.jpg" />
 </div>
 
 
@@ -645,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185928.jpg" />
 </div>
 
 
@@ -671,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185921.jpg" />
 </div>
 
 
@@ -682,6 +548,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29FF9FF07E1F184E3F8418BD5BF06A86B9E4CDD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426629   (185862) от 25.11.2020
+
+А.Л. Марухленко и др. | Технологии обеспечения безопасности информационных систем (2021) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Технологии обеспечения безопасности информационных систем — Рассматриваются основы информационной безопасности, особенности защиты авторских прав, технические и криптографические методы защиты, показан способ интеграции механизмов защиты ПО с использованием современных программных и аппаратных средств.Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BE2F39EC04FDD46A99CABAD56A1C5986BD922FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827252   (185751) от 20.10.2025
+
+Н.В. Синельникова | Грамматика английского языка Present Simple, Past Simple, Future Simple и вспомогательные глаголы (2025) [PDF] [RU, EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие представляет собой сборник упражнений для тренировки употребления английских времен группы Simple: Present Simple, Past Simple, Future Simple и некоторых вспомогательных глаголов. Широкий диапазон упражнений тренировочного характера дает возможность отработать и закрепить особенности употребления времен группы Simple английского языка.
+Пособие предназначено (   Читать дальше...   )Жанр: Учебное пособиеЯзык: Русский, английскийИздательство: Самиздат (Автор)Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68F39EA98E168F8513062904D00A97636AE29BB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827332   (185715) от 21.10.2025
+
+Петр Черкасов | Persona non grata. Архивы раскрывают свои тайны (20242) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальные рассказы известного историка, члена-корреспондента РАН Петра Петровича Черкасова – итог его многолетних исследований в архивах России и Франции. Автор книги – замечательный рассказчик, а потому его герои, среди которых Екатерина II и Николай I, Юрий Андропов и Анджей Вайда, советские диссиденты и разведчики, – люди живые, со своими страстями, достоинствами (   Читать дальше...   )Жанр: История, биографии, рассказыИздательство: НаукаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62173540173552E70BCBC0A602CDDA1CF3EE36CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664468   (185329) от 26.09.2023
+
+М. Сенешаль | Узоры симметрии (1980) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185329.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге на общедоступном уровне изложены проблемы симметрии. Основная цель, которую поставили перед собой редакторы американского издания математик проф. М. Сенешаль и химик проф. Дж. Флек — выявить глубокий смысл симметрии как единого организующего принципа гармонии в молекулах, кристаллах, живой природе и произведениях искусства. Современность органически сочетается (   Читать дальше...   )Жанр: Математика, ХимияИздательство: МирФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:324C61E0DC7E5D74DA37D1AB0B9B6B8EEF1B5B46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664436   (185318) от 26.09.2023
+
+Л.В. Городняя | Парадигмы программирования (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс знакомит студентов с разнообразием стилей и языков программирования. Выбор изучаемых парадигм отражает эволюцию языков, используемых при решении задач системной и прикладной информатики от низкоуровневого программирования на стыке с аппаратурой до языков сверх высокого уровня и параллельного программирования.
+Особое внимание уделено исторически значимым и концептуальным (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: НОУ "Интуит"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8454C38C9B718675D55C6A7BDF82F7BA394D8FE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

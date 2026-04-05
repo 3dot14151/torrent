@@ -6,7 +6,7 @@ Matt O'Ree Band - 3 альбома (2013-2019) [MP3|320 Kbps] <Blues, Blues Rock
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173763.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ VA - Blues & Roots Rock (2020) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169900.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ VA - Blues Dance Hits (2020) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169885.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ The Flaming Mudcats - Forever and A Day (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169037.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ Jacopo Pausa - My Favourite Colour Is Blues (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169021.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ VA - Brunsviger Blues (2020) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168985.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ The Apocalypse Blues Revival - The Apocalypse Blues Revival (2020) [MP3|320 Kbps
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168968.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ VA - Best Blues Singers (2020) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168943.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ VA - Blues Rocking (2020) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168896.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ The Andy Taylor Group - Drifting Days (2019) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168129.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Black Pumas - Chronicles of a Diamond (2023) [MP3|320 Kbps] <neo-soul, psychedel
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167021.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Hurricane Red - Smokin' (2020) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164251.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Terra Lightfoot - Consider The Speed (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163187.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Samsara Joyride - Samsara Joyride (2020) [MP3|192 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162257.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Justin Johnson - Rough Edges (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162201.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Blues Whale - Leaving The Blues Behind (2021) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161427.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ VA - Blues from Russia (2021) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161421.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Black Harbour - Cold Winter Blues (2020) [MP3|320 Kbps] <Blues, Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160143.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Anna Rudolph - Alter Ego (2015) [MP3|320 кб/с] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158716.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Deadwood - In the Meantime (2015) [MP3|320 кб/с] <Country Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158482.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ The Blues Hopman - Snooze You Lose (2020) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158112.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Aaron Schembri - City Lights (2020) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154996.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Jaz Blues - Evening Romantic Blues Collection (2022) [MP3|320 Kbps] <Jazz, Blues
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154349.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Oniblu - Play The Blues (2020) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153569.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Fiona Boyes - Professin' The Blues (2016) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153303.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ VA - Blues Happy Christmas (2021) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152387.jpg" />
 </div>
 
 

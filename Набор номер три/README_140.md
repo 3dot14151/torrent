@@ -1,3 +1,160 @@
+###  Публикация: 1108747   (860083) от 26.02.2017
+
+Под покровом ночи / Nocturnal Animals (2016) BDRip [H.264]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860083.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Сьюзен роскошная жизнь в Лос-Анджелесе, прекрасный муж и собственная галерея. Но однажды она получает неожиданную посылку от бывшего супруга — он хотел бы встретиться, но сначала просит прочитать его новый роман. Сьюзен не подозревает, что как только она откроет рукопись, она вернется в прошлое, которое считала надежно укрытым под покровом ночи.Производство: СШАЖанр: триллер, драмаРежиссер: Том ФордАктеры: Эми Адамс, Джейк Джилленхол, Майкл Шеннон, Аарон Тейлор-Джонсон, Айла Фишер, Элли Бамбер, Арми Хаммер, Карл Глусман, Роберт Арамайо, Лора ЛинниПеревод: Дублированный (Лицензия BD CEE)Язык субтитров: русскийПродолжительность: 01:56:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F04E08F44E5B633E062CCD408D11AA6C9AF91BA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375612   (859963) от 17.04.2020
+
+В Санкт-Петербурге спустили на воду первый супертраулер крупнейшей в мире серии судов
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_859963.jpg" />
+</div>
+
+
+###  Подробнее
+
+27 марта в Санкт-Петербурге на «Адмиралтейских верфях» (одна из крупнейших верфей госхолдинга «Объединенная судостроительная корпорация») был спущен на воду супертраулер проекта СТ-192 «Капитан Вдовиченко». Он строится по заказу Русской рыбопромышленной компании (РРПК)«Капитан Вдовиченко» – головное судно в серии из 10 супертраулеров, заказанной РРПК «Адмиралтейским (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372764   (859852) от 17.04.2020
+
+Jonas Schmedtmann | The Complete JavaScript Course 2020: Build Real Projects! (2019) PCRec [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это действительно полный курс JavaScript, который выходит за рамки того, чему вас учат другие курсы JavaScript.
+Я возьму вас от полного начинающего JavaScript до продвинутого разработчика. Вы не только будете изучать язык JavaScript, но и научитесь программировать. Как решить проблемы. Как структурировать и организовать код, используя общие шаблоны JavaScript.Производство: UdemyЖанр: Javascript, Front-end, ПрограммированиеПеревод: отсутствуетЯзык озвучки: АнглийскийПродолжительность: 27:55:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E212D067BDAF365D0778A1E93CF34D1EE7E3EBC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376202   (859849) от 17.04.2020
+
+Мединского исключили из совета Фонда кино
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_859849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывшего министра культуры Владимира Мединского исключили из совета Фонда кино. Соответствующее распоряжение опубликовано на официальном портале правовой информации. Господин Мединский был заместителем председателя совета.Также из совета был исключен бывший вице-премьер—руководитель аппарата правительства Константин Чуйченко, который являлся председателем совета Фонда (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376217   (859732) от 17.04.2020
+
+Windows 10 Pro 1909 Build 18363.778 x64 by SanLex (edition 2020-04-16) [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на официальном оригинал образе Windows_10_Pro_1909_Russian_x64 (март, 2020). Отключены службы телеметрии, рекламные модули, и всё что влияет на приватность (в пределах возможного). Добавлены накопительные обновления безопасности системы, улучшения и исправления. В остальном ничего лишнего не добавлялось, как только убавлялось/отключалось/изолировалось.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B99F10EBEE898A0505B208A1AA5CE969C5A15D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376190   (859728) от 17.04.2020
+
+Windows 10 1909 32in1 (x86/x64) +/- Office 2019 by Eagle123 (04.2020) [Ru/En]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная сборка содержит в себе ISO-образ с Windows 10 1909 18363.778, включающий в себя 8 русских и 8 английских редакций x86/x64, основанный на оригинальных образах, с интегрированными обновлениями по 04.2020, дополнительными системными библиотеками (RuntimePack), с возможностью выбора опций установки, автоустановки драйверов, программ и наличием Microsoft Diagnostics (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:564874A2E52138D6C68F3E457F26ADA98E472997
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375677   (859727) от 17.04.2020
 
 Калина красная (1973) WEB-DLRip [H.264/2160p] [4K, SDR, 8-bit]
@@ -6,7 +163,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859727.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_859725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_859725.jpg" />
 </div>
 
 
@@ -60,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859723.jpg" />
 </div>
 
 
@@ -86,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>12
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859722.jpg" />
 </div>
 
 
@@ -112,7 +269,7 @@ Control (2019) [Ru/En] (1.10/dlc) Repack xatab
 >>9
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859721.jpg" />
 </div>
 
 
@@ -138,7 +295,7 @@ Journey to the Savage Planet (2020) [Ru/Multi] (53043/dlc) Repack xatab (обн�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859720.jpg" />
 </div>
 
 
@@ -164,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859549.jpg" />
 </div>
 
 
@@ -190,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859485.jpg" />
 </div>
 
 
@@ -216,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_859346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_859346.jpg" />
 </div>
 
 
@@ -242,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_859240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_859240.jpg" />
 </div>
 
 
@@ -268,7 +425,7 @@ Punto Switcher 4.4.4.489 RePack (& Portable) by elchupacabra [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859229.jpg" />
 </div>
 
 
@@ -294,7 +451,7 @@ Adobe Photoshop 2021 22.5.1.441 (x64) RePack by SanLex [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859228.jpg" />
 </div>
 
 
@@ -320,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859226.jpg" />
 </div>
 
 
@@ -346,7 +503,7 @@ Kena: Bridge of Spirits (2021) [Ru/Multi] (1.04) License CODEX
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859221.jpg" />
 </div>
 
 
@@ -372,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859116.jpg" />
 </div>
 
 
@@ -398,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859114.jpg" />
 </div>
 
 
@@ -424,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858617.jpg" />
 </div>
 
 
@@ -450,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858614.jpg" />
 </div>
 
 
@@ -476,7 +633,7 @@ Trackmania® Turbo (2016) [Ru/Multi] (1.0) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858613.jpg" />
 </div>
 
 
@@ -502,7 +659,7 @@ WinPE 10 Sergei Strelec (x86/x64) 2016.03.25 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858612.jpg" />
 </div>
 
 
@@ -513,164 +670,6 @@ WinPE 10 Sergei Strelec (x86/x64) 2016.03.25 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43BF6BA8BE9C49C82708DB6D288B4C92C76145BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000257   (858609) от 25.03.2016
-
-Звёздные войны: Пробуждение силы / Star Wars: Episode VII - The Force Awakens (2015) BDRip [H.264] [Line]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858609.jpg" />
-</div>
-
-
-###  Подробнее
-
-Через тридцать лет после гибели Дарта Вейдера и Императора галактика по-прежнему в опасности. Государственное образование Первый Орден во главе с их таинственным верховным лидером Сноуком и его правой рукой Кайло Реном идёт по стопам Империи, пытаясь захватить всю власть. В это нелёгкое время судьба сводит юную девушку Рей и бывшего штурмовика Первого Ордена Финна (   Читать дальше...   )Производство: США, Bad Robot, Lucasfilm Ltd., Truenorth ProductionsЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Джей Джей АбрамсАктеры: Джон Бойега, Дэйзи Ридли, Оскар Айзек, Адам Драйвер, Донал Глисон, Харрисон Форд, Марк Хэмилл, Кэрри Фишер, Макс фон Сюдов, Энди Серкис, Лупита Нионго, Энтони ДэниелсПеревод: Дублированный (чистый звук)Язык субтитров: английскийПродолжительность: 02:18:06Реклама: Удалил 5 вставок голосовой рекламы!
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CC096DA9F638C35552864EBD3A817D2B06C3953
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000374   (858606) от 25.03.2016
-
-Windows XP SP3 IInsideP4 v24.03.2016 [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Образ на основе Micrоsoft Windows XP Professional with Sеrvice Pack 3 VL Russian.
-ru_windows_xp_professional_with_service_pack_3_x86_cd_vl_x14-74146
-Интегрированы Драйвера самых распространённых AHCI-контроллеров AMD, nForce, Intel, JMicron, SiS, VIA от simplix, Установлено обновление по 01.05.2014 от simplix, DirectX Redistributable - Июнь 2010, Windows Media Player (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB2BE918A0E2226F92DE111F2D78A77A4265C66D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975655   (858604) от 25.03.2016
-
-Бородач (2016) SATRip (сезон 1, серии 1-14 из 14)
-
->>3
->>11
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обаятельный, но невезучий охранник Александр Родионович Бородач впутывается вместе со своими друзьями в невообразимые истории, пытается покорить сердце стриптизерши Ирины Скоробейниковой, но неминуемо оказывается в отделении полиции, где его с пристрастием допрашивает начальник в исполнении резидента Comedy Club Демиса Карибидиса.Телекомпания: ТНТЖанр: КомедияРежиссер: Заур БолотаевАктеры: Михаил Галустян, Демис Карибов, Евгений Казанцев, Мария Староторжская, Михаил Куряев, Александр Луканичев, Дмитрий Меденников, Ксения Бехтина, Анастасия ЛучининаПеревод: Не требуется (русский язык)Продолжительность: ~ 00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:286E12999337621A18D008CFFFA621AFB1DB55E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109414   (858538) от 27.02.2017
-
-Cent Browser 2.4.2.19 + Portable [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cent Browser - является усовершенствованной версией браузера Chromium, которая объединяет множество полезных функций, таких как прокрутка панели вкладок, жесты мышью, супер перетаскивание и управление поведением вкладок. Это делает веб-серфинг более удобным и комфортным.Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F46B0CA762F16FC7DEF1B3BEBD38B735E8C98B5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109327   (858433) от 27.02.2017
-
-CyberLink PowerDVD Ultra 17.0.1418.60 RePack by qazwsxe [Ru/En]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858433.jpg" />
-</div>
-
-
-###  Подробнее
-
-CyberLink PowerDVD - один из самых мощных на данный момент программных проигрывателей, позволяющий просматривать DVD-Video и Video-CD на вашем компьютере. Главными преимуществами этого проигрывателя можно назвать высокое качество изображения, удобный интерфейс с возможностью смены скинов и лёгкую настройку. Кроме просмотра фильмов с компакт-дисков (DVD и Video-CD), (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E71E763EE8332AA8877D70EAEAEC6FA118ED55F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109269   (858420) от 27.02.2017
-
-Представлена новая Nokia 3310
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_858420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания HMD Global представила новую версию легендарного телефона Nokia 3310. Об этом сообщает корреспондент с выставки MWC 2017 в Барселоне.Новая Nokia 3310 получила 2,4-дюймовый дисплей с разрешением 320х240 пикселей. Также устройство снабжено 2-мегапиксельной камерой и поддерживает карты памяти microSD. По сравнению с предшественником телефон стал значительно (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

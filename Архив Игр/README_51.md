@@ -1,3 +1,55 @@
+###  Публикация: 242592   (447414) от 07.10.2010
+
+Disciples III: Renaissance / Disciples 3: Ренессанс [Ru] (Repack/1.05HF) 2010 | Fenixx
+
+>>След.
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447414.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение культовой игры. Игроки снова вернутся в мир под названием Невендаар, который с момента выхода последней части серии претерпел значительные изменения. Переехал в полное трехмерье, обзавелся динамическим изменением погодных условий и времени суток. Как и прежде, перед игроком встанет проблема выбора, какую же расу вести к победе – на выбор представлены люди, эльфы и демоны. Ролевая сторона Disciples 3 тоже пережила определенные метаморфозы. Отныне любая вещь экипировки, одетая на героя, будет отражаться на нем визуально. Боевая система также подверглась тщательному и всестороннему изучению, в результате чего воины научились двигаться по полю боя и атаковать противника при помощи магии или оружия. Арены же всегда уникальны, так как генерируются случайным образом – двух одинаковых полей сражений вы вряд ли увидите.Жанр: Стратегии
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943530   (446793) от 04.10.2015
+
+Ninja Pizza Girl (2015) [En] License HI2U
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446793.jpg" />
+</div>
+
+
+###  Подробнее
+
+При ближайшем рассмотрении геймплея оказалось, что Ninja Pizza Girl - это многоэтажный сайд-скроллерный платформер. Игровой процесс построен на скоростном перемещении по крышам, балконам, мансардам, карнизам домов в городе недалёкого будущего. При этом всё игровое окружение разработчики оформили в неоновом светеТип издания: ЛицензияРазработчик: Disparity GamesЖанр: Arcade (Platform) / 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E860E7A72AC5A555D4710A870188C2D66F81B9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 552518   (445443) от 27.09.2012
 
 Fable: The Journey [Xbox360] [Kinect] [ENG] [Region Free] [LT+ 2.0] (2012)
@@ -6,7 +58,7 @@ Fable: The Journey [Xbox360] [Kinect] [ENG] [Region Free] [LT+ 2.0] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445443.jpg" />
 </div>
 
 
@@ -36,7 +88,7 @@ Legends of Pegasus [Ru/En] (RePack/1.0.0.4115) 2012 | Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445433.jpg" />
 </div>
 
 
@@ -63,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445411.jpg" />
 </div>
 
 
@@ -89,7 +141,7 @@ Dragon's Dogma [PS3] [ENG] [PAL] [3.55 Kmeaw] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445324.jpg" />
 </div>
 
 
@@ -116,7 +168,7 @@ Castle Crashers [En] (P) 2012 l FANiSO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445322.jpg" />
 </div>
 
 
@@ -142,7 +194,7 @@ Elemental: War of Magic / Elemental: Войны магов [Ru] (P) 2010
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_443197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_443197.jpg" />
 </div>
 
 
@@ -168,7 +220,7 @@ Necromunda: Underhive Wars (2020) [Ru/Multi] (1.0.4.1) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442222.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ Mortal Kombat: Komplete Edition (2013) [Ru/Multi] (1.07) Repack R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441804.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ Torchlight II [En] (Lossless Repack/1.9.5.1) 2012 | kuha
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441090.jpg" />
 </div>
 
 
@@ -248,7 +300,7 @@ Castle Crashers [En] (RePack) 2012 l SEYTER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440328.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ CheMax Rus (2013) [Ru] (13.8) Cheats
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440112.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ UnderTale (2015) [En] (1.0.0) Repack ARMENIAC
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439395.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ Fishing: Barents Sea (2018) [Ru/Multi] (1.1.7.2/dlc) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439154.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ F1 2012 [Ru/En] (RePack/1.1.0.0) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438388.jpg" />
 </div>
 
 
@@ -380,7 +432,7 @@ F1 2012 [Ru] (RePack/1.1.0.0) 2012 | R.G. Revenants
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438163.jpg" />
 </div>
 
 
@@ -408,7 +460,7 @@ Fifa 13 [Pal] [Eng] (2012) [Wii]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437990.jpg" />
 </div>
 
 
@@ -436,7 +488,7 @@ Hitman Ultimate Collection [Ru/En] (RePack) 2000-2012 l R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437795.jpg" />
 </div>
 
 
@@ -462,7 +514,7 @@ Hitman: Sniper Challenge (2012) [Ru/Multi] (Update 2) Steam-Rip R.G. Origins
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437766.jpg" />
 </div>
 
 
@@ -488,7 +540,7 @@ Jotun (2015) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437318.jpg" />
 </div>
 
 
@@ -514,7 +566,7 @@ Crash Time 5: Undercover [En] (RePack) 2012 | DangeSecond
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436135.jpg" />
 </div>
 
 
@@ -540,7 +592,7 @@ Warlock: Master Of The Arcane + 4 DLC [Ru/En] (Repack/1.3.0.46) 2012 | R.G. Reve
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435862.jpg" />
 </div>
 
 
@@ -567,7 +619,7 @@ Blood Bowl 2 (2015) [Ru/Multi] (1.8.0.20) SteamRip R.G. Игроманы
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434924.jpg" />
 </div>
 
 
@@ -593,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_434201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_434201.jpg" />
 </div>
 
 
@@ -619,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_434134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_434134.jpg" />
 </div>
 
 
@@ -630,65 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 245413   (434104) от 13.10.2010
-
-Medal of Honor. Limited Edition / Medal of Honor. Расширенное издание [Ru] (Rip) 2010 | R.G. ReCoding
-
->>След.
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_434104.jpg" />
-</div>
-
-
-###  Подробнее
-
-
-Дата выпуска: 10 октября 2010
-Жанр: Action (Shooter) / 3D / 1st PersonРазработчик: Danger Close Games и EA Digital Illusions Creative Entertainment
-Издатель: Electronic Arts
-Издатель в России: Electronic ArtsЯзык интерфейса: 
-Язык озвучки: 
-Тип издания: RIP
-Таблетка: Вшита (Trivium)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323935   (433277) от 22.09.2020
-
-Fantasy General II - Invasion General Edition (2019) [Multi] (01.02.11096/dlc) License GOG
-
->>След.
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три сотни лет прошло с тех пор, как Войны теней разорили Кельдонию и мир Аэра. Битвы прошлого давным-давно стали легендами. В суровом северном климате гор Фарича влачили жалкое существование варварские кланы, которые то воевали друг с другом, то грабили более благополучные приграничные города. Приграничным кланам надоело постоянно бороться с варварами, и они обратились (   Читать дальше...   )Тип издания: LicenseРазработчик: Owned by GravityЖанр: Strategy (Turn-based, Fantasy)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DBD37AA323C65BC9229DD41B74DA1432AE366DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

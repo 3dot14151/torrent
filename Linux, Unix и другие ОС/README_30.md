@@ -1,29 +1,3 @@
-###  Публикация: 1634032   (126812) от 21.12.2023
-
-IntelliJ IDEA Ultimate 2023.3.2 [х64] (tar.gz)
-
->>Linux, Unix и другие ОС
->>*Nix. Программы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126812.jpg" />
-</div>
-
-
-###  Подробнее
-
-IntelliJ IDEA – это ведущая среда быстрой разработки на языке Java. IntelliJ IDEA представляет собой высокотехнологичный комплекс тесно интегрированных инструментов программирования, включающий интеллектуальный редактор исходных текстов с развитыми средствами автоматизации, мощные инструменты рефакторинга кода, встроенную поддержку технологий J2EE, механизмы интеграции (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:766A7033CD37B9D08EE93E58516C3E200EAE3E19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1634090   (126705) от 22.12.2023
 
 WebStorm 2023.3.2 [x64] (tar.gz)
@@ -32,7 +6,7 @@ WebStorm 2023.3.2 [x64] (tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126705.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ CLion 2023.3.1 [x64] (tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126675.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Wolfram Mathematica 13.3.1 [x64] (.sh)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126321.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ BricsCAD Ultimate V24.1.07-1 [x86_x64] (rpm, deb, tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125655.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ Linux XP SMB Desktop build 503 [x64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124605.jpg" />
 </div>
 
 
@@ -166,7 +140,7 @@ Astra Linux Special Edition 1.6.14 [amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122838.jpg" />
 </div>
 
 
@@ -194,7 +168,7 @@ KingStation 0.3a [x86-64] (AppImage)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122581.jpg" />
 </div>
 
 
@@ -220,7 +194,7 @@ Linux Mint 21.3 Virginia (Cinnamon Edition, Cinnamon (Edge) Edition, MATE Editio
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121623.jpg" />
 </div>
 
 
@@ -246,7 +220,7 @@ Runtu Lite 22.04 [x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119546.jpg" />
 </div>
 
 
@@ -275,7 +249,7 @@ Simply Linux 10.2 (ALT Linux Team) [x64, x32] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117906.jpg" />
 </div>
 
 
@@ -303,7 +277,7 @@ FreeBSD 14.0 [i386, amd64] 4xCD 2xDVD 4xUSB FlashDrive
 >>ОС *BSD
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117466.jpg" />
 </div>
 
 
@@ -331,7 +305,7 @@ Parrot Security Lorikeet amd64 [Хакинг, аудит, безопасност
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117299.jpg" />
 </div>
 
 
@@ -357,7 +331,7 @@ elementary OS 7.1 Horus [x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116798.jpg" />
 </div>
 
 
@@ -383,7 +357,7 @@ Gentoo Linux 2024-02-18 [i386/amd64] 1xCD, 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116415.jpg" />
 </div>
 
 
@@ -409,7 +383,7 @@ Kali Linux 2024.1 [amd64, i386, arm64] 11xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114276.jpg" />
 </div>
 
 
@@ -435,7 +409,7 @@ Ubuntu*Pack 20.04 Budgie (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113522.jpg" />
 </div>
 
 
@@ -462,7 +436,7 @@ Ubuntu*Pack 20.04 LXqt / Lubuntu (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113518.jpg" />
 </div>
 
 
@@ -489,7 +463,7 @@ Ubuntu*Pack 20.04 DDE (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113516.jpg" />
 </div>
 
 
@@ -516,7 +490,7 @@ Ubuntu*Pack 20.04 Unity (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113515.jpg" />
 </div>
 
 
@@ -543,7 +517,7 @@ Ubuntu*Pack 20.04 MATE (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113514.jpg" />
 </div>
 
 
@@ -570,7 +544,7 @@ Ubuntu*Pack 20.04 Xfce / Xubuntu (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113513.jpg" />
 </div>
 
 
@@ -597,7 +571,7 @@ Ubuntu*Pack 24.04 Budgie (июль 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106144.jpg" />
 </div>
 
 
@@ -624,7 +598,7 @@ Ubuntu*Pack 24.04 Unity (июль 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106062.jpg" />
 </div>
 
 
@@ -651,7 +625,7 @@ Kubuntu 12.04 LTS [i386] (1xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90916.jpg" />
 </div>
 
 
@@ -677,7 +651,7 @@ FreeBSD 8.3 [amd64] (1xDVD+1xCD+LiveFS+USB IMG+BootOnly)
 >>ОС *BSD
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90757.jpg" />
 </div>
 
 
@@ -686,6 +660,41 @@ FreeBSD 8.3 [amd64] (1xDVD+1xCD+LiveFS+USB IMG+BootOnly)
 FreeBSD - это современная операционная система для компьютеров на архитектуре x86 (в том числе Pentium® и Athlon™), amd64 (включая Opteron™, Athlon™64 и EM64T), ARM, IA-64, PowerPC, PC-98 и UltraSPARC®. Она основана на BSD, версии UNIX®, созданной в Калифорнийском Университете в Беркли. Она разрабатывается и поддерживается большой командой разработчиков. Поддержка других платформ находится на разных стадиях разработки.
 Исключительный набор сетевых функций, высокая производительность, средства обеспечения информационной безопасности и совместимости с другими ОС - вот те современные возможности FreeBSD, которые зачастую всё ещё отсутствуют в других, даже лучших коммерческих, операционных системах.
 FreeBSD является очень удобной платформой для построения Internet или Intranet сервера. Эта система предоставляет надёжные даже при самой интенсивной нагрузке сетевые службы, и эффективное управление памятью, что позволяет обеспечивать приемлемое время отклика для тысяч одновременно работающих пользовательских задач.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487723   (90537) от 24.04.2012
+
+Linux UsefulPack 12.04 (L) [Русский] (2012)[x86 + amd64]
+
+>>Linux, Unix и другие ОС
+>>*Nix. Программы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90537.jpg" />
+</div>
+
+
+###  Подробнее
+
+На диске представлены:
+- интересные программы, отсутствующих в стандартных репозиториях Linux-дистрибутивов;
+- видеоуроки, руководства по работе в Linux, а также электронные версии популярных бесплатных журналов и книг посвященных тематике СПО и Linux.
+
+Программы снабжены штатным установщиком или поставляются в виде бинарных сборок в архивах.
+
+Что из представленного на диске может вас заинтересовать:
+- необходимый материал для обучения работы с системой на русском языке;
+- для тех кто любит антивирусы "как на Windows" (с проверкой файлов на лету) есть антивирусы имеющие графический интерфейс;
+- скрипт PlayOnLinux для запуска "Компас 3D";(   Читать дальше...   )Название программы: Linux UsefulPackЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash

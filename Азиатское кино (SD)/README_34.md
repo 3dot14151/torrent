@@ -1,3 +1,55 @@
+###  Публикация: 1242201   (515946) от 21.08.2018
+
+Зимний цветок / Fuyu no hana / Winter's Flower (1978) HDRip [H.264] [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кано — якудза. Он должен убить Мацуоку, который предал их босса. Кано знал, что у Мацуоки была трёхлетняя дочь, поэтому прежде, чем сдаться полиции, он попросил, чтобы его человек, которому он доверял, заботился о ней. В тюрьме Кано продолжал посылать письма девочке, маскируясь под дядю из Бразилии. 15 лет спустя Кано выходит из тюрьмы. Бывший якузда настроен жить, (   Читать дальше...   )Производство: Япония / Toei TokyoЖанр: Драма, КриминалРежиссер: Ясуо ФурухатаАктеры: Кэн Такакура, Кимико Икегами, Киня Китаодзи, Мицуко Байсё, Сусуму Фудзита, Нэндзи Кобаяси, Йоичи Миура, Исао Нацуяги, Масуми Окада, Сёити Одзава, Куниэ Танака, Минори Тэрада, Хидэдзи ОтакиПеревод: Одноголосый закадровый, авторский (Андрей Дольский)Субтитры: АнглийскиеПродолжительность: 02:00:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:210C62F1B80B66938A1C4B581FC4374D71BAB5A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315068   (515887) от 17.07.2019
+
+Боец с шестом / Wu Lang ba gua gun / The Eight Diagram Pole Fighter (1984) HDRip [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515887.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шестеро братьев Янг и их отец — уважаемые генералы, но их подставляет мстительный генерал Пан Мей и в суровой битве погибают все мужчины семьи, кроме двоих. Один из них возвращается домой и сходит с ума, второй обривается в монахи, однако не оставляет надежды когда-нибудь отомстить за погибших братьев и отца.Производство: Гонконг /  Shaw BrothersЖанр: боевик, драмаРежиссер: Лю Чя-ЛянАктеры: Гордон Лю, Шенг Фу, Лили Лай, Кара Хуэй, Юн Чин-Чин, Джонни Ван, Квок Кеунг Чан, Chan-Peng Chang, Lien-Ping Chang, Ming-Wei ChenПеревод: Авторский (Сергей Кузнецов)Субтитры: ОтсутствуютПродолжительность: 01:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1C412A6AF8E56EF36B65C2331856CB0052C5AAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1315051   (515696) от 17.07.2019
 
 Большой брат / Dai si hing (2018) HDRip [MVO]
@@ -6,7 +58,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515696.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514925.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514563.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512773.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512710.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512512.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512248.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511394.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510227.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509105.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506887.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ S.P.L. Звезды судьбы 2 / Saat po long 2 (2015) HDTVRip
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505857.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505312.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503382.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500020.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500018.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499269.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497692.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495881.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495049.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491988.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491951.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491530.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491527.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4AC1DAFBFD07F0B86436CD1F4901CE46005BF255
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404612   (491183) от 26.08.2020
-
-Девушки идут навстречу ветру / Musume-tachi wa kaze ni mukatte (Советская прокатная копия) (1972) Screener [Dub]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491183.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хозяева завода фирмы "Одежда Дайто" под предлогом банкротства сообщили о ликвидации производства. Девушки-работницы, объявив забастовку, заняли завод и продолжали выполнять незначительные заказы, которые им устраивали товарищи из других профсоюзов. Друзья снабжали их одеждой и пищей, одобряли морально. Не все из них смогли выдержать три года и семь месяцев (   Читать дальше...   )Производство: Япония, Мингэй ЭйгааяЖанр: ДрамаРежиссер: Мицуо ВакасугиАктеры: Хироко Ногава, Томоко Куримото, Кёко Хисабара, Судуэ Мори, Фудзи Фукудзава, Коити Ока, Ёити Ямамото, Итио Имото, Дзюкити УноПеревод: Дублированный (Киностудия им. М. Горького)Субтитры: отсутствуютПродолжительность: 01:25:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF15F880A9CB5DBE2B96A9DEC4D4890870A5540A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404278   (491107) от 26.08.2020
-
-Если бы я жил с мамой / Haha to kuraseba / Nagasaki: Memories of My Son (2015) HDRip [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491107.jpg" />
-</div>
-
-
-###  Подробнее
-
-9 августа 1948 года. Нобуко, акушерка из Нагасаки, ошеломлена внезапным визитом своего Кодзи, который, как она думала, умер три года назад в результате сброса на город атомной бомбы. В этот самый день, стоя у его могилы, ога сказала себе: «В тот момент его не стало. Пора мне его отпустить...» Вместе они вспоминают о старых добрых временах. Эти счастливые моменты, (   Читать дальше...   )Производство: Япония, Asahi Broadcasting Corporation (ABC), GyaO, Hakuhodo DY Media PartnersЖанр: Драма, фэнтезиРежиссер: Ёдзи ЯмадаАктеры: Саюри Ёсинага, Кадзунари Ниномия, Хару Куроки, Таданобу Асано, Исао Хасидзумэ, Юрико Хироока, Мию Хонда, Кэнити Като, Нэндзи Кобаяси, Кристофер МакКомбсПеревод: Двуголосый любительский (Храм Дорам); одноголосый любительский (visanti-vasaer)Субтитры: английские, русские - отдельными файламиПродолжительность: 02:10:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEDD94897471CEB27A0D2C8CC2831F22DA961A41
 ```
 
 https://mybot314.ru/tekegram_catalog/

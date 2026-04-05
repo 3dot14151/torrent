@@ -1,32 +1,3 @@
-###  Публикация: 978063   (964458) от 22.01.2016
-
-VA - Старая пластинка: Ритм-н-Блюз (2013) [MP3|256 кб/с] <R'n'B>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silent George (unknown) Myra Johnson
-02. So Good To My Baby (Kirkland/McCoy) Big Maybelle
-03. Wild Wild Young Men (Ahmet Ertegun) Ruth Brown
-04. Hey Little Boy (Albinia Jones) Albinia Jones(   Читать дальше...   )Жанр: R'n'BПродолжительность: 02:22:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6319AA1736F01AF66E56317A2B46800CCC353C89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978234   (963513) от 23.01.2016
 
 Валиум - 1989 (2016) [MP3|320 кб/с] <Rap, Hip-Hop>
@@ -35,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963513.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963265.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - 100 Greatest 90s Hip Hop (2020) [MP3|320 Kbps] <Hip Hop, Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960666.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959449.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959394.jpg" />
 </div>
 
 
@@ -177,7 +148,7 @@ Rihanna - ANTI (2016) Deluxe Edition [MP3|320 кб/с] <R&B, Pop>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957035.jpg" />
 </div>
 
 
@@ -206,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955508.jpg" />
 </div>
 
 
@@ -235,7 +206,7 @@ VA - 100 Greatest R&B Love (2020) [MP3|320 Kbps] <R&B>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950828.jpg" />
 </div>
 
 
@@ -264,7 +235,7 @@ VA - 100 Greatest 90s R&B (2020) [MP3|320 Kbps] <R&B>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949358.jpg" />
 </div>
 
 
@@ -293,7 +264,7 @@ Apollo Brown & Ras Kass - Blasphemy (2014) [FLAC|Lossless] <Hip-Hop, Boom Bap, C
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947089.jpg" />
 </div>
 
 
@@ -322,7 +293,7 @@ N.W.A - Straight Outta Compton (1988) Reissue, 2002, Priority Records [FLAC|Loss
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946655.jpg" />
 </div>
 
 
@@ -351,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945701.jpg" />
 </div>
 
 
@@ -380,7 +351,7 @@ Rihanna - ANTI (2016) Deluxe Edition [FLAC|Lossless|image + .cue] <R&B, Pop>
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943350.jpg" />
 </div>
 
 
@@ -409,7 +380,7 @@ Leon Bridges - Coming Home (2015) [MP3|320 кб/с] <R&B, Soul>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939982.jpg" />
 </div>
 
 
@@ -438,7 +409,7 @@ Rick Ross (Rick Ro$$) - Port Of Miami 2 (2019) [FLAC|Lossless|tracks + .cue] <Hi
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939532.jpg" />
 </div>
 
 
@@ -467,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936536.jpg" />
 </div>
 
 
@@ -496,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936252.jpg" />
 </div>
 
 
@@ -525,7 +496,7 @@ Juelz Santana - #FREESANTANA (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929145.jpg" />
 </div>
 
 
@@ -554,7 +525,7 @@ VA - Ingenious Pleasure, Vol. 4 (2019) [MP3|320 Kbps] <Rap, Hip-Hop, Instrumenta
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929024.jpg" />
 </div>
 
 
@@ -583,7 +554,7 @@ BONES - BRACE (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929018.jpg" />
 </div>
 
 
@@ -612,7 +583,7 @@ Lil Uzi Vert - Eternal Atake (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928907.jpg" />
 </div>
 
 
@@ -641,7 +612,7 @@ KREC - 8 Альбомов + 3 Компиляции (2001-2010) [FLAC|Lossless]<R
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928477.jpg" />
 </div>
 
 
@@ -670,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927616.jpg" />
 </div>
 
 
@@ -699,7 +670,7 @@ Kanye West - The Life of Pablo (2016) [FLAC|Lossless|tracks] <Hip-Hop, Rap>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927450.jpg" />
 </div>
 
 
@@ -728,7 +699,7 @@ BONES - OFFLINE (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927272.jpg" />
 </div>
 
 
@@ -742,6 +713,35 @@ BONES - OFFLINE (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD9084F303AFA8EEF2CA59235FADD53565B94050
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365790   (927269) от 09.03.2020
+
+Scarlxrd - SCARHXURS (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PERFECT. [02:20]
+02. YXU’VE BEEN CANCELLED. [02:24]
+03. GRAVESTXNE. [02:41]
+04. MAKING A KILLING. [02:38](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:45:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17AD8022D3F6DDD1086D848F7521BB948FC67ECE
 ```
 
 https://mybot314.ru/tekegram_catalog/

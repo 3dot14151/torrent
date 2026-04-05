@@ -1,3 +1,32 @@
+###  Публикация: 1071132   (362027) от 09.11.2016
+
+Hteththemeth - Best Worst Case Scenario (2016) [MP3|320 Kbps] <Avant-Garde Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362027.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	The Prophecy
+2.	They Will Not Believe What I Will Say
+3.	Light Lies
+4.	Light Truths(   Читать дальше...   )Жанр: Avant-Garde MetalПродолжительность: 01:13:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD0A671E5EB6ECB8F4AF8EC151DD631F6DF6B4FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1071223   (362023) от 09.11.2016
 
 Krzysztof Lepiarczyk - Art Therapy (2016) [FLAC|Lossless|image + .cue] <Crossover Prog>
@@ -6,7 +35,7 @@ Krzysztof Lepiarczyk - Art Therapy (2016) [FLAC|Lossless|image + .cue] <Crossove
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362023.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Paul Di'Anno's Battlezone - Children Of Madness (1987) 2016 Japan Remaster [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361954.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Bulletrain - What You Fear The Most (2016) [FLAC|Lossless|image + .cue] <Heavy M
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361951.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Spiral Wounds - Shadows (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361895.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Stench of Death - Aeternum Ater (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361894.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Stallion - From The Dead (2017) [FLAC|Lossless|image + .cue] <Heavy, Speed Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361893.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Scumback - 2 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Groove Southern M
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361892.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Silentend - Neverending War (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361891.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Demonical - Mass Destroyer (2022) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361890.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Clutch - Sunrise on Slaughter Beach (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361887.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ The Mars Volta - The Mars Volta (2022) [FLAC|Lossless|WEB-DL|tracks] <Progessive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361886.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ The Devil Wears Prada - Color Decay (2022) [FLAC|Lossless|WEB-DL|tracks] <Christ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361882.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Overland - Contagious (2016) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AO
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361879.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ The Beach Boys - Icon (2013) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361868.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ My Dying Bride - Meisterwerk III (2016) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361862.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Defeater - Lost Ground (2009) EP [FLAC|Lossless|tracks + .cue] <Melodic Hardcore
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361841.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ The Devil Wears Prada - Color Decay (2022) [MP3|320 Kbps] <Christian Post-Hardco
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361837.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ House Vs. Hurricane - Perspectives (2010) [FLAC|Lossless|tracks + .cue] <Metalco
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361836.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Ringo Starr - EP3 (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361826.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Sirenia - Dim Days Of Dolor (2016) Limited Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361825.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Ringo Starr - EP3 (2022) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361813.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361795.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Fires of Waco - Old Ghosts Never Sleep (2011) [FLAC|Lossless|tracks + .cue] <Pun
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361794.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Clutch - Sunrise on Slaughter Beach (2022) [MP3|320 Kbps] <Stoner Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361792.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Ringo Starr - Back to the Good Times Music (Richard Starkey) (2022) Scene [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361786.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Ringo Starr - Back to the Good Times Music (Richard Starkey) (2022) Scene [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BFE37092CDF4B4C4CB23235DD0ECCEA5EB7C600
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255836   (361785) от 19.10.2018
-
-Defeater - Travels (2008) [FLAC|Lossless|tracks + .cue] <Melodic Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blessed Burden (3:04)
- 02. Everything Went Quiet (2:41)
- 03. Nameless Streets (3:05)
- 04. Forgiver Forgetter (2:32)(   Читать дальше...   )Жанр: Melodic HardcoreПродолжительность: 00:32:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:966465C709D36C5C54C74BF77F2C98103403D6D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

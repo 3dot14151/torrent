@@ -1,3 +1,32 @@
+###  Публикация: 1546040   (609500) от 22.04.2022
+
+Pet Shop Boys - Behaviour (1990) Unofficial Release, Reissue 1992 [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609500.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Being Boring
+A2 So Hard
+A3 To Face The Truth
+A4 How Can You Expect To Be Taken Seriously?(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:40:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3D48E4BEBFC353927225F77ADD54A0E6D98EE63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 941398   (607676) от 23.04.2022
 
 Harry Secombe - At Your Request (1958) [FLAC 2.0 24/96|image+.cue (Vinyl Rip)]<Pop/Easy Listening>
@@ -6,7 +35,7 @@ Harry Secombe - At Your Request (1958) [FLAC 2.0 24/96|image+.cue (Vinyl Rip)]<P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607676.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Soul Meeting Vol. II - The Sound Of Young America (1966) [FLAC 2.0 24/96|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607675.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Al Martino - Spanish Eyes (1965) [FLAC 2.0 24/96|image+.cue (Vinyl Rip)]<Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607671.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - Rock Линия (2004) [FLAC 2.0 16/44,1|image+.cue (MC Rip)]<Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607553.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Послушай музыку (1983) [FLAC 2.0 24/96|image+.cue (Vinyl Rip)
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607552.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607549.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607458.jpg" />
 </div>
 
 
@@ -207,7 +236,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607453.jpg" />
 </div>
 
 
@@ -236,7 +265,7 @@ Glenn Miller And His Orchestra - Glenn Miller Plays Selections From The Glenn Mi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607448.jpg" />
 </div>
 
 
@@ -265,7 +294,7 @@ The Traveling Wilburys - The Traveling Wilburys Collection (2007) 3LP Vinyl Boxs
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606596.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ VA - Старинные вальсы (1983) [FLAC 1.0|96/24|tracks|Vinyl-Rip] <F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606113.jpg" />
 </div>
 
 
@@ -323,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605809.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ Sy Oliver/Сай Оливер - Только Для Танцоров (1990) Пе
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605808.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605675.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605672.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604588.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604420.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604322.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ Steps - Step One (1998) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Europop, Euro Hous
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604066.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604035.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ VA - RETROспектива, часть II: Эстрадные оркестры I
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603217.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ Michael Jackson - Blood On The Dance Floor. HIStory In The Mix (1997) [FLAC 2.0|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603074.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ Rainbow - Ballads (1995) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603066.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ Guns'N'Roses - The Ballads (1992) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Hard Rock,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603054.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602418.jpg" />
 </div>
 
 
@@ -714,35 +743,6 @@ A2 Серые Глаза
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CCDA5F64130E86C81410FDC4D0186C4D0B7964D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547836   (602027) от 30.04.2022
-
-Оризонт - Между Нами Снег (1984) ЕР [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Между Нами Снег
-(В. Шаинский - С. Алиханов, А. Жигарев)
-02. Песня Куклы
-(В. Шаинский - С. Алиханов, А. Жигарев)(   Читать дальше...   )Жанр: PopПродолжительность: 00:13:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6727DDBAB1C47846FA52E37E23D51591DA2BD391
 ```
 
 https://mybot314.ru/tekegram_catalog/

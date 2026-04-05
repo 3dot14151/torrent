@@ -1,3 +1,55 @@
+###  Публикация: 1834316   (249047) от 03.11.2025
+
+Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack seleZen [Ultimate Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249047.jpg" />
+</div>
+
+
+###  Подробнее
+
+По Лос-Анджелесу разносится смертоносный вирус, превращающий носителей в зомби. Укус, заражение и больше чем просто иммунитет: узнайте правду об эпидемии и выясните, кем - или чем - вы стали. Выживание и эволюция - таков путь истребителя зомби!Тип издания: RepackРазработчик: Dambuster StudiosЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1265A75BF25EE9F32EAA69C5E178DA2D6122DC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1834318   (249040) от 03.11.2025
+
+Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack Other s [Ultimate Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249040.jpg" />
+</div>
+
+
+###  Подробнее
+
+По Лос-Анджелесу разносится смертоносный вирус, превращающий носителей в зомби. Укус, заражение и больше чем просто иммунитет: узнайте правду об эпидемии и выясните, кем - или чем - вы стали. Выживание и эволюция - таков путь истребителя зомби!Тип издания: RepackРазработчик: Dambuster StudiosЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09E98B6CD85DC99E014D30FB6120449952B284D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 493824   (248988) от 08.05.2012
 
 Orion: Dino Beatdown [En] (RePack) 2012 | CtrlAlt
@@ -6,7 +58,7 @@ Orion: Dino Beatdown [En] (RePack) 2012 | CtrlAlt
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248988.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Resident Evil 7: Biohazard (2017) [Ru/Multi] (1.0/dlc) Repack Decepticon [Gold E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247811.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ UberSoldier 2 Crimes of War / Восточный фронт Крах Аннен�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247702.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Metal: Hellsinger (2022) [Ru/Multi] (1.7.0-68176-154/dlc) Repack DjDI [Essential
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247536.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Chasm: The Rift (2022) [Ru/Multi] (1.0.22) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247499.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Trepang2 (2023) [Ru/Multi] (Build 2168) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247388.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Dead Island 2 (2023) [Ru/Multi] (1.1062983.0.1/dlc) Repack DjDI [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246927.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Dead Island 2 (2023) [Ru/Multi] (1.1062983.0.1/dlc) Scene EMPRESS [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246906.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ The Wheel of Time (1999) [En] (333b) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242378.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Slime Rancher 2 (2025) [Ru/Multi] (1.0.3) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230531.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Ghostrunner (2020) [Ru/Multi] (0.30714.410/dlc) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_229954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229954.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ CULTIC (2022) [En] (9714547) License DARKSiDERS
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229328.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ OVERKILL's The Walking Dead (2018) [Ru/En] (1.1.1/dlc) Repack R.G. Механи�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228444.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Bloodhound (2023) [Ru/Multi] (1.0) Scene Skidrow
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228228.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ Dying Light: The Following (2016) [Ru/Multi] (1.16.0 CD/dlc) Repack R.G. Catalys
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226757.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ Dispatcher (2015) [Ru/En] (1.00/upd2) SteamRip Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226651.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ Delta Force: Black Hawk Down / Delta Force: Операция "Черный Яс�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226502.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ Delta Force: Land Warrior / Отряд Дельта: Операция "Спец�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224502.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ Sniper Ghost Warrior Contracts (2019) [Ru/En] (1.02u1/dlc) Repack R.G. Меха�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224409.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ XIII (2003) [Ru] (1.01) Repack anton210896
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223144.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ NecrovisioN Lost Company / NecrovisioN Проклятая Рота (2010) [Ru] (
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222178.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ The Chronicles of Riddick: Escape from Butcher Bay [Ru/En] (RePack) 2004 | R.G. 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221893.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ Dishonored 2 (2016) [Ru/Multi] (1.77.9.0/dlc) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220475.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ Dishonored: Death of the Outsider (2017) [Ru/Multi] (1.145) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220182.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ Dishonored: Death of the Outsider (2017) [Ru/Multi] (1.145) License PLAZA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0968200F2DCABA2FF24883C8FB31CABB14A5F653
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076747   (217319) от 19.12.2016
-
-ARAYA (2016) [En/Th] (1.1) Repack Other s
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра ARAYA — это мрачный хоррор с видом от первого лица, действие которого разворачиваются в одном из госпиталей Тайланда. Наблюдая за происходящими событиями от лица трех различных героев, игроку необходимо будет сложить воедино все части одной большой мозаики и узнать, кто же стоит за убийством некой девушки, по имени Арайи.Тип издания: RepackРазработчик: MAD Virtual Reality StudioЖанр: Adventure (Horror), 1st Person, IndieЯзык озвучки: Английский, ТайскийЯзык субтитров: Английский, ТайскийЯзык интерфейса: Английский, Тайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBD3C47F4EF3D8371482A846E1E9BBA6BAE4F0C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 853137   (217119) от 24.12.2014
-
-Sanctum 2 (2013) [Ru/Multi] (1.4.35442) SteamRip Let'sPlay
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217119.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sanctum 2 - продолжение одной интересной гибридной игры, совмещающей в себе шутер от первого лица и стратегию (Tower Defence). В новой части игры нас ожидает большое количество новых карт, обновленные башни, новые монстры, плюс теперь у нас будет выбор между 4 новыми классами защитников, которых можно прокачивать и открывать новое, более мощное оружие. У каждого (   Читать дальше...   )Тип издания: SteamRipРазработчик: Coffee Stain StudiosЖанр: Action (Shooter) / Strategy (Tower Defense) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский, Итальянский, ИспанскийЯзык интерфейса: Русский, Английский, Немецкий, Французский, Итальянский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B61FD53B071F48FB33B57D9BA77EE48EB340AA5
 ```
 
 https://mybot314.ru/tekegram_catalog/

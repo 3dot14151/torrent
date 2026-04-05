@@ -6,7 +6,7 @@ TinkerTool System 5.62 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528559.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Aurora Blu-ray Player 2.17.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528518.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Alternote 1.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528509.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Adobe Premiere Pro 2022 22.5.0 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528432.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Swinsian 1.12.1 (295) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528244.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Textual 6.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528241.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Currencier 2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528190.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Viscosity 1.6.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528129.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Tower 2.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528126.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Circular Studio 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528123.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ TechSmith Snagit 4.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527943.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Magic Sort List 3.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527870.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Valentina Studio Pro 12.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527869.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ PDF Search 12.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527868.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Movist 2.7.0 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527845.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ SponsorBlock for YouTube 4.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527842.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Noir – Dark Mode for Safari 2022.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527841.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ OmniPlayer Pro - Media Player 2.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527840.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Website Watchman 3.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527838.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Sweet Home 3D 6.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527795.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ EdgeView 3 v3.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527792.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ DxO PhotoLab 5 ELITE Edition 5.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527790.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Movavi Screen Recorder 22 v22.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527750.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ TotalFinder 1.14.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527744.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Startupizer 2.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527735.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Things 3.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527726.jpg" />
 </div>
 
 

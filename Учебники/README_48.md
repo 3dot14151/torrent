@@ -1,3 +1,55 @@
+###  Публикация: 1546869   (604282) от 25.04.2022
+
+Д.С. Стребков (ред.) | Солнечные электростанции. Концентраторы солнечного излучения (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие посвящено основным видам и принципам работы солнечных концентраторов — оптических устройств, повышающих плотность потока солнечного излучения. Рассматривается разработка и изготовление солнечных высокотемпературных установок, концентраторов, применяемых для создания фотоэлектрических модулей и для солнечных станций с тепловыми циклами преобразования (   Читать дальше...   )Жанр: ЭлектроэнергетикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF09BBAA91843AF506EEDF85D0E5C76FFB9F1BBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546793   (604254) от 25.04.2022
+
+А.И. Тихонов и др. | Датчики и измерительная техника в электроэнергетике (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604254.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлен программный материал, включающий краткий лекционный курс, практические и компьютерные лабораторные работы по дисциплине «Измерительная техника, датчики в электроэнергетике». Для удобства студентов при подготовке к практическим занятиям в издание включен практический тренинг, а также материал по выполнению самостоятельных индивидуальных заданий, предусмотренных (   Читать дальше...   )Жанр: ЭлектроэнергетикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A87B074AB3FEF7AA5AA3C99CDBA5775DF6BFC6D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1546958   (603883) от 26.04.2022
 
 А.М. Ховив (ред.) | Сенсорная электроника, датчики. Твердотельные сенсорные структуры на кремнии (2022) [PDF]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603883.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603879.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603315.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602862.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602615.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602506.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601719.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601717.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ C.А. Кудряков | Теоретические основы радиоте�
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601707.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600173.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599972.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599878.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599832.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599579.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599494.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598473.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598296.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597992.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597989.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597887.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597838.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597681.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597676.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597666.jpg" />
 </div>
 
 
@@ -626,59 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96B4FC079D4D067ED6190721E9E354844B7C385F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299562   (597515) от 02.05.2019
-
-Е.А. Черткова | Программная инженерия. Визуальное моделирование программных систем (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597515.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебнике изложены ключевые понятия программной инженерии — методы, технологии, модели процесса разработки программного обеспечения. Рассмотрены инструментальные средства программной инженерии, предназначенные для автоматизации процессов разработки программного обеспечения. Описаны методы и инструментальные средства визуального моделирования программных систем с (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D5C04C048A4A3C91B1C4E1F461DF518BD4CA453
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299543   (597203) от 02.05.2019
-
-Д.Ю. Федоров | Программирование на языке высокого уровня Python (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597203.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии рассматриваются теоретические основы современных технологий и методов программирования, практические вопросы создания программ, а также основные алгоритмические конструкции и их реализация на языке высокого уровня Python.
-Соответствует актуальным требованиям Федерального государственного образовательного стандарта среднего профессионального образования (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96FD3C5D98F6B8FA452312D75F92D401FD9935DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

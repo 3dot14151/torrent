@@ -6,7 +6,7 @@ Jiang He Shui - Water of Jangce River (2007) [MP3|128-320 кб/с]<Ethnic, Folk>
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88768.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ Coldrain - The Enemy Inside (2011) [MP3|320 кб/с]<Alt. Rock / Post-Hardcore>
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86337.jpg" />
 </div>
 
 
@@ -76,7 +76,7 @@ AKB48 - 6 альбомов + 20 синглов (2006-2011) [MP3|320 kbps]<j-pop>
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84373.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Kou Shibasaki - Love & Ballad Selection (2010) [MP3|320 kbps]<JPop>
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78006.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Galneryus - Kizuna (2012) EP [FLAC|Lossless]<Neo-Classical Power Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77901.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Namie Amuro - 13 альбомов + 40 синглов (1995-2011) Дискогр
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75204.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ PLASTICZOOMS -  6 альбомов (2009-2012) Дискография [MP3|192, 
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74516.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ VA - Melon Top 100 K-Pop Singles Chart (22-03-2025) [MP3|320 Kbps] <K-Pop, Dance
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68319.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Galneryus - The Stars Will Light The Way (2024) Japanese Edition, Limited Editio
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66540.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Sabbrabells - Sabbrabells Complete Box (2018) Japanese Edition, Box Set, 9XCD, C
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66083.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Isiliel - Moonbow Rebellion (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Meta
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65486.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Gacharic Spin - W (2024) [MP3|320 Kbps] <J-Rock, Alt. Rock, Electronic>
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62539.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Blood Stain Child - 2 Albums (2024) [MP3|320 Kbps] <Modern Melodic Death Metal, 
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57300.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Prompts - Fracture (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore, 
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54690.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ VA - Melon Top 100 (2024-11-30) [MP3|320 Kbps] <K-Pop>
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32286.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Melon Top 100 K-Pop Singles Chart (11-04-2025) [MP3|320 Kbps] <K-Pop, Dance
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14331.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ momoland - Discography (2016-2021) [FLAC 16/44.1, 24/96|Lossless|WEB-DL|tracks] 
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14319.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Dasu - Nakakapagpabagabag (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic>
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5152.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Sigh - I Saw The Worlds End / Hangman's Hymn MMXXV (2025) Japanese Edition [FLAC
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3445.jpg" />
 </div>
 
 

@@ -1,3 +1,58 @@
+###  Публикация: 1151365   (1023947) от 28.03.2021
+
+Taylor Deupree (Human Mesh Dance, Tiny Objects In Space, Deupree, Ando) - Discography (1993-2021) [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Experimental, Techno, Abstract, Minimal, Glitch>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cyte (06:47)
+ 02. Spine (06:57)
+ 03. Optal (07:48)
+ 04. Templ (05:08)Тип издания: CD, WebЖанр: Ambient, Experimental, Techno, Abstract, Minimal, Glitch •Продолжительность: 43:40:10 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A535F2820C9D8A533B11CF44A10E48EFADAD496
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992695   (1023913) от 28.03.2021
+
+Nils Frahm - Discography 47 Releases (2005-2021) Erased Tapes, Sonic Pieces [FLAC|Lossless|tracks+.cue, tracks] <Modern Classical, Ambient, IDM, Abstract, Contemporary>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. O I End (04:50)Тип издания: CD, WebЖанр: Modern Classical, Ambient, IDM, Abstract, Contemporary •Продолжительность: 29:31:18 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD0AE522BBAAB39C4C21C65F49A1C62F6E842EFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458647   (1023861) от 29.03.2021
 
 Iiney - Emperor of Will (Remix Version) (2021) Liberty Rhythm [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
@@ -6,7 +61,7 @@ Iiney - Emperor of Will (Remix Version) (2021) Liberty Rhythm [FLAC|Lossless|WEB
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023861.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ Surrogate - Mistress 15 (2021) Mistress Recordings [FLAC 2.0|44.1/24|tracks|WEB-
 >>Trance, House, Techno (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023830.jpg" />
 </div>
 
 
@@ -64,7 +119,7 @@ Lycoriscoris - Chiyu (2021) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023822.jpg" />
 </div>
 
 
@@ -93,7 +148,7 @@ Jeffrey van der Wielen | Fnord - Discography 8 Releases (2019-2021) Pro Audio Re
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023820.jpg" />
 </div>
 
 
@@ -119,7 +174,7 @@ VA - H25PITAL (2021) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023795.jpg" />
 </div>
 
 
@@ -148,7 +203,7 @@ edIT | エディット - Discography 7 Releases (2004-2021) Alpha Pup Records, P
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023786.jpg" />
 </div>
 
 
@@ -175,7 +230,7 @@ Tim Hecker | Jetone - Discography 28 Releases (2000-2019) Alien8 Recordings, Roo
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023771.jpg" />
 </div>
 
 
@@ -202,7 +257,7 @@ Alien Skin - Cold War Pop (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Electr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023683.jpg" />
 </div>
 
 
@@ -231,7 +286,7 @@ Advanced Suite - Cruzin (2021) Mystic Sound Records [FLAC|Lossless|WEB-DL|tracks
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023663.jpg" />
 </div>
 
 
@@ -260,7 +315,7 @@ Vector Lovers | Martin Wheeler - Discography 30 Releases (1997-2020) Soma Qualit
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023644.jpg" />
 </div>
 
 
@@ -289,7 +344,7 @@ VA - Cafe Del Amor: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Bal
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023495.jpg" />
 </div>
 
 
@@ -318,7 +373,7 @@ VA - Tails Of The Unexpected (2021) Pulse State [FLAC|Lossless|WEB-DL|tracks] <I
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023326.jpg" />
 </div>
 
 
@@ -347,7 +402,7 @@ Zeu5 - Landscape Remixes (2021) ONESUN Yellow [FLAC|Lossless|WEB-DL|tracks] <Tec
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023165.jpg" />
 </div>
 
 
@@ -376,7 +431,7 @@ Frank Steiner, Jr. - Discography: 6 Releases (1998-2021) [MP3|320 Kbps] <New Age
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023138.jpg" />
 </div>
 
 
@@ -405,7 +460,7 @@ Robert Rich - Soundquest 2021 (2021) Live Album [FLAC|Lossless|WEB-DL|tracks] <A
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023134.jpg" />
 </div>
 
 
@@ -434,7 +489,7 @@ nthng | Trancemaster  - Discography 13 Releases (2014-2021) Lobster Theremin, M�
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023101.jpg" />
 </div>
 
 
@@ -462,7 +517,7 @@ Gold Lounge - Discography: 9 Releases (2011-2021) [MP3|320 Kbps] <Chillout, Elec
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023090.jpg" />
 </div>
 
 
@@ -491,7 +546,7 @@ Infinite Scale - Discography 11 Releases (2005-2021) [FLAC|Lossless|tracks+.cue,
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023060.jpg" />
 </div>
 
 
@@ -520,7 +575,7 @@ Raphael Marionneau • All Abstrait Series & Other Compilations - Discography 39
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023035.jpg" />
 </div>
 
 
@@ -549,7 +604,7 @@ VA - Sea and Waves Lounge: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022989.jpg" />
 </div>
 
 
@@ -578,7 +633,7 @@ Complex Numbers - Техно-опера "Мы, XXII век" (2018) [MP3|320 Kbps
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022811.jpg" />
 </div>
 
 
@@ -607,7 +662,7 @@ IooN - Cosmic Downtempo / IooN / Ioon Cosmic Downtempo - Discography 16 Releases
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022775.jpg" />
 </div>
 
 
@@ -636,7 +691,7 @@ MOY - Dynamics Of Acid (2021) Altered Sense [FLAC|Lossless|WEB-DL|tracks] <Acid,
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022609.jpg" />
 </div>
 
 
@@ -665,7 +720,7 @@ Faber - Universal Flow (2012) [FLAC|Lossless|image + .cue] <Traditional Electron
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022605.jpg" />
 </div>
 
 
@@ -679,64 +734,6 @@ Faber - Universal Flow (2012) [FLAC|Lossless|image + .cue] <Traditional Electron
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31D553F03CC4C5FEF88A1D0D1ED3A982CD1E7661
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460018   (1022578) от 05.04.2021
-
-Виктор Аргонов Project - Техно-симфония "Переосмысляя прогресс" (2015) [MP3|320 Kbps] <Techno, Trance, Pixel Music>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Философский рассказ о прошлой и будущей истории отношений человека и технологий: восхищение "прогрессом ради прогресса", переосмысление идеалов, попытки бегства, новые открытия и реальное духовное преображение.01. Часть 1. Конструируя среду [6:25]
-02. Часть 2. Конструируя информацию [6:25]
-03. Часть 3. Конструируя чувства [6:25]
-04. Часть 4. Конструируя эволюцию [6:25](   Читать дальше...   )Жанр: Techno, Trance, Pixel MusicПродолжительность: 00:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B017AB1A3120C41B10394FC625EEE2E5616F3E69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460448   (1022573) от 05.04.2021
-
-Savvas Kalt - Perceptions (2021) AstroPilot Music [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient, Progressive Trance>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kiphi - Insight (08:46)
- 02. Unusual Cosmic Process - Light At The Bottom (07:48)
- 03. Minddigger - Bending Time (08:12)
- 04. AstroPilot & Alex Glushkov - Endless (05:23)(   Читать дальше...   )Жанр: Psybient, Downtempo, Ambient, Progressive TranceПродолжительность: 01:36:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B5061E1E832678F9B23150A90D81E9DCE0CFEA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

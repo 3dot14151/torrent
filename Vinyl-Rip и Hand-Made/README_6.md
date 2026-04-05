@@ -1,3 +1,38 @@
+###  Публикация: 605263   (995432) от 20.01.2013
+
+Linkin Park - Hybrid Theory (2000/2001) [FLAC 2.0 24/192|image + .cue (Vinyl-Rip)]<Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995432.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Papercut 3:04
+A2. One Step Closer 2:35
+A3. With You 3:23
+A4. Points Of Authority 3:20
+A5. Crawling 3:28
+A6. Runaway 3:05
+B1. By Myself 3:09
+B2. In The End 3:36
+B3. A Place For My Head 3:04
+B4. Forgotten 3:13(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E747D6D4A323544ABAFEAE884BCC79E1448A55F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 605570   (995428) от 20.01.2013
 
 Linkin Park - 3 альбома (2002-2007) [FLAC 2.0 24/96|image + .cue (Vinyl-Rip)]<Alternative Rock>
@@ -6,7 +41,7 @@ Linkin Park - 3 альбома (2002-2007) [FLAC 2.0 24/96|image + .cue (Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995428.jpg" />
 </div>
 
 
@@ -41,7 +76,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995401.jpg" />
 </div>
 
 
@@ -76,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995385.jpg" />
 </div>
 
 
@@ -109,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993977.jpg" />
 </div>
 
 
@@ -142,7 +177,7 @@ Nirvana - 5 альбомов (Японские прессы) (1996, 2007) [FLAC 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992496.jpg" />
 </div>
 
 
@@ -177,7 +212,7 @@ Ozzy Osbourne - Down To Earth (2001)  [FLAC 2.0 24/192 | image (Vinyl-Rip)]<Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991978.jpg" />
 </div>
 
 
@@ -212,7 +247,7 @@ Ganymed - Takes You Higher (1978) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Space Disc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987892.jpg" />
 </div>
 
 
@@ -238,7 +273,7 @@ James Gang - Miami (1974) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Classic Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987882.jpg" />
 </div>
 
 
@@ -267,7 +302,7 @@ Chris Norman –Some Hearts Are Diamonds (1986) [FLAC 2.0 24/192|image (Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987828.jpg" />
 </div>
 
 
@@ -296,7 +331,7 @@ ZZ Top - Eliminator (1983) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Blues Rock, Boogi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987822.jpg" />
 </div>
 
 
@@ -325,7 +360,7 @@ ZZ Top - Afterburner (1985) [FLAC 2.0 24/192|tracks (Vinyl-Rip)] <Blues Rock, Bo
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987766.jpg" />
 </div>
 
 
@@ -354,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987761.jpg" />
 </div>
 
 
@@ -383,7 +418,7 @@ Guns N' Roses – 9 Альбомов (1986-2008) [FLAC 2.0 24/96|tracks (Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987714.jpg" />
 </div>
 
 
@@ -412,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986817.jpg" />
 </div>
 
 
@@ -441,7 +476,7 @@ BONEY M. - Два альбома (1977-1978) [FLAC 2.0 24/192 | image (Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986556.jpg" />
 </div>
 
 
@@ -476,7 +511,7 @@ Planet P Project – Planet P (1983) [APE 2.0 24/192|tracks (Vinyl-Rip)]<Progres
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985968.jpg" />
 </div>
 
 
@@ -505,7 +540,7 @@ VA - Кубинская эстрадная оркестровая музыка 6
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985764.jpg" />
 </div>
 
 
@@ -535,7 +570,7 @@ Depeche Mode - 2 альбома (1987, 1990) [1st, US press] [FLAC 2.0 24/192|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982375.jpg" />
 </div>
 
 
@@ -569,7 +604,7 @@ Yovanna/Иованна - 3xEP: Песни Д. Плессаса и К. Капни
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981994.jpg" />
 </div>
 
 
@@ -598,7 +633,7 @@ VA - Место встречи - Выпуск 4 (1988) [FLAC 2.0 24/192] image+.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981818.jpg" />
 </div>
 
 
@@ -627,7 +662,7 @@ Amadeus Veberzinke/Амадеус Веберзинке - J. S. Bach/И. С. Ба
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981736.jpg" />
 </div>
 
 
@@ -656,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981733.jpg" />
 </div>
 
 
@@ -685,7 +720,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981133.jpg" />
 </div>
 
 
@@ -720,7 +755,7 @@ Electric Light Orchestra - Discovery (1979) [FLAC 2.0 24/192|traks(Vinil-Rip)]<P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978883.jpg" />
 </div>
 
 
@@ -755,7 +790,7 @@ Depeche Mode - Playing The Angel (2005) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Synt
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978389.jpg" />
 </div>
 
 
@@ -775,40 +810,6 @@ C4. Damaged People 3:30(   Читать дальше...   )Жанр: Synth-popП
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0043B9363B5FB929FAFA7DCD46C7259F88EF7598
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614646   (978302) от 07.02.2013
-
-Deep Purple - 9 альбомов (1970-1990) [FLAC 2.0 24/192 |image + .cue (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978302.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. King Of Dreams 5:28
-A2. The Cut Runs Deep 5:42
-A3. Fire In The Basement 4:46
-A4. Fortuneteller 5:48
-B1. Truth Hurts 5:15
-B2. Love Conquers All 3:45
-B3. Breakfast In Bed 5:18
-B4. Too Much Is Not Enough 4:18
-B5. Wicked Ways 6:32Жанр: RockПродолжительность: 00:46:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A46BFC05513E57F36CC3C67C285C0D88061F7D6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

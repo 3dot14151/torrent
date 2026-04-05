@@ -1,3 +1,61 @@
+###  Публикация: 1082992   (275795) от 14.12.2016
+
+VA - Anjunadeep 08 (Mixed by James Grant & Jody Wisternoff) (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hiatus – Delam (feat. Dad) (2:16)
+02. Vaults – Hunger of the Pine (Jody Wisternoff & James Grant Remix) (3:34)
+03. Aiiso – Your Love Is an Echo (5:31)
+04. 16 Bit Lolitas – Give It Up (6:47)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:38:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AEF14D92262D6D2108921941CF762798F8490B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188559   (275003) от 02.12.2017
+
+VA - Creativeness #1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morgan & YokoO – Spiraling (07:03)
+02. Franca – Vortex (Genii Interpretation) (08:06)
+03. Milez – Questions feat. Chappell (Gumz Remix) (08:32)
+04. Kotelett & Zadak – Rebrand (07:19)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:49:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15A730F216F8245F6AA35E8EB27BFE41360CF23E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1188640   (273748) от 03.12.2017
 
 VA - Tag Und Nacht (2016) Total Black [FLAC|Lossless|WEB-DL|tracks] <Techno, Industrial, Experimental>
@@ -6,7 +64,7 @@ VA - Tag Und Nacht (2016) Total Black [FLAC|Lossless|WEB-DL|tracks] <Techno, Ind
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273748.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Sansibar - Targeted Individuals (2019) FTP [FLAC|Lossless|WEB-DL|tracks] <Electr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273717.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Grum - Deep State (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Progr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273707.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Stärker (Stärker) - Substrate (2017) Hospital Productions [FLAC|Lossless|WEB-D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273687.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Mr. Cloudy - Memoria / Sprayer (2017) Local Traffic [FLAC|Lossless|tracks] <Dub 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273686.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Mr. Cloudy - Perceived 2 (Magnetic Tide) (2017) Space Of Variants [FLAC|Lossless
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273679.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Joachim Spieth - Irradiance (2017) Affin LTD [FLAC|Lossless|WEB-DL|tracks] <Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273677.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Automatic Tasty - A World Of Moving And Connected Parts (2017) SLEEPERS [FLAC|Lo
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273676.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Kitties Wanna Dance! Vol. 3 (2012) Suara [FLAC|Lossless|WEB-DL|tracks] <Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273674.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Soviett 1 Year (Compiled & Mixed by Ivan Starzev) (2018) [FLAC|Lossless|WEB
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273265.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Get To Know: Disco (2018) [FLAC|Lossless|WEB-DL|tracks] <House, Nu-Disco>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273264.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Alfred Heinrichs - YOUR TEARS (2018) EP [FLAC|Lossless|WEB-DL|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273105.jpg" />
 </div>
 
 
@@ -352,7 +410,7 @@ Bob Moses - Battle Lines (2018) Domino Recording [FLAC|Lossless|WEB-DL|tracks] <
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272045.jpg" />
 </div>
 
 
@@ -381,7 +439,7 @@ Melquíades (Melquiades) - Lanterns (2019) Analogue Attic [FLAC|Lossless|WEB-DL|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271686.jpg" />
 </div>
 
 
@@ -410,7 +468,7 @@ VA - Kulor 001 (2018) Kulør [FLAC|Lossless|WEB-DL|tracks] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271160.jpg" />
 </div>
 
 
@@ -439,7 +497,7 @@ VA - Total Disco House, Vol. 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <House, Nu-D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270661.jpg" />
 </div>
 
 
@@ -468,7 +526,7 @@ Tale of Us - Endless Remixes (2017) Deutsche Grammophon [FLAC|Lossless|WEB-DL|tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270421.jpg" />
 </div>
 
 
@@ -497,7 +555,7 @@ Fingers In The Noise - 11 Releases (2011-2017) [FLAC|Lossless|tracks+.cue, track
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270409.jpg" />
 </div>
 
 
@@ -526,7 +584,7 @@ Orbital - Live At the Eventim Hammersmith Apollo (02-12-2017) (2017) Live Here N
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270280.jpg" />
 </div>
 
 
@@ -555,7 +613,7 @@ Prequel - Without You (2018) Distant Hawaii [FLAC|Lossless|WEB-DL|tracks] <Detro
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268428.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ Phantom Network - Nightscape (2017) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268093.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ Parov Stelar - Voodoo Sonic: The Trilogy, Pt. 1 (2019) [FLAC|Lossless|WEB-DL|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268056.jpg" />
 </div>
 
 
@@ -642,7 +700,7 @@ Baltra - No Regrets (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267129.jpg" />
 </div>
 
 
@@ -671,7 +729,7 @@ Underworld - Drift Episode 1 (2018) Smith Hyde Productions [FLAC|Lossless|WEB-DL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265797.jpg" />
 </div>
 
 
@@ -683,64 +741,6 @@ Underworld - Drift Episode 1 (2018) Smith Hyde Productions [FLAC|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75D04A360071CCA1514841ED6FBCB237B768BDB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267819   (265135) от 08.12.2018
-
-Floating Machine - Nowhere (2017) Arctic Dub Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arctic Wind (06:21)
- 02. Nowhere (07:12)
- 03. Unresolv (07:21)
- 04. Nowhere (Existente Remix) (06:00)Жанр: Dub Techno, Ambient, ExperimentalПродолжительность: 00:26:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E89A52D417C246F31B50FE3C5D24429508F8FDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339572   (264499) от 21.11.2019
-
-VA - Best of Deep House 2017 (Deluxe Version) (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Breaks, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jaimo - Winter Sun (6:32)
-02. Demoe Beats - Opia (5:07)
-03. Caladium - Conservative (4:01)
-04. Sound Knight - Plastic City (5:33)(   Читать дальше...   )Жанр: Deep House, Breaks, Tech HouseПродолжительность: 05:02:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D49FE6D9F2AB9128FBA6B0032230C30FE8527E79
 ```
 
 https://mybot314.ru/tekegram_catalog/

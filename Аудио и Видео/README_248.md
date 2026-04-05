@@ -6,7 +6,7 @@ Synth Replicants - Real Love on the Metro (2020) [AAC|~336 Kbps] <Electronic>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219124.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Synth Replicants - Multi-Dimensional Transmission (2020) [AAC|~321 Kbps] <Electr
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219096.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Golden Hits (2020) [AAC|~338 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218909.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Synth Replicants - Inner Sanctum (2020) [AAC|~313 Kbps] <Electronic>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218871.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Sarah Brightman - France (2020) [AAC|~314 Kbps] <Classical, Opera, Crossover>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218845.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218643.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218626.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218415.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218369.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218321.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218269.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218216.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218188.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218172.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217978.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217901.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217720.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217636.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217629.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217625.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217564.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217559.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217335.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217040.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216995.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216971.jpg" />
 </div>
 
 

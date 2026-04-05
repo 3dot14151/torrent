@@ -1,3 +1,31 @@
+###  Публикация: 1351929   (1001651) от 12.01.2020
+
+Э. В. Ильенков | Об идолах и идеалах (2006) [DJVU, PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга выдающегося советского философа-марксиста Э. В. Ильенкова "Об идолах и идеалах" впервые была опубликована в 1968 г. и давно стала раритетом. С тех пор ее основные идеи нисколько не устарели. Более того, они стали еще актуальнее в эпоху бурного развития информационных технологий и технологий манипулирования общественным сознанием.
+
+В обществе, которое (   Читать дальше...   )Жанр: История, политология, философия, социология, публицистикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C3F0F5148889E8EEF8884BFB8627592506F6A4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1352257   (1001273) от 13.01.2020
 
 Денис Терентьев | Молоко без коровы. Как устроена Россия (2019) [FB2]
@@ -6,7 +34,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001273.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000854.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000812.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000121.jpg" />
 </div>
 
 
@@ -112,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996732.jpg" />
 </div>
 
 
@@ -138,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995192.jpg" />
 </div>
 
 
@@ -166,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994108.jpg" />
 </div>
 
 
@@ -192,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992575.jpg" />
 </div>
 
 
@@ -220,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992569.jpg" />
 </div>
 
 
@@ -246,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991876.jpg" />
 </div>
 
 
@@ -272,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991862.jpg" />
 </div>
 
 
@@ -298,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991562.jpg" />
 </div>
 
 
@@ -324,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989843.jpg" />
 </div>
 
 
@@ -352,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989840.jpg" />
 </div>
 
 
@@ -380,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989720.jpg" />
 </div>
 
 
@@ -406,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988008.jpg" />
 </div>
 
 
@@ -432,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988000.jpg" />
 </div>
 
 
@@ -459,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987887.jpg" />
 </div>
 
 
@@ -485,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987524.jpg" />
 </div>
 
 
@@ -513,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987246.jpg" />
 </div>
 
 
@@ -539,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986117.jpg" />
 </div>
 
 
@@ -565,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986046.jpg" />
 </div>
 
 
@@ -592,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986045.jpg" />
 </div>
 
 
@@ -618,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986036.jpg" />
 </div>
 
 
@@ -644,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984984.jpg" />
 </div>
 
 
@@ -655,32 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4A491FE979F9733D17DD8458C4828F9AC8ACF6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355311   (984922) от 25.01.2020
-
-Лора Томпсон | Представьте 6 девочек (2015) [PDF, FB2, EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный роман о сёстрах Митфорд, имя которых в середине прошлого столетия было в Англии нарицательным. Шесть сестёр стали олицетворением самых разных сторон ХХ века. Диана – «лицо английского нацизма», жена одиозного лидера британских фашистов. Джессика – «лицо коммунизма», воевала в Испании, разоблачала политиков. Нэнси возглавила бум «женского писательства». (   Читать дальше...   )Жанр: Биографии и мемуары, Документальная литература, Современная зарубежная литератураПеревод: Любовь СуммФормат: PDF, FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F66121936DFA24D478183993733BA3E48EAEE0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

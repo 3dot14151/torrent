@@ -1,3 +1,122 @@
+###  Публикация: 1693210   (119804) от 01.02.2024
+
+VA - Live @ Neon Countdown Festival, Thailand (2023) [MP3|320 Kbps] <Dance, Electro Pop, Trance, Dubstep, Trap>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119804.jpg" />
+</div>
+
+
+###  Подробнее
+
+ARTBAT @ Neon Countdown Festival, Thailand 2023-12-29:
+Продолжительность: 00:58:29
+01. ARTBAT & Pete Tong ft. Jules Buckley - Age Of Love (ARTBAT Rave Mix)
+02. Argy & Omnya - Aria(   Читать дальше...   )Жанр: Dance, Electro Pop, Trance, Dubstep, TrapПродолжительность: 00:59:41
+01. HYBIT & Jetty Rachers & Faahsai - Dragon Heart
+02. Ben Nicky & Sunset Bros - Get A Life
+03. MR.BLACK - Tranceformation(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FE26B55C9FF2B23ADE5988619B78687AAB28949
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695831   (119775) от 01.02.2024
+
+INVRS - Live @ Ural Mountains for SE:VER, Russia (2024-01-23) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Natascha Polke & R.EK - The Balance
+02. Melouie - White Darkness (Dirty Doering Remix)
+03. Hidden Empire & Felix Raphael - Who We Are
+04. Arodes - The Beginning(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 01:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89E04AFF9E3AD78CBB5C93A7AF0676D86E758691
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696237   (119768) от 01.02.2024
+
+VA - Infrasonic Winter Selection (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Epidemika - High (Extended Mix) [6:17]
+02. Incredia - Cropp (Extended Mix) [5:44]
+03. Escea & Steffi T. - Unstoppable (Extended Mix) [6:11]
+04. F.G. Noise - Under Control (Extended Mix) [7:36](   Читать дальше...   )Жанр: TranceПродолжительность: 01:15:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0D0F3D61B294B5061EE546D075E3A57555E197D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696342   (119672) от 02.02.2024
+
+Infected Mushroom - REBORN (2024) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance, Electro House>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Release Me REBORN
+02. Wider REBORN
+03. Return of the Shadows REBORN
+04. Disco Mushroom REBORN(   Читать дальше...   )Жанр: Psy-Trance, Electro HouseПродолжительность: 01:12:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FE8EE11D16F37D08F1D895608427F8A55F713F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696088   (119643) от 02.02.2024
 
 San Valentin - Valentine's Day (2014) [MP3|320 Kbps] <Instrumental Pop>
@@ -6,7 +125,7 @@ San Valentin - Valentine's Day (2014) [MP3|320 Kbps] <Instrumental Pop>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119643.jpg" />
 </div>
 
 
@@ -35,7 +154,7 @@ VA - Best Of Uplifting Trance 2024 (2024) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119641.jpg" />
 </div>
 
 
@@ -64,7 +183,7 @@ VA - Movement Vol. 1 (Live from Goa - Mixed By James Grant) - 2024 [FLAC|Lossles
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119634.jpg" />
 </div>
 
 
@@ -90,7 +209,7 @@ VA - Trends In Trance, Vol. 1 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119629.jpg" />
 </div>
 
 
@@ -119,7 +238,7 @@ Billie Piper - She Wants You (1998) Remaster, 2024, Virgin Records Limited [FLAC
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119627.jpg" />
 </div>
 
 
@@ -148,7 +267,7 @@ VA - The Sound of 2024 Mix 1: Medellín (2024) [MP3|320 Kbps] <Trance, Progressi
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119622.jpg" />
 </div>
 
 
@@ -177,7 +296,7 @@ VA - Armin van Buuren - A State Of Trance 1158 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119599.jpg" />
 </div>
 
 
@@ -206,7 +325,7 @@ VA - EDM Gaming Files (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119490.jpg" />
 </div>
 
 
@@ -235,7 +354,7 @@ VA - Saturday Night (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119466.jpg" />
 </div>
 
 
@@ -264,7 +383,7 @@ Sam Feldt - Tomorrowland Friendship Mix (2024-02-01) [MP3|320 Kbps] <Dance, Elec
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119464.jpg" />
 </div>
 
 
@@ -293,7 +412,7 @@ Markus Schulz - Global DJ Broadcast World Tour (Open to Close Solo Set, Groove C
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119460.jpg" />
 </div>
 
 
@@ -322,7 +441,7 @@ Axwell - Axtone House Party (Dance Tent, MDLBEAST SOUNDSTORM, Saudi Arabia) (202
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119443.jpg" />
 </div>
 
 
@@ -351,7 +470,7 @@ Kmfdm - Let Go (2024) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Industria
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119357.jpg" />
 </div>
 
 
@@ -380,7 +499,7 @@ Eguana - Exploration (2024) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Ambient Chil
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119349.jpg" />
 </div>
 
 
@@ -409,7 +528,7 @@ Cyberaktif - eNdgame (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Electro, Industr
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119326.jpg" />
 </div>
 
 
@@ -438,7 +557,7 @@ VA - A State of Trance 2024 - DESTINATION (The Official Album) (2024) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118976.jpg" />
 </div>
 
 
@@ -467,7 +586,7 @@ Laserdance - Discovery Trip (1989) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118958.jpg" />
 </div>
 
 
@@ -496,7 +615,7 @@ Laserdance - Around The Planet (1988) [OGG Vorbis|480 Kbps] <Electronic, Spacesy
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118955.jpg" />
 </div>
 
 
@@ -525,7 +644,7 @@ Laserdance - Technological Mind (1992) [OGG Vorbis|480 Kbps] <Electronic, Spaces
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118929.jpg" />
 </div>
 
 
@@ -554,7 +673,7 @@ Laserdance - The Guardian Of Forever (1995) [OGG Vorbis|480 Kbps] <Electronic, S
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118775.jpg" />
 </div>
 
 
@@ -583,7 +702,7 @@ VA - Top 10 January 2024 Emotional and Uplifting Trance (2024) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118772.jpg" />
 </div>
 
 
@@ -612,7 +731,7 @@ VA - Cafe Ease: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Baleari
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118771.jpg" />
 </div>
 
 
@@ -626,122 +745,6 @@ VA - Cafe Ease: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Baleari
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA8F534C3B5E267E7096F8A3D8DEBCD93707B730
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697480   (118767) от 07.02.2024
-
-Laserdance - Hypermagic (1993) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth, Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Enemy On Earth (Vocoder Mix)
-02.  Land Of Nowhere
-03.  Fire On Ice
-04.  Hypermagic(   Читать дальше...   )Жанр: Electronic, Spacesynth, SynthpopПродолжительность: 00:59:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C42A44BD66E077A2B7FD920869B2A4EABCD78373
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697532   (118739) от 07.02.2024
-
-Laserdance - Fire On Earth (1994) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth, Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Under Fire
-02.  Pirates Of The Dark
-03.  The Asphyx
-04.  No Man`s Land(   Читать дальше...   )Жанр: Electronic, Spacesynth, SynthpopПродолжительность: 01:01:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2CE0468EDA280C6E5A63DD518DD4DD14B863133
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697287   (118652) от 08.02.2024
-
-Depeche Mode - Album Collection (1981-1990) German Press Intercord [APE|Lossless|image + .cue] <SynthPop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. World In My Eyes (4:27)
-02. Sweetest Perfection (4:44)
-03. Personal Jesus (4:56)
-04. Halo (4:30)(   Читать дальше...   )Жанр: SynthPopПродолжительность: 06:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B676C742DB472EF0B8716BA7EE9D90E21719A694
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698286   (118583) от 08.02.2024
-
-Vintage Culture - Live @ Thunder Machine, Passio das Aguas, Goiania, Brazil (2023-11-24) [MP3|320 Kbps] <Tech House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vintage Culture & Tube & Berger & Kyle Pearce - Come Come
-02. PACS - ID
-03. Mila Journée - Three
-04. Burlyaev & Godunov - Springy(   Читать дальше...   )Жанр: Tech House, Melodic House, TechnoПродолжительность: 06:19:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8260F23241BE4E11368B8C7EA14C2629EBF6F19
 ```
 
 https://mybot314.ru/tekegram_catalog/

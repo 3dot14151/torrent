@@ -6,7 +6,7 @@ Rectangle Pro 2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241377.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SQLPro Studio 2020.47 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241366.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ aText 2.36.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241359.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ URL Manager Pro 5.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241351.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Auto Highlight 4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241310.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ ImageRanger Pro Edition 1.7.1.1527 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241306.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Paste Queue (Multi Clipboard) 1.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241298.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Framer Studio v88 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241295.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ GraphicConverter 11 v11.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241292.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Twixl Publisher Pro 11.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241290.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Integrity Pro 12.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241286.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ QuickLinks 2.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241273.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Apeaksoft DVD Creator for Mac 1.0.36 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241250.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Cookie 6.0.15 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241244.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ TinkerTool System 5.30 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241239.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Yoink 3.6.82 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241203.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Transfer 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241192.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Serial 1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241187.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ NeoFinder Business 8.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241180.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ PDFpen Pro 12 v12.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241173.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ ToothFairy 2.7.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241166.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ WinX DVD Ripper for Mac 6.5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241157.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Exposure Software Blow Up 3 v3.1.4.383 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241144.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Image2icon - Make your icon‪s‬ 2.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241135.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Exposure Software Snap Art 4 v4.1.3.375 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241128.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ MacX DVD Ripper Pro 6.5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241106.jpg" />
 </div>
 
 

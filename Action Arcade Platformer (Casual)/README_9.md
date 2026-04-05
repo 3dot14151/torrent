@@ -1,3 +1,58 @@
+###  Публикация: 358131   (585765) от 02.07.2011
+
+Goose Gogs (P) [Ru] 2011
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585765.jpg" />
+</div>
+
+
+###  Подробнее
+
+GooseGogs - это забавная игра, созданная 17-летним Фредериком Шиммелпфеннигом из Германии. За создание этого захватывающего платформера, он был номинирован на конкурс разработчиков, спонсируемый немецким правительством и получил престижную премию Компьютерных игр в 2010г.
+   В этом 2D jump’n'run платформере Вы будете управлять шестью различными персонажами (GooseGogs). Вас ждет около 50-ти хитрых уровней с множеством препятствий. Чтобы добраться до финиша, Вам придется полагаться на уникальные умения каждого GooseGog, а также их общее оружие: След Гнева. Заставьте своих врагов пройти через него, и они взорвутся!Тип издания: ПираткаЖанр: Arcade (Platform)Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F75FD4F9E9E6A6D1ECCDC714FCABF4623DF8CD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920001   (580810) от 21.07.2015
+
+Orbital Gear (2014) [En] (1.3.3) Repack OUTLAWS
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580810.jpg" />
+</div>
+
+
+###  Подробнее
+
+Orbital Gear — это динамичный шутер, в котором вы используете гравитацию небесных объектов в качестве движущей силы вашего робота в пространстве. Вооружите своего робота двумя из двенадцати различных видов оружия и уничтожьте своих врагов. Orbital Gear представляет собой классическую аркаду, созданную на основе новых технологий и 3D-графики.
+
+Хотя в основе Orbital (   Читать дальше...   )Тип издания: RepackРазработчик: Night NodeЖанр: Action, Arcade, PlatformerЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBC8D3E83F3A4CBFDDAFFCDF24084D9E84E69613
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 920467   (579618) от 22.07.2015
 
 Tembo The Badass Elephant (2015) [Multi] (1.0) License SKIDROW
@@ -6,7 +61,7 @@ Tembo The Badass Elephant (2015) [Multi] (1.0) License SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579618.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578494.jpg" />
 </div>
 
 
@@ -65,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578293.jpg" />
 </div>
 
 
@@ -91,7 +146,7 @@ Serial Cleaner (2017) [Ru/Multi] (1.0.1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577309.jpg" />
 </div>
 
 
@@ -117,7 +172,7 @@ Squishy the Suicidal Pig (2014) [En] (1.0.0.6) Repack Elektra
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576988.jpg" />
 </div>
 
 
@@ -145,7 +200,7 @@ Iron Marines (2019) [Ru/Multi] (1.0) License DARKSiDERS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575547.jpg" />
 </div>
 
 
@@ -171,7 +226,7 @@ Life Goes On: Done to Death (2016) [Ru/Multi] (2.02) Repack R.G. Механик�
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566574.jpg" />
 </div>
 
 
@@ -197,7 +252,7 @@ Feist (2015) [Ru/Multi] (1.0) RePack xGhost
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566072.jpg" />
 </div>
 
 
@@ -223,7 +278,7 @@ Shadow Bug (2017) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564735.jpg" />
 </div>
 
 
@@ -249,7 +304,7 @@ Westerado: Double Barreled (2015) [En] (1.0u2) Repack ALiAS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560406.jpg" />
 </div>
 
 
@@ -275,7 +330,7 @@ Giana Sisters: Twisted Dreams - Rise of the Owlverlord (2013) [Ru/En] (1.1.2) Re
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559101.jpg" />
 </div>
 
 
@@ -301,7 +356,7 @@ Katana ZERO (2019) [Ru/Multi] (1.0.4) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555591.jpg" />
 </div>
 
 
@@ -327,7 +382,7 @@ Tridents Wake (2019) [Ru/Multi] (1.01) License RELOADED
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555389.jpg" />
 </div>
 
 
@@ -353,7 +408,7 @@ Zombie Night Terror (2016) [Ru/Multi] (1.0/upd3/dlc) Repack Other [Special Editi
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550707.jpg" />
 </div>
 
 
@@ -379,7 +434,7 @@ Sky To Fly: Faster Than Wind (2016) [Ru/Multi] (1.0) SteamRip Let'sPlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549831.jpg" />
 </div>
 
 
@@ -405,7 +460,7 @@ Gravilon (2015) [En] (1.8) Repack WetGrapesStudio
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549018.jpg" />
 </div>
 
 
@@ -431,7 +486,7 @@ Rogue Legacy (2013) [Ru/Multi] (1.4.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547751.jpg" />
 </div>
 
 
@@ -457,7 +512,7 @@ Shiny (2016) [Ru/Multi] (1.0.0) License RELOADED
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547092.jpg" />
 </div>
 
 
@@ -483,7 +538,7 @@ Dream Alone (2018) [Multi] (1.0/upd1) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543546.jpg" />
 </div>
 
 
@@ -509,7 +564,7 @@ Absolute Drift (2015) [En] License TiNYiSO
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542412.jpg" />
 </div>
 
 
@@ -535,7 +590,7 @@ Chronology (2014) [Ru/Multi] (1.0.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541806.jpg" />
 </div>
 
 
@@ -561,7 +616,7 @@ Slain: Back From Hell (2016) [En] (5.3.6.15686141) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538565.jpg" />
 </div>
 
 
@@ -587,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533037.jpg" />
 </div>
 
 
@@ -613,7 +668,7 @@ Algotica - Iteration 1 (2017) [Ru/En] (1.0) Repack Covfefe
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528400.jpg" />
 </div>
 
 
@@ -624,58 +679,6 @@ Algotica - Iteration 1 (2017) [Ru/En] (1.0) Repack Covfefe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57975DF606C5805713F6BFE4969D943714A01ACA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052454   (527763) от 14.09.2016
-
-Minecraft: Story Mode - A Telltale Games Series (2015) [Ru/Multi] (1.0.0.2) License CODEX [Episodes 1-8]
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Minecraft: Story Mode предлагает отправиться в популярный мир, но уже в виде сюжетного приключения. Проект является не аддоном, а отдельной игрой, где сюжет, как и в других играх Telltale Games, развивается в зависимости от принимаемых игроком решений. Сюжет Minecraft: Story Mode, как сейчас принято, поделен на несколько эпизодов, составляющих первый сезон.Тип издания: LicenseРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, и другиеЯзык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73747ABEDA8253219F742F3F641AFB220D107373
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156729   (526822) от 08.08.2017
-
-Evil Genome (2017) [En/Ch] (1.2.022) License PLAZA
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра Evil Genome студии Crystal Depths Studio — это однопользовательская трехмерная приключенческая  RPG-игра  действие которой происходят в пустыне (Metroidvania). Героиня Лахесис (Lachesis) поможет вам исследовать обширный мир пустыни, испытать себя в различных битвах, а также развить свой собственный характер!Тип издания: LicenseРазработчик: Crystal Depths StudioЖанр: Arcade (Platform), ActionЯзык озвучки: Английский, КитайскийЯзык субтитров: Английский, КитайскийЯзык интерфейса: Английский, Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B03AE4EFE942943F656A4BE5BBB77E728105DAAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

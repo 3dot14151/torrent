@@ -1,3 +1,160 @@
+###  Публикация: 1364532   (934420) от 04.03.2020
+
+Учёные из новосибирского Академгородка создали ключевые наноэлементы для посткремниевой электроники и нейрокомпьютеров
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934420.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научной группе из новосибирского Академгородка удалось впервые в мире создать уникальные нанопереключатели — приборы на основе монокристаллов двуокиси ванадия (VO2), которые резко и обратимо изменяют свое сопротивление и при этом демонстрируют рекордную энергоэффективность, сравнимую с эффективностью нейрона, высокое быстродействие и долговечность. Предложенная технология (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364232   (934340) от 04.03.2020
+
+Carbon 1 Mark II — первый в мире смартфон из углепластика. Он весит всего 125 г
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда смартфоны только начали появляться, уже нашлись те, кто кричал про однообразие дизайна и про то, что во времена расцвета обычных мобильных телефонов с разнообразием идей было намного лучше.Однако сейчас всё действительно стало именно так. По тем или иным причинам производители не стремятся экспериментировать и рисковать, копируя друг у друга удачные, как им (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364725   (934336) от 04.03.2020
+
+FontExpert 2020 17.0 Release 1 RePack (& Portable) by TryRooM [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fontexpert - полнофункциональная программа для просмотра шрифтов, печати, поиска, загрузки и управлением коллекциями шрифтов. Вы также сможете обнаруживать и решать проблемы со шрифтами форматов TrueType, OpenType, PostScript. Данная утилита отображает гарнитуры установленных шрифтов, а также позволяет пролистывать папки и предварительно просматривать гарнитуры шрифтов, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C13F9967505871A8E5C389621E954E7B18D7416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364416   (934328) от 04.03.2020
+
+OneWeb обещает широкополосный спутниковый интернет в любой точке России
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания OneWeb считает Россию «идеальным рынком» благодаря её территории, но пока не может получить для работы здесь лицензии и разрешения, включая 1) решение Государственной комиссии по радиочастотам о выделении частот и разрешение на их использование, 2) лицензии на виды услуг, 3) разрешение на эксплуатацию земных станций и др.«OneWeb будет работать не напрямую (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364717   (934324) от 04.03.2020
+
+Пушки Акимбо / Guns Akimbo (2019) WEB-DL [H.264/1080p] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Майлз небезосновательно считает себя неудачником: девушка бросила, а сам он работает в заштатной конторе разработчиком мобильных игр. Единственная отдушина в жизни парня — интернет-троллинг. Каждый вечер он провоцирует кого-нибудь в сети и, хорошенько поругавшись, спокойно засыпает. Однажды Майлз хамит очередному незнакомцу на сайте, где транслируются жестокие игры (   Читать дальше...   )Производство: Великобритания, Германия, Новая Зеландия / Altitude Film Entertainment, Electric Shadow Company,Жанр: Боевик, КомедияРежиссер: Джейсон Ли ХауденАктеры: Дэниэл Рэдклифф, Самара Уивинг, Риз Дэрби, Нед Деннехи, Наташа Лю Бордиццо, Марк Роули, Грант Боулер, Ханако Футман, Джош Роберт Томпсон, Сет СьострандПеревод: Профессиональный (многоголосый), Любительский (многоголосый), Любительский (двухголосый)Субтитры: русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:37:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CD0AAB61D763D3F9AD1379B52BFAA783CADD680
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344046   (934322) от 04.03.2020
+
+Seed4.Me VPN и Proxy – бесплатная Premium-подписка на целый год (неограниченный трафик)
+
+>>3
+>>11
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Seed4.Me VPN и Proxy – бесплатная Premium-подписка на целый год (неограниченный трафик)VPN-сервис поддерживает установку на Windows, Mac OS, Android, iPhone и iPad и предлагает серверы в более чем 30 странахSeed4.Me VPN и Proxy предоставляет качественный VPN доступ по всему миру, география нашего присутствия постепенно расширяется.
+На данный момент запущены серверы (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272389   (934321) от 04.03.2020
 
 ESET NOD32 Antivirus / Smart Security 8.0.319.1 RePack by KpoJIuK (21.12.2018) [Ru/En]
@@ -6,7 +163,7 @@ ESET NOD32 Antivirus / Smart Security 8.0.319.1 RePack by KpoJIuK (21.12.2018) [
 >>11
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934321.jpg" />
 </div>
 
 
@@ -33,7 +190,7 @@ MX Player Pro 1.7.36a / 1.7.31 - видеоплеер (20.01.2015) Mod by infini
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934172.jpg" />
 </div>
 
 
@@ -59,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933242.jpg" />
 </div>
 
 
@@ -85,7 +242,7 @@ Planetbase (2015) [Ru/Multi] (1.0.11b) Unofficial
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933227.jpg" />
 </div>
 
 
@@ -111,7 +268,7 @@ Red Giant Shooter Suite 13.0.0 CE RePack by TeamVR [En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933225.jpg" />
 </div>
 
 
@@ -137,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933222.jpg" />
 </div>
 
 
@@ -163,7 +320,7 @@ Warhammer 40 000: Dawn of War Антология [Ru] (RePack) 2004-2008 | R.G. 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933060.jpg" />
 </div>
 
 
@@ -189,7 +346,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2017.01.14 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933001.jpg" />
 </div>
 
 
@@ -215,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932997.jpg" />
 </div>
 
 
@@ -241,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932996.jpg" />
 </div>
 
 
@@ -267,7 +424,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4456.1003
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932994.jpg" />
 </div>
 
 
@@ -293,7 +450,7 @@ Windows XP SP3 RUS VL+ Быстрая установка из ESD [Ru] by yahoo0
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932992.jpg" />
 </div>
 
 
@@ -319,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932991.jpg" />
 </div>
 
 
@@ -345,7 +502,7 @@ BELOFF 2017 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932990.jpg" />
 </div>
 
 
@@ -371,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932989.jpg" />
 </div>
 
 
@@ -397,7 +554,7 @@ KMSpico 10.2.0 Final + Portable [En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932988.jpg" />
 </div>
 
 
@@ -423,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932987.jpg" />
 </div>
 
 
@@ -449,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932947.jpg" />
 </div>
 
 
@@ -475,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932872.jpg" />
 </div>
 
 
@@ -501,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932863.jpg" />
 </div>
 
 
@@ -512,172 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBA68527CD2B482FA5149C1921840DD94A50FBFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 765279   (932862) от 05.03.2020
-
-Космос: Пространство и время / Cosmos: A SpaceTime Odyssey (2014) HDTVRip [H.264/720p] (сезон 1, серии 1-13 из 13)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932862.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный сериал рассказывает о последних научных открытиях, которые были сделаны в области астронавтики, астрофизики и других наук. Сериал «Космос: Путешествие во времени» является продолжением научно-популярной серии фильмов «Космос: Персональное путешествие с Карлом Саганом» и отражает события последних трех десятилетий. Астрофизик Нил Деграсс Тайсон с соавторами (   Читать дальше...   )Производство: США / Cosmos Studios, Fuzzy Door Productions, National Geographic Channel, Six Point Harness, Syon MediaЖанр: Документальный, наука, космосРежиссер: Брэннон Брага, Энн Драйэн, Билл ПоупПеревод: Профессиональный одноголосый (студия Арк-ТВ)Продолжительность: ~ 00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78FDA4DB99CEE9ACD6C551C6B5934D5BF0D9BEEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 629281   (932702) от 12.03.2013
-
-Sniper: Ghost Warrior 2 [XBOX360] [Region Free] [RUSSOUND] [LT+1.9] (XGD2 / 15574) (2013)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Безжалостный боец-одиночка вновь выходит на тропу войны. Действие второй части популярного экшена, снискавшего признание игроков по всему миру, развернется среди непролазных джунглей, горных хребтов и городских развалин. Впечатляющая подборка самого современного снаряжения включает тепловизор и прибор ночного видения, которые значительно расширят ваши возможности по устранению противника.
-
-Как и первая часть игры, Sniper: Ghost Warrior 2 предложит различные способы достижения поставленной цели. Вам предстоит выбрать свой путь к победе, будь то смертоносный огонь из снайперской винтовки на дальних дистанциях или бесшумные убийства в ближнем бою. Но в любом случае придется принимать во внимание невероятно реалистичные погодные условия и продвинутую баллистику. И помните: один выстрел – один труп! Ведь снайперы, как и саперы, ошибаются только раз… (   Читать дальше...   )Тип издания: ЛицензияЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский / АнглийскийЯзык интерфейса: Русский / Английский / Multi4
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00ED2031FFA44FBA569A05262E59EF5FA28266B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 629490   (932693) от 12.03.2013
-
-Kali Linux 1.0 (ex. BackTrack) Аудит безопасности, хакинг. [i386 + amd64] (2xDVD)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вышла принципиально новая версия известного дистрибутива по тестированию безопасности и хакинга BackTrack с новым названием Kali Linux, т.е. вместо долгожданного BackTrack 6 вышел данный релиз.
-
-Основанный на Ubuntu, дистрибутив BackTrack "переехал" на платформу Debian. Уже готово более 300 Debian-совместимых собственных пакетов с поддержкой 8 языков.
-
-Изменений оказалось так много, что дистрибутив решено было полностью переименовать.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 619805   (932685) от 12.03.2013
-
-Crysis 3: Hunter Edition [Ru/Pl] (Origin-Rip/1.2.1.0) 2013 | R.G. Игроманы
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Crysis 3 продолжает знаменитую серию шутеров от Crytek. Действие игры разворачивается в 2047 году, а вам предстоит выступить в роли Пророка. Он возвращается в Нью-Йорк, где узнает о том, что город находится под куполом Nanodome, который был создан корпорацией C.E.L.L. Жителям сообщают, что Nanodome необходим для их защиты и очистки метрополисов от последних цефов, однако, на самом деле, его строительство является частью тайной операции по захвату технологий ради мирового господства. Надев усовершенствованный нанокостюм и вооружившись смертоносным луком и разрушительными инопланетными технологиями, Пророку предстоит помешать коварным планам C.E.L.L. и уничтожить оставшихся пришельцев. (   Читать дальше...   )Тип издания: Лицензия (Origin-Rip)Разработчик: CrytekЖанр: Action / ShooterЯзык озвучки: Русский, ПольскийЯзык субтитров: Русский, ПольскийЯзык интерфейса: Русский, Польский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985626   (932049) от 13.02.2016
-
-Ученые обнаружили сотни новых галактик, скрывавшихся позади Млечного Пути
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ученые-астрономы, работающие на радиотелескопе Паркса австралийского Национального исследовательского агентства CSIRO (Commonwealth Science and Industrial Research Organisation), который недавно был оборудован новым высокочувствительным приемником, обнаружили сотни галактик, которые достаточно долго "скрывались" позади нашей собственной галактики, галактики (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364948   (931802) от 06.03.2020
-
-Очередное достижение: 4000 релизов от vilator!!!!
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередное достижение: 4000 релизов от vilator!!!Уважаемые одноклубники, рад сообщить Вам о возможности поздравить нашего товарища с 4000-м релизом!От всей души поздравляем
-vilator
-с этим достижением и выражаем огромную благодарность от имени всех одноклубников и администрации nnm-club!
-Все любители электронной музыки знают его уникальные релизы! Это тот случай, когда количество и качество в одном флаконе!
- Надеюсь, что вы все также присоединитесь к этим поздравлениям! (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

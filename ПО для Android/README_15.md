@@ -1,3 +1,107 @@
+###  Публикация: 1842763   (1048886) от 16.12.2025
+
+Vanced Tube v5.5.80.314 Mod by TRUMods [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vanced — это модифицированная версия YT, которая включает в себя различные улучшения, такие как отсутствие рекламы, автоматический пропуск заставок и рекламы в середине видео, фоновое воспроизведение, регулировку громкости и яркости и многое другое.Тип издания: ModРелиз состоялся: 16.12.2025Разработчик: getvanced2020@gmail.comПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDA0542C14AE26BA6626A66BCAEF958F465D64AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842766   (1048875) от 20.12.2025
+
+Grok - ИИ ассистент v1.0.89-release.00 Mod by kljovyj [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grok — это AI-ассистент, разработанный xAI, предназначенный для максимальной правдивости, полезности и любопытства. Получайте ответы на любые вопросы, генерируйте впечатляющие изображения и видео, ведите естественные разговоры в голосовом режиме и загружайте картинки, чтобы глубже понять свой мир. С Grok вселенная в ваших руках!Тип издания: ModРелиз состоялся: 16.12.2025Разработчик: xAIПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F41CFDF9AD39EB940CF69645A0164E4347AD947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842083   (1048675) от 14.12.2025
+
+Vanced Tube v5.5.80.306 Mod by TRUMods [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vanced — это модифицированная версия YT, которая включает в себя различные улучшения, такие как отсутствие рекламы, автоматический пропуск заставок и рекламы в середине видео, фоновое воспроизведение, регулировку громкости и яркости и многое другое.Тип издания: ModРелиз состоялся: 13.12.2025Разработчик: getvanced2020@gmail.comПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBFFC7EB48BB08A0130E2F58089E9609D1C39698
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842082   (1048674) от 14.12.2025
+
+Узлы 3D / Knots 3D v10.6.0 Paid [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Завязывайте, развязывайте и вращайте пальцем более 190 узлов в 3D! Наше популярное 3D-приложение Knots 3D позволит вам взглянуть на узлы совершенно по-новому! Берите кусок веревки и развлекайтесь!Тип издания: Paid / FullРелиз состоялся: 14.12.2025Разработчик: Nynix LLCПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:739288694D7C7466EB3AF6B05D0FE7E6B92E835A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1842079   (1048488) от 14.12.2025
 
 Universal Copy v7.0.1 Мод by Balatan [Ru/Multi]
@@ -6,7 +110,7 @@ Universal Copy v7.0.1 Мод by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048488.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Photo Editor v12.3 Pro Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048487.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Photo Editor v12.3 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048486.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ HiPER Calc Pro v11.2.9 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048475.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Universal Copy v7.0.1 Мод by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048468.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v16.5.6 Mod b
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048467.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ MobiOffice: Word, Sheets, PDF Premium v16.0.58429 Extra Mod by Balatan [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048458.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Moon+ Reader Pro v10.3 (b1003000) Mod by Lucky Las [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048391.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048383.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Listen Audiobook Player v5.4.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048382.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Remini / Улучшение Фото v3.7.1213.202518225 Mod by Mixroot [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048381.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Grok - ИИ ассистент v1.0.87-release.00 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048378.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048377.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ AirBrush: ИИ Фоторедактор v7.22.0 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048372.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ SnapEdit - AI photo editor v7.5.7 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048371.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Exo Player - Видеоплеер и IPTV v2.1.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048316.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ YouCut - Video Editor v1.702.1215 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048265.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ WaveStudio (WaveEditor Record & Edit Audio) v1.127 Mod by Alex.Strannik [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048263.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048177.jpg" />
 </div>
 
 
@@ -504,7 +608,7 @@ AIDA64 v2.16 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048176.jpg" />
 </div>
 
 
@@ -530,7 +634,7 @@ Taskito v1.1.6 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047921.jpg" />
 </div>
 
 
@@ -556,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047917.jpg" />
 </div>
 
 
@@ -567,110 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:974745993E738AC61BC499C8E18E57E8AC03B76A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841362   (1047916) от 10.12.2025
-
-Grok - ИИ ассистент v1.0.85-release.02 Mod by kljovyj [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047916.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grok — это AI-ассистент, разработанный xAI, предназначенный для максимальной правдивости, полезности и любопытства. Получайте ответы на любые вопросы, генерируйте впечатляющие изображения и видео, ведите естественные разговоры в голосовом режиме и загружайте картинки, чтобы глубже понять свой мир. С Grok вселенная в ваших руках!Тип издания: ModРелиз состоялся: 10.12.2025Разработчик: xAIПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCD8291C84149D3CE8A73464F2DC83AB483ADFC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841060   (1047737) от 08.12.2025
-
-МДС | Модель для Сборки - аудиокниги v20.3 Mod by Alex.Strannik [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047737.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Модель для сборки» (сокращённо МДС) - культовая российская радиопередача. Одно из самых известных радиошоу в сегменте авторских программ. Впервые начала выходить на радио в 1995 году. МДС - радиопостановки произведений современной прозы в сопровождении электронной музыки. Приложение является каталогом крупнешего архива МДС mds-club.ru от фанатов с расширенными возможностями: (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 08.12.2025Разработчик: Anton BalashovПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03849A83443463DBC13F93EF88D31BB89D52645A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840707   (1047629) от 07.12.2025
-
-Grok - ИИ ассистент v1.0.83-release.02 Mod by kljovyj [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047629.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grok — это AI-ассистент, разработанный xAI, предназначенный для максимальной правдивости, полезности и любопытства. Получайте ответы на любые вопросы, генерируйте впечатляющие изображения и видео, ведите естественные разговоры в голосовом режиме и загружайте картинки, чтобы глубже понять свой мир. С Grok вселенная в ваших руках!Тип издания: ModРелиз состоялся: 06.12.2025Разработчик: xAIПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33AE37AA9F3106EB0C4C8647836C69D2A809F1FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840701   (1047628) от 07.12.2025
-
-Smart AudioBook Player Pro v11.6.3 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа разработана специально для проигрывания аудиокниг. Предполагается, что у Вас есть аудиокниги и Вы их уже скопировали на телефон. Воспроизведение форматов: opus, mp3, m4a, m4b, awb, ogg, wma (можно слушать книги, конвертированные для Nokia).Тип издания: FullРелиз состоялся: 06.12.2025Разработчик: Александр КравченкоПоддерживаемая ОС: Android 11+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:373D7A34D0593115598B615F5C1F803E7D66DF8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

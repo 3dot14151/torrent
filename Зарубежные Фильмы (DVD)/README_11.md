@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854078.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852681.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852431.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851238.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850807.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850761.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850656.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849169.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_849011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_849011.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848949.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848943.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848731.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847636.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847351.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846871.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846857.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846794.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845559.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845449.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845342.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845167.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843339.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841886.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841418.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840586.jpg" />
 </div>
 
 
@@ -651,25 +651,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 772343   (840149) от 31.03.2014
+###  Публикация: 771957   (839953) от 31.03.2014
 
-Одержимая / Страсть / Crush (2013) DVD5
+Хуже не бывает / Scorched (2002) DVD5
 
 >>Зарубежное кино
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839953.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Скромная, застенчивая девушка Бесс находит себе идеал в школе. Выбор пал на лучшего футболиста, покорителя всех девичьих сердец, Скотта. Бесс, не в силах противиться своей страсти, начинает преследовать своего кумира…Производство: СШАЖанр: ТриллерРежиссер: Малик БейдерАктеры: Лукас Тилл, Кристал Рид, Сара Болджер, Каитриона Бэлфи, Рейд Юинг, Холт МакКэллани, Ли Уоннелл, Престон Дэвис, Камилла Гуати, Айзая Мустафа...Перевод: ДублированныйСубтитры: НетПродолжительность: 01:30:53
+Работая в Пустынном сберегательном банке в городке посреди пустыни, особенно не разбогатеешь - так думают три его пронырливых работника, без устали прокручивая в голове варианты обогащения. Наконец, план ограбления банка созрел! Жаль только, что у каждого он свой и друг с другом эти "гении" не общаются. Горе-налетчики уверены, что просчитали все детали, (   Читать дальше...   )Производство: США, EC3 Productions, Neverland Films Inc.Жанр: Комедия, криминалРежиссер: Гэвин Грейзер/Gavin GrazerАктеры: Алисия Сильверстоун, Рэйчел Ли Кук, Вуди Харрельсон, Джон Клиз, Паоло Костанзо, Дэвид Крамхолц, Джошуа Леонард, Иван Сергей, Маркус Томас, Джеффри Тэмбор, Макс Вейн, Гэвин Грейзер, Стивен Шенбаум, Вейн Морс, Рени Олстэд и др.Перевод: ДублированныйЯзык субтитров: РусскийФормат: DVD5Продолжительность: 01:30:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C816CCB12AD564D586912C15DB66A901F2B997D1
+magnet:?xt=urn:btih:032DF50E51F1221815CE0791B8CABA21470316ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

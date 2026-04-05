@@ -1,3 +1,81 @@
+###  Публикация: 1751298   (42588) от 24.09.2024
+
+Copycat (2024) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключения в Copycat позволяют взглянуть на мир через призму кошачьего восприятия. Игроки возьмут под управление кота, которым нужно управлять от третьего лица и отправятся на приключения. Проект направлен на создание созидательного и одинокого путешествия. Через которое проходят представители семейства кошачьих. Главным героем выступит Дон, избалованный домашний (   Читать дальше...   )Тип издания: RepackРазработчик: Spoonful Of WonderЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Японский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C45DB335420E1DC40454C62BE061F22D6273914F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751266   (42543) от 24.09.2024
+
+Abnormal1999: The Compass and the Sand / Аномалия1999: Компас и песок (2024) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Abnormal1999:The Compass and the Sand - это загадочная головоломка, в которой геймеры погружаются в роль Энн, персонажа, изгнанного мистическим компасом. Тут юзерам предстоит раскрыть секреты изгнанной земли и активировать компас, чтобы спастись. Повествование разворачивается в далекой и незнакомой стране, где Энн движет непоколебимая решимость найти дорогу назад.Тип издания: RepackРазработчик: QZQ StudioЖанр: Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Китайский, Французский и другиеЯзык интерфейса: Русский, Английский, Китайский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C465A2E7ED2C74A69CACF01C908D946851BC2E85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751270   (42541) от 24.09.2024
+
+Three Alpha One Nine (2024) [En] (1.2.5.2) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42541.jpg" />
+</div>
+
+
+###  Подробнее
+
+Three Alpha One Nine – это сложный и одновременно ультрасовременный платформинг, приправленный приключениями. Где скорость, точность и любопытство будут вознаграждены! Ну, а, вам здесь предстоит примерить роль робота ЗА19 и вместе с ним проложить себе путь сквозь разнообразные локации. Попросту говоря, вам необходимо перевоплотиться в специализированного робота, (   Читать дальше...   )Тип издания: RepackРазработчик: BlackLPЖанр: Приключенческие игры, Казуальные игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBFBCAD01DA8C08E8EE76E4E4BAA1634540DDE45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751435   (42463) от 25.09.2024
 
 DreadHaunt (2023) [Ru/Multi] (1.0) Scene Tenoke
@@ -6,7 +84,7 @@ DreadHaunt (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42463.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Broken Sword 5: The Serpent's Curse (2014) [Ru/Multi] (3.0.5) License GOG [Episo
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42176.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15770319/dlc) Repack Decepti
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42171.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Creatures of Ava (2024) [Ru/Multi] (1.0.2.2/dlc) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42152.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Broken Sword 4: The Angel of Death / Сломанный меч 4: Ангел с�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42116.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Farewell North (2024) [Multi] (1.1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42105.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Paper Ghost Stories: Third Eye Open (2024) [Multi] (1.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42079.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Isles of Sea and Sky (2024) [Ru/Multi] (1.2a) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42077.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Batbarian: Testament of the Primordials (2020) [Ru/Multi] (1.4.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42058.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Trap for the Heir (2024) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42023.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Resolutiion (2020) [Ru/Multi] (1.3.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41962.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Murder On Space Station 52 (2024) [Multi] (1.13.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41945.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ DreadHaunt (2023) [Ru/Multi] (1.0.0.20) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41846.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ The Invincible (2023) [Ru/Multi] (44.475) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41814.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Prison Alone (2024) [Ru/Multi] (1.0.2) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41736.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Prison Alone (2024) [Ru/Multi] (1.0.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41715.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ AMEDAMA (2024) [Multi] (2.0.0/2.0.3) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41491.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Beyond Hanwell (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41428.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Psycho Fear (2024) [Multi] (1.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41397.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Satellite Odyssey: Prologue (2024) [Ru/En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41393.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (Build 1589651
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41309.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Machinika: Atlas (2024) [Ru/Multi] (1.1.2.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41291.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (Build 1589651
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41241.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (Build 1589651
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC5955F3B88D38A19E97F726405BEA5D09BA8F62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753806   (41218) от 07.10.2024
-
-Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.236.114/dlc) Scene Rune
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучайте новые здания и локации – в некоторые из них нельзя было попасть в оригинальной игре, а некоторые впервые появились в ремейке. Насладитесь знаменитым сюжетом, взглянув при этом на Сайлент Хилл по-новому благодаря расширенной карте.Тип издания: SceneРазработчик: Bloober Team SAЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7CC44969B745F3A32CB880C67D9FD433452A08C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753861   (41208) от 07.10.2024
-
-Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.236.114/dlc) Repack FitGirl [Digital Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41208.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучайте новые здания и локации – в некоторые из них нельзя было попасть в оригинальной игре, а некоторые впервые появились в ремейке. Насладитесь знаменитым сюжетом, взглянув при этом на Сайлент Хилл по-новому благодаря расширенной карте.Тип издания: RepackРазработчик: Bloober Team SAЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB88F26BD640E0C43A7503419568E12BE21A9098
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754225   (40877) от 09.10.2024
-
-Arctico (2022) [Ru/Multi] (2.2a) Repack Pioneer
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследуйте Арктику со своей командой на собачьих упряжках, каяком и парашютом! Постройте и настройте свой базовый лагерь, соберите ресурсы, позаботьтесь о своих экспериментах на этом мирном острове. Arctico - атмосферный симулятор выживания с видом от первого и от третьего лица. Главное средство для выживания в игре - упряжка из четырех собак. На ней можно передвигаться, (   Читать дальше...   )Тип издания: RepackРазработчик: Claudio Norori, Antonio VargasЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: Русский, Английский, Испанский и другиеЯзык субтитров: Русский, Английский, Испанский и другиеЯзык интерфейса: Русский, Английский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90AFCD3E5053246F7E579222DF1327ED89F739FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

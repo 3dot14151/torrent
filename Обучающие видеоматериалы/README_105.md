@@ -1,3 +1,29 @@
+###  Публикация: 1521377   (764962) от 02.01.2022
+
+5daydeal | Набор курсов и фотографий (2021) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>Фотография и Видео (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый 2021 набор фотографий и курсов с сайта 5daydealЖанр: фотографияЯзык озвучки: АнглийскийПродолжительность: 48:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DED3E22786667D0BDE4957F4AA3F29E1B817CF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394383   (764200) от 04.07.2020
 
 Udemy | Angular и NgRx - пишем реальный проект с нуля (2020) PCRec [H.264/720p-LQ]
@@ -6,7 +32,7 @@ Udemy | Angular и NgRx - пишем реальный проект с нуля (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764200.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764186.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ Monecle, Вилена Малая | Пошив сумок с нуля до рез
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764180.jpg" />
 </div>
 
 
@@ -90,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764179.jpg" />
 </div>
 
 
@@ -118,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764054.jpg" />
 </div>
 
 
@@ -144,7 +170,7 @@ Michael Pavlovich | Creature Production by Michael Pavlovich (2016) PCRec [En, R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763628.jpg" />
 </div>
 
 
@@ -172,7 +198,7 @@ Krita Foundation | Тренинг по Krita №2: Музы / Krita Training Vol
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763623.jpg" />
 </div>
 
 
@@ -199,7 +225,7 @@ Beonmax | Курс ВЕБ-разработчик 2019 - с нуля до рез�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763411.jpg" />
 </div>
 
 
@@ -226,7 +252,7 @@ Beonmax | Курс Photoshop для начинающих Веб-дизайнер
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763410.jpg" />
 </div>
 
 
@@ -253,7 +279,7 @@ Beonmax | Курс Linux / GIT (2019) PCRec [H.264/1080p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763406.jpg" />
 </div>
 
 
@@ -281,7 +307,7 @@ Beonmax | Курс WordPress – с нуля до Профи! (2018) PCRec [H.26
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763404.jpg" />
 </div>
 
 
@@ -308,7 +334,7 @@ Beonmax | Курс PHP / MySQL (2019) PCRec [H.264/1080p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763401.jpg" />
 </div>
 
 
@@ -336,7 +362,7 @@ Beonmax | Курс Полный курс Python для начинающих – 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763394.jpg" />
 </div>
 
 
@@ -363,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762742.jpg" />
 </div>
 
 
@@ -392,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762739.jpg" />
 </div>
 
 
@@ -419,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762329.jpg" />
 </div>
 
 
@@ -447,7 +473,7 @@ CG Cookie | Моделирование и анимация Sci-Fi люка в Bl
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762106.jpg" />
 </div>
 
 
@@ -473,7 +499,7 @@ CG Cookie | Моделирование мотоцикла в Blender 2.69 / Mode
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761836.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Lynda.com | Основы построения бренда (2014) HDRip [H.264/7
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761737.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761724.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761629.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ FilmeditingPRO | Секреты креативного монтажа / Secrets 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761520.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761484.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ ITVDN | Онлайн курс Golang (2018) PCRec [H.265]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761473.jpg" />
 </div>
 
 
@@ -663,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761418.jpg" />
 </div>
 
 
@@ -677,35 +703,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:973EA2B49138B56F58CDED0B0261D5EFF75C6978
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017378   (760672) от 17.05.2016
-
-Алексей Каманин | AutoCAD + СПДС GraphiCS - проектирование деревянных конструкций (2016) WEBRip
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот видеокурс для Вас, если:
-Вы новичок в проектировании деревянных конструкций в AutoCAD и СПДС GraphiCS
-Вы уже проектировали конструкции, но хотите повысить скорость проектирования в 2-3 раза.
-Вы хотите автоматизировать составление ведомостей, спецификаций и чертежей.(   Читать дальше...   )Производство: autocad-prosto.ruЖанр: Дизайн, проектированиеПродолжительность: 01:45:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD56B0C6AAFC34F6A5470DF1CDD39DDC7C8A6C20
 ```
 
 https://mybot314.ru/tekegram_catalog/

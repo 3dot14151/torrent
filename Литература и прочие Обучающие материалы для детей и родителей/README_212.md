@@ -1,3 +1,56 @@
+###  Публикация: 1298318   (601913) от 27.04.2019
+
+Анатолий Алексин | Сева Котлов за полярным кругом (1963) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение приключений знаменитого и неугомонного Севы Котлова.Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B43B3A464A3C11A8C106A0B750607AAC0DDBE43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298391   (601861) от 27.04.2019
+
+В. Бейко | Большая энциклопедия животного мира (2013) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга – прекрасное дополнение к школьным учебникам по биологии. Энциклопедия написана российскими учеными-зоологами и сотрудниками Московского зоопарка и предназначена специально для детей! Вся необходимая школьнику информация о различных типах животных сопровождается увлекательными рассказами о самых ярких представителях фауны нашей планеты.
+Книга построена (   Читать дальше...   )Жанр: Биология, ЗоологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D010E04F581151DBD542D8804DBAD2D1749BBAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1298405   (601724) от 28.04.2019
 
 Кристоф Барботэн | Древние Египет и Греция (1995) [PDF]
@@ -6,7 +59,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601724.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601702.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601696.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601670.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601633.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601613.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601550.jpg" />
 </div>
 
 
@@ -188,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601406.jpg" />
 </div>
 
 
@@ -214,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601302.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601290.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601289.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601286.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601284.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601136.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601081.jpg" />
 </div>
 
 
@@ -400,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601004.jpg" />
 </div>
 
 
@@ -427,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600989.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600965.jpg" />
 </div>
 
 
@@ -479,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600853.jpg" />
 </div>
 
 
@@ -506,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600761.jpg" />
 </div>
 
 
@@ -532,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600759.jpg" />
 </div>
 
 
@@ -561,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600740.jpg" />
 </div>
 
 
@@ -587,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600705.jpg" />
 </div>
 
 
@@ -613,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600691.jpg" />
 </div>
 
 
@@ -624,60 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9146557D7629FAD3B20B8DEEDFEEB5E2BB291D2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914320   (600283) от 01.07.2015
-
-Надежда Чубарова | Софья и Царство Тьмы (2015) [FB2, EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скромная школьница Соня неожиданно открывает в себе магические способности. Укус демона сделал ее темной ведьмой. Одноклассницам, обижавшим ее, придется нелегко. Впрочем, как и родителям, – объясняющим перемены в характере дочки переходным возрастом.
-
-С помощью волшебного зеркала Соня попадает в Царство Тьмы и находит там верного друга – Страшилу. Но Темное Царство (   Читать дальше...   )Жанр: Детская фантастика, ПопаданцыФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7ED68584D190651F18E2D04925D7A98F157161B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914106   (600169) от 01.07.2015
-
-П. К. Федоренко | Сколько стоит золотой, или История денег (2005) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600169.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта энциклопедия поможет вашему ребенку выяснить откуда и когда возникли средства. В книжке обычным доходчивым языком объясняются все обозначаемые действия, которые происходили на шаге развития идущих в ногу со временем средств разных государств.Жанр: Энциклопедия для детей и родителейФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96D057ED787E26D8D2BCDEAF6D993B252CD4B151
 ```
 
 https://mybot314.ru/tekegram_catalog/

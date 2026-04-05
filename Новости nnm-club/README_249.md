@@ -1,3 +1,56 @@
+###  Публикация: 1673236   (164673) от 01.11.2023
+
+Call of Duty: Black Ops Cold War (2020) [Ru/En] (1.34.0.15931218) Rip Decepticon
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие игры Black Ops Cold War происходит в начале 1980-х годов - в один из напряженных периодов холодной войны. В ходе захватывающей кампании невиданных масштабов, рассчитанной на одного игрока, игрокам предстоит встречаться с историческими деятелями и узнавать жестокие истины, сражаясь в таких культовых местах, как Восточный Берлин, Вьетнам, Турция и даже штаб-квартира (   Читать дальше...   )Тип издания: RipРазработчик: Treyarch, Raven SoftwareЖанр: Action, ShooterЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB2757170621206139587E8DF209A25FC12150E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910863   (164672) от 17.12.2019
+
+Мы не можем жить без космоса (2014) WebRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164672.jpg" />
+</div>
+
+
+###  Подробнее
+
+История двух лучших друзей, тренирующихся в центре подготовки космонавтов. Они мечтают о полете в космос и делают все для достижения своей цели.
+В полёт должен отправиться лишь один из них. Они не могут жить без космоса. Смогут ли они друг без друга?Производство: Россия, МельницаЖанр: Рисованная анимация, Короткометражный, Для взрослыхРежиссер: Константин БронзитПродолжительность: 00:15:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F63A5F66B0454EF33596D79CF9EDFB387599F85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1293496   (164671) от 12.12.2021
 
 Flibusta Downloader v3.2.2.1 [Ru]
@@ -6,7 +59,7 @@ Flibusta Downloader v3.2.2.1 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164671.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164585.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Devil May Cry 5 (2019) [Ru/Multi] (1.0.5962864/dlc) Repack Other s [Deluxe Editi
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164580.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164465.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ Borland Delphi 7 Science Edition 2020 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164455.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_164086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_164086.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ Assetto Corsa Competizione (2019) [Ru/Multi] (1.2.0) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163949.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ Yiihuu, Hooman Raad | The Dwarf Warrior: 3D Character Creation For Game (2019) P
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163918.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ XYZ School, Егор Гришин | Скетчинг (2020-2021) PCRec
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163854.jpg" />
 </div>
 
 
@@ -241,7 +294,7 @@ S.M.A.R.T. Vision 4.1.0.1796 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163850.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163840.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163616.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ Quake: Enhanced (2021) [Ru/Multi] (1.0/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163572.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ F-Secure Freedome VPN 2.39.6634 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163368.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ Windows 10 20H2 (19042.685) x64 Home + Pro + Enterprise (3in1) by Brux v.12.2020
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163360.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163349.jpg" />
 </div>
 
 
@@ -427,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163191.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163182.jpg" />
 </div>
 
 
@@ -479,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163103.jpg" />
 </div>
 
 
@@ -505,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163089.jpg" />
 </div>
 
 
@@ -531,7 +584,7 @@ Ballance / Баланс (2004) [Ru] (1.0) License
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163081.jpg" />
 </div>
 
 
@@ -557,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_162856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_162856.jpg" />
 </div>
 
 
@@ -583,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162820.jpg" />
 </div>
 
 
@@ -609,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_162805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_162805.jpg" />
 </div>
 
 
@@ -621,58 +674,6 @@ b_igor1-1(   Читать дальше...   )
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432709   (162562) от 18.12.2020
-
-PotPlayer 1.7.21397 (x64) Stable RePack (& portable) by 7sh3 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162562.jpg" />
-</div>
-
-
-###  Подробнее
-
-PotPlayer - мультимедийный плеер от авторов KMPlayer. Его отличают высокое качество воспроизведения, поддержка всех современных видео- и аудиоформатов, а также наличие встроенных видеокодеков DXVA. Potplayer обладает современным дизайном, удобен в настройке, позволяет назначать и изменять горячие клавиши, записывать воспроизводимый звук в отдельный файл, подключать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CACD05F4619AD08F2B394ABEE5DDDDB73DBD0989
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471154   (162478) от 15.12.2021
-
-Call Recorder - SKVALEX v3.4.9 [Ru/Multi]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Call Recorder - SKVALEX предназначен для автоматической записи звонков. Программа предоставляет функцию записи двух сторон на устройствах с такой поддержкой. Но некоторые устройства не поддерживают двустороннюю запись разговоров или имеют проблемы с записью через Bluetooth-гарнитуру.Тип издания: Пиратка (Full)Релиз состоялся: 28 августа 2021 г.Разработчик: SKVALEX AppsПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DF1829A31EF0D4670474633248B0C2401FB6443
 ```
 
 https://mybot314.ru/tekegram_catalog/

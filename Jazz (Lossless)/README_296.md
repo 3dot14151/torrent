@@ -6,7 +6,7 @@ Billie Holiday - The Ben Webster & Harry Edison Sessions (1956-1957) 2CD, 2009, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139204.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Bohren & Der Club Of Gore - Black Earth (2002) [FLAC|Lossless|tracks + .cue] <Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139083.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Norah Jones - First Sessions (2001) Japan 2017 [FLAC|Lossless|image + .cue] <Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138637.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Lee Morgan - The Rumproller (1965) 1987, Blue Note [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138426.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Steve Draper Quartet - Have A Very Mellow Christmas (1999) Self-Released [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138373.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Lew Tabackin - Live At Vartan Jazz (1994) Vartan Jazz [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138361.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Lee Morgan - The Complete Recordings (1956 - 1962) 6CD, 2015, Enlightenment [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138353.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Chet Baker - The Hits 1952 - 1959 (2019) 3CD, New Continent [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138291.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Artie Shaw - 1946-1950 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138131.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Sven Erik Lundeqvist Trio - First & Foremost (2018) Storyville Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138078.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Paul Quinichette - Basie Reunion (1958) 2000, Original Jazz Classics [APE|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138071.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Kenny Dorham - The Arrival Of Kenny Dorham (1960) 1997, Venus Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138052.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ David Wilson - Romance of Christmas (1999) Swallowtail Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137936.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ David Wilson - There's A Small Hotel (1997) Swallowtail Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137929.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ David Wilson - Easy to Love: The Music of Cole Porter (2001) Swallowtail Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137924.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ The Puppini Sisters - Christmas At Home (2023) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137917.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Jack Jezzro - Christmas Jazz Guitar (2018) Green Hill Productions [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137908.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Tommy Dorsey - Tenderly: The Best Of The Decca Years (1950 - 1953) 3CD, 2018, Se
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137704.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Sonny Rollins - 3 Essential Albums (1958 - 1966) 3CD, 2017, Universal [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137607.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ James Bratton - Imagination (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136852.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Connie Francis - The Italian Collection: Vol. 1 & 2 (1997) [FLAC|Lossless|WEB-DL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136704.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Margie Gibson - Say it with Music (1993) [FLAC|Lossless]<Jazz Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_135708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135708.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Angela - Selections (2009) [FLAC|Lossless]<Jazz Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_135690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135690.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Demetrius Nabors - A Journey Within Part 1 (2011) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_135438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135438.jpg" />
 </div>
 
 
@@ -720,7 +720,7 @@ Dado Moroni Trio - Shapes (2011) [FLAC|Lossless]<Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_135437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135437.jpg" />
 </div>
 
 
@@ -754,7 +754,7 @@ Don Grusin & Bill Sharpe - Trans Atlantica (2012) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_135401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135401.jpg" />
 </div>
 
 

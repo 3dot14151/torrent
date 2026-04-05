@@ -1,3 +1,55 @@
+###  Публикация: 1255201   (365549) от 17.10.2018
+
+Panzer Strategy (2018) [Ru/En] (1.0) Repack R.G. Catalyst
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Panzer Strategy - варгейм в сеттинге Второй Мировой Войны, сочетающий классический пошаговый геймплей с современной графикой. Командуйте своей армией и адаптируйте ее к любой боевой задаче, используя широкий выбор оборудования, экипировки и боевых навыков.Тип издания: RepackРазработчик: Starni GamesЖанр: Straregy (TBS), TacticsЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56A4A476CBB537292B9DE046517CFDB74D2C2D85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328262   (365221) от 29.09.2019
+
+Prodigy Tactics (2017) [Multi] (Update 6) License GOG
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365221.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире Тазиса выживание большинства рас зависит от Маны. Но сейчас эта волшебная энергия встречается все реже, и магические существа разоряют земли Тазиса, сражаясь за последние крохи живительной Маны. А где-то бесконечно долгим сном дремлют легендарные создания, сердца которых скрывают первоисточник Маны. Лишь немногие избранные могут пробудить этих существ и с (   Читать дальше...   )Тип издания: LicenseРазработчик: Hanakai StudioЖанр: Стратегия, Пошаговая, ФэнтезиЯзык субтитров: Английский, ФранцузскийЯзык интерфейса: Английский, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D6C908BCAE74762A7D81D4DBCA60DE1A558C015
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 407238   (362367) от 06.11.2011
 
 World in Conflict Complete Edition [Ru/En] (Lossless Repack/1.0.1.1) 2009 l R.G. Catalyst
@@ -6,7 +58,7 @@ World in Conflict Complete Edition [Ru/En] (Lossless Repack/1.0.1.1) 2009 l R.G.
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_362367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_362367.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Numantia (2017) [Multi] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362299.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Total War Saga: TROY (2020) [Ru/Multi] (1.2.0/dlc) License CPY
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362076.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Total War Saga: TROY (2020) [Ru/En] (1.2.0/dlc) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362067.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Invisible Inc. (2015) [Ru/En] (183969/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359998.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Blackguards 2 (2015) [Ru/Multi] (2.3.9087) SteamRip Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359742.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ XCOM: Chimera Squad (2020) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359721.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Men of War: Assault Squad. Game of the Year Edition / В тылу врага 2: 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359486.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ Anomaly 2 (2013) [Ru/Multi] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356225.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ Commandos 2 - HD Remaster (2020) [Ru/Multi] (1.01) License HOODLUM
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355040.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ Battlestations Дилогия [Ru/En] (RePack) 2007-2009 | R.G. R3PacK
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354203.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ Frontline Zed (2019) [Ru/Multi] (1.00) License HOODLUM
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353805.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ Ring of Pain (2020) [Ru/Multi] (1.0.26) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352676.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ Syrian Warfare (2017) [En] (1.3.0.19/dlc) License CODEX [Delux Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351574.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ Syrian Warfare (2017) [En] (1.1.0.7/dlc) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348359.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ Syrian Warfare (2017) [Ru/En/De] (1.3.0.19/dlc) License PLAZA [Delux Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344725.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ Assault Squad 2: Men of War Origins (2016) [En] (3.260.1/dlc) License SKIDROW Go
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344724.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ Battle Worlds: Kronos (2013) [Ru/Multi] (1.4.3/dlc) SteamRip Let'sРlay [Digital
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338831.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ John Wick Hex (2019) [Ru/Multi] (0.92) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334290.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ Battlefleet Gothic: Armada 2 (2019) [Ru/Multi] (1.0.14/dlc) License GOG [Complet
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333248.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ Absolute Tactics: Daughters of Mercy (2022) [Ru/Multi] (1.1.1.8-rc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332762.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ Invisible, Inc. - Contingency Plan (2015) [En] (1.0/dlc) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321098.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318521.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ The Banner Saga 3 (2018) [Ru/Multi] (2.58.02/dlc) Repack R.G. Механики
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318126.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ Banner Saga 3 - грандиозное завершение захватываю
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:017CA043775E15E556606093474FA4CF7A8F6036
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331985   (317935) от 18.10.2019
-
-Frontline Zed (2019) [Ru/Multi] (1.00) Repack xatab
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317935.jpg" />
-</div>
-
-
-###  Подробнее
-
-Единственное, что отделяет тебя от полчищ зомби, — это баррикады... сооруженные тобой из подручного хлама. Ищи и собирай оружие, где только можешь. Следи за временем. Провести ценные дневные часы за латанием дыр в твоих укреплениях или в поисках других уцелевших для отражения ночных атак — что выберешь ты? Обещание выжить манит, если ты сможешь продержаться достаточно (   Читать дальше...   )Тип издания: RepackРазработчик: Volcanic GamesЖанр: Экшены, Инди, СтратегииЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D4B97ED5D3D0DA491009181FD9939CF374B2B6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104453   (315780) от 05.11.2018
-
-The Banner Saga 2 (2016) [Ru/Multi] (2.58.02) License GOG [Deluxe Edition]
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315780.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Banner Saga 2 – продолжение захватывающей The Banner Saga, в котором сюжет разворачивается сразу же после окончания истории первой части. Эпичное приключение в прекрасном двухмерном мире полном опасностей вновь порадует игроков своей необыкновенной атмосферой. Геймерам на протяжении всей одиночной кампании вновь предстоит совершать нелегкий выбор, сражаться, (   Читать дальше...   )Тип издания: LicenseРазработчик: StoicЖанр: Strategy (Turn-based), RPGЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:311E1558F5FD698D14E68A3523BF1726D4434C33
 ```
 
 https://mybot314.ru/tekegram_catalog/

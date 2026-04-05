@@ -1,3 +1,83 @@
+###  Публикация: 599121   (999553) от 05.01.2013
+
+Attribute Manager 4.70 RePack by Soft Maniac [Англ.\Рус.]
+
+>>Утилиты, Офис, Интернет
+>>Файловые менеджеры и архиваторы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам необходимо быстро изменять атрибуты файлов и папок? Изменять дату и время их создания, модификации и последнего доступа к ним? Как известно в Windows это не простая задача, с которой вам поможет справиться Attribute Manager. Attribute Manager позволяет вам изменять такие атрибуты как, Read-Only, Hidden, System и Archive. Так же вы сможете изменить дату и время создания файлов или папок, последнего доступа к ним или модификации. Для удобства использования программы, разработана система шаблонов. С помощью которой вы можете выставить настройки и применять для различных списков файлов. Количество шаблонов не ограничено.
+
+Вы можете изменить все известные атрибуты файлов, такие как: Read-only, Archive, Hidden, System, Indexed, Compressed, Encrypted, Temporary, Sparse file, Offline. Помните, что изменение атрибута Compressed для файлов большого размера занимает много времени. Так же вы можете изменять дату и время создания файла, дату его изменения и дату последнего доступа к нему. Вы можете прямо заменить дату (   Читать дальше...   )Название программы: Attribute ManagerЯзык интерфейса: Англ.\Рус.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977553   (964288) от 22.01.2016
+
+Universal Extractor 1.6.1.2017 RePack by koros [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Файловые менеджеры и архиваторы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа извлекает файлы практически из любых типов архивов. Все что можно распаковать - она распакует! Если вам не нужно создавать архивы и вы лишь распаковываете скачанные из интернет сжатые файлы, значит Вам подойдёт сверхбыстрый и черезвычайно удобный распаковщик Universal Extractor. В ее обязанности входит быстрая распаковка архивов форматов: rar, 7z, exe, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3383EB7A82B079E2BD683B58A5C848B89E12D66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977545   (964223) от 22.01.2016
+
+Universal Extractor 1.9.11.196 RePack + Portable by gora [Multi/Ru]
+
+>>След.
+>>Файловые менеджеры и архиваторы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа извлекает файлы практически из любых типов архивов. Все что можно распаковать - она распакует! Если вам не нужно создавать архивы и вы лишь распаковываете скачанные из интернет сжатые файлы, значит Вам подойдёт сверхбыстрый и черезвычайно удобный распаковщик Universal Extractor. В ее обязанности входит быстрая распаковка архивов форматов: rar, 7z, exe, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CF998079A9AEFDAC5736934B03CEEA77DEFDD13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984154   (939710) от 08.02.2016
 
 InnoExtractor Plus 5.2.2.187 Portable by PortableAppC [Multi/Ru]
@@ -6,7 +86,7 @@ InnoExtractor Plus 5.2.2.187 Portable by PortableAppC [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_939710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_939710.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ FonePaw iOS Transfer 2.4.0 RePack by tolyan76 [Multi]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939678.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ WinZip Pro 24.0 Build 13618 (x86-x64) [Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913328.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ oMega Commander 3.0.47 Build 5687 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883159.jpg" />
 </div>
 
 
@@ -112,7 +192,7 @@ WindowsZIP 1.1 [Ru/En]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801442.jpg" />
 </div>
 
 
@@ -138,7 +218,7 @@ Just Manager 0.1 Alpha 54 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795332.jpg" />
 </div>
 
 
@@ -164,7 +244,7 @@ Unreal Commander 3.57 Build 1497 + Portable + GraphXPackv [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789168.jpg" />
 </div>
 
 
@@ -192,7 +272,7 @@ Ashampoo ZIP Pro 1.0.7 RePack by Manshet [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777462.jpg" />
 </div>
 
 
@@ -218,7 +298,7 @@ ShellExView-Shell Extensions Manager v1.65 [Английскийй]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_719285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_719285.jpg" />
 </div>
 
 
@@ -244,7 +324,7 @@ FreeArc 0.67 alpha (15.03.2014) [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582563.jpg" />
 </div>
 
 
@@ -270,7 +350,7 @@ ASPack 2.38 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576787.jpg" />
 </div>
 
 
@@ -296,7 +376,7 @@ NexusFile 5.3.3.5532 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539786.jpg" />
 </div>
 
 
@@ -322,7 +402,7 @@ Multi Commander 8.3.0 Build 2469 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519959.jpg" />
 </div>
 
 
@@ -350,7 +430,7 @@ Directory Backuper 1.3 [Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505793.jpg" />
 </div>
 
 
@@ -376,7 +456,7 @@ HaoZip 5.5.1 Build 10498 Ru-Board Edition [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498125.jpg" />
 </div>
 
 
@@ -402,7 +482,7 @@ Universal Extractor 2.0.0 RC 3 Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450964.jpg" />
 </div>
 
 
@@ -429,7 +509,7 @@ Universal Extractor 1.6.1.2013 Portable by PortableWares [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327281.jpg" />
 </div>
 
 
@@ -455,7 +535,7 @@ SpeedCommander Pro 18.00.9200 [De/En]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290938.jpg" />
 </div>
 
 
@@ -481,7 +561,7 @@ Far Manager 3.0.6600 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261667.jpg" />
 </div>
 
 
@@ -507,7 +587,7 @@ WinRAR 7.20 beta 2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259786.jpg" />
 </div>
 
 
@@ -533,7 +613,7 @@ InnoExtractor Ultra 11.2.0.157 Portable by 7997 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257673.jpg" />
 </div>
 
 
@@ -560,7 +640,7 @@ InnoExtractor Ultra 11.2.0.157 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257508.jpg" />
 </div>
 
 
@@ -587,7 +667,7 @@ Double Commander 1.1.30 gamma + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255695.jpg" />
 </div>
 
 
@@ -598,89 +678,6 @@ Double Commander - это свободный, с открытым исходны
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9ABC6770AA6A4E77FED01C83094B773FC97FDE30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544411   (251928) от 30.05.2023
-
-Scanner 2.13 Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Файловые менеджеры и архиваторы
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scanner - программа для анализа содержимого жестких дисков, CD/DVD, дискет и других носителей. Сначала показывает в виде наглядной диаграммы все папки и файлы, находящиеся в корне анализируемого диска, допуская после этого продвижение вглубь для получения сведений о содержимом подпапок, а также отображает информацию о файлах и папках.
-
-Scanner позволяет быстро удалить (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8B2BF6C36C72B4DBBE953072AAECF7F937459C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835685   (251690) от 07.11.2025
-
-Advanced Renamer 4.19 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Файловые менеджеры и архиваторы
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Advanced Renamer - довольно популярная программа для массового переименования, а также систематизации файлов в операционной системе Windows. В новых версиях данной утилиты была реализована поддержка новых тегов при работе с разными форматами файлов, например мультимедиа, были переработаны методы отвечающие за образование имен файлов.
-
-Advanced Renamer имеет достаточно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:343A333DF25BC5F1D61CFFD442AC481975FA0DC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835444   (250852) от 06.11.2025
-
-OneCommander Pro 3.103.0.0 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Файловые менеджеры и архиваторы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250852.jpg" />
-</div>
-
-
-###  Подробнее
-
-OneCommander V3 — это современный файловый менеджер для Windows 10 и Windows 11. Особенности включают вкладки, браузеры с двумя панелями, навигацию по столбцам, встроенный предварительный просмотр, систему тем, цветовые теги и многое другое. Он бесплатен для домашнего использования и не содержит рекламы.
-Эта программа не пытается быть просто более привлекательным (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00FE5A515BD3823933B8D9701A5B2BE2BC039340
 ```
 
 https://mybot314.ru/tekegram_catalog/

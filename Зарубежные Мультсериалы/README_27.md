@@ -1,3 +1,57 @@
+###  Публикация: 791061   (516499) от 03.07.2022
+
+Том и Джерри: Мышиные проблемы. Том 1 / Tom and Jerry: Mouse Problems (1940) DVD5
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кот Том и мышонок Джерри — парочка, прославившаяся на весь мир. Уже несколько десятков лет Том гоняется за Джерри с неослабевающим азартом. Том придумывает всё новые и новые хитроумные уловки, чтобы поймать Джерри, но мышонок всё время выкручивается с не меньшей изобретательностью.Производство: США / Warner Bros.Жанр: ДетскийРежиссер: Джозеф Барбера, Уильям Ханна / Joseph Barbera, William HannaПеревод: ДублированныйЯзык субтитров: Продолжительность: ~ 7 минут - серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8EC0B3C522E274B7037E4276FAAAC105E49BE98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 122556   (516489) от 03.07.2022
+
+Рекс / Reksio (1967-1986) 8xDVD5 (серий 62)
+
+>>След.
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключения польского пёсика по кличке Рекс.
+Плюс этого и подобных сериалов — в их простоте (на самом деле сложно воплотить эту простоту на экране): нет диалогов и сложных картинок, вместо этого веселые звуки, несколько произнесенных слов, не требующих перевода, много эмоций и жестов, запоминающийся музыкальный ряд, яркие герои.
+Самое главное — мультфильм без насилия. (   Читать дальше...   )Производство: Польша, Studio Filmów Rysunkowych (Bielsko-Biala)Жанр: комедия, анимация, детскийРежиссер: Лехослав МаршалекПерсонажи: собачка Рекс и другиеПродолжительность: на дисках по ~01:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6201AB670C5A1D197152141B463FC4609F3FC67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 535171   (516480) от 16.08.2012
 
 Как Стремянка и Макаронина... / Jak Štaflík a Špagetka... (1969-1971) DVDRip (Сезон 1, серий 13 из 13)
@@ -6,7 +60,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516480.jpg" />
 </div>
 
 
@@ -34,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515426.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512411.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510222.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508624.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507678.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506751.jpg" />
 </div>
 
 
@@ -191,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505901.jpg" />
 </div>
 
 
@@ -217,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505851.jpg" />
 </div>
 
 
@@ -243,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505849.jpg" />
 </div>
 
 
@@ -269,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504147.jpg" />
 </div>
 
 
@@ -295,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504020.jpg" />
 </div>
 
 
@@ -321,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503315.jpg" />
 </div>
 
 
@@ -347,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499529.jpg" />
 </div>
 
 
@@ -373,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498996.jpg" />
 </div>
 
 
@@ -399,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498046.jpg" />
 </div>
 
 
@@ -425,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498041.jpg" />
 </div>
 
 
@@ -451,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498035.jpg" />
 </div>
 
 
@@ -477,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497907.jpg" />
 </div>
 
 
@@ -503,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496255.jpg" />
 </div>
 
 
@@ -529,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495878.jpg" />
 </div>
 
 
@@ -555,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495321.jpg" />
 </div>
 
 
@@ -581,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495108.jpg" />
 </div>
 
 
@@ -607,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494798.jpg" />
 </div>
 
 
@@ -618,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D7533B465FCF9EE7D1DB821278AF7BBCA33DEF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565537   (492194) от 24.07.2022
-
-Паучок и его удивительные друзья / Spidey and His Amazing Friends (2021) WEB-DLRip (сезон 1, серии 1-25 из 25)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юному Питеру Паркеру, привыкшему работать в одиночку, предстоит узнать, что по-настоящему непобедимым он может стать только в команде с другими героями. Паучок и его друзья Майлз Моралес и Гвен Стейси, у которых тоже появились суперспособности после укуса паука, объединяют силы с Халком, Чёрной Пантерой и Мисс Марвел. Ведь только все вместе они смогут одолеть таких (   Читать дальше...   )Производство: США / Marvel Animation, Atomic CartoonsЖанр: мультфильм, фантастика, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Даррен Бачински, Крис Джиллигэн, Крис МореноПеревод: Дублированный (Невафильм)Субтитры: отсутствуютПродолжительность: ~00:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E8FE2C7183501B6E5EF6298DAFECECE791B0FCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1054193   (491952) от 20.09.2016
-
-Ниндзяго: Мастера Кружитцу / Ninjago: Masters of Spinjitzu (2012) HDRip [H.264] (сезон 2, серии 1-13 из 13) [MP4|1024x576]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уединенный странник встречает Кая, молодого кузнеца мечей, и его сестру Нию, в их небольшой деревне, перед тем, как туда прибывает армия ужасающих скелетов, намеренная разграбить их лавку. Злодеи крадут карту, спрятанную отцом Кая несколько лет назад, а также Нию! Теперь Каю предстоит преодолеть нелегкий путь, прежде чем он сможет освободить свою сестру, и поможет (   Читать дальше...   )Производство: Дания, Сингапур, Канада, США, Wil Film, LEGOЖанр: Аниме, Мультфильм, Фантастика, Боевик, СемейныйРежиссер: Петер Хауснер, Майкл Хельмут Хансен, Трюлле ВильструпАктеры: Винсент Тонг, Джиллиан Майклс, Джон Новак, Йен Джеймс Корлетт, Пол Добсон, Майкл Адамуэйт, Келли Мецгер, Брент Миллер, Кирби Морроу, Брайан ДраммондПеревод: ДублированныйПродолжительность: ~ 00:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E3F0E743373E2F99C8607885D9B38B836E8FC71
 ```
 
 https://mybot314.ru/tekegram_catalog/

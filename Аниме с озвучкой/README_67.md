@@ -1,3 +1,134 @@
+###  Публикация: 1818929   (1814) от 20.09.2025
+
+Higurashi no Naku Koro ni | Higurashi When They Cry | Когда плачут цикады (первый сезон) [2006, TV, 26 эп. + OVA] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1814.jpg" />
+</div>
+
+
+###  Подробнее
+
+В том, что в тихом омуте водятся черти, юному Кэйити пришлось убедиться на своём собственном опыте. Переехав с родителями из города в живописную деревушку Хинамидзаву и подружившись в маленькой местной школе с очаровательными одноклассницами, он даже не подозревал, насколько обманчиво его представление об этом безмятежном крае и его обитателях. Но, как позднее выяснил (   Читать дальше...   )Производство: Япония, Studio DEENЖанр: триллер, ужасы, мистика, детективРежиссер: Кон ТиакиОзвучка: Юки Нацуи (1-9), Евгения Лурье (10-26) - одноголосая (муж., жен.)Язык озвучки: Японский и русскийПродолжительность: 26 эп. по ~24 мин. + 1 OVA ~24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74DCE4BF62507D131C07FC8BBD15E224E6E69E6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808082   (1745) от 21.09.2025
+
+Tsuihousha Shokudou e Youkoso! | Welcome to the Outcast's Restaurant! | Добро пожаловать в дешёвый ресторан изгнанника! [2025, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Онгоинги с озвучкой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Деннис был предан и изгнан из сильнейшей гильдии собственными товарищами. Но он решил воспользоваться этим. Чувствуя, что не может в полной мере продемонстрировать свои кулинарные навыки (у него 99-й уровень), Деннис покинул столицу и отправился в далёкий город, чтобы открыть собственный ресторан, о чём он мечтал. Каким же будет ресторан под руководством сильнейшего (   Читать дальше...   )Производство: Япония, студия OLMЖанр: фэнтезиРежиссер: Симура ДзёдзиЯзык озвучки: Русский закадровый (Dream Cast), (GrickVoice)Субтитры: Русские надписи, русские (софтсаб), Multi-8Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0763686BED68F27D7B3DD5B04D9895FDEF4F8AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804548   (1735) от 21.09.2025
+
+Домашний репетитор герцогини | Koujo Denka no Kateikyoushi  | Private Tutor to the Duke's Daughter [2025, TV, 12 из 12] WEBRip 1080p HEVC 10-bit Raw+Rus
+
+>>Аниме с озвучкой
+>>Онгоинги с озвучкой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аллен провалил экзамен на придворного мага, и даже денег на дорогу домой у него нет. Так что теперь он ищет работу. И вдруг — вот удача! — ему предлагают стать домашним репетитором для дочери герцога, юной герцогини. Дело выглядит сомнительным, но вряд ли ученица окажется более непутёвой, чем прежняя... Если не учитывать тот факт, что она вообще не владеет магией! (   Читать дальше...   )Производство: Япония / Студия Studio Blanc., Asahi ProductionЖанр: Комедия, фентезиРежиссер: Нагаяма НобуёсиЯзык озвучки: Русский (Deep (ТО Дубляжная)), (Deep (AniStar)); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные) (Crunchyroll)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AF9BD5F3594DD012B343E1E3A291269F2ADE228
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805394   (1708) от 21.09.2025
+
+Песнь ночных сов [ТВ-2] | Yofukashi no Uta Season 2 | Call of the Night Season 2 [2025, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Онгоинги с озвучкой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вампиром стать проще простого! Достаточно одного небольшого укуса… и капельки любви в придачу. И всё бы ничего, но ни Нанакуса Надзуна, ни Ямори Ко не представляют, что же такое любовь.
+В попытках понять это чувство, они проводят ночи за играми и прогулками, пока на их пути не попадается таинственный частныйПроизводство: Япония / Студия Liden FilmsЖанр: комедия, романтикаРежиссер: Итамура ТомоюкиЯзык озвучки: Русский (AniLiberty); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 23 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A61AA11FADE6C7E59E059606CC884151D521B2B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805496   (1531) от 22.09.2025
+
+Невеста бывшего жениха сестры | Zutaboro Reijou wa Ane no Moto Konyakusha ni Dekiai Sareru | Betrothed to My Sister's Ex [2025, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Онгоинги с озвучкой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рыжая неряха Мари – дочь обедневшего барона Садеран – всю жизнь провела в тени своей прекрасной сестры Анастасии, прислуживая по дому и выслушивая оскорбления в свой адрес. Анастасия должна была выйти замуж за богача из соседнего королевства – графа Гранда, слывшего тираном и женоненавистником, но ее карета разбилась в жуткой аварии. Теперь Мари предстоит занять (   Читать дальше...   )Производство: Япония / Студия LandQ StudiosЖанр: Романтика, комедия, фэнтезиРежиссер: Китагава ТакаюкиЯзык озвучки: Русский (AniLiberty); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A737682F85A58C0013977102568BE75DD7F099EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805582   (1382) от 23.09.2025
 
 Эта фарфоровая кукла влюбилась [ТВ-2] | Sono Bisque Doll wa Koi o Suru 2 | My Dress-Up Darling 2 [2025, TV, 12 из 12] WEBRip 1080p Raw+Rus
@@ -6,7 +137,7 @@
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1382.jpg" />
 </div>
 
 
@@ -33,7 +164,7 @@ Kizetsu Yuusha to Ansatsu Hime | Обморочный герой и принце
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1377.jpg" />
 </div>
 
 
@@ -59,7 +190,7 @@ Kanchigai no Atelier Meister: Eiyuu Party no Moto Zatsuyou-gakari ga, Jitsu wa S
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1336.jpg" />
 </div>
 
 
@@ -85,7 +216,7 @@ Kaizoku Oujo | Fena: Pirate Princess | Фена: Принцесса пирато
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1299.jpg" />
 </div>
 
 
@@ -111,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1229.jpg" />
 </div>
 
 
@@ -137,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1098.jpg" />
 </div>
 
 
@@ -164,7 +295,7 @@ Busamen Gachi Fighter | Вотурод Мегавоин | Uglymug, Epicfighter |
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1084.jpg" />
 </div>
 
 
@@ -190,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1071.jpg" />
 </div>
 
 
@@ -217,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1061.jpg" />
 </div>
 
 
@@ -243,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_888.jpg" />
 </div>
 
 
@@ -269,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_184.jpg" />
 </div>
 
 
@@ -296,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126.jpg" />
 </div>
 
 

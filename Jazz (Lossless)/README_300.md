@@ -6,7 +6,7 @@ VA - Luxury Relaxing Lounge Comfort Smooth Playlist (2023) [FLAC|Lossless|WEB-DL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128217.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Meditative, Romantic and Stylish Jazz for the Quiet Times (2023) [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128211.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Sad Girl Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128208.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Fourplay - Between The Sheets (1993) 2023 30th Anniversary Remastered Edition [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128127.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Chilly Ambient Smooth Jazz Lounge Playlist (2023) [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128099.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Phil Woods & Lew Tabackin - Phil Woods / Lew Tabackin (1980) 1998, Evidence [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128086.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Lew Tabackin - Tenority (1996) Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128085.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Dave McKenna - Christmas Ivory (1997) Concord Jazz [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128080.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Phil Woods - This Is How I Feel About Quincy (2004) Jazzed Media [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127958.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Louis van Dijk With The London Chamber Orchestra - Merry Melodies (1997) PolyGra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127956.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Toshiko Akiyoshi-Lew Tabackin Big Band - Sumi-e (1979) 1986, Insights [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127939.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Monty Alexander - Facets (1979) 1991, Concord Jazz [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127777.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The Howard Alden Trio - Plus Special Guests Ken Peplowski & Warren Vache (1989) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127774.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Phil Woods, Vincent Herring, Antonio Hart - Alto Summit (1996) Milestone [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127773.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Toshiko Akiyoshi - Finesse (1978) 1990, Concord Jazz [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127766.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Erotic Jazz Music Ensemble, Erotic Stimulation Academy - Jazz for Erotic Night (
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127612.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Monty Alexander - Solo (1980, 1987) 1998, Kingston World [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127556.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Bill Evans Quintet - Interplay (1962) 1996, Riverside [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127545.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Howard Alden Trio - Snowy Morning Blues (1990) Concord Jazz [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127543.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Ted Rosenthal - The 3 B's: Plays the Music of Bud Powell, Bill Evans, Beethoven 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127419.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Art Pepper - Tokyo Debut (1977) 1995, Fantasy [FLAC|Lossless|tracks + .cue] <Har
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127372.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Ahmad Jamal - Four Classic Albums (1955 - 1960) 2CD, 2023, Avid Jazz [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127371.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Bob Brookmeyer New Art Orchestra - New Works: Celebration (1997) 1999, Challenge
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127354.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Charles Mingus - Blues & Roots (1959) 2007, Warner Music [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127353.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Monty Alexander - The River (1985) 1990, Concord Jazz [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127349.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Sexual Piano Jazz Collection, Jazz Erotic Lounge Collective - Jazz Erotic Backgr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127267.jpg" />
 </div>
 
 

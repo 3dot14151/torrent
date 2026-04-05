@@ -1,3 +1,30 @@
+###  Публикация: 1751527   (42412) от 25.09.2024
+
+Александр Куприн | Суламифь (2014) [MP3, Михаил Горевой]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр Иванович Куприн (1870–1938) – русский писатель, яркий представитель демократических и гуманистических традиций русской литературы, автор блестящих произведений, отражающих разные стороны русской жизни конца XIX – начала XX века.
+Суламифь – это сказочная и поразительная история любви. Царь Соломон неотразимо красив, у него было 700 жён и 300 наложниц, а (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: ИП Сергей ГригорянПродолжительность: 02:39:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0B707085CE5174C67D798C2CD74175878DE3047
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 379893   (42364) от 26.09.2024
 
 Михаил Лермонтов | С небом гордая вражда (2011) [MP3, Леонид Кареев]
@@ -6,7 +33,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42364.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41860.jpg" />
 </div>
 
 
@@ -61,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41838.jpg" />
 </div>
 
 
@@ -88,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41773.jpg" />
 </div>
 
 
@@ -115,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41768.jpg" />
 </div>
 
 
@@ -142,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41521.jpg" />
 </div>
 
 
@@ -169,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41362.jpg" />
 </div>
 
 
@@ -197,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41047.jpg" />
 </div>
 
 
@@ -223,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40430.jpg" />
 </div>
 
 
@@ -251,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40424.jpg" />
 </div>
 
 
@@ -279,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40390.jpg" />
 </div>
 
 
@@ -308,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40387.jpg" />
 </div>
 
 
@@ -337,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40355.jpg" />
 </div>
 
 
@@ -364,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40353.jpg" />
 </div>
 
 
@@ -393,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40349.jpg" />
 </div>
 
 
@@ -421,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40264.jpg" />
 </div>
 
 
@@ -449,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40263.jpg" />
 </div>
 
 
@@ -478,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40262.jpg" />
 </div>
 
 
@@ -505,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40260.jpg" />
 </div>
 
 
@@ -534,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40115.jpg" />
 </div>
 
 
@@ -561,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40114.jpg" />
 </div>
 
 
@@ -588,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40104.jpg" />
 </div>
 
 
@@ -615,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39903.jpg" />
 </div>
 
 
@@ -643,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39900.jpg" />
 </div>
 
 
@@ -671,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39884.jpg" />
 </div>
 
 
@@ -684,34 +711,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7912169484956E34B71C7F09C0D29A877C4081BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 368492   (39877) от 19.10.2024
-
-Гайто Газданов | Ночные дороги (2005) [MP3, Владимир Сушков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Литературные чтения.
-Гайто (Георгий) Иванович Газданов (1903–1971) – один из крупнейших мастеров прозы, вышедших из «первой волны» русской эмиграции.
-Роман «Ночные дороги», жестоко изображающий жизнь «парижского дна», увиденную глазами шофёра ночного такси, основан на автобиографическом материале.Жанр: Русская литература, классика, романИздательство: МедиаКнигаПродолжительность: 10:19:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E65320F438C39426EF263EE5C92D4FF7FBF16053
 ```
 
 https://mybot314.ru/tekegram_catalog/

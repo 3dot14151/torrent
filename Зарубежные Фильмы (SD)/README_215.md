@@ -1,55 +1,3 @@
-###  Публикация: 1125167   (773396) от 13.04.2017
-
-Высшая лига 2 / Major League 2 (1994) DVDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Они возвращаются, и они в отличной форме! Несокрушимая, знаменитая команда Кливлендских индейцев собирается показать «бледнолицым», что такое настоящая игра! Все любимцы публики в сборе: «Дикий» Рик Вон, старина Джек Тэйлор, самодовольный Роджер Дорн и мастер ву-ду- отбивающий Педро Керрано!Производство: США / Morgan Creek Productions, Warner Bros. PicturesЖанр: КомедияРежиссер: Дэвид С. УордАктеры: Чарли Шин, Том Беренджер, Корбин Бернсен, Деннис Хейсбёрт, Джеймс Гэммон, Омар Эппс, Эрик Браскоттер, Такааки Исибаси, Элисон Дуди, Мишель БёркПеревод: Многоголосый, АвторскийСубтитры: АнглийскиеПродолжительность: 01:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:600A2D59239D74DF4FCEE3B0724622DF951221CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124737   (773385) от 13.04.2017
-
-Чокнутый Профессор 2: Семья Клампов / Nutty Professor 2: The Klumps (2000) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Симпатяге Шерману повезло вдвойне! Во-первых, профессор изобрел чудесный омолаживающий эликсир, за который ему уже предложили астрономическую сумму. Во-вторых, Кламп «втюрился по уши» в обворожительную преподавательницу Дениз Гэйнс. И, что самое главное, прекрасная Дениз отвечает Шерману взаимностью. Тут, казалось бы, и сказке конец… ан нет. Прячущийся в тучном теле (   Читать дальше...   )Производство: США / Imagine Entertainment, Universal PicturesЖанр: КомедияРежиссер: Питер СигалАктеры: Эдди Мёрфи, Джанет Джексон, Ларри Миллер, Джон Алес, Ричард Гант, Анна Мария Хорсфорд, Мелинда Магроу, Ямал Миксон, Гэбриел Уильямс, Эрл Боэн, Крис ЭллиоттПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:46:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9043EE40AF7B342FA75A70857D2D792960FF9CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 749607   (773313) от 13.04.2017
 
 Чокнутый Профессор 2: Семья Клампов / Nutty Professor 2: The Klumps (2000) HDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773313.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773288.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773202.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773201.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772897.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772648.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772616.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772608.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772605.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772599.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772358.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772356.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772300.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772285.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772268.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772227.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772220.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771684.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771537.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771528.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771392.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771390.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771369.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771354.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:279C94ED1DE2540CB9513CAFED9C4017BC9FA11E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278467   (771306) от 25.01.2019
+
+Богемская рапсодия / Bohemian Rhapsody (2018) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771306.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чествование группы Queen, их музыки и их выдающегося вокалиста Фредди Меркьюри, который бросил вызов стереотипам и победил условности, чтобы стать одним из самых любимых артистов на планете. Фильм прослеживает головокружительный путь группы к успеху благодаря их культовым песням и революционному звуку, практически распад коллектива, поскольку образ жизни Меркьюри (   Читать дальше...   )Производство: Великобритания, США / GK Films, New Regency Pictures, Queen Films Ltd.Жанр: Биография, Драма, МузыкаРежиссер: Брайан СингерАктеры: Рами Малек, Люси Бойнтон, Гвилим Ли, Бен Харди, Джозеф Маццелло, Эйдан Гиллен, Аллен Лич, Том Холландер, Майк Майерс, Аарон МакКаскер ...Перевод: Дублированный (iTunes)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (forced, full), Украинские (forced, full), Английские (SDH Colored) | Отдельными файламиПродолжительность: 02:15:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B0681CFAC9AAFFEE5719BC97C1ED747086E79C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278518   (771208) от 25.01.2019
+
+Репродукция / Replicas (2018) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771208.jpg" />
+</div>
+
+
+###  Подробнее
+
+Талантливый учёный-биолог теряет в автокатастрофе свою семью. Одержимый желанием вернуть к жизни жену и детей, он преступает законы научной этики и самой природы.Производство: США, Company Films, Di Bonaventura Pictures, Riverstone PicturesЖанр: Фантастика, ТриллерРежиссер: Джеффри НачманоффАктеры: Киану Ривз, Элис Ив, Эмили Элин Линд, Эмджей Энтони, Джон Ортис, Томас Миддлдитч, Эмбер Таунсенд, Няша Хатенди, Ария Лайрик Либу, Эмбер Ривера ...Перевод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D14BCC6420E1A8BDB5D7A18F2EE6BF8DEA03D0E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

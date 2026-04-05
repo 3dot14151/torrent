@@ -1,119 +1,3 @@
-###  Публикация: 1421322   (317474) от 05.11.2020
-
-VA - Rare80 Records - Rare80 Volume 2 (2012) 2CD, Unofficial Release [FLAC|Lossless|image + .cue] <Italo-Disco, New Wave, Synth-pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317474.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rare80 Volume 2 CD1
-01. Shanghai - Ballerina (Club Mix)
-02. Andrea - Macho Man (Macho Man Version)
-03. Rewind - Rosalie (Pop & Go) (Extended Version)(   Читать дальше...   )Жанр: Italo-Disco, New Wave, Synth-pop, DiscoПродолжительность: 02:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EFFF599D4AAD54D4B729FD873A96691D2AF8AC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182216   (316947) от 10.11.2017
-
-VA - Sunlover Records Compilation Vol.1 - Italo Disco is Back! (2014) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VHS Dreams - Space Race (5:34)
-02. RetroSynther - Technocity (6:05)
-03. Les Chic Voltage - Disco Gallo 84 (3:21)
-04. Apollo Zapp feat. Reo - Hula Hoop! (3:03)(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 01:40:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE4A0BAF55DA6C43348AA0C4E447B6AADFC6EA98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422038   (313048) от 07.11.2020
-
-VA - Rare80 Records - Rare80 Volume 3 (2013) 2CD, Unofficial Release [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rare80 Volume 3 CD1
-01. Tea Es - Captain Terra X (24 More Hours) (Extended Version)
-02. Les Montes - Night Life (Single Version)
-03. Rewind - Rosalie (Pop & Go!) (Dub Version)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Synth-popПродолжительность: 02:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:063C4C27A44DFDC38B2902FAD9971A6D6B0FBA4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332923   (308789) от 22.10.2019
-
-Blue System - Magic Symphonies (The Very Best Of Blue System) (2009) 3CD, BoxSet, Compilation [FLAC|Lossless|tracks + .cue] <Electronic, Euro-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/14. Sorry Little Sarah (Long Version) (5:16)
-02/14. My Bed Is Too Big (No Longer Too Big Bed Mix) (5:27)
-03/14. Under My Skin (12'' Version) (5:16)
-04/14. Silent Water (Long Version) (4:51)(   Читать дальше...   )Жанр: Electronic, Euro-Disco, Synthpop |Продолжительность: 01:17:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01C395F5AACF544DD7C6093B410189784C503E17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078012   (304465) от 29.11.2016
 
 Italoconnection - Remixes (2016) [FLAC|Lossless|image + .cue] <Italo-Disco, Italodance, Nu-Disco>
@@ -122,7 +6,7 @@ Italoconnection - Remixes (2016) [FLAC|Lossless|image + .cue] <Italo-Disco, Ital
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304465.jpg" />
 </div>
 
 
@@ -151,7 +35,7 @@ Fancy - Greatest Hits (2004) [FLAC|image + .cue]<Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303087.jpg" />
 </div>
 
 
@@ -180,7 +64,7 @@ VA - Tony Hendrik: Bad Boys BlueS & Disco Projects (2003) 2CD, Unofficial [FLAC|
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301258.jpg" />
 </div>
 
 
@@ -209,7 +93,7 @@ Bad Boys Blue - Top Hits Collection (2017) Compilation [FLAC|Lossless|WEB-DL|tra
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301141.jpg" />
 </div>
 
 
@@ -238,7 +122,7 @@ VA - Disco 80's Rare & Special Versions Vol. 1 (2016) Compilation [FLAC|Lossless
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298587.jpg" />
 </div>
 
 
@@ -267,7 +151,7 @@ Silicon Dream  - Greatest Hits (2007) [FLAC|Lossless|tracks + .cue] <Synth-pop, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297808.jpg" />
 </div>
 
 
@@ -296,7 +180,7 @@ Radiorama - Greatest Hits & Remixes (2015) 2CD, Compilation [FLAC|Lossless|track
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296656.jpg" />
 </div>
 
 
@@ -325,7 +209,7 @@ Ricchi E Poveri - The Collection (1998) [FLAC|tracks+.cue]<Italo-Disco, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294718.jpg" />
 </div>
 
 
@@ -354,7 +238,7 @@ Al Bano & Romina Power - The Collection (1998) [FLAC|tracks+.cue]<Vocal, Ballad,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294583.jpg" />
 </div>
 
 
@@ -383,7 +267,7 @@ VA - Space Sound Records Presents: Italo Euro Disco Vol. 1 (2010) [FLAC|Lossless
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284402.jpg" />
 </div>
 
 
@@ -412,7 +296,7 @@ VA - Italo Eurobeat Collection Vol. 1 (2019) 2CD [FLAC|Lossless|tracks + .cue] <
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284261.jpg" />
 </div>
 
 
@@ -441,7 +325,7 @@ VA - Another Side of Mike Mareen Part Two (2016) Italo Box Music, 2019, Remaster
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274802.jpg" />
 </div>
 
 
@@ -470,7 +354,7 @@ VA - Another Side of Mike Mareen Part One (2016) Italo Box Music, 2019, Remaster
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274752.jpg" />
 </div>
 
 
@@ -499,7 +383,7 @@ VA - Another Side of Mike Mareen Part Three (2016) Italo Box Music, 2019, Remast
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274620.jpg" />
 </div>
 
 
@@ -528,7 +412,7 @@ Ken Wilbard - You're Burning (1977) [FLAC|Lossless|tracks]<Pop, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270824.jpg" />
 </div>
 
 
@@ -558,7 +442,7 @@ VA - Another Side Of Fancy Part Two (2014) 2CD, Remastered [FLAC|Lossless|image 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269768.jpg" />
 </div>
 
 
@@ -587,7 +471,7 @@ Video Kids - On Satellite (2011) Unofficial Release [FLAC|Lossless|image + .cue]
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268382.jpg" />
 </div>
 
 
@@ -616,7 +500,7 @@ Mike Mareen - Greatest Hits & Remixes (2017) 2CD [FLAC|Lossless|image + .cue] <I
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268251.jpg" />
 </div>
 
 
@@ -645,7 +529,7 @@ VA - Italoconnection: Remixes Vol. 2 (2018) [FLAC|Lossless|image + .cue] <Italo-
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264272.jpg" />
 </div>
 
 
@@ -674,7 +558,7 @@ VA - Italo Golden Classics (2 CD) (1996) [FLAC|Lossless|image + .cue] <Italo Dis
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263767.jpg" />
 </div>
 
 
@@ -703,7 +587,7 @@ VA - ZYX Italo Disco Spacesynth Collection (2014) 2CD, Compilation [FLAC|Lossles
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262893.jpg" />
 </div>
 
 
@@ -732,7 +616,7 @@ VA - ZYX Italo Disco New Generation Vol. 15 (2019) 2CD, Compilation [FLAC|Lossle
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262622.jpg" />
 </div>
 
 
@@ -746,6 +630,128 @@ VA - ZYX Italo Disco New Generation Vol. 15 (2019) 2CD, Compilation [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52FF031A5CAE6EA4871C378B0EE5BF6FFC50EFCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341216   (262615) от 27.11.2019
+
+VA - ZYX Italo Disco Spacesynth Collection 2 (2015) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Spacesynth, Space-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A.M. Samurai - Secret Entrance (4:42)
+02. Marco Rochowski - Voyage Of Discovery (5:46)
+03. Synthesis - Strange Land (6:51)
+04. Rygar - Illusion In C Minor (6:37)(   Читать дальше...   )Жанр: Italo-Disco, Spacesynth, Space-DiscoПродолжительность: 02:15:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:834F9E7CC05CC4BC4759A97F1DBA76FBDF3DED03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341559   (262314) от 28.11.2019
+
+VA - ZYX Italo Disco Spacesynth Collection 3 (2017) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Spacesynth, Space-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laserdance - Endless Space (5:22)
+02. Albiero - Electronic Scout (6:05)
+03. Steve Burbon - Night In Motion (Space-Mix) (6:51)
+04. Aphelion - Virtual Life (6:20)(   Читать дальше...   )Жанр: Italo-Disco, Spacesynth, Space-DiscoПродолжительность: 02:32:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB92848B3B4DC3F9AC305ACAB6018AB760CD550F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838675   (261342) от 23.11.2025
+
+Aurum Project - Can't Fight This Feeling (2025) [FLAC|Lossless|WEB-DL|tracks] <Disco, Dance, AI Music>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Fight This Feeling (4:42)
+02. All We Need Is Love (4:39)
+03. Casanova (4:12)
+04. Darlin' (4:09)(   Читать дальше...   )Жанр: Disco, Dance, AI MusicПродолжительность: 02:19:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1BAA0E34BDDF898275452F07F92A594FE349509
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 501654   (259125) от 28.05.2012
+
+VA - Tribute in Bossa To The Beatles (2010) [FLAC|Lossless]<Pop, Bossa>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259125.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Come Together - Monique Kessous
+2 - A Hard Day'S Night - Monique Kessous
+3 - Help - Barbara Mendes
+4 - Got To Get You Into My Life - Lulu Joppert
+5 - Day Tripper - Tahta Menezes
+6 - We Can Work It Out - Marcela Mangabeira
+7 - Yesterday - Monique Kessous
+8 - Penny Lane - Maria Augusta
+9 - Hey Jude - Monique Kessous
+10 - Eleanor Rigby - Eduardo Braga(   Читать дальше...   )2010Жанр: Pop, BossaПродолжительность: 00:51:20
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

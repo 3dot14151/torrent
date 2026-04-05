@@ -1,3 +1,56 @@
+###  Публикация: 1288537   (695663) от 11.03.2019
+
+SPlayerX 4.1.2 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695663.jpg" />
+</div>
+
+
+###  Подробнее
+
+SPlayerX - легкий, с отличной производительностью, видео плеер, который способен воспроизводить практически все виды популярных мультимедийных файлов, включая - mpg, mpeg, mpeg 2, vob, dat, mp4, m4v, ts, rm, rmvb, wmv, asf, mkv, avi, 3gp, 3g2, flv, mov, h264/x264, h265/x265/HEVC 1080p/720p HD video и др. Помимо всех типичных функций, таких как качества видео - тюнер (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.03.2019Разработчик: Sagittarius Technology Co. LtdПоддерживаемая ОС: macOS 10.10 или вышееЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:292FB25E10433A42E39E7B8E65DF2030D5793118
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125094   (695041) от 12.05.2017
+
+Claquette - Animated Screenshots 1.5.6 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695041.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Есть много решений для записи экрана вашего Mac, но Claquette выделяется" Macworld, Mac Gems Review
+Создавайте великолепные видео уроки или видеоролики. Используйте короткие видео, чтобы рекламировать и продавать свои продукты или создавать анимированные GIF-файлы для продвижения вашего блога. Анимированные GIF также отлично подходят для разработчиков (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 10 мая 2017Разработчик: Thomas ZoechlingПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C7083F7E26EE3F8F505208BEF954A9A3A1FDCF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027853   (694545) от 20.06.2016
 
 IconKit 8.0 [En]
@@ -6,7 +59,7 @@ IconKit 8.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694545.jpg" />
 </div>
 
 
@@ -35,7 +88,7 @@ Audirvana 3.5.39 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694033.jpg" />
 </div>
 
 
@@ -61,7 +114,7 @@ FontExplorer X Pro 7 v7.3.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694013.jpg" />
 </div>
 
 
@@ -88,7 +141,7 @@ Serial Box & SerialSeeker 2022 - 03 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693855.jpg" />
 </div>
 
 
@@ -116,7 +169,7 @@ Exchange Rates 2.6.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693421.jpg" />
 </div>
 
 
@@ -144,7 +197,7 @@ myTuner Radio Pro 2.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693140.jpg" />
 </div>
 
 
@@ -170,7 +223,7 @@ Timing 1.8.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693136.jpg" />
 </div>
 
 
@@ -197,7 +250,7 @@ WindowMizer 4.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692859.jpg" />
 </div>
 
 
@@ -226,7 +279,7 @@ Timeline 3D 5.3.2 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692398.jpg" />
 </div>
 
 
@@ -252,7 +305,7 @@ iTube Studio 7.4.7 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692391.jpg" />
 </div>
 
 
@@ -280,7 +333,7 @@ Invisible 1.6.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691474.jpg" />
 </div>
 
 
@@ -308,7 +361,7 @@ Slideshow DVD Creator 4.0.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691299.jpg" />
 </div>
 
 
@@ -336,7 +389,7 @@ Tyme2 v1.4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690861.jpg" />
 </div>
 
 
@@ -364,7 +417,7 @@ quickWallpaper 2.53 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690857.jpg" />
 </div>
 
 
@@ -390,7 +443,7 @@ Batteries 2.2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690717.jpg" />
 </div>
 
 
@@ -416,7 +469,7 @@ MindNode 2.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690663.jpg" />
 </div>
 
 
@@ -445,7 +498,7 @@ Readit News: App for Reddit 2.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690638.jpg" />
 </div>
 
 
@@ -471,7 +524,7 @@ Any Video Converter Ultimate 6.1.10 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690048.jpg" />
 </div>
 
 
@@ -499,7 +552,7 @@ Bundle for iWork 5.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689372.jpg" />
 </div>
 
 
@@ -528,7 +581,7 @@ Together 3.8.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689364.jpg" />
 </div>
 
 
@@ -557,7 +610,7 @@ Money 5.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689209.jpg" />
 </div>
 
 
@@ -585,7 +638,7 @@ Living Earth - Desktop Weather & World Clock 1.25 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688970.jpg" />
 </div>
 
 
@@ -611,7 +664,7 @@ Framer Studio 65 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688752.jpg" />
 </div>
 
 
@@ -640,7 +693,7 @@ Caato Time Tracker Pro 1.1.17 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688690.jpg" />
 </div>
 
 
@@ -651,60 +704,6 @@ Caato Time Tracker использует трехуровневую иерарх�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DA75A1933066B20C2BD3B95DA9358DA0ECF1DAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028444   (688683) от 23.06.2016
-
-Notebooks 1.3.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Notebooks - Написать Документы, Управлять заданиями, организовать файлы
-Notebooks  является единственной записной книжкой, которая когда-нибудь Вам понадобится. Приложение позволяет создавать столько книг, сколько вам нужно написать, хранить и структурировать информацию о жизни, и  быстро станет  одним и единственным хранилищем не только для всех журналов, идей, заметок, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 16 июня 2016Разработчик: Alfons SchmidПоддерживаемая ОС: OS X 10.7.3 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2146D4D0D3DD9F6CE09EB67B8A8FDEA343DA952
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134724   (687231) от 16.05.2017
-
-DEVONagent 3.9.6 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687231.jpg" />
-</div>
-
-
-###  Подробнее
-
-DEVONagent Pro - первый интелектуальный поисковик, который поможет вам более эффективно искать в Интернете по нескольким источникам. DEVONagent подключается сразу к многим поисковым системам и собирает данные, качественно отсеивая мусор и т.д.
-Он также сканирует ваши любимые веб-сайты и уведомляет вас, когда он находит то, что соответствует вашему запросу. Он даже (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.05.2017Разработчик: DEVONsphereПоддерживаемая ОС: OS X 10.9 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F5FA7AEEAFCF5188B349C41E05CC29D422B3089
 ```
 
 https://mybot314.ru/tekegram_catalog/

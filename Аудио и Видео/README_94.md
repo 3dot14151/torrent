@@ -6,7 +6,7 @@
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745713.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745175.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744855.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744842.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744818.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744802.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744702.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_744531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_744531.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Ring, Cicada - Good Morning, Mr. Good. (2003) [M4A|~128 Kbps] <Alternative Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744192.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ VA - Tones & Melodies, Vol. 8 (2022) [AAC|~335 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743938.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ VA - The Perfect Lounge (New York Edition) (2022) [AAC|~294 Kbps] <Lounge, Chill
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743937.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ VA - Uplifting Trance Classics 2021 (2022) [AAC|~338 Kbps] <Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743936.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ VA - Tones & Melodies, Vol. 7 (2021) [AAC|~328 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743933.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ VA - Tones & Melodies, Vol. 3 (2021) [AAC|~340 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743932.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ VA - Tones & Melodies, Vol. 4 (2021) [AAC|~343 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743931.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ VA - Tones & Melodies, Vol. 2 (2021) [AAC|~335 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743930.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ VA - Tones & Melodies, Vol. 5 (2021) [AAC|~333 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743929.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ VA - Tones & Melodies, Vol. 6 (2021) [AAC|~326 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743927.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ VA - Calm Morning, Vol. 2 (2022) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743925.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743888.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ VA - Tones & Melodies, Vol. 1 (2021) [AAC|~333 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743863.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ VA - Calm Morning, Vol. 1 (2017) [AAC|~336 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743861.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Chillhop Guitar, Sebastien Zunino - Genesis of Love (2022) [AAC|~307 Kbps] <Loun
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743770.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743488.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743420.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743405.jpg" />
 </div>
 
 

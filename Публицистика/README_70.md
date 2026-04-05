@@ -1,3 +1,29 @@
+###  Публикация: 1352719   (243127) от 15.01.2020
+
+Чарльз Грабер | Добрый медбрат (2019) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243127.jpg" />
+</div>
+
+
+###  Подробнее
+
+История Чарльза Каллена, серийного убийцы, который признался властям, что он убил около 400 пациентов в течение своей шестнадцатилетней карьеры медбрата. Его называют «Ангел смерти». Он вводил смертельные дозировки лекарств, «чтобы облегчить страдания» своих жертв-пациентов. Чарльз Грабер расследует причины и следствия этого «леденящего душу», по определению самого (   Читать дальше...   )Жанр: Биографии и мемуары, Документальная литература, Зарубежная публицистикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD154FA2F2442543A43359F7802173FD5ADFE7F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360527   (242867) от 15.02.2020
 
 Вадим Верник | Книга победителей (2019) [EPUB]
@@ -6,7 +32,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242867.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242747.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242484.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242303.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242221.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239735.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238183.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238139.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238127.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238102.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236487.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235804.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235767.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231020.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230424.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230073.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_229886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229886.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229321.jpg" />
 </div>
 
 
@@ -488,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229196.jpg" />
 </div>
 
 
@@ -514,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229100.jpg" />
 </div>
 
 
@@ -542,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228929.jpg" />
 </div>
 
 
@@ -568,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228542.jpg" />
 </div>
 
 
@@ -594,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227992.jpg" />
 </div>
 
 
@@ -620,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227941.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227784.jpg" />
 </div>
 
 
@@ -658,32 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1235F9883678CA8126BFEF45CD8707ED76051DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965266   (227353) от 13.12.2015
-
-Митио Каку | Космос Эйнштейна. Как открытия Альберта Эйнштейна изменили наши представления о пространстве и времени (2016) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_227353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Описывая жизнь Альберта Эйнштейна, Митио Каку погружает нас в бурлящую атмосферу первой половины XX в. – две мировые войны, революция в Германии, создание атомной бомбы. Он показывает читателю невидимый обычно за триумфальной стороной открытий и озарений мир ученого – этапы становления, баталии в научном мире, зачастую непростые отношения с близкими. В книге представлен (   Читать дальше...   )Жанр: Биографии и мемуары, история наукиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70503059C90B3D7359E65EB4772EC7F34090B872
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788534.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Udemy, Sergey Dragunov | Android Studio и Firebase - "Доска Объявле
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787317.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786928.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786179.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785782.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785323.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Andrei Neagoie | Complete Python Developer in 2020: Zero to Mastery (2020) WEB-D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783603.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Udemy | Полный курс по этичному хакингу с Nmap (2018
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783269.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782126.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782075.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781595.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781591.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Marinko Spasodjevic, Vladimir Pecanac | Ultimate ASP.NET Core 3 Web API (2020) [
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780956.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780804.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780746.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779283.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779104.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778702.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778391.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778378.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778371.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778348.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778345.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778335.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778319.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778288.jpg" />
 </div>
 
 

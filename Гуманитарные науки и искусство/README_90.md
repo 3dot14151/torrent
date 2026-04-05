@@ -1,81 +1,3 @@
-###  Публикация: 1180451   (339510) от 04.11.2017
-
-Александр Молчанов | Сценарий телесериала. Книга-тренинг (2017) [FB2, EPUB]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами трехмесячный курс по написанию сценария сериала. Если вы еженедельно будете выполнять задания, которые найдете в конце каждой главы, через три месяца пилотный сценарий вашего телесериала будет готов. Единственное условие – серьезно относиться к тому, что будете узнавать на каждом уроке, и сразу использовать полученные знания в своей работе. Цель книги (   Читать дальше...   )Жанр: КинематографФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B121E7E0BF3AD4FB66F613A03DB018D94FDADA14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180454   (339506) от 04.11.2017
-
-Лоран Тирар | Профессия режиссер. Мастер-классы (2017) [FB2, EPUB]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все великие режиссеры обладают своими секретами, и каждый из них – уникален. Сценарист и режиссер Лоран Тирар собрал в своей книге уникальные интервью самых известных режиссеров: Вуди Аллена, Дэвида Кроненберга, братьев Коэн, Тима Бертона и многих других. Выдающиеся мастера рассуждают о практических аспектах фильмопроизводства и делятся с читателями тайнами закулисья.Жанр: КинематографФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C7C460B273AF776BE88504D0BE93527E2F6C982
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180456   (339403) от 04.11.2017
-
-Сид Филд | Киносценарий: основы написания (2017) [FB2, EPUB]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339403.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сид Филд – всемирно известный сценарист, продюсер, педагог, преподаватель и автор нескольких бестселлеров, переведенных на многие языки мира. Его книги используются в качестве учебного материала в более чем 400 колледжах и университетах США. Филд стал первым представителем Ассоциации американских сценаристов, имя которого упоминается в Зале славы сценарного искусства. (   Читать дальше...   )Жанр: КинематографФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3898B0C658AE38957140B82886BE70B9881B881D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1073095   (338746) от 19.11.2016
 
 М. Ф. Быкова, А. В. Кричевский | Абсолютная идея и абсолютный дух в философии Гегеля (1993) [DJVU, PDF]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338746.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_338045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_338045.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337632.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337627.jpg" />
 </div>
 
 
@@ -189,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337207.jpg" />
 </div>
 
 
@@ -216,7 +138,7 @@ C.O. Зотов, М.Р. Майзульс | Страдающее Средневе
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336312.jpg" />
 </div>
 
 
@@ -244,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336182.jpg" />
 </div>
 
 
@@ -272,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336114.jpg" />
 </div>
 
 
@@ -298,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336037.jpg" />
 </div>
 
 
@@ -324,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335922.jpg" />
 </div>
 
 
@@ -350,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335505.jpg" />
 </div>
 
 
@@ -376,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335411.jpg" />
 </div>
 
 
@@ -402,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335354.jpg" />
 </div>
 
 
@@ -430,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334597.jpg" />
 </div>
 
 
@@ -456,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333909.jpg" />
 </div>
 
 
@@ -482,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333908.jpg" />
 </div>
 
 
@@ -508,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333906.jpg" />
 </div>
 
 
@@ -534,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333905.jpg" />
 </div>
 
 
@@ -560,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333897.jpg" />
 </div>
 
 
@@ -586,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333891.jpg" />
 </div>
 
 
@@ -612,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333733.jpg" />
 </div>
 
 
@@ -638,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333390.jpg" />
 </div>
 
 
@@ -664,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332638.jpg" />
 </div>
 
 
@@ -675,6 +597,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CC6E3FB42CA297745D17AC33875C4382619427D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955706   (332635) от 12.11.2015
+
+Т. И. Ойзерман | Историко-философское учение Гегеля (1982) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анализируется историко-философское учение Гегеля о поступательном развитии философии, ее диалектическом единстве. Автор показывает, что материалистическая переработка этого учения, всестороннее развитие диалектики классиками марксизма позволили создать научную теорию диалектического материализма.Жанр: История, философияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:517B3344A8460073C2BBB6EED4C9C0C0AC023810
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955703   (332634) от 12.11.2015
+
+А. С. Батюшкова (сост., ред.) | Эстетика Иммануила Канта и современность (1991) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник содержит статьи, авторы которых с различных сторон освещают эстетическую теорию И. Канта (через ценностный подход к категориям, категории прекрасного, эстетического и др.) и выявляют ее роль для развития современной эстетической науки. В конце брошюры дается приложение — перевод неизвестной широкому читателю Тартуской рукописи Канта.Жанр: История, философия, эстетикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:525D0C86E327718D2CD9C38200EA9DFF9FE3F2C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955709   (332631) от 12.11.2015
+
+А. А. Гусейнов | Этика Аристотеля (1984) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дается анализ этической концепции Аристотеля. Основное внимание уделяется следующим проблемам: предмет и задачи этики; учение о высшем благе; понятия добродетели и добродетельной личности; виды этических добродетелей — мужество, благоразумие, щедрость и др.; дружба и справедливость; этика и политика; классовые основания этики великого философа. Рассматриваются также (   Читать дальше...   )Жанр: История, философия, этикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAB4D3B49D91614235D8DDDC652D1E7790E3339D
 ```
 
 https://mybot314.ru/tekegram_catalog/

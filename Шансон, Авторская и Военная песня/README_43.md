@@ -1,3 +1,32 @@
+###  Публикация: 1643424   (232734) от 01.07.2023
+
+Ансамбль Скай - Ау! (1997) [FLAC|Lossless|tracks + .cue] <Авторская песня>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Звенигород
+02. Ау!
+03. Листопад
+04. Желна(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 00:52:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88005077326C3F5EEC07BCB452F2EB53E8810008
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1646699   (232186) от 15.07.2023
 
 Виктор Березинский - Я уезжаю (1994) [MP3|320 Kbps] <Шансон>
@@ -6,7 +35,7 @@
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232186.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231706.jpg" />
 </div>
 
 
@@ -65,7 +94,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231071.jpg" />
 </div>
 
 
@@ -94,7 +123,7 @@ VA - Александр Галич•Я выбираю свободу (2009) [FL
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230480.jpg" />
 </div>
 
 
@@ -123,7 +152,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229787.jpg" />
 </div>
 
 
@@ -152,7 +181,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229633.jpg" />
 </div>
 
 
@@ -178,7 +207,7 @@ VA - Шансон под водочку 2 (2002) [FLAC|Lossless|tracks + .cue]<�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227691.jpg" />
 </div>
 
 
@@ -207,7 +236,7 @@ VA - Русская блатная дискотека 4 (2008) [FLAC|Lossless|tr
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227478.jpg" />
 </div>
 
 
@@ -236,7 +265,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227206.jpg" />
 </div>
 
 
@@ -265,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227044.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ VA - Александр Галич•Я выбираю свободу (2009) [MP
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224658.jpg" />
 </div>
 
 
@@ -323,7 +352,7 @@ VA - Памяти А. Северного (1995) 2CD [MP3|320 Kbps] <Шансон
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224579.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224498.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ Souchon - C'Est Deja Ca (1993) [FLAC|Lossless|tracks + .cue] <Chanson>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223634.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223419.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ Celine Dion - D'Eux (1995) [FLAC|Lossless|tracks + .cue] <Chanson>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223400.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222639.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220742.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220668.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219202.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219183.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218613.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218377.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218158.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218154.jpg" />
 </div>
 
 
@@ -717,35 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6C77DB9361C43C3125759FBCDDA8CBA0216117E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425727   (218119) от 22.11.2020
-
-Ефимыч - Под мостом (2020) [FLAC|Lossless|WEB-DL|tracks] <Авторская песня>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Под мостом
-02. Танец
-03. Зависть
-04. Перемирие(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 00:51:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4625854501E5E596FD35A2A5CAF66496EAA22668
 ```
 
 https://mybot314.ru/tekegram_catalog/

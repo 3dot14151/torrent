@@ -1,3 +1,148 @@
+###  Публикация: 1314126   (521105) от 12.07.2019
+
+VA - Ukrainian Hits - 33 Tracks (Volume 14) (RU) (2019) [MP3|320 Kbps] <Pop, Pop Rock ...>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mozgi - Chooyka (3:04)
+02. Таюне - Зову Тебя (3:10)
+03. Лёля - Ай-яй-яй (3:37)
+04. The Коля - Идивжнапмж (2:44)(   Читать дальше...   )Жанр: Pop, Pop Rock ...Продолжительность: 01:49:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1BC8839A25D09854B3F1ED23149444DBD0F9A79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241261   (521055) от 16.08.2018
+
+VA - Top 100 Зайцев.Нет Июль 2018 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521055.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Matrang - Медуза 2:44
+002. RASA - Под фонарём 3:59
+003. Ханна - Мама, я влюбилась в него 3:14
+004. MiyaGi & Эндшпиль feat. Симптом - Люби меня 5:18(   Читать дальше...   )Жанр: PopПродолжительность: 05:58:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B5BB090E9857846BC5DF8B71F97CCF95F67DD34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929066   (520549) от 18.08.2015
+
+VA - Попсовая соточка MTV 50/50 (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520549.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dj Nejtrino & Elia - Взлетай
+002. Pitbull Feat. Gente De Zona - Piensas
+003. Самира - Жаркое Лето
+004. The Pierces - Creation(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E2DD2511F004CFF7126CADBAA2501442BF97C0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 228274   (520470) от 20.08.2010
+
+VA - Italo Boot Mix vol. 1-16 (1983-1991)  [MP3 | 256 Kbps] <Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Italo Boot Mix vol.1 - 1983 - 00:18:49:
+01-Stylóo-Pretty Face
+02-Time-Shaker Shake
+03-Digital Game-I'm Your Boogie Man(   Читать дальше...   )Жанр: DiscoПродолжительность: 05:05:15
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314324   (519377) от 14.07.2019
+
+VA - German Top 100 Single Charts 19.07.2019 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519377.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Shawn Mendes Camila Cabello - Seorita
+002. Loredana - Jetzt rufst du an
+003. Capital Bra x Samra - Tilidin
+004. Lil Nas X - Old Town Road (feat. Billy Ray Cyrus) Remix(   Читать дальше...   )Жанр: PopПродолжительность: 05:17:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30D1785181F5D5727307D48EFCA3CA27C4856AC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 929229   (519356) от 19.08.2015
 
 VA - Самые сочные русские хиты (2015) [MP3|256-320 кб/с]<Pop>
@@ -6,7 +151,7 @@ VA - Самые сочные русские хиты (2015) [MP3|256-320 кб/с
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519356.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ VA - Самые горячие летние хиты (2015) [MP3|256 кб/с]<Po
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517310.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Tanita Tikaram - Compilation (2022) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516589.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ VA - Летние super новинки. Часть 5. 50/50 (2015) [MP3|256 кб
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516303.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ VA - Летние super новинки. Часть 4. 50/50 (2015) [MP3|256 кб
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516296.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ VA - Летние super новинки. Часть 6. 50/50 (2015) [MP3|256 кб
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516265.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ VA - Зачетный хит Русский (2015) [MP3|160-320 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515154.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ VA - Ты только мой. Супер сборник популярной м
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514847.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ VA - The Official UK Top 40 Singles Chart (12-08-2012) [MP3|320 кб/с]<Pop, Ro
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514584.jpg" />
 </div>
 
 
@@ -269,7 +414,7 @@ VA - Synthpop Multimix (2019) [MP3|320 Kbps] <Pop, Synthpop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513811.jpg" />
 </div>
 
 
@@ -298,7 +443,7 @@ VA - Summer Ahead: Party Pop Music 90s (2019) [MP3|213-273 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513548.jpg" />
 </div>
 
 
@@ -327,7 +472,7 @@ VA - Попсовая соточка MTV. Выпуск 2 (2015) [MP3|256-320 к�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512874.jpg" />
 </div>
 
 
@@ -356,7 +501,7 @@ VA - Горячий музон. Тусим все вместе (2015) [MP3|256-3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512809.jpg" />
 </div>
 
 
@@ -385,7 +530,7 @@ VA - German Top 100 Single Charts 26.07.2019 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510910.jpg" />
 </div>
 
 
@@ -414,7 +559,7 @@ VA - German Top 100 Single Charts 08.07.2022 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509033.jpg" />
 </div>
 
 
@@ -443,7 +588,7 @@ VA - Автоледи: Популярный автосборник (2015) [MP3|2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507973.jpg" />
 </div>
 
 
@@ -472,7 +617,7 @@ VA - This Merry Planet - Super Rare Disco Vol.4 (2019) [MP3|320 Kbps] <Disco, Fu
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507710.jpg" />
 </div>
 
 
@@ -501,7 +646,7 @@ VA - Just Great Songs (2012) 3CD BoxSet[MP3|320 кб/с]<Pop, Rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507631.jpg" />
 </div>
 
 
@@ -536,7 +681,7 @@ VA - Latest And Greatest Great British Artists (2012) 3CD BoxSet[MP3|320 кб/с
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507624.jpg" />
 </div>
 
 
@@ -571,7 +716,7 @@ VA - Абсолютный Хит. Зарубежный (2012) [MP3|256 кб/с]<
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507596.jpg" />
 </div>
 
 
@@ -606,7 +751,7 @@ VA - Горячие Новинки Love Radio: Праздничный Карна
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507578.jpg" />
 </div>
 
 
@@ -626,158 +771,6 @@ VA - Горячие Новинки Love Radio: Праздничный Карна
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71E65B84313418EB5C9198615CCEB4E90A1525B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933156   (507166) от 31.08.2015
-
-VA - New Italo Disco (2015) [MP3|320 кб/с]<Synth-pop, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Brando - Love Is A Fantasy (Radio Remix)
-02. Boris Zhivago - Love In Russia (Radio Remix)
-03. Birizdo I Am - Maybe Baby (Radio Edit)
-04. Casanova - Angel Eyes (Short Version)(   Читать дальше...   )Жанр: Synth-pop, DiscoПродолжительность: 04:36:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C72B41D258492CDE415580840B399EE16A194A33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316426   (506719) от 25.07.2019
-
-VA - Shazam Хит-парад Russia Top 100 Июль (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506719.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.HammAli & Navai - Прятки (3:13)
-2.Billie Eilish - Bad Guy (3:14)
-3.Meduza feat. Goodboys - Piece Of Your Heart (2:32)
-4.Элджей feat. Era Istrefi - Sayonara детка (2:44)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:13:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F3CDA1E97C57B780D3BA44DD7052498C48C7CEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562787   (506113) от 12.07.2022
-
-Kim Wilde - Compilation (2022) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. View From A Bridge
-02. Cambodia
-03. Action City (2020 Remaster)
-04. 1969(   Читать дальше...   )Жанр: PopПродолжительность: 01:36:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:211D2EC75EA19C438F050DF48C39531EA267B6C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539394   (505625) от 27.08.2012
-
-VA - Clubland Eurodance 4CD (2012) [MP3|320 кб/с]<Dance, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505625.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1(One) Продолжительность 01:05:45
-01. Mr. Saxobeat - Alexandra Stan
-02. On The Floor - Jennifer Lopez
-03. Moves Like Jagger - Maroon 5
-04. Molly - Cedric Gervais
-05. L' Asereje (The Ketchup Song) - Ketchup (Las)
-06. From Paris To Berlin - Infernal
-07. Falling Stars - Sunset Strippers
-08. Lola's Theme - Shapeshifters (The)
-09. Children - Robert Miles(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 04:24:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1689E68C71DC983D7A04D06360C4DAD93F93BA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933753   (505270) от 02.09.2015
-
-VA - Billboard Hot 100 Singles Chart (12-09-2015) [MP3|320 кб/с]<Pop, Euro, Indie, Folk, Hip-Hop, RnB>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505270.jpg" />
-</div>
-
-
-###  Подробнее
-
-В последнее время  американский журнал Billboard стал публиковать свои  HOT 100 всё раньше и раньше, поэтому не удивляйтесь, что сегодня у них на календаре 12 сентября. Billboard Hot 100 фактически является официальным хит-парадом США — самого крупного национального музыкального рынка в мире.
-С 2003 года в параде учитывается не только популярность синглов, но и ротация (   Читать дальше...   )01. The Weeknd - Can't Feel My Face  (3:36)
-02. OMI - Cheerleader (Felix Jaehn Remix)  (2:54)
-03. Silento - Watch Me (Whip _Nae Nae)  (3:05)
-04. The Weeknd - The Hills  (4:02)(   Читать дальше...   )Жанр: Pop, Euro, Indie, Folk, Hip-Hop, RnBПродолжительность: 05:54:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD75DB4BC4BE0FBB7EA59F5D564EDAC0D4F5C789
 ```
 
 https://mybot314.ru/tekegram_catalog/

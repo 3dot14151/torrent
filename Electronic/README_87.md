@@ -1,3 +1,61 @@
+###  Публикация: 1101442   (894612) от 07.02.2017
+
+Schaltkreis Wassermann - Psychotron (1982) Reissue, 2005, Hyperdisc [MP3|320 Kbps] <Electro, Synth-pop, Minimal>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Psychotron (7:16)
+02. Schwerkraft (3:13)
+03. Mutanten (Tanzen Rock'n'roll) (3:40)
+04. Spaced Out (2:32)(   Читать дальше...   )Жанр: Electro, Synth-pop, MinimalПродолжительность: 01:04:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D13450499AFA261CCB18D75042849A7BFF7BBC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101526   (894430) от 07.02.2017
+
+VA - Urban Dance Vol.19 (2017) [FLAC|Lossless|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Will Sparks, Tyron Hapi & Luciana - Gorilla
+02 W&W - Caribbean Rave
+03 Tujamo - BOOM!
+04 MAKJ & Timmy Trumpet Feat. Andrew W.K. - Party Till(   Читать дальше...   )Жанр: HouseПродолжительность: 03:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B57FE358654B2543CF54A2DE3588D41D8467C300
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493580   (894223) от 04.09.2021
 
 Markus Schulz - Global DJ Broadcast (Global DJ Broadcast World Tour, Sound Bar Chicago, United States 2021-08-14) (2021-09-02) [MP3|320 Kbps] <Progressive House, Trance, Techno>
@@ -6,7 +64,7 @@ Markus Schulz - Global DJ Broadcast (Global DJ Broadcast World Tour, Sound Bar C
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894223.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Crooked Colours - Langata (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Orga
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894209.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Lady Gaga - The Remix (2010) [FLAC|Lossless|tracks + .cue] <Progressive House, H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893803.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Karmahacker - Mind Spread (2018) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downte
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893674.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Sasha - Airdrawndagger (2002) 2CD, Mixed, Limited Edition [FLAC|Lossless|tracks 
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893539.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Robert Miles - Dreamland (The Winter Edition) (1996) Unofficial Release [FLAC|Lo
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893490.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Etienne De Crecy - Super Discount 3 (2015) [FLAC|Lossless|tracks + .cue] <Electr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893455.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Makia Blue - Sweet Melancholy (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893140.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Dash Deep Harsh Crazy 2015.02 (2017) [MP3|320 Kbps] <House, Tech House, Dee
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893133.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Aurosonic - Yearmix 2015-2016 (2016) [MP3|320 Kbps] <Progressive Trance, Melodic
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892893.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - The Best of 2016 (2017) [MP3|320 Kbps] <House, Tech House, Deep House, Elec
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892839.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Ministry Of Sound: I Love Trance (2017) [FLAC|Lossless|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892513.jpg" />
 </div>
 
 
@@ -353,7 +411,7 @@ ONUKA - KOLIR (2021) [MP3|320 Kbps] <Electronic, Folk, Downtempo>
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892292.jpg" />
 </div>
 
 
@@ -382,7 +440,7 @@ Derek Carr - Pursuit (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <EDM, Deep House, T
 >>Trance, House, Techno (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892020.jpg" />
 </div>
 
 
@@ -411,7 +469,7 @@ Night Sky (aka Afternova) - Visions (2016) [MP3|320 кб/с] <Ambient, Chillout>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891614.jpg" />
 </div>
 
 
@@ -440,7 +498,7 @@ VA - Die Hit-Giganten - Hits Der 90er (2004) 2CD, Compilation [FLAC|Lossless|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891542.jpg" />
 </div>
 
 
@@ -469,7 +527,7 @@ VA - Tropical Dream Born to Relax (2017) [MP3|320 Kbps] <Chillout, Lounge, Downt
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891415.jpg" />
 </div>
 
 
@@ -498,7 +556,7 @@ VA - Cafe Seaview Vol.2 (Perfect Beach Bar & Lounge Music) (2017) [MP3|320 Kbps]
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891413.jpg" />
 </div>
 
 
@@ -527,7 +585,7 @@ VA - The Chillout Choice (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891411.jpg" />
 </div>
 
 
@@ -556,7 +614,7 @@ Kaskets (88 Ultra & Qreepz) - Waves Of Ashes (2017) [MP3|320 Kbps] <Electronic, 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891410.jpg" />
 </div>
 
 
@@ -585,7 +643,7 @@ VA - Tech-House Of Art 1 (18.03.2013) [MP3|320 кб/с]<House | Tech House | Min
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891389.jpg" />
 </div>
 
 
@@ -620,7 +678,7 @@ Device - 22B3 (1986) Reissue, 2007 [FLAC|Lossless|image + .cue] <Synth-Pop, Pop-
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891333.jpg" />
 </div>
 
 
@@ -649,7 +707,7 @@ VA - Pacha Ibiza (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891139.jpg" />
 </div>
 
 
@@ -678,7 +736,7 @@ Space Afrika - Discography 7 Releases (2014-2021) Where To Now?, Sferic [FLAC|Lo
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890838.jpg" />
 </div>
 
 
@@ -689,64 +747,6 @@ Space Afrika - Discography 7 Releases (2014-2021) Where To Now?, Sferic [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B93EB1F956FF4A0D7FDA7964ECC570252B9C4F14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494064   (890701) от 06.09.2021
-
-Kraftwerk - Tone Float Beat-Club 1971 (2021) [MP3|320 Kbps] <Electronic, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Rückstoß Gondoliere (Ruckzuck) [00:11:17]
-02 - Tone Float [00:20:37]
-03 - Milk Rock [00:05:17]
-04 - Silver Forest [00:03:15](   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:52:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E244935AE42798BAD7033795EDA1206DCAF2DED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467653   (890676) от 06.09.2021
-
-Serge Geyzel - Discography 13 Releases (2019-2021) Mindcolormusic, Zodiak Commune [FLAC|Lossless|WEB-DL|tracks] <Breaks, IDM, Electro, Acid, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Might Not Like Me (04:55)
- 02. Where I Started (05:37)
- 03. Shades Of Former Powers (06:05)
- 04. Ways Of Communication (04:42)Тип издания: WebЖанр: Breaks, IDM, Electro, Acid, Ambient •Продолжительность: 06:33:13 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34067798401DECE2CFD25A686A1D7F0E174FED9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

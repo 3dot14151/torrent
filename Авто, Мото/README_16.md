@@ -1,3 +1,81 @@
+###  Публикация: 1657514   (192726) от 03.09.2023
+
+MotoGP. Этап 11. Гран-при Каталонии. Гонка (03.09.2023) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192726.jpg" />
+</div>
+
+
+###  Подробнее
+
+3 сентября 2023, воскресенье. 15:25 МСК. Этап 11 Барселона. Гран-при Каталонии. Гонка (24 круга)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:46:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93907274FDAF0820DDF4C5015A8A31191F1E0413
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588700   (191415) от 05.11.2022
+
+MotoGP. Этап 20. Гран-при Валенсии. Квалификация (05.11.2022) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191415.jpg" />
+</div>
+
+
+###  Подробнее
+
+5 ноября 2022, суббота. 16:10 МСК. Этап 20, Испания. Гран-при Валенсии. КвалификацияЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:58:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA38141A4B38908D73D1D33C328796CDB850E0FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658839   (191002) от 09.09.2023
+
+MotoGP. Этап 12. Гран-при Сан-Марино. Спринт (09.09.2023) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191002.jpg" />
+</div>
+
+
+###  Подробнее
+
+9 сентября 2023, суббота. 16:00 МСК. Этап 12 Мизано-Адриатико. Гран-при Сан-Марино. Спринт (13 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:775BDE0B62DBF86D6D0B7D9438D11FCAAD14F481
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1658773   (190993) от 09.09.2023
 
 MotoGP. Этап 12. Гран-при Сан-Марино. Квалификация (09.09.2023) WEBRip [H.264/1080p-LQ] [hand made 50fps]
@@ -6,7 +84,7 @@ MotoGP. Этап 12. Гран-при Сан-Марино. Квалификаци
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190993.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ MotoGP. Этап 20. Гран-при Валенсии. Гонка (06.11.2022) W
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190894.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ MotoGP. Этап 12. Гран-при Сан-Марино. Гонка (10.09.2023
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190570.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ MotoGP. Этап 13. Гран-при Индии. Квалификация (23.09
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186472.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ MotoGP. Этап 13. Гран-при Индии. Спринт (23.09.2023) WEBRi
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186463.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ MotoGP. Этап 13. Гран-при Индии. Гонка (24.09.2023) WEBRip 
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186273.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183415.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183408.jpg" />
 </div>
 
 
@@ -220,7 +298,7 @@ MotoGP. Этап 14. Гран-при Японии. Спринт (30.09.2023) WEB
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182460.jpg" />
 </div>
 
 
@@ -246,7 +324,7 @@ MotoGP. Этап 14. Гран-при Японии. Квалификация (30.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182453.jpg" />
 </div>
 
 
@@ -272,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182298.jpg" />
 </div>
 
 
@@ -301,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182290.jpg" />
 </div>
 
 
@@ -330,7 +408,7 @@ MotoGP. Этап 14. Гран-при Японии. Гонка (01.10.2023) WEBRi
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181483.jpg" />
 </div>
 
 
@@ -356,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179790.jpg" />
 </div>
 
 
@@ -382,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176779.jpg" />
 </div>
 
 
@@ -411,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175173.jpg" />
 </div>
 
 
@@ -440,7 +518,7 @@ WRC: ACI Rally Monza, 03-06.12.2020 [A21 Network Russian Motorsport Television]
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175134.jpg" />
 </div>
 
 
@@ -466,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174484.jpg" />
 </div>
 
 
@@ -495,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174455.jpg" />
 </div>
 
 
@@ -524,7 +602,7 @@ MotoGP. Этап 15. Гран-при Индонезии. Спринт (14.10.202
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173234.jpg" />
 </div>
 
 
@@ -550,7 +628,7 @@ MotoGP. Этап 15. Гран-при Индонезии. Квалификаци�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173232.jpg" />
 </div>
 
 
@@ -576,7 +654,7 @@ MotoGP. Этап 15. Гран-при Индонезии. Гонка (15.10.2023)
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173025.jpg" />
 </div>
 
 
@@ -602,7 +680,7 @@ MotoGP. Этап 16. Гран-при Австралии. Квалификаци�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171928.jpg" />
 </div>
 
 
@@ -613,84 +691,6 @@ MotoGP. Этап 16. Гран-при Австралии. Квалификаци�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEA63EC32A171B8DB81E8AA871B52FBDC3458FF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670635   (171925) от 21.10.2023
-
-MotoGP. Этап 16. Гран-при Австралии. Гонка (21.10.2023) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171925.jpg" />
-</div>
-
-
-###  Подробнее
-
-21 октября 2023, суббота. 07:10 МСК. Этап 16 Остров Филиппа. Гран-при Австралии. Гонка (27 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:27:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9043D7717F0B93BD6DA3C1325A511906E13ED8C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1826659   (170963) от 19.10.2025
-
-MotoGP. Этап 19 из 22. Гран-при Австралии. Гонка (19.10.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170963.jpg" />
-</div>
-
-
-###  Подробнее
-
-19 октября 2025 воскресенье 07:00 МСК этап 19 Филлип-Айленд. Гран-при Австралии. Гонка (27 кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиПродолжительность: 01:16:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1DDEAC45207D1C3F91E2B2060ACA77A728ACB7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515255   (170308) от 06.12.2021
-
-Формула-2. Сезон 2021. 7-й Этап. Гран-при Саудовская Аравия. Гонка 3 (05.12.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170308.jpg" />
-</div>
-
-
-###  Подробнее
-
-5 декабря 2021, воскресенье. 18:05 МСК. Этап 7, Джидда, Саудовская Аравия. Третья гонка (5 кругов)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:01:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76B23A53E90C1DCB2FE7DC32F2C5C16C332BA5DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

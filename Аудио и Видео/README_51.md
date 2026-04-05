@@ -6,7 +6,7 @@
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820867.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820787.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820517.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820433.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819837.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ VA - Feel the Rhythm & Chill, Vol. 1 (2021) [AAC|~322 Kbps] <Lounge, Chill Out, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819782.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ VA - Hold the Vision (2021) [AAC|~297 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819781.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ VA - Ayurveda Lounge (Relaxation & Meditation), Vol. 1 (2021) [AAC|~311 Kbps] <D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819780.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ VA - The Best of Italo Disco, Vol. 3 (2011) [AAC|~340 Kbps] <Pop, Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819701.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ VA - Inner Awen Vol. Vi (2021) [AAC|~326 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819700.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ VA - The Best of Italo Disco, Vol. 2 (2010) [AAC|~345 Kbps] <Pop, Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819699.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819698.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ VA - The Best of Italo Disco, Vol. 4 (2011) [AAC|~356 Kbps] <Pop, Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819696.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Sphäre Sechs - Particle Void (2018) [AAC|~282 Kbps] <Ambient>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819685.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Ager Sonus - Necropolis (2018) [AAC|~209 Kbps] <Ambient>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819589.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Eximia - Visitors (2018) [AAC|~241 Kbps] <Ambient>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819587.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819583.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ VA - The Best of Italo Disco, Vol. 1 (2010) [AAC|~348 Kbps] <Pop, Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819484.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ The Cranberries - Remembering Dolores (2021) [AAC|~341 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819480.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819477.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819394.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819141.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818711.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818631.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818618.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818541.jpg" />
 </div>
 
 

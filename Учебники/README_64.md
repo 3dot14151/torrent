@@ -1,3 +1,55 @@
+###  Публикация: 1325591   (412445) от 15.09.2019
+
+А.В. Винников и др. | Электротехнические материалы и изделия (2017) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412445.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии дана классификация, описаны свойства группы материалов, в силу которых основными областями их применения являются электроустановки. Приведены области применения и эксплуатационные режимы для различных видов электротехнических материалов - ЭТМ. Вскрыта физическая сущность свойств ЭТМ. Приведены основные понятия, характеризующие свойства этих материалов (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96578E1566F80E277379BF32082C92B0F05D9C1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325440   (412440) от 15.09.2019
+
+Ю.А. Родионов | Микроэлектронные датчики и сенсорные устройства (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кратко рассмотрены элементы метрологии, используемые в микросенсорике. Подробно рассмотрены основные твердотельные датчики, используемые преимущественно в наукоемких областях (точная механика и оптика, микро- и наноэлектроника, атомная энергетика, военное дело): датчики на основе гальваномагнитных эффектов, датчики давления, температуры и теплового излучения, скорости (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96E5E79CAB934050D024E4BF02F1790FD04EEE4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1325589   (412435) от 15.09.2019
 
 В.В. Касьянов | Социология (2019) [PDF]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412435.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412267.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412252.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411956.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411267.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410494.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410336.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410089.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410007.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408731.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408685.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408662.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408195.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408046.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407288.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407248.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407206.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407203.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407162.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407093.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406951.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406096.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403944.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403883.jpg" />
 </div>
 
 
@@ -626,59 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F5C9B7A5BED74E5CF0871C3EDF93B698F47E424
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 563371   (403502) от 22.10.2012
-
-А.Н. Тихонов, А.А. Самарский | Уравнения математической физики [1999] [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403502.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассматриваются задачи математической физики, приводящие к уравнениям с частными производными. Расположение материала соответствует основным типам уравнений. Изучение каждого типа уравнений начинается с простейших физических задач, приводящих к уравнениям рассматриваемого типа. Особое внимание уделяется математической постановке задач, строгому изложению решения простейших задач и физической интерпретации результатов. В каждой главе помещены задачи и примеры. В 6-е издание добавлено Дополнение III, посвященное обобщенным решениям краевых задач. Кроме того, расширено Приложение III к гл. III; а также добавлен § 5 в Дополнение I, посвященный итерационным методам решения линейных уравнений. Для студентов технических специальностей вузов.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3472E5D823AF30720657B59F8F7270441AE424B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169742   (402412) от 28.09.2017
-
-И. П. Лотышев | География Краснодарского края (2001) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Региональное учебное пособие для учащихся общеобра­зовательных школ.
-Учебное пособие представляет курс географии Красно­дарского края и является одной из составных частей базового курса географии средней школы.Жанр: ГеографияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86D8583A685B8191EDE8CF3599A979241E41CB36
 ```
 
 https://mybot314.ru/tekegram_catalog/

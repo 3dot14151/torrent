@@ -6,7 +6,7 @@ Aragami (2016) [Ru/Multi] (01.09) Repack Other s [Collector's Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665769.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Saints Row: Gat out of Hell (2015) [Ru/Multi] (1.0/upd2) License PROPHET
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665306.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Dead Rising (2016) [Ru/En] (1.0.0.1/u3) Repack Mizantrop1337
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665043.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ DmC: Devil May Cry (2013) [Ru] (1.0r3/dlc) Repack Other s [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665038.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ The First Templar / The First Templar: В поисках Святого Граа
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_664543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_664543.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Saints Row: Gat out of Hell (2015) [Ru/Multi] (1.0/upd2/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664104.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Binary Domain (2012) [Ru/En] (1.0.0.1/dlc) SteamRip Let'sPlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663976.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Metal Gear Rising: Revengeance (2014) [Ru/Multi] (1.0/upd2) SteamRip Let'sPlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663964.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ RadLINE Quarantine (2017) [En] (1.1.2) License HI2U
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663957.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Vanquish (2017) [Multi] (1.0) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663939.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Aragami (2016) [Ru/Multi] (01.09/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663692.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Solstice Chronicles: MIA (2017) [Ru/Multi] (1.03) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662656.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Watch_Dogs / Watch Dogs (2014) [Ru/Multi] (1.06.329/dlc) Repack R.G. Catalyst [D
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662642.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Rise of the Tomb Raider (2016) [Ru/Multi] (1.0.767.2/dlc) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659706.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Castlevania: Lords of Shadow - Антология (2013-2014) [Ru/En] (1.0.2.9u2
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657530.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Resident Evil 4 HD Project (2014) [Ru/Multi] (1.1.0) Repack/Mod Decepticon [Ulti
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656849.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ EuroCops / Полиция Европы: Спецподразделения [Ru] 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656398.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Saints Row: Gat out of Hell (2015) [Ru/Multi] (1.0/upd2/dlc) Repack R.G. Catalys
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654490.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Saints Row: The Third (2011) [Ru/Multi] (1.0.0.1/dlc) Repack R.G. Catalyst [The 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654476.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Saints Row IV (2013) [Ru/Multi] (1.0.6.1/dlc) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653462.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Astebreed (2014) [En/Ja] (2.04) License PROPHET
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653158.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Saints Row 2 (2009) [Ru/Multi] (3.5.372.6) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652957.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Resident Evil 0 HD Remaster / Biohazard Zero (2016) [Ru/En] (1.0/dlc) Repack Wes
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651643.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Astebreed (2014) [En/Ja] (2.04) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651131.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Mafia II / Мафия 2 (2011) [Ru/En] (1.0.0.1/upd5/dlc) Repack R.G. Origami [D
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649999.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ RWBY: Grimm Eclipse (2016) [En] (1.0.01rc2) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647163.jpg" />
 </div>
 
 

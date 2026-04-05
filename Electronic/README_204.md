@@ -1,3 +1,96 @@
+###  Публикация: 1289735   (684132) от 17.03.2019
+
+VA - Arabian Nights (2019) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Deep-house, Downtempo, Electronica>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elias Fassos & RisK (Gr) - Sunset in Ayia Napa
+02. Stanisha - Emina
+03. Nikos Kaponis - Gypsy Day
+04. Arona - Shawq(   Читать дальше...   )Жанр: Lounge, Deep-house, Downtempo, ElectronicaПродолжительность: 01:31:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:828D78666F674B3B6A016FB7D9E552823FF839EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 507489   (683689) от 08.06.2012
+
+Alex Niggemann - Paranoid Funk (2012) [MP3|320 кб/с]<Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Wait (Extended Mix) (07:53)
+02.Street Therapy (09:37)
+03.Curious (07:21)
+04.Lovers feat. John Rydell (04:34)
+05.That Is...!? (Vinyl Cut) (07:38)
+06. Come Into My World (Vinyl Cut) (06:01)
+07.Parentless Child (Vinyl Cut) (06:32)
+08.Back 2 Basics feat. Benji (Vinyl Cut) (06:55)
+09.The Sweetest Thing feat. Daniel Solar (Vinyl Cut) (07:01)
+10.I Don't Care (Ride Mix Vinyl Cut) (06:21)(   Читать дальше...   )2012Жанр: Tech House, Deep HouseПродолжительность: 01:23:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A5C98D0A0A59773F88800B17E134065A131DF7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222690   (683124) от 30.04.2018
+
+Moonbootica - Future (2018) [FLAC|Lossless|WEB-DL|tracks] <Club House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonbootica & BONDI - Lost & Found (4:28)
+02. Moonbootica & Jack Beauregard - Covered in Gold (6:12)
+03. Moonbootica & BONDI - Trippin' (4:17)
+04. Moonbootica feat. Nneka - Do Not Do Me (Like Dis) (4:11)(   Читать дальше...   )Жанр: Club HouseПродолжительность: 01:08:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E3511CFF0448D16A3D68EF49B24BBB551CF03E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135078   (683056) от 18.05.2017
 
 VA - Electro Lounge Dinner Party (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -6,7 +99,7 @@ VA - Electro Lounge Dinner Party (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683056.jpg" />
 </div>
 
 
@@ -35,7 +128,7 @@ VA - Spiritual Alchemy (Compiled by Dubnotic and Mystical Voyager) (2017) [MP3|3
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683047.jpg" />
 </div>
 
 
@@ -64,7 +157,7 @@ VA - Body and Soul-House (2018) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683041.jpg" />
 </div>
 
 
@@ -93,7 +186,7 @@ VA - Bademucke Vol 1 (Selection Of 25 Fantastic Summer Hits) (2016) [MP3|320 к�
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682759.jpg" />
 </div>
 
 
@@ -122,7 +215,7 @@ Definition - Progression LP (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Te
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682754.jpg" />
 </div>
 
 
@@ -151,7 +244,7 @@ Dahu - Desolate EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Minimal>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682750.jpg" />
 </div>
 
 
@@ -179,7 +272,7 @@ VA - Deephouse Favorites 2k16 (2016) [MP3|320 кб/с] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682611.jpg" />
 </div>
 
 
@@ -208,7 +301,7 @@ Eagles & Butterflies - Constellations EP (2016) [FLAC|Lossless|WEB-DL|tracks] <D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682569.jpg" />
 </div>
 
 
@@ -236,7 +329,7 @@ Kobra Force - Nomads (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682511.jpg" />
 </div>
 
 
@@ -265,7 +358,7 @@ VA - Storm'99 Progressive Dance (1999) [FLAC|Lossless|tracks + .cue] <Progressiv
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682507.jpg" />
 </div>
 
 
@@ -294,7 +387,7 @@ ultradian - Pathfinder (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo,
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682490.jpg" />
 </div>
 
 
@@ -314,6 +407,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 335894   (682295) от 12.05.2011
+
+Moby - Destroyed (2011) [FLAC|Lossless] <Ambient, Techno, Downtempo, Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_682295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.2011Жанр: Ambient, Techno, Downtempo, ElectronicПродолжительность: 01:11:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029429   (682201) от 26.06.2016
 
 VA - Hotel Paradise del Mar Vol.3: Chill Out Lounge Cafe At Ibiza Costes (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -322,7 +441,7 @@ VA - Hotel Paradise del Mar Vol.3: Chill Out Lounge Cafe At Ibiza Costes (2016) 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682201.jpg" />
 </div>
 
 
@@ -351,7 +470,7 @@ VA - House Arena Vol.6 (2019) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682160.jpg" />
 </div>
 
 
@@ -380,7 +499,7 @@ Lucy - Dyscamupia (2019) Stroboscopic Artefacts [FLAC|Lossless|WEB-DL|tracks] <T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682158.jpg" />
 </div>
 
 
@@ -408,7 +527,7 @@ VA - Siddharta: Spirit Of Buddha Bar Vol. 2 (Mixed by Ravin) (2003) 2CD [FLAC|Lo
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682134.jpg" />
 </div>
 
 
@@ -437,7 +556,7 @@ Kebu - Perplexagon (2016) [MP3|320 кб/с] <Electronic, Ambient, Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682119.jpg" />
 </div>
 
 
@@ -466,7 +585,7 @@ VA - Simma Black Presents Miami 2019 (2 CD) (2019) [MP3|320 Kbps] <House, Tech H
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682089.jpg" />
 </div>
 
 
@@ -495,7 +614,7 @@ VA - Cr2 Records Presents Miami Underground (2 CD) (2019) [MP3|320 Kbps] <House,
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682086.jpg" />
 </div>
 
 
@@ -524,7 +643,7 @@ VA - Latin Fit 2019-Latin Hits For Aerobic Exercises and Fitness Activities (201
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682077.jpg" />
 </div>
 
 
@@ -553,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682076.jpg" />
 </div>
 
 
@@ -582,7 +701,7 @@ VA - Ibiza Summer Vibes: The Sound of The Party Island (2012) [MP3|320 кб/с]<
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681536.jpg" />
 </div>
 
 
@@ -617,7 +736,7 @@ VA - Ibiza Miami 2012 (Very Best Of) (08.06.2012) (2012) [MP3|320 кб/с]<Club 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681535.jpg" />
 </div>
 
 
@@ -637,122 +756,6 @@ VA - Ibiza Miami 2012 (Very Best Of) (08.06.2012) (2012) [MP3|320 кб/с]<Club 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EE43BD7E8BE0121CC9A2825DF6D8B2EDD74850C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135461   (681305) от 19.05.2017
-
-VA - Redux Presents The Uplifting Selection Vol.2 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Riialto & F.G. Noise - Zika (original mix) (07:39)
-02. Six Senses - Return (original mix) (07:08)
-03. Eddie Lung - Sirius (The Enlightment remix) (07:25)
-04. Frank Dueffel - Entropy (original mix) (07:49)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:12:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D68E2FA44ADD1170CF3E59E715747DBCD41D9F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135554   (681303) от 19.05.2017
-
-VA - Can You Feel The Stretching? (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Topmodel - Within 02:56
-02. Tempodata - Gems 02:56
-03. Tabish Green - Patch 03:03
-04. Tad Beef - Disclosed 03:03(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 03:21:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09F56D6BA46FFBE3902238407C6CC19C3021A54E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135307   (681295) от 19.05.2017
-
-VA - Intimacy, Vol. 04 (2017) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. M&D Substance - Organist (Camilo Remix) 07:13
-02. David Svedra - Love You 06:24
-03. Sasha Lyod - Knock Out (Aurora Solovey Drive Remix) 06:51
-04. Mike Denitz - Come Back 06:26(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:11:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D8E2689F8177B35DA8424998EB46F13FC324888
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135345   (681197) от 19.05.2017
-
-Christopher Willits - Horizon (2017) [MP3|320 Kbps] <Ambient, Drone>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681197.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Comet (06:13)
-2. Return (09:00)
-3. Rising (16:40)
-4. Light And Dark (06:18)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 01:27:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BD32508DA48D1C270842929E9BD4BFCDEAC3AC0
 ```
 
 https://mybot314.ru/tekegram_catalog/

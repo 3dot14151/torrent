@@ -1,32 +1,3 @@
-###  Публикация: 1780842   (70363) от 20.02.2025
-
-David Rose - Add More Life (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Add More Life (3:05)
-02.  Hand in Hand (1:59)
-03.  Open Meadows (3:10)
-04.  Barbara's Ballad (3:24)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87B5F3F93EA8A4BCB3A47277930080310EA6D2B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780844   (70362) от 20.02.2025
 
 LMsc - Mystery Flow (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
@@ -35,7 +6,7 @@ LMsc - Mystery Flow (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70362.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ David Rose - In the Spotlight (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smoo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70359.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Cut The Kids In Half - What We Became (2025) [FLAC 24/48|Lossless|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70356.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Electric Mojo - One for the Road (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70355.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Jolly Joker - Jolly Joker (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70344.jpg" />
 </div>
 
 
@@ -179,7 +150,7 @@ Lilly Hiatt - Forever (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70343.jpg" />
 </div>
 
 
@@ -208,7 +179,7 @@ Little Freddie King - I Use To Be Down (2025) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70342.jpg" />
 </div>
 
 
@@ -237,7 +208,7 @@ JoNo - Studio Albums (4 releases) (2006-2017) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70339.jpg" />
 </div>
 
 
@@ -266,7 +237,7 @@ Cymande - Renascence (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Funk, Soul>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70337.jpg" />
 </div>
 
 
@@ -295,7 +266,7 @@ Bleeding Through - NINE (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70334.jpg" />
 </div>
 
 
@@ -324,7 +295,7 @@ The Last Sentinel - Testament of the Tiamat (2025) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70329.jpg" />
 </div>
 
 
@@ -353,7 +324,7 @@ King Gizzard & The Lizard Wizard - Live In Adelaide '19 (2023) (Live) [FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70317.jpg" />
 </div>
 
 
@@ -382,7 +353,7 @@ Cerrone - Disco Symphony (Symphonic Version) (2025) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70307.jpg" />
 </div>
 
 
@@ -411,7 +382,7 @@ Valempar - Taboo Stories (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Darkwave / 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70255.jpg" />
 </div>
 
 
@@ -440,7 +411,7 @@ Greta Van Fleet - Studio Albums (4 releases) (2017-2023) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70250.jpg" />
 </div>
 
 
@@ -469,7 +440,7 @@ Von Hertzen Brothers - Studio Albums (9 releases) (2001-2024) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70235.jpg" />
 </div>
 
 
@@ -498,7 +469,7 @@ Starset - Studio Albums (4 releases) (2014-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70214.jpg" />
 </div>
 
 
@@ -527,7 +498,7 @@ Dead Sara - Studio Albums (6 releases) (2009-2021) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70212.jpg" />
 </div>
 
 
@@ -556,7 +527,7 @@ Bury Your Dead - Studio Albums (7 releases) (2003-2019) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70190.jpg" />
 </div>
 
 
@@ -585,7 +556,7 @@ No Money Kids - Fireworks (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70115.jpg" />
 </div>
 
 
@@ -614,7 +585,7 @@ Mary Ann Hawkins - Helsinki Surf City (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70102.jpg" />
 </div>
 
 
@@ -643,7 +614,7 @@ Gyasi - Here Comes The Good Part (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70100.jpg" />
 </div>
 
 
@@ -672,7 +643,7 @@ Mellow Blues - Mellow Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70098.jpg" />
 </div>
 
 
@@ -701,7 +672,7 @@ Nemoy and the NPCs - Warzone Blues (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70097.jpg" />
 </div>
 
 
@@ -730,7 +701,7 @@ Pastor Brad - Cloud of Witnesses (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70095.jpg" />
 </div>
 
 
@@ -744,6 +715,35 @@ Pastor Brad - Cloud of Witnesses (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B89A8448437017D6F2698E732965F3B3A9D9543
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782075   (70093) от 26.02.2025
+
+Paul&Chucky - Letter From Silence (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  This Road Is Mine (4:56)
+02.  Letter From Silence (4:19)
+03.  Ocean (7:31)
+04.  Polyrhythmic Wave (5:35)(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:381FED0B9892C37C2043498B8AB5E50A32DBDE8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

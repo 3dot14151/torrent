@@ -1,3 +1,58 @@
+###  Публикация: 350057   (156895) от 18.12.2021
+
+А. Н. Афанасьев (сост.) | Народные русские сказки [в трех томах] (1984-1985) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Народные русские сказки - мудрые и поучительные, смешные и грустные, наивные и лукавые, но всегда чарующие, увлекающие в свой волшебный мир, где лиса может быть исповедницей, а лягушка - царевной, где живут-поживают Крошечка-Хаврошечка, Василиса Прекрасная и Кощей Бессмертный, где играют гусли-самогуды, а золотая рыбка исполняет любые заветные желания.
+Собрание сказок, (   Читать дальше...   )Жанр: Художественная литература, сказки, фольклорФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3BD718F538613607151F37411259315BAE8617B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085676   (156869) от 22.12.2016
+
+Валентин Тублин | Золотые яблоки Гесперид (1976) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повесть о современных школьниках.
+
+Увлекая своего героя и читателя в мир гомеровской Древней Греции, автор показывает, что с давних времен талантливым открытиям предшествовала та же жажда подвига, знания и творчества, которая живет в душе самых обыкновенных ребят.Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2DF91319CE4E58274849FD84820F0672A57C8A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1085677   (156863) от 22.12.2016
 
 Гьончо Белев | Невзгоды одного мальчишки (1973) [PDF]
@@ -6,7 +61,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156863.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156792.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156572.jpg" />
 </div>
 
 
@@ -85,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156568.jpg" />
 </div>
 
 
@@ -112,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156397.jpg" />
 </div>
 
 
@@ -138,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156355.jpg" />
 </div>
 
 
@@ -164,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156289.jpg" />
 </div>
 
 
@@ -190,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156226.jpg" />
 </div>
 
 
@@ -216,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156074.jpg" />
 </div>
 
 
@@ -242,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156043.jpg" />
 </div>
 
 
@@ -268,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156026.jpg" />
 </div>
 
 
@@ -294,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156021.jpg" />
 </div>
 
 
@@ -321,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155957.jpg" />
 </div>
 
 
@@ -348,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155909.jpg" />
 </div>
 
 
@@ -375,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155854.jpg" />
 </div>
 
 
@@ -401,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155808.jpg" />
 </div>
 
 
@@ -428,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155789.jpg" />
 </div>
 
 
@@ -454,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155685.jpg" />
 </div>
 
 
@@ -483,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155681.jpg" />
 </div>
 
 
@@ -510,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155585.jpg" />
 </div>
 
 
@@ -538,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155551.jpg" />
 </div>
 
 
@@ -564,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155417.jpg" />
 </div>
 
 
@@ -590,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155330.jpg" />
 </div>
 
 
@@ -616,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155307.jpg" />
 </div>
 
 
@@ -629,60 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1ED47C3E6EFA3B4DD65B6B7C6BB2292267F2C5EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270359   (155276) от 20.12.2018
-
-Книжная серия | Школьное чтение [15 книг] (2015-2018) [FB2] [Обновляемая]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия предназначена для детей младшего, среднего и старшего школьного возраста и охватывает широкий спектр авторов мировой и отечественной литературы.
-Цели серии: помочь юному читателю в духовном и читательском росте, удобно организовать домашнее чтение (каждая книга содержит лучшие произведения одного автора).
-Книги серии «Школьное чтение» достойны быть на полке (   Читать дальше...   )Жанр: Проза для детей, КлассикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5B4AEAE2B81934A8B52BB1B7FFF16C566D27C2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270782   (155232) от 20.12.2018
-
-А.Е. Соболева | Пишем без ошибок. Нейропсихологический тренажер (2018) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155232.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие подготовлено в соответствии с требованиями ФГОС для начальной школы и рассчитано на комплексное овладение грамотностью: изучение правил русского языка, умение применять их при письме и одновременно на постановку почерка. В основе пособия лежит нейропсихологический подход, то есть одновременно с задачей овладеть письмом в нём предусмотрены упражнения для развития (   Читать дальше...   )Жанр: Языкознание, Обучение и развитие детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5E37EB2DE854527DBAE7E6E3972DF408B81173C
 ```
 
 https://mybot314.ru/tekegram_catalog/

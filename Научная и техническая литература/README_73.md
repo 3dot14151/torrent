@@ -1,133 +1,3 @@
-###  Публикация: 975265   (972178) от 15.01.2016
-
-Н. Н. Яковлев | Война и мир по-американски: традиции милитаризма в США (1989) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972178.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге известного советского ученого, доктора исторических наук, профессора Н. Н. Яковлева рассказывается о силах, выступающих против нормализации советско-американских отношений, против утверждения нового мышления в международной политике. Читатели познакомятся с историей войн, развязанных милитаристскими кругами США, с современной американской военной доктриной.Жанр: История, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DBE052D23488E79A61C19D3B4511C786A53D1BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975298   (972104) от 15.01.2016
-
-Аристотель | Афинская полития (1937) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972104.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Афинская полития" один из важнейших первоисточников для изучения истории древней Греции классического периода. Книга является пособием для семинарских занятий на истфаках университетов и институтов.Жанр: История, философия, политологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8BB826DCEE520B8A3C885E6D0484D1CF8CC5332
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975262   (972031) от 15.01.2016
-
-Ф. Энгельс | Анти-Дюринг. Переворот в науке, произведенный господином Евгением Дюрингом (1988) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972031.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Ф. Энгельса «Анти-Дюринг» была написана в защиту марксистской теории от нападок мелкобуржуазного идеолога Е. Дюринга, взгляды которого разделяли некоторые представители германской социал-демократии. В книге раскрываются три составные части марксизма: диалектический и исторический материализм, политическая экономия и теория научного коммунизма. «Анти-Дюринг» (   Читать дальше...   )Жанр: История, политология, философия, науковедениеФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A53163DAC64143F7B55D31A58E0E8E8043A26BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975346   (972026) от 15.01.2016
-
-М. А. Киссель | Философская эволюция Ж.-П. Сартра (1976) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972026.jpg" />
-</div>
-
-
-###  Подробнее
-
-В монографии рассматриваются основные этапы творческого пути Ж.-П.Сартра, философа, писателя, публициста, литературного критика. В настоящее время Сартр стал одним из главных идеологов "новых левых" - экстремистского течения, противопоставляющего себя мировому коммунистическому движению и смыкающегося с маоизмом. "Неомарксизм" Сартра, служащий (   Читать дальше...   )Жанр: История, философия, политологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DAFB317967F906BB680FE031295A92DD24AA22B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975302   (972022) от 15.01.2016
-
-Л. И. Пономарев | Под знаком кванта (1989) [DJVU, PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Квантовая физика — самое выдающееся открытие XX века. Практически ни одно глубокое явление природы невозможно понять и объяснить без квантовых идей. Цель книги — познакомить читателя-неспециалиста с основными фактами квантовой физики и историей их открытия. Ярко и образно, достаточно строго, но вполне доступно автор рассказывает об эволюции идей и понятий современной (   Читать дальше...   )Жанр: История, науковедение, естествознание, физика, математикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C54E8F114E4D7135DF66CAC0B752A5EB843D580
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975173   (971850) от 15.01.2016
 
 В. И. Левантовский | Механика космического полёта в элементарном изложении (1980) [DJVU]
@@ -136,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971850.jpg" />
 </div>
 
 
@@ -162,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971690.jpg" />
 </div>
 
 
@@ -188,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971639.jpg" />
 </div>
 
 
@@ -214,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971632.jpg" />
 </div>
 
 
@@ -240,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971534.jpg" />
 </div>
 
 
@@ -267,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971452.jpg" />
 </div>
 
 
@@ -293,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971011.jpg" />
 </div>
 
 
@@ -319,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971004.jpg" />
 </div>
 
 
@@ -348,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970969.jpg" />
 </div>
 
 
@@ -375,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970937.jpg" />
 </div>
 
 
@@ -401,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970935.jpg" />
 </div>
 
 
@@ -427,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970896.jpg" />
 </div>
 
 
@@ -455,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970891.jpg" />
 </div>
 
 
@@ -483,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970809.jpg" />
 </div>
 
 
@@ -511,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970777.jpg" />
 </div>
 
 
@@ -543,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970631.jpg" />
 </div>
 
 
@@ -569,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970562.jpg" />
 </div>
 
 
@@ -595,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970561.jpg" />
 </div>
 
 
@@ -621,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970558.jpg" />
 </div>
 
 
@@ -647,7 +517,7 @@ Jim Pool & Thomas Bock | Рационы немецкого вермахта во
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970461.jpg" />
 </div>
 
 
@@ -673,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970454.jpg" />
 </div>
 
 
@@ -685,6 +555,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85E05FCD942DB2E7268015990F6D703497F9C60E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 440721   (970409) от 22.01.2012
+
+Жак Ле Гофф | Герои и чудеса Средних веков [2011] [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая книга непревзойденного знатока и исследователя культуры Западной Европы продолжает знакомить читателя с интереснейшими деталями средневековой европейской жизни. Жак Ле Гофф исследует само средневековое представление о жизни, ее героях - рыцарях без страха и упрека или благородных разбойниках; о местах, с которыми у нас связано представление о Средневековье, (   Читать дальше...   )Издательство: ТекстФормат: PDFКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DC2D02E29CADADC0DE6F92B7CFE14EA3200C61B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 744911   (970118) от 12.01.2014
+
+Абу Али Хусейн ибн Абдаллах ибн Сина (Авиценна) | Избранные философские произведения (1980) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_970118.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящую книгу, посвященную 1000-летию со дня рождения ученого-энциклопедиста Ибн Сины (Авиценны) [980―1037], включены его труды: «Жизнеописание», «Книга знания», «Указания и наставления» и «Книга о душе», являющиеся ценными памятниками философской культуры раннего арабского Средневековья. Последние 3 произведения впервые полностью переведены с арабского (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56C9CF5CD8771809B61EBFB1131F73A5AB0399EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975910   (969787) от 17.01.2016
+
+Н. Грацианский | Западная Европа в Средние века. Источники социально-экономической истории (1925) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969787.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данном сборнике опубликованы некоторые источники по социально-экономической истории раннего Средневековья.Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0724BDA5C9DA32F270A64123141B4073224E55D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975586   (969786) от 17.01.2016
+
+Г. Л. Смирнов (отв. ред.) | Очерк теории социализма (1989) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969786.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге излагаются основные вопросы теории и практики современного социализма. В ней раскрывается социалистический характер советского общества и его ценностей, причины деформаций социализма, историческая необходимость и задачи перестройки. На страницах книги анализируются проблемы развития социализма в современном мире, состояния международного рабочего и коммунистического (   Читать дальше...   )Жанр: История, политология, экономика, философияФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C1DFDA984F98A12AA47ECC8640C85277F1B2571
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975707   (969779) от 17.01.2016
+
+А. Н. Боголюбов (отв. ред.) | У истоков классической науки. Сборник статей (1968) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969779.jpg" />
+</div>
+
+
+###  Подробнее
+
+XVII век дал человечеству необычайно много - были заложены основы классической науки. Галилей, Декарт, Ферма, Торричелли, Паскаль, Ньютон, Гейгенс, Лейбниц, Спиноза - вот далеко не полный перечень блистательных умов этого столетия. В статьях сборника рассказывается об исторических условиях, в которых начала развиваться классическая наука, об ее идейных истоках и (   Читать дальше...   )Жанр: История, науковедение, искусствоФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:992871BA1229736515A5B3465F66A5A9CC5E30C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

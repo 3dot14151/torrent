@@ -1,3 +1,32 @@
+###  Публикация: 1135503   (678585) от 20.05.2017
+
+Маша и Медведь: Три машкетёра  (2017) WEB-DLRip (Серия 64)
+
+>>Мультфильмы
+>>Отечественные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультсериал про девочку Машу, которая никому не дает покоя, и в первую очередь - своему другу Медведю.
+Мультик добрый, веселый, а по качеству намного опережает многие отечественные 3D-мультфильмы, да и некоторые западные 3D мультсериалы.
+Сериал показывается в "Спокойной ночи, малыши".
+Цель сериала «Маша и Медведь» проста и вместе с тем актуальна - попытаться (   Читать дальше...   )Телекомпания: РоссияЖанр: Компьютерная анимация, ДетскийРежиссер: Олег Кузовков, Владислав БайрамгуловПерсонажи: Алина Кукушкина, Эдуард Назаров, Борис КутневичПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 00:08:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9EEECC5D8575F39F7BC33F69E47A275E43B979D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135478   (678578) от 20.05.2017
 
 Маша и Медведь: Три машкетёра (2017) WEB-DL [H.264/1080p-LQ] (Серия 64)
@@ -6,7 +35,7 @@
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678578.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_678268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_678268.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676481.jpg" />
 </div>
 
 
@@ -84,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676173.jpg" />
 </div>
 
 
@@ -110,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674922.jpg" />
 </div>
 
 
@@ -136,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674039.jpg" />
 </div>
 
 
@@ -162,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667794.jpg" />
 </div>
 
 
@@ -189,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662033.jpg" />
 </div>
 
 
@@ -215,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656241.jpg" />
 </div>
 
 
@@ -243,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655079.jpg" />
 </div>
 
 
@@ -269,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648869.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648363.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644689.jpg" />
 </div>
 
 
@@ -348,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644312.jpg" />
 </div>
 
 
@@ -375,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644247.jpg" />
 </div>
 
 
@@ -402,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643528.jpg" />
 </div>
 
 
@@ -429,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638436.jpg" />
 </div>
 
 
@@ -455,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633344.jpg" />
 </div>
 
 
@@ -481,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633034.jpg" />
 </div>
 
 
@@ -508,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629484.jpg" />
 </div>
 
 
@@ -534,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613495.jpg" />
 </div>
 
 
@@ -564,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607292.jpg" />
 </div>
 
 
@@ -590,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603734.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602087.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599541.jpg" />
 </div>
 
 
@@ -653,32 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67ED2E78324046DA1379E4D06D2927CD43AD45C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 223022   (599153) от 30.07.2010
-
-Приключения капитана Врунгеля [13 серий] (1979) DVDRip
-
->>Мультфильмы
->>Отечественные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_599153.jpg" />
-</div>
-
-
-###  Подробнее
-
-13-серийный фильм по мотивам повести А. Некрасова.Жанр: МультфильмРежиссер: Давид ЧеркасскийПеревод: ОригиналФормат: AVIПродолжительность: 02:13:00
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

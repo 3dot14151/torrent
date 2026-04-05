@@ -1,3 +1,119 @@
+###  Публикация: 1294255   (629991) от 07.04.2019
+
+Sopor Aeternus & The Ensemble of Shadows - Death and Flamingos (2019) [FLAC|Lossless|tracks] <Rock, Deathrock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Side A (0:27)
+02.Kinder Des Teufels (3:30)
+03.Spellbound (3:10)
+04.The Boy Must Die (5:08)(   Читать дальше...   )Жанр: Rock, DeathrockПродолжительность: 00:42:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:305FF890EADA9EEF1D7E55ACDC5C4AB84E4CB511
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294268   (629988) от 07.04.2019
+
+The Neal Morse Band - The Great Adventure (2019) 2CD [FLAC|Lossless|tracks + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	Overture
+02. 	The Dream Isn't Over
+03. 	Welcome To The World
+04. 	Momentary Change(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74CC32F87FB73BD1389F9B404F10498431F7FC9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908828   (629876) от 16.06.2015
+
+The Rolling Stones - Sticky Fingers (1971) Remastered /2015, Polydor/ 3CD Super Deluxe Edition [FLAC|image+.cue]<Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Переиздание девятого студийного альбома The Rolling Stones. В 2003 году Sticky Fingers был включён в список «500 величайших альбомов всех времён» по версии журнала Rolling Stone под номером 63.01. Jumpin’ Jack Flash
+02. Live With Me
+03. Dead Flowers
+04. Stray Cat Blues(   Читать дальше...   )Жанр: Rock, Classic RockПродолжительность: 02:48:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71A4C383040C15FBD82712694D3804F323EE434D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543338   (629372) от 11.04.2022
+
+Boston - Greatest Hits (1997) Remastered [FLAC|Lossless|tracks + .cue] <Classic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tell Me
+02. Higher Power
+03. More Than A Feeling
+04. Peace Of Mind(   Читать дальше...   )Жанр: Classic Rock, AORПродолжительность: 01:15:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A4FD09CA3F9FDA34E7B309D7BED21B8F967C513
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 520782   (629189) от 10.07.2012
 
 Al Kooper - Soul Of A Man & White Chocolate (1995 - 2008) [FLAC|Lossless]<Blues, Rock>
@@ -6,7 +122,7 @@ Al Kooper - Soul Of A Man & White Chocolate (1995 - 2008) [FLAC|Lossless]<Blues,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_629189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_629189.jpg" />
 </div>
 
 
@@ -41,7 +157,7 @@ It Bites - Map of The Past (2CD) (2012) [FLAC|Lossless]<Crossover Prog>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_629084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_629084.jpg" />
 </div>
 
 
@@ -76,7 +192,7 @@ Cartoon Theory - Planet Geisha (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628669.jpg" />
 </div>
 
 
@@ -105,7 +221,7 @@ Neko Case, k.d. lang, Laura Veirs aka case-lang-veirs - case-lang-veirs (2016) [
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628642.jpg" />
 </div>
 
 
@@ -134,7 +250,7 @@ Steven Tyler - We're All Somebody From Somewhere (2016) [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628537.jpg" />
 </div>
 
 
@@ -163,7 +279,7 @@ Emergency - 2 Альбома (1971-1972) Reissue, Remastered /2005, Green Tree/ 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628058.jpg" />
 </div>
 
 
@@ -191,7 +307,7 @@ Big Paul Ferguson - Remote Viewing  Reboot (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627964.jpg" />
 </div>
 
 
@@ -220,7 +336,7 @@ Mike Campbell & The Dirty Knobs - External Combustion (2022) [FLAC|Lossless|WEB-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627899.jpg" />
 </div>
 
 
@@ -249,7 +365,7 @@ Paul Simon - The Paul Simon Anthology (1993) Unofficial Release [APE|Lossless|im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626707.jpg" />
 </div>
 
 
@@ -278,7 +394,7 @@ Roxette - Joyride (1993) Unofficial Release [APE|Lossless|image + .cue] <Pop Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626651.jpg" />
 </div>
 
 
@@ -307,7 +423,7 @@ Darryl Way - Vivaldi's Four Seasons In Rock (2018) [FLAC|Lossless|image + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626459.jpg" />
 </div>
 
 
@@ -336,7 +452,7 @@ Steve Perry (Ex. Journey) - Street Talk / For The Love Of Strange Medicine (1984
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_624834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_624834.jpg" />
 </div>
 
 
@@ -366,7 +482,7 @@ Graham Oliver - End Of An Era (2001) [FLAC|Lossless|image + .cue] <Blues Rock, H
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624729.jpg" />
 </div>
 
 
@@ -395,7 +511,7 @@ The BossHoss - Internashville Urban Hymns (2005) [FLAC|Lossless|image + .cue] <R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624713.jpg" />
 </div>
 
 
@@ -424,7 +540,7 @@ Blue Floyd - Live in Detroit (2014) 3xCD [FLAC|Lossless|image + .cue] <Progressi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623683.jpg" />
 </div>
 
 
@@ -453,7 +569,7 @@ Sound Of Smoke - Tales (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Stoner 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623587.jpg" />
 </div>
 
 
@@ -482,7 +598,7 @@ Rainbow (Ritchie Blackmore's Rainbow) - Since You Been Gone: The Essential Rainb
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623505.jpg" />
 </div>
 
 
@@ -511,7 +627,7 @@ Smokie - Gold (1975-2015) Deluxe Edition (2015) 2CD [FLAC|Lossless]<Pop rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623410.jpg" />
 </div>
 
 
@@ -540,7 +656,7 @@ Pink Floyd - Ummagumma (1969) 2 CD Box Set, Remaster /1994, EMI Records/ [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622684.jpg" />
 </div>
 
 
@@ -569,7 +685,7 @@ Rockets - Space Rock: Greatest Hits (5CD Box Set) (2014) [FLAC|Lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622515.jpg" />
 </div>
 
 
@@ -598,7 +714,7 @@ Frank Migliorelli and The Dirt Nappers - The Things You Left Behind (2019) [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622507.jpg" />
 </div>
 
 
@@ -627,7 +743,7 @@ Tony Carey - The Boystown Tapes Reissued (2006) [FLAC|image+.cue]<Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622120.jpg" />
 </div>
 
 
@@ -641,128 +757,6 @@ Tony Carey - The Boystown Tapes Reissued (2006) [FLAC|image+.cue]<Progressive Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E890DC3ADA5BB2E5B0C5FC21109FDDD47B3AAC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539681   (622037) от 27.07.2013
-
-The Reign of Kindo - 3 альбома, 1 EP (2007 - 2013) [FLAC|Lossless]<Indie, Jazz-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_622037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Hero, The Saint, The Tyrant, & The Terrorist (4:50)
-02. Help It (4:07)
-03. Sing When No One's Around (3:57)
-04. Dust (4:12)
-05. Impossible World (5:15)
-06. Don't Haze Me (3:55)
-07. Feeling In The Night (5:25)
-08. Make A Sound (3:58)
-09. Sunshine (4:26)
-10. Romancing A Stranger (4:39)(   Читать дальше...   )Жанр: Indie, Jazz-RockПродолжительность: 00:53:48
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910420   (621901) от 20.06.2015
-
-Bill Wyman - Back To Basics (2015) [FLAC|Lossless]<Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What & How & If & When & Why
-02. I Lost My Ring
-03. Love, Love, Love
-04. Stuff (Can't Get Enough)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1CE4A4CFA520522FD008F61AD9632B45990E1AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910169   (621551) от 20.06.2015
-
-The Beatles - Abbey Road (1969) Remastered, Stereo /Parlophone, Toshiba EMI/ [FLAC|image+.cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come Together (4:21)
-02. Something (3:03)
-03. Maxwell’s Silver Hammer (3:27)
-04. Oh! Darling (3:27)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA49983CF7068A0DE4D07C10B7EF57D1B128E460
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036169   (621160) от 20.07.2016
-
-Diana Rein - Long Road (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621160.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Long Road (6:36)
-2. Wild One (4:46)
-3. Livin' Loud (4:59)
-4. Green Light (4:04)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 0:58:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4BC72744641B25182E76CF1278E0348A06D5BDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Adobe XD 34.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348807.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe Audition 2020 v13.0.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348803.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Color Finale Pro 1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348769.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Adobe After Effects 2020 17.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348534.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Adobe Character Animator 2020 v3.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348529.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Axure RP Pro 7.0.0.3189 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348430.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Astute Graphics Plugins Elite Bundle v2.0.4 + Pro Texture Packs for Texturino
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348403.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Adobe Dreamweaver 2020 v21.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348399.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Adobe Photoshop Lightroom Classic v10.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348246.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Adobe InDesign 2021 v16.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348245.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Adobe Illustrator 2021 v25.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348241.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Adobe Photoshop 2021 v22.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348231.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Scrutiny 8.1.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347943.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Cookie 5 v5.9.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347941.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ PopChar X 8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347940.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Affinity Designer 1.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347806.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ PDF Checkpoint 1.8.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347785.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Graphic Inspector 2.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347782.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Secret Folder Pro 9.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347780.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ SILKYPIX Developer Studio Pro 9E 9.0.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347768.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Algoriddim djay Pro 2 (Complete FX Pack) 2.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347767.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Viscosity 1.6.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347656.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ OmniFocus Pro 3.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347612.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Vipor Plus CRM 2.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347530.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Live Home 3D Pro 3.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347475.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Affinity Designer 1.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347397.jpg" />
 </div>
 
 

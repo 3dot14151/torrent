@@ -1,3 +1,195 @@
+###  Публикация: 1540310   (653967) от 29.03.2022
+
+Futurephonic - Rhythmizer 2.1.1 VST [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rhythmizer 2.1 - это новаторское устройство Max4Live от исполнителя Раффаэля Вилли (Jumpstreet), которое сочетает в себе мощный ритмический потенциал Rhythmizer One с невероятным новым диапазоном мелодических возможностей.
+Нет ничего проще, чем использовать этого маленького монстра - подключите его перед любым синтезатором или барабанной стойкой и нарисуйте одну (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F7FA85841B3F1939F8BFBD20A010DD7C5609C75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540301   (653966) от 29.03.2022
+
+Black Salt Audio All Plug-Ins 03.2022 VST, AAX (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Escalator проходит сложный процесс насыщения и сводит его всего к одной ручке. Он отлично звучит на барабанах, вокале, струнных, гитарах и на всем остальном, что вы хотите выделить в миксе. Зарядите свои треки одним поворотом ручки.
+
+Low Control был разработан, чтобы дать вам максимальный контроль с помощью одного плагина. Легко наберите идеальные низкие частоты (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5E32A346809D18917C000A97E09599B44E4580A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516755   (650958) от 29.06.2012
+
+Arturia - Prophet V v2.0 Incl Keygen by AiR[английский]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_650958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Виртуальный синтезатор Arturia Prophet V является гибридом из двух известных синтезаторов от Sequential Circuits: цифровой Prophet VS и аналоговый Prophet 5 . Этакий замечательный, два в одном! Имеется режим Prophet Hybrid, который сочетает в себе все возможности двух синтезаторов. Полифония от 1-го, до 32-х голосов.Темп хост-программы синхронизируются с LFO . Есть стереофонический синхронизируемый дилей и хорус . Вы также можете импортировать патчи из оригинальных инструментов. В комплекте прилагается более четырёхсот пресетов.
+
+•Название программы: Arturia - Prophet V v2.0Язык интерфейса: английскийФормат: Standalone,VSTi,RTAS
+•
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540756   (650579) от 31.03.2022
+
+Hotone - VStomp Amp 1.2.1 Standalone, VST, VST3, AAX (x86/x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650579.jpg" />
+</div>
+
+
+###  Подробнее
+
+VStomp Amp — это новый прорыв в программном обеспечении виртуальных усилителей. После разработки мощной и универсальной педали XTOMP от Hotone и на основе нашей запатентованной системы CDCM, VStomp Amp обеспечивает органичное качество звука студийного уровня и точный характер легендарных усилителей.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B339E198C3EF6EED9CC4E2849E225719919D8ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905716   (649155) от 06.06.2015
+
+Aimersoft Music Recorder 1.0.1 [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вам нравится слушать музыку онлайн, то было бы прекрасно иметь возможность записывать понравившиеся мелодии. Aimersoft поможет вам в этом. С этой программой вы сможете сделать запись в высоком качестве M4A/MP3 буквально в одно нажатие мышки.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7B15303C58C7D5C0862A5807821FC2CF67FF82E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540999   (648650) от 01.04.2022
+
+Martinic - AX73 1.1.0 VSTi (x86/x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648650.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1986 году поле синтезаторов было усеяно цифровыми технологиями. Вот почему оригинальный AX73 с его полностью аналоговым сигнальным трактом остался в гордом одиночестве незамеченным. Martinic взяли все, что было ценно в оригинальном AX73, и превратили его в мощный, гибкий программный инструмент, который отлично вписывается в модельный ряд современных синтезаторов.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7088BD6B8DBE86FBBD621EDFB9985570CC2BB0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517594   (647265) от 01.07.2012
+
+PSPaudioware - PSP BussPressor v.1.0 x86 x64 [английский]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_647265.jpg" />
+</div>
+
+
+###  Подробнее
+
+PSPaudioware PSP BussPressor 1.0 (Компрессор) - оптимизированный специально под групповую обработку каналов также для обработки на мастер шине. Это отличный классический звук VCA компрессии с широчайшими возможностями в подстройке. Управление было непосредственно реализованное в PSP BussPressor таким образом чтоб вы могли точно регулировать всю боковую цепочку высокочастотного фильтра или же применять параллельную компрессию.
+
+- Производитель: PSPaudioware
+- Год выпуска: 2012
+- Формат: VST, RTASНазвание программы: PSPaudioware - PSP BussPressor v.1.0Язык интерфейса: английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541679   (645030) от 03.04.2022
 
 Native Instruments - Replika XT 1.2.2 VST, VST3, AAX (x64) [En]
@@ -6,7 +198,7 @@ Native Instruments - Replika XT 1.2.2 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645030.jpg" />
 </div>
 
 
@@ -32,7 +224,7 @@ Native Instruments - Transient Master 1.4.2 VST, VST3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645027.jpg" />
 </div>
 
 
@@ -58,7 +250,7 @@ XLN Audio - XO Complete 1.4.5.9 STANDALONE, VSTi, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644778.jpg" />
 </div>
 
 
@@ -84,7 +276,7 @@ XLN Audio - Addictive Keys Complete 1.5.4.2 STANDALONE, VSTi, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644638.jpg" />
 </div>
 
 
@@ -110,7 +302,7 @@ Arturia - Spark Creative Drum Machine v.1.4.1 x86 x64 by ASSiGN [английс�
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_644559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_644559.jpg" />
 </div>
 
 
@@ -136,7 +328,7 @@ Adrosoft Dual Audio Recorder 1.4 RePack by Vl@d [Rus/Eng]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_642875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_642875.jpg" />
 </div>
 
 
@@ -163,7 +355,7 @@ Native Instruments - Driver 1.4.2 VST, VST3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642849.jpg" />
 </div>
 
 
@@ -190,7 +382,7 @@ Native Instruments - Solid Mix Series 1.4.2 VST, VST3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642730.jpg" />
 </div>
 
 
@@ -216,7 +408,7 @@ Native Instruments - Reverb Classics 1.4.2 VST, VST3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642620.jpg" />
 </div>
 
 
@@ -243,7 +435,7 @@ XLN Audio - Addictive Trigger Complete 1.2.5.3 VST, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642608.jpg" />
 </div>
 
 
@@ -269,7 +461,7 @@ TBProAudio - DSEQ3 3.6.0 VST, VST3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640955.jpg" />
 </div>
 
 
@@ -296,7 +488,7 @@ Toontrack EZkeys Electronic Pop 1.0.0 STANDALONE, VSTi, AAX (x86/x64)
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638835.jpg" />
 </div>
 
 
@@ -322,7 +514,7 @@ Acon Digital Collection 04.2022 Standalone, VST, VST3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638748.jpg" />
 </div>
 
 
@@ -348,7 +540,7 @@ Initial Audio - AR1 Reverb 1.2.0 VST, VST3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635319.jpg" />
 </div>
 
 
@@ -374,7 +566,7 @@ Initial Audio - Dynamic Delay 1.0.5 VST, VST3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635178.jpg" />
 </div>
 
 
@@ -400,7 +592,7 @@ Initial Audio - Master Suite 1.2.0 VST, VST3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635164.jpg" />
 </div>
 
 
@@ -426,7 +618,7 @@ FeelYourSound - Chillout Engine Pro 1.0.0 VSTi (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635049.jpg" />
 </div>
 
 
@@ -454,7 +646,7 @@ Arturia - 3 Compressors 1.0.0 VST, VST3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633495.jpg" />
 </div>
 
 
@@ -481,7 +673,7 @@ MAGIX Audio & Music Lab 2017 Premium 22.1.0.38 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625913.jpg" />
 </div>
 
 
@@ -492,189 +684,6 @@ MAGIX Audio & Music Lab 2017 Premium - полнофункциональный п
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:438C68745A4B4BCAC6EFE56E65824C6F77EC86A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035756   (625911) от 17.07.2016
-
-Audio Transcoder 2.9.0.1331 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аудио Транскодер – это конвертор аудио файлов, который позволит легко и качественно конвертировать аудио файлы в 14 популярных аудио форматов. Программа предлагает интуитивно понятный интерфейс и массу полезных функции, включая встроенный аудиоплеер, режим перетаскивания мышью, набор предустановок качества звука и редактор мета тегов. Программа позволит вам сохранить (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC71366FEC52E47F7E84F3A4ED0F3142E05D7D84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295006   (623874) от 10.04.2019
-
-ADSR Sample Manager 1.2 STANDALONE, VSTi, VSTi3 [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623874.jpg" />
-</div>
-
-
-###  Подробнее
-
-ADSR Sounds обновила инструмент для управления библиотекой сэмплов на своем компьютере.
-По словам разработчиков, ADSR Sample Manager создан специально для тех музыкантов, чья библиотека сэмплов и лупов насчитывает тысячи файлов. Пользователь может добавить звуки в библиотеку простым перетаскиванием файлов в окно менеджера (или перетащить их в проект), создать для (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E6B571D592029ABD277ACD02E831454C59D8C86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544240   (623650) от 14.04.2022
-
-Cakewalk - Z3TA Plus 2 2.2.3.51 STANDALONE, VST, VST3, AAX (x86/x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623650.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разнообразие фильтров, гибкие эффекты, выразительное управление и великолепный новый интерфейс делают Z3TA+ 2 одним из самых востребованных синтезаторов. Используемый на бесчисленных треках за последнее десятилетие, со своим непревзойденным звуком Z3TA+ завоевал у многих музыкантов электронщиков славу во всем мире. Cakewalk Z3TA+ 2 имеет полностью переработанный (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D667A710608E428618797462E46E8BAD7258F8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544360   (622075) от 15.04.2022
-
-Togu Audio Line - TAL-Drum 1.0.0 VSTi, VSTi 3, AAX (x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622075.jpg" />
-</div>
-
-
-###  Подробнее
-
-TAL-Drum - это простой в использовании сэмплер для барабанов, коротких сэмплов и лупов, вдохновленный барабанными сэмплерами 80-х годов с современным рабочим процессом.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAAB7E99E9875016FE8131D1AA3A788DADC1FF17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523380   (618747) от 15.07.2012
-
-Audiffex - ampLion Pro v.1.0.4 x86 by ASSIGN [английский]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_618747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Audiffex ampLion Pro - ультраточное моделирование гитарных усилителей, спикеров, микрофонов и эффектов. Единое решение для каждого гитариста, весь механизм - только щелчок. И благодаря реальному способу и осуществляемому контролю за MIDI, Вы можете смело войти в стадию обработки без привлечения большего количества материала через Ваш компьютер, аудио интерфейс и педаль контроля MIDI!Название программы: Audiffex - ampLion Pro v.1.0.4Язык интерфейса: английскийФормат: STANDALONE, RTAS, VST
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545223   (616548) от 18.04.2022
-
-Cherry Audio - Memorymode 1.2.0.125 Standalone, VSTi, VSTi 3, AAX (x64) RePack by R2R [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Memorymode основан на одном из самых звучащих полифонических программируемых аналоговых синтезаторов 80-х — легендарном синтезаторе Memorymoog. Выпущенный в 1982 году, Memorymoog поднял звуковую планку своим сочным, мощным аналоговым звуком. Memorymode был искусно смоделирован на основе винтажного Memorymoog, изначально принадлежавшего легенде джаза Чику Кориа. Он (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74AC1D3BF173BB58F54275E42A1E050639A65DD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545225   (616544) от 18.04.2022
-
-Cherry Audio - Dreamsynth 1.0.7.128 Standalone, VSTi, VSTi 3, AAX (x64) RePack by R2R [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cherry Audio Dreamsynth — это дань уважения знаменитым гибридным аналого-цифровым синтезаторам середины-конца 1980-х годов. Инновационный дизайн сочетает в себе гибкие двухволновые трансформирующие генераторы, стереофильтры, полностью полифонические аналоговые струны, обширную и простую в использовании модуляцию, эффекты студийного качества, а также полифоническое (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49ADAC1F20153840E01512167CBD2093842CB36B
 ```
 
 https://mybot314.ru/tekegram_catalog/

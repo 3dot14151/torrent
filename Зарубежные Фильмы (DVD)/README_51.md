@@ -1,83 +1,3 @@
-###  Публикация: 961334   (290478) от 06.12.2015
-
-Терминатор: Генезис / Terminator: Genisys (2015) DVD9 [BD -> DVD]
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда Джон Коннор, лидер сопротивления, посылает сержанта Кайла Риза назад в 1984 год, чтобы защитить Сару Коннор и спасти будущее, неожиданный поворот событий создает разлом во времени. Сержант Риз оказывается в новой, незнакомой версии прошлого, где он встречает неожиданных союзников, в том числе Терминатора, новых опасных врагов, и новую миссию: изменить будущее…Производство: США / Paramount Pictures, Skydance ProductionsЖанр: Фантастика, боевик, триллерРежиссер: Алан ТейлорАктеры: Арнольд Шварценеггер, Джейсон Кларк, Эмилия Кларк, Джай Кортни, Дж.К. Симмонс, Дайо Окенийи, Мэтт Смит, Кортни Б. Вэнс, Ли Бён Хон, Майкл ГлэдиПеревод: Профессиональный (полное дублирование) + Профессиональный (многоголосый, закадровый) «Омикрон» + Авторский (одноголосый, закадровый) (А. Гаврилов)Субтитры: Вшитые отключаемыеЯзык субтитров: Английский, русскийПродолжительность: 02:05:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:004694F8D64076B6B702D73718F00B87C5E7A755
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 848475   (289677) от 08.12.2014
-
-Геракл / Hercules (2014) DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Более тысячи лет назад измученная душа скиталась по Земле, полубог, получеловек — Геракл — могучий сын царя богов Зевса, совершив все 12 подвигов, потерял семью и теперь находит утешение только в кровавых битвах.
-
-За эти годы он собирает вокруг себя шестерых таких же потерянных воинов, единственным смыслом жизни для которых стали сражения и присутствие смертельной (   Читать дальше...   )Производство: США / Paramount Pictures, Metro-Goldwyn-Mayer (MGM), Flynn Picture Company, Radical StudiosЖанр: Боевик, приключенияРежиссер: Бретт РэтнерАктеры: Дуэйн Джонсон, Иэн МакШейн, Джон Хёрт, Руфус Сьюэлл, Аксель Хенни, Ингрид Больсё Бердаль, Рис Ричи, Джозеф Файнс, Тобиас Зантельман, Питер МулланПеревод: Дублированный (лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Арабский, греческий, эстонский, английский, хинди, исландский, латышский, литовский, русский, украинскийПродолжительность: 01:34:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C3A7F1627F33D6F95F2EEBC292A50FB7FF2355E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 848435   (289340) от 08.12.2014
-
-Дальше живите сами / This Is Where I Leave You (2014) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еврейская семья, которая не особо привыкла соблюдать традиции своей веры, вынуждена выполнить последнее желание своего отца — им нужно будет провести вместе период траура, целую неделю, и решить свои проблемы.Производство: США, 21 Laps Entertainment, Spring Creek Productions, Warner Bros. PicturesЖанр: Драма, мелодрама, комедияРежиссер: Шон ЛевиАктеры: Джейсон Бейтмен, Тина Фей, Адам Драйвер, Роуз Бирн, Кори Столл, Кэтрин Хан, Конни Бриттон, Тимоти Олифант, Дэкс Шепард, Джейн Фонда...Перевод: Профессиональный многоголосыйСубтитры: Встроенные, отключаемыеЯзык субтитров: Русские, английские, хорватские, эстонские, латышские, литовские, польские, словенские, турецкие, украинскиеПродолжительность: 01:45:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C492574EB5854A725B0F34DD42978BBE5B2A8D59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 422577   (289315) от 13.12.2011
 
 Аноним / Anonymous (2011) DVD9
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289315.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289121.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289104.jpg" />
 </div>
 
 
@@ -165,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288817.jpg" />
 </div>
 
 
@@ -191,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288694.jpg" />
 </div>
 
 
@@ -217,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285441.jpg" />
 </div>
 
 
@@ -243,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285330.jpg" />
 </div>
 
 
@@ -269,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284414.jpg" />
 </div>
 
 
@@ -295,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283686.jpg" />
 </div>
 
 
@@ -321,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283678.jpg" />
 </div>
 
 
@@ -349,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283422.jpg" />
 </div>
 
 
@@ -375,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283299.jpg" />
 </div>
 
 
@@ -401,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282648.jpg" />
 </div>
 
 
@@ -427,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282493.jpg" />
 </div>
 
 
@@ -453,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282279.jpg" />
 </div>
 
 
@@ -479,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281966.jpg" />
 </div>
 
 
@@ -505,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281723.jpg" />
 </div>
 
 
@@ -531,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281665.jpg" />
 </div>
 
 
@@ -557,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281594.jpg" />
 </div>
 
 
@@ -583,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280729.jpg" />
 </div>
 
 
@@ -609,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279773.jpg" />
 </div>
 
 
@@ -635,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279753.jpg" />
 </div>
 
 
@@ -661,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279639.jpg" />
 </div>
 
 
@@ -672,6 +592,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 735597   (277960) от 17.12.2013
+
+На грани сомнения / Suspension of Disbelief (2012) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Теряясь между реальностью и вымыслом, талантливый писатель Мартин оказывается на грани сомнения. Убийство, исчезновение жены 10 лет назад, загадочная встреча с сексуальной незнакомкой, как две капли воды похожей на жертву, заставляют Мартина задаться одним единственным вопросом: «Кому можно верить?».Производство: Великобритания / Sosho Production, Red Mullet, SuspensionЖанр: триллерРежиссер: Майк ФиггисАктеры: Себастьян Кох, Лотте Вербеек, Эмилия Фокс, Ребекка Найт, Оуэн Мэкен, Локлен Нибор, Фрэнсис де ла Тур, Джулиан Сэндс, Кеннет Крэнэм, Пэрис ЭрроусмитПеревод: Профессиональный (многоголосый закадровый)Субтитры: Вшитые отключаемыеЯзык субтитров: РусскийПродолжительность: 01:47:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AAB3BC1B3DB8A5D1EC514CC66582DB84AEE4D24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 735367   (277805) от 17.12.2013
+
+Мачете убивает / Machete Kills (2013) DVD5
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277805.jpg" />
+</div>
+
+
+###  Подробнее
+
+Правительство США вербует Мачете для миссии, которую не под силу выполнить простому смертному. Мачете прорывается в Мексику, чтобы схватить безумного лидера карательного отряда и эксцентричного миллиардера, торгующего оружием, который, в свою очередь, лелеет мечту начать войну планетарного масштаба и запустить смертельно опасное оружие в космос. И только Мачете может (   Читать дальше...   )Производство: США, Россия / AR Films, Aldamisa Entertainment, 1821 PicturesЖанр: боевик, комедияРежиссер: Роберт РодригесАктеры: Дэнни Трехо, Мишель Родригес, София Вергара, Эмбер Хёрд, Леди Гага, Антонио Бандерас, Кьюба Гудинг мл., Джессика Альба, Демиан Бишир, Мэл ГибсонПеревод: Профессиональный (полное дублирование)Субтитры: ОсутствуютПродолжительность: 01:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09E77CEC72BAE1FDFA192D05191B5399F435D5CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265189   (276273) от 26.11.2018
+
+Небоскреб / Skyscraper (2018) DVD5 [Custom]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый высокий и технологичный небоскрёб в мире становится центром огненной катастрофы. Только бывший агент ФБР, а теперь эксперт по безопасности Уилл Сойер может спасти вертикальный город под небесами. Когда нельзя доверять никому, а жизнь семьи в опасности, каждая секунда на счету.Производство: США / Universal Pictures, Legendary Pictures, 7 Bucks Productions, Flynn Picture Company, Third FloorЖанр: Боевик, триллерРежиссер: Роусон Маршалл ТёрберАктеры: Дуэйн Джонсон, Нив Кэмпбелл, Чинь Хань, Роланд Мюллер, Ноа Тейлор, Байрон Манн, Пабло Шрайбер, МакКенна Робертс, Ной Коттрелл, Ханна КуинливанПеревод: Дублированный (лицензия)Субтитры: Русские, английские, польские, эстонские, латышские, литовскиеПродолжительность: 01:38:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC8ABCDDBFE71B1C1EEE9B80DDA38A12F8BF42DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,161 @@
+###  Публикация: 1376783   (856186) от 19.04.2020
+
+Jetbrains IntelliJ IDEA Ultimate 2020.1 [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856186.jpg" />
+</div>
+
+
+###  Подробнее
+
+IntelliJ IDEA — самая умная среда разработки для Java и других языков, включающая поддержку всех последних технологий и фреймворков, идеально подходящая для создания коммерческих, веб- и мобильных приложений.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC851B0045734551F73179CE4472C3169CCD4860
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375706   (856185) от 19.04.2020
+
+Adobe Photoshop 2020 21.1.2.136 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856185.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop — это комплексное решение для профессиональной обработки цифровых изображений, которое содержит самые современные инструменты для работы с изображениями и новые возможности для реализации творческих идей, которые позволяют значительно повысить производительность. Редактируйте изображения с исключительной точностью, используйте новые интуитивно понятные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55D612B44000FD9F16802A31761BCED344C5B88F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376770   (856184) от 19.04.2020
+
+Windows 7 SP1 (x86/x64) 52in1 +/- Office 2016 by SmokieBlahBlah 18.04.20 [Ru/En]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856184.jpg" />
+</div>
+
+
+###  Подробнее
+
+13 редакций Windows 7 (русские и английские) с IE 11, важными и рекомендуемыми обновлениями по апрель 2020 (кроме нежелательных) и интегрированными системными библиотеками +13 таких же редакций со встроенным MS Office 2016 Pro Plus VL х86 (можно выбрать, ставить ли Office. Галочка перед началом установки.). Язык офиса зависит от выбранного языка ОС.
+
+Ничего не вырезано (   Читать дальше...   )Язык интерфейса: Русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A980F58F4221312DDFA64BA05594E96F3574F3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368154   (856183) от 19.04.2020
+
+Microsoft® Windows® 10 Enterprise LTSC 2019 x86-x64 1809 RU by OVGorskiy 03.2020 2DVD
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856183.jpg" />
+</div>
+
+
+###  Подробнее
+
+сборка на основе оригинальных русских образов новейшей операционной системы Windows 10 Enterprise (Корпоративная) LTSC x86-x64 (VLSC) от Microsoft с дополнительным материалом разных разрядностей на 2-х разных DVD (x86 и x64). Установка полностью стандартная "вручную" с выбором параметров установки ОС. Интегрированы: обновления системы, небольшой набор самых (   Читать дальше...   )Язык интерфейса: Русский (Russian).
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5636981C2D913E5BD4132E51CAB75100E290F1A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497931   (855699) от 27.09.2021
+
+Онищенко посоветовал выявлять социально опасных школьников по запросам в интернете
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_855699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выявлять потенциальных «школьных стрелков» нужно не по сочинениям с помощью софта, а следить, чем подростки интересуются в интернете. Об этом «Газете.Ru» заявил первый зампред комитета по образованию и науке Государственной думы Геннадий Онищенко.«Для того, чтобы выявлять склонных к такого рода поведению детей, не надо сочинениями заниматься, нужно просто следить, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417547   (855691) от 27.09.2021
+
+Amnesia: Rebirth (2020) [Ru/Multi] (1.4) License GOG
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы не решаетесь даже дышать. Тварь в считанных сантиметрах от вас. И она жаждет насытиться охватившим вас ужасом. И вот вы, согнувшись, крадетесь во тьме, пытаясь подавить страх и заглушить голос, что таится внутри. «Я тебя знаю. И знаю, на что ты способна».Тип издания: LicenseРазработчик: Frictional GamesЖанр: Приключение, От первого лица, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C5F76586EBD406AAC01458AA62A1FFF05A98C99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1473695   (855690) от 27.09.2021
 
 Новый порядок / Nuevo orden (2020) WEB-DL [H.264/1080p-LQ] [MVO]
@@ -6,7 +164,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855690.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855688.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855504.jpg" />
 </div>
 
 
@@ -84,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855503.jpg" />
 </div>
 
 
@@ -110,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_855345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_855345.jpg" />
 </div>
 
 
@@ -136,7 +294,7 @@ Samorost 3 (2016) [Ru/Multi] (1.0) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854978.jpg" />
 </div>
 
 
@@ -162,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854976.jpg" />
 </div>
 
 
@@ -188,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854975.jpg" />
 </div>
 
 
@@ -214,7 +372,7 @@ Space Engineers (2013) [Ru/Multi] (beta 01.124) Repack Crisis2010 [Early Access]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854973.jpg" />
 </div>
 
 
@@ -240,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854972.jpg" />
 </div>
 
 
@@ -266,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_854967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_854967.jpg" />
 </div>
 
 
@@ -293,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854844.jpg" />
 </div>
 
 
@@ -319,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854843.jpg" />
 </div>
 
 
@@ -345,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854836.jpg" />
 </div>
 
 
@@ -371,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854832.jpg" />
 </div>
 
 
@@ -397,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>30
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854827.jpg" />
 </div>
 
 
@@ -423,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_854592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_854592.jpg" />
 </div>
 
 
@@ -450,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_854463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_854463.jpg" />
 </div>
 
 
@@ -476,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854363.jpg" />
 </div>
 
 
@@ -502,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854121.jpg" />
 </div>
 
 
@@ -510,169 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 
 Жанр: комедияРежиссер: Алан Меттер / Alan MetterАктеры: Джордж Гейнс, Майкл Уинслоу, Дэвид Граф, Лесли Истербрук, Дж. У. Бейли, Кристофер Ли, Рон Перлман, Клер Форлани, Чарли Шлэттер, Ричард ИзраэлПеревод: Профессиональный (многоголосый, закадровый, ТВ)
 Профессиональный (многоголосый, закадровый)Субтитры: отсутствуютПродолжительность: 01:22:38
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 306031   (854116) от 08.03.2011
-
-[Repack] Dragon Age 2 / Dragon Age II. v High Res Texture Pack [Ru/En] 2011 | Fenixx
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854116.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новом путешествии по полному тайн и опасностей фэнтезийному миру Dragon Age игроку предстоит выступить в роли простого беженца по имени Хоук, всеми силами старающегося уберечь свое семейство от неумолимого Мора. Волею судеб именно он станет главным защитником города Киркволла.
-
-Сюжет охватывает целое десятилетие истории сурового мира, обитатели которого отчаянно противостоят нашествию порождений тьмы. Игроку предстоит принимать непростые решения, заключать взаимовыгодные союзы с довольно опасными личностями, наживать богатство и славу и, конечно, мечом и магией без устали сражаться с многочисленными врагами.
-
-Как будет развиваться история, которая навсегда изменит вселенную Dragon Age, — зависит только от игрока.Тип издания: RepackЖанр: RPG / 3D / 3rd PersonЯзык интерфейса: Русский, английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498017   (854080) от 28.09.2021
-
-Первое безэкипажное судно в России спустили на воду в Петербурге
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_854080.jpg" />
-</div>
-
-
-###  Подробнее
-
-"На Средне-Невском судостроительном заводе (входит в ОСК) состоялась церемония спуска на воду инновационного научно-исследовательского судна "Пионер-М", на котором будет применяться технология безэкипажного судовождения", - говорится в сообщении.Отмечается, что "Пионер-М" строится для Севастопольского государственного университета и (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498312   (853981) от 28.09.2021
-
-Windows 10 Enterprise LTSB (x64) Elgujakviso Edition (v.26.09.21) [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана на основе оригинального образа от MSDN:
-ru_windows_10_enterprise_2016_ltsb_x64_dvd_9057886.iso
-
-   Интегрированы важные и рекомендуемые обновления по 24.09.2021 года.(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BF1D500DA87B7A0BFC589A80F44D0924660F5CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498502   (853980) от 28.09.2021
-
-S.T.A.L.K.E.R.: Call of Pripyat - Anomaly (2021) [Ru/En] (1.5.1) Repack/Mod kotovasia
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автономный мод STALKER Anomaly 1.5.1 призван сделать игру максимально стабильной и настраиваемой для поклонников игр STALKER. Он работает на 64-битном движке Monolith, кастомной вилке движка X-Ray. Игроки могут выбирать из множества способов играть в мод.Тип издания: Repack/ModЖанр: FPS, Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D57F9D4C7E58FB095F4F94B49FA8BF6D0173A4A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498769   (853979) от 28.09.2021
-
-CorelDRAW Graphics Suite 2021 23.5.0.506 Full / Lite RePack by KpoJIuK [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Непревзойденные возможности CorelDRAW Graphics Suite 2019 в сочетании с вашими творческими способностями — прекрасная основа для проектов по созданию макетов, разработке веб-сайтов и редактированию фотографий. Пакет оснащен расширенной поддержкой Windows 10, мультидисплейным режимом просмотра и поддержкой мониторов 4K. Продукт позволяет дизайнерам самых разных уровней (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6C334B31C58399E111A20A79A89807A27D5A824
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 202505   (853828) от 08.03.2015
-
-Крестный отец: Трилогия / The Godfather Collection: The Coppola Restoration (1972/1974/1990) [1080p] 4*Blu-Ray
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853828.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заключительная часть знаменитой гангстерской эпопеи, в которой продолжается рассказ о делах «семьи» дона Корлеоне. Через двадцать лет после событий, описанных в предыдущей картине, Майкл Корлеоне решает заняться легальным бизнесом. Однако противодействие внутри клана заставляет его вспомнить об испытанных кровавых методах общения с противником, что приводит к трагическому (   Читать дальше...   )Производство: СШАЖанр: Криминальная драмаРежиссер: Френсис Форд КопполаАктеры: Аль Пачино, Дайан Китон, Талия Шайр, Энди Гарсиа, Эли Уоллах, Джо Мантенья, Джордж Хэмилтон, Бриджет Фонда, София Коппола, Раф ВаллонеПеревод: Многоголосый закадровыйСубтитры: датские, Норвежские, Шведские, Финские, Немецкие, Греческие,  Английские, Французские, Испанские, Венгерские, Итальянские, Голанские, Польские, Португальские, ТурецкиеЯзык: Русский
 
 ## Скачать торент
 ```bash

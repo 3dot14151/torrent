@@ -6,7 +6,7 @@ NG: Запреты. Изгои общества / Taboo. Outcasts of society (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971749.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NG: Запреты. Вуду / Taboo. Voodoo (2002) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971696.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NG: Апокалипсис: Вторая мировая война: Развяз
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970602.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NG: Запреты. Опознавательные знаки / Taboo. Marks of 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970584.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NG: Табу: Зарождение эротического кино / Taboo. Th
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970288.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970115.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969968.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ National Geographic: Расследования авиакатастроф. См
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969600.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969464.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ NG: Расследования авиакатастроф: Посадка на �
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969430.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ BBC: Живой мир: Бегемоты - жизнь в воде / Natural Worl
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968560.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968507.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968440.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ History Channel: Вселенная. Наше место в галактике �
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968316.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ BBC: Планеты. Марс / The Planets: Mars (2019) IPTVRip [H.264]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967003.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ NGW: Настоящая чёрная пантера / The Real Black Panther (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965961.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Discovery: Могучие корабли. Кентуки / Mighty Ships. USS Ken
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964754.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ BBC: Загадки истории. Мифы и герои / BBC: In Search Of M
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964515.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Discovery: 100 Величайших Открытий / Discovery: 100 Greatest D
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962804.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ BBC: Планеты. Юпитер / Nova: The Planets: Jupiter (2019) IPTVRip [H
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960551.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Discovery. Река забвения / River of No Return (2019) HDTVRip [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959084.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ BBC: Чудо животного мира / Wonder of Animals (2014) HDTVRip [H.
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958336.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Discovery. Выжить любой ценой / Ultimate Survival (2006-2011) DV
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955223.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ NG: Забытые персонажи Библии / Lost Face of the Bible (201
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955032.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955011.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 3
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954539.jpg" />
 </div>
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 315971   (354345) от 20.11.2012
+
+Подшивка журналов | Авиаколлекция (2002-2012) [PDF] [Обновлено 20.11.2012]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_354345.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение к журналу «Моделист-конструктор», издается с июля 2003 года. Специализированный журнал для любителей истории авиации и авиамоделистов.
+Каждый выпуск - это мини-монография об отечественной или иностранной конструкции летательных аппаратах. Каждый выпуск содержит информацию об истории создания самолета или вертолета, его серийном производстве, модификациях, (   Читать дальше...   )Жанр: История  авиации и мини-монографииФормат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1256533   (354155) от 22.10.2018
 
 Подшивка журналов | The Woodworker & Woodturner [+ спецвыпуск] (2015) [PDF]
@@ -6,7 +33,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354155.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353836.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353835.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353831.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353824.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353448.jpg" />
 </div>
 
 
@@ -164,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352868.jpg" />
 </div>
 
 
@@ -190,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352647.jpg" />
 </div>
 
 
@@ -216,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351770.jpg" />
 </div>
 
 
@@ -242,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351535.jpg" />
 </div>
 
 
@@ -268,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350947.jpg" />
 </div>
 
 
@@ -294,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349884.jpg" />
 </div>
 
 
@@ -320,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349766.jpg" />
 </div>
 
 
@@ -346,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349544.jpg" />
 </div>
 
 
@@ -372,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349472.jpg" />
 </div>
 
 
@@ -398,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349391.jpg" />
 </div>
 
 
@@ -424,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349019.jpg" />
 </div>
 
 
@@ -451,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348691.jpg" />
 </div>
 
 
@@ -477,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347649.jpg" />
 </div>
 
 
@@ -504,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345895.jpg" />
 </div>
 
 
@@ -530,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345650.jpg" />
 </div>
 
 
@@ -556,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343663.jpg" />
 </div>
 
 
@@ -582,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341831.jpg" />
 </div>
 
 
@@ -608,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341727.jpg" />
 </div>
 
 
@@ -634,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341183.jpg" />
 </div>
 
 
@@ -645,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE8A6AE3206A08D6C2672E53E7BA7E08FD260957
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579010   (340973) от 25.09.2022
-
-Журнал | Woodturning №374 (2022) [PDF][En]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340973.jpg" />
-</div>
-
-
-###  Подробнее
-
-Woodturning — высококачественный журнал для всех работающих с деревом мастеров (от любителей до профессионалов), кто ищет свежие идеи для проекта, обзоры деревообрабатывающей техники и оснастки для мастерской. Проекты по изготовлению из дерева различной мебели, шкатулок, беседок и прочих лёгких архитектурных строений для сада приводятся в подробном формате шаг за (   Читать дальше...   )Жанр: ДеревообработкаЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5C16067CB871E3F56E35A88DAB7B59B58F8D578
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 1253748   (379627) от 11.10.2018
+
+Dejal Simon 4.3.1 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Simon Monitor проверяет серверы на изменения или неудачи и может уведомить вас по электронной почте, звуковым сигналом, Twitter или другими средствами. Вы можете использовать его для отслеживания обновлений сайтов и для того, чтобы предупредить вас, когда важный сервер выходит из строя или восстанавливает свою работу. Разработано в какао, он является нативным приложение (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.10.2018Разработчик: Dejal Systems, LLCПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Немецкий, Французский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F935C1CE20817BAC947B33527C7B6ECD84FE8E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253905   (379619) от 11.10.2018
+
+JustBroadcaster for Facebook 2.1.1 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379619.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый быстрый путь транслировать с вашего Mac на Facebook.
+Всё что вам нужно - это иметь Facebook-аккаунт.Идеально для тех у кого нет времени вникать в технические детали. Создайте профессиональную трансляцию в считанные минуты.Тип издания: macOS SoftwareРелиз состоялся: 09.10.2018Разработчик: MacBroadcasterПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1370681FB1C94EF51171DC0F18AE74E5496C7CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253915   (379527) от 11.10.2018
 
 Watercolor Studio Pro 1.4.0 [En]
@@ -6,7 +59,7 @@ Watercolor Studio Pro 1.4.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379527.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ ChatMate for Facebook 4.3.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379524.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ iGif Creator 4.2.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379523.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ JustBroadcaster for YouTube 2.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379522.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ Icon Plus - Icon & Logo Design 1.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379404.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ OmniPlan Pro 3 v3.10.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379308.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ Movavi Video Editor 15 Plus 15.0.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379299.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ ChatMate for WhatsApp 4.3.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379202.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ Wondershare Filmora 8.7.5 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379198.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ OS X Server 5.0.15 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379149.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ Adware Zap Pro 2.8.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379120.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ Seasonality Core 2.7.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379104.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ Bongiovi Digital Power Station (DPS) 2.1.0.15 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378947.jpg" />
 </div>
 
 
@@ -350,7 +403,7 @@ Productivity Lab for Pages - Templates Bundle 3.2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378764.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ LightWave 3D v2019.1.3 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378641.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ Fireplace HD+ - Камин HD+: Заставки и фоны 3.1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378459.jpg" />
 </div>
 
 
@@ -432,7 +485,7 @@ MathType 7 v7.4.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378350.jpg" />
 </div>
 
 
@@ -458,7 +511,7 @@ DivX Plus Pro 10.8.5 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378051.jpg" />
 </div>
 
 
@@ -485,7 +538,7 @@ CounterPath Bria 4.6.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377810.jpg" />
 </div>
 
 
@@ -511,7 +564,7 @@ Duplicate Detective: Cleaner 1.99.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377510.jpg" />
 </div>
 
 
@@ -540,7 +593,7 @@ Grabber : Screenshot Master 1.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377388.jpg" />
 </div>
 
 
@@ -569,7 +622,7 @@ Adguard 2.5.0.902 release [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376161.jpg" />
 </div>
 
 
@@ -595,7 +648,7 @@ Cookie 5 v 5.11 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374629.jpg" />
 </div>
 
 
@@ -624,7 +677,7 @@ PictureCode Photo Ninja 1.3.8b [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374511.jpg" />
 </div>
 
 
@@ -636,60 +689,6 @@ Photo Ninja - это RAW конвертер, который обеспечива
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CF0337CF2C927E54E6B937DC0DAFA3CDD328B56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949914   (374363) от 24.10.2015
-
-Fidelia 1.6.5 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fidelia — проигрыватель для сверхкачественного звука
-Главное достоинство программы — удивительная всеядность, естественно необходимая такому плееру. Fidelia помимо стандартного mp3 без проблем понимает AIFF, WAV, CAF, MP3, AAC, ALAC, Ogg Vorbis и FLAC. Кроме того, поддерживаются треки высокого разрешения, вплоть до 192КГц и глубиной в 32-бит с плавающей точкой. В (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23 октября 2015Разработчик: Audiofile Engineering, LLCПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:833D36E068E7CE0DB89344AA183FEB1CBC47A73F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327574   (374089) от 25.09.2019
-
-Caramba Switcher 2019.09.16 (beta) [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Caramba Switcher - это новый, понятный автоматический переключатель раскладки клавиатуры, предназначенный для работы с русским, английским и немецким языками.
-Дополнительная информация:Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Sergey MoskalevПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F33E20A5789B37AC159ED5980FA7EFDA8E02A99F
 ```
 
 https://mybot314.ru/tekegram_catalog/

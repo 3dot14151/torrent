@@ -6,7 +6,7 @@ The London Suede - Autofiction (2022) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233272.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Dead or Alive - Let Them Drag My Soul Away Singles, Demos, Sessions And Live Rec
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231299.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ James and the Cold Gun - James and the Cold Gun (2023) [MP3|320 Kbps] <Grunge>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231195.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Oxbow - Love's Holiday (2023) [MP3|320 Kbps] <Art-Rock, Post-Rock, Noise Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231144.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Red Hot Chili Peppers - Return of the Dream Canteen (2022) [MP3|320 Kbps] <Alter
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230775.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Imminence - 4 альбома + 1 EP (2013-2021) [MP3|320 Kbps] <Post-Hardcore, M
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230043.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Artifiction - VIVA (2022) [MP3|320 Kbps] <Progressive Metalcore, Djent>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229047.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ LP (Laura Pergolizzi) - Heart to Mouth (2018) [MP3|320 Kbps] <Indie Rock, Pop Ro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228995.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Uwocaust and the Angry Bois - Das alte Feuer (2022) [MP3|320 Kbps] <Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228960.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ The Sextape - Prelude (2022) [MP3|320 Kbps] <Garage Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226859.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Outline In Color - Coast is Clear (2022) [MP3|320 Kbps] <Post-Hardcore, Metalcor
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226811.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Tag My Heart - Tag My Heart (2023) [MP3|320 Kbps] <Nu Metal, Metalcore, Female V
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_225756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225756.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Brazzaville - Welcome to Brazzaville 2 (2012) [MP3|320 Kbps] <Chamber pop, Indie
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225602.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Spill Your Guts - 5 Albums (2013-2022) [MP3|320 Kbps] <Post-Hardcore, Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224748.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Architects (UK) - The Classic Symptoms of a Broken Spirit (2022) [MP3|320 kbp] <
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224281.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Arctic Monkeys - The Car (2022) [MP3|320 Kbps] <Indie Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224207.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ CABAL - Magno Interitus (2022) [MP3|320 Kbps] <Deathcore / Downtempo>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222850.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ The End At The Beginning - 3 Albums (2014-2022) [MP3|320 Kbps] <Progressive Meta
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222796.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ XIII - 8 Albums (2017-2022) [MP3|320 Kbps] <Nu-Metal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222628.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ M.A.G.S. (MAGS) - Destroyer (2023) [MP3|320 Kbps] <Alternative & Indie Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222146.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Crooked Royals - Quarter Life Day Dream (2022) [MP3|320 Kbps] <Progressive Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221695.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Less Than Jake - Silver Linings (2022) Deluxe Edition [MP3|320 Kbps] <Ska punk>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221674.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ mewithoutYou - Pale Horses (2015) [MP3|320 кб/с] <Indie Rock, Alternative>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221117.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Amanda Palmer - Piano Is Evil (2016) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220999.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Bloodhound Gang - Hard-Off (2015) [MP3|320 кб/с] <Alternative, Punk-Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219774.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Vatic - Mercer 217 (2022) [MP3|320 Kbps] <Progressive Metalcore, Nu Metalcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219626.jpg" />
 </div>
 
 

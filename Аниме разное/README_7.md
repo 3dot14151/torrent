@@ -1,3 +1,29 @@
+###  Публикация: 1802083   (66098) от 15.06.2025
+
+Gekijouban Violet Evergarden | Вайолет Эвергарден | Violet Evergarden the Movie | Виолетта Эвергарден [2020, Movie] Blu-ray 1080p raw+rus
+
+>>Аниме разное
+>>Аниме Blu-ray, Remux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Её работа — писать письма. Её имя — Виолетта Эвергарден. Прошло несколько лет, с тех пор как закончилась война, которая нанесла многим глубокие раны. Мир постепенно обретает покой, люди возвращаются к привычной жизни. Виолетта пытается научиться жить без самого важного для нее человека и не обращать внимания на свои чувства. Но однажды она получает письмо, и в её (   Читать дальше...   )Производство: Kyoto AnimationЖанр: приключенияРежиссер: Исидатэ ТайтиПеревод: ReanimediaОзвучка: Original 5.1Язык озвучки: Японский и РусскийСубтитры: РусскиеПродолжительность: 140 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F1A243FE4C972AED39D1D2A1D72AC7DC41E535A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802531   (66040) от 18.06.2025
 
 Violet Evergarden Gaiden: Eien to Jidou Shuki Ningyou | Violet Evergarden: Eternity and the Auto Memories Doll | Виолетта Эвергарден: Вечность и призрак пера [2019, Movie] Blu-ray 1080p raw+rus
@@ -6,7 +32,7 @@ Violet Evergarden Gaiden: Eien to Jidou Shuki Ningyou | Violet Evergarden: Etern
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66040.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Sora no Aosa o Shiru Hito yo | Her Blue Sky | Она видела небо [2019
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66035.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Sora no Aosa o Shiru Hito yo | Her Blue Sky | Она видела небо [2019
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66033.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Gimai Seikatsu | Days with My Stepsister | Жизнь со сводной сес
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65853.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Cheat Kusushi no Slow Life: Isekai ni Tsukurou Drugstore | Drugstore in Another 
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65821.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Saikyou Onmyouji no Isekai Tenseiki | The Reincarnation of the Strongest Exorcis
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65713.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Hazure Skill "Kinomi Master": Skill no Mi (Tabetara Shinu) o Mugen ni Taberareru
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65278.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Kimi wa Houkago Insomnia | Insomniacs After School | Бессонница пос
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64948.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Jibaku Shounen Hanako-kun 2 | Toilet-bound Hanako-kun Season 2 | Туалетн�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64766.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Nagi no Asukara | Nagi-Asu: A Lull in the Sea | Безоблачное завт�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60263.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50254.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50235.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Kage no Jitsuryokusha ni Naritakute! | The Eminence in Shadow | Восхожде
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43657.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Kaze Tachinu | The Wind Rises | Ветер Крепчает [2013, Movie] DVDRem
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_40999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_40999.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Jibaku Shounen Hanako-kun | Toilet-bound Hanako-kun | Туалетный мал�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24144.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ Megami-ryou no Ryoubo-kun | Mother of the Goddess Dormitory | Комендант
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23940.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ Grand Blue | Grand Blue Dreaming | Необъятный Океан [2018, TV, 12
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23861.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ Mushoku Tensei: Isekai Ittara Honki Dasu | Mushoku Tensei: Jobless Reincarnation
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23313.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ Bakemono no Ko | The Boy and the Beast | Ученик Чудовища [2015, Mo
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21945.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ Girls und Panzer: Saishuushou | Girls und Panzer das Finale | Девушки и 
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21100.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ Tenki no Ko | Weathering with You | Дитя Погоды [2019, Movie] BDRemux 
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21095.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ Deca-Dence | Decadence | Декаданс | Дека-Данс [2020, TV, 12 из
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20418.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ Gekijouban Violet Evergarden | Вайолет Эвергарден | Violet Ever
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19346.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ Sayonara no Asa ni Yakusoku no Hana o Kazarou | Maquia: When the Promised Flower
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19343.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ Momo e no Tegami | A Letter to Momo | Письмо для Момо [2011, Movie]
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19243.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ Momo e no Tegami | A Letter to Momo | Письмо для Момо [2011, Movie]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:295566CF2F3275B427CF508883C66E4C4205B35A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795596   (19232) от 05.05.2025
-
-Evangelion Shin Gekijouban: Q | Evangelion: 3.33 You Can (Not) Redo | Евангелион 3.33: Ты (не) исправишь [2012, Movie] BDRemux 1080p raw+rus
-
->>Аниме разное
->>Аниме Blu-ray, Remux
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19232.jpg" />
-</div>
-
-
-###  Подробнее
-
-Воздушный флот организации WILLE успешно проводит парижскую операцию: отбивается от армии беспилотных роботов, активирует гигантский уплотнительный столб, восстанавливает город и заполучает боеприпасы и запчасти «Евангелионов». А в это время потерявший волю к жизни из-за смерти Каору и чуть было не устроенного им самим Четвёртого удара Синдзи вместе с Рэй послушно (   Читать дальше...   )Производство: Studio KharaЖанр: фантастика, меха, драмаПеревод: ReanimediaОзвучка: Original 5.1Язык озвучки: Японский и РусскийСубтитры: Русские (Полные и Надписи)Продолжительность: 96 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AD19FF7300D7853233E5EEE3FFC6E206197802F
 ```
 
 https://mybot314.ru/tekegram_catalog/

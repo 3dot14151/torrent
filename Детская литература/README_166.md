@@ -1,30 +1,3 @@
-###  Публикация: 735984   (227360) от 19.12.2013
-
-Алексей Леонов | Сани-самоходы (1976) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повесть о деревенском мальчике, который за свои девять лет «перепробовал» много профессий. Сажал он деревья, был ветеринаром, портным, артистом и даже… конструктором-изобретателем.
-Выбора мальчишка ещё не сделал, но главное понял: смысл в том, чтобы не тратить время на пустяки…Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40EB8F7D07333CD76CA95257047E3FEFB5E27FE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 736342   (227339) от 19.12.2013
 
 Владимир Брагин | Оранжевое кружево (1969) [DJVU]
@@ -33,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227339.jpg" />
 </div>
 
 
@@ -59,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227330.jpg" />
 </div>
 
 
@@ -86,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227236.jpg" />
 </div>
 
 
@@ -112,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227229.jpg" />
 </div>
 
 
@@ -138,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227184.jpg" />
 </div>
 
 
@@ -164,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227113.jpg" />
 </div>
 
 
@@ -191,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227047.jpg" />
 </div>
 
 
@@ -217,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226758.jpg" />
 </div>
 
 
@@ -244,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226672.jpg" />
 </div>
 
 
@@ -270,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226566.jpg" />
 </div>
 
 
@@ -297,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226158.jpg" />
 </div>
 
 
@@ -324,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226157.jpg" />
 </div>
 
 
@@ -351,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226139.jpg" />
 </div>
 
 
@@ -378,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226110.jpg" />
 </div>
 
 
@@ -404,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226098.jpg" />
 </div>
 
 
@@ -430,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226083.jpg" />
 </div>
 
 
@@ -457,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226013.jpg" />
 </div>
 
 
@@ -483,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225885.jpg" />
 </div>
 
 
@@ -510,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225850.jpg" />
 </div>
 
 
@@ -537,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225718.jpg" />
 </div>
 
 
@@ -564,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225648.jpg" />
 </div>
 
 
@@ -593,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225565.jpg" />
 </div>
 
 
@@ -620,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225535.jpg" />
 </div>
 
 
@@ -646,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225495.jpg" />
 </div>
 
 
@@ -673,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225216.jpg" />
 </div>
 
 
@@ -684,6 +657,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E15F326C8DD8BC9A4ECF77FA23EC7F651BFB09C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450211   (224813) от 28.11.2021
+
+Джек - Победитель Великанов. Английские народные сказки [2005] [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книгу иллюстрировал Анатолий Михайлович Елисеев.
+Родился в 1930 году. В 1948-1953 учился в Московском полиграфическом институте у А.Д. Гончарова, Г.Т. Торощенко. Диплом Союза художников СССР (1965), Диплом первой степени Всероссийского конкурса "Искусство книги - 1967". Звание заслуженного художника РСФСР получил в 1966 году, народного художника Российской (   Читать дальше...   )Жанр: Детская литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91AD07CED75755A09A95CE1D2E6851D2C4BA73D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

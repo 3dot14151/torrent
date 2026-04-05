@@ -6,7 +6,7 @@ Jeff Beck - Loud Hailer (2016) [MP3|256 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641798.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Joe Cocker (Джо Кокер) - Дискография (1969-2013) [MP3|320 Kbp
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641419.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Rusty McCarthy - Messin' with the Blues (2018) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641084.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Royal Southern Brotherhood - The Royal Gospel (2016) [MP3|320 Kbps] <Blues, Gosp
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640202.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Johnny Tanner - Juke Joint Rambler (2015) [MP3|320 кб/с]<Chicago Blues, Harmo
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638204.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Crazy Hambones - 45 (Live) (2015) [MP3|320 кб/с]<Harmonica Blues, Boogie, Roc
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638203.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ A Band Named Trevor - Smoke Dog Music (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638201.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Rusty Apollo - Oh Yeah! (2015) [MP3|320 кб/с]<Blues, Electric Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638199.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Marco Pandolfi - No Dog In This Hunt (2015) [MP3|320 кб/с]<Harmonica Blues, M
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638197.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Sugaray Rayford - Southside (2015) [MP3|320 кб/с]<Blues, Soul, Funk>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638195.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Katy Guillen & The Girls - Katy Guillen & The Girls (2014) [MP3|320 кб/с]<Blu
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638194.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Martin Lang - Chicago Harp Blues Sesssions (2015) [MP3|320 кб/с]<Chicago Blue
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638089.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Lazer Lloyd - Lazer Lloyd (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638088.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Ronnie Earl & The Broadcasters - Father's Day (2015) [MP3|320 кб/с]<Blues Roc
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638081.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ D Man - Blues... Off The Neck (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638073.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Merline Johnson - The Yas Yas Girl (1937-1940) 3CD /1994/ [MP3|320 кб/с]<Blue
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637586.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Robin Bibi - No More A Secret (2016) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636275.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Eddie Taylor Jr. - Stop Breaking Down (2015) [MP3|320 кб/с]<Chicago Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636260.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Bacon Fat - Grease One For Me (1970) Reissue, 2004, Walhalla [MP3|320 Kbps] <Blu
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636040.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Pete Herzog & Dennis Walker - Waiting For The Rain (2015) [MP3|320 кб/с]<Blue
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635850.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ VA - Essential Blues Anthology (2008) 2CD [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635476.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Get The Cat - Four (2016) [MP3|320 Kbps] <Blues, RnB, Americana>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635395.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Ice Cream Men - When Time Was Yours (2017) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635256.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Bacon Fat - Tough Dude (1971) Reissue, SM The CD  [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634317.jpg" />
 </div>
 
 
@@ -711,7 +711,7 @@ Jazz Gillum: The Essential (2CD) (2003) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634262.jpg" />
 </div>
 
 
@@ -740,7 +740,7 @@ Johnnie "Geechie" Temple - The Essential (2003) 2CD[MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634258.jpg" />
 </div>
 
 

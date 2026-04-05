@@ -1,3 +1,29 @@
+###  Публикация: 1075548   (320423) от 22.11.2016
+
+Классическое искусство - The Art of Jim C. Norton [JPG]
+
+>>Графика, Арт, Разное
+>>Классическое искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джим Нортон много путешествовал и жил среди людей, населяющих земли Америки, впитывая быт, примечая детали. Среди героев его картин – ковбои и их лошади, а также коренные жители - индейцы. К слову, у Джима Нортона имеется коллекция аутентичных индейских костюмов. Он убеждён, что зарисовки из жизни – это то, что придаёт достоверность и жизненность его картинам. Он (   Читать дальше...   )Формат: JPGРазрешение файлов: от 759x1024 до 6553x4368
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C1E58DDB9249F812EDCE12272FE2219C0A47586
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 581621   (319920) от 29.11.2012
 
 Картинки - Мастера Фотоманипуляций [JPEG]
@@ -6,7 +32,7 @@
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_319920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_319920.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Artworks by Francois Barraud [Графика]
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_319686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_319686.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_319679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_319679.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319134.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319012.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319005.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Majestic castles of the world Wallpapers (29.11.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317827.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Fantastic Wallpapers (28.11.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317728.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интернет-творчество
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_317432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_317432.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интернет-творчество
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_317426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_317426.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317073.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316808.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316731.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ Bridge Wallpapers (30.11.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315817.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ Majestic castles of the world Wallpapers (30.11.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315683.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ Fantastic Wallpapers (30.11.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315576.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интернет-творчество
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_315251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_315251.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интернет-творчество
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_315149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_315149.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314705.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314572.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314532.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314380.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313810.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313606.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313604.jpg" />
 </div>
 
 
@@ -643,33 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE73611A8E47668C25AE71BAFD49330B9F067A3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075884   (313538) от 25.11.2016
-
-Классическое искусство - The Art of Jim Carson [JPG]
-
->>Графика, Арт, Разное
->>Классическое искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313538.jpg" />
-</div>
-
-
-###  Подробнее
-
-В раздаче собраны работы художника, посвященные северо-американским индейцам, а также освоению Америки европейцами...
-(Релизёр Irbys27)Формат: JPGРазрешение файлов: от 799x1058 до 1927x960
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ABC56BD89A6C4FCDF1687B79ECB82CC2AFF4CE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

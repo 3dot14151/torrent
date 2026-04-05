@@ -1,3 +1,55 @@
+###  Публикация: 384575   (482941) от 06.09.2011
+
+Д.Гончарова | Серия: Раскраска для малышей (4 книги) (2009) [JPЕG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Рабочие тетради, прописи и разукрашки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482941.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книжка-Раскраска из серии "Раскраска для малышей", с цветными образцами. Под каждым рисунком комментирующая подпись.Жанр: РаскраскаФормат: JPЕG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AC0B351DF68C790890C83C4A9ABE2CF63CB4B6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 384566   (482940) от 06.09.2011
+
+О. Вовикова | В лесу. Букашки. Раскраска-малютка (2 книги) (2007-2008) [JPEG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Рабочие тетради, прописи и разукрашки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482940.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскраски-малютки конечно же, понравятся малютке-художнику. Толстый цветной контур поможет малышу правильно раскрасить картинки.Жанр: РаскраскаФормат: JPEG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CE8D96E0F3DC50C4ED5CC464B991E684E27F99A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1405424   (482862) от 30.08.2020
 
 Ч.М. Таксами (сост.) | Сказание о просторе (1988) [PDF, DJVU]
@@ -6,7 +58,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482862.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482622.jpg" />
 </div>
 
 
@@ -62,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482554.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482230.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482116.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482091.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481955.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481716.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481478.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481438.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481369.jpg" />
 </div>
 
 
@@ -302,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481368.jpg" />
 </div>
 
 
@@ -328,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481355.jpg" />
 </div>
 
 
@@ -357,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481353.jpg" />
 </div>
 
 
@@ -383,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481254.jpg" />
 </div>
 
 
@@ -409,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481201.jpg" />
 </div>
 
 
@@ -436,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480972.jpg" />
 </div>
 
 
@@ -462,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480478.jpg" />
 </div>
 
 
@@ -488,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480378.jpg" />
 </div>
 
 
@@ -514,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480294.jpg" />
 </div>
 
 
@@ -540,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480277.jpg" />
 </div>
 
 
@@ -566,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480233.jpg" />
 </div>
 
 
@@ -592,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480105.jpg" />
 </div>
 
 
@@ -620,7 +672,7 @@ Oxford Educational Encycyclopedia | Энциклопедия Мир животн
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480018.jpg" />
 </div>
 
 
@@ -631,58 +683,6 @@ Oxford Educational Encycyclopedia | Энциклопедия Мир животн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F8A25C0C8E056FBAB3A67D55421BC4EEBDC1D9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938621   (479996) от 19.09.2015
-
-Н.В. Тулупов (сост.) | Рассказы о животных (1923) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказы и стихотворения о братьях наших меньших для самых маленьких.Жанр: Детская литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:462A7A295DF6AB502205D79A7D420FA4CF4D270E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938907   (479799) от 19.09.2015
-
-Галина Петровна Шалаева | Литературное чтение (2010) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное издание является принципиально новым современным пособием, разработанным в соответствии с базовой программой для начальной школы, утвержденной Министерством образования и науки Российской Федерации. Программный материал сгруппирован по темам и представлен в доступной и увлекательной форме, а яркие цветные иллюстрации органично сопровождают текст, подключая (   Читать дальше...   )Жанр: Детская литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46074D105AF2891F17E25BA4149B890CD394146D
 ```
 
 https://mybot314.ru/tekegram_catalog/

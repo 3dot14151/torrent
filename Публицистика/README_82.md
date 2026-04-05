@@ -1,3 +1,29 @@
+###  Публикация: 1743511   (46606) от 16.08.2024
+
+Семён Уралов | ПостУкраина. Страна без государства (2024) [PDF, EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46606.jpg" />
+</div>
+
+
+###  Подробнее
+
+Государство на территории постУкраины уничтожалось политическими элитами на глазах у изумленного общества, которое от выборов к выборам сводили с ума с помощью манипуляций, политических технологий и соблазнов. Как ладно скроенная советская республика, располагавшая наилучшим промышленным потенциалом на 1991 год, постепенно разложилась на неофеодальные вотчины олигархов? (   Читать дальше...   )Жанр: Публицистика, ПолиттехнологииИздательство: ПитерФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24340E09B763EC7F7450B8A6F6BA83EB4191E26D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1744012   (46426) от 18.08.2024
 
 Захар Прилепин | Координата Z (2023) [FB2]
@@ -6,7 +32,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46426.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45506.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44779.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44412.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44170.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42555.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42090.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40818.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40298.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39698.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39393.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38948.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38406.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38399.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38377.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38107.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37683.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37668.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37653.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37648.jpg" />
 </div>
 
 
@@ -539,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36474.jpg" />
 </div>
 
 
@@ -567,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36276.jpg" />
 </div>
 
 
@@ -595,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36275.jpg" />
 </div>
 
 
@@ -621,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36243.jpg" />
 </div>
 
 
@@ -649,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36177.jpg" />
 </div>
 
 
@@ -660,32 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C98CC3E6E3AD6B783AF243C1C3A86F9248991CFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762587   (36032) от 26.11.2024
-
-Н.А. Цаголов (ред.) | Закон стоимости и его роль при социализме (1959) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Опыт социалистического строительства показывает, что планомерное развитие народного хозяйства и сохранение товарного производства не вступают в безысходный конфликт. Успехи планового развития народного хозяйства, грандиозная программа развернутого строительства коммунистического общества, содержащаяся в тезисах Н. С. Хрущева о семилетием плане, требуют еще более (   Читать дальше...   )Жанр: История, политология, экономика, науковедениеИздательство: ГоспланиздатФормат: PDFКачество: Обработанный скан + OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B2B7F621CBBAEA9D3FB776A872C803336606761
 ```
 
 https://mybot314.ru/tekegram_catalog/

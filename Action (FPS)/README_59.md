@@ -1,3 +1,55 @@
+###  Публикация: 1798176   (1764) от 21.09.2025
+
+S.T.A.L.K.E.R.: Legends of the Zone Trilogy (2025) [Ru/Multi] (1.10.0.26261) Repack Decepticon [Enhanced Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вернись туда, откуда всё началось. Трилогия S.T.A.L.K.E.R., одна из самых знаковых и революционных серий шутеров от первого лица, возвращается - теперь в обновлённой и улучшенной версии для нового поколения. Удачной охоты, Сталкер!Тип издания: RepackРазработчик: GSC Game WorldЖанр: Экшены, Ролевые игрыЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5048D5B623FCE2E598BFBAA350739C3D95A0756E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798169   (1762) от 21.09.2025
+
+S.T.A.L.K.E.R.: Shadow of Chornobyl / S.T.A.L.K.E.R. Тень Чернобыля (2007) [Ru/Multi] (1.10.1-64) License GOG [Enhanced Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1762.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возвращаемся к тому, с чего все началось - трилогия S.T.A.L.K.E.R., один из самых дальновидных и новаторских шутеров от первого лица на выживание всех времен возвращается. Теперь масштабированное, улучшенное приключение, в которое обязательно нужно поиграть для нового поколения. S.T.A.L.K.E.R.: Тень Чернобыля – первая часть Legends of the Zone Trilogy, с которой (   Читать дальше...   )Тип издания: LicenseРазработчик: GSC Game WorldЖанр: Экшены, Ролевые игрыЯзык озвучки: Английский, Французский, Немецкий, Итальянский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E48C1874B73F9E3E1F1E448443811AFF2BAFD4CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1798170   (1761) от 21.09.2025
 
 S.T.A.L.K.E.R.: Call of Prypiat / S.T.A.L.K.E.R.: Зов Припяти (2010) [Ru/Multi] (1.10.1-64) License GOG [Enhanced Edition]
@@ -6,7 +58,7 @@ S.T.A.L.K.E.R.: Call of Prypiat / S.T.A.L.K.E.R.: Зов Припяти (2010) [
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1761.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ S.T.A.L.K.E.R.: Clear Sky / S.T.A.L.K.E.R.: Чистое небо (2008) [Ru/Mul
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1727.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ POSTAL: Brain Damaged (2022) [Multi] (1.10.4/dlc) License GOG [Connoisseur Editi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1400.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Project Warlock II (2) (2022) [Ru/Multi] (1.0.1.26) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1372.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Dying Light (2016) [Ru/En] (1.54.0/dlc) Repack Let'sРlay [Definitive Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_943.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Dying Light 2: Stay Human (2022) [Ru/Multi] (1.24.2/dlc) Repack Let'sРlay [Digi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_928.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Project Warlock II (2) (2022) [Ru/Multi] (1.0.1.26) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_899.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ DOOM Eternal (2020) [Ru/Multi] (20078587/dlc) Repack Wanterlude [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_884.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ High On Life (2022) [Ru/Multi] (Build 12527950/dlc) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_867.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Metal: Hellsinger (2022) [Ru/Multi] (1.8.0-71665-194/dlc) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_849.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Severed Steel (2021) [Ru/Multi] (5.62) License GOG [Digital Deluxe]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_724.jpg" />
 </div>
 
 

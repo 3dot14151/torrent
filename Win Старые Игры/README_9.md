@@ -1,3 +1,55 @@
+###  Публикация: 1203527   (788008) от 02.02.2018
+
+Torino 2006 (2006) [Multi] (1.0) Repack CoD - MW2
+
+>>Win Старые Игры
+>>Simulation (Sport)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Олимпийские игры пользуются огромным успехом и это неудивительно: раз в четыре года в одном месте собираются "лучшие из лучших" спортсменов и выкладываются на все сто процентов. Одно участие в этом соревновании вызывает гордость, а оказаться на пьедестале почёта для многих спортсменов означает достижение мечты. Да уж, испытать те эмоции, которые испытывают (   Читать дальше...   )Тип издания: RepackРазработчик: 49GamesЖанр: Sport (Winter Sport, Olympics), 3D, 1'st Person, 3'rd PersonЯзык озвучки: Английский, Французский и другиеЯзык субтитров: Английский, Французский и другиеЯзык интерфейса: Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39AB580A01F4AE6797661D0EC628DE90EE5140A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203679   (787569) от 03.02.2018
+
+RTL Biathlon 2007 / RTL Биатлон 2007 (2006) [Ru] (1.0) Repack CoD - MW2
+
+>>Win Старые Игры
+>>Simulation (Sport)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787569.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот спортивный симулятор введет вас в образ биатлониста. Ваша задача,это как можно быстрее пройти забег и быть точным при стрельбе. Биатлон принадлежит к тем видам зимнего спорта ,которые очень требовательны к спортсмену. Основным условием победы является выносливость при преодолении громадных дистанций по пересеченной местности,хладнокровное спокойствие при стрельбе (   Читать дальше...   )Тип издания: RepackРазработчик: 49GamesЖанр: Sport (Winter Sports, Biathlon), 3D, 1'st PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7E2046B327E7EB351A6388A64882593B4A84E7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203520   (787566) от 03.02.2018
 
 Curling 2006 (2006) [Ru] (1.0) Repack CoD - MW2
@@ -6,7 +58,7 @@ Curling 2006 (2006) [Ru] (1.0) Repack CoD - MW2
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787566.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ RTL Winter Games 2007 / RTL Зимние игры 2007 (2006) [Ru] (1.0) Repack 
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787565.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ RTL Ski Jumping 2005 (2004) [En/Ge] (1.47) Repack CoD - MW2
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787564.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ RTL Ski Jumping 2007 / RTL Лыжный трамплин 2007 (2006) [Ru] (1.0) 
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787562.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Alpine Ski Racing 2007 / Горные лыжи: Альпийский сезон 
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787561.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787274.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Baldur's Gate II: Shadows of Amn / Baldur's Gate 2: Тени Амна (2000) [Ru
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786018.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Peter Jackson's King Kong: The Official Game of the Movie (2005) [Ru/Multi] (1.0
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785193.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ RTL Winter Sports 2008: The Ultimate Challenge / Зимний спорт 2008 (2
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784829.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ The Guild (2002) [Ru] (1.0) Repack Other s [Gold Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784717.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Lighthouse: The Dark Being (1996) [En] (2.0a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783731.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Outlaws (1997) [En] (2.0/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781170.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Athens 2004 / Летние игры. Афины 2004 (2004) [Ru] (1.0) Repack Co
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780488.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ RTL Biathlon 2008 / Биатлон 2008 (2007) [Ru] (1.0) Repack CoD - MW2
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780475.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Screamer 4x4 (2000) [Multi] (1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780468.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Sydney 2000 (2000) [Ru] (1.0) Unofficial
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780359.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Avernum 3: Ruined World (2018) [En] (1.0.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776298.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ I and Me (2016) [En/Zh] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775892.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Forgotten Realms: Demon Stone (2004) [Ru/En] (1.1) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775565.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Brothers in Arms: Earned in Blood (2005) [En] (1.03) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774028.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Brothers in Arms: Road to Hill 30 (2005) [Ru/En] (1.11) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774022.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Brothers in Arms: Hell's Highway (2008) [Ru] (1.0.0) Rip Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773971.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ The Moment of Silence / Момент истины (2005) [Ru/Multi] (1.0) Licens
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772900.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Riff Racer - Race Your Music! (2016) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770034.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Riff Racer - Race Your Music! (2016) [Ru/Multi] (1.0) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5559A6CAEEB9A5E126061540954298B4FC366CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016948   (769425) от 15.05.2016
-
-Shadow Complex Remastered (2016) [Ru/Multi] (1.0) Repack Other s
-
->>Win Старые Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Переиздание «метроидвании» Shadow Complex, оригинальная версия которой появилась на Xbox 360 в 2009 году. События одной из самых зрелищных игр своего жанра разворачиваются во вселенной «имперской» дилогии романов Орсона Скотта Карда, где США скатывается в новую гражданскую войну.Тип издания: RepackРазработчик: ChAIR EntertainmentЖанр: Arcade (Platform), 3DЯзык озвучки: Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D930F7EC0631B59F1D607285BF4734C61178F0C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 201095   (768562) от 18.05.2010
-
-UFO: Aftershock / UFO: Возмездие [Ru] (L) 2005
-
->>Win Старые Игры
->>Strategy Tactical (RTS/TBS/Wargame)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Strategy (Real-time / Tactical) / 3D
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

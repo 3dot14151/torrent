@@ -6,7 +6,7 @@ Bix Beiderbecke & Paul Whiteman - 1927 - 1928 (2001) Classics [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166736.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Jazz At Lincoln Center Orchestra - The Abyssinian Mass (2016) 2CD, Blue Engine R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166718.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Yves Brouqui - Live At Smalls (2002) Elabeth [FLAC|Lossless|image + .cue] <Hard 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166682.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Toshiyuki Miyama And His New Herd - Tribute (1978) 1991, Teichiku Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166506.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Chet Baker Trio - Live in Paris: The Radio France Recordings (1983 - 1984) 2CD, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166352.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Erroll Garner - 1944-1945 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166257.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Lee Konitz & The Brazilian Band - Brazilian Serenade (1996) Venus Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166233.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Beegie Adair - Winter Wonderland (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Piano 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166152.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Till Bronner - Christmas (2021) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Cont
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165988.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Ed Neumeister Quartet - New Standards (2005) MeisteroMusic [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165906.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Phil Hey Quartet - Subduction: Live at the Artists' Quarter (2005) Self-Released
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165903.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Berk & The Virtual Band - Jazz Chill / Jazz Chill Vol.2 (2006, 2007) [APE, FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165837.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VA - Smooth Jazz Hits (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165716.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Django Reinhardt - BD Jazz, Vol.2 (1937 - 1953) 2CD, 2006, Nocturne [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165520.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Erroll Garner - 1945-1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165510.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Acker Bilk - Stranger On The Shore (The Best Of) (2001) Sanctuary Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165493.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Stephane Grappelli - Compact Jazz (1987) Verve Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165480.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Jimmy Greene - While Looking Up (2020) Mack Avenue [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165373.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Larry Coryell & Philip Catherine - Jazz at Berlin Philharmonic XI: The Last Call
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165341.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Little Violet - Code Red (2021) [FLAC|Lossless|WEB-DL|tracks] <Nu-Jazz /Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165322.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Anat Cohen - Claroscuro (2012) Anzic Records [FLAC|Lossless|tracks + .cue] <Mode
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165304.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Kenny Drew, Jr. - Kenny Drew, Jr. (1991) Antilles [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165303.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Bill Evans - 25 Evans (2005) 2CD, Universal [FLAC|Lossless|tracks + .cue] <Cool,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165252.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Nat "King" Cole - 1941 - 1943 (1994) Classics [FLAC|Lossless|tracks + .cue] <Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165225.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Django Reinhardt - 1941 - 1942 (1996) Classics [FLAC|Lossless|tracks + .cue] <Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165214.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Harry James - 1940 - 1941 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165076.jpg" />
 </div>
 
 

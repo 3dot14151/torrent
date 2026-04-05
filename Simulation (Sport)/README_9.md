@@ -6,7 +6,7 @@ Monster Energy Supercross 25 - The Official Video Game (2025) [Multi] (1585442/d
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2418.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Way of the Hunter (2022) [Ru/Multi] (1.28a/dlc) License GOG [Elite Edition]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1392.jpg" />
 </div>
 
 

@@ -1,3 +1,56 @@
+###  Публикация: 255292   (356801) от 07.11.2010
+
+О. Н. Пупышева | Задания школьных олимпиад. 1-4 классы (2010) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_356801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее пособие содержит задания для школьных олимпиад в начальной школе по математике, русскому языку и курсу "Окружающий мир". Оригинальные познавательные и интеллектуальные задания позволят раскрыть способности младших школьников, повысить их интерес к различным наукам, развить творческую инициативу. Приводятся полные, подробные ответы.
+Издание адресовано (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256252   (356685) от 21.10.2018
+
+Олеся Лихунова | Хочешь я буду твоей мамой (2017) [FB2, EPUB, PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356685.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Хочешь, я буду твоей мамой?» – дневник Олеси Лихуновой, мамы семерых детей, пятеро из которых – приёмные. Её уверенность в том, что нет нерешаемых задач, и умение найти простые и логичные ответы на сложные вопросы, способность виртуозно организовать жизнь и обучение детей оказались полезными и вдохновили тысячи читателей, и не только родителей. Эта книга – о том, (   Читать дальше...   )Жанр: Воспитание детейФормат: FB2, EPUB, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5C2BFC67A1AF905BB3D03F80FC6FFDD6FA1275F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328833   (356645) от 03.10.2019
 
 Т.В. Стрыгина | Библейские истории для детей (2018) [FB2]
@@ -6,7 +59,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356645.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356330.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356328.jpg" />
 </div>
 
 
@@ -89,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356212.jpg" />
 </div>
 
 
@@ -115,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356208.jpg" />
 </div>
 
 
@@ -141,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356207.jpg" />
 </div>
 
 
@@ -167,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355879.jpg" />
 </div>
 
 
@@ -194,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355778.jpg" />
 </div>
 
 
@@ -221,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355768.jpg" />
 </div>
 
 
@@ -247,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355750.jpg" />
 </div>
 
 
@@ -275,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355647.jpg" />
 </div>
 
 
@@ -301,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355646.jpg" />
 </div>
 
 
@@ -327,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355644.jpg" />
 </div>
 
 
@@ -353,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355484.jpg" />
 </div>
 
 
@@ -380,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355471.jpg" />
 </div>
 
 
@@ -406,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355455.jpg" />
 </div>
 
 
@@ -432,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355451.jpg" />
 </div>
 
 
@@ -458,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355446.jpg" />
 </div>
 
 
@@ -484,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355355.jpg" />
 </div>
 
 
@@ -510,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355325.jpg" />
 </div>
 
 
@@ -538,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355240.jpg" />
 </div>
 
 
@@ -564,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355224.jpg" />
 </div>
 
 
@@ -590,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355027.jpg" />
 </div>
 
 
@@ -617,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354879.jpg" />
 </div>
 
 
@@ -630,58 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:250918F328EFAA3F777C1CFFCD2D7E3B24818FE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072303   (354870) от 12.11.2016
-
-Милош Вацлав Кратохвил | Удивительные приключения Яна Корнела (1958) [PDF, FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354870.jpg" />
-</div>
-
-
-###  Подробнее
-
-О приключениях молодого крестьянина мушкетера Яна Корпела, участника тридцатилетней войны в Чехии, а также о его злоключениях на суше и на море.Жанр: Историческая литература для детейФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD776D241F65D0522485B94376FB51D92C4FEC37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072297   (354778) от 12.11.2016
-
-Ульрих Хуб | Ковчег отходит ровно в восемь (2013) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354778.jpg" />
-</div>
-
-
-###  Подробнее
-
-...И сказано было Ною: "Построй огромный Ковчег и возьми на него от каждой твари по паре". И сделал Ной так, как повелел ему Господь. И взял собой на Ковчег от каждой твари по паре. Вот только пингвинов оказалось трое... Почему? Потому что пингвины своих в беде не бросают! Несмотря на то, что спорят друг с другом буквально до драки обо всем на свете. Есть (   Читать дальше...   )Жанр: СказкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0BDAD3EC4226428EF11BC2BBA6865603D826C40
 ```
 
 https://mybot314.ru/tekegram_catalog/

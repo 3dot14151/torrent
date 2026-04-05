@@ -1,3 +1,55 @@
+###  Публикация: 543803   (490877) от 07.09.2012
+
+Страховщики предлагают видеорегистраторы и навигаторы сделать обязательными
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российский союз автостраховщиков (РСА) предлагает обязать водителей устанавливать на легковые автомобили систему навигации ГЛОНАСС и видеорегистраторы. Наличие этих устройств в будущем позволит водителям оформлять аварии по упрощенной схеме без вызова сотрудников ГИБДД.(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404501   (490804) от 26.08.2020
+
+Восход Эдерлези / Нимани / A.I. Rising (2018) BDRemux [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490804.jpg" />
+</div>
+
+
+###  Подробнее
+
+2048 год. Космонавт Милютин, работающий на корпорацию Эдерлези, отправляется в экспедицию к Альфа Центавра в компании андроида Нимани. Во время долгого путешествия он влюбляется в робота, и космонавту начинает казаться, будто женщина реальна.Производство: Сербия / Film Center Serbia, Mir Media GroupЖанр: Фантастика, драма, мелодрамаРежиссер: Лазар БодрожаАктеры: Себастьян Кавацца, Стоя, Маруша Майер, Кирсти БестерманПеревод: 3xМногоголосый закадровый (iTunes, СВ Студия (ненормативная лексика), HDrezka Studio)Субтитры: Русские (forced), Английские (Full, SDH)Продолжительность: 01:26:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68B1D957339081A723A894FCDAA8FE5B08514D62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 382901   (490689) от 02.09.2011
 
 Cheat Engine 6.1 [Rus]
@@ -6,7 +58,7 @@ Cheat Engine 6.1 [Rus]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490689.jpg" />
 </div>
 
 
@@ -41,7 +93,7 @@ Avira Internet Security 2012 12.1.9.354 SP1 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490619.jpg" />
 </div>
 
 
@@ -69,7 +121,7 @@ Norton 360 2013 20.1.1.2 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490608.jpg" />
 </div>
 
 
@@ -95,7 +147,7 @@ Tekken Tag Tournament 2 [XBOX360] [RUS] [Region Free] (LT+2.0) (2012)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490557.jpg" />
 </div>
 
 
@@ -121,7 +173,7 @@ Norton Internet Security 2013 Final 20.1.1.2 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490551.jpg" />
 </div>
 
 
@@ -147,7 +199,7 @@ Borderlands: Game of the Year Edition [Ru/En] (RePack/1.4.1/4 DLC) 2010 | R.G. �
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490529.jpg" />
 </div>
 
 
@@ -177,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490368.jpg" />
 </div>
 
 
@@ -203,7 +255,7 @@ Google создала оружие для борьбы с интернет-тр�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_489734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_489734.jpg" />
 </div>
 
 
@@ -230,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489411.jpg" />
 </div>
 
 
@@ -256,7 +308,7 @@ Crysis 3 (2013) [Ru] (1.3/dlc) Rip xatab [Hunter Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489408.jpg" />
 </div>
 
 
@@ -282,7 +334,7 @@ Opera 32.0.1948.25 Stable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489380.jpg" />
 </div>
 
 
@@ -308,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489366.jpg" />
 </div>
 
 
@@ -335,7 +387,7 @@ macOS Sierra 10.12 (16A323) [Multi/Ru] (Installer)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489348.jpg" />
 </div>
 
 
@@ -362,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489344.jpg" />
 </div>
 
 
@@ -388,7 +440,7 @@ Daum PotPlayer 1.6.56209 DC 14.09.2015 Stable RePack by 7sh3 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489269.jpg" />
 </div>
 
 
@@ -414,7 +466,7 @@ BBC: Секс, смерть и смысл жизни / Sex, Death and Meaning of
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489268.jpg" />
 </div>
 
 
@@ -443,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488825.jpg" />
 </div>
 
 
@@ -470,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488486.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ Half-Life: Cry of Fear [Ru] (Repack/Mod/1.4) 2012 | z0x
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488484.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_487447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_487447.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487398.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ Agnitum Outpost Firewall Pro 9.2.4859.708.2041 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487187.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487158.jpg" />
 </div>
 
 
@@ -632,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_486908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_486908.jpg" />
 </div>
 
 
@@ -646,58 +698,6 @@ kudzin
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404827   (486761) от 28.08.2020
-
-Hotspot Shield VPN Business 9.8.7 RePack by epxilion90 & Hss721 [x64] [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hotspot Shield VPN - самое полное решение проблем безопасности в интернете. Защищает ваши сессии в веб-браузере, обнаруживает и блокирует вредоносное ПО, сохраняет конфиденциальность, обеспечивает доступ к заблокированным сайтам. Hotspot Shield делает безопасным просмотр веб-страниц, защищая ваше (проводное или беспроводное) соединение дома и в общественных местах. (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD58A1B50C752EDE8AB133E069C146F702280A7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319261   (486338) от 10.08.2019
-
-Знакомьтесь, Ибалы (2017) WEB-DLRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная героиня повествования – молодая девушка, происходящая родом из типичного горного аула. Ее зовут Ибалы и у нее есть слегка неадекватный молодой человек. Устав от тяготящих ее взаимоотношений со странноватым типом, Ибалы решает перебраться в Астану. В столице девушка всерьез намеревается учиться. Но освоиться в большом шумном городе скромной провинциалке не (   Читать дальше...   )Производство: КазахстанЖанр: КомедияРежиссер: Кальменов ДарханбекАктеры: Макулбек Арна, Исембаев Саят, Молдахан Нурканат, Мамреев Спандияр, Алайдарова Сапара, Асадов ЗакирЯзык озвучки: русский, казахскийСубтитры: русские (hardsub на казахскую речь)Продолжительность: 01:31:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C32D5EDE7C54D6AECEB4163F50CBC5B96CFF76D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

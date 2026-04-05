@@ -1,3 +1,56 @@
+###  Публикация: 1388694   (185704) от 25.11.2020
+
+Creative Shrimp | 50 адских ошибок в 3D моделировании в Blender 2.8 / 50 Modeling Issues From Hell in Blender 2.8 (2020) PCRec [RU, EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это руководство по исправлению 50+ наиболее распространенных, а также некоторых диких и редких проблем 3D-моделирования в Blender.
+3D-моделирование - это трудно, существует так много нюансов из-за которых что-то может пойти не так. Даже если вы чувствуете себя более или менее комфортно с 3D-моделированием в Blender, всегда есть много вещей, которые могут испортить (   Читать дальше...   )Производство: Creative ShrimpЖанр: 3D моделированиеЯзык озвучки: Русский, АнглийскийСубтитры: АнглийскиеПродолжительность: 07:58:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:297978D2F1144E14FAE1F23D281DFA5B14B3A0FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426698   (185699) от 25.11.2020
+
+Yiihuu, Hooman Raad | The Dwarf Warrior: 3D Character Creation For Game / Воин гном: создание 3D игрового персонажа [En] (2019) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185699.jpg" />
+</div>
+
+
+###  Подробнее
+
+По ходу курса вы шаг за шагом будете создавать персонажа-воина для продакшена. Вы узнаете, как начать и спланировать проект, познакомитесь с методами моделирования волос, оружия и одежды для игр. В Unreal Engine 4 вы научитесь наносить реалистичный материал на персонажа, а также узнаете множество трюков для низко- и высокополигонального моделирования и текстурирования (   Читать дальше...   )Производство: YiihuuЖанр: 3D-графикаЯзык озвучки: АнглийскийПродолжительность: 62:21:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D48211A12BA0CA9F01D683A60341B67C39E3FD4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1664276   (185683) от 25.09.2023
 
 Motion Design School | Blender Workout (2023) WEB-DL [AD] [EN / EN Sub]
@@ -6,7 +59,7 @@ Motion Design School | Blender Workout (2023) WEB-DL [AD] [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_185683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_185683.jpg" />
 </div>
 
 
@@ -35,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185226.jpg" />
 </div>
 
 
@@ -62,7 +115,7 @@ ZartSchool, Татьяна Зубова | Портрет. Онлайн курс 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185162.jpg" />
 </div>
 
 
@@ -91,7 +144,7 @@ Kalachevaschool, Аксинья La Paloma | Дети в цифровой илл�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185154.jpg" />
 </div>
 
 
@@ -118,7 +171,7 @@ Udemy, Eric Ebling | Master Houdini FX: Create Stunning Visual Effects rigs (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185139.jpg" />
 </div>
 
 
@@ -146,7 +199,7 @@ Skvot, Саша Богатов | Как разбудить креативнос�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185057.jpg" />
 </div>
 
 
@@ -175,7 +228,7 @@ Udemy, Nikolay Stanchev | Unreal Engine 5 The Complete Beginner's Cinematic Cour
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185026.jpg" />
 </div>
 
 
@@ -201,7 +254,7 @@ Professor Of How, Kishor |  Master 3D With Professor (2022) PCRec [Hindi]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184923.jpg" />
 </div>
 
 
@@ -227,7 +280,7 @@ Wingfox, David Zavala | Female Bust Course in Marmoset Toolbag (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184821.jpg" />
 </div>
 
 
@@ -253,7 +306,7 @@ Pixel, Татьяна Климань | Иллюстрации в Adobe Illustrat
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184780.jpg" />
 </div>
 
 
@@ -282,7 +335,7 @@ Udemy, Кирилл Несмелов | Дизайн мобильного при�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184718.jpg" />
 </div>
 
 
@@ -308,7 +361,7 @@ Enterclass, Владислав Татаринов | Букет сирени (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184695.jpg" />
 </div>
 
 
@@ -334,7 +387,7 @@ Geekbrains | Дизайн и проектирование интерфейсов
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184690.jpg" />
 </div>
 
 
@@ -363,7 +416,7 @@ Udemy, Andrei Neagoie и др. | Полный веб и мобильный ди�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184661.jpg" />
 </div>
 
 
@@ -389,7 +442,7 @@ CGcircuit, Bishoy Khalifa | Sand Bag Tearing in Houdini (2021) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_184577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_184577.jpg" />
 </div>
 
 
@@ -415,7 +468,7 @@ Rebelway, Val David | Using Solaris in Houdini (2022) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184377.jpg" />
 </div>
 
 
@@ -444,7 +497,7 @@ Rebelway, Corbin Mayne | VEX For Houdini Artists (2020) WEB-DL [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184266.jpg" />
 </div>
 
 
@@ -472,7 +525,7 @@ Wingfox, Steffen Hampel | Creating a Photorealistic Japanese Alleyway with Maya 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184079.jpg" />
 </div>
 
 
@@ -500,7 +553,7 @@ Granich.Design, Вадим Гранич | Графсистема UI-дизайн
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184076.jpg" />
 </div>
 
 
@@ -528,7 +581,7 @@ Wingfox, MikeHong | Creating a photorealistic character Joan of Arc (2021) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184068.jpg" />
 </div>
 
 
@@ -554,7 +607,7 @@ Wingfox, David Masana Lafuente | 3D Game-Ready Environment In Unreal Engine 4 (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184055.jpg" />
 </div>
 
 
@@ -580,7 +633,7 @@ CGcircuit, Stefan Bredereck | FX MAYHEM 102 - Smokeless Fire & Flames (2021) WEB
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_183899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_183899.jpg" />
 </div>
 
 
@@ -607,7 +660,7 @@ CG Forge, Tyler Bay | Pyro III – Large Explosions (2022) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_183856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_183856.jpg" />
 </div>
 
 
@@ -634,7 +687,7 @@ Enterclass, Анна Иванова | Ахалтекинец (2023) WEB-DL [AD] 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183836.jpg" />
 </div>
 
 
@@ -645,58 +698,6 @@ Enterclass, Анна Иванова | Ахалтекинец (2023) WEB-DL [AD] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47EB82BFE86814ADCE0C9242A33BC4022B6AC1DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665008   (183821) от 28.09.2023
-
-Enterclass, Сергей Лысый | Солнце за костелом (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мастер-класс Сергея Лысого открывает путь в мир рисования городских пейзажей. Вечная борьба света и тени — без этого не бывает пейзажа. Хитрое солнце выглядывает из-за старинного костела и, как будто бы, дразнится, смеется над легкой осенней грустью. Такой необычный свет можно встретить в солнечный день в любом маленьком городке и в мегаполисе. Главное увидеть его (   Читать дальше...   )Производство: EnterclassЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 02:35:42Реклама: Наложение на видео, видео вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7739D73271CF9BEB2293E8D81D9A19D0084B08E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426852   (183800) от 27.11.2020
-
-New Masters Academy, Steve Huston | Художественная анатомия для начинающих / Art Anatomy for Beginners (2020) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы знаете, что вам нужно изучить анатомию человека, но вы не знаете, с чего начать, то этот курс для вас. Известный художник Стив Хьюстон дает вам введение в анатомию с точки зрения механики движения и эстетики, что является лучшим первым шагом на вашем пути к изучению тела. Вы узнаете меньше об анатомических деталях и больше о том, как упростить структуру тела (   Читать дальше...   )Производство: New Masters AcademyЖанр: РисованиеЯзык озвучки: АнглийскийПродолжительность: 11:29:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DACED13699628EF87719F4F65A93F3D0A0134B91
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Faith No More - Greatest Hits (2001) [FLAC|Lossless]<Alternative>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_647888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_647888.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Algiers - Algiers (2015) [FLAC|tracks|Web-DL] <Post-Punk, Indie, Experiemental, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647548.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ From Ashes To New - The Future (2018) [FLAC|Lossless|tracks + .cue] <Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646704.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Blink-182 - California (2016) Japanese Edition [FLAC|Lossless|tracks + .cue] <Po
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645691.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Zebrahead - Brain Invaders (2019) Japan Edition [FLAC|Lossless|tracks + .cue] <P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645182.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Hole - Celebrity Skin (1998) [WavPack|Lossless|image + .cue] <Grunge, Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643910.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ And the Kids - When This Life Is Over (2019) [FLAC|Lossless|tracks + .cue] <Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643387.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ From Ashes To New - Day One (2016) [FLAC|Lossless|tracks + .cue] <Alternative Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643140.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ H.E.R.O. - Alternate Realities (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643129.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Ska-P - Game Over (2018) [FLAC|Lossless|tracks + .cue] <Ska, Ska-punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643127.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Landmvrks - 5 Albums (2016-2022) [FLAC|Lossless|WEB-DL|tracks|tracks + .cue] <Me
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643122.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Hoobastank - Push Pull (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643062.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Adult Mom - Soft Spots (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642974.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ The Afghan Whigs - In Spades (2017) [FLAC|Lossless|tracks + .cue] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642972.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Jon Spencer & The Hitmakers - Spencer Gets It Lit (2022) [FLAC|Lossless|WEB-DL|t
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641216.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Pillow Queens - Leave The Light On (2022) [FLAC|Lossless|WEB-DL|tracks] <Alterna
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641087.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Iggy Pop - Preliminaires (2009) [FLAC|Lossless|tracks + .cue] <Alternative Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641048.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Nickelback - Feed The Machine (2017) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640787.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Biffy Clyro - Ellipsis (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639994.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Deftones - The Very Best Of The Deftones (2015) [FLAC|tracks + .cue]<Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639541.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Warmduscher - At The Hotspot (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639244.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ David Gray - Gold In A Brass Age (2019) [FLAC|Lossless|tracks + .cue] <Rock, Alt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639207.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Ty Segall - Deforming Lobes (2019) Live [FLAC|Lossless|tracks + .cue] <Garage Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635674.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Echobelly - Anarchy and Alchemy (2017) [FLAC|Lossless|tracks] <Alternative Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635386.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Apoptygma Berzerk - Rocket Science (2009) [FLAC|Lossless|image + .cue] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635255.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Ska-P - Live In Woodstock Festival (2016) [FLAC|Lossless|tracks + .cue] <Ska, Sk
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633825.jpg" />
 </div>
 
 

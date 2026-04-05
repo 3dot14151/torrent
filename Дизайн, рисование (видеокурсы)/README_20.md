@@ -1,3 +1,56 @@
+###  Публикация: 1493165   (897194) от 02.09.2021
+
+Allegorithmic, Wes McDermott | Substance in Unreal Engine 4 (2015) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в курс по применению разработок Substance на движке Unreal Engine 4.
+В данном курсе подробно показан весь процесс разработки Substance материала для футуристических "ворот". Затем материал во всей его полноте экспортируется в движок. Далее, уже на движке, демонстрируются уникальные возможности Substance материалов. Более подробно в содержании (   Читать дальше...   )Производство: AllegorithmicЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 04:02:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:647022B9FF429B747E8C21D7A027E6CC848290E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493372   (897187) от 02.09.2021
+
+Rohan Dalvi | Introduction to Vex for Visual Effects in Houdini (2017) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот мастер-класс познакомит вас с Vex, языком программирования в Houdini. Вам не потребуется никаких предварительных знаний программирования, а если хотите пропустить объяснения и сразу перейти к работе над проектом, то начинайте смотреть видео с 4 минуты.Жанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6CCEA6BC944E253ECFA67ABE1B5AB89500212D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493298   (897170) от 02.09.2021
 
 Udemy, Erindale Woodford | Procedural Materials in Blender 2.9 (2021) PCRec [EN / EN Sub]
@@ -6,7 +59,7 @@ Udemy, Erindale Woodford | Procedural Materials in Blender 2.9 (2021) PCRec [EN 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897170.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ Digital Tutors, Joshua Kinney | Creating Animal Fur for Games in Substance Paint
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897166.jpg" />
 </div>
 
 
@@ -62,7 +115,7 @@ Digital Tutors, Alex Tuzhikov | Modeling an Interior Scene from Photo Reference 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897087.jpg" />
 </div>
 
 
@@ -88,7 +141,7 @@ ArtClever, Тина Хабарова | Курс «Декоратор» [LITE в�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897078.jpg" />
 </div>
 
 
@@ -115,7 +168,7 @@ Lynda.com | Основные принципы дизайна логотипа (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896775.jpg" />
 </div>
 
 
@@ -141,7 +194,7 @@ Udemy | Архитектурный дизайн и анимация в Blender 2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896380.jpg" />
 </div>
 
 
@@ -167,7 +220,7 @@ Rohan Dalvi | Shader building in Houdini (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895321.jpg" />
 </div>
 
 
@@ -194,7 +247,7 @@ CG Cookie | Понимание данных Blender / Understanding Blender Data
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893359.jpg" />
 </div>
 
 
@@ -221,7 +274,7 @@ CG Cookie | Производственный дизайн в Blender 2.8 и  Eev
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893296.jpg" />
 </div>
 
 
@@ -248,7 +301,7 @@ CG Cookie | Основы анимации в Blender 2.8 / Fundamentals of Anima
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893232.jpg" />
 </div>
 
 
@@ -276,7 +329,7 @@ CG Cookie | Анимация пламени с помощью Grease Pencil в B
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891609.jpg" />
 </div>
 
 
@@ -302,7 +355,7 @@ CG Cookie | Создание и анимация низкополигональ�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891586.jpg" />
 </div>
 
 
@@ -329,7 +382,7 @@ CG Cookie | Создание анимированного игрового Sci-F
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889833.jpg" />
 </div>
 
 
@@ -355,7 +408,7 @@ ArtStation, Bailey Facer | Violent Seduction – Tempeste Set Creation (2021) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888913.jpg" />
 </div>
 
 
@@ -384,7 +437,7 @@ Domestika, Karmen Loh | Lighting and Color for Digital Portraits in Photoshop (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888720.jpg" />
 </div>
 
 
@@ -411,7 +464,7 @@ CG Cookie | Создание процедурных песчаных дюн в B
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888149.jpg" />
 </div>
 
 
@@ -437,7 +490,7 @@ CG Cookie | Риггинг трансформирующейся винтовки
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888107.jpg" />
 </div>
 
 
@@ -463,7 +516,7 @@ CG Cookie | Анимация оружия персонажей от первог
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888092.jpg" />
 </div>
 
 
@@ -489,7 +542,7 @@ Unreal Engine, Jerome Platteaux | Lighting with Unreal Engine Masterclass (2017)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887383.jpg" />
 </div>
 
 
@@ -515,7 +568,7 @@ Udemy, Michael Ricks | Learn How To Do Amazing Cloth Animation In Unreal Engine 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887331.jpg" />
 </div>
 
 
@@ -541,7 +594,7 @@ Epic Games, Mathew Wadstein | UE4 Projects and File Structure (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885923.jpg" />
 </div>
 
 
@@ -567,7 +620,7 @@ Packt Publishing, Jonathan A. Daley | Building an Unreal RTS Game: Adding Killer
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885919.jpg" />
 </div>
 
 
@@ -593,7 +646,7 @@ Udemy, Cubo Class и др. | Unreal Engine 4 Class. Blueprints Part 1-4 (2018) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885353.jpg" />
 </div>
 
 
@@ -620,7 +673,7 @@ CG Cookie | Создание зацикленного коридора в Blende
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885168.jpg" />
 </div>
 
 
@@ -631,59 +684,6 @@ CG Cookie | Создание зацикленного коридора в Blende
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1555B8ABA8E898A934D2B9599FD25CA9686E8E1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372538   (884949) от 03.04.2020
-
-CG Cookie | Создание мини-танка для мобильных игр в Blender 2.8 / Creating Mini Tanks for a Mobile Game with Blender 2.8 (2018) PCRec [H.264/1080p-LQ] [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884949.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе вы узнаете все о том, как создавать мини-танки для мобильной игры! Мы рассмотрим все аспекты моделирования и текстурирования, включая советы и рекомендации, такие как рисование слоями в Blender 2.8, как работать с файлами Photoshop, комбинирование процедурных текстур с текстурами нарисованными вручную в одном изображении и многое другое!Производство: CG CookieЖанр: 3D моделированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 04:44:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:750BEE3E14D41619FE6098D12E1229D2992AA46C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372539   (884800) от 03.04.2020
-
-CG Cookie | Создание анимации с ригом в Grease Pencil в Blender 2.8 / Create Rigged Grease Pencil Animations in Blender 2.8 (2018) PCRec [H.264/1080p-LQ] [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Откройте для себя мощный потенциал Grease Pencil в Blender 2.8 и рига для 2D-анимации. Рисованная анимация с использованием арматур и групп вершин, это подход позволяющий преодолеть разрыв между 2D и 3D анимацией.
-Часто 2D-анимация и 3D-анимация существуют как свои собственные уникальные формы искусства, эстетика, инструменты и приложения. Но Grease Pencil в Blender (   Читать дальше...   )Производство: CG CookieЖанр: 2D анимацияПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 00:48:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C48D9FD752B8BDB58594997184BE1CA5A623102E
 ```
 
 https://mybot314.ru/tekegram_catalog/

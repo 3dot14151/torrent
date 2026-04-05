@@ -1,3 +1,216 @@
+###  Публикация: 946934   (419995) от 16.10.2015
+
+Первая в мире полностью роботизированная сельскохозяйственная ферма начнет функционировать в Японии в 2017 году
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_419995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роботы, без сомнения, являются идеальными сельскохозяйственными работниками будущего. В качестве доказательства этому утверждению японская компания Spread занимается сейчас строительством первой в мире фермы по выращиванию салата, работать на которой будут исключительно роботы под управлением специализированных компьютеров. Согласно планам, эта ферма начнет работать (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 724240   (419776) от 16.10.2015
+
+Deep Purple - Machine Head (1972) [FLAC 2.0 24/192|tracks(Vinyl-Rip)]<Rock, Heavy Metal>
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Highway Star  6:06
+2. Maybe I'm A Leo  4:52
+3. Pictures Of Home  5:06(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07725C1E7A70A39DFCD7AD3FAB5107E6FA0E1CAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947419   (419627) от 16.10.2015
+
+Cowon jetAudio 8.1.4.303 Plus Retail [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419627.jpg" />
+</div>
+
+
+###  Подробнее
+
+JetAudio - это универсальный проигрыватель музыкальных и видео файлов, риппер, конвертер и т.д., в общем, все в одном комплекте. Программа поддерживает практически все музыкальные форматы, умеет проигрывать MP3, MP2, WAV, MID, REAL AUDIO/VIDEO, S3M, MOD, MPG, AVI, MOV, Video/Audio CD, RealPlayer G2 и некоторые другие форматы мультимедийных файлов. Позволяет записывать (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47037DD354CC46F0498C0CFEFA411B1B18DDCEFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947296   (419624) от 16.10.2015
+
+DisplayFusion Pro 7.3.1 Final [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419624.jpg" />
+</div>
+
+
+###  Подробнее
+
+DisplayFusion многофункциональная программа изменения и настройки интерфейса Windows. С ее помощью вы сможете: расположить в заголовках окон настраиваемые кнопки управления с дополнительными опциями управления окна; задать привила расположения и размеров окон, а так же их взаимодействия между собой и краями монитора; использовать сетевые источники фоновых изображений (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD6647D0E244F446FB93220138DF8B381E2AAD56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947014   (419619) от 16.10.2015
+
+Adobe Acrobat Professional DC (v15.9) Multilingual
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419619.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Acrobat Professional DC — это полностью обновленная настольная версия лучшего в мире решения для работы с файлами PDF. В состав этого решения входит мобильное приложение, позволяющее подписывать и отправлять файлы PDF, а также заполнять формы с любых устройств. Он содержит множество интеллектуальных функций, которые предоставляют дополнительные возможности (   Читать дальше...   )Язык интерфейса: Английский / Венгерский / Голландский / Датский / Испанский / Итальянский / Китайский (упрощенный) / Китайский (традиционный) / Корейский / Немецкий / Норвежский / Польский / Португальский / Русский / Словацкий / Словенский / Турецкий / Украинский / Финский / Французский / Чешский / Шведский / Японский / Английский с поддержкой арабского письма / Английский с поддержкой (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5885164D794832C4989DD18D6DA3CFD27A7F5F27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947112   (419618) от 16.10.2015
+
+Windows 10 (x86/x64) 12in1 by SmokieBlahBlah 15.10.15 [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419618.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 редакций Windows 10 с обновлениями по октябрь 2015, основанных на оригинальных образах. В самих образах ничего не вырезано и не протвикано, интегрированы обновления по октябрь 2015, .NET Framework 3.5, RuntimePack, VC++ 2005-2015, DirectX 9.
+Присутствует "Настройка установки" (см. 2-ый скриншот)
+В boot.wim (x86) интегрирован софт (см. 3-ой скриншот). (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5C23CA5E19FDD37B43BADB01E637DF2793E8FFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947237   (419617) от 16.10.2015
+
+TNod User & Password Finder 1.6.0 Beta + Portable [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419617.jpg" />
+</div>
+
+
+###  Подробнее
+
+TNOD User & Password Finder – это программа, которая при каждом запуске системы или по требованию пользователя, ныряет в интернет и ищет ключи для ESET NOD32 Smart Security и ESET NOD32 Antivirus всех версий 2.5.x, 2.7.x, 3.x, 4.x, 5.x, 6.x, 7.x, 8.x y 9.0 и автоматически вставляет их. Также в программе есть возможность сохранить найденные ключи в текстовом формате. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAE6EC4AF4A9F949AD6F74172406BF86C356A814
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 837820   (419615) от 16.10.2015
+
+Call Of Duty: Advanced Warfare (2014) [PS3] [EUR] [3.55] [Cobra ODE / E3 ODE PRO ISO] [PSN / 1.20 / 9 DLC] [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Call of Duty: Advanced Warfare — шутер от первого лица, разрабатываемый студией Sledgehammer Games при поддержке High Moon Studios. Действие Call of Duty: Advanced Warfighter разворачивается в не столь далеком будущем, в котором частные военные компании стали самыми эффективными войсками, услугами которых пользуются страны во всем мире, а самым могущественным человеком (   Читать дальше...   )Тип издания: PSNРазработчик: Sledgehammer GamesЖанр: Action (Shooter) / 1st PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26E072895CD0CE7F01D3F44E27135C7CBACC1DD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 946905   (419614) от 16.10.2015
 
 Пиковая дама: Черный обряд (2015) WEB-DL [H.264/1080p-LQ]
@@ -6,7 +219,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419614.jpg" />
 </div>
 
 
@@ -32,7 +245,7 @@ Destiny + Destiny: The Taken King (2014) [PS3] [EUR] 4.60 [Repack / 1.16 / 10 DL
 >>12
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419612.jpg" />
 </div>
 
 
@@ -58,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419611.jpg" />
 </div>
 
 
@@ -84,7 +297,7 @@ Daily Beast рассказал о «новом оружии»  хакеров
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_419286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_419286.jpg" />
 </div>
 
 
@@ -110,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_419278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_419278.jpg" />
 </div>
 
 
@@ -136,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419274.jpg" />
 </div>
 
 
@@ -162,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_418995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_418995.jpg" />
 </div>
 
 
@@ -188,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_418988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_418988.jpg" />
 </div>
 
 
@@ -215,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418721.jpg" />
 </div>
 
 
@@ -241,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_418714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_418714.jpg" />
 </div>
 
 
@@ -267,7 +480,7 @@ Tor Project представил альтернативные способы у�
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_418704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_418704.jpg" />
 </div>
 
 
@@ -294,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418698.jpg" />
 </div>
 
 
@@ -320,7 +533,7 @@ iGO primo Nextgen v9.18.27.689739 / 9.18.28.696728 + Content [Multi]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418697.jpg" />
 </div>
 
 
@@ -346,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418594.jpg" />
 </div>
 
 
@@ -372,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_418342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_418342.jpg" />
 </div>
 
 
@@ -398,7 +611,7 @@ Slimjet 12.0.6.0 + Portable [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418323.jpg" />
 </div>
 
 
@@ -424,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_418318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_418318.jpg" />
 </div>
 
 
@@ -450,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>15
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_418130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_418130.jpg" />
 </div>
 
 
@@ -461,226 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324895   (418123) от 12.09.2019
-
-Человек-паук: Вдали от дома / Spider-Man: Far from Home (2019) WEB-DLRip [H.264/1080p-LQ] [Line, AD]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Питер Паркер вместе с друзьями отправляется на летние каникулы в Европу. Однако отдохнуть приятелям вряд ли удастся — Питеру придется согласиться помочь Нику Фьюри раскрыть тайну существ, вызывающих стихийные бедствия и разрушения по всему континенту.Производство: США, Columbia Pictures Corporation, Marvel Studios Inc., Pascal Pictures, Stereo DЖанр: Фантастика, Боевик, ПриключенияРежиссер: Джон УоттсАктеры: Том Холланд, Сэмюэл Л. Джексон, Джейк Джилленхол, Мариса Томей, Джон Фавро, Зендея, Джейкоб Баталон, Тони Револори, Энгаури Райс, Реми ХайПеревод: Дублированный (Чистый звук)Субтитры: ОтсутствуютПродолжительность: 02:08:00Реклама: Присутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD2B025E5BE55215FF462912FC3179D606E03EE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 557508   (418064) от 08.10.2012
-
-Recovery DVD for Packard Bell EasyNote TE 11-HC / Windows 7 Home Basic (х64) SP1 [русский]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_418064.jpg" />
-</div>
-
-
-###  Подробнее
-
-В раздаче содержится 5 образов дисков восстановления.
-
-Диски записаны на Packard Bell EasyNote TE11-HC-B9704G32Mnks после первого включения ноута.
-Производят восстановление ноутбука до заводских настроек.
-4 образа записанные программой Packard Bell Recovery Manegment
-(Recovery1,2,3,4)
-В пятом содержатся драйвера и ПО (можно использовать отдельно)
-(AppDrv1)Язык интерфейса: русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550008   (418062) от 08.10.2012
-
-F1 2012 [Ru] (Repack/1.2.3.0) 2012 | Fenixx
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418062.jpg" />
-</div>
-
-
-###  Подробнее
-
-F1 2012 — это новая часть всемирно известной серии гоночных симуляторов. В этой игре каждый игрок сможет почувствовать себя настоящим гонщиком Formula 1. Вам предстоит не только участвовать в гонках, но и давать интервью репортерам, совершенствовать свой болид, налаживать отношения со своей командой и делать все, чтобы стать гонщиком номер один!
-В режиме чемпионов вас встретят настоящие гонщики — Кими Райкконен, Льюис Хэмилтон, Дженсон Баттон, Фернандо Алонсо, Себастьян Феттель и Михаэль Шумахер. Обойдя каждого в напряженной схватке, вы сможете доказать свое превосходство и стать обладателем титула чемпиона.
-В игре присутствуют все официальные команды, гонщики и трассы из чемпионата Formula 1 2012-го года.(   Читать дальше...   )Тип издания: Repack (Лицензии)Жанр: Racing / Simulator / 3DЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84D27DC32A7E1688C3C4BE636E9CAB4F19818AA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 557962   (418058) от 08.10.2012
-
-Acronis Disk Director Home 11.0.2343 Final RePack by KpoJIuK [Русский]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_418058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Acronis Disk Director 11 Home – это новая версия самого функционального продукта для управления дисками. Если вам нужна максимальная производительность дисков и безопасность данных, этот пакет предлагает лучшие инструменты для создания, изменения размеров, переноса и объединения разделов без потери данных. Acronis Disk Director 11 Home предлагает новые мощные функции – поддержку Windows 7, поддержку динамических и GPT-дисков, распределение томов по нескольким дискам и многое другое.Название программы: Acronis Disk Director HomeЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065490   (418017) от 23.10.2016
-
-Spellforce (2005) [Ru/En] (1.54.75000/dlc) License GOG [Platinum Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418017.jpg" />
-</div>
-
-
-###  Подробнее
-
-SpellForce - это удивительный мир волшебства, могущественных и безумных магов. Под действием магии были освобождены Элементы, которые обладают невиданной разрушительной силой! Они повергли мир в хаос, Земля изменилась до неузнаваемости. Целые страны исчезли с лица Земли, континенты рушились и разделялись на мелкие кусочки... Зло исчезло так же неожиданно, как и появилось.Тип издания: LicenseРазработчик: JoWooD Productions SoftwareЖанр: Strategy (Real-time), RPG, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47E25B26F79E7774603536E014416F7E66AAD84F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065549   (418011) от 23.10.2016
-
-Антирадар MapcamDroid / MapcamDroid Speedcam 2.4.184 [Ru/Multi]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418011.jpg" />
-</div>
-
-
-###  Подробнее
-
-MapcamDroid - приложение, которое относится к категории программ, именуемых "антирадарами". Служат они для того, чтобы своевременно предупреждать водителя о постах ДПС, камерах контроля скорости и некоторых других объектах, о приближении к которым неплохо было бы знать заранее. Представленное приложение является одним из самых продвинутых в своем роде. (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 2015Разработчик: Mapcam.infoПоддерживаемая ОС: Android 2.2 и вышеЯзык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F15B502C180DB41D2C173514A4D03C8B831DABCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945001   (418010) от 23.10.2016
-
-Подшивка журналов | Арт-терапия. Творчество и релаксация №1-37 + Доп. материалы (2015-2016) [PDF, JPG] [Обновляемая]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая оригинальная коллекция для творческого досуга «Арт-терапия» позволит окунуться в мир раскрашивания и расскажет, как с помощью этого занятия снять напряжение и пробудить в себе творческое начало.
-В каждом выпуске – журнал с новыми схемами для раскрашивания, увлекательными статьями о значении цветов и форм, приемы и советы по раскрашиванию, упражнения для медитации (   Читать дальше...   )Жанр: Творчество, психологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A188E913C2F9763BCD69D61276293599F4302680
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412523   (417823) от 29.09.2020
-
-Александр Неукропный | Товарищ Сталин. Личность без культа (2020) [EPUB]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417823.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иосиф Виссарионович Сталин… Что вы знаете об этом человеке?
-Что он «виновен в гибели миллионов людей»? Что он – коварный и жестокий тиран?
-Что в Великой Отечественной мы победили не благодаря ему, а вопреки его приказам? Что СССР при Сталине был «страной-концлагерем»? Но что, если все это – ложь? Что, если вас обманули, заставив поверить в то, чего не было? Что, (   Читать дальше...   )Жанр: Отечественная история, ПублицистикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56111EE5BDF68B3A45CDFE446CD12BB7741670D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

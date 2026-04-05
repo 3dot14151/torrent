@@ -1,3 +1,55 @@
+###  Публикация: 1336019   (281789) от 05.11.2019
+
+The Outer Worlds (2019) [Ru/Multi] (1.0) Repack R.G. Механики
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281789.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Outer Worlds — новая однопользовательская научно-фантастическая ролевая игра с видом от первого лица, над которой работают Obsidian Entertainment и Private Division. В The Outer Worlds вы пробуждаетесь после гибернации на корабле поселенцев, пропавшем по пути к Альциону — самой дальней земной колонии на краю галактики. Вы оказываетесь в центре масштабного заговора, (   Читать дальше...   )Тип издания: RepackРазработчик: Obsidian EntertainmentЖанр: RPG, Adventure, Sci-fi, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:529A3352ACA042B2F50C46F2040BA31339C81109
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187140   (281625) от 27.11.2017
+
+Nox (2000) [En] (1.2) License GOG
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281625.jpg" />
+</div>
+
+
+###  Подробнее
+
+Превосходное сочетание жанров боевика и ролевой игры с уникальным игровым процессом. Ваше имя – Джек Моэур; вы жили себе в XX веке... пока в один прекрасный день телевизор не затянул вас в мир Nox. Мир этот, конечно же, в опасности. Прежде чем ринуться на его спасение, выберите путь воина, мага или заклинателя. Выбрав путь воина, вы сможете пользоваться любыми типами (   Читать дальше...   )Тип издания: LicenseРазработчик: Westwood StudiosЖанр: Ролевая игра, Экшн, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A49CC6742991C426339CF3C0F005AEF6A4C968DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 964518   (281507) от 11.12.2015
 
 Lightning Returns: Final Fantasy XIII (2015) [En/Multi] (1.0.) Repack =nemos=
@@ -6,7 +58,7 @@ Lightning Returns: Final Fantasy XIII (2015) [En/Multi] (1.0.) Repack =nemos=
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281507.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Lightning Returns: Final Fantasy XIII (2015) [En/Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281506.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ The Incredible Adventures of Van Helsing III (2015) [Muli] (1.0.6b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279896.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ SINNER: Sacrifice for Redemption (2018) [Ru/Multi] (1.0) License SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277508.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Krater (2012) [Ru/Multi] (1.10.1/dlc) Repack R.G. Revenants
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277396.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Beltion: Beyond Ritual / Бельтион: Свод равновесия (2009) 
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277278.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Might and Magic 8: Day of the Destroyer (2000) [En/Fr/Ge] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276703.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Mount and Blade: With Fire and Sword / Mount & Blade: Огнём и мечом: 
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275454.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ Seven: The Days Long Gone (2017) [Ru/Multi] (1.0) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275436.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ The Dwarves (2016) [Ru/Multi] (1.1.2) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274228.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ Dragon Age 2 / Эпоха Дракона 2 (2011) [Ru/En] (1.0.4.0/dlc) Repack F
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272725.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ Two Worlds II & Pirates of the Flying Fortress / Два Мира 2 & Пират�
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272720.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ Mount & Blade: With Fire & Sword / Mount & Blade: Огнём и мечом: Ве
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271615.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ CODE VEIN (2019) [Ru/Multi] (1.01.86038) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271109.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ Rune II (2019) [Ru/Multi] (0.0.9L) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271108.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ The Elder Scrolls: Arena (1994) [Ru] (1.0) Repack pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270618.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ RUNE II (2019) [Ru/Multi] (0.0.9L) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270205.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ Gorky 17 / Горький-17: Запретная зона (1999) [Ru/Multi] (1.0
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268592.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ King of Dragon Pass (2015) [En] (1.0.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268506.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ Fictorum (2017) [En] (2.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267664.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ Kenshi (2018) [Ru/Multi] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266284.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ The Temple of Elemental Evil (2003) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265252.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ Expeditions: Viking (2017) [Ru/Multi] (1.0.7.3/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264331.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ ARK: Survival Evolved (2017) [Ru/Multi] (275/dlc) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264323.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ ARK: Survival Evolved (2017) [Ru/Multi] (275/dlc) License RELOADED
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4DD832C6E93EE2F1BA4AF583816B4C5C0AFFAE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340916   (263184) от 25.11.2019
-
-Fictorum (2017) [En] (2.0.4) Repack Other s
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Царство террора, как никогда, кажется таким приятным, когда вы не оставляете буквальную камня на камне на своем пути. Fictorum - это ролевая игра о волшебнике приговоренному к смертной казни, в которой есть полностью разрушаемые структуры, рандомизированная карта мира, магическая система с формированием и настройкой заклинаний «на лету».Тип издания: RepackРазработчик: Scraping Bottom GamesЖанр: Action, RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A26687DDB8100A683D8A8754813BF92371EF7BA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192536   (262963) от 17.12.2017
-
-Star Wars™: Knights of the Old Republic (2003) [Multi] (1.0.3.0) License GOG
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выберите свой путь! За четыре тысячи лет до возникновения Империи галактическая Республика едва не распалась. Дарт Малак, последний выживший ученик темного лорда Ревана, повел непобедимую армаду ситхов против галактики, которая была к этому не готова. Завоеватель Дарт Малак ломал любое сопротивление. Орден джедаев был рассеян и ослаблен: много рыцарей-джедаев погибло (   Читать дальше...   )Тип издания: LicenseРазработчик: BioWare CorporationЖанр: Ролевая игра, Приключение, ФантастикаЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Английский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F973740C6009AB7E6F4C32AA57F236D40F2645A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

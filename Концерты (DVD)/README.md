@@ -7,7 +7,7 @@ Linkin Park - Концерт в Техасе / Linkin Park - Live in Texas (2003
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041268.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Alice Cooper - The Detroit Stories / Alice Cooper - The Detroit Stories (2021) D
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028023.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023956.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022195.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Swinging Bach - Bobby McFerrin and Guests (Live in Leipzig) (2000) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013935.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Greatest Irish Artists - Gaelforce (1997) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013832.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012307.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006056.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Bond. Classified (DVD)
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004399.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999576.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Adele - Live At The Royal Albert Hall (2011) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998790.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996597.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995761.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995749.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995416.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995410.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995026.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994758.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Scorpions - Acoustica (2001) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989306.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987310.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986610.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986540.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Michael Flatley Riverdance Live From New York (1998) DVDRip
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984507.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982450.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Scorpions. Концерт "Get Your Sting & Blackout - Live In 3D" ( + доку�
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982318.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981018.jpg" />
 </div>
 
 

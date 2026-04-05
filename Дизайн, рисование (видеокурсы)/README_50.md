@@ -1,3 +1,59 @@
+###  Публикация: 1332718   (311301) от 21.10.2019
+
+Jan Urschel | Интерьерное освещение - Футуристичный коридор (Modo, Blender 2.8, OctaneRender, Photoshop) / Interior Lighting - Futuristic Corridor (2019) PCRec [H.264/1080p-LQ] [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интерьеры космических кораблей являются основным продуктом научно-фантастических фильмов. Я расскажу о своем подходе к освещению и о том, какую роль оно играет в процессе проектирования с самого начала. В простых шагах я проведу вас от простой 3D модели до финального кинематографического кадра. Мы также посмотрим на новый бесплатный Octane 2019 для Blender 2.8!
+ (   Читать дальше...   )Производство: GumroadЖанр: 3D моделированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 02:07:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A40B7EBBEA45605A619567B4E03A333A5A831010
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422421   (310236) от 08.11.2020
+
+Skillbox, Логомашина | Дизайнер логотипа и фирменного стиля (2020)
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы на практике освоите все этапы дизайна логотипа: научитесь брифовать клиентов и разрабатывать знаки, создавать гайдлайны и презентовать проекты. Сделаете крутой кейс для Behance и станете востребованным специалистом в сфере графического дизайна.
+Вас ждут онлайн-лекции и практические задания на основе реальных кейсов:
+Брифинг клиента: теория и практика
+Дизайнер (   Читать дальше...   )Жанр: ДизайнПродолжительность: 23:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E6BFCDD67AFFC41637C4B2E42DA2BEC701AE1DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422270   (310235) от 08.11.2020
 
 Skillbox | Веб-дизайн с нуля до PRO (2018) PCRec
@@ -6,7 +62,7 @@ Skillbox | Веб-дизайн с нуля до PRO (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310235.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ AIC, Skillbox, Tagline | Три дизайн-курса в одном - UX-ди�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310234.jpg" />
 </div>
 
 
@@ -58,7 +114,7 @@ Skillbox | After Effects с нуля до PRO (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310232.jpg" />
 </div>
 
 
@@ -87,7 +143,7 @@ ArtCraft | Цифровой Рисунок Online (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310231.jpg" />
 </div>
 
 
@@ -116,7 +172,7 @@ XYZ School, Антон Агеев | Мастер-Класс. Создание м
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307957.jpg" />
 </div>
 
 
@@ -144,7 +200,7 @@ Skillbox | Графический дизайнер с нуля до PRO (2020) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307943.jpg" />
 </div>
 
 
@@ -171,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305719.jpg" />
 </div>
 
 
@@ -199,7 +255,7 @@ XYZ School, Женя Пак | Hard Surface Lite (2020) HDTVRip
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303717.jpg" />
 </div>
 
 
@@ -227,7 +283,7 @@ Skillbox | Рекламная графика с нуля до PRO (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303715.jpg" />
 </div>
 
 
@@ -254,7 +310,7 @@ Lynda, Darrin Lile | Архитектурная визуализация в Blen
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301746.jpg" />
 </div>
 
 
@@ -281,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296525.jpg" />
 </div>
 
 
@@ -307,7 +363,7 @@ Udemy, Narayana Walters | Как делать стилизованную пло�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295318.jpg" />
 </div>
 
 
@@ -333,7 +389,7 @@ HTML Academy | Интенсивный онлайн-курс «Продвинут
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290621.jpg" />
 </div>
 
 
@@ -359,7 +415,7 @@ Digital-Tutors | UV Mapping Workflows in Blender (2015) PCRec [H.264/720p-LQ] [R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289395.jpg" />
 </div>
 
 
@@ -387,7 +443,7 @@ Blender Cloud | Улучшенный Риггинг в Blender / Advanced Riggin
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287356.jpg" />
 </div>
 
 
@@ -414,7 +470,7 @@ Blender Cloud | Спидскульптинг в Blender 2.8 / Speed Sculpting (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287354.jpg" />
 </div>
 
 
@@ -440,7 +496,7 @@ Blender Cloud | Основы Анимации в Blender 2.8 / Animation Fundame
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287350.jpg" />
 </div>
 
 
@@ -467,7 +523,7 @@ Blender Cloud | Основы Grease Pencil в Blender 2.8 / Grease Pencil Fundam
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287346.jpg" />
 </div>
 
 
@@ -493,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281797.jpg" />
 </div>
 
 
@@ -521,7 +577,7 @@ Lynda.com | Обучение 3D-графике для Web с помощью Thre
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266876.jpg" />
 </div>
 
 
@@ -547,7 +603,7 @@ FlippedNormals | Введение в Blender 2.8 / Introduction to Blender 2.8 (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263875.jpg" />
 </div>
 
 
@@ -574,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263793.jpg" />
 </div>
 
 
@@ -603,7 +659,7 @@ Udemy.com | Adobe Photoshop CC For Beginners (2019) PCRec [H.264/720p-LQ] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262858.jpg" />
 </div>
 
 
@@ -630,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260895.jpg" />
 </div>
 
 
@@ -641,58 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0604EA84062D2F3C45BE15F514B5311BE2F748C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838465   (260894) от 23.11.2025
-
-МИФ.Курсы, Дмитрий Утробин, Анна Устинова, Елена Пичугина и др. | Книжный иллюстратор (2025) PCRec [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы уверены, что ИЛЛЮСТРАТОРЫ— не кто иные, как СОЗДАТЕЛИ МИРОВ. Благодаря им книга выглядит возвышенно, трогательно, хулигански — так, как хочется. Сделали курс-погружение в мир книгоиздания — с экспертами МИФа (арт-директора, дизайнеры, редакторы и даже совладелец Дмитрий Утробин) и иллюстраторами, которые с нами работают. Вы поймёте, как превратить книгу в АРТ-ОБЪЕКТ. (   Читать дальше...   )Производство: МИФ.КурсыЖанр: Обучающий курс, графика, дизайнЯзык озвучки: русскийПродолжительность: 44:52:49Реклама: наложение на видео (плашка спонсора, QR-код)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46D7A3029F4023C618C901CE669595498092FEB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838573   (260636) от 23.11.2025
-
-Nikolietta calligraphy, Варвара Пантелеева | Курс по каллиграфии Copperplate (2024) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260636.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс «Copperplate», на котором вы освоите искусство каллиграфии, научитесь писать тонким пером и создадите великолепное портфолио. Курс состоит из 8 уроков.Производство: Nikolietta calligraphyЖанр: видеокурс, обучающий курс, графика, дизайнЯзык озвучки: русскийПродолжительность: 05:59:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D278B973C5E947DC377901987112DB91487B4015
 ```
 
 https://mybot314.ru/tekegram_catalog/

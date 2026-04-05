@@ -1,3 +1,31 @@
+###  Публикация: 1461873   (1021630) от 11.04.2021
+
+Росс Уэлфорд | Тысячелетний мальчик (2021) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021630.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бессмертие – совсем никудышная жизнь!
+Альфи Монк помнит последнее вторжение викингов в Англию: ему 1000 лет, и, в отличие от других детей, он совсем не взрослеет. Альфи и его мать постоянно переезжают с места на место, оберегая свою тайну, и у Альфи нет настоящих друзей, ведь все его сверстники быстро вырастают.
+Однажды случается пожар, и Альфи теряет всё, что любил. (   Читать дальше...   )Жанр: Детская фантастика, Зарубежные детские книгиПродолжительность: 08:40:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6768C74D041481E51D062769252E37004D522DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461947   (1021580) от 11.04.2021
 
 Евгений Шварц | Рассеянный волшебник. Сказки. (1980-е)  [Сборник] [MP3]
@@ -6,7 +34,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021580.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021492.jpg" />
 </div>
 
 
@@ -61,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021246.jpg" />
 </div>
 
 
@@ -90,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021222.jpg" />
 </div>
 
 
@@ -116,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021077.jpg" />
 </div>
 
 
@@ -145,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020556.jpg" />
 </div>
 
 
@@ -171,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020525.jpg" />
 </div>
 
 
@@ -197,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020329.jpg" />
 </div>
 
 
@@ -223,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020169.jpg" />
 </div>
 
 
@@ -251,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020165.jpg" />
 </div>
 
 
@@ -277,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020156.jpg" />
 </div>
 
 
@@ -303,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019669.jpg" />
 </div>
 
 
@@ -329,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019503.jpg" />
 </div>
 
 
@@ -357,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019501.jpg" />
 </div>
 
 
@@ -385,7 +413,7 @@ Twinkle Twinkle Little Rock Star - Lullaby Versions of ABBA (2011) [MP3|192 Kbps
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019474.jpg" />
 </div>
 
 
@@ -414,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019410.jpg" />
 </div>
 
 
@@ -441,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019402.jpg" />
 </div>
 
 
@@ -470,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019350.jpg" />
 </div>
 
 
@@ -498,7 +526,7 @@ Twinkle Twinkle Little Rock Star - Lullaby Versions of ADELE (2011) [MP3|192 Kbp
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019306.jpg" />
 </div>
 
 
@@ -527,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019156.jpg" />
 </div>
 
 
@@ -554,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019152.jpg" />
 </div>
 
 
@@ -582,7 +610,7 @@ Twinkle Twinkle Little Rock Star - Lullaby Versions of Queen (2012) [MP3|192 Kbp
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018420.jpg" />
 </div>
 
 
@@ -611,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018124.jpg" />
 </div>
 
 
@@ -639,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018117.jpg" />
 </div>
 
 
@@ -666,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018115.jpg" />
 </div>
 
 
@@ -677,34 +705,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21C8C4473D2AF7CC461FC9617321487492D1921F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467043   (1018113) от 02.05.2021
-
-Юлия Кузнецова | Дом «П» (2020) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юлия Кузнецова – популярный автор книг для детей и подростков, лауреат литературных премий «Заветная мечта», «Книгуру» и Международной детской премии имени В. Крапивина.
-
-Повесть «Дом П» – история обычной большой семьи. Бабушка Женя очень любит сына и внуков и больше всего на свете боится их огорчить. Однажды друг отца семейства рассказывает ему, что теперь он директор (   Читать дальше...   )Жанр: Детская литература/Приключения/ПрозаПродолжительность: 04:43:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:349C5A17416162D9AF4927639E12EE138635A8C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

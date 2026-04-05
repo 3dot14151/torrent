@@ -1,3 +1,32 @@
+###  Публикация: 1652102   (219112) от 10.08.2023
+
+Cryptal Darkness - Chapter II - The Fallen (2001) [FLAC|Lossless|image + .cue] <Atmospheric Gothic Death, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raven Dawn (00:41)
+02. My Eternal Hunger (07:37)
+03. A Dream of Beauty & Desire Lost (09:01)
+04. The Coldest Winter (08:35)(   Читать дальше...   )Жанр: Atmospheric Gothic Death, Doom MetalПродолжительность: 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:953E027BEB42DBCF55D5BB5845B88D5633363161
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1425812   (219107) от 22.11.2020
 
 Mr. Bungle - The Raging Wrath Of The Easter Bunny Demo (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash, Speed Metal>
@@ -6,7 +35,7 @@ Mr. Bungle - The Raging Wrath Of The Easter Bunny Demo (2020) [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219107.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Decimator - Bloodstained (2011) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219101.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Darkness Everywhere - The Seventh Circle (2022) EP [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219091.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Pete Townshend - The Iron Man: The Musical (1989) Virgin CDV 2592 [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219084.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Decimator - Alienist (2020) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219083.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Cryptal Darkness - Endless Tears... (1996) [FLAC|Lossless|image + .cue] <Atmosph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219072.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Lucifungus - 3 Albums (2020-2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom, S
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219048.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Phenomena - Still The Night (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Mel
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218935.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218931.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ HammerFall - Live! Against The World (2020) 2xCD, Jараnеsе Еditiоn [FLAC|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218854.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Blackhorse - Blackhorse (1979) Remastered, 2013, Common Sounds [MP3|320 Kbps] <H
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218847.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Volbeat - Servant Of The Mind (2021) Deluxe Edition [MP3|320 Kbps] <Heavy Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218764.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Smokie - The Very Best Of (Remastered) (2021) [FLAC|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218754.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ The Cure - Japanese Whispers (1983) Fiction 817 470-2 [FLAC|Lossless|image + .cu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218744.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Eloy - Ra (1988) Japanese Edition, 1993, Victor [FLAC|image+.cue] <Progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218742.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Styx - Caught In The Act (1984) 2016 Universal Music Japan UICY-77890/1 [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218725.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ King Crimson - Teatro Smeraldo Milan (1995) 2010 [FLAC|Lossless|tracks] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218715.jpg" />
 </div>
 
 
@@ -502,7 +531,7 @@ I Am The Manic Whale - Bumper Book of Mystery Stories (2023) [MP3|320 Kbps] <pro
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_218617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218617.jpg" />
 </div>
 
 
@@ -531,7 +560,7 @@ Mystery - Delusion Rain (2015) [FLAC|Lossless|image + .cue] <Progressive Rock, N
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218599.jpg" />
 </div>
 
 
@@ -560,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_218590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218590.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ Black Sabbath - Mob Rules (1982) Reissue, Remastered 1996, BMG [FLAC|Lossless|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218564.jpg" />
 </div>
 
 
@@ -618,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218501.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Ellefson - No Cover (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218473.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218464.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ The Chop - Ghostbeef (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock,  Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218439.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ The Chop - Ghostbeef (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock,  Hard Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E57560E208D2669D88E0472E9878C5019C6B871
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586140   (218430) от 25.10.2022
-
-Breath of Sindragosa - The Decaying Seeds of Hatred (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Deathcore, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. As the Maggots Crawl [00:02:52]
-02. Emotional Grave [00:04:20]
-03. Everything Bleeds [00:04:31]
-04. Watching the World Burn [00:04:41](   Читать дальше...   )Жанр: Symphonic Deathcore, MetalcoreПродолжительность: 00:38:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E09738A16AFE54C47634A9A7DEB5394F356BE18
 ```
 
 https://mybot314.ru/tekegram_catalog/

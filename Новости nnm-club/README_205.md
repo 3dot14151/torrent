@@ -1,3 +1,56 @@
+###  Публикация: 1421551   (317009) от 05.11.2020
+
+MInstAll v.05.11.2020 By Andreyonohov & Leha342 (ISO) [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед Вами обновленный 05 Ноября 2020 года полюбившийся многим пользователям сборник последних версий самых часто используемых в работе программ от Андрея Онохова. Теперь в новой, более простой и удобной оболочке MInstAll - это новый мастер установки приложений, упрощенный аналог WPI. Данный MInstAll имеет самый оптимальный состав софта для установки на чистые системы. (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF00877F8E7F33E2EDCD17166FCC817611B1CCC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959483   (316215) от 24.11.2015
+
+Проекты - VideoHive - Flag Loop Maker - 6504559 [AEP]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания развевающегося флага с любой текстурой.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16E7626C2318865AA330A4B6BE1AEB31E29AD9DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 851398   (316210) от 24.11.2015
 
 Свой среди чужих, чужой среди своих (1974) DVDRip [H.264]
@@ -6,7 +59,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316210.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316201.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316184.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ Expeditions: Viking (2017) [Ru/Multi] (1.0.7.1/dlc) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316142.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_315875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_315875.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_315860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_315860.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315763.jpg" />
 </div>
 
 
@@ -188,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_315719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_315719.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ Microsoft Office for Mac Standard 2016 v16.16.15 (build 191014) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315595.jpg" />
 </div>
 
 
@@ -247,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315556.jpg" />
 </div>
 
 
@@ -273,7 +326,7 @@ CyberLink PowerDirector Ultimate 15.0.2309.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315333.jpg" />
 </div>
 
 
@@ -299,7 +352,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4456.1003
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315324.jpg" />
 </div>
 
 
@@ -325,7 +378,7 @@ S.T.A.L.K.E.R.: Call of Pripyat / S.T.A.L.K.E.R.: Зов Припяти / Опа
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315199.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ MInstAll v.05.11.2020 By Andreyonohov & Leha342 (Unpacked) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314782.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_314599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_314599.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_314560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_314560.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314349.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313775.jpg" />
 </div>
 
 
@@ -483,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313759.jpg" />
 </div>
 
 
@@ -509,7 +562,7 @@ Windows 7 Home Premium x64 SP1 с автоустановкой, для незр�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313745.jpg" />
 </div>
 
 
@@ -538,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313735.jpg" />
 </div>
 
 
@@ -564,7 +617,7 @@ WinRAR 5.30 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313731.jpg" />
 </div>
 
 
@@ -590,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313718.jpg" />
 </div>
 
 
@@ -616,7 +669,7 @@ Neverwinter: Underdark (2015) [Ru/En] (NW.55.20151105a.5) License
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313712.jpg" />
 </div>
 
 
@@ -627,58 +680,6 @@ Neverwinter: Underdark – игра в жанре фэнтези, созданн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:056342BE44A28AC7776C7611FCF8536FEF4F3E08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 831986   (313711) от 11.11.2017
-
-Чернобыль. Зона отчуждения (2014) WEB-DLRip [H.264/720p-LQ] (Сезон 1, Серии 1-8 из 8)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пятеро молодых людей прыгают в старую «Волгу» и отправляются на поиски вора, часом ранее укравшего из квартиры родителей главного героя восемь миллионов рублей. Грабитель — обычный московский айтишник, — вместо того чтобы залечь на дно, тут же записывает видеоотчет, в котором сообщает, что финальная точка его путешествия — Чернобыльская АЭС и город Припять.Производство: "СинеЛаб Продакшн", РоссияЖанр: ТриллерРежиссер: Андерс БанкеАктеры: Кристина Казинская, Анвар Халилулаев, Сергей Романович, Евгений Стычкин, Валерия Дмитриева, Константин Давыдов, Илья Щербинин, Николай Иванов, Дарья Лузина, Евгения КаверауПродолжительность: ~ 00:54:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFF678750A6C86FDB4DB676516611CF60B1F5A24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182555   (313701) от 11.11.2017
-
-Телохранитель киллера / The Hitman's Bodyguard (2017) BDRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он — телохранитель мирового уровня. Его новая работа — охранять киллера, которого все мечтают убить. Он и сам с удовольствием прикончил бы этого гада. Но работа есть работа: смертельные враги в прошлом, они вынуждены объединиться в настоящем, чтобы выжить. Однако их методы настолько различны, а принципы противоположны, что вопрос выживания — под большим вопросом.Производство: США, Campbell Grobman Films, Cristal Pictures, East Light Media, Millennium Films, Nu Boyana Film Studios, Skydance Productions, TDMPЖанр: Боевик, КомедияРежиссер: Патрик ХьюзАктеры: Райан Рейнольдc, Сэмюэл Л. Джексон, Элоди Юнг, Цуваюки Саотомэ, Рой Хилл, Ричард Э. Грант, Гари Олдман, Род Халлетт, Юрий Колокольников, Надя КоначкиеваПеревод: Дублированный (iTunes), Авторский одноголосый (Михаил Чадов) ненормативная лексикаСубтитры: Английские (Full)Продолжительность: 01:58:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E85E5D3D9EF94EC4796C4B35387E691354774DB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1743412   (46642) от 16.08.2024
+
+Проект «Тиран» / Pokgun / The Tyrant (2024) WEB-DLRip [H.264/1080p] (сезон 1, серии 1-4 из 4) LE-Production
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Агент правительства США пытается найти новый смертельно опасный вирус, украденный у правительства Южной Кореи. Поскольку на карту поставлено все, мировые спецслужбы сражаются с преступными группировками, чтобы предотвратить распространение вируса по всему миру.Производство: Южная Корея / Goldmoon PicturesЖанр: боевик, фантастикаРежиссер: Пак Хун-джонАктеры: Чо Юн-су, Чха Сын-вон, Ким Сон-хо, Ким Ган-уПеревод: Многоголосый профессиональный (LE-Production)Язык озвучки: русский, английский, корейскийСубтитры: английские (SDH), корейские (SDH)Продолжительность: ~00:40:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90C03882E022FAB2B2A31848F259AFB0E96A7823
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1743576   (46533) от 17.08.2024
 
 Династия Мин / Императрица Мин / Ming Dynasty / Da Ming Feng Hua (2019-2020) WEBRip [H.265/2160p] (сезон 1, серии 1-62 из 62)
@@ -6,7 +32,7 @@
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46533.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46450.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46059.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45939.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44972.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44145.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43954.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43715.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43544.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39251.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38880.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38355.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37109.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36644.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36124.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36076.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35900.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33008.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32955.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32901.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32882.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32799.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32797.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32794.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32697.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCB60035B7076ADE396DEE433503E68630F46476
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769706   (32654) от 29.12.2024
-
-Игра в кальмара / Ojingeo geim / Squid Game (2024) WEB-DLRip [H.264/720p] (сезон 2, серии 1-7 из 7) Videofilm Int., Так Треба Продакшн
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32654.jpg" />
-</div>
-
-
-###  Подробнее
-
-456 человек, большинство из которых испытывают серьёзные финансовые проблемы, принимают приглашение на участие в таинственном турнире по детским играм. Быстро выясняется, что это турнир на выживание. После того, как из соревнования выбывает игрок, размер приза увеличивается на 100 млн вон, то есть победитель турнира получит 45,6 млрд вон (на момент создания сериала (   Читать дальше...   )Производство: Корея Южная / Siren PicturesЖанр: триллер, драмаРежиссер: Хван Дон-хёкАктеры: Ли Джон-джэ, Пак Хэ-су, О Ён-су, Чон Хо-ён, Хо Сон-тхэ, Анупам Трипати, Ким Джу-рён, Ви Ха-джун, Ю Сон-джу, Ли Ю-миПеревод: Дублированный (Videofilm Int., Так Треба Продакшн - укр.)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, Full), Английские (Forced, Full, SDH), Корейские (SDH), Украинские (Forced, Full)Продолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38C4C61611936AD181A615600E430EE1EB93D129
 ```
 
 https://mybot314.ru/tekegram_catalog/

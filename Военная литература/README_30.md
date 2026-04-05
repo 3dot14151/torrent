@@ -1,139 +1,3 @@
-###  Публикация: 1306692   (555440) от 06.06.2019
-
-Книжная серия | Военная авиация XX века [18 книг] (2012-2016) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555440.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Военная авиация XX века» - серия книг о военных самолетах XX века. История создания, испытания, производство, вооружение, характеристики и другие интересные и малодоступные сведения.Жанр: История авиации, Военная историяФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87A8E08D4B6637AA6633EB2F83EF6C3F8932D9B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307193   (555006) от 09.06.2019
-
-Артем Драбкин | Война. Я помню. Проект Артема Драбкина [3 книги] (2018-2019) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555006.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артём Драбкин: Российский общественный деятель, писатель. Руководитель интернет-проекта «Я помню», автор сборников интервью с ветеранами-участниками Великой Отечественной войны. Составитель серий книг воспоминаний ветеранов «Солдатские дневники» и «Окопная правда». Автор сценариев документальных фильмов и сериалов.Жанр: Биографии и Мемуары, Проза о войне, Военное делоФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91FFAEA2772C3C101F2B4BBEBDA259030DF73F97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308767   (552809) от 17.06.2019
-
-Андрей Мусалов | Зеленые погоны Афганистана (2019) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552809.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 февраля 1989 г. последний советский солдат покинул территорию Демократической республики Афганистан. Десятилетняя Афганская война закончилась…
-Но и сейчас, по прошествии 30 лет, история этой войны покрыта белыми пятнами, одно из которых — участие в ней советских пограничников. Сам факт участия «зелёных фуражек» в той, ныне уже подзабытой войне, тщательно скрывался (   Читать дальше...   )Жанр: Военная история, Биографии и МемуарыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD3F317F6C340F145357C9F0B45F1D019FA586A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045774   (549812) от 29.08.2016
-
-Игорь Прокопенко | Военная тайна [25 книг] (2011-2016) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549812.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Военная тайна» - серия книг Игоря Прокопенко, ведущего РенТВ, телеканала, известного своими расследованиями таинственного и загадочного, малоизвестного и малоизученного в нашей истории и повседневной жизни. Книги для тех, кому интересны тайны и загадки, а также нетрадиционный взгляд на традиционные факты.
-
-Военные тайны ХХ века
-Откуда взялись деньги на Великую Октябрьскую (   Читать дальше...   )Жанр: История, Военная история, Тайны, ЗагадкиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:089F3D52CA0E8D6575C0A5BFFA518FBC0314F970
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237726   (549647) от 26.07.2018
-
-Д.М. Робертс, О.А. Уэстад | Мировая история (2018) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эпохальный труд знаменитых английских ученых представляет собой не только настоящий кладезь сведений и бесчисленных фактов на основе огромной источниковедческой базы.
-
-Принципиальная новизна авторской концепции в том, что из тьмы этих фактов и событий особо выделены ключевые, наиболее значимые, поворотные моменты истории человечества от самого его зарождения до настоящего (   Читать дальше...   )Жанр: ИсторияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4A8663E3BFF50E85FFADED3A776E0D896554712
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1310319   (547502) от 23.06.2019
 
 Сергей Баленко | Большой учебник выживания спецназа ГРУ. Опыт элитных подразделений (2017) [PDF]
@@ -142,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547502.jpg" />
 </div>
 
 
@@ -168,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545674.jpg" />
 </div>
 
 
@@ -194,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543785.jpg" />
 </div>
 
 
@@ -222,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540930.jpg" />
 </div>
 
 
@@ -248,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537060.jpg" />
 </div>
 
 
@@ -274,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536999.jpg" />
 </div>
 
 
@@ -302,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536436.jpg" />
 </div>
 
 
@@ -330,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535308.jpg" />
 </div>
 
 
@@ -356,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535081.jpg" />
 </div>
 
 
@@ -383,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535071.jpg" />
 </div>
 
 
@@ -409,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535068.jpg" />
 </div>
 
 
@@ -437,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534988.jpg" />
 </div>
 
 
@@ -463,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534983.jpg" />
 </div>
 
 
@@ -491,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534982.jpg" />
 </div>
 
 
@@ -517,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534971.jpg" />
 </div>
 
 
@@ -545,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534657.jpg" />
 </div>
 
 
@@ -571,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534650.jpg" />
 </div>
 
 
@@ -597,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531560.jpg" />
 </div>
 
 
@@ -625,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531488.jpg" />
 </div>
 
 
@@ -651,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531219.jpg" />
 </div>
 
 
@@ -677,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530945.jpg" />
 </div>
 
 
@@ -689,6 +553,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCF7C3BA399EFE7052967F1DFAAF5B07C9F7CB1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051933   (530681) от 12.09.2016
+
+Алексей Исаев и др. | Танковый удар [Советские танки в боях, 1942–1943] (2007) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый сборник посвящен действиям советских танковых войск на переломном этапе Великой Отечественной войны — с осени 1942-го по лето 1943 года, от наступления под Сталинградом до Курской битвы. Именно тогда наши танковые и механизированные корпуса впервые продемонстрировали искусство глубокой операции, умение не только прорывать оборону противника и громить его тылы, (   Читать дальше...   )Жанр: История, Военная техника и вооружениеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45055FDE7D4FAC0B16DE3774C6554213E6C5E74C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927399   (528634) от 13.08.2015
+
+Антон Первушин | Дрезденская бойня. Возмездие или преступление? (2015) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена одному из страшнейших эпизодов Второй мировой войны – бомбардировке Дрездена британскими и американскими войсками, в ходе которой пострадало прежде всего мирное население.Жанр: История, Публицистика: прочее, Военное дело, спецслужбыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6E581CC784C5125C6E38BBCDD6C47EBB996AD03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927398   (528582) от 13.08.2015
+
+Антон Первушин | Атомный проект. История сверхоружия (2015) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528582.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассказывается о работе физиков Германии, США и СССР над созданием атомной бомбы. Это оружие должно было стать решающим фактором в военном противостоянии сверхдержав.Жанр: История, Публицистика: прочее, Военное дело, спецслужбыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADFA5760DC5413E6AC6D2EF58F8A05D3C181EE72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156088   (528403) от 06.08.2017
+
+Книжная серия | Историческое расследование [18 книг] (2000-2015) [FB2, DJVU]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528403.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самые увлекательные загадки минувшего, новый взгляд на известных исторических деятелей, сокровенные тайны "сильных мира сего", оригинальная оценка крупнейших событий и явлений всеобщей истории - основные темы книг из серии "Историческое расследование".
+Авторы, известные историки, воссоздают образы и события прошлого на документальной основе. Они (   Читать дальше...   )Жанр: Военная История, Биографии и мемуарыФормат: FB2, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E3BDB5E15AE474501A6FD690D3AD035CFB4F460
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155914   (527596) от 07.08.2017
+
+Книжная серия | Военный архив [24 книги] (1993-2016) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527596.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Военный архив» - очередная историческая серия от издательства, прославившегося выпуском исторической литературы, не имеющей аналогов на территории России.
+Эта серия расскажет вам о малоизвестных страницах военной истории России и других европейских стран.
+Войны и сражения, армии и дивизии, полководцы и секретное оружие — об этом и многом другом в серии книг - «Военный (   Читать дальше...   )Жанр: Военная история, CпецслужбыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5525214ACFAE6D05D4576E3F7CBB7A5380D3BF20
 ```
 
 https://mybot314.ru/tekegram_catalog/

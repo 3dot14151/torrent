@@ -1,3 +1,219 @@
+###  Публикация: 1189873   (154551) от 25.12.2017
+
+Все вместе Пишем тексты для Новых песен
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_154551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уважаемые одноклубники!
+Команда Клубные Таланты NNM-Club приглашает Вас принять участие в игре "Все вместе Пишем тексты для Новых песен".
+Новая игра тренирует коллективную логику и развивает индивидуальную смекалку. Почти каждый из нас, когда-нибудь да сочинял какое-то стихотворение вместе со своими друзьями. Наш совместный труд, на выходе должен стать (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518046   (154546) от 19.12.2021
+
+Lantern задействует децентрализованный инструмент обхода госблокировок в РФ
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_154546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Недавно стало известно о намерении российских властей заблокировать данный VPN-сервис, поскольку тот в принципе не сотрудничает ни с какими правоохранительными органами в мире.В начале декабря текущего года Роскомнадзор обратился к компаниям, использующим в работе VPN-сервисы, «в соответствии с требованиями регламента реагирования информируем о планируемом введении (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517900   (154522) от 19.12.2021
+
+Водители в России смогут «штрафовать» друг друга за нарушение ПДД
+
+>>3
+>>10
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_154522.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2022 году россияне смогут фиксировать нарушения ПДД с помощью приложения «Народный инспектор» на телефоне.
+Как это будет работать и за что будут штрафовать:Президент Владимир Путин поручил внедрить возможность штрафовать на нарушение ПДД на основе фото и видео, снятых с помощью специального приложения. Срок исполнения — до 1 июня 2022 года. До этого времени кабмин (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499981   (154511) от 19.12.2021
+
+Tsuki to Laika to Nosferatu | Irina: The Vampire Cosmonaut | Луна, Лайка и Носферату [2021, TV, 12 эп.] WebRip 720p raw
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первым в мире космонавтом оказалась девушка-вампир… По окончании Мировой войны мир между собой поделили две сверхдержавы: на востоке теперь возвышается Союз республик Цирнитры, а на западе — Соединённое королевство Арнак. Оба государства устремили свои взоры в небо — в космос. Между ними развязалась ожесточённая гонка… Шли годы, и наступил 1960. Первый секретарь (   Читать дальше...   )Производство: студия Arvo Animation / アルボアニメーションЖанр: приключенияРежиссер: Ёкояма АкитосиПеревод: Funimation; Wakanim (оформление ВВПупкин)Язык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CBB62A1A4DC7EDC3A3031CC7BDA9FFF87371042
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194301   (154489) от 25.12.2017
+
+Яркость / Bright (2017) WEBRip [H.264/720p-LQ] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается в Лос-Анджелесе, в вымышленном фантастическом мире, где царствуют не только высокие технологии, но и магия. В городе бок о бок с людьми живут эльфы, орки и другие сверхъестественные существа. Главный герой служит в полицейском департаменте, в специальном отделе, занимающимся раскрытием преступлений, в которых замешаны магические силы. Пытаясь (   Читать дальше...   )Производство: США / Clubhouse Pictures (II), Overbrook Entertainment, NetflixЖанр: Боевик, Криминал, Фэнтези, ФантастикаРежиссер: Дэвид ЭйрАктеры: Уилл Смит, Нуми Рапас, Джоэл Эдгертон, Люси Фрай, Джей Эрнандес, Эдгар Рамирес, Айк Баринхолц, Вероника Нго, Хэппи Андерсон, Брэд Уильям ХенкеПеревод: Профессиональный многоголосый (BaibaKo)Субтитры: Английские (FULL, SDH)Продолжительность: 01:57:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B974ED39BBBE4B40C8995D0B020623E153A92210
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194341   (154479) от 25.12.2017
+
+tceh | Разработчик на Python (2017) PCRec [H.264/720p-LQ]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154479.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полный курс программирования на Python рассчитан на людей любого уровня подготовки. Вам понадобятся школьные знания по математике, уверенное владение компьютером и умение логично формулировать мысли.
+
+На курсе в #tceh вы получите базовые навыки web-разработки (Git, тестирование, документация), научитесь писать программы на Python, а также управлять разработкой от (   Читать дальше...   )Производство: tcehЖанр: Программирование, Python, Django, HTML & CSS, JavaScript, SQLПродолжительность: 82:56:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:009175729AEA6607BF9FB7DF33C7C87C3082AAA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346944   (154471) от 21.12.2019
+
+RESIDENT EVIL 2 / BIOHAZARD RE:2 (2019) [Ru/Multi] (1.04/upd5/dlc) Repack R.G. Механики
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154471.jpg" />
+</div>
+
+
+###  Подробнее
+
+Resident Evil 2 — шедевр, определивший будущее целого жанра, — возвращается, чтобы вы смогли пережить новую глубину впечатлений от сюжета. Полностью переработанная на RE Engine, собственном движке Capcom, Resident Evil 2 представляет собой новый взгляд на классику жанра survival horror благодаря потрясающе реалистичной графике, атмосферному звуку, новому виду из-за (   Читать дальше...   )Тип издания: RepackРазработчик: CAPCOM Co., Ltd.Жанр: Action (Survival horror), 3D, 3rd PersonЯзык озвучки: Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:220280F0B2BDED60CDD60CCE302DBD10DC7647A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346880   (154463) от 21.12.2019
+
+Windows 10 Enterprise x64 lite 1909 build 18363.535 by Zosma
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на официальном образе Microsoft:
+Microsoft Windows 10.0.18363.535 Version 1909 (December 2019 Update)
+Удалены компоненты связанные с шпионством и отправкой телеметрии.
+Отключены бесполезные (вредные) службы(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D20E34E5282B8E4047428A9971370CC32C0EFCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518118   (154458) от 19.12.2021
 
 Microsoft® Windows® 7 Ultimate Ru x86/x64 nBook IE11 by OVGorskiy 12.2021 1DVD
@@ -6,7 +222,7 @@ Microsoft® Windows® 7 Ultimate Ru x86/x64 nBook IE11 by OVGorskiy 12.2021 1DVD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154458.jpg" />
 </div>
 
 
@@ -32,7 +248,7 @@ Udemy | React + Redux - Профессиональная Разработка (2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154448.jpg" />
 </div>
 
 
@@ -58,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154443.jpg" />
 </div>
 
 
@@ -84,7 +300,7 @@ Mushoku Tensei: Isekai Ittara Honki Dasu / Mushoku Tensei: Jobless Reincarnation
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154440.jpg" />
 </div>
 
 
@@ -110,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154432.jpg" />
 </div>
 
 
@@ -136,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154431.jpg" />
 </div>
 
 
@@ -162,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154427.jpg" />
 </div>
 
 
@@ -190,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154423.jpg" />
 </div>
 
 
@@ -219,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153932.jpg" />
 </div>
 
 
@@ -245,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153777.jpg" />
 </div>
 
 
@@ -271,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153728.jpg" />
 </div>
 
 
@@ -297,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153718.jpg" />
 </div>
 
 
@@ -323,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153714.jpg" />
 </div>
 
 
@@ -349,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>68
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153712.jpg" />
 </div>
 
 
@@ -375,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153690.jpg" />
 </div>
 
 
@@ -401,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153653.jpg" />
 </div>
 
 
@@ -427,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153648.jpg" />
 </div>
 
 
@@ -453,7 +669,7 @@ WiFi File Explorer Pro 1.11.0 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153635.jpg" />
 </div>
 
 
@@ -466,219 +682,6 @@ WiFi File Explorer Pro 1.11.0 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37B2267B0AEED5F58D64437BED7DF52DE77C3C86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676620   (153627) от 15.11.2023
-
-«Брат 3» [Финальный трейлер фильма]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153627.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Тамбове живет генеральская дочь, влюблённая в уличного художника, которого не одобряет её отец. У генерала есть брат-близнец, который возглавляет преступную группировку. Два грабителя-неудачника проваливают задание, что запускает вереницу событий, которые изменят жизни и разрушат семьи.
-
-С 23 ноября 2023 года в кинотеатральном прокате в России
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086051   (153620) от 23.12.2016
-
-Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Designer SP2 14.0.7177.5000 VL (x86) RePack by SPecialiST v16.12 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2010 — один из лучших наборов офисных приложений для компьютеров, телефонов и браузеров, включающий функции, на которые можно положиться уже сегодня, и возможности, которые могут потребоваться в будущем. Данный набор приложений позволяет уверенно принять вызов сегодняшней экономической ситуации, не упуская из виду факторы, необходимые для достижения (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:429A1EE2D6AC4607FAD2FDAA8B7D55143F437EB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086118   (153614) от 23.12.2016
-
-Вскрытие Джейн Доу / Демон внутри / The Autopsy Of Jane Doe (2016) WEB-DLRip [H.264]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Патологоанатомы маленького городка получают тело жертвы таинственного убийства — красивой и молодой Джейн Доу без видимой причины смерти. Они пытаются выяснить, кто она и как умерла, обнаруживая все более причудливые подсказки, которые ведут к тайнам её жизни и смерти.Производство: Великобритания | IM Global, Impostor/42Жанр: УжасыРежиссер: Андре ОвредалАктеры: Эмиль Хирш, Брайан Кокс, Офелия Ловибонд, Майкл МакЭлхаттон, Олуэн Катрин Келли, Паркер Сойерс, Джейн Перри, Ив О’ХараПеревод: Профессиональный (многоголосый, закадровый), любительский (одноголосый, закадровый) х2Продолжительность: 01:26:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6E647779E7B41EB0AF9ACE05F97682DFCBDF1E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676856   (153612) от 15.11.2023
-
-Windows 10 x64 Rus by OneSmiLe [19045.3693]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана из оригинальных образов
-Удалены все модерн приложения.
-Поиск работает (значок скрыт)
-Вырезана телеметрия(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA67CE7384B8237E7C5CA849C2F0238D538518C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085705   (153611) от 23.12.2016
-
-Adobe Photoshop CC 2017.0.1 (20161130.r.29) Portable by XpucT [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153611.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop CC — многофункциональный графический редактор, разработанный и распространяемый фирмой Adobe Systems. В основном работает с растровыми изображениями, однако имеет некоторые векторные инструменты. Продукт является лидером рынка в области коммерческих средств редактирования растровых изображений и наиболее известным продуктом фирмы Adobe.Язык интерфейса: Русский, украинский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52C79B449581909514A977ECE1EC285722071CB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086055   (153607) от 23.12.2016
-
-Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4456.1003 VL (x86) RePack by SPecialiST v16.12 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2016 хорошо демонстрирует, как сегодня изменился сам подход к созданию документов и совместной работе с ними. Многие из нас начинают работу на одном компьютере, продолжают её на другом, а демонстрируют на третьем, попутно успевая вносить мелкие правки за ноутбуком, на планшете или даже смартфоне. Поэтому Office 2016 постарались сделать концептуально (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5905D72A9E020A41A0905A7B1C425073CA79B0D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085812   (153604) от 23.12.2016
-
-Новая эра Z / The Girl with All the Gifts (2016) SATRip
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по книге, ставшей бестселлером британского фантаста Майка Кэри «Дары Пандоры». Апокалипсическое ближайшее будущее. Всю планету поразила грибковая спора, которая обычных людей превращает в плотоядных монстров, готовых поедать себе подобных не зараженных болезнью. Единственный шанс на спасение, отыскать вакцину способную остановить заражение...Производство: США, ВеликобританияЖанр: ужасы, триллер, драмаРежиссер: Колм МакКартиАктеры: Джемма Артертон, Гленн Клоуз, Пэдди Консидайн, Доминик Типпер, Анамария Маринка, Сенниа Нануа, Лобна Фьютерс, Энтони Уэльс, Дэниэл Иган, Фисайо АкинадеПеревод: Дублированный (Кинохит)Субтитры: ОтсутствуютПродолжительность: 01:45:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FA67ED2BDB35597E14909902EDC16B4F2B82534
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086047   (153601) от 23.12.2016
-
-Adobe Master Collection CC 2017 RUS/ENG
-
->>3
->>16
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как, надеюсь, вам известно, пакета Adobe Master Collection CC 2017 в природе не существует, компания Adobe его никогда не выпускала. Но, тем не менее, он перед вами! Я очень постарался, чтобы этот пакет появился на свет. Он представляет из себя сборник программ линейки Creative Cloud 2017, объединенных старым добрым инсталлером с возможностью выбора компонентов и (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BAF5F4124F6C5F1058DA0DBBAF18FB1F769E9D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

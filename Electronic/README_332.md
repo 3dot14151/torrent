@@ -1,3 +1,118 @@
+###  Публикация: 1327662   (372259) от 26.09.2019
+
+VA - A State Of Trance Ibiza 2019 (Mixed by Armin van Buuren) (2019) [FLAC|Lossless|CD|image + .cue] <Trance, Progressive Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren & Avian Grays feat. Jordan Shaw - Something Real
+02. Omnia & Whiteout - U
+03. Tom Fall - Arcadia
+04. Nikhil Prakash x Tomac - Pressure(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:12:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5A14D14F450E095FF93A9260E525DFAC2CDDD64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176434   (371924) от 21.10.2017
+
+Satori - Maktub (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Downtempo, World>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sherazade And Her Never Ending Stories (3:42)
+ 02. Umama (5:33)
+ 03. Dive Into The Mystic (5:19)
+ 04. Shotgun (5:23)(   Читать дальше...   )Жанр: Deep House, Downtempo, WorldПродолжительность: 00:59:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAE88C69A8D3834FA66B6AEFA372725CE61EC850
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218963   (371391) от 14.10.2020
+
+Circular - Discography 7 Releases (1997-2020) Origo Sound, Ultimae Records [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Downtempo, IDM, Psybient, Abstract>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bjalle Viril (07:22)
+ 02. Fiskeugle (06:18)
+ 03. Pingleslim (05:04)Тип издания: CD, WebЖанр: Ambient, Downtempo, IDM, Psybient, Abstract •Продолжительность: 06:42:08 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D6F98CA525FFEB29857732B5D13024652DDBA2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070041   (371317) от 05.11.2016
+
+Meta Meat - Metameat (2016) Ant-Zen [FLAC|Lossless|WEB-DL|tracks] <Industrial, Tribal, Experimental>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Melt (05:26)
+02. Backstitch (05:12)
+03. Sword (03:18)
+04. Shudder (06:52)(   Читать дальше...   )Жанр: Industrial, Tribal, ExperimentalПродолжительность: 01:01:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16AE4A5F008F8FF970D04BC677986CE180749143
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1254862   (370961) от 15.10.2018
 
 VA - Redux Amsterdam Selection (Mixed by The Enlightment) (2018) [MP3|320 Kbps] <Trance>
@@ -6,7 +121,7 @@ VA - Redux Amsterdam Selection (Mixed by The Enlightment) (2018) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370961.jpg" />
 </div>
 
 
@@ -35,7 +150,7 @@ VA - Vocal Trance Top 50 (2018) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting 
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370689.jpg" />
 </div>
 
 
@@ -64,7 +179,7 @@ Moon Zero - Discography 7 Releases (2013-2017) Denovali Records, Futuresequence 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370671.jpg" />
 </div>
 
 
@@ -93,7 +208,7 @@ V.A. - Cafe Del Mar XXVIII (Volumen Veintiocho) (2022) 2CD [FLAC|Lossless|WEB-DL
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370603.jpg" />
 </div>
 
 
@@ -122,7 +237,7 @@ VA - Psychedelic Selections Vol. 003 (Compiled by Ritmo) (2018) [MP3|320 Kbps] <
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370382.jpg" />
 </div>
 
 
@@ -151,7 +266,7 @@ VA - Ethereal Techno #007 (2019) [FLAC|Lossless|WEB|tracks] <Techno, Tech House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370251.jpg" />
 </div>
 
 
@@ -180,7 +295,7 @@ Aly & Fila - The Chill Out (2015) [FLAC|Lossless|WEB-DL]<Chillout, Downtempo>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370244.jpg" />
 </div>
 
 
@@ -209,7 +324,7 @@ deadmau5 - mau5ville - Level 3 (2019) [FLAC|Lossless|WEB|tracks] <Progressive Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370243.jpg" />
 </div>
 
 
@@ -238,7 +353,7 @@ VA - Armada Chill (2019) [FLAC|Lossless|WEB|tracks] <Lounge, Ambient>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370240.jpg" />
 </div>
 
 
@@ -267,7 +382,7 @@ Schiller - Die Einlassmusik 17 (2019) [FLAC|Lossless|image + .cue] <Ambient>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370196.jpg" />
 </div>
 
 
@@ -296,7 +411,7 @@ VA - Who's Afraid Of 138?! Top 15 - 2017-10 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370144.jpg" />
 </div>
 
 
@@ -325,7 +440,7 @@ Nero - Between II Worlds (2015) [FLAC|tracks+.cue]<Dubstep, Electro House>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369577.jpg" />
 </div>
 
 
@@ -354,7 +469,7 @@ Schiller - Morgenstund (2019) Super Deluxe Edition [FLAC|Lossless|tracks + .cue]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369494.jpg" />
 </div>
 
 
@@ -383,7 +498,7 @@ VA - Deep Ambient & Chillout Dream (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369370.jpg" />
 </div>
 
 
@@ -412,7 +527,7 @@ VA - AMF 2016: Amsterdam (2016) [MP3|320 Kbps] <House, Progressive House, Big Ro
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369259.jpg" />
 </div>
 
 
@@ -441,7 +556,7 @@ VA - Nothing But... Liquid Drum & Bass Vol.2 (2016) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369254.jpg" />
 </div>
 
 
@@ -470,7 +585,7 @@ VA - Sit and Lounge Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369250.jpg" />
 </div>
 
 
@@ -499,7 +614,7 @@ VA - Melodic Relaxation Vol.1- Finest Chill out Selection (2016) [MP3|320 Kbps] 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369147.jpg" />
 </div>
 
 
@@ -528,7 +643,7 @@ Mario Hammer And The Lonely Robot - L’esprit De L’escalier Remixes (2016) [F
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369138.jpg" />
 </div>
 
 
@@ -557,7 +672,7 @@ Velvet Dreamer - Remixed (2016) [MP3|320 Kbps] <Electronic, Chill Out, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369020.jpg" />
 </div>
 
 
@@ -586,7 +701,7 @@ VA - Real Trap Machine Vol.6 (2016) [MP3|320 Kbps] <Dirty Dubstep, Trap, Grime>
 >>Dubstep, Future Garage, Bass Music, UK Garage
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368693.jpg" />
 </div>
 
 
@@ -615,7 +730,7 @@ An-i - 2 EP (2014-2015) Cititrax [FLAC|Lossless|WEB-DL|tracks] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368312.jpg" />
 </div>
 
 
@@ -628,128 +743,6 @@ An-i - 2 EP (2014-2015) Cititrax [FLAC|Lossless|WEB-DL|tracks] <Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BD9A5F4ED416520ED044155C16B046F492AE58C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255083   (368309) от 16.10.2018
-
-VA - Progressive Amsterdam (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer & Betsie Larkin - Unite (Ruslan Radriges Remix)
-02. Millennial Vs Bigtopo & Omar Diaz - Bassa Marea (Extended Mix)
-03. Michael Milov & Claire Willis - Anywhere With You (Extended Mix)
-04. Ruslan Radriges & U-Jeen - Sky Voyager (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:22:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEF6A051A6CD20A11189053DC56F7E5E807E4E75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255085   (368307) от 16.10.2018
-
-VA - Trance Rave Vol. 4 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MalYar & Victor - Aurora (Original Mix)
-02. MalYar & Victor - Aurora (Make One Remix)
-03. Titus1 & Novan - Where (Festival Mix)
-04. Titus1 & Novan - Where (Dub Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:06:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7BEEA7AAF80FEE1384121077CF9CD2E0F46877F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 406416   (368222) от 04.11.2011
-
-VA - DJ Zen - 6th Element (The Missing Elements) (2011) [FLAC|Lossless]<Psybient, Downtempo, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_368222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Astropilot – Inside The Harmony (Astral Waves Remix) (18:27)
- 02. Zymosis – Zeta Bieng (Original Version)(6:57)
- 03. Dreaming Cooper – Space Trip (8:35)
- 04. Elea – Paisley Faces (Eternity Remix) (5:40)
- 05. Suduaya – Salutation To The Planets (8:41)
- 06. Elea ft Bahramji – Menne Divonne (7:03)
- 07. Tentura – Uzm247 (8:59)
- 08. Sysyphe – Mindscare (9:41)
- 09. Ephemeral Mists – Awakening Spirits (Peyote Mix) (6:55)
- 10. Chronos & C.J. Catalizer – Quid Est Veritas (Air Mix) (2:26)(   Читать дальше...   )Жанр: Psybient, Downtempo, AmbientПродолжительность: 01:28:14
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328120   (368171) от 28.09.2019
-
-VA - FSOE Festival Hits (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aly & Fila - It's All About The Melody (Original Mix)
-02. Dan Stone - Vargo (Original Mix)
-03. Ferry Tayle - Thoughts (Original Mix)
-04. Liam Wilson - 20 Stories (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:58:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F21707C5CF9093D56917F57E29BAF56F1DB4554D
 ```
 
 https://mybot314.ru/tekegram_catalog/

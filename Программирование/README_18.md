@@ -1,83 +1,3 @@
-###  Публикация: 1289930   (683606) от 17.03.2019
-
-Прасти Нараян | Блокчейн. Разработка приложений [+files] (2018) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказано о том, что такое децентрализованные приложения и как они работают. Рассмотрены принципы работы платформы Ethereum. Показано, как писать смарт-контракты и использовать интерактивную консоль Geth для размещения и передачи транзакций. Описана библиотека web3.js, ее импорт, подключение к Geth и использование в среде Node.js или на стороне клиента.
-
-Продемонстрировано, (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73AC3CB2B5BE660B7CF7836681814B94E0E4B270
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134577   (682801) от 18.05.2017
-
-Fabio Cimo | The Best Web Programming Languages to Learn (2016) [PDF] [En]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682801.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой статье мы рассмотрим самый важный аспект современной сети, языков программирования, которые составляют ядро каждой веб-страницы, которую мы видим в Интернете каждый день. В частности, мы рассмотрим некоторые из лучших языков программирования, о которых разработчик должен знать, чтобы повлиять на их жизнь (как личную, так и профессиональную).Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13341AD4F8958E08C28BA04D79AE3067B37E6C68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134694   (682798) от 18.05.2017
-
-Raman Jhajj | Apache Hadoop Cookbook (2016) [PDF] [En]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682798.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге мы предоставляем компиляцию примеров на основе Hadoop, которые помогут вам начать ваши собственные веб-проекты. Мы охватываем широкий спектр тем: от установки и настройки до распределенного кэширования и потоковой передачи. С помощью наших простых обучающих программ вы сможете запустить и запустить свои собственные проекты за минимальное время.Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08E4E943A20B14C614B4988479BF49FB2DF4C64C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134580   (682674) от 18.05.2017
 
 Fabio Cimo | Web Developer Interview Questions (2016) [PDF] [En]
@@ -86,7 +6,7 @@ Fabio Cimo | Web Developer Interview Questions (2016) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682674.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ Fabio Cimo | jQuery Programming Cookbook (2015) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682672.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ Andriy Redko | Advanced Java (2015) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682671.jpg" />
 </div>
 
 
@@ -164,7 +84,7 @@ Web Code Geeks | HTML5 Programming Cookbook (2015) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682666.jpg" />
 </div>
 
 
@@ -191,7 +111,7 @@ Chryssa Aliferi | Android Programming Cookbook (2016) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682663.jpg" />
 </div>
 
 
@@ -217,7 +137,7 @@ Francesco Azzola | Android UI Design (2014) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682662.jpg" />
 </div>
 
 
@@ -243,7 +163,7 @@ Nikos Souris | How to Start a Blog with WordPress (2016) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682660.jpg" />
 </div>
 
 
@@ -270,7 +190,7 @@ Web Code Geeks | PHP Programming Cookbook (2016) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682532.jpg" />
 </div>
 
 
@@ -296,7 +216,7 @@ Fabio Cimo | JavaScript Interview Questions (2016) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682527.jpg" />
 </div>
 
 
@@ -322,7 +242,7 @@ Sebastian Vinci | Python Programming Cookbook (2016) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682525.jpg" />
 </div>
 
 
@@ -348,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682393.jpg" />
 </div>
 
 
@@ -374,7 +294,7 @@ Java code geeks | Apache Maven Cookbook (2016) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682261.jpg" />
 </div>
 
 
@@ -400,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682103.jpg" />
 </div>
 
 
@@ -426,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681785.jpg" />
 </div>
 
 
@@ -452,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681677.jpg" />
 </div>
 
 
@@ -478,7 +398,7 @@ Veeramani Kalyanasundaram | Apache Solr Cookbook (2017) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680812.jpg" />
 </div>
 
 
@@ -504,7 +424,7 @@ Andriy Redko | Developing Modern Applications with Scala (2016) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680808.jpg" />
 </div>
 
 
@@ -531,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680659.jpg" />
 </div>
 
 
@@ -557,7 +477,7 @@ Java code geeks | Apache Tomcat Cookbook (2016) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680407.jpg" />
 </div>
 
 
@@ -584,7 +504,7 @@ Andres Cespedes | Gradle Build Automation Handbook (2016) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678818.jpg" />
 </div>
 
 
@@ -611,7 +531,7 @@ Java code geeks | GWT Programming Cookbook (2016) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678722.jpg" />
 </div>
 
 
@@ -638,7 +558,7 @@ Matt Lambert | Bootstrap Site Blueprints Volume II (2015) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678715.jpg" />
 </div>
 
 
@@ -664,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677173.jpg" />
 </div>
 
 
@@ -675,6 +595,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85737E01DB7660559F73FA4B6064311A5B94E8A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223271   (677013) от 03.05.2018
+
+Василий Усов | Swift. Основы разработки приложений под iOS и macOS [3-е издание] (2017) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Swift — быстрый, современный, безопасныйSwift — быстрый, современный, безопасный и удобный язык программирования. Если вы когда-либо писали приложения на Objective-C, то после изучения Swift с его многообразием возможностей вы, вероятно, захотите переписать приложения на новом языке программирования.
+Мир Swift очень и очень молод, людей со значительным багажом знаний (   Читать дальше...   )Жанр: ПрогаммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B49D05A164705E6080CA252BF5C3575D19BE65BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030513   (672165) от 01.07.2016
+
+Ю.А. Семёнов | Программирование на языке Форт (1991) [DJVU]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описан язык Форт, эффективный при решении задач управления, диагностики и отладки аппаратуры в реальном масштабе времени, а также при создании компактных баз данных на мини- и микро ЭВМ. Анализируются особенности автономной и многозадачной версии языка Форт. Рассмотрена технология написания трансляторов для Форта. Приведены тексты программы, наиболее употребительные (   Читать дальше...   )Жанр: ПрограммированиеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCFE5DE9378697247B3AF4985A707F57AD4E13E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030510   (672156) от 01.07.2016
+
+М. Келли, H. Спайс | Язык программирования Форт (1993) [DJVU]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672156.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге американских авторов описаны основные версии языка Форт, включая стандарты 1979 и 1983 гг., а также версию MMSFORTH для персональной ЭВМ типа IBM PC. Рассмотрены процедуры для работы с файлами и последовательностями символов, техника расширения списка стандартных операторов, а также возможность включения программ, написанных на языке ассемблера. Приведено (   Читать дальше...   )Жанр: ПрограммированиеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:795494A472DD8FB217F9DAF70ED1A9EAB63A3A8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

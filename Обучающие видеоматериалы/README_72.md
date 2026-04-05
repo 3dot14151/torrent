@@ -1,3 +1,29 @@
+###  Публикация: 1491573   (910240) от 25.08.2021
+
+Udemy, Nicholas Lever | The Beginners Guide to 3D Web Game Development with ThreeJS (2021) PCRec [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910240.jpg" />
+</div>
+
+
+###  Подробнее
+
+Узнайте, как писать код JavaScript, получая удовольствие от создания игр с помощью WebGL библиотеки ThreeJS.Производство: UdemyЖанр: Разработка игрЯзык озвучки: АнглийскийСубтитры: Английские (отдельным файлом, формат SRT)Продолжительность: 07:16:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46CFC677FDCFDE69B89E036FBC36589D5B54963F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368256   (910144) от 19.03.2020
 
 Bang Bang Education | Сетки и проектирование сайтов (2018) PCRec [H.264/1080p-LQ]
@@ -6,7 +32,7 @@ Bang Bang Education | Сетки и проектирование сайтов (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910144.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ Bang Bang Education | Создание пространства в Adobe Illustr
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910120.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909959.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ ITVDN | SPRING (2020) PCRec [H.264/1080p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909955.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909280.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ Bang Bang Education | 1000 и 1 буква (2019) PCRec [H.264/1080p-LQ]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908687.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ CyberBionic | Практикум по алгоритмам (2020) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908310.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ Bang Bang Education | Вечера с Arduino. Базовый курс (2020) PC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908296.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ OTUS | Machine learning (2020) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908282.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ OTUS | Этичный хакинг. Практика тестирования н
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908268.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908002.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907966.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907591.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907563.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ United Traders | Обучение заработку на фондовой би�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907321.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906756.jpg" />
 </div>
 
 
@@ -432,7 +458,7 @@ The VFX School, Agustin Schilling, Pol Villa | Houdini Renascence Program Part 4
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906739.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ The VFX School, Agustin Schilling, Pol Villa | Houdini Renascence Program Part 3
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906737.jpg" />
 </div>
 
 
@@ -486,7 +512,7 @@ The VFX School, Agustin Schilling, Pol Villa | Houdini Renascence Program Part 1
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906569.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ Bang Bang Education | Секреты композиции (2017) PCRec [H.264/10
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906525.jpg" />
 </div>
 
 
@@ -541,7 +567,7 @@ OTUS | Архитектор программного обеспечения (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906360.jpg" />
 </div>
 
 
@@ -567,7 +593,7 @@ OTUS | Математика для Data Science. Продвинутый курс
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906339.jpg" />
 </div>
 
 
@@ -593,7 +619,7 @@ Solidprofessor | Подборка курсов по SolidWorks [2007-2013] PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905201.jpg" />
 </div>
 
 
@@ -620,7 +646,7 @@ WingFox, Ognyan Zahariev | Magical Classroom Scene Creating for Games [Low Quali
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905049.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ Explore Blender, Gustav Nilsson | Mastering Drivers in Blender 2.7 (2014) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903802.jpg" />
 </div>
 
 
@@ -659,34 +685,6 @@ Explore Blender, Gustav Nilsson | Mastering Drivers in Blender 2.7 (2014) PCRec 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA55350C7F3BCBB0DA14BAAF3AD292CD726D0ACD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492383   (903451) от 29.08.2021
-
-Udemy, Emiel Sleegers | Military Game Asset Creation in Blender 2.83, Substance Painter & Marmoset (2021) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Узнайте, как работает профессиональный художник пропсов при создании пропсов для игр.
-Вы узнаете всё необходимое для создания ассета, показанного на изображениях и трейлере, с нуля.
-В конце также будет бонусная глава, в которой будет показан таймлапс создания сцены внутри Unreal Engine 4.Производство: UdemyЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 18:11:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FAE1D71127DE443823DA1E14D5FA1942EFEAE29
 ```
 
 https://mybot314.ru/tekegram_catalog/

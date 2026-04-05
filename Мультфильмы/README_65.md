@@ -1,3 +1,133 @@
+###  Публикация: 1099349   (904566) от 01.02.2017
+
+Черный котел / The Black Cauldron (1985) WEB-DL [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой — Таран, мальчик-свинопас, мечтающий стать великим воином и защитником родного Придейна. Его антагонист — злой и могущественный Рогатый король, вознамерившийся завладеть Чёрным котлом и с помощью заключённой в нём силы воскресить армию нежити и покорить мир. Однако найти Чёрный котёл — непростая задача. Его местонахождение может указать волшебная свинка (   Читать дальше...   )Производство: США, Walt Disney PicturesЖанр: Рисованная анимация, Фентези, СказкаРежиссер: Тед Берман, Ричард РичПерсонажи: Грант Бардсли, Сьюзэн Шеридан, Фредди Джонс, Найджел Хоторн, Артур Мэлет, Джон Байнер, Линдсэй Рич, Брэндон Колл, Грегори Левинсон, Эда Рейсс МеринПеревод: ДублированныйЯзык субтитров: русские, английские (полные)Продолжительность: 01:20:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58FE2ED6EB19306E133C2F7893AA26D4187216B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 866966   (904427) от 07.02.2015
+
+Семейка монстров / The Boxtrolls (2014) BDRemux 3D [1080p] [3D/2D]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904427.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ему не повезло родиться в роскошном замке. Вместе с семейкой забавных монстров юноша поселился прямо под мостовой. Изысканные костюмы ему заменила обычная коробка. Зато каждую ночь он мог разгуливать по темным улицам в поисках новых приключений. Но однажды он встретил очаровательную девчушку из высшего общества — и мир вокруг изменился навсегда.Производство: США, Laika EntertainmentЖанр: Фэнтези, Комедия, СемейныйРежиссер: Грэхэм Эннэйбл, Энтони СтаккиАктеры: Кирилл Туранский, Даниил Эльдаров, Александр Гаврилин, Владимир АнтиповПеревод: Дублированный (Лицензия Blu-ray CEE)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский, украинский, английскийПродолжительность: 01:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C869203CC64D937B9CD1D820D1B782187837ED6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 867107   (904275) от 07.02.2015
+
+Астерикс: Земля Богов / Asterix Le domaine des dieux (2014) BDRemux 3D [1080p] [3D/2D]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Астерикс и его лучший друг Обеликс продолжают свою многолетнюю борьбу с Цезарем, который хочет наконец-то расправиться с неукротимыми галлами. Вокруг деревни Астерикса Цезарь приказывает построить новый Рим — Землю Богов. В галльской деревне хаос и смятение. Но Астерикс и Обеликс не сдаются!Производство: Франция, M6 Studio, Belvision, Grid AnimationЖанр: Мультфильм, Приключения, Фэнтези, КомедияРежиссер: Александр Астье, Луис КлишиПерсонажи: Роже Карель, Гийом Бриа, Ален Шаба, Лоран Лафитт, Александр Астье, Джеральдин Накаш, Флоренс Форести, Франсуа Морел, Лоран Дойч, Эли Семон, Артус Де Пенгуер, Бернар Алан.Перевод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:25:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E96AA6F63B3C9C1702AFB0E4FCF5F8965DA6D7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 867036   (904203) от 07.02.2015
+
+Астерикс: Земля Богов / Asterix Le domaine des dieux (2014) Blu-ray 3D [1080p] [3D/2D]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Астерикс и его лучший друг Обеликс продолжают свою многолетнюю борьбу с Цезарем, который хочет наконец-то расправиться с неукротимыми галлами. Вокруг деревни Астерикса Цезарь приказывает построить новый Рим — Землю Богов. В галльской деревне хаос и смятение. Но Астерикс и Обеликс не сдаются!Производство: Франция, M6 Studio, Belvision, Grid AnimationЖанр: Мультфильм, Приключения, Фэнтези, КомедияРежиссер: Александр Астье, Луис КлишиПерсонажи: Роже Карель, Гийом Бриа, Ален Шаба, Лоран Лафитт, Александр Астье, Джеральдин Накаш, Флоренс Форести, Франсуа Морел, Лоран Дойч, Эли Семон, Артус Де Пенгуер, Бернар Алан.Перевод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:25:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E092B4584137004D268A31E225479E4CAFB74853
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 867078   (904133) от 07.02.2015
+
+Астерикс: Земля Богов / Asterix Le domaine des dieux (2014) HDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Астерикс и его лучший друг Обеликс продолжают свою многолетнюю борьбу с Цезарем, который хочет наконец-то расправиться с неукротимыми галлами. Вокруг деревни Астерикса Цезарь приказывает построить новый Рим — Землю Богов. В галльской деревне хаос и смятение. Но Астерикс и Обеликс не сдаются!Производство: Франция, M6 Studio, Belvision, Grid AnimationЖанр: Мультфильм, Приключения, Фэнтези, КомедияРежиссер: Александр Астье, Луис КлишиПерсонажи: Роже Карель, Гийом Бриа, Ален Шаба, Лоран Лафитт, Александр Астье, Джеральдин Накаш, Флоренс Форести, Франсуа Морел, Лоран Дойч, Эли Семон, Артус Де Пенгуер, Бернар Алан.Перевод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:25:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:783E80747CADA4A0FD4AFDA3F5C0EC1FCDDB812B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 867201   (904130) от 07.02.2015
 
 Астерикс: Земля Богов / Asterix Le domaine des dieux (2014) BDRip [1080p] 3D [Вертикальная анаморфная стереопара]
@@ -6,7 +136,7 @@
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904130.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904028.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904026.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904003.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903905.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903866.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903770.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903765.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903611.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ Playmobil фильм: Через вселенные / Playmobil: The Movie (2019
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903344.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903297.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ Playmobil фильм: Через вселенные / Playmobil: The Movie (2019
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903231.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903173.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902864.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902860.jpg" />
 </div>
 
 
@@ -399,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902640.jpg" />
 </div>
 
 
@@ -425,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902630.jpg" />
 </div>
 
 
@@ -453,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902565.jpg" />
 </div>
 
 
@@ -479,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902360.jpg" />
 </div>
 
 
@@ -505,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902277.jpg" />
 </div>
 
 
@@ -531,7 +661,7 @@ Angry Birds 2 в кино / The Angry Birds Movie 2 (2019) BDRip [H.264/1080p-LQ
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902058.jpg" />
 </div>
 
 
@@ -542,138 +672,6 @@ Angry Birds 2 в кино / The Angry Birds Movie 2 (2019) BDRip [H.264/1080p-LQ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D672EDE4661FDD4740446888ACF5FFF1327196E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 636567   (901744) от 30.03.2013
-
-Ледниковый период / Ice Age (2002) BDRip [Ukr]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веселые и опасные приключения героев. 20 тыс. лет назад. Чтобы избежать приближающегося из-за наступления ледникового периода холода, животные мигрируют на юг. Однако некоторые из них все-таки решают остаться — одинокий, угрюмый мамонт Манфред, а также бесшабашный ленивец Сид.
-
-Случайно эта парочка наталкивается на человеческого детеныша. Они решаются вернуть его (   Читать дальше...   )Жанр: Детский, Приключения, КомедияРежиссер: Крис Уэдж, Карлос СалданаПерсонажи: Алан Тьюдик, Горан Вишнич, Седрик-развлекатель, Рэй Романо, Джон Легуизамо, Денис Лири, Джек Блэк, Дидрих Бадер, Стивен Рут, Лорри БэглиПеревод: ДублированныйПродолжительность: 01:21:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50AF5442CE049DEB2A3566528389D168F33A5346
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 182420   (901702) от 12.03.2010
-
-Лего:  Приключения Клатча Пауэрса / Lego: The Adventures of Clutch Powers (2010) DVDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встречайте Клатча Пауэрса, лучшего строителя и исследователя во всей вселенной Лего. Он отправляется на свое самое опасное задание. Присоединяйтесь к Клатчу и его команде Лего-экспертов в приключении, которое поведет их от Лего-Сити на планету-тюрьму Космической Полиции, а затем в средневековый мир Ашлара, где они должны помочь настоящему наследнику королевского (   Читать дальше...   )Производство: СШАЖанр: Детский, ПриключенияРежиссер: Ховард Э. БэйкерПерсонажи: Райан МакПартлин, Ивонн Страховски, Пол Майкл Глейзер, Роджер Роуз, Джефф Беннетт, Грегг Бергер, Стефан Кокс, Алекс Десерт, Крис ХардвикПеревод: ДублированныйПродолжительность: 01:18:18
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 760629   (901656) от 25.02.2014
-
-Обиженные игрушки (1949) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультипликационный фильм о медвежатах, которые не умели бережно играть со своими игрушками и постоянно ломали их. Однажды бабушка-медведица пошла в магазин игрушек и купила любимым внучатам очередные подарки. Но медвежата разломали новые игрушки в первый же день. Пришлось бабушке нести сломанные игрушки в мастерскую. Когда медвежата уснули, им приснился сон, будто (   Читать дальше...   )Жанр: ДетскийРежиссер: Владимир МуджириПродолжительность: 00:10:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0CB0865A1B337A6318234F64916F00007E8E8F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 637229   (901623) от 30.03.2013
-
-Побег с планеты Земля / Escape from Planet Earth (2013) Blu-ray 3D [2D/3D] [1080p]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901623.jpg" />
-</div>
-
-
-###  Подробнее
-
-На планете Бааб, в самом центре Вселенной, два брата делают всё возможное, чтобы защитить свою галактику. Они — полные противоположности. Если девиз Гарри — «сначала подумай, потом сделай», то отважный Скорч живет по закону «сила есть — ума не надо», что не мешает им слаженно работать. Но однажды они получают сигнал S.O.S. с опасной планеты…под названием Земля. Скорч, (   Читать дальше...   )Производство: США, КанадаЖанр: Анимация, Фантастика, Комедия, ПриключенияРежиссер: Кэллан БрукнерАктеры: Брендан Фрейзер, Роб Кордри, Рики Джервэйс, Джонатан Морган Хейт, Джессика Альба, София Вергара, Пол Шеер, Джейсон Симпсон, Сара Джессика Паркер, Даг АбрахамсПеревод: ДублированныйЯзык субтитров: НетПродолжительность: 01:29:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AA563531F5BEC8627CA891FF11A2E9B75632A5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 637252   (901547) от 30.03.2013
-
-Побег с планеты Земля / Escape from Planet Earth (2013) BDRemux  [1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901547.jpg" />
-</div>
-
-
-###  Подробнее
-
-На планете Бааб, в самом центре Вселенной, два брата делают всё возможное, чтобы защитить свою галактику. Они — полные противоположности. Если девиз Гарри — «сначала подумай, потом сделай», то отважный Скорч живет по закону «сила есть — ума не надо», что не мешает им слаженно работать. Но однажды они получают сигнал S.O.S. с опасной планеты…под названием Земля. Скорч, (   Читать дальше...   )Производство: США, КанадаЖанр: Анимация, Фантастика, Комедия, ПриключенияРежиссер: Кэллан БрукнерАктеры: Брендан Фрейзер, Роб Кордри, Рики Джервэйс, Джонатан Морган Хейт, Джессика Альба, София Вергара, Пол Шеер, Джейсон Симпсон, Сара Джессика Паркер, Даг АбрахамсПеревод: ДублированныйЯзык субтитров: НетПродолжительность: 01:29:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E638B14152818C79D4A9A6BD18AA8C7A8FA4A79
 ```
 
 https://mybot314.ru/tekegram_catalog/

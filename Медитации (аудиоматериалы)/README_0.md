@@ -1,3 +1,31 @@
+###  Публикация: 1260550   (306734) от 09.11.2018
+
+Андрей Ракицкий | Гипноз для снижения веса по методу GSI (5 сеансов, похудение) (2018) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Медитации (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Воздействуя на глубинные настройки работы вашего организма, мы активизируем созданные самой природой процессы интенсивного использования жировой ткани. Организм начнет работать так, как это бывает в кризисных ситуациях, связанных с вынужденным ограничением или лишением пищи. Это обеспечит быстрое и физиологичное снижение веса без эффекта его обратного набора.
+
+Каждый (   Читать дальше...   )Жанр: Гипнотическая сессияПродолжительность: 2:18:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B70D51D02A65AA1A4E3F4F688A001791759010B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1334232   (292795) от 30.10.2019
 
 Рюди  Вестендорп | Стареть, не старея: О жизненной активности и старении (2019) [MP3]
@@ -6,7 +34,7 @@
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292795.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292699.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174198.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174123.jpg" />
 </div>
 
 
@@ -113,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169483.jpg" />
 </div>
 
 
@@ -142,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164630.jpg" />
 </div>
 
 
@@ -168,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158893.jpg" />
 </div>
 
 
@@ -194,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147667.jpg" />
 </div>
 
 
@@ -220,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146971.jpg" />
 </div>
 
 
@@ -246,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124206.jpg" />
 </div>
 
 
@@ -272,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60561.jpg" />
 </div>
 
 
@@ -299,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59842.jpg" />
 </div>
 
 
@@ -326,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39660.jpg" />
 </div>
 
 
@@ -352,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30300.jpg" />
 </div>
 
 
@@ -378,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1799.jpg" />
 </div>
 
 
@@ -404,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1627.jpg" />
 </div>
 
 

@@ -1,3 +1,61 @@
+###  Публикация: 1002991   (845290) от 02.04.2016
+
+VA - Laboratory Chemicals: Bass Techno House (2016) [MP3|320 кб/с] <Minimal, Tech House, Bass Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845290.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. King Unique - Raydrop (7 Hours) Feat. Natalie Arnold
+002. Laing - Morgens Immer Mude
+003. Brodinski Feat. Louisahhh!!! - Let The Beat Control Your Body
+004. The Fog Vs Chus & Ceballos - Been A Long Time (Mark Knight Remix)(   Читать дальше...   )Жанр: Minimal, Tech House, Bass TechnoПродолжительность: 10:56:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B12BCBAE391DA955BE217E150E4EFAA68AD748F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003239   (845186) от 02.04.2016
+
+VA - Top 100 Deep House (March) (2016) [MP3|320 кб/с] <House, Indie Dance, Jackin House, Minimal House, Nu Disco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adam Lambert - Ghost Town (Fly Remix)
+02. Ahmet Kilic & Stoto feat. Shea Doll - Good Ones Go (Original Mix)
+03. ALEKSEEV - Держи Меня (BlackShot DJs Remix)
+04. Alexander Ben - Losing My Religion (Talel Future Disco Mix)(   Читать дальше...   )Жанр: House, Indie Dance, Jackin House, Minimal House, Nu DiscoПродолжительность: 10:13:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B26CCFF8338E5DEE2D8F6B0858480CF243FE7D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112024   (845159) от 07.03.2017
 
 VA - DMC Dance Mixes 2016 (Volume Two) (2017) [MP3|320 Kbps] <Club, Electro House, Deep House>
@@ -6,7 +64,7 @@ VA - DMC Dance Mixes 2016 (Volume Two) (2017) [MP3|320 Kbps] <Club, Electro Hous
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845159.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - DMC Dance Mixes 2016 (Volume One) (2017) [MP3|320 Kbps] <Club, Electro Hous
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845146.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Nude Mix #3 (2016) [MP3|320 кб/с] <Drum & Bass, Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845114.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Девочки танцуют 2017 (mixed by Dj V) (2017) [MP3|320 Kbps] <C
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844869.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Hard Fusion: Hardstyle Music For Sport (2020) [MP3|320 Kbps] <Hardstyle, Da
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844804.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Record Super Chart 633 (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844803.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ DJ Ramezz - Collection Of Remixes (2020-2021) [MP3 320 Kbps] <Eurodance, Dance P
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844305.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Dj Ikonnikov - E.x.c Version (часть 2) Vol.31-60 (2017-2021) [MP3|320 Kbps]
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843893.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Dancing Flower Mix (2016) [MP3|268-320 кб/с] <Electro, Progressive House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843576.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Sweet and Sexy: 20 Amazing Lounge Anthems Vol.3 (2016) [MP3|320 кб/с] <D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843573.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Second Nature House: April Deep House (2016) [MP3|320 кб/с] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843502.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Ham!d Production February 2017 (2017) [MP3|192-320 Kbps] <Pop, Deep, Trance
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843389.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Happy Feeling Vol.1 (2016) [MP3|320 кб/с] <House, Progressive, Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841909.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - DJ Pitkin Special Mix 22 (2016) [MP3|320 кб/с] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841908.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Party Anthems №1. The World Biggest Dance & Club Hits (2016) [MP3|320кб
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841902.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Dance Club Vol.2 (2016) [MP3|320 кб/с] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841899.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Lobby Bar Lounge Vol.3: 20 Midnight Lounge Tunes (2016) [MP3|320 кб/с] <
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841871.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Trance Desire Volume 65 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841848.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Progressive Beats 008 (2016) [MP3|320 кб/с] <Trance, Progressive House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840312.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Deep Love Session (Mixed By Mark Bonk) (2016) [MP3|320 кб/с] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840311.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Lobby Bar Lounge Vol.2: 20 Midnight Lounge Tunes (2016) [MP3|320 кб/с] <
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840305.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Luxemusic Dance Super Chart Vol.62 (2016) [MP3|320 кб/с] <House,  Electr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840206.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Natural Lounge Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840121.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Amazing Vocal Future Bass 1 (2017) [MP3|320 Kbps] <Future Bass, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840008.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Amazing Vocal Future Bass 1 (2017) [MP3|320 Kbps] <Future Bass, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D183821B2E9D579E9DEC80A2F036B9E0DF79299
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379518   (839575) от 29.04.2020
-
-VA - Jump Urban: Hard Dub Party (2020) [MP3|320 Kbps] <Hard Dance, Hardstyle>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839575.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hard5hooterz - Next Termination
-002. Ophidian - Bring On The Orchestra
-003. Repix - Lost
-004. The Style Creators - Feel Alive(   Читать дальше...   )Жанр: Hard Dance, HardstyleПродолжительность: 07:26:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:758E1339BAD581D244D79F3B6568304649F41F4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379521   (839565) от 29.04.2020
-
-VA - Beatport Chillout: Electro Sound Pack #70 (2020) [MP3|320 Kbps] <Chillout, Ambient, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839565.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Pearldiver - Hold 'em Down
-002. Absentune - Todo Sigue
-003. Marcelo Berges - Montañas
-004. Giovanni Lucchetti - Su Tramont(   Читать дальше...   )Жанр: Chillout, Ambient, LoungeПродолжительность: 07:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAFBFFF7142A3215F0A6AE663CF4DC6C671D89C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

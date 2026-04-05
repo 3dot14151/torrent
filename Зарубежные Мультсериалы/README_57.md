@@ -1,3 +1,55 @@
+###  Публикация: 1702482   (57587) от 05.05.2024
+
+Звёздные войны: Бракованная партия / Star Wars: The Bad Batch (2024) WEB-DLRip [H.264/720p] (сезон 3, серии 1-15 из 15) LostFilm
+
+>>След.
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57587.jpg" />
+</div>
+
+
+###  Подробнее
+
+В эпичном завершающем сезоне мультсериала «Звёздные войны: Бракованная партия» Отряд испытает пределы своих возможностей в борьбе за воссоединение с Омегой, в то время как сама она преодолевает испытания в отдалённой имперской лаборатории. В условиях, когда группа раздроблена и ей со всех сторон грозят опасности, клонам придётся искать неожиданных союзников, отправляться (   Читать дальше...   )Производство: США / Disney+, Lucasfilm Animation, LucasfilmЖанр: мультфильм, фантастика, боевик, драма, приключенияРежиссер: Дэйв ФилониАктеры: Ди Брэдли Бейкер, Эрнесто Баутиста, Мин-На Вэнь, Ношир Далаль, Эндрю Кисино, Стефен Стэнтон, Бен Дискин, Кори БертонПеревод: Многоголосый профессиональный (LostFilm)Язык озвучки: РусскийСубтитры: НетПродолжительность: ~00:30:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18829F6EAF0D554B7869076F8BB4B4FC1733648C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701587   (57376) от 07.05.2024
+
+Звёздные войны: Бракованная партия / Star Wars: The Bad Batch (2024) WEB-DLRip [H.264/1080p] (сезон 3, серии 1-15 из 15) CFS, NewComers, AlexFilm, TVShows, NewStudio, Lostfilm
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет сосредоточен вокруг экспериментального отряда генно-модифицированных клонов, которые не попали под действие чипов во время поступления «Приказа 66» и стали врагами новому имперскому порядку. Пятеро солдат не могут заставить себя казнить невинных гражданских лиц и обвиняются в государственной измене. Главные герои находят поддержку в лице молодого рекрута, ребенка (   Читать дальше...   )Производство: США, Disney+, Lucasfilm Animation, Lucasfilm Ltd.Жанр: мультфильм, фантастика, фэнтези, боевик, драма, приключенияРежиссер: Брэд Рау, Стюарт Ли, Натаниель ВильянуэваАктеры: Ди Брэдли Бейкер, Мишель Энг, Ношир Далаль, Ри Перлман, Стивен Стэнтон, Бен Дискин, Гвендолин Ео, Лиам О’Брайен, Сэм Ригел, Боб БергенПеревод: Дублированный (Condor Films Studio), многоголосый профессиональный (NewComers, AlexFilm, TVShows, NewStudio, Lostfilm)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английские (SDH)Продолжительность: ~00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0C004175FA86BDEA047272B53BB66E8EBD4F651
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1721727   (57236) от 08.05.2024
 
 Эксперименты Лэйн / Shiriaru Ekusuperimentsu Rein / Serial Experiments Lain (1998) BDRip (1-13 серии из 13) XL Media [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57236.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57226.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57107.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57094.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57091.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57076.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57034.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56996.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ DOTA: Кровь дракона / Dota: Dragon's Blood (2021) WEB-DLRip (сез�
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56990.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56967.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56909.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56782.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56707.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56697.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56575.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56467.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56196.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55951.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55946.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55533.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55341.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54998.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54709.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54533.jpg" />
 </div>
 
 
@@ -618,58 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43626EE68A3A3FCC3E244163B3C7CEA67726A500
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708705   (54119) от 07.06.2024
-
-Люди Икс ’97 / X-Men '97 (2024) WEB-DL [H.264/1080p] (Сезон 1, Серия 1-10 из 10) HDRezka Studio, LostFilm, Jaskier, NewComers, Flarrow Films
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54119.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Люди Икс ’97" - американский супергеройский мультсериал, созданный шоураннером Бо ДеМайо для стримингового сервиса Disney+. Он основан на комиксах об одноимённой команде Marvel Comics и является продолжением мультсериала "Люди Икс" 1992 года. Повествование начинается с момента завершения оригинального сериала и освещает приключения мутантов после (   Читать дальше...   )Производство: США Marvel Animation, Marvel Studios, The Walt Disney Company/Жанр: мультфильм, фантастика, фэнтези, боевик, приключенияРежиссер: Джейк Касторена, Чейз КонлиПеревод: Дублированный (Flarrow Films), Профессиональный многоголосый (HDRezka Studio, LostFilm, Jaskier, NewComers)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: ~00:30:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D41B33B0AB5CBCEC3B3A0FD7161E5F157AFD8AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709601   (54116) от 07.06.2024
-
-Люди Икс ’97 / X-Men '97 (2024) WEB-DL [H.265/2160p] [4K, HDR10, Dolby Vision Profile 8, 10-bit] (Сезон 1, Серия 1-10 из 10) LostFilm, HDRezka Studio, Jaskier, NewComers, Flarrow Films
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54116.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Люди Икс ’97" - американский супергеройский мультсериал, созданный шоураннером Бо ДеМайо для стримингового сервиса Disney+. Он основан на комиксах об одноимённой команде Marvel Comics и является продолжением мультсериала "Люди Икс" 1992 года. Повествование начинается с момента завершения оригинального сериала и освещает приключения мутантов после (   Читать дальше...   )Производство: США Marvel Animation, Marvel Studios, The Walt Disney Company/Жанр: мультфильм, фантастика, фэнтези, боевик, приключенияРежиссер: Джейк Касторена, Чейз КонлиПеревод: Дублированный (Flarrow Films), Профессиональный многоголосый (LostFilm, HDRezka Studio, Jaskier, NewComers)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: ~00:30:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9D70819398F380D562665D9717FD5214FCB67B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

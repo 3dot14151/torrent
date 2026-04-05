@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601141.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600988.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Critical Strike Portable 3.589 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600985.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Airline Manager 2 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600978.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Jurassic World  1.2 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600927.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600870.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Return To Castle Wolfenstein 2.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600788.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Alien Bugs Defender 1.10.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600348.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Myth Defence Light Forces 2.3.0 free [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599979.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Lemurzin / Лемурзин 1.32 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599978.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Dracula 5: The Blood Legacy HD 1.0.3 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599966.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Stick Squad 2 - Shooting Elite 1.0.4 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599964.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Space RPG 2, Продолжение 2D космической леталки 1.1
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599962.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ City Racing 3D v1.6.033 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599843.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Toca Nature 1.0.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599841.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Myth Defense 2: DF 1.2.2 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599831.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599704.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Metal Slug Defense v1.27.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599703.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ The Witcher Adventure Game 1.2.2  [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599690.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599685.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Dragon Quest VIII: Journey of the Cursed King 1.0.4 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599672.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599491.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Secret Files Tunguska v1.0.28 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599485.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ I’m Ok Mama - GPS трекер 1.0.6 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599391.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ SCR 5+ Pro 0.1.3 + SCR Pro 1.0.4 [Rus]- Видеозапись происход�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599383.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599068.jpg" />
 </div>
 
 

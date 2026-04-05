@@ -6,7 +6,7 @@ Dizzy Gillespie Big Band - Complete 1956 South American Tour Recordings (2015) 2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240106.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Dizzy Gillespie - The Champ (1952) 2003,  Savoy Jazz [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240080.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Stan Getz - 1946 - 1949 (2000) Classics [FLAC|Lossless|image + .cue] <Bop, Cool>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240042.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ The Modern Jazz Sextet - 1956 (2000) Азбука Звука [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240037.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ James P. Johnson - 1944 (1995) Classics [FLAC|Lossless|image + .cue] <Ragtime, S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240034.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Buck Clayton - 1945 - 1947 (1997) Classics [FLAC|Lossless|image + .cue] <Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240026.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Louis Prima - 1935 - 1936 (1999) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240018.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Lucky Thompson - 1944 - 1947 (2000) Classics [FLAC|Lossless|tracks + .cue] <Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240003.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ John Goldsby - Viewpoint (2001) [FLAC|Lossless|tracks + .cue] <Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239990.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Bill Evans - Live At Ronnie Scott's (1968) 2CD, 2020, Resonance Records [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239978.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Christian McBride's New Jawn - Prime (2023) Mack Avenue Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239929.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ John Coltrane - Coltrane Time (1958) 1986, Toshiba-EMI [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239900.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Jason Marsalis - Live (2017) 2020, Basin Street Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239868.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Max Roach - Deeds, Not Words (1958) 1987, Original Jazz Classics [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239853.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Terence Blanchard - Terence Blanchard (1991) Columbia [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239851.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Bruce Torff - Look Again (2013) Summit Records [FLAC|Lossless|tracks + .cue] <Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239797.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Benny Golson - Turning Point & Free (1962) 2013, Fresh Sound Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239768.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Benny Golson Funky Quintet - That's Funky (1994) 2000, Arkadia Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239752.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Sammy Davis, Jr. - I've Gotta Be Me (1968) 2004,  Collectors' Choice Music [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239751.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Guillaume Nouaux & The Stride Piano Kings (2020) Self-Released [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239742.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ John Lewis - Four Classic Albums Plus (1955 - 1957) 2CD, 2009, Avid Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239720.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Full Faith & Credit Big Band - FF&C III (1988) TBA Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239695.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Don Patterson & Booker Ervin - Legends Of Acid Jazz (1964) 1996, Prestige [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239665.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Martial Solal Trio - Triangle (1995) JMS [FLAC|Lossless|tracks + .cue] <Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239630.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Connie Han - Iron Starlet (2020) Mack Avenue [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239612.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Muggsy Spanier - 1939 - 1942 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239597.jpg" />
 </div>
 
 

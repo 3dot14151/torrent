@@ -1,3 +1,62 @@
+###  Публикация: 1056446   (479488) от 26.09.2016
+
+Heidi Feek - The Only (2013) [MP3|320 Kbps] <Country, World, Vocal>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Like The Way   (02:42)
+02. Somebody Someday   (03:42)
+03. 57 Bel Air   (03:14)
+04. The Only   (03:11)(   Читать дальше...   )Жанр: Country, World, VocalПродолжительность: 00:37:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1507D1C5B8312AAF6E5123B9B9EAC303EA85BAEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406025   (479142) от 01.09.2020
+
+Rome - The Lone Furrow (2020) [FLAC|Lossless|WEB-DL|tracks] <Neofolk, Post-industrial>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479142.jpg" />
+</div>
+
+
+###  Подробнее
+
+ROME - проект из Люксембурга, образовался сравнительно недавно, в 2005 году. Его постоянным участником и основателем является Джером Ройтер (Jérôme Reuter).
+ROME создал очаровательный мир противоречий, которым пронизаны все песни. Этот мир с ясностью и неповреждённой добротой словно вынимает вас из повседневного мира и окунает в совершенно иной, утопический, (   Читать дальше...   )01. Masters of the Earth [00:02:44]
+02. Tyriat Sig Tyrias [00:02:57]
+03. Ächtung, Baby! [00:03:57]
+04. Making Enemies in the New Age [00:01:00](   Читать дальше...   )Жанр: Neofolk, Post-industrialПродолжительность: 00:43:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E06C8AC20F9A1B0EA58B67A5182198C7D3DA50A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1405939   (479130) от 01.09.2020
 
 David Arkenstone - The Turning Of The Year (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -6,7 +65,7 @@ David Arkenstone - The Turning Of The Year (2020) [FLAC|Lossless|WEB-DL|tracks] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479130.jpg" />
 </div>
 
 
@@ -35,7 +94,7 @@ Kitaro - Final Call (2013) [MP3|320 кб/с]<New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478385.jpg" />
 </div>
 
 
@@ -70,7 +129,7 @@ Sarah Darling - Dream Country (2016) [MP3|320 Kbps] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478121.jpg" />
 </div>
 
 
@@ -99,7 +158,7 @@ Manish Vyas - Sattva (2003) [FLAC|Lossless|tracks + .cue] <New Age, Meditative>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477967.jpg" />
 </div>
 
 
@@ -128,7 +187,7 @@ Ben Caplan - Birds With Broken Wings (2015) [MP3|320 кб/с]<Country, Funky Blu
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477917.jpg" />
 </div>
 
 
@@ -157,7 +216,7 @@ Blue Rodeo - In Our Nature (2013) [MP3|320 Kbps] <Folk Rock, World, Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477505.jpg" />
 </div>
 
 
@@ -186,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477356.jpg" />
 </div>
 
 
@@ -216,7 +275,7 @@ SPA & Wellness Massage Masters, Beauty Spa Music Collection, Zen Spa Music Exper
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477341.jpg" />
 </div>
 
 
@@ -245,7 +304,7 @@ The Soundtrack Studio Stars - Sounds of Tarantino (2014) [MP3|320 Kbps] <Soundtr
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477192.jpg" />
 </div>
 
 
@@ -274,7 +333,7 @@ Art Of Noise - The Best Of The Art Of Noise - The Art Of Love (1992) [FLAC|Lossl
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476306.jpg" />
 </div>
 
 
@@ -303,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475882.jpg" />
 </div>
 
 
@@ -332,7 +391,7 @@ VA - Diamond Best Mood Tenor Sax Best (2CD)(2006) [FLAC|Lossless|image + .cue] <
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475788.jpg" />
 </div>
 
 
@@ -361,7 +420,7 @@ Apocalyptica - Aquarela (2019) [MP3|320 Kbps] <OST, Cello Metal>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475071.jpg" />
 </div>
 
 
@@ -390,7 +449,7 @@ Christopher Phillips - Piano Chill: Songs of Simon & Garfunkel (2019) [FLAC|Loss
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474910.jpg" />
 </div>
 
 
@@ -419,7 +478,7 @@ Marina Raye and Olabayo - Drumming into Paradise (2000) [FLAC|Lossless|tracks + 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474325.jpg" />
 </div>
 
 
@@ -448,7 +507,7 @@ Jean Michel Jarre - Equinoxe (1978) Remaster, 1983, Polydor [FLAC|Lossless|image
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474277.jpg" />
 </div>
 
 
@@ -477,7 +536,7 @@ The BBC Concert Orchestra - Cinema Silver Screen Classic (2012) [FLAC|Lossless]<
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473930.jpg" />
 </div>
 
 
@@ -506,7 +565,7 @@ The Romantic Strings Orchestra - The Greatest Love Of All (1998) [FLAC|Lossless|
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473914.jpg" />
 </div>
 
 
@@ -535,7 +594,7 @@ VA - Sax Is The Best! Showa Kayo Listening At Sax (2012) 5CD [FLAC|Lossless|imag
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473890.jpg" />
 </div>
 
 
@@ -564,7 +623,7 @@ Jason James - Jason James (2015) [MP3|320 кб/с]<Texan Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473564.jpg" />
 </div>
 
 
@@ -593,7 +652,7 @@ Jesse Lafser - Raised On The Plains (2015) [MP3|320 кб/с]<Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473558.jpg" />
 </div>
 
 
@@ -622,7 +681,7 @@ Ramin Djawadi - Игра престолов / Game of Thrones, Сезон 4 (201
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473540.jpg" />
 </div>
 
 
@@ -651,7 +710,7 @@ IchPak - De mo (2013) Авторская раздача [MP3|320 кб/с]<untitl
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472067.jpg" />
 </div>
 
 
@@ -680,7 +739,7 @@ Jan Pham Huu Tri & Gabin De L’Auray - Gentle Acoustic Guitar (2018) [FLAC|Loss
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472014.jpg" />
 </div>
 
 
@@ -694,61 +753,6 @@ Jan Pham Huu Tri & Gabin De L’Auray - Gentle Acoustic Guitar (2018) [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C48E6900250E0E92BD55B71E24FB3C1AE69A54AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245579   (471909) от 06.09.2018
-
-Relaxing Piano Music & Sleep Baby Sleep - Newborns - Relaxing Pregnancy Music (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Lullabye for Alice Grey (Amazing Bedtime Music)	5:09
-02 Native American Massage Music	6:45
-03 Ocean Waterfall  4:08
-04 Relax Your Soul B 4:39(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84549EEBABA46B14EFB0CADF86D2391F8D2A3FE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 701825   (471884) от 20.09.2013
-
-Bill Frisell - 6 альбомов (2004-2013) [FLAC|Lossless]<Contemporary Jazz, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471884.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Contemporary Jazz, Instrumental |Продолжительность: 00:50:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:132E20CA9A4A15392BC788FE7EE2FB5BE8B59A0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

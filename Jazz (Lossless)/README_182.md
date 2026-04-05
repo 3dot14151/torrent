@@ -6,7 +6,7 @@ Wes Montgomery - In The Beginning (2014) 2CD /2014, Resonance Records/ [FLAC|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443115.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Art Davis - A Time Remembered (1995) Jazz Planet [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443033.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Benny Carter - Four Classic Albums: Second Set (1954 - 1962) 2CD, 2019, Avid Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443032.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Norway Nights (2010) Jazzclub [FLAC|Lossless|image + .cue]<Jazz, Contempora
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442620.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Count Basie And The Kansas City - 7 (1962) 1996, GRP Records [FLAC|Lossless|imag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442564.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Hugh Masekela - No Borders (2016) Trapeze Music [FLAC|Lossless|tracks + .cue] <A
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442546.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Mel Torme - Meets The British: The London Recordings 1956/1957 (2008) Sepia Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442468.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Freddie Roach - Mo' Greens Please (1963) Remaster, 2005, Toshiba[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442467.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Billy Strayhorn - Lush Life (1965) 1992, Red Baron[FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442466.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Peggy Lee - I'm A Woman & Norma Deloris Egstrom From Jamestown, North Dakota (19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442321.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Miles Davis - Free Trade Hall: Vol. 1-2 (1960) 2CD, 2004, Magnetic Records[FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442309.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Hal Galper - Live at Maybeck Recital Hall, Vol.6 (1990) Concord Jazz [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442027.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Rob Brown Ensemble - Crown Trunk Root Funk (2008) AumFidelity [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442026.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Stan Getz - Sweet Rain (1986) Verve [FLAC|Lossless|image + .cue] <Cool, Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442009.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Jeremy Steig - Firefly (1977) 2016, King Record [FLAC|Lossless|tracks + .cue] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441873.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ June Christy - The Cool School & Do Re Mi (1960, 1961) 2006, Capitol Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441031.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Ken Fowser - Don't Look Down (2018) Posi-Tone [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441030.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Vic Damone - Spotlight on Vic Damone (1995) Capitol Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441025.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Sidney Bechet - Great Original Performances 1924 to 1938 (1989) [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440963.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Panta Rhei - Hier Wie Nebenan - Anthologie (2020) Compilation, 2xCD [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440887.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Earth Wind & Fire - September (2020) The Eric Kupper Remixes [FLAC|Lossless|WEB-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440871.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Art Van Damme - So Nice! (1979) 2009, Jazzclub Originals [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440795.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ The Phil Woods Quartet - Warm Woods (1957) /2014, Sony Music/[FLAC|tracks+.cue]<
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440679.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Leon Spencer - Bad Walking Woman (1972) /2014, Universal/[FLAC|tracks+.cue]<Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440666.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Music For A Bachelor's Den Vol. 7: Sex Kittens In Hi-Fi - The Blondes (1996
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440375.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - Music For A Bachelor's Den Vol. 8: Sex Kittens In Hi-Fi - The Brunettes (19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440368.jpg" />
 </div>
 
 

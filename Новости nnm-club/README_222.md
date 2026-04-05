@@ -1,3 +1,60 @@
+###  Публикация: 1191564   (264029) от 14.12.2017
+
+Дмитрий Елисеев | Неделя ООП (2016) PCRec [H.264/720p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Без знаний ООП изучать какой-либо фреймворк нет смысла. Поэтому решил провести отдельный интенсив по ООП на основе материала со своих уроков, дополнив новыми разделами про лучшие практики разработки и практическими примерами, чего порой не хватает во многих теоретических курсах.
+
+Для кого этот интенсив?
+Получите море пользы, если Вы:(   Читать дальше...   )Жанр: PHP, Объектно-ориентированное программированиеПродолжительность: 35:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C8A2BA8EE36D82760A862360B4C0FFDCB4A3BA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191751   (264028) от 14.12.2017
+
+Final Cut Pro X 10.4 [Multi]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Final Cut Pro X включает основные функции аудиомонтажа и цветокоррекции из Final Cut Studio, так что теперь на всех этапах пост-продакшна можно использовать одно приложение.
+
+В основе Final Cut Pro X лежит гибкая временная шкала Magnetic Timeline, предлагающая новый подход к редактированию видео без дорожек с возможностью добавлять и организовывать клипы так, как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2017Разработчик: Apple Inc.Поддерживаемая ОС: macOS 10.12.4 +Язык интерфейса: Английский, Китайский,  Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A8E7BD2A6B9C60B56681C8C84F180EF4250F07F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191404   (264027) от 14.12.2017
 
 Maxon CINEMA 4D Studio R19.024 build RB209858 [En]
@@ -6,7 +63,7 @@ Maxon CINEMA 4D Studio R19.024 build RB209858 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264027.jpg" />
 </div>
 
 
@@ -32,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264026.jpg" />
 </div>
 
 
@@ -58,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264025.jpg" />
 </div>
 
 
@@ -84,7 +141,7 @@ Autodesk Artcam Premium 2018 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264024.jpg" />
 </div>
 
 
@@ -110,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263794.jpg" />
 </div>
 
 
@@ -136,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263634.jpg" />
 </div>
 
 
@@ -162,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263418.jpg" />
 </div>
 
 
@@ -188,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263414.jpg" />
 </div>
 
 
@@ -214,7 +271,7 @@ Xiaomi представила «полезную» электронную сиг
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263350.jpg" />
 </div>
 
 
@@ -240,7 +297,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4591.1000 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263325.jpg" />
 </div>
 
 
@@ -266,7 +323,7 @@ Windows 10 Enterprise "LTSB Style" VL (x86/x64) Elgujakviso Edition (v.14.12.17)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263313.jpg" />
 </div>
 
 
@@ -293,7 +350,7 @@ Heavy Rain (2019) [Ru/Multi] (build 362) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263092.jpg" />
 </div>
 
 
@@ -319,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263085.jpg" />
 </div>
 
 
@@ -346,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263074.jpg" />
 </div>
 
 
@@ -372,7 +429,7 @@ Octane Render 3.07 R2 + C4D Plugins [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262951.jpg" />
 </div>
 
 
@@ -401,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262854.jpg" />
 </div>
 
 
@@ -427,7 +484,7 @@ GoodbyeDPI.0.1.6. Launcher-3.2 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262774.jpg" />
 </div>
 
 
@@ -456,7 +513,7 @@ SpaceX впервые запустила вместе уже летавшие к
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262670.jpg" />
 </div>
 
 
@@ -482,7 +539,7 @@ Wanpiisu / One Piece / Ван-Пис. Раздача №2 [1999, TV, 384-415] HD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262511.jpg" />
 </div>
 
 
@@ -510,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262503.jpg" />
 </div>
 
 
@@ -536,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262413.jpg" />
 </div>
 
 
@@ -562,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262403.jpg" />
 </div>
 
 
@@ -588,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262382.jpg" />
 </div>
 
 
@@ -614,65 +671,13 @@ Opera Software ASA решила переименоваться в Otello Corpora
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262177.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Компания также сменит логотип, но пока ещё не разработала его.Норвежская Opera Software ASA, которая появилась после продажи бизнеса по разработке браузера Opera китайскому консорциуму, решила изменить название на Otello Corporation. Об этом сообщает Reuters со ссылкой на уведомление компании на сайте Фондовой биржи Осло.Компания планирует провести ребрендинг, но (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192923   (262164) от 20.12.2017
-
-Выгодный этап «ценовой войны»: операторы начали снижать цены на связь
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262164.jpg" />
-</div>
-
-
-###  Подробнее
-
-18 декабря 2017 года Yota объявила о снижении цен на тарифы в 12 регионах, включая Москву и Московскую область. Это изменение — следствие «ценовой войны» операторов, возобновившейся в ноябре. TJ вспоминает, как компании пришли к новому витку конкуренции, и приводит примеры тарифов из регионов.Что изменилось и почемуВ апреле 2017 года «большая четвёрка» операторов (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193344   (262047) от 21.12.2017
-
-Очередное достижение: 4000 релизов от maykov!!!
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262047.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередное достижение: 4000 релизов от maykov!!!Уважаемые одноклубники , рад сообщить Вам о возможности поздравить нашего товарища с 4000-м релизом!С удовольствием поздравляю активного релизера , участника RG Музыки maykov с этим достижением и выражаем огромную благодарность от имени всех одноклубников и администрации NoNaMe ClubНадеюсь, что вы все также присоединитесь (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

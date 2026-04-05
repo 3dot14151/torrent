@@ -1,3 +1,56 @@
+###  Публикация: 1846446   (1051494) от 08.01.2026
+
+В.В. Мельников (ред.) | Справочник радиолюбителя (1962) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель настоящего справочника помочь радиолюбителям в их практической работе. Справочник рассчитан на радиолюбителя средней квалификации, имеющего подготовку в объеме 8—10 классов общеобразовательной школы и несколько лет радиолюбительской практики, поэтому, в частности, в него не включены общие сведения по математике и электротехнике.
+В отличие от ранее выпущенных, (   Читать дальше...   )Жанр: ЭлектроникаИздательство: Свердловское книжное издательствоФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AF0AAD791FBAD17F6D2EDE2B5E6CA0284FCC865
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842345   (1048725) от 15.12.2025
+
+С.Г. Бунин | Справочник радиолюбителя-коротковолновика (1978) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048725.jpg" />
+</div>
+
+
+###  Подробнее
+
+В справочнике описаны принципы конструирования приемной и передающей аппаратуры, антенн, механизм прохождения радиоволн, применение современных видов радиосвязи. Изложены методы борьбы с помехами телевидению и радиоприему. Приведен расчет основных узлов радиоустройств И справочные данные, необходимые коротковолновику в повседневной работе. Рассчитан на широкий круг (   Читать дальше...   )Жанр: ЭлектроникаИздательство: ТехнiкаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A22C73E7D4D20136F8A115B37A99BC374D6034D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840200   (1047163) от 03.12.2025
 
 Ф.В. Звягин, Евгений Микрин | Введение в механику полета и управление космическими аппаратами (2023) [PDF]
@@ -6,7 +59,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047163.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046562.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043578.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041863.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041353.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039036.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037921.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ Gareth Halfacree, Ben Everard | Get Started with MicroPython on Raspberry Pi Pic
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036801.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035149.jpg" />
 </div>
 
 
@@ -241,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035139.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035080.jpg" />
 </div>
 
 
@@ -294,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033417.jpg" />
 </div>
 
 
@@ -320,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033348.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032708.jpg" />
 </div>
 
 
@@ -373,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032705.jpg" />
 </div>
 
 
@@ -400,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032630.jpg" />
 </div>
 
 
@@ -426,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031815.jpg" />
 </div>
 
 
@@ -452,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031546.jpg" />
 </div>
 
 
@@ -478,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030680.jpg" />
 </div>
 
 
@@ -505,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029915.jpg" />
 </div>
 
 
@@ -531,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029492.jpg" />
 </div>
 
 
@@ -557,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029445.jpg" />
 </div>
 
 
@@ -583,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026917.jpg" />
 </div>
 
 
@@ -609,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026716.jpg" />
 </div>
 
 
@@ -620,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEB9173E8E24F253D42B3EB5FBCE9CAABA5D5EBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455114   (1025582) от 19.03.2021
-
-Б.Э. Пейсахзон (ред.) | Железные дороги Мира (1959) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга «Железные дороги мира», выдержавшая в Англии пять изданий, переводится на русский язык впервые. В ней систематизирован большой материал, характеризующий перевозочную работу и уровень технического оснащения железнодорожного транспорта каждой страны мира по состоянию на 1956—1957 гг. Таблицы, карты железных дорог, схемы и фотографии применяемой железнодорожной (   Читать дальше...   )Жанр: энциклопедияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1C7C8FBE23898E4DDF5AABCE396D6EE40B59A8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457917   (1024157) от 27.03.2021
-
-Валерий Марценюк (ред.) | Радиолюбительские антенны: авторские конструкции (2019) [PDF, DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024157.jpg" />
-</div>
-
-
-###  Подробнее
-
-Последнее время радиолюбители стран СНГ предпочитают применять на своих радиостанциях современные импортные трансиверы. В то же время, приобрести и установить на своих участках (домах) импортные антенны многим еще не по карману. Вследствие этого, чаще всего, радиолюбители используют антенное оборудование из разряда «home made», т.е. изготовленное своими руками. Иногда (   Читать дальше...   )Жанр: КВ и УКВ радиосвязьФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:075E344DDDF81546A9B9DA88B1C207E3B43745ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,161 @@
+###  Публикация: 1391536   (770379) от 23.06.2020
+
+Очередное достижение: 2 PB+ отданного трафика от Heisenberg
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_770379.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередное достижение: 2 PB+ отданного трафика от Heisenberg!!!Друзья! Наш товарищ-одноклубник, модератор Видео, друг и просто хороший, отзывчивый человек, перешагнул планку 2 PB отданного Видео контента, есть повод поздравить его с очередным достижением!!!(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 886059   (770373) от 08.04.2015
+
+ESET Smart Security 8.0.312.3 Final [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770373.jpg" />
+</div>
+
+
+###  Подробнее
+
+ESET NOD32 Smart Security - новая версия комплексного антивируса NOD32 с облачной технологией ESET Live Grid. Решение "все-в-одном" с многоуровневой защитой. Защитите свой компьютер или ноутбук от потери или кражи с помощью функциональности нового компонента Анти-Вор. Функция Антивор (Anti-Theft) позволяет обнаружить местоположение и вернуть потерянный (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67B058192AE07062164FB525BC8C29E941F5B942
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391351   (770343) от 23.06.2020
+
+На МКС стартовал необычный эксперимент: космонавты смогут сами вылечить зубы
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_770343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специальная компьютерная программа поможет членам экипажа обследовать полость рта, лор-органы и выбрать лечениеСамостоятельно вылечить разболевшееся горло или зуб смогут теперь российские члены Международной космической станции при помощи специальной компьютерной программы и прилагаемой к ней медицинской укладке с лекарственными средствами. Ученые Института медико-биологических (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 885871   (770328) от 08.04.2015
+
+MInstAll v.06.04.2015 By Andreyonohov & Leha342 [Ru] (Авторская раздача)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед Вами обновленный 6 апреля 2015 года  полюбившийся многим пользователям сборник последних версий самых часто используемых в работе программ от Андрея Онохова. Теперь в новой, более простой и удобной оболочке MInstAll - это новый мастер установки приложений, упрощенный аналог WPI. Данный MInstAll имеет самый оптимальный состав софта для установки на чистые системы. Представленные программы уже зарегистрированны и не требуют активации.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D57D8925D86993EEED88D48714BF4A870DC90BC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 886226   (770326) от 08.04.2015
+
+Плагин friGate для Google Chrome, Mozilla Firefox, Opera. Работа с заблокированными сайтами
+
+>>3
+>>12
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Плагин friGate для Google Chrome и Mozilla Firefox - работа с заблокированными сайтами
+   !  В этом топике - обсуждение и вопросы исключительно по friGate! 
+Плагин friGate для браузера Chrome, по всей видимости, написан российскими программистами: и его веб-сайт, и описание в Chrome Web Store доступны только на русском языке.FriGate работает аналогично (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388479   (770264) от 23.06.2020
+
+Command & Conquer (2020) [Ru/Multi] (1.153.735514) Repack xatab [Remastered Collection]
+
+>>3
+>>11
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Примерно 25 лет назад Command & Conquer и Red Alert определили вектор развития игр жанра стратегии в реальном времени. Сегодня благодаря стараниям бывших разработчиков из Westwood Studios, которые теперь трудятся в команде Petroglyph, вы можете насладиться переизданием этих шедевров в качестве 4K. Включает в себя все 3 дополнения, переосмысленный многопользовательский (   Читать дальше...   )Тип издания: RepackРазработчик: PetroglyphЖанр: RTSЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3DB1E55144320267EED9C4F0DA69C2F94B17285
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1384691   (770262) от 23.06.2020
 
 Mafia III: Definitive Edition (2020) [Ru/En] (1.100.0u1/dlc) Repack xatab (обновляемая)
@@ -6,7 +164,7 @@ Mafia III: Definitive Edition (2020) [Ru/En] (1.100.0u1/dlc) Repack xatab (об�
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770262.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_770116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_770116.jpg" />
 </div>
 
 
@@ -59,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_770060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_770060.jpg" />
 </div>
 
 
@@ -85,7 +243,7 @@ NG. Взгляд изнутри: Вторая мировая война / Inside
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770047.jpg" />
 </div>
 
 
@@ -112,7 +270,7 @@ NVIDIA GeForce Desktop 365.19 WHQL + For Notebooks [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770038.jpg" />
 </div>
 
 
@@ -138,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769999.jpg" />
 </div>
 
 
@@ -164,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769992.jpg" />
 </div>
 
 
@@ -190,7 +348,7 @@ ABBYY FineReader 12.0.101.483 Corporate Full | Lite RePack (& Portable) by D!ako
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769988.jpg" />
 </div>
 
 
@@ -216,7 +374,7 @@ VA - Melodic Metal Anthems vol.01-34 (2014-2016) [MP3|128-320 кб/с]<Melodic M
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769987.jpg" />
 </div>
 
 
@@ -245,7 +403,7 @@ CorelDRAW Graphics Suite X8 18.0.0.450 HF1 Special Edition RePack by -{A.L.E.X.}
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769986.jpg" />
 </div>
 
 
@@ -271,7 +429,7 @@ Windows 10 Enterprise LTSB (x86/x64) +/- Office 2016 by SmokieBlahBlah 12.05.16 
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769985.jpg" />
 </div>
 
 
@@ -300,7 +458,7 @@ CyberLink PowerDVD Ultra 15.0.1510.58 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769667.jpg" />
 </div>
 
 
@@ -326,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769661.jpg" />
 </div>
 
 
@@ -352,7 +510,7 @@ Apple представила iOS 14
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_769618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_769618.jpg" />
 </div>
 
 
@@ -378,7 +536,7 @@ Total Commander PowerUser 67 Portable by HA3APET [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769411.jpg" />
 </div>
 
 
@@ -404,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769410.jpg" />
 </div>
 
 
@@ -430,7 +588,7 @@ Sea Dogs: To Each His Own / Корсары: Каждому свое (2012) [Ru/E
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769409.jpg" />
 </div>
 
 
@@ -456,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769407.jpg" />
 </div>
 
 
@@ -482,7 +640,7 @@ Adobe Premiere Pro 2020 14.3.0.38 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769271.jpg" />
 </div>
 
 
@@ -508,7 +666,7 @@ Driftland: The Magic Revival (2019) [Ru/Multi] (2.0.29) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769123.jpg" />
 </div>
 
 
@@ -519,165 +677,6 @@ Driftland: The Magic Revival (2019) [Ru/Multi] (2.0.29) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:159D80C609F07F3F2D984F4C0911889CD47FD351
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392650   (769016) от 27.06.2020
-
-NASA запускает конкурс Lunar Loo Challenge
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_769016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Космическое агентство NASA готовится к миссии по отправке астронавтов на Луну. Для выполнения этой миссии предстоит решить множество организационных вопросов и технологических задач. И одной из таких задач является обеспечение астронавтов удобной возможностью справлять биологические потребности. И, чтобы создать лучший туалет на Луне, NASA обратилось к общественности (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392095   (769005) от 27.06.2020
-
-Apple попрощалась с процессорами Intel и превратила iPhone в Android
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_769005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Apple переведет все ноутбуки и настольные ПК на процессоры собственной разработки с архитектурой ARM и откажется от использования в них чипов Intel. Переход займет два года, чтобы у разработчиков было время адаптировать свое ПО под новую аппаратную платформу. Также Apple переработала iOS, заимствовав у Android популярные функции, включая поддержку виджетов на главном (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391964   (769003) от 27.06.2020
-
-Борис Гребенщиков - Знак Огня (2020) [MP3|320 Kbps] <Rock>
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769003.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ɑ
-2. Вон Вавилон
-3. Баста Раста
-4. Моё Имя Пыль(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE899FAE9FCA9B2BBC22F1B7D37759E562DA66EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390798   (769002) от 27.06.2020
-
-Adobe Photoshop 2020 v21.2.0.225 (x64) RePack by SanLex (2020-06-17) [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop — лучшее в мире ПО для графического дизайна и обработки изображений, которое воплотит в реальность любые ваши идеи. Создавайте и улучшайте фотографии, иллюстрации и графические 3D-объекты. Разрабатывайте дизайн веб-сайтов и мобильных приложений. Редактируйте видео, моделируйте живые картины и т. д. Теперь у вас есть все необходимое для реализации (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E12C8B472F36AFF1D3C23F5E9818A8D22834E8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105958   (769000) от 27.06.2020
-
-theHunter: Call of the Wild (2017) [Ru/Multi] (1859364/upd57/dlc) Repack Other s [2019 Edition]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769000.jpg" />
-</div>
-
-
-###  Подробнее
-
-theHunter: Call of the Wild – наиболее реалистичный на сегодняшний день симулятор охоты. Окунитесь в яркий мир дикой природы и познакомьтесь с его многочисленными обитателями: от изящных оленей до внушительных зубров, от бесчисленных птичьих стай до мелких лесных букашек. Перед вами 13 тыс. гектаров игрового пространства, каждый сантиметр которого создан с помощью (   Читать дальше...   )Тип издания: RepackРазработчик: Expansive WorldsЖанр: Simulator, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8CA94B5AD04E13D4BF98B950759BC52CAC8AC3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392756   (768857) от 28.06.2020
-
-Адмиралтейские верфи спустили на воду первый серийный траулер проекта СТ-192 для РРПК (Приморье, Владивосток)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_768857.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Адмиралтейские верфи» (входят в Объединенную судостроительную корпорацию, Санкт-Петербург) 23 июня 2020 года спустили на воду первый серийный траулер проекта СТ-192 «Механик Маслак» для Русской Рыбопромышленной Компании (РРПК), передает корреспондент ИАА «ПортНьюс».Для компании строится 11 современных траулеров проекта СТ-192. 10 из них будет построено на Адмиралтейских (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

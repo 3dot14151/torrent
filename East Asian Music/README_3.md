@@ -6,7 +6,7 @@ int.Records — Acid Travel (2009) Touhou Instrumental /Doujin/ [FLAC|Lossless] 
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807323.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Independent Works — THE THING! (2009) Touhou Instrumental /Doujin/ [FLAC|Lossl
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807317.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ Babymetal - Metal Resistance (2016) [FLAC|Lossless|image + .cue] <Heavy Metal, J
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803217.jpg" />
 </div>
 
 
@@ -95,7 +95,7 @@ Yuki Murata - Piano Fantasia (2018) Ricco Label [FLAC|Lossless|tracks + .cue] <M
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798690.jpg" />
 </div>
 
 
@@ -124,7 +124,7 @@ Galneryus - Union Gives Strength (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Neocla
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796243.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Lovebites - Clockwork Immortality (2018) Japan [FLAC|Lossless|image + .cue] <Hea
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793014.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Junko Jagami - 2CD Best 1978-1983 (2005) Yamaha [FLAC|Lossless|image + .cue] <Po
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790269.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Galneryus - Union Gives Strength (2021) Japanese Edition, EP [FLAC|Lossless|imag
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789299.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Yuki Murata - Home (2006) Ricco Label [FLAC|Lossless|tracks + .cue] <Modern Clas
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787581.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Rie Takahashi & Inori Minase - Stay Alive (2016) [FLAC|Lossless|image+.cue] <J-P
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783892.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Crossfaith - Species (2020) EP [MP3|320 Kbps] <Metalcore, Electronic>
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783330.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Akisai - Colors (2014) [FLAC|Lossless|tracks] <Electronic, Ambient, Instrumental
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775998.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Ai Aso - The Faintest Hint (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Fol
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763682.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ CrossGear - 10 альбомов (2008-2011) Touhou Instrumental /Doujin/ [FLAC|L
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756257.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ WILD CAT RECORD - 3 альбома (2009-2010) [FLAC|Lossless] <Touhou, Instrume
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756253.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Arte Refact - 6 альбомов (2011-2013) Touhou Vocal /Doujin/ [FLAC|Lossles
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756166.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Re:Volte | Scinicade | SonicRevolution - 22 альбома (2005-2011) [FLAC|Los
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756150.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ XOTIC [FRONTIER CREATE] - 5 альбомов (2009-2010) [FLAC|Lossless] <Touhou
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756047.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Frontier Records [FRONTIER CREATE] - 13 альбомов (2009-2011) [FLAC|Lossl
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756036.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Alice Music [FRONTIER CREATE] - 7 альбомов (2009-2011) Touhou Vocal /Dou
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755955.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ White Elephant [FRONTIER CREATE] - 8 альбомов (2010-2013) [FLAC|Lossless
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755944.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755942.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Studio "Syrup Comfiture" - 16 альбомов (2009-2012) [FLAC|Lossless] <Touh
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755848.jpg" />
 </div>
 
 
@@ -716,7 +716,7 @@ Yuki Murata - Gift (2014) Ricco Label [FLAC|Lossless|tracks + .cue] <Modern Clas
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749824.jpg" />
 </div>
 
 
@@ -745,7 +745,7 @@ Yoshida Brothers - Hishou (2007) [FLAC|Lossless|tracks + .cue] <Folk, World, Ins
 >>Asian Traditional, Ethnic (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749758.jpg" />
 </div>
 
 
@@ -774,7 +774,7 @@ Yuki Murata - Films (2009) Ricco Label, RE. [FLAC|Lossless|tracks + .cue] <Moder
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748058.jpg" />
 </div>
 
 

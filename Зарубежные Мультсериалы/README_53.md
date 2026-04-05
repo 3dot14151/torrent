@@ -1,3 +1,57 @@
+###  Публикация: 591817   (136113) от 20.12.2012
+
+Непобедимая принцесса Ши-Ра / She-Ra: Princess of Power (1985) (Сезон 1, 1-65(65)) DVDRip
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136113.jpg" />
+</div>
+
+
+###  Подробнее
+
+“Властью Серого Черепа!” – эти магические слова, произнесенные над волшебным мечом в минуту опасности, превращают прекрасную Адору в сильную и непобедимую Ши-Ру, которая всегда готова прийти на помощь жителям волшебного царства Эфирия. В борьбе со злыми силами ей помогают крылатый конь Дух, мадам Суматоха и другие сказочные герои. А приключения самые фантастические (   Читать дальше...   )Жанр: ПриключенияРежиссер: Гвен ВетцлерПерсонажи: Ши-Ра, Дух, Стрелок, Кастапелла, Коул, Мадам Суматоха и другиеСубтитры: РусскиеПродолжительность: Серия ~00:21:00
+Перевод #1: Профессиональный (полное дублирование: Варус Видео)
+Перевод #2: Профессиональный (двухголосый закадровый: студия "Кипарис" по заказу 2х2)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C20761BE5B554EFD67FCE6629FE36686C55D243
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674512   (135040) от 26.11.2023
+
+Царство падальщиков / Scavengers Reign (2023) WEBRip (сезон 1, серии 1-12 из 12) LostFilm
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135040.jpg" />
+</div>
+
+
+###  Подробнее
+
+Грузовой корабль «Деметра» терпит аварию на неизведанной планете где-то в глубинах космоса. Новый мир кажется астронавтам завораживающим и прекрасным, но он таит в себе смертельную опасность. Чтобы выжить и вернуться домой, экипажу предстоит разобраться, как устроена жизнь на этой планете.Производство: США, Green Street Pictures, HBO Max, TitmouseЖанр: фантастика, драма, приключенияРежиссер: Джо Беннетт, Чарльз ХюттнерАктеры: Боб Стивенсон, Тед Тревелстид, Алиа Шокат, Вунми Моссаку, Сунита МаниПеревод: Многоголосый профессиональный (LostFilm)Язык озвучки: РусскийПродолжительность: 00:24:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C18D5EB95911678CA92B90FE212CA9E76B9ECE21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 592743   (133786) от 25.12.2012
 
 Мультфильмы Текса Эйвери. Полная коллекция Metro Goldwyn Mayer / Tex Avery. The Complete MGM Collection (1942-1957) DVDRip
@@ -6,7 +60,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133786.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133307.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131471.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131389.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130586.jpg" />
 </div>
 
 
@@ -137,7 +191,7 @@ DOTA: Кровь дракона / Dota: Dragon's Blood (2022) WEB-DL [H.264/1080
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130543.jpg" />
 </div>
 
 
@@ -163,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130255.jpg" />
 </div>
 
 
@@ -189,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128929.jpg" />
 </div>
 
 
@@ -215,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128928.jpg" />
 </div>
 
 
@@ -241,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128927.jpg" />
 </div>
 
 
@@ -267,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127181.jpg" />
 </div>
 
 
@@ -293,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126717.jpg" />
 </div>
 
 
@@ -320,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126712.jpg" />
 </div>
 
 
@@ -347,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125551.jpg" />
 </div>
 
 
@@ -375,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125320.jpg" />
 </div>
 
 
@@ -401,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125315.jpg" />
 </div>
 
 
@@ -427,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124986.jpg" />
 </div>
 
 
@@ -453,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124942.jpg" />
 </div>
 
 
@@ -479,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124940.jpg" />
 </div>
 
 
@@ -505,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124903.jpg" />
 </div>
 
 
@@ -533,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124597.jpg" />
 </div>
 
 
@@ -559,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124577.jpg" />
 </div>
 
 
@@ -585,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124318.jpg" />
 </div>
 
 
@@ -614,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124289.jpg" />
 </div>
 
 
@@ -628,58 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CBA630D3A8F6A2F289BFF5DC7D7C790375CB15A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671684   (124142) от 06.01.2024
-
-Царство падальщиков / Scavengers Reign (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-12 из 12) TVShows, LostFilm, NewStation
-
->>След.
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Грузовой корабль «Деметра» терпит аварию на неизведанной планете где-то в глубинах космоса. Новый мир кажется астронавтам завораживающим и прекрасным, но он таит в себе смертельную опасность. Чтобы выжить и вернуться домой, экипажу предстоит разобраться, как устроена жизнь на этой планете.Производство: США, Green Street Pictures, HBO Max, TitmouseЖанр: Мультсериал, фантастика, драма, приключенияРежиссер: Джо Беннетт, Чарльз ХюттнерАктеры: Боб Стивенсон, Тед Тревелстид, Алиа Шокат, Вунми Моссаку, Сунита МаниПеревод: Многоголосый профессиональный (TVShows, LostFilm, NewStation)Язык озвучки: Русский, Английский, УкраинскийСубтитры: русские (full), украинские (full), английские (SDH)Продолжительность: ~00:24:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47BA1E00FECEE606F1A750A1A79C71199655DF42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690560   (123450) от 11.01.2024
-
-Кэрол и конец света / Carol & The End of the World (2023) WEBRip [H.265/1080p] (1-10 серии из 10) NewStudio
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как бы отреагировало человечество, столкнувшись с неизбежным вымиранием? Где бы мы нашли смысл? Какое утешение мы могли бы искать? Это важные вопросы, поднятые маленькой жемчужиной мультсериала «Кэрол и конец света». Для такого человека, как Кэрол, мир перевернулся с ног на голову, поскольку осталось чуть больше полгода до того, как планета-изгой врежется в Землю. (   Читать дальше...   )Производство: Канада, США / Bardel EntertainmentЖанр: компьютерная анимация, для взрослых, минисериал, комедияРежиссер: Дэн ГутерманАктеры: Бет Грант, Майкл Чернус, Марта Келли, Бриджет Эверетт, Мэл Родригес, Лоуренс Прессман, Кимберли Хеберт Грегори, Делберт ХантПеревод: Многоголосый профессиональный (NewStudio)Язык озвучки: Русский, английскийСубтитры: Русские (full, forced), английскиеПродолжительность: ~ 00:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E604D0BE4CA9301D7379677A7BD364E8472754D
 ```
 
 https://mybot314.ru/tekegram_catalog/

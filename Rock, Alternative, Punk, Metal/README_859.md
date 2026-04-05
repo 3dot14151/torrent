@@ -1,3 +1,32 @@
+###  Публикация: 1638710   (237771) от 09.06.2023
+
+The Snuts - Burn The Empire (2023) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Alternative, Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burn The Empire (3:08)
+02. Zuckerpunch (2:30)
+03. The Rodeo (3:04)
+04. 13 (3:10)(   Читать дальше...   )Жанр: Alternative, IndieПродолжительность: 00:32:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1D8A56B940B5F44F6D523D90FFF57A7C6F85303
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626175   (237770) от 13.04.2023
 
 VA - Norsk Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -6,7 +35,7 @@ VA - Norsk Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237770.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Danas Rising - Morgengrauen (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom, Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237768.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Myntra - Genesis (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237753.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Haken - Fauna (2023) 2xCD [FLAC|Lossless|image + .cue] <Progressive Metal, Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237748.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237747.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Kohnerah - Ominous Ubiquitous (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237746.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Speed Limit - Cut A Long Story Short (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237739.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Gods of Gaia - As Daylight Dies (2023) [MP3|320 Kbps] <Symphonic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237731.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Autumn Rain Melancholy - Одиночество (2023) [FLAC|Lossless|WEB-DL|tra
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237728.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Leper Colony - Leper Colony (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237727.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Pounder - Breaking The World (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237723.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Random - Reloaded (2010) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237701.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Slow Fall - Obsidian Waves (2023) [MP3|320 Kbps] <Progressive Melodic Death Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237687.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Shamael - Il Suono Di Mille Orchestre, Parte I (2023) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237686.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Lattermath - Winter's Painting (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237679.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Saturnus - The Storm Within (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237677.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ False Memories - Hybrid Ego System (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237675.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Fifth Angel - When Angels Kill (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237669.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ MotorTrinken - 2 Albums (2017-2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237661.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ Elvenpath - Faith Through The Fire (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237656.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ Black & Damned - Heavenly Creatures (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237650.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Hard Buds - Fire (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237649.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Eyes of Eva - Temptation (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237643.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ Coronary - Sinbad (2021) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237641.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ Overkill - Scorched (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash-metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237634.jpg" />
 </div>
 
 
@@ -715,35 +744,6 @@ Overkill - Scorched (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash-metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F7E0716E608B8C852E2207E820FD9878567E3F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449369   (237629) от 21.02.2021
-
-Inner Prospekt - Canvas Two (2021) [MP3|320 Kbps] <Progressive Rock, Crossover Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Glimpse [00:03:06]
-02 Soul Of Hundred Lives [00:17:45]
-03 King Of Spades [00:06:48]
-04 Why Me [00:08:06](   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 01:05:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5924D42D612AA5CB09B037B25FF2C2BA0ED561D
 ```
 
 https://mybot314.ru/tekegram_catalog/

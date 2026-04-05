@@ -1,181 +1,3 @@
-###  Публикация: 372778   (520999) от 07.08.2011
-
-Cretu And Thiers - Belle Epoque (1988) [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mona Lisa
-02. Crazy Life
-03. When Love Is The Missing Word
-04. Waterfall
-05. Captain Right
-06. 200 Ways To Heaven
-07. Don't Say You Love Me (Let Me Feel It)
-08. Snowin' Under My SkinЖанр: PopПродолжительность: 00:37:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929174   (520405) от 18.08.2015
-
-Руки Вверх - Медляки (2014) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я не отдам тебя никому
-02. Алёшка
-03. Здравствуй, это я
-04. Доброй, нежной, ласковой(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF66B8E624C9D51E279ACD9957D4D20293C393AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314274   (520333) от 13.07.2019
-
-VA - Dancefloor Summer Hits 2019 (2019) 2CD [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520333.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Alesso - Time
-02. Vize - Glad You Came(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA0FBC968E1B3A8970F7FE7B07A00A12CFBED5FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928971   (520311) от 18.08.2015
-
-VA - 100 Hits - 2000s Anthems (2014) 5CD Box Set [FLAC|track+.cue]<Pop, R&B and Soul, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список журнала Rolling Stone 100 лучших песен десятилетия - который первоначально был опубликован в 2009 году и был составлен группой из более чем 100 музыкантов, музыкальных критиков и лидеров музыкальной отрасли - включает в себя сотню треков различных жанров. Под общим названием "100 хитов: гимны (песни) 2000-х" фирма Сони попыталась в одном боксете (   Читать дальше...   )CD1:
-01. The Zutons - You Will You Won't  (2:56)
-02. Editors - Smokers Outside the Hospital Doors  (4:02)
-03. Reef - Set the Record Straight  (3:58)(   Читать дальше...   )Жанр: Pop, R&B and Soul, RockФормат: 5CD, box setПродолжительность: 06:11:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C97105667F7DF4D6F61316E54DEF3B515B42447
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241477   (520254) от 17.08.2018
-
-RSF - RSF (2018) [MP3|320 Kbps] <Italo-Disco, Leftfield>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520254.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Valentino (6:12)
-2. Michael (4:10)
-3. Chez Konrad (6:01)
-4. Beduine (6:32)(   Читать дальше...   )Жанр: Italo-Disco, LeftfieldПродолжительность: 00:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F27B143BD7BD1281BA48BC1C269FCAE8751BF1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241452   (520249) от 17.08.2018
-
-Frantique - Frantique (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disco Dancer (7:20)
-02. Getting Serious (7:58)
-03. Night People These Days (8:24)
-04. Strut Your Funky Stuff (6:14)Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:29:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26A0F669B9EF29B2F1C96D7D5DC5182AFF60ED89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1241479   (520247) от 17.08.2018
 
 RSF - RSF (2018) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Leftfield>
@@ -184,7 +6,7 @@ RSF - RSF (2018) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Leftfield>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520247.jpg" />
 </div>
 
 
@@ -213,7 +35,7 @@ Ariana Grande - Sweetener (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Hip-Hop, R&
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520122.jpg" />
 </div>
 
 
@@ -242,7 +64,7 @@ Ariana Grande - Sweetener (2018) [MP3|320 Kbps] <Pop, R&B, Hip-Hop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520051.jpg" />
 </div>
 
 
@@ -271,7 +93,7 @@ VA - Th'is 70's - Disco, Glam & Soul (2011) 3CD[FLAC|Lossless]<Pop / Disco, Glam
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519937.jpg" />
 </div>
 
 
@@ -306,7 +128,7 @@ VA - Simply The Best: Voices (2013) 3CD [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519544.jpg" />
 </div>
 
 
@@ -335,7 +157,7 @@ Tuxedo Junction - 2 Albums (1977, 1979) Reissue CD, 1995, Unidisc  [MP3|320 Kbps
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519442.jpg" />
 </div>
 
 
@@ -364,7 +186,7 @@ VA - Die Grosse 90er Sause - Alle Starken Hits Der 90er (2019) [MP3|320 Kbps] <D
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519370.jpg" />
 </div>
 
 
@@ -393,7 +215,7 @@ VA - Stevie Wonder Covers (2019) [MP3|320 Kbps] <Pop, Rock, Funk, Soul>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519361.jpg" />
 </div>
 
 
@@ -422,7 +244,7 @@ VA - Wearmada Ibiza Pool Party (Extended Versions) (2018) [MP3|320 Kbps] <House,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519292.jpg" />
 </div>
 
 
@@ -451,7 +273,7 @@ Maroon 5 - Overexposed (2012) [FLAC|Lossless]<Pop, Soft-Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518745.jpg" />
 </div>
 
 
@@ -486,7 +308,7 @@ VA - Top Of The Pops - Groove, Hip Hop & Rnb (2018) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518355.jpg" />
 </div>
 
 
@@ -515,7 +337,7 @@ VA - NRJ Beach Party (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518186.jpg" />
 </div>
 
 
@@ -544,7 +366,7 @@ Paul McCartney - Paul Is Live (2019) Original Release Date: 8 Nov. 1993 (Digital
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518081.jpg" />
 </div>
 
 
@@ -573,7 +395,7 @@ VA - NOW 100 Hits Car Songs (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517968.jpg" />
 </div>
 
 
@@ -602,7 +424,7 @@ Lauren Christy - Lauren Christy (1994) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517350.jpg" />
 </div>
 
 
@@ -631,7 +453,7 @@ Jess Glynne - I Cry When I Laugh (2015) Deluxe Edition [MP3|320 кб/с]<Pop, Da
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517312.jpg" />
 </div>
 
 
@@ -660,7 +482,7 @@ Coeur De Pirate - Coeur De Pirate (2008) [FLAC|Lossless|tracks + .cue]<Indie-Pop
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517306.jpg" />
 </div>
 
 
@@ -689,7 +511,7 @@ Coeur de Pirate - Carry On (2015) Single [FLAC|tracks|WEB-DL]<Pop>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517294.jpg" />
 </div>
 
 
@@ -716,7 +538,7 @@ DJ Дождик - Почему же... (2006) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517106.jpg" />
 </div>
 
 
@@ -745,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517094.jpg" />
 </div>
 
 
@@ -759,6 +581,180 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22462D192CE5E6A3D69154F7D5CC1E8E3E90D7A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242014   (516998) от 20.08.2018
+
+VA - Ibiza House Anthems: The Summer 2018 (2018) [MP3|320 Kbps] <Euro Dance, Pop Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. B.G. The Prince Of Rap feat. Timi Kullai & Nathan Reynolds III - You'll Be Mine (Chrizz Morisson Remix) 3:31
+02. Sync Diversity - The Meaning (Randy Norton Tropical Remix) 3:55
+03. Frank Clarck feat. Anne Marie Bush - You Belong To Me 4:32
+04. Chrizz Morisson feat. Timi Kullai - Here I Go 2018 (Dolls Edit) 3:09(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 02:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC8A7DB7B7A8787BD26E926A56B38F60262A7715
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241883   (516118) от 21.08.2018
+
+VA - Classic Pop - The Ultimate Collection (5CD) (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516118.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+01. ABC - The Look Of Love
+02. Madness - Baggy Trousers
+03. Culture Club - Karma Chameleon(   Читать дальше...   )Жанр: PopПродолжительность: 05:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91A0B396E18FF3421E7280E199FE53D83B84524C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315021   (516073) от 17.07.2019
+
+Oliver Cheatham - Get Down Saturday Night (1983) 1990 [FLAC|Lossless|tracks + .cue] <House, Soul, Funk, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Get down Saturday Night (Remixed by Matiz - AC16) (06:46)
+02 Make your mind up (04:20)
+03 Something about you (04:37)
+04 Bless the ladies (04:15)(   Читать дальше...   )Жанр: House, Soul, Funk, DiscoПродолжительность: 00:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8D70E3FDFE602473924B6605B8EA76F73A59F1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242343   (516040) от 21.08.2018
+
+Whitney Houston - I Wish You Love: More From The Bodyguard (2017) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Will Always Love You (Alternate Mix) (5:04)
+ 02. I Have Nothing (Film Version) (4:56)
+ 03. I'm Every Woman (Clivillés & Cole House Mix I Edit) (5:43)
+ 04. Run to You (Film Version) (4:19)(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A5E740F26DF926A37744787F58CFFDBEF8B3FE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1561342   (515523) от 04.07.2022
+
+VA - 80's Hits (2022) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tina Turner - What's Love Got to Do with It (3:50)
+02. Limahl - Never Ending Story (3:30)
+03. a-ha - Take On Me (3:48)
+04. Narada Michael Walden - Gimme Gimme Gimme (feat. Patti Austin) (4:41)(   Читать дальше...   )Жанр: PopПродолжительность: 03:21:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6386887EE340DAA7EA906A9802034F17B488DBF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930096   (515298) от 23.08.2015
+
+One Dove - Morning Dove White (1993) [MP3|256 кб/с]<Trip-Hop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515298.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Fallen (7:18)
+2. White Love (Guitar Paradise mix) (10:15)
+3. Breakdown (Cellophane Boat mix) (6:39)
+4. There Goes the Cure (8:03)(   Читать дальше...   )Жанр: Trip-HopПродолжительность: 01:09:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EEBC88111F6E9430A03549E04E43271CCA16E95
 ```
 
 https://mybot314.ru/tekegram_catalog/

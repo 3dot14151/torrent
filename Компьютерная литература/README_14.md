@@ -1,161 +1,3 @@
-###  Публикация: 1839599   (1046718) от 29.11.2025
-
-Хьюберт Дюлей, Ральф М. Дебусманн | Потоковые базы данных. Объединение пакетной и потоковой обработки (2026) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046718.jpg" />
-</div>
-
-
-###  Подробнее
-
-В наши дни приложения реального времени стали нормой. Но для построения корректно работающей модели требуется, чтобы данные обрабатывались на лету и анализировались с низкой задержкой. Из этой практической книги инженеры, архитекторы и аналитики данных узнают, как использовать потоковые базы данных для создания решений, действующих в режиме реального времени.
-
-Авторы, (   Читать дальше...   )Жанр: Базы данныхПеревод: С. ЧерниковИздательство: Спринт БукФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8E85BBFD401EC39881644C9207CC21E828D7FF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839609   (1046715) от 29.11.2025
-
-Саурабх Шривастава, Ниланджали Шривастав | Solutions architect: Архитектура и проектирование ИТ-решений [3-е изд.] (2025) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046715.jpg" />
-</div>
-
-
-###  Подробнее
-
-Овладейте искусством дизайна архитектур и станьте успешным архитектором решений. Книга, написанная опытными техлидами AWS Саурабхом Шриваставой и Ниланджали Шривастав, выходит за рамки традиционных руководств для подготовки к сертификации. В ней вы найдете подробную аналитику и описания передовых методов, предназначенных для удовлетворения конкретных потребностей (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: Е. МатвеевИздательство: Спринт БукФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D36B21F78F0923A7380B688AA123DBB318B821D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839642   (1046692) от 30.11.2025
-
-Джо Аттарди | Web API. Сборник рецептов. Повысьте уровень Javascript-приложений (2025) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена разработке современных веб-приложений с использованием JavaScript и встроенных возможностей браузера на основе Web API. Приведены практические примеры реализации функций, которые ранее требовали сторонних плагинов: диалоговые окна, работа с геолокацией и другими возможностями, предоставляемыми браузером. Освещаются как устоявшиеся, так и находящиеся (   Читать дальше...   )Жанр: ПрограммированиеИздательство: ТОО "АЛИСТ"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AE9BE166FF7F3D6FE67DC6512EB6CCCA8B4B37C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839482   (1046657) от 29.11.2025
-
-Робин Никсон | Создаем динамические веб-сайты с помощью PHP, MySQL, JavaScript, CSS и HTML5 [7-е издание] (2025) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владея лишь основами HTML, вы сможете научиться создавать интерактивные веб-сайты, управляемые данными, используя мощное сочетание веб-стандартов и технологий с открытым исходным кодом. В последнем издании этого популярного практического руководства вы освоите динамическое веб-программирование с использованием новейших версий современных технологий — PHP, MySQL, (   Читать дальше...   )Жанр: ПрограммированиеПеревод: с англ., А. КиселевИздательство: Астана: «Спринт Бук»Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5149401F8F978D2CD6308EF3A7CAF64BF0873D19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839483   (1046656) от 29.11.2025
-
-Вадим Смоляков | Алгоритмы машинного обучения (2025) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Узнайте тонкости работы алгоритмов ML, чтобы эффективно решать задачи и повышать производительность используемых моделей. Познакомьтесь с фундаментальными математическими основами важнейших алгоритмов машинного обучения и вариантами их реализации на Python. Особое внимание уделяется вероятностным методам. В книге анализируются и объясняются десятки алгоритмов, применяемых (   Читать дальше...   )Жанр: ПрограммированиеИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E58701265E4BF727B58A91C27C42334A50C34C01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839556   (1046617) от 29.11.2025
-
-Somanath Tripathy, Harsh Kasyap, Minghong Fang | Federated learning. Security and privacy (2026) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046617.jpg" />
-</div>
-
-
-###  Подробнее
-
-This book begins by introducing the fundamentals of Machine Learning, along with core Deep Learning architectures. The book provides an in-depth exploration of FL’s various forms, system architectures, and practical applications. A significant emphasis is placed on the growing security and privacy concerns in FL, particularly poisoning (both data poisoning and model (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: CRC PressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD29FECF1DAB5EA4B9FBEE6830006992B3259B0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1839579   (1046589) от 29.11.2025
 
 Адам Фримен | Основы TypeScript (2024) [PDF]
@@ -164,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046589.jpg" />
 </div>
 
 
@@ -192,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046479.jpg" />
 </div>
 
 
@@ -220,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044668.jpg" />
 </div>
 
 
@@ -247,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044472.jpg" />
 </div>
 
 
@@ -274,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044273.jpg" />
 </div>
 
 
@@ -300,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043996.jpg" />
 </div>
 
 
@@ -326,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043995.jpg" />
 </div>
 
 
@@ -352,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043773.jpg" />
 </div>
 
 
@@ -378,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043677.jpg" />
 </div>
 
 
@@ -404,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043583.jpg" />
 </div>
 
 
@@ -430,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043395.jpg" />
 </div>
 
 
@@ -456,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043297.jpg" />
 </div>
 
 
@@ -482,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043109.jpg" />
 </div>
 
 
@@ -508,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043000.jpg" />
 </div>
 
 
@@ -534,7 +376,7 @@ Michael Thiessen | Clean Components (2020) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042932.jpg" />
 </div>
 
 
@@ -563,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042928.jpg" />
 </div>
 
 
@@ -589,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042846.jpg" />
 </div>
 
 
@@ -615,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042829.jpg" />
 </div>
 
 
@@ -641,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042067.jpg" />
 </div>
 
 
@@ -667,7 +509,7 @@ Justin Seitz, Tim Arnold | Black Hat Python: Программирование Py
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041865.jpg" />
 </div>
 
 
@@ -678,6 +520,167 @@ Justin Seitz, Tim Arnold | Black Hat Python: Программирование Py
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF8174DC99DA322CBBECCAAFD90BB8D4B1009A58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437412   (1041655) от 06.01.2021
+
+Уэс МакДермотт | Всесторонние руководство по PBR от Allegorithmic / The Comprehensive PBR Guide by Allegorithmic [2 части] (2015) [PDF] [RU, EN]
+
+>>Компьютерная литература
+>>3D графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041655.jpg" />
+</div>
+
+
+###  Подробнее
+
+Allegorithmic - лидер отрасли в области технологий 3D-текстурирования с его отмеченным наградами набором программ Substance.
+Эта книга, написанная Уэсом МакДермоттом и перепроверенная экспертами в этой области, описывает принципы физически корректного рендеринга (PBR) и содержит практические рекомендации по текстурированию PBR.
+В первой части книги рассматриваются (   Читать дальше...   )Жанр: 3D графика, ТекстурированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2E7043E901931083E05EC42C20D23002FA1588A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437537   (1041604) от 06.01.2021
+
+Уильям Воган | Рабочая книга по топологии Pushing Points: Книга 02 / The Pushing Points Topology Workbook: Volume 02 (2019) [PDF] (+ Bonus) [EN]
+
+>>Компьютерная литература
+>>3D графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая рабочая книга по топологии Pushing Points представляет собой 60-страничное программно-независимое руководство, которое демистифицирует создание голов персонажей с чистой лицевой топологией. На страницах этого руководства вы узнаете проверенные в продакшене советы и методы моделирования.
+Эта книга использует программно-независимый подход, поэтому у вас не должно (   Читать дальше...   )Жанр: 3D моделирование, ТопологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:779DEE7E3F51C68453FA5A2040D5046312860D7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437423   (1041594) от 06.01.2021
+
+3DTotal| Concept art for games (2011) [PDF]
+
+>>Компьютерная литература
+>>2D графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концепт-арт для компьютерных игр - это увлекательная область, играющая огромную роль в индустрии, в которой хотели бы участвовать многие начинающие цифровые художники. Эта электронная книга была написана одними из крупнейших и лучших имен в игровой индустрии, которые расскажут нам, как они будут заниматься тремя основными областями, в которых требуется концептуальная (   Читать дальше...   )Жанр: Концепт арт для компьютерных игрФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D0CB8273B276F38E8E8E2E48B07BCD172891CCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437410   (1041590) от 06.01.2021
+
+3DTotal | 101 совет по созданию мультяшных персонажей (2015) [PDF]
+
+>>Компьютерная литература
+>>2D графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041590.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данной книге описаны советы как создавать мультяшных персонажей с помощью программы Adobe Photoshop.Жанр: Рисование, созданию мультяшных персонажейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:183BDC5813111F152932AE391B2DA03F183A1C1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438230   (1041343) от 07.01.2021
+
+Фрэнк Томас, Олли Джонстон | Иллюзия жизни: Анимация Диснея / The Illusion of Life: Disney Animation (1995) [PDF]
+
+>>Компьютерная литература
+>>2D графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041343.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Illusion of Life: Disney Animation (Иллюзия жизни: Анимация Диснея) — книга о мультипликации, написанная американскими мультипликаторами Фрэнком Томасом и Олли Джонстоном.
+Книга в свое время вызвала ажиотаж в мультипликационной среде, так как до этого никто не делился так подробно секретами всего технологического процесса создания мультипликации.
+Структурно книга (   Читать дальше...   )Жанр: АнимацияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98AADFE6D32EC469EA8B6FF8E0C833106B64DFC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438200   (1041293) от 07.01.2021
+
+Кейт Томпсон | Рисуем призраков и демонов - Ожившие мумии, кровавые монстры, крылатые вампиры, жестокие зомби (2012) [PDF]
+
+>>Компьютерная литература
+>>2D графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Демоны, привидения и призраки всегда внушали людям страх, но в то же время притягивали своей таинственностью. Благодаря остросюжетным видеоиграм, захватывающим фильмам ужасов и чудесам анимации сегодня страшные персонажи как никогда популярны, и вы можете научиться изображать их сами. Эта книга послужит вам хорошим практическим пособием. Вы научитесь: придумывать (   Читать дальше...   )Жанр: РисованиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0B5EC36FC3B1045239378749ABFAAD8C2552120
 ```
 
 https://mybot314.ru/tekegram_catalog/

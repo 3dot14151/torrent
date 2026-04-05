@@ -1,3 +1,32 @@
+###  Публикация: 1005905   (830915) от 10.04.2016
+
+Tiga - No Fantasy Required (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Techno, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Fantasy Required (4:34)
+02. Make Me Fall In Love (5:41)
+03. 3 Rules (3:02)
+04. Having So Much Fun (2:57)(   Читать дальше...   )Жанр: Electronic, Techno, HouseПродолжительность: 00:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:796482E85EF7F987633E192AC214568577C0506C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114904   (829973) от 16.03.2017
 
 Zhestyanshiki (Жестяньщики) - Luxury (2016) [FLAC|Lossless|WEB|tracks] <Pumping House , Hard Bass>
@@ -6,7 +35,7 @@ Zhestyanshiki (Жестяньщики) - Luxury (2016) [FLAC|Lossless|WEB|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829973.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ XS Project - The New Pumping Attack (2016) [FLAC|Lossless|WEB|tracks] <Pumping H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829890.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Night Sea - Still (2020) Silent Season [FLAC|Lossless|WEB-DL|tracks] <Ambient, D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829771.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Richard Davis - Safety (2002) [FLAC|Lossless|tracks + .cue] <Deep House, Minimal
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829209.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Richard Davis - Details (2005) [FLAC|Lossless|tracks + .cue] <Deep House, Minima
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829207.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - Pumping Storm from 2005 to 2015 (10 Years Bundle Pack) (Mixed by XS Project
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829103.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Hardwell feat. Jake Reese - Mad World: The Remixes (2016) [FLAC|Lossless|WEB-DL|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829079.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ U96 - Das Boot (1992) [FLAC|Lossless|image + .cue] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828384.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ U96 - The Dark Matter EP (2015) [FLAC|Lossless|WEB-DL|tracks] <Electro, Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826985.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Tiesto - Together Again (2021) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826512.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ The New Deal - Mercury Switch (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825477.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Miss Monique - FGIX (2020) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824843.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ VA - Nu Disco, Volume 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Nu Disco, Deep Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824439.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ VA - Yoshitoshi: Best Of 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824235.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Bob Moses - Days Gone By (Never Enough Edition) (2016) [FLAC|Lossless|WEB-DL|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823888.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Klartraum - E (2016) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Minimal>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823020.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ VA - 2020 Disco Party (2020) [FLAC|Lossless|WEB-DL|tracks] <Jackin' House, House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822770.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ VA - F....U Corona (2020) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Afro House,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822663.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ VA - Focus On Nicholas Van Orton (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822552.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ VA - Inner Symphony Gold 2017 (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822423.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ VA - Erotica (2000) [FLAC|Lossless|WEB-DL|tracks] <House, Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822419.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ The New Deal - Live: Portland Me 12.17.99 (2000) [FLAC|Lossless|tracks + .cue] <
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821693.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Booka Shade - Dear Future Self (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820887.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Deadmau5 - Stuff I Used To Do (2017) [FLAC|Lossless|WEB|tracks] <Electro House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820665.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Giash - Brightness Is All (2016) [FLAC|Lossless|WEB-DL|tracks] <Minimal>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819901.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Giash - Brightness Is All (2016) [FLAC|Lossless|WEB-DL|tracks] <Minimal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B04E81766BEA42DB6B00FC5ABD4FC47A3BE9BE0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007791   (819747) от 16.04.2016
-
-Timboletti - Hintersee (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coconut Kingdom (Original Mix) (6:05)
-02. Coconut Kingdom (Al Lindrum Remix) (7:07)
-03. Helva Selva (Original Mix) (6:28)
-04. Helva SelvaЖанр: Techno, HouseПродолжительность: 00:52:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B68AD2D286EB310724537EAF6790B0ECE7A9EF32
 ```
 
 https://mybot314.ru/tekegram_catalog/

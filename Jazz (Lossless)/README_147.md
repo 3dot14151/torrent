@@ -6,7 +6,7 @@ Charles Lloyd - Manhattan Stories (1965) 2CD, 2014, Resonance Records[FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565652.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Christian McBride - Christian McBride's New Jawn (2018) Mack Avenue Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565562.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Buddy DeFranco (De Franco) - Charlie Cat 2 (2007) Arbors Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565520.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Bill Evans - Rise Above (2016) [FLAC|Lossless|image + .cue] <Jazz Fusion, Jazz &
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565499.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Larry Carlton - Alone/But Never Alone (1986) [FLAC|Lossless|image + .cue] <Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565356.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Julian Curwin & The Tango Saloon - The Tango Saloon (2006) [APE|Lossless]<Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565083.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Ornette Coleman - The Empty Foxhole (1966) /2015, Universal/[FLAC|tracks+.cue]<J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564633.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Tiny Grimes - 1944 - 1949 (2002) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564208.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Matthew Gee All-Stars - Jazz By Gee! (1956) 1996, Original Jazz Classics[FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563838.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Dexter Gordon - 12 Classic Albums 1947-1962 (2015) 6CD, Enlightenment [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563831.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Bobby Jaspar - Three Classic Albums Plus (1956, 1957) 2CD, 2017, Avid Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563746.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Milt Jackson - Quartet (1955) Remaster, 2013, Universal [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563745.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Miramode Orchestra - Tumbler (2017) [FLAC|Lossless|tracks + .cue] <Electronic, F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563742.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Fred Hersch - Songs Without Words (2001) 3CD, Nonesuch Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563635.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Judy Garland - Chasing Rainbows (1936 - 1939) 1989, Remember [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563620.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ VA - This Is Vocal Jazz (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563370.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Jimmy McGriff - The Worm (1968) /2014, Universal/[FLAC|tracks+.cue]<Jazz, Hard B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562853.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ George Gershwin - Rhapsody In Blue - An American In Paris (James Levine & Chicag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562699.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Bobby Bryant - Earth Dance (1969) 2011, EMI Music [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562276.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Hadley Caliman & Pete Christlieb - Reunion (2010) [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562275.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Ray Brown Trio - Live From New York To Tokyo (1987, 1989) 2CD, 2003, Concord Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562270.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Mike Vax & Ron Romm - Collaboration (2018) [FLAC|Lossless|image + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562268.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Rosenberg Trio & Tim Kliphuis - Tribute To Stephane Grappelli (2008) Foreign Med
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562092.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Curtis Fuller - Meets Roma Jazz Trio (1982) Remaster, 2015, Solid Records[FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561895.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Lenny White - Present Tense (1995) [FLAC|Lossless|image + .cue] <Fusion, Jazz-Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561892.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ Charles Earland - Coming To You Live (1980) Remaster, 2016, Sony Music[FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561827.jpg" />
 </div>
 
 

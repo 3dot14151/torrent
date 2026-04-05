@@ -6,7 +6,7 @@ Pat Martino - Consciousness (1974) 1999, Sony Music [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135357.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Judy Garland - Classic Duets (2023) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135262.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Shelly - Snow Rose eXcel (2002) [FLAC|Lossless]<Jazz, Audiophile Female Voices>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_135217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135217.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Fourplay - 10 Альбомов (1991-2012) [FLAC|Lossless]<Smooth Jazz, Crossove
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_135201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135201.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ VA - Sunday Morning Happy Jazz Vibes Playlist (2023) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134989.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ VA - Soft Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134968.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ VA - Just jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134957.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Bob James & Hilary James - Christmas Eyes (2008) [FLAC|Lossless]<Vocal Jazz, Smo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_134804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_134804.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Arturo O'Farrill - Legacies (2023) Blue Note [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134633.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ VA - New Year's Eve Jazz 2024 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134571.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Gigi Gryce & Donald Byrd - Jazz Lab (1957) 2010, Jubilee [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134379.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Cal Tjader - Gozame! Pero Ya... (1980) 1987, Concord Picante [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134371.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Herb Ellis / Ray Brown Sextet - Hot Tracks (1976) 1990, Concord Jazz [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134365.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Shakatak - Eyes of the World (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134275.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Dan Berglund's - Tonbruket (2010) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134227.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Cal Tjader - Several Shades Of Jade & Breeze From The East (1963) 1997, Verve [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134209.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ The Jack Wilson Trio - Live at the Pied Piper + 2 (1967) 2011, Interplay [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133979.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Dorothy Ashby - The Jazz Harpist (1956) 1992, Savoy Jazz [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133974.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Paquito D'Rivera & Louie Ramirez - A Tribute To Cal Tjader (1986) 2004, Yemaya R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133970.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Ella Trafova & David Goloshokin quartet - I Remember... (1998) [FLAC|Lossless]<J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133750.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Dan Nimmer Trio - Modern Day Blues (2010) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133722.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Dorothy Ashby - The Fantastic Jazz Harp of Dorothy Ashby (1965) 2016, Spellbound
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133544.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Count Basie - Basie's Beat (1965, 1967) 2020, Universal [FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133541.jpg" />
 </div>
 
 
@@ -710,7 +710,7 @@ Herb Ellis - Man With The Guitar (1965) 2021, Universal [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133533.jpg" />
 </div>
 
 
@@ -739,7 +739,7 @@ Kenny G - Innocence (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133453.jpg" />
 </div>
 
 
@@ -768,7 +768,7 @@ The Manhattan Transfer - The Christmas Album (1992) [FLAC|Lossless]<Jazz Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133198.jpg" />
 </div>
 
 

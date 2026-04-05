@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510313.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510155.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Mental Hospital III 1.01.02 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509990.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Vortex Planetarium Astronomy v1.4.5 [En] - виртуальный планета
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509987.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ UC Cleaner: Очистка памяти v2.7.0.30 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509882.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_509829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_509829.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509694.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509413.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509399.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509305.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509294.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509203.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Noto | Minimal Note-Taking App 2.1.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509021.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Tiles v2.1.7 [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508942.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508557.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Global Metro v3.1 [En] - оффлайн карты метро Мира
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508235.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508224.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Node Video - Pro Video Editor 4.9.51(240) Mod by solru [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507910.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Total Commander for Android  2.6.2 final [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507763.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507574.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507464.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507403.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507392.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507347.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507150.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ AppBlock - Оставайся сосредоточенным 5.20.1 Mod by Balat
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507131.jpg" />
 </div>
 
 

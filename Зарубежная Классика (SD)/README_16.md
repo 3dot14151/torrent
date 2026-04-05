@@ -1,3 +1,57 @@
+###  Публикация: 1360636   (943624) от 27.02.2020
+
+Отстрел / Shoot Out (1971) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клэй Ломакс только что выпущен из тюрьмы Канзас-Сити, где отбывал 7-летний срок за ограбление. Он мог бы выйти раньше, если бы сдал подельника. Но нет — Клэй не из таких. Тем более он знает, кто выстрелил ему в спину в тот злосчастный день налета на банк и желает решить вопрос своими методами.
+Ожидая вернуть от своей бывшей любовницы отданные ей на хранение деньги, (   Читать дальше...   )Производство: США / Hal Wallis ProductionsЖанр: ВестернРежиссер: Генри ХэтэуэйАктеры: Грегори Пек, Патриция Куинн, Роберт Ф. Лайонс, Сьюзен Тайррелл, Джефф Кори, Джеймс Грегори, Рита Гэм, Доун Лин, Пепе Серна, Джон Дэвис ЧэндлерПеревод: Многоголосый профессиональный, авторскийСубтитры: АнглийскиеПродолжительность: 01:34:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CE19916D5DB453396A73EDBE3466CF20A210523
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 752052   (942748) от 01.02.2014
+
+Игрушка / Le jouet / The Toy (1976) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942748.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стать игрушкой для малолетнего миллионера — ситуация не для слабонервных. Герой Пьера Ришара отлично справляется с ролью ужасного ребенка и, вместе с подопечным, отрывается на полную катушку.
+Остановить «детский беспредел» оказывается не так просто. Особенно если учесть, что Франсуа Перрен стал для ребенка единственным по-настоящему любимым человеком…Производство: Франция / Andrea Films, EFVE, Fideline Films, Renn ProductionsЖанр: КомедияРежиссер: Франсис ВеберАктеры: Пьер Ришар, Мишель Буке, Фабрис Греко, Жак Франсуа, Даниэль Секкальди, Шарль Жерар, Мишель Омон, Сьюзи Дайсон, Жерар Жюньо, Мишель РобенПеревод: Дублированный, многоголосый закадровыйПродолжительность: 01:33:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:398A681D3AA3D5F6C84817CD55F22601D169D4AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088000   (942732) от 09.01.2017
 
 Украли Джоконду / Il ladro della Gioconda (1965) DVDRip [H.264]
@@ -6,7 +60,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942732.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942704.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942636.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942629.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942619.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942544.jpg" />
 </div>
 
 
@@ -162,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941984.jpg" />
 </div>
 
 
@@ -188,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941783.jpg" />
 </div>
 
 
@@ -214,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941302.jpg" />
 </div>
 
 
@@ -240,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941094.jpg" />
 </div>
 
 
@@ -266,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940982.jpg" />
 </div>
 
 
@@ -293,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940878.jpg" />
 </div>
 
 
@@ -320,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940083.jpg" />
 </div>
 
 
@@ -346,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939786.jpg" />
 </div>
 
 
@@ -372,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939781.jpg" />
 </div>
 
 
@@ -398,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939491.jpg" />
 </div>
 
 
@@ -426,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938741.jpg" />
 </div>
 
 
@@ -452,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938723.jpg" />
 </div>
 
 
@@ -478,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938551.jpg" />
 </div>
 
 
@@ -504,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936980.jpg" />
 </div>
 
 
@@ -530,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936276.jpg" />
 </div>
 
 
@@ -556,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935834.jpg" />
 </div>
 
 
@@ -582,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935331.jpg" />
 </div>
 
 
@@ -608,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932039.jpg" />
 </div>
 
 
@@ -619,59 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3EC8726587B47CDD5F1765B4B13B82BF82AE395D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088340   (931792) от 16.01.2017
-
-Спартак / Spartacus (1960) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931792.jpg" />
-</div>
-
-
-###  Подробнее
-
-История гладиатора Спартака, его возлюбленной Варинии и честолюбивого римского полководца Красса. Непреодолимая тяга к свободе заставляет Спартака поднять легендарное восстание рабов, ставшее важнейшей вехой мировой истории.Производство: США / Bryna ProductionsЖанр: Драма, Приключения, Военный, Биография, ИсторияРежиссер: Стэнли КубрикАктеры: Кирк Дуглас, Лоуренс Оливье, Джин Симмонс, Чарльз Лотон, Питер Устинов, Джон Гэвин, Нина Фош, Джон Айрленд, Херберт Лом, Джон Долл, Чарльз МакГроуПеревод: Дублированный, Многоголосый закадровый, Двуголосый закадровый, АвторскийЯзык субтитров: Русский, АнглийскийПродолжительность: 03:16:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8BBB2844A912F12F7F91FE95DC51B9B66B62DF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362427   (931636) от 06.03.2020
-
-Приключения Одиссея / Ulisse (1954) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931636.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классическая история Гомера о подвигах и приключениях древнегреческого героя Одиссея во время его возвращения домой к жене Пенелопе после Троянской войны.
-Какие только испытания не выпали на долю Одиссея — его пытались охмурить прелестные и возбужденные одинокие женщины, захватить в плен и порвать на куски громадные и безобразные циклопы, отравить коварные и беспощадные (   Читать дальше...   )Производство: Италия, Франция, США / Lux Film S.p.a., Paramount Pictures, Producciones Ponti-de Laurentiis, Zénith FilmsЖанр: Фэнтези, Приключения, ИсторияРежиссер: Марио КамериниАктеры: Кирк Дуглас, Сильвана Мангано, Энтони Куинн, Россана Подеста, Жак Дюмениль, Даниэль Ивернель, Сильви, Франко Интерленги, Елена Зарески, Эви Мальтальяти, Людмила Дударова, Таня Вебер, Пьеро ЛуллиПеревод: Дублированный, многоголосый профессиональный, авторскийСубтитры: РусскиеПродолжительность: 01:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10E88E2948B2AAEAD3513023FBAF7A43B5F53769
 ```
 
 https://mybot314.ru/tekegram_catalog/

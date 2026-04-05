@@ -1,3 +1,61 @@
+###  Публикация: 1280525   (760628) от 03.02.2019
+
+Fortunato & Montresor - Imagine (Original & Reissue) (1997 / 2003) Elektrolux, Bedrock Records [FLAC|Lossless|tracks+.cue, tracks] <Progressive House, Breaks, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagine (Radio Edit) (03:49)
+ 02. Imagine (Imagination 1) (06:42)
+ 03. Imagine (Chris Fortier Dub) (08:29)
+ 04. Imagine (Chris Fortier Remix) (10:42)(   Читать дальше...   )Тип издания: CD, WebЖанр: Progressive House/Breaks/Deep HouseПродолжительность: 00:40:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16BC443775FFBD0ECB1A0B570127AA91425895F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280313   (760542) от 03.02.2019
+
+VA - Total Trance Selections, Vol. 15 (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. UDM- Free Fall (Original Mix)
+02. Astony- Fujita (Original Mix)
+03. Roman Messer- Antipode (Original Mix)
+04. Ramzi Benlakehal- Hope The Second Chapter (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:29:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AB38E1A0EF47E9550F2D0052E32D1402E9AF71A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005557   (760535) от 03.02.2019
 
 Phil Von - Discography 4 Releases (2001-2019) Ant-Zen [FLAC|Lossless|WEB-DL|tracks] <Abstract, Ambient, Electro, IDM, Tribal>
@@ -6,7 +64,7 @@ Phil Von - Discography 4 Releases (2001-2019) Ant-Zen [FLAC|Lossless|WEB-DL|trac
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760535.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Best Chill Out & Ambient Music For Sleep (2019) [MP3|320 Kbps] <Chill-Out, 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760531.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Twelve (2001) TIP.World [FLAC|Lossless|tracks+.cue] <Ambient, Psychill>
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760519.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Workout Body Man Extreme (2020) [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760515.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Ladytron - Ladytron (2019) [FLAC|Lossless|WEB-DL|tracks] <Electropop, Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760434.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Auditory Canvas - Discography 11 Releases (2007-2014) Summer Rain Recordings [FL
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760432.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Sagittarius Dreams (Compiled by Prometheya) (2020) Mystic Sound Records [FL
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760394.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Playa De Oro (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760097.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Eclipse - A Journey Of Permanence & Impermanence (1998) Twisted Records [FL
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759972.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Depeche Mode - Live Spirits Soundtrack (2020) [MP3|320 Kbps] <Alt.Rock, Synth Po
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758744.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Freunde Der Technik - Maximal Minimal (2019) Limited Edition [FLAC|Lossless|trac
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758732.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Trans Emotional Bundle Winter-Edition (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758727.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Markus Schulz - Global DJ Broadcast New Year's Rehab (2022-01-06) [MP3|320 Kbps]
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758656.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ David Guetta - Live @ New Year's Eve Livestream, Louvre Abu Dhabi, United Arab E
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758652.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Armin Van Buuren - A State of Trance Episode 900 (Part 2) (2019) [MP3|320 K
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758637.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Armin Van Buuren - A State of Trance 900 (Part 1) (2019) [MP3|320 Kbps] <Tr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758634.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Abjective - Discography 21 Releases (2012-2020) [FLAC|Lossless|WEB-DL|tracks]<ID
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758492.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ S.A.M. - Retrospect One (2018) Delaphine [FLAC|Lossless|WEB-DL|tracks] <Dub Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758228.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Levitated Miami (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_758225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_758225.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Silent Shore Miami (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758222.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Steve Parker - Interplanetary Dust LP (2018) Planet Rhythm [FLAC|Lossless|WEB-DL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758220.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Back To Love 03.03 (2003) [FLAC|Lossless|tracks] < House, Disco, Hip-Hop, A
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758217.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Markus Schulz - Global DJ Broadcast (Miami Music Week Edition) (2018) [MP3|
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758112.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Luke Vibert - Arcadia (2018) De:tuned [FLAC|Lossless|WEB-DL|tracks] <Electro, Ac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758111.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Luke Vibert - Arcadia (2018) De:tuned [FLAC|Lossless|WEB-DL|tracks] <Electro, Ac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2259CCC457C4E31BEE5C12ACB58D48160CB1F3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215593   (758108) от 26.03.2018
-
-VA - Ori Uplift & Baco - Uplifting Only 267 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grande Piano - Only Mine (Intro Mix)
-02. FAN FAVORITE: Dreamlife & Blue Moon - Last Farewell (George Crossfield Emotional Remix)
-03. Alex Wright - Mnemba
-04. Etasonic & Dany G - Flying in a Dream (RAM & Cari Remix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:59:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B64153098A3480FBE46F970F4C826D3E323C28B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215499   (758107) от 26.03.2018
-
-Michael E - Cotton Blossom (2018) [MP3|320 Kbps] <Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Cotton Blossom (Original Mix)  5:35
-02.  Tropic Of Capricorn (Original Mix)  8:01
-03.  Recuring Dream (Original Mix)  6:00
-04.  It's True (Original Mix)  6:05(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:57:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EC38DD603B0160DC1C3F2B2CD3CB9DFE5387A1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

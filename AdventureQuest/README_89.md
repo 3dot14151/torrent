@@ -1,3 +1,81 @@
+###  Публикация: 1735224   (39450) от 24.10.2024
+
+Harold Halibut (2024) [Ru/Multi] (1.1.1) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Harold Halibut - созданная вручную нарративная игра о дружбе и о жизни на космическом корабле на дне инопланетного океана. Уже 250 лет прошло с тех пор, как ваш дом - космический ковчег - улетел с Земли на грани холодной войны, чтобы найти пригодную для жизни планету и спасти человечество. Вас зовут Гарольд, вы молодой ассистент научной руководительницы экспедиции (   Читать дальше...   )Тип издания: LicenseРазработчик: Slow Bros.Жанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:246DF8E731272775017E8BCD3A96126BE55FB091
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713430   (39263) от 26.10.2024
+
+Alan Wake 2 (II) (2023) [Ru/Multi] (1.2.2/dlc) Repack FitGirl [Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Городок Брайт-Фоллс, укрывшийся среди гор и лесов на северо-западе тихоокеанского побережья, потрясла серия ритуальных убийств. Для расследования этих жутких преступлений в город прибывает Сага Андерсон - опытный агент ФБР, за плечами которой немало дел, считавшихся нераскрываемыми. Однако, когда Андерсон находит страницы из романа ужасов, который начинает оживать (   Читать дальше...   )Тип издания: RepackРазработчик: Remedy EntertainmentЖанр: Экшены, Приключение, ШутерыЯзык озвучки: Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8C65A805CD8098A28190586AD4ACF0329144788
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757253   (39241) от 26.10.2024
+
+INDIKA (2024) [Ru/Multi] (1.0.3) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39241.jpg" />
+</div>
+
+
+###  Подробнее
+
+INDIKA - игра от третьего лица с историей о странном мире, в котором религия вступает в противоборство с жестокой реальностью. Игра повествует о молодой монахине, которая отправляется на поиски самой себя бок о бок с рогатым другом. Внешне Индика - обычная, ничем не выдающаяся монахиня. Она всеми силами пытается нести бремя монастырской жизни. Однако скромность и (   Читать дальше...   )Тип издания: LicenseРазработчик: Odd MeterЖанр: Приключенческие игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF94492FB334957718CFE1983D9E52438440339F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1753864   (39131) от 27.10.2024
 
 Beyond Shadowgate (2024) [En] (1.0.0.5) License GOG
@@ -6,7 +84,7 @@ Beyond Shadowgate (2024) [En] (1.0.0.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39131.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Neva (2024) [Ru/Multi] (1.02) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39054.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ The Coma 2B: Catacomb (2024) [Ru/Multi] (1.0.3/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39022.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Bendy and the Ink Machine (2017) [Ru/Multi] (1.5.1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38940.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Creatures of Ava (2024) [Ru/Multi] (1.0.2.2/dlc) Repack FitGirl [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38936.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Outbreak: Shades of Horror Chromatic Split (2024) [En] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38886.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Connection: The Nightmare Within (2024) [Ru/Multi] (Build 16187772) Repack FitGi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38854.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Don't Be Afraid 2 (2024) [Ru/Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38833.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38780.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Subnautica (2018) [Ru/Multi] (Build 71288) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38748.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Don't Be Afraid 2 (2024) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38725.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Tintin Reporter Cigars of the Pharaoh / Репортер Тинтин: Сига�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38660.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Goodbye Deponia (2013) [Ru/Multi] (3.3.3335/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38654.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Chaos on Deponia (2012) [Ru/Multi] (3.3.2351/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38652.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ DREDGE (2023) [Ru/Multi] (1.5.3/dlc) Repack FitGirl [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38650.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Deponia (2012) [Ru/Multi] (3.3.1357) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38642.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Granny Remake (2023) [Ru/Multi] (3.5) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38600.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Subnautica: Below Zero (2019) [Ru/Multi] (Build 49371) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38537.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Dreamless (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38417.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ The Night is Grey (2024) [En] (1.4) Scene Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38397.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Repella Fella (2023) [En] (1.0.2c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38379.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Scary Shadow Spot: Last Farewell (2024) [Multi] (1.2.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38340.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ CRUELTY (2024) [Multi] (1.0) Scene TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38305.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ CRUELTY – что может быть лучше ужаса от японски
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3563A188765744BC41414B50F6D46B45FD9340FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715438   (38164) от 06.11.2024
-
-Ace Ventura (1996) [Ru/En] (1.0) Repack 1nomok
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38164.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра Ace Ventura, основанная на одноименном фильме, погрузит Вас в красочный мир, полный юмора и всеобщего веселья. Главный герой, частный детектив Эйс Вентура, специализируется на розыске пропавших животных. Вместе с ним и его ручной обезьянкой Вам предстоит пережить незабываемое приключение. Вы побываете на подводной лодке капитана Немо, в Баварии и на таинственной (   Читать дальше...   )Тип издания: RepackРазработчик: 7th LevelЖанр: AdventureЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B45F432C7B1FBFED5DEBC3619661912B593E9419
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759059   (38116) от 06.11.2024
-
-Massacre At The Mirage (2024) [En] (1.0) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра ставит участников в центр разворачивающегося ужаса в кинотеатре, месте, которое когда-то было местом радости в общине Кримсон-Ридж. Атмосфера резко меняется, когда фигура в маске, замаскированная под клоуна, начинает бесчинствовать, превращая некогда безопасное место в поле боя. По мере нарастания напряжения юзерам предстоит ориентироваться в запутанной планировке (   Читать дальше...   )Тип издания: LicenseРазработчик: Tainted PactЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:529EB74BAA9D9626C793C88C8669532291E1AEFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163605   (38057) от 07.11.2024
-
-Time Machine / Машина времени (2000) [Ru/En] (1.23) Repack 1nomok
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38057.jpg" />
-</div>
-
-
-###  Подробнее
-
-Согласно сюжету игры главный герой - ученый Джордж Уэйлс создает машину времени и отправляется на 800 000 лет в будущее, но свершается непредвиденное: машина времени исчезает, а главный герой оказывается посреди мира, который разрушается под действием "времятрясений". Из-за этих явлений в мире возможно все: нереальные пейзажи, смещение во времени, мгновенное (   Читать дальше...   )Тип издания: RepackРазработчик: Index+Жанр: КвестЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C0F01B885198B000935705FF1F1F6F68F0F7C44
 ```
 
 https://mybot314.ru/tekegram_catalog/

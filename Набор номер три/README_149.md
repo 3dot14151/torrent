@@ -1,3 +1,161 @@
+###  Публикация: 1003273   (844570) от 02.04.2016
+
+Проекты - VideoHive - Dark Logo Pack - 8566339 [AEP]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания логотипа. Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B2FB1A2EC74D3B035298156E8EB089AE2FFB15E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 191789   (844503) от 16.04.2010
+
+SONY Vegas Pro (x32/x64) 9.0d Build 1133 [Multi + Rus]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sony Vegas - профессиональная программа для многодорожечной записи, редактирования и монтажа видео и аудио потоков. Инструменты, содержащиеся в 'Vegas Pro', дают возможность редактирования, и обработки в реальном времени форматов DV, AVCHD, HDV, SD/HD-SDI и XDCAM™, точную корректировку аудио, создание объёмного звука и двухслойных DVD. Вы можете прожечь Blu-ray диски (   Читать дальше...   )Язык интерфейса: Multi + Rus (x32)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 192360   (844498) от 16.04.2010
+
+Активатор Windows 7 Build 7600 RTM (x86/x64) Выпуск 12.0 (15/04/2010) [ DE-EN-RU]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844498.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самая последняя на сегодняшний день версия OEM Активатора для Windows 7.
+Она устанавливает OEM сертификат одной из крупных фирм, после чего активирует вашу копию Windows 7,
+и дает возможность проходить проверку подлинности.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111946   (844369) от 07.03.2017
+
+Игру Resident Evil 7 взломали в рекордное время
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_844369.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя пять дней после выхода на рынок, игра Resident Evil 7: Biohazard уже появилась на пиратских сайтах. Обычно продукты, защищённые Денуво, требуют месяцы на это, поэтому это не только грандиозное поражение но и определённая веха в мировых стандартах антипиратских технологий.Неутешительное положение дел для антипиратской технологии компании Denuvo Software Solutions, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002958   (844351) от 02.04.2016
+
+Проекты - VideoHive - Beautiful Day - 2730969 [AEP]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для веселого и красивого детского фото-видео слайд-шоу.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FC4CFA148D3F386C2B22DF6CF6218EEE0C72B7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002933   (844350) от 02.04.2016
+
+DAEMON Tools Ultra 4.1.0.0489 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844350.jpg" />
+</div>
+
+
+###  Подробнее
+
+DAEMON Tools Ultra — это самая мощная, функциональная и профессиональная программа для работы с образами, которую мы когда-либо создавали. Эмулируйте виртуальные приводы, создавайте загрузочные USB для восстановления операционных систем, используйте RAM-диски для того, чтобы ускорить работу ПК, и подключайтесь к удаленным USB-устройствам по протоколу iSCSI с помощью (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5A010B0F70200E5FF2C4FFC1744A325EC8525FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003008   (844348) от 02.04.2016
 
 CrossOver Linux 15.1.0 [x86-x64] (deb, rpm, bin)
@@ -6,7 +164,7 @@ CrossOver Linux 15.1.0 [x86-x64] (deb, rpm, bin)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844348.jpg" />
 </div>
 
 
@@ -33,7 +191,7 @@ Angel Beats! / Ангельские ритмы! [2010, ТВ, 13 серий] HDTV
 >>20
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_844339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_844339.jpg" />
 </div>
 
 
@@ -59,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>10
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_844338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_844338.jpg" />
 </div>
 
 
@@ -85,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844337.jpg" />
 </div>
 
 
@@ -111,7 +269,7 @@ Windows 10 PE (x64) v.4.5.1 by Ratiborus [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844336.jpg" />
 </div>
 
 
@@ -137,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844258.jpg" />
 </div>
 
 
@@ -163,7 +321,7 @@ Homefront: The Revolution (2016) [Ru/Multi] (1.078.1055/dlc) License PLAZA [Free
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844216.jpg" />
 </div>
 
 
@@ -189,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844212.jpg" />
 </div>
 
 
@@ -216,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844211.jpg" />
 </div>
 
 
@@ -242,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_844130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_844130.jpg" />
 </div>
 
 
@@ -268,7 +426,7 @@ CyberLink PowerDVD Ultra 2020 v20.0.1519.62 repack activated by Anonymous [Multi
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844008.jpg" />
 </div>
 
 
@@ -294,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843996.jpg" />
 </div>
 
 
@@ -320,7 +478,7 @@ foxminded | Java Start (2020) PCRec [H.264/1080p-LQ]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843993.jpg" />
 </div>
 
 
@@ -346,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843991.jpg" />
 </div>
 
 
@@ -372,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843990.jpg" />
 </div>
 
 
@@ -398,7 +556,7 @@ Windows 10 32in1 (x86/x64) + LTSC +/- Office 2019 by SmokieBlahBlah 23.04.20 [Ru
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843989.jpg" />
 </div>
 
 
@@ -427,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>14
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843988.jpg" />
 </div>
 
 
@@ -453,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>10
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843987.jpg" />
 </div>
 
 
@@ -479,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_843916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_843916.jpg" />
 </div>
 
 
@@ -506,175 +664,13 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_843911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_843911.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Коммуналку в России хотят резко поднять. Так, Марат Хуснуллин поручил проработать вопрос повышения тарифов до "экономически обоснованных" уровней. Эксперт Елена Николаева предрекла "жёсткие дискуссии" во власти на эту тему.Инфраструктура, которая была создана ещё в советский период, достигла предельного уровня амортизации. Критический износ уже (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 18746   (843896) от 04.10.2021
-
-Мирзакарим Норбеков | Оздоровительный мультимедиа курс [2 диска] (2007) DVD9 [ISO]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Система, которая помогла миллионам людей обрести здоровье, впервые выпущена в виде полностью самостоятельного курса. Автор оздоровительной системы Мирзакарим Норбеков назвал этот продукт эталонным курсом — за исключительную точность передачи всех практик, на которых основывается методика.
-
-Вас ждут 40 дней удивительных занятий один на один с Мирзакаримом Норбековым, (   Читать дальше...   )Производство: Мирзакарим НорбековЖанр: ЗдоровьеПродолжительность: 13:21:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B5E45E2BEA6689D82C19EAF122B1A3EF2275FDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 308530   (843769) от 14.03.2011
-
-BitDefender Internet Security 2011 14.0.23.312 х86 [Русский]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_843769.jpg" />
-</div>
-
-
-###  Подробнее
-
-BitDefender Internet Security - решает все задачи по обеспечению безопасности при работе в интернете. Он обеспечивает защиту от вирусов, шпионов, спама, попыток фишинга, вторжений и вредоносного веб-контента.
-Антивирус. Гарантирует обнаружение и удаление всех вирусов, находящихся в обращении. Использует мощные сканирующие механизмы, сертифицированные ICSA, Virus Bulletin, Checkmark, CheckVir и TUV.
-Брандмауэр. Фильтрует сетевой трафик и контролирует время доступа пользователей в интернет и разрешения на запуск приложений. Режим Стелс позволяет «скрыть» ваш компьютер от вредоносного программного обеспечения и хакеров.
-Антишпион. Отслеживает и предупреждает потенциальную возможность проникновения шпионских объектов в режиме реального времени до того, как они нанесут вред вашей системе. Используя обширную базу известных сигнатур шпионских объектов, ваш компьютер останется защищенным от шпионов.
-Родительский контроль. Модуль Родительского контроля BitDefender блокирует доступ к веб-сайтам, которые вы расцениваете (   Читать дальше...)Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 875003   (843374) от 14.03.2015
-
-Corel VideoStudio Ultimate X8 18.0.0.181 (x64) + Content [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843374.jpg" />
-</div>
-
-
-###  Подробнее
-
-VideoStudio Pro X8 создана для обработки видео и позиционируется в качестве простого решения для пользователей. Среди нововведений последней версии можно выделить поддержку Blu-ray Disc Movie Video (BDMV). Пользователи могут импортировать файлы BDMV непосредственно с Blu-ray-видеокамер, работать с HD-видео, добавлять анимированные меню и записывать проекты на диски (   Читать дальше...   )Язык интерфейса: Русский (by PooShock), Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86D91A7874E7B5F1D7117FB495EE49ACE019A436
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 846989   (843371) от 14.03.2015
-
-Звёздные войны: Повстанцы / Star Wars: Rebels (2014-2015) WEB-DLRip [1080p] (Сезон 1, серий 14 из 14) (LostFilm)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Миновало 14 лет с того момента, как канцлер Палпатин отдал "Приказ 66", спровоцировавший Великое истребление джедаев. Кейнан Джаррус, один из последних адептов светлой стороны Силы, вынужден объединить усилия с молодым воришкой, опытным головорезом, экспертом по взрывчатке, ворчливым дроидом и пилотом космического корабля «Призрак» в борьбе против Империи. (   Читать дальше...   )Производство: США, Lucasfilm Ltd, DisneyXDЖанр: Фантастика, мультсериал, приключенияРежиссер: Стюарт Ли, Дэйв Филони, Стивен Дж. ЛиПерсонажи: Фредди Принц-младший (Кейнан Джаррус), Тейлор Грэй (Эзра Бриджер), Стивен Блум (Зеб Ореллиос), Тия Сиркар (Сабина Рен), Ванесса Маршалл (Гера Синдулла), Дэвид Ойелово (агент Каллус), Джейсон Айзекс (Инквизитор)Перевод: Многоголосый закадровый, профессиональныйОзвучка / Автор перевода: студия "LostFilm"Продолжительность: каждая ~ 00:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AB57EB8B71681A1BEA82E8F4DBD3DD58F91FFF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 873673   (843370) от 14.03.2015
-
-Navitel / Навител Навигатор v9.5.30 RePack [Ru/En] - только программа навигации
-
->>3
->>9
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843370.jpg" />
-</div>
-
-
-###  Подробнее
-
-Навигационная программа Навител отображает текущее местоположение пользователя на карте и способна с помощью отображения маневра на экране навигатора и голосом подсказать водителю, когда и куда необходимо повернуть на автоматически проложенном маршруте для скорейшего прибытия в необходимое место. Также Навител может предсказать время прибытия в точку назначения, сообщить актуальную скорость движения, проложить маршрут в объезд пробок, предложить множество статистической информации благодаря сотням встроенных (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 14.03.2015Разработчик: NAVITEL ®Поддерживаемая ОС: Android 2.0 +Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB2A83360E6B7328A975ED735C5BDC7FA5D4A3B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 631199   (843226) от 30.04.2013
-
-Игра Престолов / Game Of Thrones (2012) [1080p] BDRemux [Сезон 2, 1-10 из 10]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843226.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Вестеросе наступила осень — предвестник долгой зимы, когда Белые ходоки пробудятся ото сна. Но Стена и её защитники позабыты: три короля претендуют на Железный трон и два верховных лорда провозгласили себя королями над своими землями. Никто из них не желает заключить союзы, и каждый считает свое право на трон священным. И воцарился над миром кровавый хаос войны. (   Читать дальше...   )Жанр: Фэнтези, ДрамаРежиссер: Дэвид Бениофф, Д.Б. УайссАктеры: Николай Костер-Вальдау, Лина Хиди, Айэйн Глен, Питер Динклэйдж, Эмилия Кларк, Мишель Фэйрли, Эйден Гиллен, Кит Харингтон, Лиам Каннингам, Альфи Аллен, Мэйси Уильямс, Стивен Дилленй и др.Перевод: Многоголосый закадровый, профессиональныйОзвучка / Автор перевода: Студия "AlexFilm" | Студия "Kravec" | FoxLife | BBC Saint-Petersburg | UATEAM|Язык субтитров: Russian (forced), Russian (7Kingdoms.ru), Russian (Opel при участии сайта WESTEROS.RU), Ukrainian, English, French, Spanish, Spanish, Portuguese, Polish, Dutch, Danish, Finnish, Norwegian, SwedishПродолжительность: 10 x ~00:54:00
 
 ## Скачать торент
 ```bash

@@ -6,7 +6,7 @@ Thomas Anders - Christmas For You (2012) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352347.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ Steps - Tears On The Dancefloor (Crying At The Disco Deluxe Edition) (2017) [MP3
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351520.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ Kylie Minogue - Kylie Christmas (2015) [MP3|320 кб/с]<Pop, Christmas>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351421.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Eros Ramazzotti - 30 (2014) 3CD BoxSet [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351294.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Charles Aznavour - Greatest Hits (All Tracks Remastered) (2017) [MP3|320 Kbps] <
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350955.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Brian Briggs - 2 Albums (1980, 1982) LP [MP3|320 Kbps] <Electronic, Power Pop, R
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350301.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Fun Boy - The Album (2022) [MP3|320 Kbps] <Italo-Disco, Euro Disco, Hi-NRG>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350290.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Loreen - Heal (2012) [AAC|256 кб/с]<Pop, Electronic, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347983.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Bryce - Best Of (2018) [MP3|320 Kbps] <Dance, Electronic>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347779.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Christophe Mae - L'Attrape-Reves (2016) Edition Collector [MP3|320 Kbps] <French
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347410.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ George Maple - Lover (2017) [MP3|320 Kbps] <Pop, RnB>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347107.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Oxford Drama - In Awe (2015) [OGG| 428-494 кб/с]<Indie Pop, Downtempo, Electr
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346976.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ The Piccadilly Teardrops - Died in Your Eyes (2015) [OGG|446-491 кб/с]<Synthp
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346969.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Was (Not Was) - 5 Studio Albums (1981-2008) CD Collection [MP3|320 Kbps] <Electr
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346797.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Ellie Goulding - Delirium (2015) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346604.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Sara Bareilles - What's Inside: Songs From Waitress (2015) [MP3|320 кб/с]<Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344647.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Seal - 7 (2015) [OGG| 430-510 кб/с]<Pop, Soul, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344514.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Little Mix - Get Weird (2015) The Deluxe Edition [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344506.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Anastacia - Ultimate Collection (2015) [MP3|320 кб/с]<Pop-Rock, R&B, Soul>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344271.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Mylene Farmer - Interstellaires (2015) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343820.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ VA - MNM Back To The 90s & Nillies The Party Edition (2018) 2CD [MP3|320 Kbps] <
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343137.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - 100 Hits - 80s Pop (2017) 5CD [MP3|320 Kbps] <80s, Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342944.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Kate Boy - One (2015) [MP3|320 кб/с]<Alternative, Synthpop, Indie Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342291.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Bjork - Vulnicura Strings (2015) [MP3|320 кб/с]<Pop, Experimental, Acoustic>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342153.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ VA - Dance Club 2020.03 (2020) [MP3|320 Kbps] <Dance, Pop, Deep House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342048.jpg" />
 </div>
 
 
@@ -743,7 +743,7 @@ Maroon 5 - Red Pill Blues (2017) Deluxe Edition [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341966.jpg" />
 </div>
 
 

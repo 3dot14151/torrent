@@ -1,3 +1,31 @@
+###  Публикация: 1775002   (29949) от 24.01.2025
+
+Антивирусная утилита AVZ 5.99 (10.12.2024) (Неофициальная) [Ru/En]
+
+>>ОС Windows
+>>Песочница ПО и сборок Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29949.jpg" />
+</div>
+
+
+###  Подробнее
+
+AVZ - Бесплатная быстро работающая антивирусная утилита. Включает в себя собственно AVZ и дополнительные утилиты AVZGuard/AVZPM/BootCleaner.
+Основное назначение - обнаружение и удаление SpyWare и AdWare модулей, а также Dialer (Trojan.Dialer), троянских программ, BackDoor модулей, сетевых и почтовых червей, TrojanSpy, TrojanDownloader, TrojanDropper.
+По сути, AVZ (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97FF59E0E485CCE83E9DF65E419E6913B85D13DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775596   (29559) от 28.01.2025
 
 Windows 10 Enterprise LTSC x64 21H2 (19044.5371) by Hawksoft [Ru]
@@ -6,7 +34,7 @@ Windows 10 Enterprise LTSC x64 21H2 (19044.5371) by Hawksoft [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29559.jpg" />
 </div>
 
 
@@ -33,7 +61,7 @@ Microsoft Windows 11 [10.0.22631.4890], Version 23H2 (Updated February 2025) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27263.jpg" />
 </div>
 
 
@@ -59,7 +87,7 @@ Windows Server 2025 LTSC [10.0.26100.3194], Version 24H2 (Updated February 2025)
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27251.jpg" />
 </div>
 
 
@@ -85,7 +113,7 @@ Windows Server 2022 LTSC [10.0.20348.3207], Version 21H2 (Updated February 2025)
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27238.jpg" />
 </div>
 
 
@@ -111,7 +139,7 @@ Microsoft Windows 11 [10.0.26100.3194], Version 24H2 (Updated February 2025) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27231.jpg" />
 </div>
 
 
@@ -137,7 +165,7 @@ Microsoft Windows 10 [10.0.19045.5487], Version 22H2 (Updated February 2025) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27229.jpg" />
 </div>
 
 
@@ -166,7 +194,7 @@ Microsoft Windows 11 [10.0.22631.4890], Version 23H2 (Updated February 2025) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27193.jpg" />
 </div>
 
 
@@ -192,7 +220,7 @@ Windows Server [10.0.25398.1425], version 23H2 (Updated February 2025) - Ори�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27185.jpg" />
 </div>
 
 
@@ -218,7 +246,7 @@ Microsoft Windows 11 [10.0.26100.3194], Version 24H2 (Updated February 2025) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27167.jpg" />
 </div>
 
 
@@ -244,7 +272,7 @@ Microsoft Windows 10 [10.0.19045.5487], Version 22H2 (Updated February 2025) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27060.jpg" />
 </div>
 
 
@@ -273,7 +301,7 @@ Windows Server 2022 LTSC [10.0.20348.3328], Version 21H2 (Updated March 2025) - 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24341.jpg" />
 </div>
 
 
@@ -299,7 +327,7 @@ Windows Server 2025 LTSC [10.0.26100.3476], Version 24H2 (Updated March 2025) - 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24334.jpg" />
 </div>
 
 
@@ -325,7 +353,7 @@ Microsoft Windows 10 [10.0.19045.5608], Version 22H2 (Updated March 2025) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24330.jpg" />
 </div>
 
 
@@ -354,7 +382,7 @@ Microsoft Windows 10 [10.0.19045.5608], Version 22H2 (Updated March 2025) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24323.jpg" />
 </div>
 
 
@@ -383,7 +411,7 @@ Microsoft Windows 11 [10.0.26100.3476], Version 24H2 (Updated March 2025) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24317.jpg" />
 </div>
 
 
@@ -409,7 +437,7 @@ Microsoft Windows 11 [10.0.22631.5039], Version 23H2 (Updated March 2025) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24311.jpg" />
 </div>
 
 
@@ -435,7 +463,7 @@ Windows Server [10.0.25398.1486], version 23H2 (Updated March 2025) - Ориги
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24273.jpg" />
 </div>
 
 
@@ -461,7 +489,7 @@ Microsoft Windows 11 [10.0.22631.5039], Version 23H2 (Updated March 2025) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24242.jpg" />
 </div>
 
 
@@ -487,7 +515,7 @@ Microsoft Windows 11 [10.0.26100.3476], Version 24H2 (Updated March 2025) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24227.jpg" />
 </div>
 
 
@@ -513,7 +541,7 @@ Windows 10, 22H2 [19045.5608] 64in2 (x86-x64) by adguard (v25.03.12) [Ru/En]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23815.jpg" />
 </div>
 
 
@@ -539,7 +567,7 @@ Windows 11, 23H2 (22631.5039) 36in1 (x64) by adguard (v25.03.12) [Ru/En]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23793.jpg" />
 </div>
 
 
@@ -565,7 +593,7 @@ Windows 11, 24H2 [26100.3775] 38in1 (x64) by adguard (v25.04.09) [Ru/En]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21503.jpg" />
 </div>
 
 
@@ -591,7 +619,7 @@ Windows 11, 23H2 (22631.5189) 36in1 (x64) by adguard (v25.04.09) [Ru/En]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21474.jpg" />
 </div>
 
 
@@ -617,7 +645,7 @@ Windows Server 2025 LTSC [10.0.26100.3775], Version 24H2 (Updated April 2025) - 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21403.jpg" />
 </div>
 
 
@@ -643,7 +671,7 @@ Windows 10 22H2 (19045.5737) 64in2 x86/x64 by adguard (v25.04.09) [Ru/En]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21396.jpg" />
 </div>
 
 
@@ -654,35 +682,6 @@ Windows 10 22H2 (19045.5737) 64in2 x86/x64 by adguard (v25.04.09) [Ru/En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF26F4470A947FF2A4A704A035BA90C2B8964D22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791841   (21382) от 15.04.2025
-
-Microsoft Windows 10 [10.0.19045.5737], Version 22H2 (Updated April 2025) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 2022 Update (под кодовым названием "22H2") это тринадцатое и текущее крупное обновление для Windows 10. Он имеет номер сборки 10.0.19045.
-
-Оригинальные образы MSDN - Windows 10 Version 22H2 Build 19045.5737.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F29C4C7698EDEC9342660EC9AFC6F0A0BCCABA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

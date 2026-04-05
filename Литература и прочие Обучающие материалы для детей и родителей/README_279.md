@@ -1,3 +1,55 @@
+###  Публикация: 1164279   (443682) от 08.09.2017
+
+Майкл Паркер | Важные вопросы. Что стоит обсудить с детьми, пока они не выросли (2017) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одно из самых замечательных качеств маленьких детей - их безграничное любопытство...Жанр: Психология, педагогикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31A6DEB443742B764D1F800D1D9AB65CAF3574BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570450   (443031) от 17.08.2022
+
+Джек Меггитт-Филлипс | Чудовище и Бетани (2022) [FB2, EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эбенизер Твизер – молодой 511-летний мужчина. На чердаке своего особняка он держит чудовище, которое питается произведениями искусства и редкими животными, хотя иногда не прочь полакомиться кактусом или домашним котом. Взамен чудовище изрыгает для Эбенизера всевозможные подарки, включая волшебные зелья, продлевающие молодость и жизнь. Но аппетиты монстра растут, (   Читать дальше...   )Жанр: Детская литература, Фантастика, ПриключенияПеревод: Екатерина КолябинаФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:963C338FE8604B4C5DADFEB9AC8AD8D0BA6812C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 944332   (442932) от 06.10.2015
 
 Виталий Ситников | Как написать сочинение. Для подготовки к ЕГЭ (2010) [FB2]
@@ -6,7 +58,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442932.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442882.jpg" />
 </div>
 
 
@@ -62,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442871.jpg" />
 </div>
 
 
@@ -90,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442847.jpg" />
 </div>
 
 
@@ -118,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442715.jpg" />
 </div>
 
 
@@ -144,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442685.jpg" />
 </div>
 
 
@@ -170,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442577.jpg" />
 </div>
 
 
@@ -196,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442462.jpg" />
 </div>
 
 
@@ -223,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442402.jpg" />
 </div>
 
 
@@ -250,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442281.jpg" />
 </div>
 
 
@@ -276,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442236.jpg" />
 </div>
 
 
@@ -302,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442163.jpg" />
 </div>
 
 
@@ -328,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442014.jpg" />
 </div>
 
 
@@ -355,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441853.jpg" />
 </div>
 
 
@@ -381,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441005.jpg" />
 </div>
 
 
@@ -409,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440870.jpg" />
 </div>
 
 
@@ -437,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440799.jpg" />
 </div>
 
 
@@ -464,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440794.jpg" />
 </div>
 
 
@@ -491,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440671.jpg" />
 </div>
 
 
@@ -517,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440641.jpg" />
 </div>
 
 
@@ -544,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440629.jpg" />
 </div>
 
 
@@ -570,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440373.jpg" />
 </div>
 
 
@@ -597,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440216.jpg" />
 </div>
 
 
@@ -624,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440191.jpg" />
 </div>
 
 
@@ -635,60 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF590A88E5DDE44A90C255FA9AA16D8CEEC8C010
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944541   (440076) от 07.10.2015
-
-Наталья Царенко | Как мы портим наших детей: коллекция родительских заблуждений (2015) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440076.jpg" />
-</div>
-
-
-###  Подробнее
-
-В детстве все мечтают о добрых, понимающих, великодушных родителях. Более того, мы просто уверены, что со своими детьми ни за что не допустим тех ошибок, которыми грешили наши собственные родители.
-
-Но как только сами становимся папами и мамами, обнаруживаем, что все гораздо сложнее, чем казалось когда-то: и дети все разные, и родители – живые люди с трепетными нервами, (   Читать дальше...   )Жанр: Воспитание детей, детская психологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56D08454FBAA2A805A28FB92FB8380ED83582CBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062778   (439927) от 14.10.2016
-
-Ким Фупс Окесон | Как дедушка стал привидением (2008) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жил-был мальчик, звали его Эсбен, и был у него дедушка, которого он называл Дедушкой. Но однажды все изменилось, вернее, Эсбен по-прежнему называл своего дедушку Дедушкой, только Дедушки не стало. Мама сказала Эсбену, что Дедушка отправился на небеса, а папа сказал, что Дедушку похоронят и он станет землей. Но родители ошибались, потому что в тот же вечер Дедушка (   Читать дальше...   )Жанр: Детская проза, сказкаПеревод: Мария ЛюдковскаяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D079DC9EEECAB2D778219C84841F2C7771FD1D81
 ```
 
 https://mybot314.ru/tekegram_catalog/

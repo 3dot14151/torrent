@@ -1,3 +1,61 @@
+###  Публикация: 1267819   (265135) от 08.12.2018
+
+Floating Machine - Nowhere (2017) Arctic Dub Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arctic Wind (06:21)
+ 02. Nowhere (07:12)
+ 03. Unresolv (07:21)
+ 04. Nowhere (Existente Remix) (06:00)Жанр: Dub Techno, Ambient, ExperimentalПродолжительность: 00:26:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E89A52D417C246F31B50FE3C5D24429508F8FDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339572   (264499) от 21.11.2019
+
+VA - Best of Deep House 2017 (Deluxe Version) (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Breaks, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jaimo - Winter Sun (6:32)
+02. Demoe Beats - Opia (5:07)
+03. Caladium - Conservative (4:01)
+04. Sound Knight - Plastic City (5:33)(   Читать дальше...   )Жанр: Deep House, Breaks, Tech HouseПродолжительность: 05:02:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D49FE6D9F2AB9128FBA6B0032230C30FE8527E79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 969494   (264363) от 27.12.2015
 
 VA - Anjunadeep 07 (Mixed by Jody Wisternoff & James Grant) (2015) [FLAC|Lossless|tracks + .cue] <Electronic, Deep House>
@@ -6,7 +64,7 @@ VA - Anjunadeep 07 (Mixed by Jody Wisternoff & James Grant) (2015) [FLAC|Lossles
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264363.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Dj De Key - Friday Evening Disco (2019) [FLAC|Lossless|image + .cue] <Disco Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262933.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Odin (2017) Wildfang Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262842.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Arkaean - Dawnlit Passage (2019) Silent Season [FLAC|Lossless|WEB-DL|tracks] <Te
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262635.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Scooter - 100% Scooter: 25 Years Wild & Wicked 5CD (Limited Edition) (2017) [FLA
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262364.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Dj De Key - Anniversary Edit (2019) [FLAC|Lossless|image + .cue] <Progressive Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262352.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Bob Sinclar - III (2006) [FLAC|Lossless|tracks + .cue] <House, Disco>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262340.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Application - Discography 3 Releases (2014) Dust Science Recordings [FLAC|Lossle
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262272.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Remembering The 90's: Best Hits Remixed (2017) [FLAC|Lossless|WEB-DL|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262086.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Yuji KONDO - Faces Past (2017) 10 Label [FLAC|Lossless|WEB-DL|tracks] <Techno, E
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261994.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Deep Value, Vol. 2 (Mixed By Pornbugs) (2017) [FLAC|Lossless|WEB-DL|tracks]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261990.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Condensed Utopia - Assioma (2017) Circular Limited [FLAC|Lossless|WEB-DL|tracks]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261988.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Alpine Grooves IX (Kristallhutte) (2017) [FLAC|Lossless|WEB-DL|tracks] <Dee
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261986.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Nothing But... Essential Nu-Disco, Vol. 3 (2017) [FLAC|Lossless|WEB-DL|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261974.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Twelve Inch Nineties: Feels Like Heaven (2017) [FLAC|Lossless|WEB-DL|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261963.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Marla Singer - Center Of Subconscious (2017) Nachtstrom Schallplatten [FLAC|Loss
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261800.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Autum Hits 2025 (Deep Strips) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261606.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Ibiza Winter Island 2026 (The Melodic Techno Edition) (2025) [FLAC|Lossless
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257741.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Century Groove Innovation Vol. 1 (Mixed by Hiroshi Watanabe) - 2012 [FLAC|L
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256445.jpg" />
 </div>
 
 
@@ -563,7 +621,7 @@ VA - Anjunadeep 14 (Mixed by Jody Wisternoff & James Grant) - 2023 [FLAC|Lossles
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255168.jpg" />
 </div>
 
 
@@ -592,7 +650,7 @@ VA - Saturday Chill (2023) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254877.jpg" />
 </div>
 
 
@@ -621,7 +679,7 @@ Pro>Tech – Orbiting Cathedrals (1997) [FLAC|Lossless] <Breaks, Techno, Industr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253211.jpg" />
 </div>
 
 
@@ -654,7 +712,7 @@ VA - Workout Remixes (2025) [FLAC|Lossless|WEB-DL|tracks] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251252.jpg" />
 </div>
 
 
@@ -683,7 +741,7 @@ Laurent Garnier - Unreasonable Behaviour & The Cloud Making Machine (2000,2004) 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248486.jpg" />
 </div>
 
 
@@ -703,64 +761,6 @@ Laurent Garnier - Unreasonable Behaviour & The Cloud Making Machine (2000,2004) 
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833253   (246228) от 01.11.2025
-
-VA - Club Paradise (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bebe Rexha - One in a Million (2:40)
-02. Disco Lines - No Broke Boys (2:43)
-03. Fred again.. - adore u (3:40)
-04. Galantis - Runaway (U & I) (3:47)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:50:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7AABADE6BDD55C673E3832CD438D1E3EB4321AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833500   (246114) от 01.11.2025
-
-VA - Ibiza Winter Session 2026 (Late Night Techno Kisses) (2025) [FLAC|Lossless|WEB-DL|tracks] <Techno, Progressive House, Melodic House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dan Mckie - Ray Von 03:30
-02. Diezel - Want Your Love 03:40
-03. Poison Ghost - Get Up 03:28
-04. Thiago Gloomy - Unchecked 02:05(   Читать дальше...   )Жанр: Techno, Progressive House, Melodic HouseПродолжительность: 02:19:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0EA7F90711DF72EE330337B291BA1E3CA0CD0D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

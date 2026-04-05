@@ -1,3 +1,29 @@
+###  Публикация: 1437764   (1041575) от 06.01.2021
+
+Tenorshare UltData 9.5.0 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041575.jpg" />
+</div>
+
+
+###  Подробнее
+
+UltData - Программа для восстановления данных на iPhone . Потеряли важные данные на iPhone, потому что вы случайно удалили файлы, Ваш iPhone поврежден, iPhone застрял в черный / белый экран смерти, iPhone недоступен, потеряли файлы с обновлением программного обеспечения? iPhone Data Recovery поможет вам восстановить 20 типов файлов: потерянные картинки, текстовые (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.01.2021Разработчик: Tenorshare Co., Ltd.Поддерживаемая ОС: macOS 10.8+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4E34E309F6760D7698D0E400F166775CC0DC452
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438177   (1041471) от 07.01.2021
 
 Retina 5K Wallpaper Set 1.4.1 [Multi]
@@ -6,7 +32,7 @@ Retina 5K Wallpaper Set 1.4.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041471.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ PasswordTool 1.1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041184.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Keyboard Maestro 9 v9.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041110.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ RapidCart Pro 4 v4.18.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040946.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ xScan 4.5.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040914.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Tenorshare ReiBoot Pro 7.5.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040691.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ Trickster 3.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040153.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ Wifiner 1.3.191 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039936.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ Copy+ Manage clipboard history 1.1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039644.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ Tab Space 3.8.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039639.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ VisualGrep 1.2.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038323.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ Secret Folder  10.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037802.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ File Multi Tool 6 v6.24 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037523.jpg" />
 </div>
 
 
@@ -354,7 +380,7 @@ timeLAPSE 2.60 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036361.jpg" />
 </div>
 
 
@@ -381,7 +407,7 @@ Eon Timer 2.8.7 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036048.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ Easy Data Transform 1.11.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035442.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ DropSync 3 v3.2.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034965.jpg" />
 </div>
 
 
@@ -462,7 +488,7 @@ SSDReporter 1.5.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034928.jpg" />
 </div>
 
 
@@ -488,7 +514,7 @@ Front and Center 1.2.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034243.jpg" />
 </div>
 
 
@@ -514,7 +540,7 @@ AppCleaner 3.6 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034195.jpg" />
 </div>
 
 
@@ -541,7 +567,7 @@ EaseUS Todo Backup for Mac 3.6.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033020.jpg" />
 </div>
 
 
@@ -567,7 +593,7 @@ Nimble Commander Pro 1.2.9 [Rus/En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032704.jpg" />
 </div>
 
 
@@ -593,7 +619,7 @@ MacBreakZ 5 v5.44 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032595.jpg" />
 </div>
 
 
@@ -619,7 +645,7 @@ Wattagio 1.12.6 [Multi/Rus]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032584.jpg" />
 </div>
 
 
@@ -645,7 +671,7 @@ HazeOver 1.8.9 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032578.jpg" />
 </div>
 
 
@@ -656,32 +682,6 @@ HazeOver 1.8.9 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43829BDD7621EBDCA7B26B9A059F0E589627DC98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446983   (1032344) от 11.02.2021
-
-Middle 1.5.18 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Middle  просто добавляет возможность сделать «средний клик» на ваш Mac для трекпада или Magic Mouse.Тип издания: macOS SoftwareРелиз состоялся: 11.02.2021Разработчик: Ryan HansonПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C176DA1440E84F3237AE44A3E05CE4226B69009
 ```
 
 https://mybot314.ru/tekegram_catalog/

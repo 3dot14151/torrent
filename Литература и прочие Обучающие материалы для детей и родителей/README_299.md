@@ -1,3 +1,56 @@
+###  Публикация: 1069095   (376249) от 03.11.2016
+
+Марина Бородицкая (пер.) | Королевская считалка (2012) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376249.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новый сборник Марины Бородицкой вошли и прежде издававшиеся, и новые переводы из английской детской классики. Особенность этих переводов в том, что они и сами очень быстро становятся классикой. Потому что над такими стихами с улыбкой переглядываются автор и читающий ребёнку взрослый. Написанные вроде бы для детей, они сопровождают нас всю жизнь. Вы держите в руках (   Читать дальше...   )Жанр: Детская проза, фольклорФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B288EB1962349A77E46CA9BD2C8B3A858B5B8465
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069248   (376248) от 03.11.2016
+
+В. Фиников (сост.) | Попался, сверчок! (1975) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376248.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книгу французских народных сказок под названием «Попался, сверчок!» вошли лучшие сказки из семи французских сборников фольклора. Тут и мудрые притчи о животных, и весёлые бытовые сказки о фермерах, о сапожниках, плотниках и солдатах, язвительно насмешливые истории о жадных церковниках и богатеях, а также увлекательные волшебные сказки.
+Любимый герой французских (   Читать дальше...   )Жанр: Детская проза, СказкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DF1FC81E9512EEB5E31B3C42EC5687CC5ADE44D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175638   (376125) от 19.10.2017
 
 Журнал | Квантик №9 (сентябрь 2017) [PDF]
@@ -6,7 +59,7 @@
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376125.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376117.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376009.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375983.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375850.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375665.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375552.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375161.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375062.jpg" />
 </div>
 
 
@@ -245,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375034.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374957.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374946.jpg" />
 </div>
 
 
@@ -326,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374932.jpg" />
 </div>
 
 
@@ -353,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374854.jpg" />
 </div>
 
 
@@ -380,7 +433,7 @@ Dorling Kindersley | Авиация. Наглядный словарь (1997) [P
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374750.jpg" />
 </div>
 
 
@@ -406,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374737.jpg" />
 </div>
 
 
@@ -434,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374129.jpg" />
 </div>
 
 
@@ -460,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374061.jpg" />
 </div>
 
 
@@ -486,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373869.jpg" />
 </div>
 
 
@@ -512,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373703.jpg" />
 </div>
 
 
@@ -540,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373612.jpg" />
 </div>
 
 
@@ -567,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373549.jpg" />
 </div>
 
 
@@ -593,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373453.jpg" />
 </div>
 
 
@@ -621,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373395.jpg" />
 </div>
 
 
@@ -632,59 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9B83512254710AB076574117E75D2D710395C6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254503   (373374) от 14.10.2018
-
-Мой зверинец (1907) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373374.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказы и стихи для детей младшего школьного возраста.Жанр: Детская проза. Стихи.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69B8B81A5ED245FF455918388C6243588237C949
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069571   (373350) от 04.11.2016
-
-Сара Джордан, Дэвид Уфберг | Беременность. Руководство пользователя. Основная информация, рекомендации по устранению неполадок, советы будущим родителям (2016) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Прочие материалы для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Планируете завести ребенка или уже "в процессе"? Вас ждет удивительное приключение под названием "беременность" - чудо создания новой жизни! Вы будете с замиранием сердца прислушиваться к движениям вашего малыша и вряд ли сможете сдержать слезы, когда впервые увидите его на УЗИ.
-И хотелось бы, конечно, чтобы вашу эйфорию не подпортили разного (   Читать дальше...   )Жанр: Литература для родителейФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8723947F8186F8DE686344B0554B784B7F4D99B
 ```
 
 https://mybot314.ru/tekegram_catalog/

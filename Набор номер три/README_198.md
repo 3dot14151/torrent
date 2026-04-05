@@ -1,3 +1,159 @@
+###  Публикация: 1390026   (783563) от 13.06.2020
+
+Windows 7 SP1 х86-x64 by g0dl1ke 20.06.11 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стабильная сборка на базе MSDN windows 7 х86-x64 с интегрированными обновлениями по июнь 2020 года и полезными твиками, по рекомендациям simplixЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE033FB9491A47BA111EBF1CA6E38F6BD32E13A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388195   (783555) от 13.06.2020
+
+Navitel / Навител Навигатор 9.13.51 Full для карт релиза Q1-2020 [Ru/Multi]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Навител Навигатор - точная офлайн GPS навигация, геосоциальные сервисы и подробные карты 65 стран мира.  Навигационная программа Навител отображает текущее местоположение пользователя на карте и способна с помощью отображения маневра на экране навигатора и голосом подсказать водителю, когда и куда необходимо повернуть на автоматически проложенном маршруте для скорейшего (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 04.06.2020Разработчик: NAVITELПоддерживаемая ОС: Android 4.0 +Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95BAC2C093C48FE3E02E061188141E97DD8421E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205628   (783382) от 10.02.2018
+
+Win 10 Tweaker 5.3 Portable by XpucT [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783382.jpg" />
+</div>
+
+
+###  Подробнее
+
+Win 10 Tweaker — это небольшая, но очень мощная программа, позволяющая сделать полную оптимизацию Windows 10 в несколько кликов. Не пускает пыль в глаза бесполезными настройками, а каждый пункт содержит подробную подсказку-описание. Любое действие выполняется без внешних модулей, средствами самой программы и возможностями Windows, поэтому антивирусы не ругаются на (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76623B3CDEC74C5C9A7A8E53F14539C513E798F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205665   (783363) от 10.02.2018
+
+Quantum Break (2016) [Ru/En] (1.0.126.0307) Repack xatab
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Quantum Break - это приключенческий экшен от третьего лица от создателей Max Payne и Alan Wake. Главный герой игры - молодой парень Джек, который после неудачного эксперимента смог управлять временем. За Джеком начинает охота некая организация под названием "Монарх", основатель которой, Пол Серин, так же владеет особой способностью - он может видеть альтернативные (   Читать дальше...   )Тип издания: RepackРазработчик: Remedy EntertainmentЖанр: Action, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCCA133B66E2FB7F6930415B05A4075C5691B612
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389951   (783295) от 14.06.2020
+
+Два казино Лас-Вегаса хотят подключиться к сети подземных туннелей Илона Маска
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_783295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подземная транспортная сеть вокруг Лас-Вегасского Центра Конвенций, которую строит компания Илона Маска Boring Company, должна быть завершена в январе 2021 года. Два отеля уже изъявили желание подключиться к этой транспортной артерии. Wynn Las Vegas и Resorts World Las Vegas добиваются одобрения округа, которое позволит им осуществить задуманный маневр.Если проекты (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390125   (783270) от 14.06.2020
+
+Hotspot Shield VPN Business 9.5.9 (64-bit) [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hotspot Shield VPN - самое полное решение проблем безопасности в интернете. Защищает ваши сессии в веб-браузере, обнаруживает и блокирует вредоносное ПО, сохраняет конфиденциальность, обеспечивает доступ к заблокированным сайтам. Hotspot Shield делает безопасным просмотр веб-страниц, защищая ваше (проводное или беспроводное) соединение дома и в общественных местах. (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84C81194AE951153F3892DB6AE9E53939793FCAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390169   (783268) от 14.06.2020
 
 Электросамокаты стали угрозой для москвичей
@@ -6,7 +162,7 @@
 >>9
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_783268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_783268.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Microsoft Windows 7 Максимальная Ru x86-x64 Orig w.BootMenu by OVGor
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783264.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Windows 10 Enterprise LTSB (x86/x64) 8in1 +/- Office 2019 by Eagle123 (06.2020) 
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783263.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783260.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ Ozi Explorer v1.34 [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783259.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783258.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ Windows 10 Enterprise x64 micro 1909 build 18363.900 by Zosma [Ru]
 >>17
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783257.jpg" />
 </div>
 
 
@@ -191,7 +347,7 @@ Win 10 Tweaker 5.4 Portable by XpucT [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783116.jpg" />
 </div>
 
 
@@ -217,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783078.jpg" />
 </div>
 
 
@@ -243,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_783010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_783010.jpg" />
 </div>
 
 
@@ -269,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_783009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_783009.jpg" />
 </div>
 
 
@@ -295,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783008.jpg" />
 </div>
 
 
@@ -322,7 +478,7 @@ Navitel / Навител: Официальные карты релиза Q1 2020
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782985.jpg" />
 </div>
 
 
@@ -351,7 +507,7 @@ JetBrains PhpStorm 2017.3.4 Build #PS-173.4548.32 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782803.jpg" />
 </div>
 
 
@@ -377,7 +533,7 @@ Jordi Savall + Montserrat Figueras+Rolf Lislevand+Arianna Savall - 214 альб�
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782799.jpg" />
 </div>
 
 
@@ -403,7 +559,7 @@ FPS Monitor Build 4400 [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782798.jpg" />
 </div>
 
 
@@ -430,7 +586,7 @@ Destroy Windows 10 Spying 1.7 Build 100  Portable  [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782797.jpg" />
 </div>
 
 
@@ -456,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782704.jpg" />
 </div>
 
 
@@ -482,7 +638,7 @@ Windows 10 2004 (x86/x64) 32in1 +/- Office 2019 by Eagle123 (06.2020) [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782582.jpg" />
 </div>
 
 
@@ -508,7 +664,7 @@ Win 10 Tweaker 5.5 Portable by XpucT [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782393.jpg" />
 </div>
 
 
@@ -519,163 +675,6 @@ Win 10 Tweaker — это небольшая, но очень мощная пр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80AD8982EC15F770CA3071557A00967CC8D70701
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206389   (782352) от 13.02.2018
-
-Adobe Photoshop CC 2018 19.1.1.42094 RePack by KpoJIuK  [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782352.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop - это комплексное решение для профессиональной обработки цифровых изображений, которое содержит самые современные инструменты для работы с изображениями и новые возможности для реализации творческих идей, которые позволяют значительно повысить производительность. Редактируйте изображения с исключительной точностью, используйте новые интуитивно понятные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2351CB38214112450B785173BD97442B58CFD5DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205969   (782348) от 13.02.2018
-
-Total Commander PowerUser 69 Portable by HA3APET от 11.02.2018 [Ru/En]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощнейший инструмент для системных администраторов и продвинутых пользователей, в котором грамотно подобраны программы и плагины. Всё это качественно интегрировано в оболочку Total Commander.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1A0008BBEEBE2B540971B2000C8F25B7833FDF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 800677   (782346) от 13.02.2018
-
-SA Contacts (старое название Excel <-> Contacts) v2.8.10 [Ru/Multi] - импорт и экспорт контактов
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782346.jpg" />
-</div>
-
-
-###  Подробнее
-
-SA Контакты это лучший способ переноса ваших контактов с вашего телефон или на него! Ни одно приложение не позволит так просто управлять контактами вашего телефона.Тип издания: Пиратка / FullРелиз состоялся: 23.01.2018Разработчик: samappПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19DFFE56C6265C102DB850D6197CE5C83760442D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169158   (782345) от 13.02.2018
-
-Звёздный путь: Дискавери / Star Trek: Discovery (2017) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-15 из 15) OmskBird [AD]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782345.jpg" />
-</div>
-
-
-###  Подробнее
-
-За 10 лет до начала истории оригинального сериала «Star Trek», экипаж корабля USS Discovery NCC-1031 отправляется в путешествие, чтобы изучать глубокий космос, открывая новые миры и цивилизации.Производство: США, CBS Television Studios, Living Dead Guy Productions, Paramount Television, Roddenberry Entertainment, Secret HideoutЖанр: фантастикаРежиссер: Акива Голдсман, Адам Кэйн, Ли РоузАктеры: Джейсон Айзекс, Даг Джонс, Шазад Латиф, Сонекуа Мартин-Грин, Молик Панчоли, Энтони Рэпп, Мишель Йео, Кеннет Митчелл, Дэймон Рунян, Терри Серпико и др.Перевод: Многоголосый закадровый, профессиональный - OmskBirdСубтитры: английскиеПродолжительность: ~00:44:00 серияРеклама: присутствуют аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1442B79D05BB45D18B617325C7F2748CA6374C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 199664   (782277) от 11.05.2010
-
-Парад Победы 2010 г. Красная Площадь (2010) IPTVRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Парад на Красной площади в честь Дня Победы. Военный парад в честь 65-летия Победы в Великой Отечественной войне станет рекордным за последние годы.
-В параде 9 мая 2010 года принимают участие 161 единица военной техники, а в небе над Москвой пролетят 127 самолетов и вертолетов. Торжественным маршем по Красной площади пройдет около 10,5 тысяч российских военнослужащих (   Читать дальше...   )Телекомпания: Первый КаналЖанр: Телепередача, ДокументальныйПродолжительность: 01:14:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390626   (782173) от 17.06.2020
-
-Microsoft  Windows 7 Ultimate Ru x86-x64 SP1 NL3 by OVGorskiy® 06.2020 2DVD
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782173.jpg" />
-</div>
-
-
-###  Подробнее
-
-32-х и 64-х битные ОС Windows® 7™ с интегрированными обновлениями, оформлением в светло-голубом стиле и ручной установкой на 2 DVD. Содержит в себе набор программ, тем оформления, картинок рабочего стола, гаджетов и пр., т.е. почти все для начала работы с системой после установки, а так же предоставляет возможность проверить компьютер перед установкой. Сборка содержит (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:778E703A92EBF378CD396BA2044252C30ED79189
 ```
 
 https://mybot314.ru/tekegram_catalog/

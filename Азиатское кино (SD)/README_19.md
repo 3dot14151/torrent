@@ -1,3 +1,81 @@
+###  Публикация: 778187   (804071) от 19.04.2014
+
+Почему ты не играешь в аду? / Why Don't You Play in Hell? / Jigoku de naze warui (2013) HDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герой этого фильма задумал снять фильм о якудзе, который поразит зрителей жесткостью и реалистичностью. Но для этого ему приходится близко познакомится с миром японской мафии, а это чревато большими проблемами и для него, и для всей съемочной группы. Теперь молодому режиссеру предстоит пожалеть, что на съемках стало слишком много реализма, а льющаяся рекой кровь – совсем не бутафорская...Жанр: боевик, драмаРежиссер: Сион СоноАктеры: Хироки Хасегава, Ген Хошино, Акихиро Китамура, Дзюн Кунимура, Фуми Никайдо, Так Сакагути, Томочика, Синъити ЦуцумиПеревод: Двуголосый закадровый, любительскийПродолжительность: 02:09:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E598B7350857E28954A7781AA4E1FDBD2F2D293
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505833   (802726) от 28.10.2021
+
+Трасса 318 (Шоссе 318) / 318 Hao Gong Lu / Highway 318 (2017) WEB-DLRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Протянувшаяся более чем на 5 000 киллометров трасса 318 соединяет Китай и Тибет, и является одним из самых живописных маршрутов в мире. Именно на этой трассе однажды встречаются китаянка Сяоцзя и тибетка Суона. Обе они отправляются в это длинное путешествие по разным причинам, но у них есть кое-что общее: они обе верят, что это поможет им искупить ошибки прошлого.Производство: Китай, Wind Whisper Culture CommunicationЖанр: ДрамаРежиссер: Не ЮньсинАктеры: Юэ Синь, Дэ Цзи, Сунь Имин, Сиано Дудиом Захи, Цзинь Чжога, Ми Ма, Сявэйцзэ Ванламу, Даньцзэн ЛопэйПеревод: Одноголосый любительский (Franek Monk)Субтитры: Английские, китайские - hardsub (неотключаемые)Продолжительность: 01:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1C6A7B539AE856E9FCCEEE20A339552BA7E5CC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505721   (802620) от 28.10.2021
+
+Портрет красивой девушки / Портрет красавицы / Miindo / Mi-in-do / Portrait of a Beauty (2008) BDRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802620.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о талантливой художнице эпохи Чосон Щин Юн-бок, о роковой любви, и о запутанных отношениях мужчины и женщины.Производство: Южная Корея, Yiroom Movies ProductionЖанр: Мелодрама, биография, историяРежиссер: Чон Юн-суАктеры: Ким Гю-ри, Ким Ён-хо, Ким Нам-гиль, Чху Джа-хён, Чхве Дэ-сон, Чу Ён-хо, Ли Сок, О Ман-сок, Ё Хо-мин, Ра Ми-ранПеревод: Двуголосый любительский (pandora2177 & Виктор Ерёменко)Субтитры: 2 x Русские (Samjogo, Mirano), английские - отдельными файламиПродолжительность: 01:48:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5E6208ACA5484757BF2B23903FD2CA0B96BFA1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120810   (801880) от 31.03.2017
 
 Музей / Myujiamu (Museum) (2016) HDRip [VO]
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801880.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801458.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801413.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800904.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800882.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800268.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800205.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799566.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799293.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798943.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798716.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798256.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798249.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798228.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798106.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797895.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797147.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796837.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795364.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794670.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794385.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794357.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793905.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D624C95ABB086581BD6A365EF1C501D0C3FFB84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386680   (793341) от 30.05.2020
-
-Цветы зла / Aku no Hana / The Flowers of Evil (2019) HDRip [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793341.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старшеклассник Такао Касуга уверен, что его жизнь кончилась три года назад, и с тех пор он просто существует. Тогда парень учился в другой школе, зачитывал до дыр «Цветы зла» Бодлера и вздыхал по однокласснице — отличнице и красавице Нанако. Однажды после уроков, когда в классе никого не было, Такао увидел, что из шкафчика выпала физкультурная форма Нанако, и не (   Читать дальше...   )Производство: Япония / Phantom Film, Happinet, Kadokawa Daiei Studio Co. LtdЖанр: Драма, мелодрама, триллерРежиссер: Нобору ИгутиАктеры: Кэнтаро Ито, Тина Тамасиро, Мариэ Иитоё, Сиори Акита, ХонораПеревод: Двуголосый любительский (RealFake)Субтитры: Английские - отдельным файломПродолжительность: 02:07:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F122A2F79C14C32DB8EA1420FACFF6D8F4082A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012368   (793328) от 01.05.2016
-
-Монета призрака / Game pluk phi (2014) DVDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Решив наказать своего друга за денежные махинации, а по пути и поживиться, забрав у мертвых ценности, которые мертвецам уже не нужны, группа друзей направляется на кладбище, где нечистый на руку товарищ, должен разрыть могилу и провести час, прикованный к трупу наручниками. Однако, жадный до звона монет друган, вытаскивает изо рта трупа погребальную монету, не зная (   Читать дальше...   )Производство: ТаиландЖанр: УжасыРежиссер: Тива МейтхайсонгАктеры: Ейяинг Рхатха Пхонгам, Намо Тункомнерд, Танаёнг ВонгтракулПеревод: Двухголосый закадровый, любительский (den904 & DeadSno)Продолжительность: 01:29:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B94C9C9D90EF2414C12CF30FF880B0461C6CE79D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509555   (792730) от 14.11.2021
-
-И снова жить (Второе рождение) / Hwajang / Revivre (2014) BDRip [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жена Господина О, одного из директоров крупной косметической компании, скончалась от рака. Пока она четыре года медленно угасала, проигрывая болезни, Господин О оставался преданным мужем. На похороны пришли многие его сослуживцы, чтобы выразить свои соболезнования, вот только единственное, о чем думает вдовец - это Чху Ын Чжу женщина, в которую Господин О влюбился (   Читать дальше...   )Производство: Южная Корея, KTH, Myung FilmsЖанр: ДрамаРежиссер: Лим Гвон-тхэкАктеры: Ан Сон-ги, Ким Гю-ри, Ким Хо-джон, Пак Чон-щик, Чон Хе-джин, Ким Бён-чхун, Ким Ги-чхон, Мин Гён-джин, Хан И-джин, Ан Сок-хванПеревод: Двуголосый любительский (АрхиAsia)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:33:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D4B948339CCA5E821969941058D6BA2FB1C2B25
 ```
 
 https://mybot314.ru/tekegram_catalog/

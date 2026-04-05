@@ -1,3 +1,57 @@
+###  Публикация: 1098749   (907059) от 31.01.2017
+
+Decloner — a fast and reliable duplicate file finder 1.6.3 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Decloner поможет найти и устранить дубликаты файлов на вашем Mac быстро и надежно.
+Для вашего удобства, Decloner позволяет сканировать несколько каталогов одновременно, и может автоматически обнаруживать библиотеки Iphoto или Aperture.  Decloner автоматически группирует повторяющиеся файлы, отображает информацию о выбранном в данный момент файле и позволяет открыть (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 29 января 2017Разработчик: Svetlana Fedosova t/a PixelEspressoПоддерживаемая ОС: OS X 10.6.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F6804054E18FE855C4EDAB114E3B200BBF6288B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492049   (906911) от 27.08.2021
+
+Viscosity 1.9.4 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Viscosity является OpenVPN клиентом для Mac, с простым и понятным интерфейсом пользователя для создания, редактирования и управления VPN соединениями. Приложение обеспечивает полную поддержку решения OpenVPN для macOS и не требует никакого дополнительного программного обеспечения.
+Viscosity может подключаться к любому серверу OpenVPN серверу и позволяет полностью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.08..2021Разработчик: SparkLabsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37B782D3FDCA904D1F4512C1B7E84C61C4E13B1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1491934   (906423) от 27.08.2021
 
 GRAPHISOFT ArchiCAD 25 v25.0.0 [Ru]
@@ -6,7 +60,7 @@ GRAPHISOFT ArchiCAD 25 v25.0.0 [Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906423.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ SONY Sound Forge 2.0.5 AppStore [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906162.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ vSSH 1.11.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905846.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ PhotoTangler 2.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_905062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_905062.jpg" />
 </div>
 
 
@@ -115,7 +169,7 @@ Horcrux Email Backup 2.9.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904432.jpg" />
 </div>
 
 
@@ -143,7 +197,7 @@ CoLocalizer Pro 7.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904084.jpg" />
 </div>
 
 
@@ -169,7 +223,7 @@ Tap Forms 5 5.0.10 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903424.jpg" />
 </div>
 
 
@@ -197,7 +251,7 @@ Beamer 3.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903100.jpg" />
 </div>
 
 
@@ -225,7 +279,7 @@ Uploader for Instagram 2.0.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902442.jpg" />
 </div>
 
 
@@ -254,7 +308,7 @@ Fireplace Live HD + Screensave‪r‬ 4.3.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902320.jpg" />
 </div>
 
 
@@ -280,7 +334,7 @@ Bit Fiddle 1.4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902130.jpg" />
 </div>
 
 
@@ -306,7 +360,7 @@ Enolsoft PDF Compressor 3.4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901918.jpg" />
 </div>
 
 
@@ -332,7 +386,7 @@ iSkysoft Video Converter Ultimate 11.6.6 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901633.jpg" />
 </div>
 
 
@@ -358,7 +412,7 @@ Super Resize 1.2.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901580.jpg" />
 </div>
 
 
@@ -384,7 +438,7 @@ MadMapper 3.0.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901484.jpg" />
 </div>
 
 
@@ -410,7 +464,7 @@ BetterZip 3.2.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901354.jpg" />
 </div>
 
 
@@ -439,7 +493,7 @@ Desk MD: A Markdown-Powered Blogging App 1.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901065.jpg" />
 </div>
 
 
@@ -468,7 +522,7 @@ Desk NT: A Writing and Notetaking App 1.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901052.jpg" />
 </div>
 
 
@@ -497,7 +551,7 @@ Postico 1.0.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901034.jpg" />
 </div>
 
 
@@ -526,7 +580,7 @@ SSH Tunnel 16.03 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900849.jpg" />
 </div>
 
 
@@ -555,7 +609,7 @@ Ableton Live 10 Suite v10.1.41 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900546.jpg" />
 </div>
 
 
@@ -581,7 +635,7 @@ VMware Fusion Professional Version 11.5.3 (build 15870345) [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899707.jpg" />
 </div>
 
 
@@ -608,7 +662,7 @@ VPN Server Configurator 2.6.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899616.jpg" />
 </div>
 
 
@@ -634,7 +688,7 @@ Grids for Instagram 3.1.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899291.jpg" />
 </div>
 
 
@@ -648,59 +702,6 @@ Grids переносит лучшее из Instagram на ваш Mac.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE9F82B72BD2C40FC032606603888F664C18FAB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992895   (899187) от 03.03.2016
-
-iNet Network Scanner 2.0 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899187.jpg" />
-</div>
-
-
-###  Подробнее
-
-iNet предоставляет Вам информацию о сети к которой подключен ваш Mac . Удобный дизайн позволяет даже неопытным пользователям, получить полную информацию о вашей локальной сети.
-iNet показывает устройства, подключенные к вашей локальной сети, компьютер или маршрутизатор, а также их имя, IP и поставщика. iNet обнаруживает и различает Windows и Macintosh . Для большинства (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23 февраля 2016Разработчик: BananaGlueПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDAB77DAE834D6842EC7FAE25829CE3A68F7C8F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992898   (899175) от 03.03.2016
-
-SuperTab 2.0 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899175.jpg" />
-</div>
-
-
-###  Подробнее
-
-SuperTab расширяет встроенный (Command-Tab) переключатель между запущенными приложениями Мака. Перед появлением SuperTab, только App Switcher дал пользователям Mac доступ к своим активным в данный момент приложениям. С установленным SuperTab, пользователи теперь имеют доступ к намного большему при нажатии Command-Tab, такому как:- Активные программы, - Последние (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 29 февраля 2016Разработчик: SpriTec Software.Поддерживаемая ОС: OS X 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD3CA011223AD7AFCF27592E3061176F6973CD4B
 ```
 
 https://mybot314.ru/tekegram_catalog/

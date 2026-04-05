@@ -1,136 +1,3 @@
-###  Публикация: 1619293   (201293) от 15.03.2023
-
-Йэн Стюарт | Невероятные числа профессора Стюарта (2016) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201293.jpg" />
-</div>
-
-
-###  Подробнее
-
-По сути математика — это цифры, наш основной инструмент для понимания мира. В своей книге самый известный британский популяризатор математики профессор Иэн Стюарт предлагает восхитительное знакомство с числами, которые нас окружают, начиная с привычных для нас комбинаций символов и заканчивая более экзотическими — факториалами, фракталами или постоянной Апери. На (   Читать дальше...   )Жанр: Зарубежная образовательная литература, зарубежная прикладная, научно-популярная литература, МатематикаПеревод: Наталия ЛисоваФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30E1566D36A46A898A9FC4D449A3274EEF1A5BBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619458   (201282) от 16.03.2023
-
-В.Ф. Ляхович и др. | Основы информатики (2016) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Излагается процесс разработки основных видов алгоритмов и программ на базе оригинальной общей методики построения алгоритмов, не имеющей аналогов в России. Общая методика построения алгоритмов позволяет быстро осваивать различные языки программирования, в том числе и высокого уровня. Отражены принципы построения и развития компьютерных сетей.
-Соответствует действующему (   Читать дальше...   )Жанр: Компьютерная литератураФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A52FA374FF94F011D86B5023EFDEFF6A4C428F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619284   (201243) от 15.03.2023
-
-К.Н. Лунгу | Линейное программирование: Руководство к решению задач 2-е изд. испр. и доп. (2009) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201243.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии отражен многолетний опыт чтения лекций и проведения практических занятий по линейному программированию. Особое внимание уделено симплексному методу и его реализации наиболее экономным способом при помощи таблиц Гаусса, а также методу наименьших тарифов, обеспечивающему быстрое получение оптимального плана для транспортной задачи.
-Для студентов всех форм (   Читать дальше...   )Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93CC0B272D031913CF19B060A44CA31AF8D907FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619311   (201242) от 15.03.2023
-
-Р.Я. Штейнман | Пространство и время (1962) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201242.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге дается анализ представлений о пространстве и времени в современной физике и космологии. В первой главе излагается история развития этих представлений в классической физике, начиная с Ньютона и Лейбница. Книга предназначена для читателей, интересующихся философскими проблемами современного естествознания. Предполагается, что читатель знаком с основами физики (   Читать дальше...   )Жанр: ФизикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B4904D5C114B9B8CC77889256327A291ABC8C34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619110   (201231) от 17.03.2023
-
-Н.М. Изюмов | Курс радиотехники (1958) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотя в книге даётся в большинстве ламповая схемотехника, но даже прочитав часть этого труда, любой старшеклассник, студент любой специальности, просто любознательный не только научится разбираться в радиоволнах, но и освоит основы радиотехники, антенн и многого другого.
-Книга предназначена для будущих техников-связистов, готовящихся к эксплуатации средств радиосвязи. (   Читать дальше...   )Жанр: Учебная,РадиотехникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D0D5F31E5D3BC625004D2E13C33DAD2305C2D7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619754   (201228) от 17.03.2023
 
 И.Л. Акулич | Математическое программирование в примерах и задачах 4-е изд. (2022) [PDF]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201228.jpg" />
 </div>
 
 
@@ -165,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201227.jpg" />
 </div>
 
 
@@ -193,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201164.jpg" />
 </div>
 
 
@@ -220,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201144.jpg" />
 </div>
 
 
@@ -246,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201129.jpg" />
 </div>
 
 
@@ -272,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201120.jpg" />
 </div>
 
 
@@ -300,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201104.jpg" />
 </div>
 
 
@@ -326,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201100.jpg" />
 </div>
 
 
@@ -353,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201073.jpg" />
 </div>
 
 
@@ -380,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201062.jpg" />
 </div>
 
 
@@ -406,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201060.jpg" />
 </div>
 
 
@@ -432,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200870.jpg" />
 </div>
 
 
@@ -459,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200825.jpg" />
 </div>
 
 
@@ -486,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200744.jpg" />
 </div>
 
 
@@ -512,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200653.jpg" />
 </div>
 
 
@@ -538,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200642.jpg" />
 </div>
 
 
@@ -565,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200601.jpg" />
 </div>
 
 
@@ -591,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200504.jpg" />
 </div>
 
 
@@ -617,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200497.jpg" />
 </div>
 
 
@@ -643,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200386.jpg" />
 </div>
 
 
@@ -670,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200332.jpg" />
 </div>
 
 
@@ -681,6 +548,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBCE5850E821F945B5FE1E62B31F472856E1DD4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624385   (200327) от 05.04.2023
+
+С.В. Громов | Энциклопедия элементарной физики (1995) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200327.jpg" />
+</div>
+
+
+###  Подробнее
+
+В энциклопедии приведены современные определения основных физических понятий и величин, используемых в элементарном курсе физики, сформулированы физические законы и разъяснена сущность описываемых ими явлений. Содержит свыше 700 терминов, расположенных в алфавитном порядке. В отличие от других энциклопедических словарей, многие формулы и законы приведены вместе с (   Читать дальше...   )Жанр: Справочная литература по физикеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD4D337824B95C7307601B3F105F7B034D54D32E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587535   (200315) от 04.04.2023
+
+К.К. Пономарёв | Составление дифференциальных уравнений (1973) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие для физико-математических факультетов педагогических институтов. Является руководством по составлению и решению дифференциальных уравнений. Цель автора — создание учебного пособия, которое широко охватило бы различные задачи естествознания и техники и способствовало овладению современной методикой составления дифференциальных уравнений прикладных (   Читать дальше...   )Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D572B83A80E1D7E132BC3CA5BD8F146EB8E9EF45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624530   (200310) от 06.04.2023
+
+Л.А. Кузнецов | Сборник заданий по высшей математике. Типовые расчеты (2023) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Важным фактором усвоения математики и овладения ее методами является самостоятельная работа учащегося. Система типовых расчетов (ТР), как показал опыт ряда вузов нашей страны, активизирует самостоятельную работу студентов и способствует более глубокому изучению курса высшей математики. Применение системы ТР рекомендовано программой по высшей математике для втузов. (   Читать дальше...   )Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12BFE27A7D67769E4152972CB1EDA65BDC71D0DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623667   (200306) от 04.04.2023
+
+Руководства пользователя и инструкции к частотным преобразователям [122 книги] (2005-2017) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200306.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данном сборнике вы найдете исчерпывающую информацию по частотным преобразователям от компаний: Danfoss, ABB, Santerno, Vacon, Schneider electric, Siemens, Triol, Mitsubishi, Веспер, ESQ, Delta electronics, Hyundai, Sew eurodrive, Omron, Invertek drives, Lenze, KEB, NORD, Hitachi, WEG, INVT, Fuji, Frecon, Instart и многих других, также мы предоставляем вам литературу, (   Читать дальше...   )Жанр: Техническая литература, пособия, инструкцииФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8FAFA3D921C3020F3B6A23C026AB78BE351F8D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624538   (200301) от 06.04.2023
+
+Т.И. Немцова и др. | Программирование на языке высокого уровня. Программирование на языке Object Pascal (2023) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие "Программирование на языке высокого уровня" представляет собой курс по изучению языка Object Pascal. Пособие предназначено для широкого круга читателей. как для начинающих программистов, так и для тех, кто уже знаком с основами программирования и в будущем собирается стать профессиональным программистом. Пособие состоит из двух частей. Часть (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8F551B55174431BBFC2C548685C00C55414A439
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1637016   (231036) от 02.06.2023
-
-Led Zeppelin - Легенды Зарубежного Рока (1999) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231036.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Stairway To Heaven
-A2 Custard Pie
-A3 D'Yer Mak'er
-A4 Houses Of The Holy(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:11:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B023AFBE1BDCF28A2386BD86C4C89199AAA0E246
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1637048   (230996) от 02.06.2023
 
 Queen - Легенды Зарубежного Рока (1999) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Classic Rock, Arena Rock>
@@ -35,7 +6,7 @@ Queen - Легенды Зарубежного Рока (1999) Compilation, Unoff
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230996.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Krokus - Легенды Зарубежного Рока (2001) Compilation, Unof
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230957.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230927.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Creedence Clearwater Revival - Легенды Зарубежного Рока (1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230921.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Running Wild (X-Wild, Toxic Taste, Giant X) - Studio Albums (22 releases) (1984 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230778.jpg" />
 </div>
 
 
@@ -181,7 +152,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230481.jpg" />
 </div>
 
 
@@ -210,7 +181,7 @@ Andrew Lloyd Webber & Tim Rice, Various – Jesus Christ Superstar (A Rock Opera
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230384.jpg" />
 </div>
 
 
@@ -239,7 +210,7 @@ XueFei Yang - Romance de Amor (2006) [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Classic
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230204.jpg" />
 </div>
 
 
@@ -268,7 +239,7 @@ Jeff Lynne's ELO - Alone In The Universe (2015) [FLAC 2.0 24/96|image (Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230001.jpg" />
 </div>
 
 
@@ -297,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229534.jpg" />
 </div>
 
 
@@ -326,7 +297,7 @@ Zardonic - Superstars (2023) [FLAC|24/48|tracks|WEB-DL] <Industrial Rock, Drum &
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229117.jpg" />
 </div>
 
 
@@ -355,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228845.jpg" />
 </div>
 
 
@@ -384,7 +355,7 @@ VA - Dantcho "Rap" Georgiev Presents: Dance Hits Vol. 4 (1992) [FLAC|96/24|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228561.jpg" />
 </div>
 
 
@@ -413,7 +384,7 @@ VA - The Wild Life. Music From The Original Motion Picture Soundtrack (1984) [FL
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228434.jpg" />
 </div>
 
 
@@ -442,7 +413,7 @@ VA - The Dooley Family And The Others (1977) [FLAC 2.0|192/24|image +.cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227970.jpg" />
 </div>
 
 
@@ -471,7 +442,7 @@ Eruption - Ансамбль Ирапшн (1980) [FLAC 2.0 24/192|tracks(Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227704.jpg" />
 </div>
 
 
@@ -500,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227654.jpg" />
 </div>
 
 
@@ -529,7 +500,7 @@ Boney M - Ночной полет на Венеру (1980) [FLAC 2.0 24/192|trac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_227333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_227333.jpg" />
 </div>
 
 
@@ -558,7 +529,7 @@ Aldo Nova - Blood On The Bricks (1991) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip]<A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224838.jpg" />
 </div>
 
 
@@ -587,7 +558,7 @@ The Sylvers - Forever Yours (1978) [FLAC|96/24|image + .cue|Vinyl-Rip] <Soul, Di
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224804.jpg" />
 </div>
 
 
@@ -616,7 +587,7 @@ Aerosmith (Steven Tyler; Joe Perry) - Studio Albums (10 releases) (1993-2023) ha
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224575.jpg" />
 </div>
 
 
@@ -645,7 +616,7 @@ Jamiroquai - A Funk Odyssey (2001) [FLAC 2.0|48/24|image+.cue|MC-Rip] <House, Ac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223122.jpg" />
 </div>
 
 
@@ -674,7 +645,7 @@ VA - ''Не люблю прощания'' - Песни на музыку Иго�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223061.jpg" />
 </div>
 
 
@@ -703,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222893.jpg" />
 </div>
 
 
@@ -732,7 +703,7 @@ Robert Michaels - Paradiso (1998) [FLAC 2.0 16/44,1|image+.cue (MC-Rip)] <Flamen
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222673.jpg" />
 </div>
 
 
@@ -746,6 +717,33 @@ Robert Michaels - Paradiso (1998) [FLAC 2.0 16/44,1|image+.cue (MC-Rip)] <Flamen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBBE624EF642C2696EFC1CEDFF8EBC92BDCDEE94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965111   (222635) от 16.12.2015
+
+М. Горький, Е. Честняков: Сказка про Иванушку-Дурачка, Чудесное яблоко (1980) [FLAC 2.0 16/44,1|tracks (Vinyl-Rip)] <Сказка>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказки М. Горького и Е. Честнякова исполняют: В. Тучинский, В. Невинный, Р. Филиппов, М. Калашников, С. Бубнов, О. Якунина, З. Нарышкина, А. Баранцев, в эпизодах артисты московских театров, режиссёры А. Крюков и В. Иванов, инсценировка В. Толмачёвой.01. Сказка про Иванушку-Дурачка (М. Горький)
+02. Чудесное яблоко (Е. Честняков)Жанр: СказкаПродолжительность: 00:12:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:312CE21DCEF77E52055E731CEA0F02EB2550BA35
 ```
 
 https://mybot314.ru/tekegram_catalog/

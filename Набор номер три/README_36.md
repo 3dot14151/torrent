@@ -1,3 +1,161 @@
+###  Публикация: 1466240   (1017825) от 03.05.2021
+
+В России разрешили выселять банкротов из единственного жилья - если оно роскошное
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конституционный суд России допустил изъятие у должников единственного жилья. До этого при банкротстве у человека не могли забрать единственное жилье, даже если речь шла о дорогой недвижимости. Юристы уверены, что это изменит процедуру банкротств, которая каждый год становится все более популярной.Запрет на изъятие единственного жилья у граждан-должников не может (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 32629   (1017784) от 03.05.2021
+
+Чужой-квадрология (1-4) / Alien Quadrilogy 1-4 (полные режиссерские версии) (1979-1997) DVDRip
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия научно-фантастических триллеров о борьбе между людьми и «чужими», ксеноморфами. В далеком будущем грузовой космический корабль приземлится на неизведанной планете, покрытой странными предметами, подозрительно похожими на коконы. Вскоре экипаж корабля оказывается заперт на судне в компании самых страшных существ, которых могла породить Вселенная. Ксеноморф — (   Читать дальше...   )Производство: Великобритания, СШАЖанр: Ужасы, ФантастикаРежиссер: Ридли Скотт, Джеймс Кэмерон, Дэвид Финчер, Жан-Пьер ЖёнеАктеры: Сигурни Уивер, Вайнона Райдер, Доминик Пинон, Рон Перлман, Гари Дурдан, Майкл Уинкотт, Дж.Э. Фримен, Лиленд Орсер, Брэд Дуриф, Дэн ХедайяПеревод: Видео: DivX 4, 720x304, ~1223 KbpsПродолжительность: 01:56:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F13268FD8B4FE5A3915EF27F8BD773AD0E622DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467209   (1017635) от 04.05.2021
+
+Датские физиологи опровергли мнение, что человек задействует лишь 10% мозга
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный физиолог из Дании Анке Ниния опроверг надежды многих людей развить мозг еще на 90%. Специалист заявляет, что мы уже используем его на всего 100%. Развивать нечего. Итоги исследовательской работы ученого опубликованы в издании Videnskab.Ученый считает, что использование лишь 10% ресурсов головного мозга крайне нелогично с точки зрения эволюции. Изучение (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467075   (1017624) от 04.05.2021
+
+Вассерман назвал главный минус четырехдневной рабочей недели
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вассерман посоветовал не экспериментировать с 4-дневной рабочей неделей
+Публицист, телеведущий Анатолий Вассерман назвал главный минус четырехдневной рабочей недели. Его слова передает «Московский комсомолец».Ведущий призвал не экспериментировать с сокращением рабочей недели в России. Он считает, что сперва необходимо рассчитать, компенсирует ли повышение производительности (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017470   (1017606) от 04.05.2021
+
+Неуловимые мстители (1966,1968,1971) DVDRip [Трилогия, Реставрация]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017606.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Неуловимые мстители» — советский цветной художественный фильм-истерн, поставленный на Московской ордена Ленина киностудии «Мосфильм» Эдмондом Кеосаяном по мотивам повести Павла Бляхина «Красные дьяволята», о приключениях четырёх подростков в годы Гражданской войны.
+Все три части знаменитой трилогии о "Неуловимых мстителях". Блистательная режиссура, актёрская (   Читать дальше...   )Производство: СССР / МосфильмЖанр: Приключения, боевик, экранизацияРежиссер: Эдмонд КеосаянАктеры: Василий Васильев, Виктор Косых, Валентина Курдюкова, Михаил Метёлкин, Борис Сичкин, Армен Джигарханян, Владимир Белокуров, Надежда Федосова, Виктор Колпаков, Иван Жеваго, Александра Денисова, Лев Свердлин, Савелий Крамаров, Глеб Стриженов, Инна Чурикова, Павел Винник, Ефим Копелян, Владимир Трещалов, Геннадий Юхтин, Иван Савкин, Валентина Ананьина, Альбина Матвеева, (   Читать дальше...   )Продолжительность: 04:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB50B77B12E811B8375F2FC4A1E0BE4C7DE8061F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097793   (1017605) от 04.05.2021
+
+Eador. Imperium / Эадор. Империя (2017) [Ru/Multi] (2.75.1) License GOG
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017605.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нанимайте героев, собирайте армию, побеждайте в битвах и сделайте все в своих силах, чтобы удержать Империю в целости перед лицом смертельной опасности. "Эадор. Империя" - это новая глава в серии Эадор, известной своим сочетанием глобальной стратегии, ролевых элементов и пошаговой тактики. Молодой волшебник, жаждущий возмездия разрушившим его жизнь мракобесам.Тип издания: LicenseРазработчик: Snowbird GamesЖанр: Strategy, Role-playing, FantasyЯзык озвучки: Русский, Английский, НемецкийЯзык субтитров: Русский, Английский, НемецкийЯзык интерфейса: Русский, Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E4ADCC8DB977C3FBE86343DDA57BD173173B3F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 138871   (1017604) от 04.05.2021
 
 Коллекция Альфреда Хичкока / Alfred Hitchcock Collection  (Film Prestige+Somewax) (1934-1972) DVDRip
@@ -6,7 +164,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017604.jpg" />
 </div>
 
 
@@ -35,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017484.jpg" />
 </div>
 
 
@@ -61,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017474.jpg" />
 </div>
 
 
@@ -87,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017322.jpg" />
 </div>
 
 
@@ -113,7 +271,7 @@ Wreckfest (2018) [Ru/Multi] (1.27.5315/dlc) Repack Other s [Complete Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017299.jpg" />
 </div>
 
 
@@ -139,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017155.jpg" />
 </div>
 
 
@@ -165,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017143.jpg" />
 </div>
 
 
@@ -191,7 +349,7 @@ Kingdom Two Crowns (2018) [Ru/Multi] (1.1.10/dlc) Repack Other s [Royal Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017130.jpg" />
 </div>
 
 
@@ -217,7 +375,7 @@ Generation Zero (2019) [Ru/Multi] (2019899/dlc) Repack Other s
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017129.jpg" />
 </div>
 
 
@@ -243,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017013.jpg" />
 </div>
 
 
@@ -269,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016981.jpg" />
 </div>
 
 
@@ -295,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016950.jpg" />
 </div>
 
 
@@ -321,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016803.jpg" />
 </div>
 
 
@@ -347,7 +505,7 @@ Devil May Cry 5 (2019) [Ru/Multi] (1.0.5962864/dlc) Repack West4it [Deluxe Editi
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016802.jpg" />
 </div>
 
 
@@ -373,7 +531,7 @@ Topaz Gigapixel AI 5.5.2 RePack (& Portable) by TryRooM [En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016483.jpg" />
 </div>
 
 
@@ -399,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016472.jpg" />
 </div>
 
 
@@ -425,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016225.jpg" />
 </div>
 
 
@@ -452,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016212.jpg" />
 </div>
 
 
@@ -478,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016019.jpg" />
 </div>
 
 
@@ -504,7 +662,7 @@ Microsoft охладела к Windows 10X. Что ждет платформу Wi
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016015.jpg" />
 </div>
 
 
@@ -515,163 +673,6 @@ Microsoft охладела к Windows 10X. Что ждет платформу Wi
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317558   (1016003) от 14.05.2021
-
-Приключения Пети и Волка (2018-2021) WEB-DLRip [H.264/720p-LQ] (сезон 1, серии 1-21 из 26) [Обновляемая]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016003.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о приключениях обычного школьника Пети и его друга Волка, связывающего мир людей с миром сказок. Петя помогает волшебным героям решать их волшебные проблемы, требующие нестандартного подхода. Студия «Союзмульфильм» представляет оригинальный и остроумный мультсериал режиссера и сценариста Алексея Лебедева («Смешарики», «Атомный лес», «Пиратская школа»). На (   Читать дальше...   )Производство: Россия | СоюзмультфильмЖанр: Мультсериал, Приключения, Комедия, ФэнтезиРежиссер: Алексей ЛебедевАктеры: Владимир Маслаков, Иван Чабан, Анна Геллер, Андрей Левин, Михаил ХрусталевПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: ~00:11:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AACA3042E13055F193A976E064EF7D612C9945C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470000   (1015834) от 15.05.2021
-
-В России заблокировали 4PDA
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мосгорсуд вынес решение заблокировать популярный российский техноресурс 4PDA. 14 мая сайт был внесён в базу запрещённых в России — на момент написания новости он не доступен. Согласно делу, причина блокировки — размещение ссылок на IPTV-плейлисты со спортивными трансляциями. Жалобу подал «Матч ТВ»:Запретить КлаудФлэр, Инк создание технических условий, обеспечивающих (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469883   (1015832) от 15.05.2021
-
-Джинн / The Djinn (2021) WEB-DL [H.264/1080p] [AVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015832.jpg" />
-</div>
-
-
-###  Подробнее
-
-12-летний немой мальчик Дилан недавно потерял маму. Они с отцом переезжают в новый дом, где мальчик находит книгу с заклинаниями и по неопытности вызывает джинна, который обещал исполнить желание, а на самом деле пришёл за душой ребёнка.Производство: США, Mad Descent, Kinogo PicturesЖанр: УжасыРежиссер: Дэвид Шарбонэр, Джастин ПауэллАктеры: Эзра Дьюи, Роб Браунштейн, Тэви По, Джон Эриксон, Дональд ПиттсПеревод: Авторский (BadBajo)Субтитры: Английские (отключаемые)Продолжительность: 01:21:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91536853BF2AB526D62A9559EFAF56D1FB177E0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469416   (1015824) от 15.05.2021
-
-Кислород / Oxygène / Oxygen (2021) WEB-DL [H.264/1080p-LQ]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женщина просыпается в криогенной камере и понимает, что потеряла память. Запасы кислорода подходят к концу, и, чтобы выжить, ей необходимо вспомнить прошлое.Производство: Франция, США / Echo Lake Entertainment, Getaway Films, Wild Bunch InternationalЖанр: фантастика, фэнтези, триллер, драмаРежиссер: Александр АжаАктеры: Мелани Лоран, Матьё Амальрик, Малик Зиди, Марк Саез, Лаура Бужена, Lyah Valade, Cathy Cerda, Marie Lemiale, Паскаль Жермен, Эрик Эрсон-МакарельПеревод: Дублированный (Пифагор)Язык озвучки: Русский, украинский, французскийСубтитры: Русские (Forced,  Full), украинские (Forced,  Full), французские (SDH), английскиеПродолжительность: 01:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91638C079A5D497CA987971603FA0834A5CE0455
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469662   (1015681) от 16.05.2021
-
-Стало известно, сколько денег в месяц нужно россиянам для счастья
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Средняя сумма составляет 173 тыс. рублей в месяц, свидетельствуют данные опроса
-Необходимая для счастья россиянам средняя сумма составляет 173 тыс. рублей в месяц. Об этом свидетельствуют данные опроса портала Superjob, опубликованные в среду."Чтобы чувствовать себя счастливыми, россиянам в среднем нужно 173 тыс. руб. в месяц. Это больше, чем в январе (166 тыс. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282816   (1015664) от 16.05.2021
-
-Фиксики / Фиксики. Новенькие (2010-2021) WEB-DL [H.264/720p-LQ] (сезон 1-4, серии 1-184 из 209) + Фиксики. Большой секрет / Фиксики против Кработов / Фиксипелки
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015664.jpg" />
-</div>
-
-
-###  Подробнее
-
-«А кто такие фиксики — большой-большой секрет!» — так поётся в песенке про фиксиков. До недавнего времени люди почти ничего не знали об этих маленьких человечках, которые живут внутри машин и приборов. Фиксики ухаживают за техникой изнутри, чистят её, смазывают, устраняют мелкие поломки. Они — умелые и добросовестные мастера. Фиксики привыкли скрываться от людей, (   Читать дальше...   )Производство: Россия | «Аэроплан»Жанр: Компьютерная анимация, ДетскийРежиссер: Васико Бедошвили, Андрей Колпин, Сергей МериновАктеры: Дмитрий Назаров, Лариса Брохман, Инна Королёва, Иван Добряков, Яков Васильев, Диомид ВиноградовПеревод: Не требуетсяПродолжительность: Фиксики ~00:06:00 / Фиксики. Большой секрет ~01:17:57 / Фиксики против Кработов ~01.25.58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4967A68300F04103BFE7C9357E69D27F97D2263C
 ```
 
 https://mybot314.ru/tekegram_catalog/

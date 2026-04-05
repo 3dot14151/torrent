@@ -1,3 +1,83 @@
+###  Публикация: 1144267   (627008) от 22.06.2017
+
+Spybot - Search & Destroy 2.6.46.0 Portable by PortableApps [Multi/Ru]
+
+>>Безопасность
+>>Разное (остальные программы по безопасности)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Spybot - Search & Destroy - утилита для поиска и удаления программ-шпионов (spyware), рекламных вставок (adware), программ-похитителей данных (hijackers) и иного вредоносного софта. Spybot - Search & Destroy сканирует жёсткий диск и реестр операционной системы, находя там шпионские модули и вредоносные ключи. База данных приложения постоянно обновляется разработчиками (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A515EA477D9F36189CB8C2F7AF20E3B0D21E8BAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146962   (610713) от 01.07.2017
+
+Comodo Cloud Antivirus 1.12.421630.537 [Multi/Ru]
+
+>>Безопасность
+>>Антивирусы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Comodo Cloud Antivirus - новый облачный антивирус, который обеспечивает легкую онлайн и оффлайн защиту с использованием проактивных технологий.
+Облачное решение предлагает максимальную защиту и наилучшую производительность при борьбе с угрозами нулевого дня в режиме реального времени.
+Небольшой инсталляционный пакет содержит три важных компонента: облачный антивирус, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DC013352C0F4FB2F56B426073F9AFEB8C39356B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150515   (593925) от 15.07.2017
+
+Junkware Removal Tool 8.1.4 [En]
+
+>>Безопасность
+>>Разное (остальные программы по безопасности)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593925.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простая и эффективная утилита, предназначенная для сканирования компьютера на наличие вредоносных элементов, таких как рекламное ПО, ненужные панели инструментов и PUPS (потенциально нежелательные программы). Программа уничтожает все их следы с диска компьютера, памяти, автозагрузки, реестра и пр.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB80609B8C19E863E254F0801FFEABBD7F14E092
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1233560   (592898) от 30.06.2018
 
 Kaspersky Secure Connectiоn 19.0.0.1088 [Ru]
@@ -6,7 +86,7 @@ Kaspersky Secure Connectiоn 19.0.0.1088 [Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592898.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ WinPatrol PLUS 33.6.2015.18 [Ru/En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569609.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ SterJo NetStalker 1.2 + Portable [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538505.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ SecureAPlus Freemium 5.3.7 [Multi/Ru]
 >>Антивирусы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527884.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525079.jpg" />
 </div>
 
 
@@ -136,7 +216,7 @@ Bitdefender AntiVirus Plus 2015 19.2.0.151 [En]
 >>Антивирусы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508755.jpg" />
 </div>
 
 
@@ -162,7 +242,7 @@ Avast Free Antivirus 22.7.6025 (build 22.7.7403.736) Final [Multi/Ru]
 >>Антивирусы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475876.jpg" />
 </div>
 
 
@@ -188,7 +268,7 @@ Malwarebytes Premium 3.6.1.2711 RePack by elchupacabra [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441294.jpg" />
 </div>
 
 
@@ -214,7 +294,7 @@ GridinSoft Anti-Malware 4.1.60.5018 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435487.jpg" />
 </div>
 
 
@@ -240,7 +320,7 @@ HitmanPro 3.8.20 Build 314 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431416.jpg" />
 </div>
 
 
@@ -267,7 +347,7 @@ Adguard Premium 7.5.1 (акция Comss 180 days) [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407012.jpg" />
 </div>
 
 
@@ -293,7 +373,7 @@ Dr.Web Remover 11.2.0.201709040 [Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394655.jpg" />
 </div>
 
 
@@ -319,7 +399,7 @@ Kaspersky Anti-Virus 2021 21.1.15.500 [Ru]
 >>Антивирусы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380298.jpg" />
 </div>
 
 
@@ -345,7 +425,7 @@ Avira Free Antivirus 15.0.41.77 [Ru]
 >>Антивирусы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367595.jpg" />
 </div>
 
 
@@ -372,7 +452,7 @@ Shadow Defender 1.4.0.672 [Ru/En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311449.jpg" />
 </div>
 
 
@@ -398,7 +478,7 @@ Ntfs Drive protection 1.4 Portable [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296461.jpg" />
 </div>
 
 
@@ -424,7 +504,7 @@ BestCrypt Volume Encryption 3.72.01 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282129.jpg" />
 </div>
 
 
@@ -452,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280864.jpg" />
 </div>
 
 
@@ -478,7 +558,7 @@ ESET AV Remover 1.2.5.0 [En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264339.jpg" />
 </div>
 
 
@@ -504,7 +584,7 @@ Auslogics Anti-Malware Pro 1.23.0.3 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_261289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261289.jpg" />
 </div>
 
 
@@ -530,7 +610,7 @@ Antivirus Removal Tool 2025.11 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257490.jpg" />
 </div>
 
 
@@ -557,7 +637,7 @@ Adguard 7.22.2 (7.22.5228.0) RePack by KpoJIuK [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256623.jpg" />
 </div>
 
 
@@ -583,7 +663,7 @@ Malwarebytes Windows Firewall Control 6.23.0.0 [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255893.jpg" />
 </div>
 
 
@@ -594,84 +674,6 @@ Malwarebytes Windows Firewall Control - утилита, с помощью кот
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C42C477EF0008F3209FE8B527D2860A932F9AB64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630864   (254625) от 02.05.2023
-
-Loaris Trojan Remover 3.2.49.1814 RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Безопасность
->>Разное (остальные программы по безопасности)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Loaris Trojan Remover - средство удаления вредоносного ПО, среди которых есть троянские программы, интернет-черви, рекламные и шпионские программы. Утилита предназначена для удаления угроз с Вашего компьютера, когда постоянная антивирусная защита не в состоянии обнаружить или полностью удалить их. Очень часто антивирусные решения хороши в обнаружении вредоносных (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFD4568BE4F19A988E54C41F9CAAF5B58A24DB23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835739   (251741) от 07.11.2025
-
-Adguard 7.22.1 (7.22.5226.0) RePack by KpoJIuK [Multi/Ru]
-
->>Безопасность
->>Разное (остальные программы по безопасности)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adguard – интернет-фильтр для защиты пользователей от опасных веб-сайтов, блокировки всех возможных видов рекламы в Интернете. Программа представляет собой отличное дополнение для вашей основной антивирусной защиты с эффективной блокировкой вредоносных, мошеннических и фишинговых ресурсов, и родительским контролем за онлайн-активностью детей. Веб-защита работает (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABE9F9AB4BB495F6DE5496E58DFCD949F1F1D590
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835407   (250924) от 06.11.2025
-
-MinerSearch 1.4.8.2 Portable [Ru/En]
-
->>Безопасность
->>Разное (остальные программы по безопасности)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250924.jpg" />
-</div>
-
-
-###  Подробнее
-
-MinerSearch — программа предназначенная для удаления из вашей системы майнеров.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:638AC57A7AB18B659845B225296355389D3326B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

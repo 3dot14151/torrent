@@ -1,3 +1,55 @@
+###  Публикация: 1510441   (789184) от 20.11.2021
+
+Союз племени ирокезов / Blauvogel (1979) DVDRip [H.264] [DUB]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789184.jpg" />
+</div>
+
+
+###  Подробнее
+
+1755 год. Период войны между Англией и Францией за расширение колоний в Северной Америке. Далеко в горы загнаны ирокезы, стойко сохраняющие традиции и быт племени. С семи лет живет среди них английский мальчик Джордж Растер, украденный у родителей и получивший здесь новое имя — Синяя Птица. Много зла и обид причиняют колонизаторы индейцам. Когда после окончания войны (   Читать дальше...   )Производство: Германия (ГДР)  / Deutsche Film (DEFA)Жанр: Драма, Приключения, Семейный, ВестернРежиссер: Ульрих ВайсАктеры: Робин Джагер, Габриэль Осечук, Ютта Хоффманн, Курт Бёве, Йорг Фот, Эгон Гюнтер, Ян Шпицер, Niculina Ursaru, Anca Szonyi, Илеана МавродинеануПеревод: ДублированныйЯзык озвучки: Русский, немецкийСубтитры: ОтсутствуютПродолжительность: 01:32:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09272D00B5EFA8FB9F80ECCD85F2A0E2CFA2C799
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275834   (788959) от 14.01.2019
+
+Всё тип-топ, или Жизнь Зака и Коди / The Suite Life of Zack and Cody (2005-2008) SATRip (сезон 1-3 из 3, серии 1-87 из 87) Невафильм
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Благодаря тому, что их мама поет в дорогом отеле, близнецы Зак и Коди живут в роскошных апартаментах. Но из-за своего неуемного характера и богатой фантазии мальчишки постоянно попадают в различные недоразумения и ставят «на уши» весь отель. Никакие угрозы и строгие меры не могут удержать сорванцов Зака и Коди от новых проделок и выдумок!Производство: СШАЖанр: комедия, семейныйРежиссер: Рич Коррелл, Джим Дрейк, Лекс ПассарисАктеры: Коул Спроус, Дилан Спроус, Бренда Сонг, Эшли Тисдейл, Фил Льюис, Ким Родс, Брайан Степанек, Адриан Р’Манте, Патрик Бристоу, Зак Эфрон и др.Перевод: Дублированный - НевафильмПродолжительность: ~00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA8F4FA0C5D44C6CA72C580973F6814D7E712452
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275913   (788956) от 14.01.2019
 
 Кристофер Робин / Christopher Robin (2018) DVD5 [Custom]
@@ -6,7 +58,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788956.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788538.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788116.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787324.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784449.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782613.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781867.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776403.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774891.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774887.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773680.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771512.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771112.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762755.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761582.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758870.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757311.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757212.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_753782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_753782.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750919.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_750596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_750596.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748952.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747639.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746375.jpg" />
 </div>
 
 
@@ -618,58 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B499E6D98C2DFFC8A21757A71B95918E6E6CFD01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524098   (746277) от 14.01.2022
-
-Приключения Паддингтона 2 / Paddington 2 (2017) DVD9
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746277.jpg" />
-</div>
-
-
-###  Подробнее
-
-В антикварном магазине Лондона обаятельный и хорошо воспитанный медведь Паддингтон находит уникальную старинную книгу. Пока он изо всех своих медвежьих сил старается накопить на нее деньги, редчайшее издание внезапно похищают. Паддингтон оказывается вовлечен в аферу века, затеянную знаменитым, но вышедшим в тираж актером, который ныне рекламирует собачьи консервы, (   Читать дальше...   )Производство: Великобритания, Франция, США, Китай, Канада / Studio Canal, Heyday FilmsЖанр: Фэнтези, комедия, семейныйРежиссер: Пол КингАктеры: Бен Уишоу, Хью Бонневилль, Салли Хокинс, Хью Грант, Мадлен Харрис, Сэмюэл Джослин, Джули Уолтерс, Брендан Глисон, Джим Бродбент, Питер КапальдиПеревод: Дублированный (Лицензия)Субтитры: ОтсутствуютПродолжительность: 01:39:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6E0C12E9433CA137E8E169808C20756005D8593
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525594   (738983) от 22.01.2022
-
-Большой красный пес Клиффорд / Clifford the Big Red Dog (2021) WEB-DLRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда школьница Эмили получает в подарок от спасателя животных очаровательного щенка с красной шерстью, она и представить не может, что на утро обнаружит в своей маленькой нью-йоркской квартирке огромного трёхметрового пса! Мама в командировке, поэтому самые захватывающие и необыкновенные приключения ждут Эмили и ее веселого и порывистого дядю Кейси. Клиффорд научит (   Читать дальше...   )Производство: Канада, США / Aurum Producciones S.A., Kerner Entertainment CompanyЖанр: фэнтези, комедия, приключения, семейныйРежиссер: Уолт БекерАктеры: Джек Уайтхолл, Дэрби Кэмп, Сиенна Гиллори, Дэвид Алан Грир, Джон Клиз, Расселл Вонг, Айзек Ванг, Тони Хейл, Оратио Санс, Пол РодригесПеревод: Дублированный (SDI Media) | IVIСубтитры: Русские (форсированные, полные), украинские (полные) отдельноПродолжительность: 01:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F51AE103A5A8FA0479A7E93F34FB1ADA2FD68CCA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,108 @@
+###  Публикация: 1759566   (37763) от 09.11.2024
+
+Listonic / Список покупок v8.14.3 Mod by NURIK kz [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список покупок Listoniс – это бесплатное приложение, помогающее Вам и делающее процесс похода в магазин проще, быстрее, и что самое главное, эффективнее. Он имеет все, что Вы ожидаете от списка покупок и даже больше. Благодаря Listonic Вы сможете быстро создавать и управлять списками покупок, делать их доступными знакомым, добавлять цены и количество к введенным (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 08.11.2024Разработчик: Listonic - Smart Grocery ShoppingПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F3CC1E9027A684F55F336837D5FA0F2C5E6C059
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711443   (37745) от 10.11.2024
+
+Obtainium 1.1.29 [Ru/Multi] (Обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Получайте обновления приложений Android прямо из источника.
+Obtainium позволяет вам устанавливать и обновлять приложения непосредственно со страниц их выпусков и получать уведомления о выходе новых выпусков.Тип издания: FreeПоддерживаемая ОС: Android 7.0 и вышеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:893E26AC2B7F6B3FCC6F900E2C4B972F993518D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758615   (37725) от 10.11.2024
+
+Cozy Magnifier & Microscope Plus v6.4.1 Mod by derrin [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37725.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это приложение превратит ваш телефон в лупу (увеличительное стекло). Вам больше не надо носить с собой лупу, ведь она теперь будет всегда у вас в кармане. Программа поможет вам прочесть надписи мелким шрифтом в договорах, меню, книгах и прочих других случаях жизни.Тип издания: ModРелиз состоялся: 06.11.2024Разработчик: HANTORПоддерживаемая ОС: Android 5.0+Язык интерфейса: Руский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DA7336C728E53E860079E221CA5F9FBA7684268
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759734   (37679) от 10.11.2024
+
+MobiOffice (ex. OfficeSuite) Premium + PDF v15.0.54212 Extra Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37679.jpg" />
+</div>
+
+
+###  Подробнее
+
+MobiOffice - это полнофункциональный офисный пакет для Android. Данное приложение позволит Вам создавать, редактировать и просматривать файлы в формате MS Word и Excel, а также просматривать документы PDF и презентации PowerPoint. При помощи MobiOffice Вы сможете просмотреть вложения к письмам в таком же виде, как и на ПК. Или даже создать собственный текстовый документ (   Читать дальше...   )Тип издания: Premium / Extra ModРелиз состоялся: 06.11.2024Разработчик: MobiSystemsПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B3CDA37404FE0A0EE7C3138B26362E81391003B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1759596   (37678) от 10.11.2024
 
 iCSee v7.4.0 Free [Ru/En]
@@ -6,7 +111,7 @@ iCSee v7.4.0 Free [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37678.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ SmartDriver: АнтиРадар ГИБДД v1.16.0.36623 Premium Mod by vedsereg
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37615.jpg" />
 </div>
 
 
@@ -61,7 +166,7 @@ Duolingo: изучай языки 6.7.1 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37592.jpg" />
 </div>
 
 
@@ -87,7 +192,7 @@ MiHome v9.9.700 Mod by Vevs [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37520.jpg" />
 </div>
 
 
@@ -116,7 +221,7 @@ The Elder Scrolls: Blades 1.31.0.3481802 (ARM64) [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37509.jpg" />
 </div>
 
 
@@ -142,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37440.jpg" />
 </div>
 
 
@@ -168,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37415.jpg" />
 </div>
 
 
@@ -195,7 +300,7 @@ Solid Explorer File Manager v2.8.54 + Plugins Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37414.jpg" />
 </div>
 
 
@@ -224,7 +329,7 @@ DreamFace: видео редактор с ИИ v4.8.5 Mod by MustHave [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37407.jpg" />
 </div>
 
 
@@ -250,7 +355,7 @@ STEEZY Studio - Learn To Dance v5.0.0 Mod by youarefinished [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37398.jpg" />
 </div>
 
 
@@ -276,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37392.jpg" />
 </div>
 
 
@@ -302,7 +407,7 @@ Electrodoc Pro v6.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37323.jpg" />
 </div>
 
 
@@ -330,7 +435,7 @@ MyFitnessPal: Счетчик калорий v24.44.0 + Wear v1.1.2 Mod by Balata
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37310.jpg" />
 </div>
 
 
@@ -357,7 +462,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.9.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37300.jpg" />
 </div>
 
 
@@ -384,7 +489,7 @@ AdGuard Ad Blocker  Nightly Premium [No-Root] v4.7.113 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37119.jpg" />
 </div>
 
 
@@ -411,7 +516,7 @@ exFAT/NTFS for USB by Paragon Pro v5.0.0.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37114.jpg" />
 </div>
 
 
@@ -437,7 +542,7 @@ DIGI Clock Widget Plus 3.4.0 (ARM64) Mod by Number one' [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37089.jpg" />
 </div>
 
 
@@ -463,7 +568,7 @@ Keepsafe: Защита Фото и Видео v13.3.1 Premium Mod by DEXUNPACKER
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37075.jpg" />
 </div>
 
 
@@ -489,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37070.jpg" />
 </div>
 
 
@@ -515,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37017.jpg" />
 </div>
 
 
@@ -541,7 +646,7 @@ Fishing Knots Pro / Рыбацкие узлы Pro v8.7.42 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37010.jpg" />
 </div>
 
 
@@ -567,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36998.jpg" />
 </div>
 
 
@@ -581,110 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E79760A5DE218B8BE6A373F4FEDA58CAFA7809A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760990   (36985) от 17.11.2024
-
-Узлы 3D / Knots 3D v9.5.0 Mod by derrin [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Завязывайте, развязывайте и вращайте пальцем более 190 узлов в 3D! Наше популярное 3D-приложение Knots 3D позволит вам взглянуть на узлы совершенно по-новому! Берите кусок веревки и развлекайтесь!Тип издания: Mod / FullРелиз состоялся: 17.11.2024Разработчик: Nynix LLCПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08CA96D93398AE63807D10BE756E9A497330A633
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761145   (36932) от 18.11.2024
-
-Duolingo: изучай языки 6.7.3 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36932.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совершенствуйте свои знания английского на практике - чтение, разговорную речь, письмо и восприятие на слух. Играйте, отвечайте на вопросы и выполняйте задания, увеличивая словарный запас и улучшая знания грамматики. Начните с простейших глаголов, фраз и предложений, узнавая новые английские слова каждый день. 34 часа, проведённых с Duolingo, равны по эффективности (   Читать дальше...   )Тип издания: ProРелиз состоялся: 09.11.2024Разработчик: DuolingoПоддерживаемая ОС: Android 10+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67E939CAFC15FC1E669534B223FB02139BC9D77A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761137   (36913) от 18.11.2024
-
-Метод Тичера от Puzzle English v2.6.23 Mod by Bubalex88 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Метод Тичера — программа для последовательного изучения английского: от нуля до продвинутого. Смотрите и слушайте объяснения преподавателей, проходите тренировку после каждого урока и экзамен после каждой темы.Тип издания: FullРелиз состоялся: 17.11.2024Разработчик: PUZZLE ENGLISH TECHNOLOGIES LLCПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AE96E6143D71EB5544BE35CCA5BA468A5978AB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761199   (36912) от 18.11.2024
-
-Image to text - Text scanner / OCR сканер текста v1.5.8 Premium Mod by Mixroot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вам надоело вручную набирать текст с фотографий или документов? Откройте для себя возможности простого извлечения текста с помощью приложения для сканирования изображений в текст! Превращайте изображения в редактируемый текст одним касанием. Приложение OCR Scanner поддерживает более 100 языков и извлекает текст из изображения, независимо от его формата.Тип издания: PremiumРелиз состоялся: 17.11.2024Разработчик: EclixTechПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41341473EE05711E4B02743D173DF6611FD82CA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

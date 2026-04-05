@@ -1,3 +1,58 @@
+###  Публикация: 1239854   (1035122) от 30.01.2021
+
+Syndromeda - Discography 34 Releases (1997-2020) SynGate, Luna [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Berlin-School, Dark Ambient, Space>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sparkle (07:00)Тип издания: CD, WebЖанр: Ambient/New AgeПродолжительность: 01:09:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8C52A36318CD46B47740DA7D88DFA966BDBE485
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252375   (1035106) от 30.01.2021
+
+VA - Steyoyoke Perception, Vol. 1-8 (2017-2021) Steyoyoke Recordings [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Techno, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adam Husa & Mustafa Ismaeel - Young, Wild And Free (08:08)
+ 02. Reboq - Aftermath (07:09)
+ 03. Monarke - Magenta (06:43)
+ 04. Dominik Gehringer - Natural Way (06:20)(   Читать дальше...   )Жанр: Tech House/Deep House/Progressive HouseПродолжительность: 02:04:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1BE7F79C22080C3C09352961E4A8149AFBF3A78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1444039   (1034915) от 31.01.2021
 
 VA - I Know This Track! Vol 1 (Best Of Trance Covers) (2021) [MP3|320 Kbps] <Trance>
@@ -6,7 +61,7 @@ VA - I Know This Track! Vol 1 (Best Of Trance Covers) (2021) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034915.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ VA - Talla 2Xlc - Carpe Diem 2CD (2021) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034906.jpg" />
 </div>
 
 
@@ -64,7 +119,7 @@ VA - Silent Shore: Best Of 2020 (2021) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034666.jpg" />
 </div>
 
 
@@ -93,7 +148,7 @@ Arom - A La Vie (2023) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop, Electronic, Indi
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034566.jpg" />
 </div>
 
 
@@ -122,7 +177,7 @@ Acryl madness - Blood Rage Hurricane (2023) [MP3|320 Kbps] <Darksynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034561.jpg" />
 </div>
 
 
@@ -151,7 +206,7 @@ Sonic Area - Collection 11 Releases (2004-2021) [FLAC|Lossless|tracks+.cue, trac
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034541.jpg" />
 </div>
 
 
@@ -180,7 +235,7 @@ Bop - Etudes 2008​-​2013 (2020) Microfunk Music [FLAC|Lossless|WEB-DL|tracks
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034460.jpg" />
 </div>
 
 
@@ -209,7 +264,7 @@ Faber - Spacefish (2009) [FLAC|Lossless|image + .cue] <Traditional Electronic, B
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034450.jpg" />
 </div>
 
 
@@ -238,7 +293,7 @@ Spacehawk - Universe (2020) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Spacedisc
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034442.jpg" />
 </div>
 
 
@@ -267,7 +322,7 @@ VA - Mhammed El Alami Vocal Trance Selections (2021) [MP3|320 Kbps] <Trance, Voc
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034440.jpg" />
 </div>
 
 
@@ -296,7 +351,7 @@ Spacehawk - Terracide (2021) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Spacedis
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034437.jpg" />
 </div>
 
 
@@ -325,7 +380,7 @@ Joachim Spieth - Ousia (2021) Affin [FLAC 2.0|48/24|tracks|WEB-DL] <Ambient, Dro
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034428.jpg" />
 </div>
 
 
@@ -354,7 +409,7 @@ Wolfgang Flur - Magazine 1 (2022) [FLAC|Lossless|image + .cue] <Electro, Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034363.jpg" />
 </div>
 
 
@@ -383,7 +438,7 @@ Erik Schilke - Synthesis (2021) Hymen Records [FLAC|Lossless|WEB-DL|tracks] <IDM
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034244.jpg" />
 </div>
 
 
@@ -412,7 +467,7 @@ Logistics - Jungle Music (DRS & Dynamite MC x Logistics Remix) (2021) [FLAC|Loss
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034232.jpg" />
 </div>
 
 
@@ -438,7 +493,7 @@ DJ Healer - Nothing 2 Loose (2018) All Possible Worlds [FLAC|Lossless|tracks|Vin
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034230.jpg" />
 </div>
 
 
@@ -467,7 +522,7 @@ VA - Liquid Drum & Bass Sessions, Vol. 4 (2015) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034225.jpg" />
 </div>
 
 
@@ -496,7 +551,7 @@ VA - Liquid Drum & Bass Sessions, Vol. 2 (2015) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034224.jpg" />
 </div>
 
 
@@ -525,7 +580,7 @@ VA - Liquid Drum & Bass Sessions, Vol. 3 (2015) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034223.jpg" />
 </div>
 
 
@@ -554,7 +609,7 @@ VA - Liquid Drum & Bass Sessions, Vol. 1 (2015) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034218.jpg" />
 </div>
 
 
@@ -583,7 +638,7 @@ Mr.Kitty - -+ (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Da
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034207.jpg" />
 </div>
 
 
@@ -612,7 +667,7 @@ V.A. - The Best of Chillout Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Chill Ou
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034124.jpg" />
 </div>
 
 
@@ -641,7 +696,7 @@ VA - Liquid Drum & Bass Sessions, Vol. 13 (2016) [FLAC|Lossless|WEB-DL|tracks] <
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034016.jpg" />
 </div>
 
 
@@ -670,7 +725,7 @@ VA - Liquid Drum & Bass Sessions, Vol. 14 (2016) [FLAC|Lossless|WEB-DL|tracks] <
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034014.jpg" />
 </div>
 
 
@@ -684,64 +739,6 @@ VA - Liquid Drum & Bass Sessions, Vol. 14 (2016) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C04B71E573B4E76B67DE3806BB2405E6B0179F27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445126   (1034012) от 04.02.2021
-
-VA - Liquid Drum & Bass Sessions, Vol. 12 (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bronski - Something (Original Mix) (05:23)
-02. Phase 2 - Glissando (Original Mix) (06:01)
-03. Guillotine - Where You Are (Original Mix) (04:29)
-04. Rolfey - Soul Mate (Original Mix) (05:01)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:17:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB30B3F9420F6ED825D69F4CEB1F3C653DB70231
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445111   (1034010) от 04.02.2021
-
-VA - Liquid Drum & Bass Sessions, Vol. 11 (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joakim Carley, Reece Lemonius - Warrior (Still A Fighter) (Original Mix) (03:41)
-02. Peyo - Ceremony (Original Mix) (05:47)
-03. Dan Guidance, Marvel Cinema - Sumerians (Original Mix) (06:38)
-04. Nectar - Time To (Original Mix) (05:25)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:13:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3C637053100252822A65567E705F98962CBCF31
 ```
 
 https://mybot314.ru/tekegram_catalog/

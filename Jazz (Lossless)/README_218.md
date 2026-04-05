@@ -6,7 +6,7 @@ Rolf Kuhn Quintett - Solarius (1964) 2012, Amiga Jazz[FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312324.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Art Blakey And The Jazz Messengers - Not Yet (1988) 2005, JazzIt[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312322.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Touch And Go - I Find You Very Attractive (1999) [FLAC|tracks+.cue]<Latin, Jazzd
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312267.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Artie Shaw - The Artie Shaw Story (1936 - 1954) 4CD, 2005, Proper Box [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312190.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ The Oscar Peterson Trio - Affinity (2016) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312176.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Peter Cincotti - Metropolis (2012) [FLAC|Lossless|image + .cue] <Vocal Jazz, Pop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312021.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Peter Cincotti - Peter Cincotti (2003) [FLAC|Lossless|image + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311900.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Gordon Brisker Quintet - About Charlie (1986) Discovery Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311829.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Sammy Davis, Jr. - Sings Just For Lovers (1955) 2006, Universal [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310917.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Wild Bill Davison & Eddie Condon's All Stars - Live! 1955 Miami Beach (2004) Sto
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310914.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Terence Blanchard - Simply Stated (1992) Columbia [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310908.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Karen Souza - Essentials [Japan Edition] (2013) [FLAC|Lossless]<Bossa Nova, Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310905.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Elvin Jones - Mr. Jones (1969/1972) 2013, EMI Music[FLAC|tracks+.cue]<Post-Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310422.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Tim Garland, Joe Locke, Geoffrey Keezer (Storms/Nocturnes Trio) - Rising Tide (2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310123.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Stacey Kent - Tenderly (2015) [FLAC|Tracks|WEB-DL]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310094.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Shirley Scott - Latin Shadows (1966) 1995, MCA Records [WavPack|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309944.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Alan Broadbent & Gary Foster - Recorded Live At Maybeck Recital Hall (1993) Conc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309878.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Alan Broadbent - Live at Maybeck Recital Hall, Vol.14 (1991) Concord Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309877.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ The Modern Jazz Quartet - The Modern Jazz Quartet Plays for Lovers (2012) [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309724.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Harry Verbeke & Rob Agerbeek Quartet - Gibraltar (1979) Remaster, 2015, Solid Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309653.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Michel Camilo - Michel Camilo (1988) Portrait[FLAC|Lossless|tracks + .cue] <Lati
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309643.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Miles Davis - Nefertiti (1988) [FLAC|Lossless]<Jazz, Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309425.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Miles Davis - Ballads (1998) [FLAC|Lossless]<Jazz, Cool, Mainstream Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309419.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Alice Coltrane - Radha-Krsna Nama Sankirtana (1977) 2002, Warner Bros. Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309080.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Sonny Rollins - The Best of Sonny Rollins: The Blue Note Years (1989) Blue Note 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308853.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Sonny Rollins & Co. feat. Jim Hall - The Bridge: Complete 1962 Sessions (2013) F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308845.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Kiss - Rocks Vegas (2016) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545464.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545136.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Iron Maiden - The Book Of Souls: The Live Chapter (2017) DVD5 [hand made]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544420.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543325.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543067.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ VA - Летний марафон № 180 / Видеоклипы (Новинки 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542816.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542661.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542553.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Herbie Hancock - Future2Future (2002) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542024.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542012.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542007.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ The Exploited - Live at the Hellfest (2011) WEBRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541333.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ U.D.O. - Navy Metal Night (2015) DVDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541118.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540818.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540446.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540436.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540359.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Lady Gaga - Live at iTunes Festival (2013) HDTV [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540141.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540117.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539834.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539833.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Musicmatters Videomix - Winter 2014 (2014)  WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539476.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Musicmatters Videomix - Autumn 2014 (2014) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539475.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Musicmatters  Videomix - Summer 2014 (2014) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539467.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538720.jpg" />
 </div>
 
 
@@ -717,7 +717,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538103.jpg" />
 </div>
 
 

@@ -1,3 +1,107 @@
+###  Публикация: 1376342   (860386) от 17.04.2020
+
+Журнал | Psychologies №5 (51) (май-июнь 2020) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал Psychologies - уникальный «специалист по жизни», поскольку главная его тема — жизнь его читателей. Это знающий друг, доброжелательный советчик и помощник в любых жизненных ситуациях. Он предназначен для женщин и мужчин, молодых и зрелых, семейных и холостых — для всех, кому нужна внятная и достоверная информация о происходящем с ним и с другими; для всех, (   Читать дальше...   )Жанр: ПсихологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB3619B52CA5C37579641CDF3EF3CC4929E49E8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376482   (860259) от 17.04.2020
+
+Журнал | Гастрономъ №3 (март 2020) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860259.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Гастрономъ» - великолепный кулинарный журнал европейского уровня! Издание сотрудничает с лучшими шеф-поварами Москвы, знаменитыми кулинарными блоггерами, профессиональными фуд-стилистами и фотографами-гурманами. С ним работают великолепные журналисты. Это масса полезной и увлекательной информации о новых продуктах, о правилах этикета, о диетах и системах правильного (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34DAB1F469333A5C09FDBC27FC3BF38519B83837
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 768508   (859914) от 20.03.2014
+
+Журнал | Harvard Business Review [Россия] №1-2 (январь-февраль 2014) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал "Harvard Business Review" является одним из самых авторитетных изданий по менеджменту в мире и служит источником идей и решений для лидеров бизнеса. Среди читателей журнала топ-менеджеры и владельцы компаний – люди, принимающие важнейшие стратегические решения, интеллектуальная элита бизнеса.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BA9842D467F3FD8E5222047F7986452E4A50ACE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 768514   (859670) от 20.03.2014
+
+Журнал | Chip [Россия] №4 (апрель 2014) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chip — первый компьютерный журнал в Европе, сейчас издается в 16 странах тиражом более 1 миллиона экземпляров. Журнал предлагает высочайшее качество в освещении таких тем, как аудио-, видео- и фототехника, компьютеры, программное обеспечение, Интернет, современные технологии телекоммуникаций и развлечений.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DFDC418F69742C4475C08052652C66F37914D7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 875050   (859453) от 05.03.2015
 
 Журнал | Forbes [Россия] №3 (132) (март 2015) [PDF]
@@ -6,7 +110,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859453.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859265.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859190.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859146.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859109.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859102.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859092.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859090.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859072.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859021.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858906.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858860.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858844.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858823.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858794.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858725.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858719.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858686.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858679.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858460.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857452.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857442.jpg" />
 </div>
 
 
@@ -566,110 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DC894A5C6532FA54252447D79B8B5B41B1D0730
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000618   (857366) от 26.03.2016
-
-Журнал | Железный мир №3 (март 2016) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Железный мир» - ведущее профессиональное издание, посвященное силовым видам спорта. Он отражает события, происходящие в мире бодибилдинга, пауэрлифтинга, армрестлинга, серии «Стронгмен». Много материалов посвящено методикам построения тренировочного процесса и спортивного питания, советам профессиональных спортсменов. Представлены информация о соревнованиях (   Читать дальше...   )Жанр: Мужской журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1ACEB67807B1E4CB7DCD7DBD174321DABD909D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109660   (857363) от 28.02.2017
-
-Журнал | Про здоровье №3 (март 2017) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857363.jpg" />
-</div>
-
-
-###  Подробнее
-
-«АиФ Про Здоровье» - красивое глянцевое издание о здоровье и здоровом образе жизни женщины – непременных условиях женской красоты, счастья и семейного благополучия. Это журнал практических советов, рассказывающий о человеке, о его внутреннем мире, о гармонии с природой и любви.Жанр: ЗдоровьеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56E4D0EC982B5B40694A26CB0F366CFFD0A25F45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000617   (857362) от 26.03.2016
-
-Журнал | Железный мир №1-2 (январь-февраль 2016) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857362.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Железный мир» - ведущее профессиональное издание, посвященное силовым видам спорта. Он отражает события, происходящие в мире бодибилдинга, пауэрлифтинга, армрестлинга, серии «Стронгмен». Много материалов посвящено методикам построения тренировочного процесса и спортивного питания, советам профессиональных спортсменов. Представлены информация о соревнованиях (   Читать дальше...   )Жанр: Мужской журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96696B5F005557BBB750C066A548562C8EF35B72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000526   (857296) от 26.03.2016
-
-Журнал | Сам. Спецвыпуск №2. Законная перепланировка (2016) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857296.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Сам" - журнал домашних мастеров: описания, схемы и чертежи самодельных станков и приспособлений, оригинальной мебели, теплиц и других конструкций. Советы по ремонту автомобиля и квартиры, предметов интерьера и бытовых приборов. Много полезного найдут для себя рыболовы и туристы, домашние хозяйки и радиолюбители. Много новых практических идей.Жанр: Строительство и ремонтФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE72259D228DB068C8114D390C075E61822CE43B
 ```
 
 https://mybot314.ru/tekegram_catalog/

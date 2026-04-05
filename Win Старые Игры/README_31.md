@@ -1,3 +1,55 @@
+###  Публикация: 1826706   (170947) от 19.10.2025
+
+Warcraft Adventures: Lord of the clans (1998) [Ru] (3.1) Repack Necros
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Warcraft Adventures: Lord of the Clans — отменённая компьютерная игра в жанре графического квеста, которую совместно разрабатывали американская компания Blizzard Entertainment и американо-российская студия Animation Magic с 1996 по 1998 год. Действие Warcraft Adventures происходит в вымышленной вселенной Warcraft вскоре после событий игры Warcraft II: Beyond the (   Читать дальше...   )Тип издания: RepackРазработчик: Blizzard Entertainment, Animation MagicЖанр: Приключенческая игра, КвестЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6191B91FD343355D5F64493AD9700AC244DA8F90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515417   (168843) от 07.12.2021
+
+Harry Potter and the Chamber of Secrets / Гарри Поттер и Тайная комната (2002) [Ru/En] (1.0) Repack MaggotFreddy
+
+>>Win Старые Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168843.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гарри Поттер и Тайная комната возвращает нас в волшебный мир, созданный писательницей Джоан Роулинг. Вместе со смелым молодым волшебником отправляемся на поиски приключений. В школе для одаренных магов есть еще много секретов и тайн, которые вы непременно захотите разгадать. Гарри Поттер 2 часть еще больше раскрывает содержание истории, знакомит нас с новыми персонажами. (   Читать дальше...   )Тип издания: RepackРазработчик: KnowWonderЖанр: Action, Arcade, AdventureЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AB447A5AFC8B004FDA90D8A0F77B9CE883F8DC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673705   (164059) от 02.11.2023
 
 Elasto Mania Remastered (2000) [En] (1.19) License GOG
@@ -6,7 +58,7 @@ Elasto Mania Remastered (2000) [En] (1.19) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164059.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Pool of Radiance: Ruins of Myth Drannor (2001) [Ru] (1.4) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163723.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ StarCraft (1998) [Ru/En] (1.16.1/dlc) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162256.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Quake II (1997) [Ru/Multi] (5984/dlc) License GOG [Enhanced]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160715.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Disciples Sacred Lands (1999) [Ru/En] (1.1) License GOG [Gold Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157499.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Dragon Lore: The Legend Begins (1994) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156455.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Black Moon Chronicles (1999) [En/Fr/Ge] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156400.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Civilization 2: Test of Time [Ru] (P) 1999
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155945.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Disciples 2 Gold (2005) [En] (2.02/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155095.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154619.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Submarine Titans / Морские Титаны: Зов Глубин (2000) [En] 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154585.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Thief: Deadly Shadows / Thief 3: Тень смерти (2004) [Multi] (1.1) Lice
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153125.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Dune 2000: Long Live the Fighters! (1998) [Ru/En] (1.06/1.02 RUS) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152345.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Imperialism (1997) [Multi] (1.1) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152279.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Warcraft Trilogy (1994-2002) [Ru/En] (1.2/2.02/1.26a/dlc) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151566.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Serious Sam 2 / Крутой Сэм 2 (2005) [Ru] (2.100) Repack Necros [20th An
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150707.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Microsoft Flight Simulator 2004: A Century of Flight (2003) [Ru/En] (9.1) Repack
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150576.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Grand Theft Auto Mission Pack: London 1969 & 1961 (1999) [Ru/Multi] (1.0) Lossle
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148086.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Space Clash: The last frontier / Космические войны: Послед
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147974.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146594.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Thief™ Gold (1999) [En] (1.26ND) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144242.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Broken Sword: The Sleeping Dragon / Сломанный меч 3: Спящий д
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144025.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Broken Sword 4: The Angel of Death / Сломанный меч 4: Ангел с�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143815.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Big Fish Games Universal Crack / Активатор игр Big Fish Games (2016)
 >>NoCD/NoDVD/Crack для Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143659.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Big Fish Games Universal Crack / Активатор игр Big Fish Games (2016)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D219A3BD667D98EE9735D5EF4CBE7498A69EBEEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087989   (142044) от 29.12.2016
-
-Star Wars Jedi Knight: Mysteries of the Sith (1998) [En] (1.0) License GOG
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Star Wars: Jedi Knight: Mysteries of the Sith — самостоятельно дополнение для шутера от первого лица Star Wars: Jedi Knight: Dark Forces II, выпущенное 31 января 1998 года. Его действие разворачивается через пять лет после победы Кайла Катарна над темными Джедаями. В игре появляется новый рыцарь-джедай Мара Джейд - бывший агент Империи, а теперь наемный убийца и (   Читать дальше...   )Тип издания: LicenseРазработчик: LucasArts EntertainmentЖанр: Action (Shooter), Add-on (Standalone), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1D5070529229275A3E4A55110B70061D97B6160
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087815   (141907) от 29.12.2016
-
-Star Wars: Jedi Knight - Dark Forces II (1997) [En] (1.01) License GOG
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141907.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кайл Катарн, наёмник Альянса Повстанцев, давно знал, что его отца убили имперские прихвостни. Но он понятия не имел, что его отец был джедаем. Однако вскоре Кайл узнаёт, что существует некая Долина Джедаев, которая может наделить всякого Силой. Конечно, Ситы тоже положили на неё глаз. Ведь, чтобы обрести Силу, надо долго медитировать, нужны годы тренировки, а тут (   Читать дальше...   )Тип издания: LicenseРазработчик: LucasArts EntertainmentЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C5A8D26887C6035DE00925F01E6BF2119E4E2E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

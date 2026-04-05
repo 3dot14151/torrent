@@ -1,3 +1,29 @@
+###  Публикация: 1420345   (333373) от 31.10.2020
+
+[Udemy] YouAccel Training | NGINX, Apache, SSL Encryption - Сертификационный Курс / NGINX, Apache, SSL Encryption - Certification Course (2020) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на наш новый курс, который проведет вас через процесс установки, защиты и настройки NGINX или Apache на веб-сервере Ubuntu. Вы также научитесь шифровать весь веб-трафик с помощью бесплатного SSL-сертификата от Let’s Encrypt.Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 03:38:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83293B7BDDC245094A4449FAEBE0555EA23B6EB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 955079   (333335) от 11.11.2015
 
 Михаил Дашкиев, Пётр Осипов (Бизнес-Молодость) | Третья сила: Ода безумцам и бунтарям (2014) HDRip [H.264/720p]
@@ -6,7 +32,7 @@
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333335.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333265.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Udemy | Создание ретро футуристичного автомоб�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333243.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333238.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333114.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333087.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332998.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332996.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ Expression Trip | Хардкорный курс по анимации с пом�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332987.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332912.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332765.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ Elementza, Mario Brajdich | Mastering 3D Modeling in Maya (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332764.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ Jan Urschel | Реалистичный сэт-дизайн в Blender 2.82 / Rea
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332417.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ Jan Urschel | Кинематографичный сэт-дизайн в Blender 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332357.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ Jan Urschel | Дизайн 3D окружения для производства
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332279.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ Jan Urschel | Создание скетча 3D окружения в Blender 2.9
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332278.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ AutoIt Guide RUS | Основы программирования на AutoIT (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331948.jpg" />
 </div>
 
 
@@ -460,7 +486,7 @@ StudyFoto | Красивый портрет «от и до»: съемка и о
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331945.jpg" />
 </div>
 
 
@@ -489,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331893.jpg" />
 </div>
 
 
@@ -515,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331805.jpg" />
 </div>
 
 
@@ -541,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331801.jpg" />
 </div>
 
 
@@ -567,7 +593,7 @@ Udemy, in28Minutes Official, Ranga Karanam | Java Programming for Complete Begin
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331655.jpg" />
 </div>
 
 
@@ -595,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331518.jpg" />
 </div>
 
 
@@ -622,7 +648,7 @@ Laracon Online | Laracon Online 2020. The official Laravel online conference (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331130.jpg" />
 </div>
 
 
@@ -649,7 +675,7 @@ Jan Urschel | Процедурные ландшафты в Blender 2.80 / Proced
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331127.jpg" />
 </div>
 
 
@@ -660,33 +686,6 @@ Jan Urschel | Процедурные ландшафты в Blender 2.80 / Proced
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E86D9492E64299088D362BDC4F210F10C01044C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420803   (331118) от 02.11.2020
-
-[TanStack] Tanner Linsley | React Query - Основы / React Query - Essentials (2020) PCRec [En]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331118.jpg" />
-</div>
-
-
-###  Подробнее
-
-Официальное и эксклюзивное руководство по освоению состояния сервера в ваших приложениях от первоначального создателя и сопровождающего библиотеки.
-В этом курсе вы узнаете, как использовать React Query в качестве предпочтительного оружия для победы и преодоления проблем и препятствий, связанных с состоянием сервера.Производство: TanStackЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 02:54:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:334E1BA67C025C5229915347D5640FC25C6E4884
 ```
 
 https://mybot314.ru/tekegram_catalog/

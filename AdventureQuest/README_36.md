@@ -1,3 +1,81 @@
+###  Публикация: 1159605   (554073) от 13.06.2019
+
+Botanicula (2012) [Ru/Multi] (1.2.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Botanicula – это наполненная юмором игра-приключение, созданная творцами отмеченной наградами игры Machinarium, студией Amanita Design и чешской группой DVA. Пять друзей, маленькие древесные создания, действия, разворачивающиеся в приключении по спасению последнего семени их родного дерева, зараженного злыми паразитами.Тип издания: RepackРазработчик: Amanita DesignЖанр: Adventure, Point-and-click, PuzzleЯзык озвучки: Специальный язык BotaniculaЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6379E6F4AF406F0EB7D4F2EE3E604AE9A8900958
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308434   (553865) от 14.06.2019
+
+Toki (2019) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возвращение чокнутой обезьяны — Токи отправляется в новое приключение! Культовый платформер в жанре экшен, впервые вышедший на игровых автоматах в 1989 году, возвращается в новой, великолепно «собезьяненной» версии! Она полностью перерисована вручную и целиком переработана! Воин Токи мирно живет в джунглях в компании своей возлюбленной Михо. Вдруг, откуда ни возьмись, (   Читать дальше...   )Тип издания: RepackРазработчик: MicroidsЖанр: Adventure, Action, Arcade, 2DЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BFDD756F407E9717345D71D9125C9149F78769E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236853   (553800) от 20.07.2018
+
+Figment (2017) [Ru/Multi] (1.1.5/dlc) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Figment — игра в жанре приключенческий боевик, где вам предстоит исследовать уникальную вселенную, полную музыки, юмора и сюжетных линий. Дасти и его неунывающая подружка Пайпер вместе пускаются в путешествие по разуму, разыскивая потерянную храбрость.Тип издания: LicenseРазработчик: Bedtime Digital GamesЖанр: Adventure, Puzzle, ActionЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E89984DA1481A8C5BD88CA695E1AA3B9A6D744E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1237151   (553150) от 22.07.2018
 
 Machinarium / Машинариум (2009) [Ru/Multi] (Build 2975-A/dlc) License PLAZA [Definitive Version]
@@ -6,7 +84,7 @@ Machinarium / Машинариум (2009) [Ru/Multi] (Build 2975-A/dlc) License 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553150.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Life is Strange 2 (2018) [Ru/Multi] (1.0) Repack R.G. Catalyst [Episodes 1-2]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550845.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Parvaneh: Legacy of the Light's Guardians (2016) [En] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550725.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ George's Memories (2018) [Ru/En] (1.0/upd1) License PLAZA [Episode 1]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550279.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Existentia (2016) [Ru/Multi] (1.0.3) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549789.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Bear With Me (2016) [Ru/Multi] (1.0) License POSTMORTEM [Episode 1]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548974.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ SCP 087. Re (2016) [En] (1.0 Remake) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548908.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ The Turing Test (2016) [En] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548898.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ Bear With Me (2016) [Ru/Multi] (5.2.2.22320) Repack Dok2 [Episode 1]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548008.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ Mages of Mystralia (2017) [Ru/Multi] (1.6.26515) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547746.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ The Raven: Legacy of a Master Thief (Episode 2: Ancestry of Lies) (2013) [En] (1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547173.jpg" />
 </div>
 
 
@@ -299,7 +377,7 @@ King's Quest: Chapter 1-3 (2015) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547055.jpg" />
 </div>
 
 
@@ -325,7 +403,7 @@ Ian’s Eyes (2016) [En/Es] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546388.jpg" />
 </div>
 
 
@@ -351,7 +429,7 @@ Ian’s Eyes (2016) [En/Es] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546296.jpg" />
 </div>
 
 
@@ -377,7 +455,7 @@ Joana’s Life (2016) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546220.jpg" />
 </div>
 
 
@@ -403,7 +481,7 @@ The Underground Man / Подземный человек (2016) [Ru/En] (1.0) Rep
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546171.jpg" />
 </div>
 
 
@@ -429,7 +507,7 @@ De-Void (2016) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545467.jpg" />
 </div>
 
 
@@ -455,7 +533,7 @@ De-Void (2016) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545328.jpg" />
 </div>
 
 
@@ -481,7 +559,7 @@ CURSE (2016) [En] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544629.jpg" />
 </div>
 
 
@@ -508,7 +586,7 @@ CURSE (2016) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544417.jpg" />
 </div>
 
 
@@ -535,7 +613,7 @@ Deluded Mind (2018) [Ru/Multi] (1.8.6) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544345.jpg" />
 </div>
 
 
@@ -561,7 +639,7 @@ The Sinking City (2019) [Ru/Multi] (3709.2/dlc) Repack xatab [Necronomicon Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544093.jpg" />
 </div>
 
 
@@ -587,7 +665,7 @@ P·O·L·L·E·N (2016) [Ru/Multi] (1.0.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544089.jpg" />
 </div>
 
 
@@ -598,84 +676,6 @@ P·O·L·L·E·N — атмосферная, захватывающая и вы�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E17B80634FEBFB68F29B46437ABF0FB02DBC0A9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049526   (543496) от 05.09.2016
-
-Hunted: One Step Too Far (2016) [En] (1.2) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543496.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы любите геокэшинг? Это - хороший способ избежать повседневной жизни. Вам нравится заниматься поисками одному и ночью? Действительно, это даст огромный прилив адреналина. Но, что Вы будете делать, когда Вы узнаете, что Вы не одни?Тип издания: RepackРазработчик: DK ProductionsЖанр: Adventure, 3D, 1st Person, IndieЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9124DA587D14FF8BBF0064582EBA0BC66886E347
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924880   (542258) от 05.08.2015
-
-Game of Thrones - A Telltale Games Series (2014) [Ru/En] (1.0.0.1) Repack R.G. Catalyst [Episode 1-5]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие игры развернется во временном промежутке между финалом третьего и началом пятого сезона телевизионного сериала. Дом Форрестер - одна из влиятельных семей, чья резиденция расположена на севере Вестероса. Они являются вассалами Старков, сильнейшего дома Севера. Главными героями игры станут пять героев, так или иначе связанных с домом Форрестер. По словам разработчиков, (   Читать дальше...   )Тип издания: RepackРазработчик: Telltale GamesЖанр: Adventure / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:734A3FBCD8DBF13162799F8DEE0A625348926DF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924861   (542238) от 05.08.2015
-
-Submerged (2015) [Ru/Multi] License RELOADED
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра Submerged на движке Unreal Engine 4 от бывших разработчиков игр серии Bioshock. Не боевая приключенческая игра от третьего лица, в которой вы исследуете таинственный затопленный город. Вы играете от лица Мику, молодой девушки, которая на маленькой рыбацкой лодке привезла своего раненого брата в этот город.Тип издания: ЛицензияРазработчик: Uppercut Games Pty LtdЖанр: Action, Adventure, 3D, 3rd Person, IndieЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Multi13Язык интерфейса: Русский, Английский, Multi13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37DFCBF951333BF967790CA139BF291B0536EA56
 ```
 
 https://mybot314.ru/tekegram_catalog/

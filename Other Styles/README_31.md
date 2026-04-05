@@ -1,3 +1,61 @@
+###  Публикация: 999700   (861972) от 23.03.2016
+
+Иеродиакон Герман (Рябцев) - Псалмы Давидовы (2001) 5CD Box Set [FLAC|Lossless|image + .cue] <Песнопение>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Псалтирь — это одна из книг Библии. Псалмы являются неотъемлемой частью богослужения в храме и молитвенного правила православных христиан. В псалмах ярко выражены многие чувства и переживания человека: покаяние и смирение, сознание своего недостоинства перед величием Божиим, благодарение за Его великие милости, надежда на милосердие Вседержителя и взывание к Нему (   Читать дальше...   )CD 1
+01. Начало обычное (01:24)
+02. Тропари, глас 6 (01:39)
+03. Господи, помилуй. 40 (00:43)(   Читать дальше...   )Жанр: ПеснопениеПродолжительность: 01:03:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7B654B730D7CA4C8F943253B71D78BA7DE6F5ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 276517   (861540) от 16.04.2020
+
+Максим Дунаевский - Мэри Поппинс, до свидания! (1985) [APE|Lossless]<OST>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Увертюра (2:40)
+ 02. Непогода (3:12)
+ 03. Ожившее пианино (0:48)
+ 04. Леди Совершенство (2:35)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:35:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBB3C06F13106BA441B27A9DDC2BF58FDD299D43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 189811   (861059) от 06.04.2010
 
 Atlas - Прогревочный и размагничивающий диск (2006) [FLAC|Lossless]<Test>
@@ -6,7 +64,7 @@ Atlas - Прогревочный и размагничивающий диск (2
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861059.jpg" />
 </div>
 
 
@@ -32,7 +90,7 @@ The City of Prague Philharmonic Orchestra - The Game of Thrones Symphony (2017) 
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860759.jpg" />
 </div>
 
 
@@ -61,7 +119,7 @@ The City of Prague Philharmonic Orchestra - The Game of Thrones Symphony (2017) 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860664.jpg" />
 </div>
 
 
@@ -90,7 +148,7 @@ David Arkenstone - The Delicate Balance (2020) EP [FLAC|Lossless|WEB-DL|tracks] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859982.jpg" />
 </div>
 
 
@@ -119,7 +177,7 @@ Ken Yang - Meet the Sky (2001) [FLAC|Lossless|tracks] <International, New Age, E
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859324.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ VA - Romantic Collection - Nordic (2002) [FLAC|Lossless|image + .cue] <Instrumen
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859067.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ E.S. Posthumus - Unearthed (2001) [FLAC|Lossless|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859007.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ Floex (Tomas Dvorak) - Samorost 3 (2016) [FLAC|Lossless|WEB-DL] <Soundtrack, Dow
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858865.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ Paul Mauriat - Transparence & Serenade (1985,1989) Reissue, 2017 [FLAC|Lossless|
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857162.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ Theodor Bastard - Волчья Ягода (2020) [MP3|320 Kbps] <Trip Hop, Folk 
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856665.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ Amy Shreve - Pray (2006) [FLAC|Lossless|tracks] <New Age, Instrumental>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855823.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ Satyaa - Satyaa Sings Kundalini Yoga Mantras (2011) [MP3|320 Kbps] <New Age, Yog
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855566.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ VA - T2 Trainspotting (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855213.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ Ansia Orchestra - The Order, Vol. 1 (2020) [MP3|320 Kbps] <dubchestral, soundtra
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854917.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ Mick Gordon - DOOM Eternal (Original Game Soundtrack) (2020) [FLAC|Lossless|WEB-
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854787.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ Henry Mancini - The Pink Panther (1963) [MP3|320 kbps]<Jazz/Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854726.jpg" />
 </div>
 
 
@@ -473,7 +531,7 @@ Mick Gordon - DOOM Eternal (Original Game Soundtrack) (2020) [MP3|320 кб/с]<S
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854699.jpg" />
 </div>
 
 
@@ -502,7 +560,7 @@ John Murphy - 28 недель спустя / 28 Weeks Later (2007) [MP3|320 kbps
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854654.jpg" />
 </div>
 
 
@@ -537,7 +595,7 @@ Mick Gordon - DOOM Eternal (Original Game Soundtrack) (2020) [FLAC 2.0|48/24|tra
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854588.jpg" />
 </div>
 
 
@@ -566,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853994.jpg" />
 </div>
 
 
@@ -595,7 +653,7 @@ Isgaard - Whiteout (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <New-Age, Сrosso
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853735.jpg" />
 </div>
 
 
@@ -624,7 +682,7 @@ VA - The Best of Instrumental Music (2004) Compilation [FLAC|Lossless|image + .c
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853606.jpg" />
 </div>
 
 
@@ -653,7 +711,7 @@ Various - Полонезы И Вальсы Русских Композиторо
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853020.jpg" />
 </div>
 
 
@@ -688,7 +746,7 @@ John Hermanson - Music for Sleep (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852107.jpg" />
 </div>
 
 
@@ -702,64 +760,6 @@ John Hermanson - Music for Sleep (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8BF03158A5037520E18CE51D23A2AC4DB8C0CE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110628   (852095) от 03.03.2017
-
-Manu Delago - Metromonk (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, World, Ambient, Hang>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Step (4:39)
-02. Between Oil And Water (4:55)
-03. Freeze (3:52)
-04. Pointillism (6:00)(   Читать дальше...   )Жанр: New Age, World, Ambient, HangПродолжительность: 00:47:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:118E70CA854E68EAC6622A71D2B5D164B16CBA11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110624   (852093) от 03.03.2017
-
-Light? - Pink & Grey (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Traditional Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pink#1 (8:24)
-02. Pink#2 (6:14)
-03. Pink#3 (9:30)
-04. Grey#1 (11:07)(   Читать дальше...   )Жанр: New Age, Traditional ElectronicПродолжительность: 00:47:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0D1E302B6819583F358C4112E7D21C8765479CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

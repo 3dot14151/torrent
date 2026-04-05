@@ -1,3 +1,55 @@
+###  Публикация: 1683479   (31119) от 13.01.2025
+
+Lords of the Fallen (2023) [Ru/Multi] (1.7.19/dlc) Repack Decepticon
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31119.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lords of the Fallen приглашает игроков в мрачный мир фэнтези, где вы станете одним из легендарных Темных крестоносцев и будете бороться против бога-демона Адира. Lords of the Fallen - это эпическое приключение на огромной территории, которая в пять раз больше мира оригинальной игры. Адир терзал страну много веков, и теперь его нужно свергнуть снова. Пройдите по миру (   Читать дальше...   )Тип издания: RepackРазработчик: HEXWORKSЖанр: Action, Adventure, RPGЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1833F4260FBD5DED586A48C6B5C1A4ECB75B28EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773002   (31113) от 13.01.2025
+
+The Redundant (2025) [Ru/Multi] (build 16931999) Repack seleZen
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Станьте на место заброшенного робота в игре The Redundant - захватывающем приключенческом экшене с различными способами прохождения. Попробуйте себя в роли CF5 - заброшенного робота на таинственном объекте, который осаждают полчища пораженных вирусом машин. По мере исследования объекта вы распутаете запутанную историю, изолируя каждую секцию от сети, пока не стало (   Читать дальше...   )Тип издания: RepackРазработчик: 7gizmo LtdЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABEA12E3CB8242504239189ADAE83E86CE9BEA92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1773014   (31110) от 13.01.2025
 
 Status One (2025) [Ru/Multi] (1.0.0) Repack seleZen
@@ -6,7 +58,7 @@ Status One (2025) [Ru/Multi] (1.0.0) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31110.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Bloodstained Ritual of the Night (2019) [Ru/Multi] (1.06/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31095.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Megaloot (2024) [Ru/Multi] (1.14) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31090.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Book of Demons (2018) [Ru/Multi] (1.05.230215/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31087.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Status One (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30956.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Umbra: The Last Summoner (2025) [Ru/Multi] (1.0а) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30799.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Umbra: The Last Summoner (2024) [Ru/Multi] (build 16881986) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30685.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Umbra: The Last Summoner (2024) [Ru/Multi] (1.0a) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30662.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Umbra: The Last Summoner (2024) [Ru/Multi] (build 16881986) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30639.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ DYSMANTLE (2021) [Ru/Multi] (1.4.0.41/dlc) Repack FitGirl [Complete Bundle]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30460.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Final Fantasy VII Remake Intergrade (2021) [Ru/Multi] (1.005/dlc) Repack Wanterl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30292.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Tales of Graces f Remastered (2025) [Ru/Multi] (1.0.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30277.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ The Redundant (2025) [Ru/Multi] (Build 17094745) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30091.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Perennial Order (2024) [Ru/Multi] (1.0.3) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30044.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (1417829 Patch 5/dlc) Repack Let'sР
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29975.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Deepest Chamber: Resurrection (2021) [Multi] (1.088) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29942.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Nienix: Cosmic Warfare (2023) [Ru/Multi] (1.099) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29868.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ The Outer Worlds (2023) [Ru/Multi] (1.4/dlc) Repack Let'sРlay [Spacer’s Choic
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29852.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Persona 4 Golden (2020) [Ru/En] (build 5111251) Repack Wagner
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29837.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ The Thaumaturge (2024) [Ru/Multi] (73.488) Repack Let'sРlay [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29828.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Cyberpunk 2077 (2020) [Ru/Multi] (2.21/dlc) Repack seleZen [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29718.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Adore (2023) [Ru/Multi] (1.0.0.3) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29618.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Noita (2019) [Ru/Multi] (20250125-1640) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29551.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ VED (2024) [Ru/Multi] (1.0.2) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29536.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ VED — это сюжетное RPG, сочетающее вручную нар�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9B69F037546983707DB8D39549EF0038F01F909
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775720   (29525) от 28.01.2025
-
-Enotria: The Last Song (2024) [Ru/Multi] (1.007) Scene Rune
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Захватывающая игра в стиле Souls, разворачивающаяся в солнечной стране, вдохновленной итальянским фольклором и полной опасностей. Мир охвачен Кановаччо - безумной вечной пьесой, которая держит мир в неестественном стазисе. Вы, существо без маски, единственный свободный от навязанной роли и хозяин своей судьбы. Победите могущественных Авторов, создавших пьесу, и выведите (   Читать дальше...   )Тип издания: SceneРазработчик: Jyamma GamesЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Английский, Итальянский, ЯпонскийЯзык субтитров: Русский, Английский, Итальянский, Японский и другиеЯзык интерфейса: Русский, Английский, Итальянский, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ACF22400544052BD16CF3743EEFF25948050653
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775723   (29501) от 28.01.2025
-
-WonderLang Spanish (2025) [En] (0.9) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в WonderLang, где изучение испанского языка превращается в увлекательное ролевое путешествие. Погрузитесь в увлекательные квесты, интерактивные диалоги и забавные головоломки, призванные сделать изучение языка легким и приятным. WonderLang вплетает язык в основу своих приключений и захватывающего повествования. Погрузитесь в Wonderlang, чтобы: исследуете, (   Читать дальше...   )Тип издания: RepackРазработчик: bair gamesЖанр: Казуальные игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45524D711C14283BE8304545A87BAE203C9C6215
 ```
 
 https://mybot314.ru/tekegram_catalog/

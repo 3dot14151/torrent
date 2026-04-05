@@ -1,3 +1,56 @@
+###  Публикация: 965455   (225863) от 14.12.2015
+
+Виктор Запаренко | Поиграем в сказку. Щелкунчик. Снежная королева. Книга-игра. 6-8 лет (2002) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225863.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия «Поиграем в сказку» создана для любопытных детей и их родителей. Ведь такую книжку нужно не только прочитать, но и решить различные задания – кроссворды, лабиринты, шифры, рисунки по точкам и другие. К тому же эти сказки оригинальны и мало чем напоминают классический вариант, который известен всем с детства. Поэтому их будет любопытно прочитать не только детям, (   Читать дальше...   )Жанр: Игры, развлеченияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:048CFF5EC5FF570E81D9FD52C1001C7D9CC56E1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342097   (225850) от 01.12.2019
+
+Питер Банзл | Механическое сердце (2019) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Захватывающий приключенческий роман молодого английского писателя Питера Банзла.
+Викторианская Англия, 1896 год. Лили Хартман в смертельной опасности. Отец девочки исчез, а саму ее преследуют жуткие люди с серебряными глазами. Что же им от нее понадобилось? Лили и ее друзьям – Роберту, сыну часовщика, и механическому лису Малкину – предстоит пережить удивительные (   Читать дальше...   )Жанр: Приключения для детей и подростковФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF709D72EA8147F7A7202988C539A73B72427D34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 965585   (225806) от 14.12.2015
 
 Валерия Фадеева | Массаж и гимнастика для самых маленьких от рождения до года (2011) [FB2]
@@ -6,7 +59,7 @@
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225806.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225718.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225648.jpg" />
 </div>
 
 
@@ -89,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225565.jpg" />
 </div>
 
 
@@ -116,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225535.jpg" />
 </div>
 
 
@@ -142,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225495.jpg" />
 </div>
 
 
@@ -169,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225455.jpg" />
 </div>
 
 
@@ -196,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225292.jpg" />
 </div>
 
 
@@ -222,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225216.jpg" />
 </div>
 
 
@@ -248,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224998.jpg" />
 </div>
 
 
@@ -274,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224813.jpg" />
 </div>
 
 
@@ -301,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224765.jpg" />
 </div>
 
 
@@ -327,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224732.jpg" />
 </div>
 
 
@@ -353,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224729.jpg" />
 </div>
 
 
@@ -379,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224723.jpg" />
 </div>
 
 
@@ -406,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224692.jpg" />
 </div>
 
 
@@ -432,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224566.jpg" />
 </div>
 
 
@@ -459,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224551.jpg" />
 </div>
 
 
@@ -485,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224550.jpg" />
 </div>
 
 
@@ -511,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224496.jpg" />
 </div>
 
 
@@ -537,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224447.jpg" />
 </div>
 
 
@@ -563,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224437.jpg" />
 </div>
 
 
@@ -589,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224431.jpg" />
 </div>
 
 
@@ -615,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224384.jpg" />
 </div>
 
 
@@ -626,60 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:030A9C9613B3F2674BA05C8E13BBCD58BB995EEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425179   (224375) от 19.11.2020
-
-Александр Тихонов | Всё для детского сада. Детёныши животных (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224375.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Детёныши животных" - следующая замечательная книга из серии "Всё для детского сада". Отличный текст, яркие фотографии и рисунки непременно вызовут у детей живой отклик, а это самое главное - вызвать интерес к природе и животному миру в самом маленьком возрасте!
-
-Детёныши животных всегда привлекают внимание малышей — ведь у них столько схожего! (   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:745C4E3691D4A5877BDA79EE5C95C59AA8E09A7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 736523   (224324) от 20.12.2013
-
-Юлия Иванова | Петергоф. Столица фонтанов (2013) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга — о знаменитых фонтанах Петергофа. Смело берите её в руки и отправляйтесь искать таинственные секреты шуточных фонтанов Петра Первого. Посетителей чудесного парка ждут многочисленные сюрпризы: «мочильная дорога», брызгающиеся скамейки и другие приключения. Вы познакомитесь с такими чудесами, как стол-самобранка, парящее кресло, и узнаете, как любил пошутить над гостями первый русский император.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CCC521EA6E1CB51CD918FE6330196936277BFC0
 ```
 
 https://mybot314.ru/tekegram_catalog/

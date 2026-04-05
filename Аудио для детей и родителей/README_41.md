@@ -1,3 +1,29 @@
+###  Публикация: 1033846   (636137) от 12.07.2016
+
+Пауль Маар | Семь суббот на неделе (2016) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636137.jpg" />
+</div>
+
+
+###  Подробнее
+
+Субастик - волшебный персонаж, выдуманный великолепным немецким писателем Паулем Мааром, - стал героем его нескольких детских книг. Это необычное существо, не переставая удивлять всех своей находчивостью и изобретательностью, меняет жизнь и характеры окружающих его людей - и детей, и взрослых.Жанр: Повесть-сказкаПродолжительность: 03:33:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:422040E9A74FEEC8C3110A20130CC83A322A698C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1542884   (635337) от 08.04.2022
 
 Сергей Непушкин | Ёлкин кот! (2018) [MP3, Татьяна Янчук (yantat)]
@@ -6,7 +32,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635337.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632213.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632128.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632047.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631916.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631899.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631621.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Twinkle Twinkle Little Rock Star - Lullaby Versions of Red Hot Chili Peppers (20
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631531.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631328.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630210.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ VA - Sweet Dreams Tonight (2005) [MP3|128 kbps]<Колыбельные песе�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629950.jpg" />
 </div>
 
 
@@ -304,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629935.jpg" />
 </div>
 
 
@@ -332,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629828.jpg" />
 </div>
 
 
@@ -359,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627643.jpg" />
 </div>
 
 
@@ -385,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627307.jpg" />
 </div>
 
 
@@ -414,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626167.jpg" />
 </div>
 
 
@@ -443,7 +469,7 @@ VA - Союз детский 4 (2018) [MP3|320 Kbps] <Детские песни>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626036.jpg" />
 </div>
 
 
@@ -472,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626029.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625945.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625611.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623917.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623759.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ VA - Энциклопедия для детей. Музыка от эпохи В
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623032.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622820.jpg" />
 </div>
 
 
@@ -663,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622808.jpg" />
 </div>
 
 
@@ -674,32 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:088813D59AB69FDAFC93C850D3EFC1944EB2AE54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035986   (622806) от 19.07.2016
-
-Серж Брюссоло | Бабочка из бездны (2014) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мимо этой маленькой деревушки поезда ходят без остановки. Но если кто-то по странной случайности решил там сойти, то делать это надо поскорее, потому что, ни один пассажир не хочет задерживаться в краю гроз, взрывоопасных яблонь, красных тигров и колдунов. Именно туда, в гости к бабушке Кэтти, отправилась Пегги Сью со своим другом — синим псом. Им предстоит разгадать (   Читать дальше...   )Жанр: Детская фантастика, фэнтезиПродолжительность: 07:06:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99507A5F005325A61589F44C6D0B34837CBB1221
 ```
 
 https://mybot314.ru/tekegram_catalog/

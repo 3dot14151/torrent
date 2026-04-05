@@ -1,3 +1,81 @@
+###  Публикация: 992967   (898490) от 03.03.2016
+
+Agatha Christie's The ABC Murders (2016) [Ru/En] (1.02) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ваше оружие - это ваше знание. Ваша сообразительность подвергнется наивысшему испытанию! ABC Murders - это приключенческая игра с расследованиями, созданная по мотивам классического романа Агаты Кристи. Игрок выступает в роли знаменитого Эркюля Пуаро в полной тайн приключенческой игре с перспективой от 3-го лица.Тип издания: LicenseРазработчик: Microïds и artefacts-studioЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BC05B887CBED5911E1A8FBC66E866F19CDB20FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493238   (896956) от 02.09.2021
+
+The Frosts: First Ones (2021) [Ru/En] (1.0.1) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключение о поиске пропавшего охотника и встрече с внеземным разумом! Исследуй дикую природу. Взберись на скалу, вымани кабана, встреться с волчицей и выживи в камнепаде. Помоги оленям и перехитри чудовище! Встреть Неизвестное и раскрой тайну!Тип издания: RepackРазработчик: Ivan SukhanovЖанр: Adventure (Top-Down)Язык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB14BC1F30F4AFD78B8CA88E834E644D35F86807
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493264   (896826) от 02.09.2021
+
+Lake (2021) [Ru/Multi] (1.0.1) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896826.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 сентября 1986 года. Вы играете за Мередит Вайс — ей сорок с небольшим, она вернулась домой из большого города. Карьеру в компании по разработке программного обеспечения она поставила на паузу, чтобы помочь отцу, местному почтальону. За две недели в прекрасном Провиденс Окс в штате Орегон она встретит старых знакомых и множество новых людей. Играя за Мередит, вы (   Читать дальше...   )Тип издания: RepackРазработчик: GamiousЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C25BD4D12A2961DC49D21D4215D60E5E53004844
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993306   (896781) от 04.03.2016
 
 The Interactive Adventures of Dog Mendonça & Pizzaboy (2016) [Ru/Multi] (1.0.3) License GOG
@@ -6,7 +84,7 @@ The Interactive Adventures of Dog Mendonça & Pizzaboy (2016) [Ru/Multi] (1.0.3)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896781.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Amnesia. The Dark Descent / Амнезия. Призрак прошлого (201
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895400.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Jotun (2015) [Ru/Multi] (1.0 u#2) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895009.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Backstreets of the Mind (2016) [Ru/En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894997.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Silence: The Whispered World 2 (2016) [Ru/Multi] (1.2.20280 Hotfix) SteamRip Let
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893871.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Her Story (2015) [Ru/En] (1.0) Repack MasterDarkness
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890707.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Stonefly (2021) [Multi] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890174.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Find Out (2016) [En] (1.0) Repack Mr.Weegley
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889069.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Aura 2: Sacred Rings / Аура 2: Кольца судьбы [Ru] (P) 2007
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886826.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ The Complex (2020) [Ru/Multi] (PUBLIC 911) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886429.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ The Medium (2021) [Ru/Multi] (1.0.184) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885454.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Leisure Suit Larry 6: Shape Up or Slip Out (1994) [En] (1.000.000) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885124.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Moons of Madness (2019) [Ru/Multi] (1.02) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884571.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ The Coma 2: Vicious Sisters (2020) [Ru/Multi] (1.0.6/dlc) Repack Other s [Deluxe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884565.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ The Rewinder (2021) [Multi] (1.26.5) License TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884118.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ The Artful Escape (2021) [Ru/Multi] (7272069) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883914.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ The Guest (2016) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883908.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ The Guest (2016) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883835.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Blues and Bullets - Episode 2 (2016) [En] (1.0) Repack Mr.Weegley
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883821.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Figment (2017) [Ru/Multi] (1.4.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883140.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Darksiders Genesis (2019) [Ru/Multi] (1.04) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883051.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Last Will (2016) [En] (1.0) License HI2U [Episode 1-4]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882910.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Leisure Suit Larry: Reloaded (2013) [Ru/Multi] (2.1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882678.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Leisure Suit Larry: Reloaded (2013) [Ru/Multi] (2.1.2) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A24BD408EC347E4A94987D665F766E07A1C9CC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995907   (882051) от 12.03.2016
-
-Red Comrades Save the Galaxy: Reloaded / Петька и Василий Иванович спасают галактику: Перезагрузка (2016) [Ru/En] (1.0) License TiNYiSO
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя почти 17 лет мы возвращаем вам истинную классику Российской игровой индустрии, переработанную под современные платформы. Игра сохранила оригинальную графику и озвучение, но игровой код полностью переработан под Unity. Игра адаптирована под широкоформатные экраны, исправлена анимация и устранены старые недочеты, добавлены достижения и коллекционные карточки (   Читать дальше...   )Тип издания: LicenseРазработчик: Buka DevelopmentЖанр: Adventure, Quest, Point-and-clickЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:103D93351D650A6BBA27F43B40BD1C2AB549151A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988562   (882039) от 12.03.2016
-
-The Old City: Leviathan (2014) [Ru/En] (28.02.2016) Repack R.G. Механики
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Угасающий город цивилизации далекого прошлого. Обитающий в канализациях отшельник и его жажда к знаниям. Забытое детство и несколько оставшихся воспоминаний. Перенося игрока в окраины давно заброшенного мегаполиса, The Old City: Leviathan предлагает повествование на основе поэтических размышлений протагониста и атмосферного саундтрека.Тип издания: RepackРазработчик: PostMod SoftworksЖанр: Adventure, IndieЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A08513002410458919B6425968F06A877DE1558F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104393   (880965) от 14.02.2017
-
-Dreamfall Chapters (2014) [Ru/Multi] (5.4.1.1) SteamRip Let'sPlay [Special Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880965.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dreamfall Chapters — это сюжетно-ориентированная эпизодическая адвенчура о выборе и последствиях, сновидениях и реальности, магии и науке, хаосе и порядке, а также сломленных героях, действия которых могут изменить ход истории во всех мирах. Действие игры разворачивается в двух параллельных мирах.Тип издания: SteamRipРазработчик: Red Thread Games, Blink StudiosЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:731099B06D2091F78A476A3614512AC839DDFB0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

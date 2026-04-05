@@ -1,3 +1,59 @@
+###  Публикация: 1015477   (774198) от 11.05.2016
+
+CodeKit 2.8 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774198.jpg" />
+</div>
+
+
+###  Подробнее
+
+CodeKit помогает вам создавать веб-сайты быстрее и лучше.
+CodeKit умеет компилировать Less, Sass, Stylus, CoffeeScript, Typescript, Jade, Haml, Slim, Markdown & Javascript; оптимизировать, минифицировать, сжимать все то, что можно оптимизировать, минифицировать и сжать; проверять синтаксис JavaScript и CoffeeScript; создавать LiveReload соединение, которое будет (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 10 мая 2016Разработчик: Bryan D K JonesПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD21329C6125ED558C3024C27E59DADA40A35967
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015594   (774117) от 11.05.2016
+
+Chroma 1.0 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chroma даст вам естественно гармоничные цвета из изображений.
+Не каждый может легко подобрать подходящие цвета. Chroma снимает головную боль, автоматически создавая палитру цветов из ваших изображений. Chroma использует расширенные возможности цвета вашего Мака для создания цветовых палитр, которые, естественно, совместимы и прекрасно сбалансированы.
+
+ Chroma поддерживает (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 10 мая 2016Разработчик: SoftpressПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0239995B701BE96CD2E181D95D08B3EFCB95E7F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015616   (774050) от 11.05.2016
 
 Jetico BestCrypt 2.0.0 [En]
@@ -6,7 +62,7 @@ Jetico BestCrypt 2.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774050.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ Anatomy & Physiology 3.0.17 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773985.jpg" />
 </div>
 
 
@@ -59,7 +115,7 @@ Human Anatomy Atlas – 3D Anatomical Model of the Human Body 7.4.01 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773836.jpg" />
 </div>
 
 
@@ -85,7 +141,7 @@ Microsoft Office Standard 2016 v15.22 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773828.jpg" />
 </div>
 
 
@@ -112,7 +168,7 @@ Fax Templates for Pages 1.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773530.jpg" />
 </div>
 
 
@@ -140,7 +196,7 @@ MWeb: Markdown writing, note taking, static blog generator 3.4.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773244.jpg" />
 </div>
 
 
@@ -167,7 +223,7 @@ Certificate Templates - DesiGN 2.0.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773165.jpg" />
 </div>
 
 
@@ -195,7 +251,7 @@ Cabinet - Quick access for your photos 1.0.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772981.jpg" />
 </div>
 
 
@@ -224,7 +280,7 @@ Particles for Cocos2d 2.4.1 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772568.jpg" />
 </div>
 
 
@@ -253,7 +309,7 @@ Kolor Panotour Pro 2.5.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772284.jpg" />
 </div>
 
 
@@ -279,7 +335,7 @@ Cashew 1.10.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772106.jpg" />
 </div>
 
 
@@ -308,7 +364,7 @@ Circus Ponies NoteBook 4.0.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771589.jpg" />
 </div>
 
 
@@ -335,7 +391,7 @@ iStatistica 1.2.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771482.jpg" />
 </div>
 
 
@@ -364,7 +420,7 @@ DaVinci Resolve Studio 16.2.3 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771258.jpg" />
 </div>
 
 
@@ -393,7 +449,7 @@ Hot Door CADtools 10 for Adobe Illustrator 10.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771084.jpg" />
 </div>
 
 
@@ -419,7 +475,7 @@ Tooth Fairy 2.6.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770687.jpg" />
 </div>
 
 
@@ -446,7 +502,7 @@ Aktuell - RSS news reader 2.6 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770393.jpg" />
 </div>
 
 
@@ -475,7 +531,7 @@ Mail Stationery 2.2.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769625.jpg" />
 </div>
 
 
@@ -503,7 +559,7 @@ OS X Server 4.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769596.jpg" />
 </div>
 
 
@@ -531,7 +587,7 @@ Toolbox for Pages 2.2.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769569.jpg" />
 </div>
 
 
@@ -559,7 +615,7 @@ Toolbox for Keynote 2.2.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769549.jpg" />
 </div>
 
 
@@ -587,7 +643,7 @@ iClipboard 6.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769539.jpg" />
 </div>
 
 
@@ -616,7 +672,7 @@ Periscope Pro 3.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769532.jpg" />
 </div>
 
 
@@ -645,7 +701,7 @@ Toolbox for MS Office 2.2.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769517.jpg" />
 </div>
 
 
@@ -657,59 +713,6 @@ Toolbox for MS Office предлагает многочисленные возм
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53CBD4FEB77308C0F080B27DEE2F3C64BD7A3F44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016766   (769438) от 15.05.2016
-
-Wondershare Dr.Fone for iOS 7.0.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dr.Fone для iOS - восстанавливаем утерянные данные
-Случайно удалили что-то важное на вашем iPhone? Потеряли или сломали ваше устройство IOS? Нет необходимости паниковать! Dr.Fone (полностью совместим с прошивкой 7.1.0), ваш эксперт восстановления данных с мобильных устройств, чтобы помочь вам восстановить ценные данные, которые, как вы думали, вы потеряли навсегда. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 03 апреля 2016Разработчик: WondershareПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A313A6B42A8EF32DF5D4F3B5D61EF62E2101B0E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392449   (769399) от 25.06.2020
-
-NoteApp 1.0.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769399.jpg" />
-</div>
-
-
-###  Подробнее
-
-NoteApp - это текстовый редактор для тех пользователей, которым нужно что-то действительно простое, но красивое. Приложение работает с текстовыми файлами *TXT, не поддерживает форматирование текста. Может использоваться как в  светлом так и  и темном режиме. NoteApp не поддерживает «markdown».Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: ApptoriumПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAFF2E6AE42A099820D70E6287DDD4055DE1A8DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

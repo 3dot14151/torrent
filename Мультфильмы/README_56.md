@@ -1,3 +1,133 @@
+###  Публикация: 754771   (931826) от 08.02.2014
+
+Любимец публики (1937) TVRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пропаганда подлинно народного искусства вместо халтурных псевдоцыганских мотивов и фокстротов.Производство: СССР / СоюзмультфильмЖанр: рисованная анимация, детский, короткометражныйРежиссер: Александр ИвановАктеры: Владимир Хенкин (озвучивание)Субтитры: отсутствуютПродолжительность: 00:09:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B890C29D85C0C016CA69B862150DD72E8C8C26C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365221   (931811) от 06.03.2020
+
+Приключения Флика / Жизнь жуков / A Bug's Life (1998) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931811.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вместе с забавным муравьём Фликом вы совершите путешествие в поисках храброго отряда воинов! Флик ищет добровольцев, готовых помочь ему победить агрессивных кузнечиков, угрожающих покою его большой семьи. Когда вместо воинов Флик находит лишь неуклюжую труппу цирковых жуков, единственной его надеждой на победу остаётся крепкая дружба и потрясающая сила воображения.Производство: США / Pixar Animation Studios, Walt Disney PicturesЖанр: Мультфильм, комедия, приключения, семейныйРежиссер: Джон Лассетер, Эндрю СтэнтонАктеры: Дэйв Фоли, Кевин Спейси, Джулия Луис-Дрейфус, Хайден Панеттьери, Филлис Диллер, Ричард Кайнд, Дэвид Хайд Пирс, Джо Рэнфт, Дэнис Лири, Джонатан ХаррисПеревод: Дублированный (Лицензия), профессиональный (многоголосый, двухголосый), Авторский (одноголосый)Субтитры: Русские (full, SDH), английскиеПродолжительность: 01:34:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F48F59E9BC023615B234E22FDC193FE17AE1808
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365075   (931801) от 06.03.2020
+
+Питер Пэн / Peter Pan (1953) BDRip [H.265/1080p-LQ] [10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уолт Дисней зовет нас с собой в волшебную страну Неверленд, где живет удивительный мальчик, который умеет летать и отказывается взрослеть. Это веселый выдумщик, храбрец и проказник Питер Пэн!Производство: США / Walt Disney Productions, Walt Disney Animation StudiosЖанр: мультфильм, мюзикл, фэнтези, приключения, семейныйРежиссер: Клайд Джероними, Уилфред Джексон, Хэмильтон ЛаскиПеревод: ДублированныйСубтитры: Русские (форсированные + форс. на песни, полные), украинские, английские (форсированные на песни, полные, SDH)Продолжительность: 01:16:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC2A3B7ADAE448739215055E5AAC47252206AEFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 862075   (931780) от 22.01.2015
+
+Как было написано первое письмо (1984) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931780.jpg" />
+</div>
+
+
+###  Подробнее
+
+О том как маленькая Тафи нарисовала письмо и что из этого вышло…Производство: СССР, КиевнаучфильмЖанр: ДетскийРежиссер: Анатолий КирикПродолжительность: 00:09:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F0DB475B85C286776235CE529E264E362EEE1CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986069   (931721) от 13.02.2016
+
+Лего. Лучшие подружки. / LEGO Friends: Girlz 4 Life (2016) BDRip [H.264/720p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красочный полнометражный мультфильм по мотивам популярного мультсериала LEGO «Подружки из Хартлейк Сити». «LEGO Friends: Лучшие подружки» – история приключений пяти очень разных, но очень дружных девочек, живущих в лего-городке. У каждой из них есть свое увлечение: Миа, например, обожает животных, Эмма самая спортивная, Оливия – настоящий изобретатель, Андреа танцует (   Читать дальше...   )Производство: США, М2 EntertainmentЖанр: Компьютерная анимация, Детский, МузыкальныйРежиссер: Кристиан Чесхаир, Томас Миккельсен, Даррен КэмпбелАктеры: Эрика Мендез, Милли О'Коннор, Марианна Миллер, Рэйчел Хэгер, Алекса КанПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:19:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:224029696A50C2BE4C5624FCD560278509ABCA1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 285731   (931686) от 23.01.2011
 
 Анимированные истории Нового Завета (Иисус, Сын Божий / Хлеб, посланный с Небес) (1998) DVDRip
@@ -6,7 +136,7 @@
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931686.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931521.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931419.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931392.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931335.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931333.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931300.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931259.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931244.jpg" />
 </div>
 
 
@@ -242,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931110.jpg" />
 </div>
 
 
@@ -268,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931076.jpg" />
 </div>
 
 
@@ -294,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931074.jpg" />
 </div>
 
 
@@ -320,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931069.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931033.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930314.jpg" />
 </div>
 
 
@@ -398,7 +528,7 @@ The Beatles: Оркестр Клуба одиноких сердец сержа�
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930131.jpg" />
 </div>
 
 
@@ -424,7 +554,7 @@ Halo: Падение Предела / Halo: The Fall of Reach (2015) HDRip
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929956.jpg" />
 </div>
 
 
@@ -450,7 +580,7 @@ Halo: Падение Предела / Halo: The Fall of Reach (2015) BDRip [H.26
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929831.jpg" />
 </div>
 
 
@@ -476,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929694.jpg" />
 </div>
 
 
@@ -502,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929671.jpg" />
 </div>
 
 
@@ -528,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929667.jpg" />
 </div>
 
 
@@ -539,137 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:034B623557873B9BE05390C38FE93D1F8F4B6C16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 755004   (929665) от 09.02.2014
-
-В гости к сказке: Непослушный козленок. Сборник мультфильмов (1947-1953) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник отечественных мультипликационных фильмов для детей. В него вошли: Непослушный козленок, Непослушный котенок, Квартет, Веселый огород, Каштанка, Новогодняя ночь.Жанр: Мультфильм, рисованный, детский, басня, русская сказкаРежиссер: Шалва Гедеванишвили, Теймураз Микадзе, Мстислав Пащенко, Александр Иванов (II), Владимир Сутеев, Михаил Цехановский, Ольга Ходатаева, Пётр НосовПродолжительность: 6 х ~ 00:13:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D778949455F5744FCEE0D235BF60E55A52DF5A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 754977   (929622) от 09.02.2014
-
-В гости к сказке: Дом для леопарда. Сборник мультфильмов (1970-1989) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929622.jpg" />
-</div>
-
-
-###  Подробнее
-
-У всех зверей, кроме леопарда, были свои дома. А семья леопарда пряталась от непогоды под деревом, а сам он просто сидел в луже и мок под дождём. Сначала его пристыдил, проходивший мимо заяц, потом добавила жару жена-леопардиха. И он решил обзавестись собственным домом. А так как строить леопард не умел, то решил занять чужой дом. Попытка завоевать дом кротов закончилась (   Читать дальше...   )Жанр: Мультфильм, кукольный, рисованныйРежиссер: Анатолий Резников, Дмитрий Бабиченко, Мария Муат, Марианна Новогрудская, Владимир Самсонов, Натан Лернер, Юрий ТрофимовПродолжительность: 8 х ~ 00:13:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7BB93C8DC47875DE5B3187A31D998B59269E6B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 755085   (929601) от 09.02.2014
-
-Дядя Степа (1939) TVRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм создан по мотивам одноименного произведения С. Михалкова. Про районного великана дядю Степу, который дружит с детишками, по воскресеньям гуляет с ними за городом, помогает попавшим в беду.Производство: СССР, СоюзмультфильмЖанр: Рисованная анимация, детскийРежиссер: Владимир СутеевСубтитры: ОтсутствуютПродолжительность: 00:18:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBE54A5B4DD41130762260693BBF19169CB0C3F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 755166   (929549) от 09.02.2014
-
-В гости к сказке: Сюрпризы Деда Мороза. Сборник мультфильмов (1948-1984) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник кукольных и рисованных отечественных мультипликационных фильмов для детей.Жанр: Мультфильм, кукольный, рисованныйРежиссер: Ольга Ходатаева, Пётр Носов, Шалва Гедеванишвили, Юлиан Калишер, Евгений Райковский, Александр Иванов, Анатолий Солин, Нина ВасиленкоПродолжительность: 7 х ~ 00:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C53BA8438BB5B4742DB337140EE6A37F2C3AB935
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 629882   (929522) от 14.03.2013
-
-Вокруг света за 80 дней / Around the World in Eighty Days (1972-1973) 2xDVD9 (сезон 1, серии 1-16)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929522.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы выиграть пари и получить согласие лорда Мэйза на свадьбу с его племянницей Белиндой, находчивый Филеас Фогг и его верный слуга-француз Паспарту отправляются в кругосветное путешествие, завершению которого за 80 дней мешают проделки коварного мистера Фикса…
-Филеас Фогг в этом мультсериале отличается невероятной предусмотрительностью, всегда заранее подбирая (   Читать дальше...   )Производство: Австралия / Air Programs InternationalЖанр: Рисованная анимация, Детский, КомедияРежиссер: Лейф ГрэмПеревод: Полное дублирование (студия НОТА по заказу ТНТ, 2005 год)Субтитры: ОтсутствуютПродолжительность: 02:53:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C83840CB101C3DB94C47EEF14695FE5466864A07
 ```
 
 https://mybot314.ru/tekegram_catalog/

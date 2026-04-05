@@ -6,7 +6,7 @@ Korn - Can You Hear Me, Finally Free (2020) WEBRip [H.264/1080p-LQ] (2 клип�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335342.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Осенний марафон № 204 / Видеоклипы (Дискот�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330833.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328500.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ VA - Осенний марафон № 205 / Видеоклипы (Дискот�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326391.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Skrillex & The Doors. Breakn A Sweat (2012)  [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322590.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ The Rolling Stones - Doom And Gloom (Uncensored Version) (2012)  [H.264/1080p] W
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322306.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ VA - Осенний марафон № 206: Дискотека с размахо
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321245.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Trey Songz. Never Again (2012) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321147.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Chris Thrace feat. Glorya. Angel & Devil (2012) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321142.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Xzibit. Napalm (2012) [H.264/720p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320966.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Green Day. Nuclear Family (2012)  [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320949.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Papajam. Every Day Every Night (2012) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320760.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Ellie Goulding. Figure 8 (2012) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320737.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The Rasmus. Somewhere (2012)  [H.264/1080p]WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320526.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Amelia Lily. Shut Up (2012) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320380.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Whitesnake - The Purple Album (2015) Bonus DVD5 [EN]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319004.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315360.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314869.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314216.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314087.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312868.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Enrique Iglesias ft. Descemer Bueno & Gente de Zona Bailando (2014) WEBRip [H.26
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312197.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Selena Gomez - Good For You (2015) HDTVRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311924.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ VA - Осенний марафон № 207: Коктейль Хит Новино
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311754.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311497.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ The Best of...(vol.2) (2011) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310183.jpg" />
 </div>
 
 

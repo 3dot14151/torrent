@@ -1,86 +1,3 @@
-###  Публикация: 1130608   (714344) от 02.05.2017
-
-И. Д. Андреев | О методах научного познания (1964) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все научные и технические открытия, все достижения ученых и практиков стали возможными потому, что человек в процессе производственной деятельности научился познавать окружающий его мир, находить внутренние связи и отношения предметов и явлений, скрытую от непосредственного наблюдения их сущность. А познав причины возникновения предметов и явлений, важнейшие свойства (   Читать дальше...   )Жанр: История, философия, науковедение, логика, математикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DC874ECBC5576A0D3660402EBC394323BB72C5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130618   (714343) от 02.05.2017
-
-П. В. Копнин (рук. кол.) | Логика научного исследования (1965) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714343.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отношение нового знания к предшествующему не укладывается в рамки формально-логического закона противоречия; новые результаты не только могут логически не следовать из ранее достигнутого знания, но вступать с ним в противоречие.
-
-Под логическим надо понимать совокупность всех закономерностей движения мышления к новым результатам, носящим характер объективной истины. (   Читать дальше...   )Жанр: История, философия, науковедение, логикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A507DD99373E00BF409B8CDB7496FAF53AEFFA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219541   (713905) от 14.04.2018
-
-Г. Никольсон | Дипломатическое искусство (1962) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гарольд Никольсон - английский дипломат и историк, перу которого принадлежит ряд книг по истории дипломатии и дипломатической практике.
-
-В 1941 году в Советском Союзе была издана широко известная книга Г. Никольсона "Дипломатия", а в 1945 году - "Как делался мир в 1919 году".
-(   Читать дальше...   )Жанр: История, политология, дипломатия, искусствоФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6AE4A602A4189B346700FDDA0874D5610EEE32F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1532638   (712531) от 20.02.2022
 
 Книжная серия | «Поднебесная в рассказах» (Шанс) [12 книг] (2017-2019) [FB2, PDF]
@@ -89,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712531.jpg" />
 </div>
 
 
@@ -115,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712528.jpg" />
 </div>
 
 
@@ -141,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712469.jpg" />
 </div>
 
 
@@ -167,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712468.jpg" />
 </div>
 
 
@@ -193,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712223.jpg" />
 </div>
 
 
@@ -219,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711980.jpg" />
 </div>
 
 
@@ -245,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711975.jpg" />
 </div>
 
 
@@ -273,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711974.jpg" />
 </div>
 
 
@@ -299,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711972.jpg" />
 </div>
 
 
@@ -325,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711267.jpg" />
 </div>
 
 
@@ -353,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710792.jpg" />
 </div>
 
 
@@ -379,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710182.jpg" />
 </div>
 
 
@@ -405,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709137.jpg" />
 </div>
 
 
@@ -431,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708176.jpg" />
 </div>
 
 
@@ -457,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708169.jpg" />
 </div>
 
 
@@ -485,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707321.jpg" />
 </div>
 
 
@@ -511,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707117.jpg" />
 </div>
 
 
@@ -538,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706791.jpg" />
 </div>
 
 
@@ -565,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706312.jpg" />
 </div>
 
 
@@ -591,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705531.jpg" />
 </div>
 
 
@@ -619,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705529.jpg" />
 </div>
 
 
@@ -645,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705405.jpg" />
 </div>
 
 
@@ -671,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705211.jpg" />
 </div>
 
 
@@ -682,6 +599,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9F0DFF1C41039290BE4FB8F6A340585ABE60C7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131684   (705114) от 07.05.2017
+
+Б. М. Кедров | К. Маркс о науке и техническом прогрессе (1985) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705114.jpg" />
+</div>
+
+
+###  Подробнее
+
+В брошюре раскрываются взгляды К. Маркса на научное познание и на социальную роль науки как непосредственной производительной силы общества. Показывается значение этих взглядов для понимания сущности современной научно-технической революции, для прогресса в теоретическом освоении и практическом преобразовании действительности, для усиления связи науки с жизнью, с (   Читать дальше...   )Жанр: История, политология, науковедениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1363E78E7B21F6A95537AF761386657EE71C4296
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220526   (704505) от 19.04.2018
+
+Г. Наумов | Введение в изучение экономической науки (1923) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга возникла из лекций, читанных автором на военно-политических и разных профессиональных курсах в Киеве. Книга написана по заказу б. начальника Киевского Пуокра А. Дембо летом 1921 г. применительно к принятым тогда программам политической экономии и предназначалась для курсантов-рабочих и красноармейцев. Работа написана по методу исторического изложения. Этот (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:364D79D9A46B9A217A26BCBFB7E8D897AB9752B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220421   (704417) от 19.04.2018
+
+В. Б. Имеков | Моральный кодекс строителя коммунизма и религия о нравственности (1966) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современное духовенство активно занимается пропагандой религиозной морали. Богословы стремятся доказать, что только религия может быть основой нравственности и что моральный кодекс строителя коммунизма во многом повторяет религиозные заповеди. Нет — убеждает брошюра В. Б. Имекова — коммунистическая мораль отвергает религиозную.
+
+Брошюра написана для самого широкого (   Читать дальше...   )Жанр: История, политология, религиоведение, этика, философияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:742FC8D82F9C3D643D0F44FF7AD00D7104D2B281
 ```
 
 https://mybot314.ru/tekegram_catalog/

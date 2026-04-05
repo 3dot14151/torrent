@@ -1,3 +1,57 @@
+###  Публикация: 502313   (258959) от 27.05.2012
+
+С. Б.Шмаков | Энциклопедия радиолюбителя. Современная элементная база [2012] [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Справочник обобщает сведения по современной элементной базе, которую используют радиолюбители в своем творчестве или при ремонте бытовой аппаратуры. Электронные компоненты рассматриваются в систематизированных разделах: характеристики, принцип действия, цветовая и кодовая маркировка, обозначения в схемах, рекомендуемые аналоги. Очень наглядной является большая цветная вклейка.
+По ходу изложения приводятся ссылки на сайты-справочники, домашние страницы производителей, радиолюбительские странички. Они отмечены соответствующим значком. Это позволяет вместить в справочник существенно больше полезной информации.
+Справочник предназначен для широкого круга радиолюбителей и домашний мастеров, занимающихся техническим творчеством, ремонтом электротехники, бытовой электроники.2012Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF37BDBF4839085201348C92DE888F5BB12E3B9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 500876   (258136) от 24.05.2012
+
+А.А. Халоян | Цветомузыкальные устройства - любительские схемы [2001] [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258136.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данной книжке представлены множество различных схем цветомузыкальных и светодинамических установок, схемы гирлянд и многое другое. Все эти конструкции можно собрать в домашних условиях - элементная база этих узлов и конструкций чрезвычайно доступна.2001Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A7B1E5E61115EA431E70CDF6A044F5BD14F887D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627966   (254958) от 21.04.2023
 
 В. Грэхем, Ф. Стоун | Неорганические полимеры (1965) [PDF]
@@ -6,7 +60,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254958.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252684.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252278.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252277.jpg" />
 </div>
 
 
@@ -115,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252275.jpg" />
 </div>
 
 
@@ -142,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251936.jpg" />
 </div>
 
 
@@ -168,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251231.jpg" />
 </div>
 
 
@@ -194,7 +248,7 @@ Farzin Asadi | Circuits Laboratory Manual [4 книги] (2023 - 2024) [PDF] [En
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250426.jpg" />
 </div>
 
 
@@ -220,7 +274,7 @@ Dogan Ibrahim | LTspice Essentials: An Introduction to Circuit Simulation (2024)
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250420.jpg" />
 </div>
 
 
@@ -246,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248869.jpg" />
 </div>
 
 
@@ -272,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248808.jpg" />
 </div>
 
 
@@ -299,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248308.jpg" />
 </div>
 
 
@@ -325,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245747.jpg" />
 </div>
 
 
@@ -351,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242888.jpg" />
 </div>
 
 
@@ -377,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241346.jpg" />
 </div>
 
 
@@ -403,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239595.jpg" />
 </div>
 
 
@@ -429,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238624.jpg" />
 </div>
 
 
@@ -456,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235309.jpg" />
 </div>
 
 
@@ -483,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234910.jpg" />
 </div>
 
 
@@ -509,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232936.jpg" />
 </div>
 
 
@@ -535,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232897.jpg" />
 </div>
 
 
@@ -561,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232695.jpg" />
 </div>
 
 
@@ -587,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232415.jpg" />
 </div>
 
 
@@ -613,7 +667,7 @@ Dohan Ibrahim | Circuit Simulation with TINA Design Suite and TINACloud (2022) [
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231281.jpg" />
 </div>
 
 
@@ -624,59 +678,6 @@ Dohan Ibrahim | Circuit Simulation with TINA Design Suite and TINACloud (2022) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AA90762E8C4E2B98F7B9E7892E596EE4944ABDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648004   (231065) от 21.07.2023
-
-В.В. Коршак, В.А. Замятина, Н.И. Бекасова | Борорганические полимеры (1975) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231065.jpg" />
-</div>
-
-
-###  Подробнее
-
-Монография посвящена сравнительно новому классу высокомолекулярных соединений - борорганическим полимерам. В книге рассмотрена история и обсуждены общие вопросы химии борорганических полимеров, описаны гомоцепные полимеры с цепями из атомов бора, а также гетероцепные полимеры со связями бор-углерод, бор-азот, бор-кислород, бор-фосфор, бор-сера и бор-мышьяк.
-Монография (   Читать дальше...   )Жанр: ХимияИздательство: НаукаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1953F7DBFA549F67001369CB84E3A50C8DFBA554
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582070   (230932) от 07.10.2022
-
-Джутон Энтони и др. | Электромобиль. Устройство, принцип работы, инфраструктура (2022) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230932.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга - результат работы большой группы исследователей, преподавателей и инженеров. В ней детально описаны компоненты силовой установки электромобиля - двигатели, силовая электроника, аккумуляторы, зарядные станции, - а также взаимодействие с энергосистемой и технология водородных топливных элементов. Книга формирует у читателя знания и навыки, необходимые для (   Читать дальше...   )Жанр: ТранспортПеревод: В.И. ПетровичевФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B13128BE26BD0E25EEC18DB17ADF66F18E9E5243
 ```
 
 https://mybot314.ru/tekegram_catalog/

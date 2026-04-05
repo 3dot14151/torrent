@@ -1,3 +1,56 @@
+###  Публикация: 1026687   (679996) от 27.06.2016
+
+Идеальная пятница / Perfect Friday (1970) HDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скучающий помощник заместителя управляющего банком задумал простое, но надежное ограбление на 200 тысяч фунтов стерлингов. Он находит себе помощников: безпринципную девицу и избалованного ленивого пэра. Для выполнения хитроумного плана осталось лишь дождаться идеальной пятницыПроизводство: ВеликобританияЖанр: Комедия, криминалРежиссер: Питер ХоллАктеры: Урсула Андресс, Стэнли Бэйкер, Дэвид Уорнер, Пейшнс Коллиер, Т.П. МакКенна, Дэвид Уоллер, Джоан Бенэм, Джулиан Орчард, Триша Мортимер, Энн Тирард ...Перевод: Профессиональный двухголосыйСубтитры: ОтсутствуютПродолжительность: 01:34:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A290806EBBEC131B4E0F20495E99D92803D0A695
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 795507   (679583) от 17.06.2014
+
+Вор / Thief (1981) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фрэнк — эксперт по вскрытию сейфов, профессионал высшей пробы, и работы для него всегда хватает. Но он уже побывал за решеткой, и возвращаться туда не собирается. Нужен всего один, но верный взлом.
+И тут дразнящая мечта о будущем заставляет его потерять осторожность: поддавшись искушению, матерый волк-одиночка соглашается поработать на крупного мафиози! Капкан захлопнулся, (   Читать дальше...   )Производство: США / Mann/Caan ProductionsЖанр: Боевик, Триллер, Драма, КриминалРежиссер: Майкл Манн / Michael MannАктеры: Джеймс Каан, Тьюзди Уэлд, Уилли Нельсон, Джеймс Белуши, Роберт Проски, Том Сигнорелли, Деннис Фарина, Ник Никеас, В.Р. Браун, Норм ТобинПеревод: Профессиональный (Двухголосый, закадровый) + Авторский (Одноголосый) А.Гаврилов + Авторский (Одноголосый) А.Михалев + Оригинальная звуковая дорожкаПродолжительность: 02:04:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32E439F249E5D06DA5A3D6F27352AD196FD6DEFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 796509   (679196) от 17.06.2014
 
 Эта замечательная жизнь / It's a Wonderful Life (1946) BDRip [Colorized]
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679196.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678582.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678507.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678087.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678080.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677976.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677138.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676802.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676776.jpg" />
 </div>
 
 
@@ -245,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676652.jpg" />
 </div>
 
 
@@ -272,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676409.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676395.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676258.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675932.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674993.jpg" />
 </div>
 
 
@@ -405,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674969.jpg" />
 </div>
 
 
@@ -431,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674940.jpg" />
 </div>
 
 
@@ -457,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674731.jpg" />
 </div>
 
 
@@ -483,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674628.jpg" />
 </div>
 
 
@@ -509,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674030.jpg" />
 </div>
 
 
@@ -535,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674007.jpg" />
 </div>
 
 
@@ -561,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672805.jpg" />
 </div>
 
 
@@ -587,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672118.jpg" />
 </div>
 
 
@@ -614,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672073.jpg" />
 </div>
 
 
@@ -625,58 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21B710FBCB6C873F628DCA9ABECCB32472351D98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028590   (671964) от 01.07.2016
-
-Атлантический вал / Le mur de l'Atlantique (1970) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нормандия, идет Вторая мировая война. Дочь владельца кафе прячет в доме сбитого немцами английского летчика. Ее отец, который обычно ни во что не вмешивается, неожиданно для себя оказывается втянутым в забавные приключения...Производство: Франция, ИталияЖанр: Комедия, военныйРежиссер: Марсель КамюАктеры: Бурвиль, Питер МакЭнери, Софи Демаре, Жан Пуарэ, Рене Коллдехофф, Сара Франкетти, Пино Карузо, Терри Томас, Ролан Лезафр, Жак Балютен ...Перевод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FB771535E4E43D86336123D5C03B9E918BA70BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028606   (671844) от 01.07.2016
-
-Большая случка / L'etalon (1970) DVDRip [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671844.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время каникул ветеринар Уильям Шаминад спасает женщину, пытавшуюся свести счеты с жизнью… Тут у него и рождается идея облегчить участь жен, к которым охладели мужья, а изменять они не решаются из моральных соображений. Он открывает клинику, где под зорким оком «науки » страждущих обслуживают самые здоровые мужчины. Нет нужды говорить о том, что клиника вскоре (   Читать дальше...   )Производство: ФранцияЖанр: КомедияРежиссер: Жан-Пьер МокиАктеры: Бурвиль, Франсис Бланш, Жак Легра, Марсель Перес, Жан-Клод Ремолё, Френсис Терзьян, Агостино Васко, Микаэль Лонсдаль, Дениз Перонн, Роджер ЛегриЖани, Жак Леви ...Перевод: Авторский (Сергей Козлов)Субтитры: ОтсутствуютПродолжительность: 01:36:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:183C08D6460684DF397B74A0E0D06521B76B5BFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

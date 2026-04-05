@@ -1,3 +1,57 @@
+###  Публикация: 916513   (590882) от 08.07.2015
+
+Ф. Будников | Самодельный телескоп и микроскоп (1935) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Настольные игры и Поделки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590882.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассказано об устройстве телескопа и микроскопа и различные этапы их изготовления в домашних условиях из подручных средств и материалов.Жанр: Сделай сам, самоделкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A91C480FE36AFB8395030057B015C5CA087BAD96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916594   (590860) от 08.07.2015
+
+Александр Сергеевич Пушкин | Собрание сочинений в пяти томах (2015) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590860.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр Сергеевич Пушкин Собрание сочинений в пяти томах: (Стихотворения, Драматические произведения, Поэмы, романы, повести в стихах, Сказки в стихах, Повести, рассказы в прозе.
+Стихотворения: 802 стихотворения, отсортированные по названию.
+Драматические произведения: Борис Годунов, Каменный гость, Моцарт и Сальери, Пир во время чумы, Русалка, Скупой рыцарь, Сцены (   Читать дальше...   )Жанр: Классика, детская литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A1D2B777E33EB4B797FCD91625ADBBB86070646
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 916508   (590849) от 08.07.2015
 
 Б. Шефер | Самодельный телевизор (1937) [PDF]
@@ -6,7 +60,7 @@
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590849.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590753.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590746.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590716.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590452.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590445.jpg" />
 </div>
 
 
@@ -168,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590443.jpg" />
 </div>
 
 
@@ -197,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590406.jpg" />
 </div>
 
 
@@ -223,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590390.jpg" />
 </div>
 
 
@@ -250,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590377.jpg" />
 </div>
 
 
@@ -277,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590359.jpg" />
 </div>
 
 
@@ -303,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590344.jpg" />
 </div>
 
 
@@ -329,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590336.jpg" />
 </div>
 
 
@@ -355,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590332.jpg" />
 </div>
 
 
@@ -381,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590233.jpg" />
 </div>
 
 
@@ -408,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589956.jpg" />
 </div>
 
 
@@ -434,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589946.jpg" />
 </div>
 
 
@@ -460,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589925.jpg" />
 </div>
 
 
@@ -486,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589921.jpg" />
 </div>
 
 
@@ -512,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589913.jpg" />
 </div>
 
 
@@ -538,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589831.jpg" />
 </div>
 
 
@@ -565,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589782.jpg" />
 </div>
 
 
@@ -592,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589780.jpg" />
 </div>
 
 
@@ -619,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589593.jpg" />
 </div>
 
 
@@ -630,58 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A2600C4CD4D9FF614E458A19B4694FF3DBFA2E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917086   (589579) от 11.07.2015
-
-Т. Папендик, Б. Столповский | Пчельник на лесной поляне (1926) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как организовать приусадебную пасеку, существенно повысить, медосбор, предотвратить роение и болезни пчел, правильно подготовить пчелиные семьи к зимовке, перерабатывать и хранить продукты пчеловодства рассказывает эта книга.Жанр: Пчеловодство, обучающая литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5F3BA1E1728CEC5B42B54735D6CB168692DFEA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917087   (589562) от 11.07.2015
-
-В. Иванов | Коньки (1926) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Настольные игры и Поделки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сделать самому настоящие коньки трудно, но подобие коньков можно соорудить и довольно легко. Ребята многое сами делают и так научаются кататься, что, пожалуй, по их словам, и с «настоящими» отстанешь. Материал для коньков — березовое хорошее полено без суков да полоса железа в 60 —70 сантиметров —вот и все.Жанр: Конькобежный спортФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82149DF5755FBA239D5BC7B368E6C85D1FEB3852
 ```
 
 https://mybot314.ru/tekegram_catalog/

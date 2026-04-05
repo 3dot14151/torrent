@@ -1,3 +1,55 @@
+###  Публикация: 1013766   (777051) от 05.05.2016
+
+Vortex: The Gateway (2016) [Ru/Multi] (1.1520) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vortex: The Gateway - это игра жанра "выживание в ужасе" с открытым игровым миром. Игра начинается с того, что вас засасывает в "воронку" пространства-времени, и вы оказываетесь на чуждой планете. Исследуйте, приспосабливайтесь, стройте и сражайтесь, чтобы выжить. Вы будете встречаться лицом к лицу с опасностями чуждого мира в различное время (   Читать дальше...   )Тип издания: RepackРазработчик: StormCube GamesЖанр: Action, 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F256E1D396C6A56BF421202313441477DD185B72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277607   (775485) от 21.01.2019
+
+Call of Duty 2 (2005) [Ru] (1.3) License 1C
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Играя в Call of Duty 2, вы сможете пережить непреодолимые жизненные обстоятельства четырех различных солдат в трех игровых кампаниях. Вы можете как следовать сюжетной линии каждого из четырех героев, так и быстро перепрыгивать до важных событий, оставляя часть событий позади.Тип издания: LicenseРазработчик: Infinity Ward, Aspyr (Mac)Жанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEF9E08C65E7B4C3717800A96764311CDC354EFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015153   (775457) от 09.05.2016
 
 Night Blights (2016) [En] (1.0) Repack Other s
@@ -6,7 +58,7 @@ Night Blights (2016) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775457.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Enemy Front (2014) [Ru/En] (3.4.4.6290/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774794.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Brothers in Arms: Earned in Blood (2005) [En] (1.03) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774028.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Brothers in Arms: Road to Hill 30 (2005) [Ru/En] (1.11) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774022.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Brothers in Arms: Hell's Highway (2008) [Ru] (1.0.0) Rip Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773971.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ The Council of Hanwell (2018) [En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772770.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ No Man's Sky (2016) [Ru/Multi] (1.77/dlc) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772509.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ BioShock Infinite (2013) [Ru/En] (1.1.25.5165/8dlc) Repack R.G. Revenants
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772263.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Disintegration (2020) [Ru/Multi] (1.0.0.6) Repack от xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769602.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Infected Maze (2020) [Multi] (1.0) License DARKSiDERS
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769314.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ P.A.M.E.L.A. (2020) [En] (1.0.0.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769272.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Dishonored 2 (2016) [Ru] (1.77.9) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768822.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Deadstep (2018) [En] (1.0.3) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768782.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Duder (2018) [Ru/En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768751.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Far Cry (2004) [En] (1.4) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768377.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Thief 2: The Metal Age / Thief 2: Эпоха металла (2000) [Multi] (1.26
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768226.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ White Noise 2 (2017) [Ru/Multi] (1.0/upd1) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767700.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ White Noise 2 (2017) [Ru/Multi] (1.0/upd1) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767565.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Die Young: Prologue (2019) [Ru/Multi] (1.1.0.58.20) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766717.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Deus Ex: Revision (2000-2015) [En] (1.112fm/1.2) License TiNYiSO
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766707.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Die Young (2019) [Ru/Multi] (1.2.0.70.20) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766650.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Resident Evil 7: Biohazard (2017) [Ru/Multi] (1.03/upd5/dlc) License PLAZA [Gold
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766623.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Mirror's Edge Catalyst (2016) [Ru/Multi] (1.0.3.47248/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766475.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ The Wild Eternal (2017) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765998.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ The Wild Eternal – приключение от первого лица, рас
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15EA7B6D7204B7A2F5062706FEDC54F840748088
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126391   (765987) от 17.04.2017
-
-Western Outlaw: Wanted Dead or Alive / Отчаянный (2003) [Ru/En] (1.0) Unofficial
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765987.jpg" />
-</div>
-
-
-###  Подробнее
-
-В такую мясорубку Странник не попадал никогда: свинцовый дождь превращает в опилки ближайший салун, динамит разносит на части фургоны переселенцев, а угрюмые бандиты хотят только одного - его смерти. Тихий американский городок в одно мгновение превращается в ад. Странник снова выходит на тропу войны, и с этого дня имя ему - Отчаянный!Тип издания: UnofficialРазработчик: Jarhead GamesЖанр: Action, Shooter, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2DBE355E377A4822845EAD3D641C7C2DD5901DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126695   (765041) от 18.04.2017
-
-Homefront: The Revolution (2016) [Ru/Multi] (1.0781467) SteamRip Let'sPlay [Freedom Fighter Bundle]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Homefront: The Revolution – это шутер от первого лица, в котором вы должны возглавить силы Сопротивления в партизанской войне против превосходящих сил противника. Все ваши действия будут влиять на живой, дышащий открытый мир – ваша ячейка Сопротивления и вы сможете вдохновить угнетённых гражданских на восстание и превратить оккупацию в революцию.Тип издания: SteamRipРазработчик: Dambuster StudiosЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F6D3F94F87F6CD6AC7FD6C4202D997E96638A6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

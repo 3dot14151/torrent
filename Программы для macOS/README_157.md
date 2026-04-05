@@ -1,3 +1,57 @@
+###  Публикация: 1675004   (160642) от 07.11.2023
+
+FonePaw Data Recovery 3.5.2 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160642.jpg" />
+</div>
+
+
+###  Подробнее
+
+FonePaw Data Recovery - профессиональный мастер восстановления данных. Быстрое и глубокое сканирование вашего компьютера для извлечения удаленных изображений, видео, аудио, электронных писем, документов и прочего с жестких дисков (включая корзину) на вашем Mac.Тип издания: macOS SoftwareРелиз состоялся: 06.11.2023Разработчик: © 2014 - 2023 FonePaw Technology LimitedПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1770690730F701131136B61FC9D276BEB197451F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674958   (160563) от 07.11.2023
+
+Apple MainStage 3.6.5[Multi]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160563.jpg" />
+</div>
+
+
+###  Подробнее
+
+MainStage 3 позволит вам взять Mac с собой на сцену. Полноэкранный интерфейс, оптимизированный для живых выступлений, полный контроль оборудования и обширная коллекция плагинов и звуков, полностью совместимых с Logic Pro X.
+Идеально для живых выступлений
+• Выступайте на сцене, используя более 80 инструментов, эффектов и плагинов MIDI, работайте с плагинами Audio (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2023Разработчик: © 2022 Apple Inc.Поддерживаемая ОС: OS X 13.5 и вышеЯзык интерфейса: Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F7191A9064937808737DBC6DF6B091A6854AC57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674946   (160551) от 07.11.2023
 
 Transmit 5.10.3 U2B [En]
@@ -6,7 +60,7 @@ Transmit 5.10.3 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160551.jpg" />
 </div>
 
 
@@ -34,7 +88,7 @@ Rocket Typist Pro 3.0.5.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160477.jpg" />
 </div>
 
 
@@ -63,7 +117,7 @@ LaunchBar 6 v.6.18.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160471.jpg" />
 </div>
 
 
@@ -89,7 +143,7 @@ NCH DrawPad Pro 10.63 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160466.jpg" />
 </div>
 
 
@@ -115,7 +169,7 @@ Mach Desktop HD 3 v.3.0.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160455.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ EXIF Sync 1.9.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160446.jpg" />
 </div>
 
 
@@ -170,7 +224,7 @@ Get Backup Pro 3 v.3.7.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160430.jpg" />
 </div>
 
 
@@ -196,7 +250,7 @@ Wipr – Ad and Tracker Blocker 1.49 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160398.jpg" />
 </div>
 
 
@@ -222,7 +276,7 @@ AweCleaner Professional for Mac 5.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160339.jpg" />
 </div>
 
 
@@ -248,7 +302,7 @@ NetShred X 5.8.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160317.jpg" />
 </div>
 
 
@@ -274,7 +328,7 @@ GrabIt 4.932 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160310.jpg" />
 </div>
 
 
@@ -301,7 +355,7 @@ Dato 5.1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160300.jpg" />
 </div>
 
 
@@ -328,7 +382,7 @@ AnyMP4 Data Recovery for Mac 1.3.16 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160294.jpg" />
 </div>
 
 
@@ -354,7 +408,7 @@ Yoink 3.6.89  [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160282.jpg" />
 </div>
 
 
@@ -380,7 +434,7 @@ Native Instruments Komplete Kontrol 2.9.6 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160258.jpg" />
 </div>
 
 
@@ -406,7 +460,7 @@ Project Office X Pro 1.1.11 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160240.jpg" />
 </div>
 
 
@@ -432,7 +486,7 @@ Aiseesoft Mac Data Recovery for Mac  1.6.18 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160232.jpg" />
 </div>
 
 
@@ -459,7 +513,7 @@ Aiseesoft 4K Converter for Mac 9.2.26 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160205.jpg" />
 </div>
 
 
@@ -485,7 +539,7 @@ Vectorworks 2022  SP3 Intel/ARM [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160195.jpg" />
 </div>
 
 
@@ -512,7 +566,7 @@ Joyoshare UltFix 4.1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160158.jpg" />
 </div>
 
 
@@ -538,7 +592,7 @@ Joyoshare iPasscode Unlocker 4.3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160126.jpg" />
 </div>
 
 
@@ -564,7 +618,7 @@ TunesKit iOS System Recovery for Mac 4.1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160108.jpg" />
 </div>
 
 
@@ -590,7 +644,7 @@ Adobe Animate 2024 v.24.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160088.jpg" />
 </div>
 
 
@@ -616,7 +670,7 @@ TunesKit iPhone Unlocker 2.3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160084.jpg" />
 </div>
 
 
@@ -627,60 +681,6 @@ TunesKit iPhone Unlocker предназначен для того, чтобы и
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FECA69EAA2A9780BF4E3F1BFE385F5F0262BA5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675708   (159939) от 10.11.2023
-
-4K Image Compressor Pro for Mac 1.1.0 [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легко изменяйте размеры JPEG, PNG и WEBP. Сжимайте файлы до нужного вам размера. Экономьте место для хранения и легко делитесь изображениями в социальных сетях. Улучшите время загрузки вашего сайта. Оптимизируйте размер файла изображения без ущерба для качества.Тип издания: macOS SoftwareРелиз состоялся: 31.10.2023Разработчик: © 2023 OpenMedia OOOПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA9856620F2AA184CB1B631A57792625E706D138
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675842   (159924) от 10.11.2023
-
-Inklet 2.2.5 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Inklet позволяет использовать тачпад Apple в качестве графического планшета.
-Inklet - первое приложение от сторонних разработчиков с поддержкой Force Touch от Apple. Разработчики обещают все удобства графического планшета и комфортную работу с практически любым приложением, поддерживающим письменный ввод, включая пакет редакторов Adobe, Sketch и Pixelmator.
-MacBook (   Читать дальше...   )Тип издания: macOS X SoftwareРелиз состоялся: 10.11.2023Разработчик: © 2023 Ten One Design LLCПоддерживаемая ОС: macOS X 10.13 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EBEBF2FE822216D58F474D8A14F0060D7A84BA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

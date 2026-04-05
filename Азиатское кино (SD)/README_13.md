@@ -1,3 +1,81 @@
+###  Публикация: 1375546   (865612) от 14.04.2020
+
+Прошлой зимой, прощание с тобой / Kyonen no fuyu, kimi to wakare / Last Winter, We Parted (2018) HDRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Писатель Кёсукэ Якумото для своей следующей книги берётся за расследование дела об убийстве и поджоге, где главным подозреваемым является модный фотограф. Тот прославился серией снимков бабочек, но затем впал в творческий кризис и пытался сделать фотографии умирающей женщины, охваченной огнем.Производство: Япония / C&I EntertainmentЖанр: Драма, детектив, криминалРежиссер: Томоюки ТакимотоАктеры: Таканори Ивата, Мидзуки Ямамото, Такуми Саито, Рэина Асами, Кадзуки Китамура, Кахо ЦутимураПеревод: Двуголосый любительский (Karipso и Адриан)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:58:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DC7E382B400624F139B1EC5F635BC28EBD87038
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375542   (865610) от 14.04.2020
+
+Сегодня в романтическом кинотеатре / Kon'ya, romansu gekijo de / Tonight, at the Movies (2018) HDRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пожилой мужчина по имени Кэндзи лежит в больнице и читает медсестре сценарий фильма, который начал писать ещё в молодости. Когда-то давно он работал помощником режиссера и любил захаживать в местный кинотеатр, где смотрел старые чёрно-белые фильмы. Увидев ленту под названием «Принцесса-пацанка и весёлые зверушки», парень безнадёжно влюбился в главную героиню, и с (   Читать дальше...   )Производство: Япония / Filmmakers, Fuji Television Network Inc., Horipro Inc.Жанр: Мелодрама, фэнтезиРежиссер: Хидэки ТакэутиАктеры: Харука Аясэ, Кэнтаро Сакагути, Акира Эмото, Цубаса Хонда, Анна Исибаси, Го Като, Кадзуки Китамура, Акиёси Накао, Токума Нисиока, Мицухиро ТадаПеревод: Двуголосый любительский (RusFilm)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:48:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67E988A904E63AB482D94C832CA0A58C2E7EBBD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375474   (865494) от 14.04.2020
+
+Тайны гостевого дома / Qie xiao jin jia de lu guan / Secrets in the Hot Spring (2018) HDRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трое не особо дружных одноклассников отправляются на каникулы в старый отель, которым заведует бабушка одного из них. Отель мало того, что выглядит жутко, так там еще слышатся страшные звуки, и бабушка, кажется, тоже выжила из ума. Каникулы намечаются интересные.Производство: Тайвань, Third Man Entertainment, Huace Pictures, Arrow Cinematic GroupЖанр: Комедия, ужасыРежиссер: Линь ГуаньхуэйАктеры: Чжан Тинху, Син Хом, Линь Хе-Сюан, Мими Чу, Чин Чи, Лау Ка-Ин, Чиу Кай Вэй, Ко Шуяо, Си Цу, Джада ЧаПеревод: Двуголосый любительский (Asian Miracle Group)Субтитры: Английские, немецкие, китайские, японские - отдельными файламиПродолжительность: 01:48:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18AE5D482E70F0F6B6AE7C5F91CE3F922B476BEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375523   (865489) от 14.04.2020
 
 Сыр в мышеловке / Chijeu in deo teuraep / Cheese in the Trap (2018) WEB-DLRip [MVO]
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865489.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865403.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865387.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865315.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865084.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865076.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864677.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864586.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863889.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863866.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863737.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863598.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863532.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863418.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862743.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862355.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862302.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862268.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862264.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862174.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862048.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861802.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861242.jpg" />
 </div>
 
 
@@ -590,84 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEFE4A76E4D3E19F47E6FA5921134C3A0CB5F1BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376325   (860698) от 17.04.2020
-
-Истина / Fa nei qing / The Truth (1988) DVDRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Адвокат, выросший без семьи, узнает, что его биологическая мать — наркоманка и обвиняется в убийстве полицейского. Он берется защищать её.Производство: Гонконг / Johnny Mak Productions, Movie ImpactЖанр: Триллер, драма, криминалРежиссер: Тейлор ВонАктеры: Энди Лау, Динни Ип, Фанг Оун Ши, Кэти Чоу, Пол Чунь, Вэй Чунг КуПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: отсутствуютПродолжительность: 01:55:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89E3DCB7AC12506342A5D7ED730B4A3B01015396
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376246   (860627) от 17.04.2020
-
-Сердце / Kokoro / The Heart (1973) WEB-DLRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860627.jpg" />
-</div>
-
-
-###  Подробнее
-
-События знаменитого романа Нацумэ Сосэки перенесены в 70-е годы ХХ века. Герои обезличены и приобрели условные имена. Господин K снимает комнату у пожилой госпожи М, которая не прочь отдать за него свою дочь I. Но всё осложняется, когда появляется S, друг господина К. На самом деле в эпоху джинсов тоже существует любовь, дружба, предательство и расплата.Производство: Япония / Art Theatre Guild, Kindai Eiga KyokaiЖанр: ДрамаРежиссер: Канэто СиндоАктеры: Нобору Мацухаси, Кадзунага Цудзи, Анри, Нобуко Отова, Таидзи Тонояма, Гайтоми КотакэПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:29:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23DD9305ED21E399BF2C6CF0CF6B8B2A7E48B4B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376250   (860625) от 17.04.2020
-
-Годы счастья, годы печали / Yorokobi mo kanashimi mo ikutoshitsuki / Times of Joy and Sorrow (1957) WEB-DLRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кёко встретила Сиро Арисава на похоронах его отца. С похорон Арисава приехал с новой женой. У него нет другого выбора, он простой смотритель маяка, которого постоянно переводят с места на место. Такому трудно найти невесту. Смогут ли люди, не знавшие друг друга прежде, создать прочную семью? Их брак ждут тяжелые испытания. Мы наблюдаем за этой семьей в течение 25 (   Читать дальше...   )Производство: Япония / Shochiku OfunaЖанр: ДрамаРежиссер: Кэйскэ КиносьтаАктеры: Хидэко Такаминэ, Кэйдзи Сада, Такахиро Тамура, Кацуо Накамура, Ёко Кацураги, Кодзи Мицуи, Кунико Икава, Сидзуэ Нацукава, Масако Арисава, Хироко ИтоПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: Русские, английские - отдельными файламиПродолжительность: 02:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31574331A0CC23EDEFD7F70ECC9E2A45C434D4D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

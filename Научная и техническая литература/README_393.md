@@ -1,135 +1,3 @@
-###  Публикация: 1249446   (428941) от 26.09.2018
-
-И.И. Иоффе | Синтетическая история искусств: введение в историю художественного мышления (1933) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428941.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы Иоффе занимают в нашем искусствознании особое место по своему стремлению связать искусство с философией и отдельные искусства между собой. Став с первых шагов на путь борьбы с эмпирическим и субъективно-психологическим искусствознанием (Кризис современного искусства. ЛКУ, изд. „Прибой“. Л. 1925), Иоффе ищет социологических закономерностей в понятии стиля, (   Читать дальше...   )Жанр: История, политология, философия, науковедение, психология, искусство, литературоведениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:009EE0949668FD0902A4160E4FEDF838A4BB93DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249201   (428937) от 26.09.2018
-
-А.Л. Вёрткин | Маломобильный пациент (2016) [FB2]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428937.jpg" />
-</div>
-
-
-###  Подробнее
-
-В практике любого врача, и особенно терапевта, ежедневно встречаются пациенты, которые в силу своего заболевания самостоятельно не передвигаются, полноценно, в течение длительного периода времени себя не обслуживают. Это так называемые маломобильные больные.
-В настоящее время количество зарегистрированных инвалидов в России составляет около 10 % от общей численности (   Читать дальше...   )Жанр: Медицина и здоровьеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77E529CC513A9A40EA437ED672BD59B3A2C02140
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 556281   (428879) от 04.10.2012
-
-П.П.Литвинов | Англо-русский фонематический словарь [2005] [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга основана на оригинальной методике быстрого и надежного запоминания большого количества английских слов. В пособии излагается авторская система объединения ассоциативного ряда слов с фонематическими блоками, знание которых - ключ к быстрому обогащению словарного запаса, повышению качества восприятия английской речи на слух, а также развитию мышления на английском языке.  Для учащихся школ, колледжей, лицеев, абитуриентов, студентов, преподавателей, а также для широкого круга лиц, занимающихся изучением языка самостоятельно.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F6AD8A5E6C01BA8E7A26F6A7B086CBE7F46D292
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249198   (428790) от 26.09.2018
-
-Е.И. Вовк | Неалкогольная жировая болезнь печени (2018) [FB2]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428790.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге кратко изложены механизмы развития, критерии диагностики и общепринятые рекомендации по лечению неалкогольной жировой болезни печени.
-Раннее выявление неалкогольной болезни печени и настойчивая коррекция ассоциированных кардиометаболических рисков в свете первичной профилактики сердечно-сосудистых заболеваний относятся сегодня к презумпции терапевта поликлиники (   Читать дальше...   )Жанр: ГастроэнтерологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2BA5CD3D66ECD80B97589D8C360DE5EF8477C97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 708671   (428757) от 09.10.2013
-
-Главное Артиллерийское Управление Красной Армии | Японский ручной пулемет обр. 1922 г. (1942) [DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая Памятка по обращению с японским ручным пулеметом обр. 1922 г (Тип 11) предназначена для изучения устройства материальной части и правил боевой эксплуатации.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79D57421FC4106A5C2A364EFFCEAC6942031C15E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 556245   (428713) от 04.10.2012
 
 П.П.Литвинов | Английские глаголы и прилагательные с фиксированными предлогами [2004] [PDF]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428713.jpg" />
 </div>
 
 
@@ -164,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428710.jpg" />
 </div>
 
 
@@ -190,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428532.jpg" />
 </div>
 
 
@@ -216,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428370.jpg" />
 </div>
 
 
@@ -244,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428365.jpg" />
 </div>
 
 
@@ -270,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428364.jpg" />
 </div>
 
 
@@ -296,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428221.jpg" />
 </div>
 
 
@@ -322,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428216.jpg" />
 </div>
 
 
@@ -350,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428145.jpg" />
 </div>
 
 
@@ -377,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428052.jpg" />
 </div>
 
 
@@ -403,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428051.jpg" />
 </div>
 
 
@@ -429,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428009.jpg" />
 </div>
 
 
@@ -457,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427984.jpg" />
 </div>
 
 
@@ -483,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427917.jpg" />
 </div>
 
 
@@ -510,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427894.jpg" />
 </div>
 
 
@@ -536,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427882.jpg" />
 </div>
 
 
@@ -564,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_427794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_427794.jpg" />
 </div>
 
 
@@ -591,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427756.jpg" />
 </div>
 
 
@@ -619,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427654.jpg" />
 </div>
 
 
@@ -646,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427652.jpg" />
 </div>
 
 
@@ -672,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427572.jpg" />
 </div>
 
 
@@ -683,6 +551,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6035C070AD6C3073FE1BA01FF7317FCCAA5B7AC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062895   (427493) от 19.10.2016
+
+Ричард Докинз | Эгоистичный ген (2013) [FB2]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427493.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы созданы нашими генами. Мы, животные, существуем, чтобы сохранить их, и служим лишь машинами, обеспечивающими их выживание. Мир эгоистичного гена – это мир жестокой конкуренции, безжалостной эксплуатации и обмана. Ну а как же акты альтруизма, наблюдаемые в природе: пчелы, совершающие самоубийство, когда они жалят врага, чтобы защитить улей, или птицы, рискующие (   Читать дальше...   )Жанр: Образовательная литература, научно-популярная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBE998D50B7E798E3F8E8F43ED942B8F5AE07019
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946009   (427371) от 13.10.2015
+
+С. Т. Мелюхин | Философские проблемы современной физики (1966) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427371.jpg" />
+</div>
+
+
+###  Подробнее
+
+В брошюре дается представление о философских проблемах современной физики.Жанр: История, философия, физикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1365BFD8DA52CE336DF46369274511296F85B1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945997   (427366) от 13.10.2015
+
+Т. И. Ойзерман | Основные ступени процесса познания (1957) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427366.jpg" />
+</div>
+
+
+###  Подробнее
+
+В брошюре раскрываются основные положения теории познания диалектического материализма. Показываются роль практики как основы познания, чувственное отражение действительности и рациональное познание.Жанр: История, философияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91E1E210DCA8BE077F9C086137DA617F48FDFCC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946125   (427363) от 13.10.2015
+
+М. М. Розенталь | Принципы диалектической логики (1960) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427363.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге сделана попытка рассмотреть и изложить некоторые важнейшие принципы диалектической логики и применить их к анализу ряда конкретных вопросов многостороннего процесса познания.
+
+Цель, которую преследует данная работа, может быть сведена к трем моментам:
+(   Читать дальше...   )Жанр: История, философия, логикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F7E2FAAE7F3B4623521010A6D5ACD00BEDA492F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324249   (427336) от 08.09.2019
+
+Алексей Волынец | Деревянные пушки Китая. Россия и Китай – между союзом и конфликтом  (2017) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чем «опиумные войны» англичан в Поднебесной были похожи на Крымскую войну? Почему русские без единого выстрела вернулись на потерянный Амур и отчего за Приморье пришлось сражаться не с китайцами, а с Англией? Зачем русские гвардейцы учили маньчжурских солдат и почему китайские «казаки» Синьцзяна съели русских пленных? Как Китай влиял на постройку Транссиба и Владивостокской (   Читать дальше...   )Жанр: Военное дело, Документальная литература, ИсторияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97AD78F6C81107EDE914505D3EAB8F1A447A51ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

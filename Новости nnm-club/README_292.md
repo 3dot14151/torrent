@@ -1,3 +1,57 @@
+###  Публикация: 1210777   (29759) от 26.01.2025
+
+Книжная серия | Азбука-бестселлер [255 книг] (2012-2025) [FB2, EPUB] [Обновляемая]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все самые модные и популярные произведения художественной литературы собрала под своими супер-обложками книжная серия "Азбука - бестселлер". Это качественные издания, с ярким оформлением и в удобном формате.
+***
+Что такое свобода? И кто свободнее – человек, ни разу в жизни не покидавший четырех стен, в которых родился, и черпающий знания об окружающем мире (   Читать дальше...   )Жанр: Современная прозаИздательство: Азбука, Азбука-АттикусФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:635F296720C0783D26AD3B047A6241FA941DF8A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774880   (29750) от 26.01.2025
+
+Корпорации выступают против итальянских антипиратских мер
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ранее в Италии запустили Piracy Shield — автоматизированную систему борьбы с интернет-пиратством. Именно из-за неё в стране уже однажды заблокировали Google Drive, Cloudflare, и другие легитимные сайты и сервисы.Теперь же против этой системы выступает CCIA — это ассоциация компьютерной и коммуникационной индустрии, представляющая интересы таких компаний, как Amazon, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693645   (29657) от 27.01.2025
 
 Военная приемка (2024) WEBRip [H.264/1080p] (часть 9, выпуски 401-450 из 450)
@@ -6,7 +60,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29657.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Launcher for zapret 1.6 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29553.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29549.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29246.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29055.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29035.jpg" />
 </div>
 
 
@@ -164,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28948.jpg" />
 </div>
 
 
@@ -190,7 +244,7 @@ OpenAI наносит ответный удар: вышла ChatGPT o3-mini дл
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28935.jpg" />
 </div>
 
 
@@ -216,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28933.jpg" />
 </div>
 
 
@@ -242,7 +296,7 @@ Bruno Simong | Three.js Journey - The ultimate Three.js course (2024) WEB-DL [EN
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28738.jpg" />
 </div>
 
 
@@ -271,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28724.jpg" />
 </div>
 
 
@@ -297,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28683.jpg" />
 </div>
 
 
@@ -323,7 +377,7 @@ WinPE 11-10 Sergei Strelec (x64) 2025.02.05 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28632.jpg" />
 </div>
 
 
@@ -349,7 +403,7 @@ EMPO - курсы SEO с гарантией роста позиций [Прод�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28529.jpg" />
 </div>
 
 
@@ -375,7 +429,7 @@ Geekbrains | Профессия Программист Android (2015) PCRec [H.2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28527.jpg" />
 </div>
 
 
@@ -403,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28509.jpg" />
 </div>
 
 
@@ -429,7 +483,7 @@ Google отменяет инклюзивность
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28404.jpg" />
 </div>
 
 
@@ -455,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28322.jpg" />
 </div>
 
 
@@ -481,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28317.jpg" />
 </div>
 
 
@@ -507,7 +561,7 @@ Adobe Photoshop 2025 26.3.0.156 (03.02.2025) RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28215.jpg" />
 </div>
 
 
@@ -533,7 +587,7 @@ Dying Light 2: Stay Human (2022) [Ru/En] (1.21.0/dlc) Repack Decepticon
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28110.jpg" />
 </div>
 
 
@@ -559,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28109.jpg" />
 </div>
 
 
@@ -585,7 +639,7 @@ Navitel / Официальные карты релиза Q1 2025 v9 [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28013.jpg" />
 </div>
 
 
@@ -614,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27991.jpg" />
 </div>
 
 
@@ -625,61 +679,6 @@ Google DeepMind разработала систему искусственног
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 384385   (27905) от 12.02.2025
-
-Kenny Wayne Shepherd - 13 Albums (1995 - 2024) 15 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Blues Rock>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кенни Уэйн Шеппард (англ. Kenny Wayne Shepherd; 12 июня 1977, Шривпорт) - американский блюзовый гитарист, певец, автор песен. Он вышел на сцену нью-орлеанского фестиваля уже в 13 лет. Отец-продюсер прочил сыну карьеру юриста, но Кенни Уэйн спустя год уже гастролировал со своей группой, а в 18 лет записал дебютный альбом "Ledbetter Heights", который имел (   Читать дальше...   )Список альбомов:
-1995 - Ledbetter Heights
-1997 - Trouble Is
-1999 - Live OnЖанр: Blues RockПродолжительность: 14:30:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79468B556F5199A9DF729BD56AF1B04707A786A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694262   (27800) от 13.02.2025
-
-Интерстеллар / Interstellar (2014) BDRip [AV1/2160p] [4K, SDR, 10-bit] [IMAX Edition] [hand made Upscale AI]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда засуха приводит человечество к продовольственному кризису, коллектив исследователей и учёных отправляется сквозь червоточину (которая предположительно соединяет области пространства-времени через большое расстояние) в путешествие, чтобы превзойти прежние ограничения для космических путешествий человека и переселить человечество на другую планету.Производство: США, Великобритания / Warner Bros. Pictures, Legendary PicturesЖанр: фантастика, драма, приключенияРежиссер: Кристофер НоланАктеры: Мэттью МакКонахи, Энн Хэтэуэй, Кейси Аффлек, Маккензи Фой, Майкл Кейн, Дэвид Гяси, Уэс Бентли, Джессика Честейн, Джон Литгоу, Мэтт ДэймонПеревод: Дублированный (Blu-ray CEE)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:49:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CDA6704888D410970D94D5B8358E25CB52975BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

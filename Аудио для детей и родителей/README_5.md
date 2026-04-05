@@ -1,3 +1,32 @@
+###  Публикация: 507930   (1023233) от 01.04.2021
+
+Большой детский хор ЦТ и ВР п/у В.Попова - Дружат дети на планете (2006) [MP3|320 kbps] <Детская музыка>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дружат дети на планете (4:13)
+02. Песенка Витьки - почемучки (1:43)
+03. Белый мишка (3:09)
+04. Спой нам, ветер (3:50)(   Читать дальше...   )Жанр: Детская музыкаПродолжительность: 01:08:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AFF2572CAAFFDDBAB6453243A24579F75D1D3A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 491023   (1023225) от 01.04.2021
 
 Н.А. Кун | Легенды и мифы Древней Греции (2005) [MP3, Н. Караченцов и др.]
@@ -6,7 +35,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023225.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023150.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022598.jpg" />
 </div>
 
 
@@ -84,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022571.jpg" />
 </div>
 
 
@@ -110,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022562.jpg" />
 </div>
 
 
@@ -136,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022558.jpg" />
 </div>
 
 
@@ -165,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022556.jpg" />
 </div>
 
 
@@ -194,7 +223,7 @@ VA - Now Thats What I Call Disney [3 CD] (2011) [MP3|320 кб/с]<Музыка �
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022532.jpg" />
 </div>
 
 
@@ -220,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022371.jpg" />
 </div>
 
 
@@ -249,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022343.jpg" />
 </div>
 
 
@@ -276,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022299.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022159.jpg" />
 </div>
 
 
@@ -329,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022154.jpg" />
 </div>
 
 
@@ -358,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022135.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022134.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022122.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022104.jpg" />
 </div>
 
 
@@ -464,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022029.jpg" />
 </div>
 
 
@@ -493,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022012.jpg" />
 </div>
 
 
@@ -519,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022008.jpg" />
 </div>
 
 
@@ -545,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021999.jpg" />
 </div>
 
 
@@ -574,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021848.jpg" />
 </div>
 
 
@@ -603,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021841.jpg" />
 </div>
 
 
@@ -632,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021682.jpg" />
 </div>
 
 
@@ -661,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021674.jpg" />
 </div>
 
 
@@ -675,34 +704,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24111E00F325797FCC6F2BEA860C28786FA21942
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461873   (1021630) от 11.04.2021
-
-Росс Уэлфорд | Тысячелетний мальчик (2021) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021630.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бессмертие – совсем никудышная жизнь!
-Альфи Монк помнит последнее вторжение викингов в Англию: ему 1000 лет, и, в отличие от других детей, он совсем не взрослеет. Альфи и его мать постоянно переезжают с места на место, оберегая свою тайну, и у Альфи нет настоящих друзей, ведь все его сверстники быстро вырастают.
-Однажды случается пожар, и Альфи теряет всё, что любил. (   Читать дальше...   )Жанр: Детская фантастика, Зарубежные детские книгиПродолжительность: 08:40:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6768C74D041481E51D062769252E37004D522DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

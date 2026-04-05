@@ -1,3 +1,55 @@
+###  Публикация: 1117586   (812894) от 25.03.2017
+
+Мстители: Величайшие герои Земли / The Avengers: Earth's Mightiest Heroes (2010 - 2011) 4 х Blu-Ray Disc [H.264/1080p] (Сезон 1, Серии 01-26 из 26)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неизвестная сила наносит удар по четырем тюрьмам для сверхлюдей, и десятки опаснейших суперзлодеев вырываются на свободу. Самые могучие супергерои объединяются в альянс под названием Мстители, чтобы вернуть вырвавшееся на свободу зло за решетку…Производство: СШАЖанр: Мультфильм, фантастика, боевик, приключения, семейныйРежиссер: Фрэнк Пор, Сайро Нили, Винтон Хёк, Себастьян Монтес, Бойд Керклэнд, Рой Бурдин, Стивен Е. Гордон, Гари ХартлПерсонажи: Человек муравей, оса, халк, железный человек, тор и др.Перевод: Дублированный - Пифагор, любительский (одноголосный закадровый) ZM-SHOWСубтитры: нетПродолжительность: 00:22:00 x 26 серий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72026B239562D10E556D7B7C82BB4D17B81961DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117749   (812702) от 25.03.2017
+
+Мстители: Величайшие герои Земли / The Avengers: Earth's Mightiest Heroes (2012) 3 х Blu-Ray Disc [H.264/1080p] (Сезон 2, Серии 01-26 из 26)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неизвестная сила наносит удар по четырем тюрьмам для сверхлюдей, и десятки опаснейших суперзлодеев вырываются на свободу. Самые могучие супергерои объединяются в альянс под названием Мстители, чтобы вернуть вырвавшееся на свободу зло за решетку…Производство: СШАЖанр: Мультфильм, фантастика, боевик, приключения, семейныйРежиссер: Фрэнк Пор, Сайро Нили, Винтон Хёк, Себастьян Монтес, Бойд Керклэнд, Рой Бурдин, Стивен Е. Гордон, Гари ХартлПерсонажи: Человек муравей, оса, халк, железный человек, тор и др.Перевод: Дублированный - ПифагорСубтитры: нетПродолжительность: 00:22:00 x 26 серий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:834EB34567DF464AECD3E0B459238F79FE6301C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 883128   (810862) от 01.04.2015
 
 Чародейки / W.I.T.C.H. (2006) DVDRip [H.264] (Сезон 2, серии 26 из 26)
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810862.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809916.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809104.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806666.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805864.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803319.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802634.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802633.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802591.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801618.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800938.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800917.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800855.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800563.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800238.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800072.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800020.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799415.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798427.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798399.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797385.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797288.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796829.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796516.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51DC13E4F5286B550B31A05AEDF53FBD2A420589
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983230   (795822) от 28.04.2016
-
-Звери / Animals (2016) HDTVRip (Сезон 1, Серия 1 - 10 из 10) Amedia
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Истории угнетенных обитателей каменных джунглей Нью-Йорка, среди которых и страдающие от безответной любви крысы, и ставящие под сомнение свою гендерную принадлежность голуби, и переживающие кризис среднего возраста клопы.Производство: США, Duplass Brothers, HBOЖанр: Компьютерная анимация, Комедия, Для взрослыхРежиссер: Майк Лучиано, Фил Мэтариз, Уэсли АрчерПерсонажи: Фил Мэтариз, Майк Лучиано, Меган О’Нилл, Кэтрин Аселтон, Мэри Холлэнд, Амир Блюменфилд, Джейк Харвитц, Нил Кэйси, Марк Дюпласс, Лорен ЛапкусПеревод: Многоголосый закадровый, профессиональныйОзвучка / Автор перевода: AmediaПродолжительность: 00:26:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:461D0E016E97BD122EB5BD28EB839628A75C3983
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012592   (793317) от 01.05.2016
-
-Школа Эвер Афтер: Игра драконов / Ever After High. Dragon Games (2015) DVB (серии 1- 3 из ?) (обновляемая)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главные герои мультсериала - дети легендарных сказочных персонажей. Все они учатся в школе волшебства под названием "Долго и счастливо". Ребята мечтают пойти по стопам своих родителей и стать добрыми волшебниками. Впереди их ждут невероятные приключения!Производство: США, Mattel Playground ProductionsЖанр: Мультфильм, фэнтези, комедия, полнометражныйРежиссер: Гарольд Гаррис, Дэн Фрага, Оду ПаденПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D8335D08A19DE164DABDB59DE2276B7BFCF7E62
 ```
 
 https://mybot314.ru/tekegram_catalog/

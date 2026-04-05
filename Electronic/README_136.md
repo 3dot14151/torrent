@@ -1,3 +1,61 @@
+###  Публикация: 1201674   (791676) от 26.01.2018
+
+VA - Wurkout Vol. 6 (Dj Tonyynot) (2018) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daphne Rubin Vega - Rocket Man (Original Mix) 6:06
+02. Kitty Punch - Swish Swish (Dj Shocker Remix) 5:21
+03. Deborah Cooper - Real Love (Rosabel's Fireball Anthem Edit) 3:46
+04. Ella - Green Light (Dj Shocker Remix) 6:45(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:09:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0A0379BC322CA77D8281BB4DCDE1642119153C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201589   (791675) от 26.01.2018
+
+VA - Electronic Lounge 25 Electronic Flavoured Lounge Tunes Vol.2 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trio Eletrico - Somewhere Behind - Original Mix
+02. Miper - Last Kiss - Original Mix
+03. MoShang - Weeping Willow - Original Mix
+04. Newton - French Kisses - Original Mix(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:00:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C24CCFE136BA86223540602005048E4A0EB0DC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201759   (791674) от 26.01.2018
 
 VA - Hidden / Places Chillout & Ambient 6 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Ambient>
@@ -6,7 +64,7 @@ VA - Hidden / Places Chillout & Ambient 6 (2018) [MP3|320 Kbps] <Downtempo, Chil
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791674.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Jono Mccleery - Seeds Of A Dandelion (2018) [MP3|320 Kbps] <Chillout, Soul, Down
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791673.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Workout Hits 2018. 40 Essential Hits For The Practice Of Your Favorite Spor
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791622.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Ministry Of Sound: Piano House Classics (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791570.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Activa - Origins (2021) [FLAC|Lossless|WEB|tracks|image] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791521.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Trance Pioneers (2021) [FLAC|Lossless|WEB|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791468.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Factor B - Theatre of the Mind (2021) [FLAC|Lossless|WEB|tracks] <Trance, Progre
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791467.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Dark Sessions Live At The Recoverworld Club Lounge (Mixed by Chris Hampshir
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791464.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Eric Prydz vs. Floyd - Proper Education (2007) Maxi-Single [FLAC|Lossless|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791338.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791318.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Luke Vibert - Luke Vibert presents Amen Andrews (2020) Hypercolour [FLAC|Lossles
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791290.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ GRiZ - 6 Albums, 4 Extended plays, 2 Mixtapes (2012-2019) [FLAC|Lossless|WEB-DL|
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791224.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Moby - All Visible Objects (2020) Little Idiot [FLAC|Lossless|WEB--24Bit|tracks]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791200.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Sash! - The Best Of (2008) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Elect
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791196.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Best Of LW Soulful House III (2019) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791162.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Winter Super Beats '19 (2019) [MP3|320 Kbps] <Electronic, Future House, Dan
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791157.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Danniel Selfmade - Parallel Life (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791156.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Deep House Grooves, Vol. 14 (2018) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791154.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Best Of LW Trance III (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791153.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ I Am Robot And Proud - Lucky Static (2018) [FLAC|Lossless|tracks + .cue] <IDM, L
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791151.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Violetshaped - Violetshaped (2013) Violet Poison [FLAC|Lossless|tracks|Vinyl] <T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791061.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ The Octagon Man - The Exciting World Of.... (1995) Electron Industries [FLAC|Los
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791060.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Travel Emotions (20 Chill Out, Lounge, Bossa Tracks) (2018) [MP3|320 Kbps] 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791058.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Daniel Avery - Slow Fade EP (2018) Phantasy Sound [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791057.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Daniel Avery - Slow Fade EP (2018) Phantasy Sound [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1FAA894F789E69712DFDC0EAEC82FF9BDF46172
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201975   (791054) от 27.01.2018
-
-VA - Ferry Corsten presents Corsten's Countdown January (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ferry Corsten  -  Lonely Inside (Extended Ferry Fix)  5:56
-02.  Alpha 9  -  You And I (Extended Mix)  5:38
-03.  BT & Jes  -  Every Other Way (PureNRG Extended Remix)  7:32
-04.  Gabriel & Dresden  -  Sequoia (Original Mix)  7:24(   Читать дальше...   )Жанр: TranceПродолжительность: 01:07:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD86425616CF7F24FC72DEAFE38D442562692392
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201645   (791050) от 27.01.2018
-
-VA - Hed Kandi:Back To Love (1999) [FLAC|Lossless|tracks] <House, Garage House, Deep House, Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.T-Empo - Saturday Night, Sunday Morning (T-Empo Mix) (8:10)
-02.Degrees Of Motion featuring Biti - Shine On (Original 12') (7:09)
-03.Jomanda - Got A Love For You (Hurley's House Mix) (7:35)
-04.Jamiroquai - Space Cowboy (Morales Classic Club Mix) (7:51)(   Читать дальше...   )Жанр: House, Garage House, Deep House, DiscoПродолжительность: 02:19:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9B73CDB5FB9223CDB2C0BA98A908685C1ECEDED
 ```
 
 https://mybot314.ru/tekegram_catalog/

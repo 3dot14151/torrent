@@ -1,135 +1,3 @@
-###  Публикация: 1849405   (1053771) от 23.01.2026
-
-В.Ф. Чудесенко | Сборник заданий по специальным курсам высшей математики (1983) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие написано в соответствии с действующей программой по курсу высшей математики. Оно содержит типовые расчеты по теории функций комплексного переменного, операционному исчислению, уравнениям математической физики, теории вероятностей и математической статистике. Задачи представлены 31 вариантом. Типовые расчеты содержат также теоретические вопросы, упражнения (   Читать дальше...   )Жанр: МатематикаИздательство: Высшая школаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A7C44ED310EB4D806EA89D6AD14692AF3BB84E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849398   (1053770) от 23.01.2026
-
-Mac Fulfer | Amazing Face Reading. An Illustrated Encyclopedia for Reading Faces (1996) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053770.jpg" />
-</div>
-
-
-###  Подробнее
-
-Face Reading is a means to a deeper communication with every person you meet. Fulfer takes this art/science out of the realm of the mysterious and into a hands-on method of learning. The most comprehensive, easy-to-use book of Face Reading available today. Amazing Face Reading is organized in an encyclopedic format and superbly illustrated. It takes you through faces, (   Читать дальше...   )Жанр: Энциклопедии, Психология, Межличностные отношенияЯзык: АнглийскийИздательство: Herveys BooklinkФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C98535D84D48A32047DEE225F9174672F8E3C3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849631   (1053621) от 24.01.2026
-
-В.И. Пустовойт | Хронический стресс и его последствия. Том 1 (2025) [PDF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый том трехтомного издания «Хронический стресс и его последствия» посвящён фундаментальным аспектам нейробиологии и патофизиологии стресс-индуцированных расстройств. В книге представлен междисциплинарный анализ, объединяющий достижения нейробиологии, психофизиологии, эндокринологии, иммунологии и клинической медицины. Особое внимание уделено эпидемиологической (   Читать дальше...   )Жанр: Здоровье, Популярно о медицинеИздательство: М.: ФМБЦФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:224A2892EDBB48AE9BFBD3CDA8936736760BAAEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848484   (1053589) от 24.01.2026
-
-Коллектив авторов | Материалы по русской трёхлинейной винтовке [76] (1922-1990) [DJVU, PDF, DOC, FB2, JPG]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаю уважаемому сообществу свою коллекцию книг - Памяток, Инструкций, НСД и прочих материалов, посвященных русской трехлинейной винтовке, разработанной нашим великим соотечественником, капитаном Сергеем Ивановичем Мосиным.
-
-В раздачу включены многие печатные материалы, посвященные русской трехлинейке образца 1891 г., 1891/30 г., карабинам образца 1938 г. и 1944 (   Читать дальше...   )Жанр: Исторический, научно-популярныйИздательство: РазличныеФормат: DJVU, PDF, DOC, FB2, JPGКачество: Различное
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B87AEB9E044DBB2F1BAA04261E8521EB7A65C95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849303   (1053551) от 22.01.2026
-
-Дж. Ортега | Введение в параллельные и векторные методы решения линейных систем (1991) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга известного американского математика, знакомого советским читателям по его совместной с В. Рейнболдтом книге "Итерационные методы решения нелинейных систем уравнений со многими неизвестными" (М.: Мир, 1975) и по совместной с У. Пулом книге "Введение в численные методы решения дифференциальных уравнений" (М.: Наука, 1986). Его новая книга (   Читать дальше...   )Жанр: МатематикаИздательство: МирФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65F168EA3EABF5CB72D4BB65FD0CE033AC48F179
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849298   (1053550) от 22.01.2026
 
 К.С. Кунц | Численный анализ (1964) [DJVU]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053550.jpg" />
 </div>
 
 
@@ -164,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053549.jpg" />
 </div>
 
 
@@ -190,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053548.jpg" />
 </div>
 
 
@@ -216,7 +84,7 @@ Donald Rizzo, Elisa Ratliff | Fundamentals of Anatomy and Physiology. 5th Editio
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053543.jpg" />
 </div>
 
 
@@ -242,7 +110,7 @@ Stephanie Ryan, Michelle McNicholas, Stephen J. Eustace | Anatomy for Diagnostic
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053542.jpg" />
 </div>
 
 
@@ -270,7 +138,7 @@ Karen Bescherer Metheny, Mary C. Beaudry | Archaeology of Food. An Encyclopedia 
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053516.jpg" />
 </div>
 
 
@@ -298,7 +166,7 @@ Paul Malmassari | Armoured Trains. An Illustrated Encyclopedia 1825-2016 (2016) 
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053512.jpg" />
 </div>
 
 
@@ -324,7 +192,7 @@ William R. Leben, Brett Kessler, Keith Denning | English Vocabulary Elements. A 
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053455.jpg" />
 </div>
 
 
@@ -350,7 +218,7 @@ Talia Swinton | English Vocabulary Mega Quiz Book. 5001 Solved Examples on Words
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053454.jpg" />
 </div>
 
 
@@ -376,7 +244,7 @@ Dan Piestun, Felecia Killings и др. | Basic Electrical And Electronics Engine
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053441.jpg" />
 </div>
 
 
@@ -405,7 +273,7 @@ Brandon Smith | Illustrated Dictionary of Computer Science. 3Ed Edition (2024) [
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053440.jpg" />
 </div>
 
 
@@ -431,7 +299,7 @@ Canan Cengiz | Illustrated Dictionary of Science. 3rd Edition (2024) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053430.jpg" />
 </div>
 
 
@@ -460,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053341.jpg" />
 </div>
 
 
@@ -486,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053338.jpg" />
 </div>
 
 
@@ -512,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053336.jpg" />
 </div>
 
 
@@ -538,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053225.jpg" />
 </div>
 
 
@@ -566,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053140.jpg" />
 </div>
 
 
@@ -594,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053113.jpg" />
 </div>
 
 
@@ -620,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053112.jpg" />
 </div>
 
 
@@ -646,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053111.jpg" />
 </div>
 
 
@@ -673,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053109.jpg" />
 </div>
 
 
@@ -686,6 +554,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D485C82EB152C9F1504F20E3BF55688E89CDDE3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848766   (1053108) от 18.01.2026
+
+Дмитрий Иванов | Арктика. История освоения Крайнего Севера. Большой иллюстрированный атлас (2024) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053108.jpg" />
+</div>
+
+
+###  Подробнее
+
+На географических картах Арктики можно встретить немало русских названий. Это память о тех временах, когда наши соотечественники открывали один из самых суровых регионов Земли. Экспедиции россиян исследовали все северное побережье Евразии, обнаружили пролив между Америкой и Азией, побывали на Полюсе относительной недоступности, работали на первых дрейфующих станциях… (   Читать дальше...   )Жанр: История, География, Арктика, ЭнциклопедииИздательство: АСТФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0F706471B1C68ABD8EC90E3268F3A356FED0321
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848765   (1053107) от 18.01.2026
+
+Дмитрий Иванов | Антарктида. История изучения ледяного континента. Большой иллюстрированный атлас (2025) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как русские мореплаватели и советские полярники разгадывали тайны ледяного континента – в текстах и уникальных визуальных материалах.
+
+Более 200 лет прошло с тех пор, как экспедиция Фаддея Беллинсгаузена и Михаила Лазарева открыла Антарктиду. Продолжателями их дела стали участники первых советских антарктических экспедиций, которые 70 лет назад отправились к ледяному (   Читать дальше...   )Жанр: История, География, Антарктида, ЭнциклопедииИздательство: АСТФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43734CF7308D311536190457D76CA623100BCED2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848763   (1053105) от 18.01.2026
+
+В.О. Шпаковский | Самураи – рыцари Страны восходящего солнца. Большой иллюстрированный атлас (2024) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для того чтобы понять, кем были самураи, эти суровые и храбрые воины Дальнего Востока, которых называют японскими рыцарями, нужно познакомиться с историей Японии, её культурой и традициями, которые уходят своими корнями в далёкое прошлое. В книге даны краткие сведения из истории Японии, начиная с её деления на исторические эпохи и заканчивая основными датами и событиями, (   Читать дальше...   )Жанр: История, Самураи, ЭнциклопедииИздательство: АСТФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B9A42DE786C3A7962FC27397E200017D287E3C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848761   (1053104) от 18.01.2026
+
+В.О. Шпаковский | Рыцари расцвета и заката. Большой иллюстрированный атлас (2024) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эпоха расцвета и заката рыцарских доспехов, оружия и замков охватывает 200 лет – с 1500 по 1700 г.! В этот период прогресс значительно ускорился, появились новые орудия труда и войны. Произошла замена феодальных дружин и городских ополчений на наемные и национальные армии. И именно в этот период произошел неслыханный подъем оружейного мастерства, максимальное совершенство (   Читать дальше...   )Жанр: История, Рыцари, ЭнциклопедииИздательство: АСТФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:654BCDEDE9974B420FEA2E62A1188CAFE3FC2879
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848803   (1053088) от 18.01.2026
+
+Аркадий Герман | Гражданская война в России (1917-1922). Хроника страны в картах, событиях, фактах. Большой иллюстрированный атлас (2020) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053088.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга «Гражданская война в России (1917–1922). Большой иллюстрированный атлас» – это систематизированное собрание цветных карт, посвященных революциям и Гражданской войне, изменившим ход истории России в начале ХХ в. Сопроводительные тексты, которые помогают сориентироваться в ходе событий, особенностях положения на различных фронтах, вооружении, расстановке сил. (   Читать дальше...   )Жанр: История, ЭнциклопедииИздательство: АСТФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E4463EC249F5C7E4A3BD77047C7F055EADE62E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

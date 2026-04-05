@@ -6,7 +6,7 @@ History Channel: Американская книга тайн / America's Book o
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648361.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647270.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BBC: Магия грибов (Тайная жизнь грибов) / The Magic 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647014.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ NG: Испытайте свой мозг / Test Your Brain (2011) DVDRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646874.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ DV: Невероятное вокруг нас. Спутник указывае�
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646872.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ DV: Невероятное вокруг нас. Вторжение вирусо�
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646862.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ BBC. Заснеженный птенец или История одного пи
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646631.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ NG. Следствие по делам хищников / Predator CSI (2007) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646437.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ NG. Удивительная планета / Amazing Planet (2006) BDRip [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_645566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_645566.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Discovery: Через магию к звёздам / The Pop Illusionist (El Mag
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645536.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Discovery: Через магию к звёздам / The Pop Illusionist (El Mag
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645526.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Animal Planet: Cинее царство (Лазурная страна). Лам�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645376.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ BBC: Viasat History. Бразды правления. Балет на лошад
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644709.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644609.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643683.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643670.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ BBC: Солнечные бури: угроза планете Земля? / Sola
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_643462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_643462.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Discovery: Утраченный символ. Секреты тайного бр
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_643455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_643455.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Discovery. Вселенная Ultra HD / Space's Deepest Secrets (2016) HDTVRip 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643358.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ History Channel.  History: Эволюция. Битва за жизнь /  Evolv
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_643266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_643266.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ NGW: Прекрасная Америка: На границе с дикой пр
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643031.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ NG. Фри-соло / Free Solo (2018) HDTV [H.264/1080i-LQ] [MVO]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642693.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641914.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip [H.2
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641908.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641904.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ NG. Тайны истории. Человек в железной маске / M
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641652.jpg" />
 </div>
 
 

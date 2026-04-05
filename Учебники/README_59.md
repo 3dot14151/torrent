@@ -1,3 +1,55 @@
+###  Публикация: 1055873   (483614) от 24.09.2016
+
+В.Л. Конюх | Основы робототехники (2008) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены технические средства робототехники: история и предпосылки развития роботов, классификация роботов, кинематика манипуляторов, конструкции захватных устройств, приводы звеньев, сбалансированные манипуляторы, транспортные роботы, виды датчиков и управляющих устройств. Описаны способы человеко-машинного, программного, адаптивного и интеллектного управления (   Читать дальше...   )Жанр: РобототехникаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDDFB3E49E6920112CCB4CB7C744B5541A4748A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406070   (478990) от 01.09.2020
+
+Р. Лоудон | Квантовая теория света (1976) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478990.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой учебник, в котором детально освещены основы квантовой теории электромагнитного излучения в оптическом диапазоне и его взаимодействия с веществом. В книге содержится практически весь нужный для понимания материал, так что у читателя не возникнет необходимости обращаться к каким-либо дополнительным руководствам.Жанр: Учебное пособие, Физика, МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E809CFC5DEE6898172BC0BBDDC4428B7BF84DB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 939084   (477678) от 20.09.2015
 
 И.В. Орлова, В.А. Половников | Экономико-математические методы и модели: Компьютерное моделирование (2007) [PDF]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477678.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477371.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477091.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476382.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476308.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476053.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475894.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475749.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475675.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475666.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475497.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475267.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474511.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474319.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474317.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474239.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473841.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471683.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469808.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468784.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468719.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466074.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465638.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465631.jpg" />
 </div>
 
 
@@ -625,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1BB3E97C4911556CC66E2077BD374436EEA6B7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160786   (465536) от 29.08.2017
-
-А.О. Горбенко | Информационные системы в экономике (2015) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие написано с учетом системного подхода к рассмотрению современного состояния информационных технологий в экономике и содержит цикл лекций по одноименной дисциплине, которую автор преподает в Академии экономической безопасности МВД России и ряде других вузов Москвы. Материал пособия посвящен прежде всего принципам использования информационных систем (   Читать дальше...   )Жанр: Экономика, информатикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:232A853EDFD383BBC7402E215FF06EB14C47901D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940895   (464771) от 26.09.2015
-
-В.В. Носов | Механика композиционных материалов. Лабораторные работы и практические занятия (2013) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464771.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассмотрены лабораторные работы и практические занятия по вопросам классификации, строения, технологии изготовления, контроля качества, моделирования процессов деформирования и разрушения анизотропных упругих, вязкоупругих, упругопластичных композитов. Разобраны вариационный подход к оценке границ эффективных модулей, принцип энергетической континуализации, (   Читать дальше...   )Жанр: МеханикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A76C587A4D98483EC920C7BE6FF9DE2F3DE893D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

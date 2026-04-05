@@ -1,3 +1,30 @@
+###  Публикация: 1637217   (197593) от 03.06.2023
+
+Apeiron, Алексей Арестович | Семинар «Священная рана» (2020) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это один из базовых семинаров для понимания человека и его места в мире. На семинаре вы узнаете о сути Священной раны, законах этого пути, сущности каждого этапа эволюционной лестницы, правилах движения и перехода.
+У каждого есть своя уникальная Ахиллесова пята. В начале пути она кажется слабостью либо недостатком, от которого хочется избавиться и забыть. Человек (   Читать дальше...   )Производство: ApeironЖанр: психология общения, межличностные коммуникации, эзотерика и оккультизмЯзык озвучки: русскийПродолжительность: 03:55:39Реклама: cторонние вставки и наложения на видео (водяной знак спонсора)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0166474D0602E2D3C792AACB1DEB52EB33C92612
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1637420   (197591) от 03.06.2023
 
 Shestov Systems, Михаил Шестов | Presentable Business English (2021) WEB-DL [AD] [RU]
@@ -6,7 +33,7 @@ Shestov Systems, Михаил Шестов | Presentable Business English (2021)
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197591.jpg" />
 </div>
 
 
@@ -35,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197586.jpg" />
 </div>
 
 
@@ -63,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197584.jpg" />
 </div>
 
 
@@ -92,7 +119,7 @@ Apeiron, Алексей Арестович | Семинар «Ищите жен�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197583.jpg" />
 </div>
 
 
@@ -119,7 +146,7 @@ liveclasses, Алексей Шадрин | Калибровка мониторо
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197579.jpg" />
 </div>
 
 
@@ -146,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197574.jpg" />
 </div>
 
 
@@ -175,7 +202,7 @@ Andbery Cinematography, Андрей Береснев | PRO.СВЕТ (2020) WEB-
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197572.jpg" />
 </div>
 
 
@@ -204,7 +231,7 @@ Apeiron, Алексей Арестович | Семинар «Дисциплин
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197571.jpg" />
 </div>
 
 
@@ -231,7 +258,7 @@ Apeiron, Алексей Арестович | Семинар «Искусство
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197559.jpg" />
 </div>
 
 
@@ -257,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197552.jpg" />
 </div>
 
 
@@ -285,7 +312,7 @@ Color grading dao, Виталий Бужан | ПРОДВИНУТАЯ ЦВЕТО
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197543.jpg" />
 </div>
 
 
@@ -312,7 +339,7 @@ Shestov Systems, Михаил Шестов | Английский Pre-Intermedia
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197538.jpg" />
 </div>
 
 
@@ -339,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197519.jpg" />
 </div>
 
 
@@ -367,7 +394,7 @@ Maestro24  | Испанский для начинающих с 0 до базов
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197518.jpg" />
 </div>
 
 
@@ -396,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197503.jpg" />
 </div>
 
 
@@ -424,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197501.jpg" />
 </div>
 
 
@@ -453,7 +480,7 @@ New Guru, Елена Милгред | Согласование Времен. П�
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197497.jpg" />
 </div>
 
 
@@ -481,7 +508,7 @@ Shestov Systems, Михаил Шестов | Английские глаголы
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197494.jpg" />
 </div>
 
 
@@ -507,7 +534,7 @@ Learn Squared, Arsen Asyrankulov | Organic Sculpting (2021) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197455.jpg" />
 </div>
 
 
@@ -533,7 +560,7 @@ Wingfox, Virendra Kumar | Blender Anime - NPR Environment Course (2023) PCRec [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197453.jpg" />
 </div>
 
 
@@ -560,7 +587,7 @@ Kalacheva School, Рузанна Айрапетян | Карандашный р�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197438.jpg" />
 </div>
 
 
@@ -589,7 +616,7 @@ Myrevitschool | My Revit - оформление 3Д видов (2023) WEB-DL [AD
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197416.jpg" />
 </div>
 
 
@@ -617,7 +644,7 @@ Archtutors, Андрей Кузьменко | Научитесь проекти�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197414.jpg" />
 </div>
 
 
@@ -645,7 +672,7 @@ Apeiron, Алексей Арестович | Семинар «Сила наме�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197383.jpg" />
 </div>
 
 
@@ -671,7 +698,7 @@ Proko, Ahmed Aldoori | Med's Map - Your Guide to Digital Painting Mastery (2021)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197234.jpg" />
 </div>
 
 
@@ -682,32 +709,6 @@ Proko, Ahmed Aldoori | Med's Map - Your Guide to Digital Painting Mastery (2021)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7811CBC35C666C909C6587F6694F53F77F35BDAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638846   (197211) от 10.06.2023
-
-PolskieCentrumKLD, Томаш Оманьски | Полный курс польского языка (2019) WEB-DL [AD] [RU, PL]
-
->>Обучающие видеоматериалы
->>Иностранные языки (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс польского языка от знаменитого польского преподавателя Томаша Оманьски, включающий в себя 44 лекции.Производство: PolskieCentrumKLDЖанр: польский языкЯзык озвучки: польский, русскийПродолжительность: 32:28:58Реклама: сторонние вставки и наложения на видео (водяной знак спонсора)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85524749B5A8989C70A1058DB85E2EE1AF0D0925
 ```
 
 https://mybot314.ru/tekegram_catalog/

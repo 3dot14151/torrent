@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76459.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76457.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76236.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75843.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75498.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75244.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_73215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73215.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_72566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72566.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67336.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66625.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63245.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44808.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25464.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Discovery. Голубые ангелы: Год в жизни / Blue Angels: A Ye
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24840.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17306.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15412.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15380.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ History Channel. Человек-оружие / Human Weapon (2007) IPTVRip (13 �
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13435.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ BBC. Становление континентов / Rise of the Continents (201
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9930.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ NG: В поисках Атлантиды / Finding Atlantis (2011) HDTVRip [720p
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9143.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Animal Planet: Cинее царство (Лазурная страна). Аку�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8343.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Pink Floyd - История создания альбома "Wish You Were Here"
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6553.jpg" />
 </div>
 
 

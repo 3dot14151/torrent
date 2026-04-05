@@ -1,3 +1,30 @@
+###  Публикация: 1506511   (800175) от 31.10.2021
+
+Хельга Воджик | Территория F. Монстры под лестницей (2021) [MP3, Дмитрий Рыбин]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800175.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повесть «Монстры под лестницей» была написана Хельгой Воджик для литературного конкурса детской и подростковой фантастики «Территория F» и принесла автору победу.
+Герою книги Максу неполных одиннадцать, но он умён не по годам. Однако жизнь складывается не лучшим образом. У мальчика нет отца: тот однажды загадочно исчез, не оставив следов. Почти нет у Макса и друзей, (   Читать дальше...   )Жанр: Детская литература/Фантастика/ПриключенияПродолжительность: 05:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C012DF4BD1BC47787DB0F5F789CA3C963A2B9EEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506506   (800174) от 31.10.2021
 
 Анна Овчинникова | Территория F. Принц, нищий и планета Везуха (2021) [MP3, Дмитрий Филимонов]
@@ -6,7 +33,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800174.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800099.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799837.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799836.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799833.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799772.jpg" />
 </div>
 
 
@@ -164,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798482.jpg" />
 </div>
 
 
@@ -191,7 +218,7 @@ DeAgostini Disney | Волшебные сказки Disney (2020) [MP3, DeAgosti
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797965.jpg" />
 </div>
 
 
@@ -217,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797791.jpg" />
 </div>
 
 
@@ -243,7 +270,7 @@ VA - Jazz For Kids - Sing, Clap, Wiggle, And Shake (2004) [MP3|320 Kbps]<Джа�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797198.jpg" />
 </div>
 
 
@@ -272,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797104.jpg" />
 </div>
 
 
@@ -298,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796586.jpg" />
 </div>
 
 
@@ -325,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795669.jpg" />
 </div>
 
 
@@ -351,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795274.jpg" />
 </div>
 
 
@@ -380,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795240.jpg" />
 </div>
 
 
@@ -406,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794732.jpg" />
 </div>
 
 
@@ -432,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794321.jpg" />
 </div>
 
 
@@ -458,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794012.jpg" />
 </div>
 
 
@@ -484,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793679.jpg" />
 </div>
 
 
@@ -513,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793626.jpg" />
 </div>
 
 
@@ -539,7 +566,7 @@ VA - The Mozart Effect - Music for Moms & Moms-to-be (2000) [MP3|320 Kbps]<Де�
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793354.jpg" />
 </div>
 
 
@@ -568,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793163.jpg" />
 </div>
 
 
@@ -596,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793151.jpg" />
 </div>
 
 
@@ -622,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792971.jpg" />
 </div>
 
 
@@ -648,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792946.jpg" />
 </div>
 
 
@@ -659,32 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8469CDA9350C886BEC5B136DBDEBAB890E441D73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509908   (792937) от 14.11.2021
-
-Джеральд Даррелл | Говорящий сверток (2021) [MP3, Алексей Багдасаров]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792937.jpg" />
-</div>
-
-
-###  Подробнее
-
-Братья Питер и Саймон и их кузина Пенелопа проводят лучшие на свете каникулы в Греции. Найдя на берегу свёрток, разговаривающий человеческими голосами, друзья знакомятся с министром волшебной страны Попугаем и его домоправительницей паучихой Дульчинеллой. Волшебные существа изгнаны со своей сказочной родины злыми василисками, опасность нависла над страной Мифландией (   Читать дальше...   )Жанр: Детская литература/СказкаПеревод: Наталия РахмановаПродолжительность: 06:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B92DBA911AFDAAC991151EFC9BE7601D22E093E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

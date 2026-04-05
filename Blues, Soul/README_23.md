@@ -6,7 +6,7 @@ Universal Hippies - Evolution of Karma (2018) [MP3|320 Kbps] <Heavy Psychedelic 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512982.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - The Cliffhanger Project (2010) [MP3|320 кб/с]<Blues-Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512521.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ VA - Screaming and Crying (2012) 3CD [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512422.jpg" />
 </div>
 
 
@@ -100,7 +100,7 @@ Bonedog - Desert Storm (2012) [MP3|~256 кб/с ]<Blues/Hard Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512389.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Jay Jesse Johnson - Set The Blues On Fire (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511886.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Bonedog - Blame The Cat (2011) [MP3|320 кб/с]<Blues Rock | Hard Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510559.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ VA - The Dirt Lounge (Smooth Chillout & Jazz) (2015) [MP3|320 кб/с]<Lounge, C
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510188.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Jimmy Joe - Rusty Room (2019) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506913.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Lightning Hall - Gasoline (2019) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505968.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Killing Floor - 4 Альбома (1969 - 2012) [MP3|320 кб/с]<Blues-Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504739.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ BBB - Tell Me (2008) [MP3|320 Kbps] <Blues Rock, Blues, Female Vocal>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502388.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Mark Knopfler - Privateering (2012) 2CD Promo [MP3|~245 кб/с ]<Folk / Blues /
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501058.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ The Righteous Brothers - Les Genies du Rock - Rock And Roll Heaven (1995) [MP3|3
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499558.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Kingfish - Kingfish (2022) [MP3|320 Kbps] <Classic Rock, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498529.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Z.Z. Hill - The Complete Hill/UA Recordings (1996) [MP3|320 кб/с]<Modern Elec
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498511.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Memphis Train - No Buts, No Maybes (2015) [MP3|320 кб/с]<Modern Electric Blue
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498454.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Mick Rothman - Place, Loss, Love & Life (2015) [MP3|320 кб/с]<Blues, Country 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498448.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Tramp - Tramp (1969) Remastered 2007 [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498442.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ VA - 29th Byron Bay Bluesfest 2018 (2018) [MP3|320 Kbps] <Blues, Blues Rock, R'n
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497675.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ VA - Chicago Blues Masters, Vol. 3 (1997) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497659.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Luxuriant Sedans - Born Certified (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496488.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ John Mayall - Find A Way To Care (2015) [MP3|320 кб/с]<Chicago Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496381.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ David Gogo - Vicksburg Call (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496157.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ Blues Saraceno & Nineoneone - Wicked Gonna Come (2018) EP [MP3|320 Kbps] <Blues 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495579.jpg" />
 </div>
 
 
@@ -723,7 +723,7 @@ Blues Pills - Holy Moly! (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495182.jpg" />
 </div>
 
 
@@ -752,7 +752,7 @@ Jay Willie Blues Band - Johnny's Juke Joint (2015) [MP3|320 кб/с]<Electric Bl
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494452.jpg" />
 </div>
 
 

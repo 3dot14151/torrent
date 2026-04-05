@@ -1,3 +1,29 @@
+###  Публикация: 1141435   (648247) от 11.06.2017
+
+Сердце дракона 4 / Dragonheart: Battle for the Heartfire (2017) BDRip [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Король Гарет умирает, что теперь будет с драконом, отдавшим ему часть своего сердца? Станут ли потомки короля достойными продолжателями его славных дел, и какой дар будет у каждого из них?Производство: США, Castel Film Romania, Universal 1440 EntertainmentЖанр: ФэнтезиРежиссер: Патрик СиверсенАктеры: Патрик Стюарт, Том Рис Харрис, Джессамин-Блисс Белл, Тэмзин Мёрчант, Андре Эриксен, Ричард Кордери, Мартин Хатсон, Делрой Браун, Тёрло Конвери, Льюис Маккиннон ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (отдельным файлом)Продолжительность: 01:37:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F7337BC19F9D05FA66422565A07C35D7C3F68C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1227361   (646489) от 26.05.2018
 
 Невидимка / In Darkness (2018) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
@@ -6,7 +32,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646489.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646401.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646288.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646205.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646191.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644590.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644479.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644345.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644267.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644265.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644263.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643367.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643228.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642764.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642492.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642455.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640623.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639307.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639176.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ Oats: Volume 1 (2018) WEB-DL [H.264/1080p-LQ] [EN]
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639075.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637763.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637291.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636948.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636930.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636823.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6674232BAA30DA640E0D08B366A58069E87B6B3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908155   (635580) от 13.06.2015
-
-Голодные сердца / Hungry Hearts  (2014) WEB-DL [H.264/720p-LQ] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Волею судеб молодые люди Джуди и Мина оказались в одном месте в одно время. Каждый из них приехал в самый удивительный район Нью-Йорка, Бруклин. Он вдохновил их красотой своих каменных джунглей. Чтобы отдохнуть, а затем вновь продолжить путешествие, они зашли в небольшое кафе, где и познакомились. Они влюбились друг в друга с первого взгляда и больше не захотели (   Читать дальше...   )Производство: Италия, США, Wildside, Rai Cinema, Ministero per i Beni e le Attività Culturali (MiBAC)Жанр: триллер, драмаРежиссер: Саверио КостанзоАктеры: Адам Драйвер, Альба Рорвахер, Роберта Максвелл, Аль Роффе, Гейша Отеро,  Джейк Уэбер, Дэвид Аарон Бэйкер, Натали Голд, Виктор Уильямс, Кристина Дж. Хюи, Джинджер КернсПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:52:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5D98FF8F71A53883190DE2ED31514B9D6622243
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1238087   (547739) от 28.07.2018
+
+Черновик (2018) WEB-DLRip [H.264]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой москвич Кирилл — талантливый дизайнер компьютерных игр. В один прекрасный день он оказывается напрочь стертым из памяти всех, кого он знал и любил. Кирилл узнает, что выбран для важной и таинственной миссии. Его предназначение — стать таможенником между параллельными мирами, коих во Вселенной десятки. Сможет ли Кирилл разгадать тайну этих таинственных миров (   Читать дальше...   )Производство: Россия, Новые людиЖанр: ФантастикаРежиссер: Сергей МокрицкийАктеры: Никита Волков, Евгений Ткачук, Ольга Боровская, Юлия Пересильд, Северия Янушаускайте, Евгений Цыганов, Елена Яковлева, Ирина Демидкина, Андрей Мерзликин, Андрей РуденскийПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:55:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DED4CE5046CC3564D84D49A9366DCA8C9B83ABF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310252   (547487) от 23.06.2019
+
+Microsoft Windows 7 SP1 x86/x64 Ru 9 in 1 Origin-Upd 06.2019 by OVGorskiy® 1DVD
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547487.jpg" />
+</div>
+
+
+###  Подробнее
+
+обновленные оригинальные русские образы ОС Windows 7 от Microsoft разных редакций и разрядностей. Образ содержит в себе 9 редакций ОС на 1 DVD (x86 и x64). Включает в себя "чистые" не модифицированные образы ОС Windows 7 Starter x86, Home Basic x86/x64, Home Premium x86/x64, Professional x86/x64, Ultimate x86/x64, собранные в один образ стандартными средствами (   Читать дальше...   )Язык интерфейса: Русский (Russian),
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D054F8CFE3D5F7F4AA942B80B2A7EC18868FAD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048167   (547088) от 01.09.2016
 
 Проекты - VideoHive - Colorful Ink Slideshow - 17094960 [AEP]
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547088.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ Livelock (2016) [Ru/Multi] (1.0 Build 24994/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547049.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547041.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2017 Redistributable Package Hybri
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546906.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546902.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546645.jpg" />
 </div>
 
 
@@ -168,7 +220,7 @@ Batman: Arkham Origins / Batman: Летопись Аркхема (2013) [Ru/En] 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546167.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546157.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545914.jpg" />
 </div>
 
 
@@ -248,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545689.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ Acronis True Image Home 2014 17 Build 5560 RePack by KpoJIuK [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545352.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545269.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ Re-Loader Activator 3.0 Beta 3 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545264.jpg" />
 </div>
 
 
@@ -353,7 +405,7 @@ The Sinking City (2019) [Ru/Multi] (1.0) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545054.jpg" />
 </div>
 
 
@@ -379,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545049.jpg" />
 </div>
 
 
@@ -405,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544828.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ Life is Feudal: Forest Village (2016) [Ru/Multi] (0.9.4158) Repack GAMER
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544255.jpg" />
 </div>
 
 
@@ -457,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544250.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2019.06.26 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544086.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543962.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ Corel Painter 2017 16.0.0.400 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543364.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ The Sinking City (2019) [Ru/Multi] (3709.2/dlc) Repack R.G. Catalyst [Necronomic
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543173.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542969.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542234.jpg" />
 </div>
 
 
@@ -626,60 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:985AB94973F152754C926D9CB41BA10A873E8980
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924824   (542232) от 05.08.2015
-
-KMSAuto Net 2015 1.3.7 Portable [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542232.jpg" />
-</div>
-
-
-###  Подробнее
-
-KMSAuto Net - автоматический KMS-активатор для операционных систем
-Windows VL редакций: Vista, 7, 8, 8.1, 10, Server 2008, 2008 R2, 2012,
-2012 R2 а также Office 2010, 2013, 2016.Язык интерфейса: Русский / Украинский / Английский / Французский / Испанский / Вьетнамский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46AF27E91FCED9148DDE29E5D76F7BEDA1B9B9FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925082   (542230) от 05.08.2015
-
-Adobe Muse CC 2015.0.2.4 RePack by D!akov [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Muse CC – визуальный конструктор сайтов, функционирующий по принципу «отображение внесённых изменений в реальном времени». Таким образом, разработчику не требуется открывать HTML-код сайта - панель редактирования позволяет работать с веб-страницей, как с изображением. Очевидно, что такой подход ориентирован на создание среды разработки, доступной пользователю (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05AB4930D27BA9D02A5129A28B3D8418E2D2DF05
 ```
 
 https://mybot314.ru/tekegram_catalog/

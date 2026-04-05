@@ -1,3 +1,32 @@
+###  Публикация: 1615365   (235849) от 25.02.2023
+
+Armory - Mercurion (2022) [FLAC|Lossless|WEB-DL|tracks] <Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Message From The Stars
+02. Journey Into Infinity
+03. Transneptunic Flight
+04. The Hunters From Beyond(   Читать дальше...   )Жанр: Speed MetalПродолжительность: 00:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B49133060B93FC1FB2E0B143454BB77290452D46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1512322   (235843) от 24.11.2021
 
 Psilocybe Larvae - Non-Existence (2008) [FLAC|Lossless|image + .cue] <Dark Metal>
@@ -6,7 +35,7 @@ Psilocybe Larvae - Non-Existence (2008) [FLAC|Lossless|image + .cue] <Dark Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235843.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Veiled Alpha - Beyond the Mask (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235840.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Hypno5e - Sheol (2023) [FLAC 2.0|44,1/24|WEB-DL|tracks] <Avantgarde-Metal, Progr
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235833.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Deathspell Omega - The Synarchy of Molten Bones (2016) [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235832.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Otu - Moonic Of A Down (2022) [MP3|320 kbps] <Sludge, Drone, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235827.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Roxanne - Stereo Typical (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235818.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Psilocybe Larvae - Agony (2003) [FLAC|Lossless|image + .cue] <Dark Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235816.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Draken - Draken (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235815.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Code Orange - What is Really Underneath (2023) [FLAC|Lossless|WEB-DL|tracks] <Ha
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235810.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Tritop - Rise of Kassandra (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235805.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Eric Baule - Reflecting Circles (2021) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235803.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Immortal - War Against All (2023) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235800.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ KAUAN - Lumikuuro Live (2022) [FLAC|Lossless|Web-DL|tracks] <Dark Folk, Atmosphe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235799.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Sunborn - Imperishable (2021) [MP3|320 Kbps] <Melodic Death, Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235796.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Woe Unto Me - Spiral-Shaped Hopewreck (2021) [MP3|320 Kbps] <Melodic Metal, Doom
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235784.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Hillward - Alternate Timelines (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235769.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Numeron - Road to Valhalla (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235768.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Haissem - Philosofiend (2021) [MP3|320 Kbps] <Melodic Black, Dark Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235760.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ French, Frith, Kaiser, Thompson - Live, Love, Larf & Loaf  (1987) [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235752.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Black Spiders - Black Spiders (2021) [MP3|320 Kbps] <Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235751.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Jared Curtis - COLLIDE (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235747.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Pretty School - 2 Albums (2023) [MP3|320 Kbps] <Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235746.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Electric Crown - Prophecy of Doom (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235744.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Maktkamp - Caps Lock Woke Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235738.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Acer Negundo - Pryanichnye dozhdi (2023) [MP3|320 Kbps] <Psychedellic Rock, Expe
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235734.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Acer Negundo - Pryanichnye dozhdi (2023) [MP3|320 Kbps] <Psychedellic Rock, Expe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B1843A4454D6358F5F35F75658D6CCAD363C44C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640974   (235733) от 20.06.2023
-
-Arjen Lucassen's Supersonic Revolution - Golden Age Of Music (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SR Prelude
-02. The Glamattack
-03. Golden Age Of Music
-04. The Rise Of The Starman(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:07:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B90BC679978E4EE7F5FC2BC8F5D927D7858E073
 ```
 
 https://mybot314.ru/tekegram_catalog/

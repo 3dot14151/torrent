@@ -6,7 +6,7 @@ Tanagra - None Of This Is Real (2015) [MP3|320 кб/с]<Progressive Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591993.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Enthrone The Unborn - LXXVIII (2015) [MP3|320 кб/с]<Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591969.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Evergrey - A Heartless Portrait (The Orphean Testament) (2022) [MP3|320 kbps] <P
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591597.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Hellshot - Sickening Society (2015) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591446.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Visions Of Atlantis - Pirates (2022) [MP3|320 Kbps] <Symphonic Metal, Female Voc
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591191.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Burial Vault - Unity in Pluralism (2015) [MP3|320 кб/с]<Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590995.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Unleash The Archers - Time Stands Still (2015) [MP3|320 кб/с]<Melodic Power/D
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590896.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Luna - On The Other Side Of Life (2015) [MP3|320 кб/с]<Symphonic Funeral Doom
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590484.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Debauchery - Fuck Humanity (2015) [MP3|320 кб/с]<Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590414.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Cradle Of Filth - Hammer Of The Witches (2015) [MP3|320 кб/с]<Black Metal, Go
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590348.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Kollision - The Stage Of Death (2015) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589975.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Devil You Know - The Beauty Of Destruction (2014) Japanese Edition [MP3|320 кб
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589875.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Adrana - Foreshadow (2015) [MP3|320 кб/с]<Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588685.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Aeverium - Break Out (2015) Deluxe Edition 2CD [MP3|320 кб/с]<Nu Melodic Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588648.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Dystopia Na! - Dweller On The Threshold (2015) [MP3|320 кб/с]<Experimental Po
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588070.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_587795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_587795.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ DragonForce - In The Line Of Fire (2015) Live [MP3|320 кб/с]<Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586921.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Seven Witches - Call Upon The Wicked (Limited Edition) (2011) [MP3|320 kbps]<Hea
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586359.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Udo - Secrets In Paradise (2015) Сompilation[MP3|320 кб/с]<Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585740.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Judas Priest - 17albums + 1EP + 14singles (1974-2014) [MP3|320kbps] <Heavy Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585591.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Powerwolf - Blessed and Possessed (2015) Deluxe Edition [MP3|320 кб/с]<Power 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584721.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Kambrium - The Elders' Realm (2016) [MP3|320 Kbps] <Symphonic Power, Melodic Dea
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584516.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Subway To Sally - Mitgift AZ MMXV (2015) EP [MP3|320 кб/с]<Folk Metal, Indust
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584116.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Daniel Tidwell - Versus Video Games 3 (2015) [MP3|320 кб/с]<Instrumental/Powe
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584107.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ Metalwings - Fallen Angel in the Hell (2016) EP [MP3|320 Kbps] <Symphonic Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584084.jpg" />
 </div>
 
 
@@ -733,7 +733,7 @@ Tony MacAlpine - 30 albums (1986 - 2011) Full Discography [MP3|128 кб/с - 350
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584001.jpg" />
 </div>
 
 

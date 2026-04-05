@@ -1,32 +1,3 @@
-###  Публикация: 1017131   (612792) от 20.04.2022
-
-Herrey's (Херриз) - Diggi Loo, Diggi Ley (Дигги Лу, Дигги Лей) (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Europop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612792.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Дигги Лу, Дигги Лей • Diggi Loo, Diggi Ley
-A2	Освободись • Kom Loss
-A3	Мне Ничто Не Помешает • Ingenting Som Hindrar Mej
-A4	Если Это Любовь • If It's Love(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:38:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:144B902D35787771A20BED814A6FD8C06452B448
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1017177   (612789) от 20.04.2022
 
 Раймондс Паулс - Мой Путь (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Instrumental, Ragtime, Chanson>
@@ -35,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612789.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Fantastic Rio Carnaval (1976) [FLAC 2.0 24/96|Limage+.cue (Vinyl-Rip)]<Lati
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611135.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Hana & Dana, ORM - Talisman (1984) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Synth-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611043.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611041.jpg" />
 </div>
 
 
@@ -149,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611029.jpg" />
 </div>
 
 
@@ -176,7 +147,7 @@ VA - Rock Remakes - Non Stop Part three (2017) Unofficial Release [FLAC 2.0|44,1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610991.jpg" />
 </div>
 
 
@@ -205,7 +176,7 @@ Roger Hodgson - In The Eye Of The Storm (1984) [FLAC 2.0 24/96|image (Vinyl-Rip)
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610613.jpg" />
 </div>
 
 
@@ -234,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610045.jpg" />
 </div>
 
 
@@ -263,7 +234,7 @@ Pet Shop Boys - Behaviour (1990) Unofficial Release, Reissue 1992 [FLAC 2.0|192/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609500.jpg" />
 </div>
 
 
@@ -292,7 +263,7 @@ Herbie Hancock - Empyrean Isles / Maiden Voyage (1964-1965) 2015, Remastered [DT
 >>Blu-ray Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608085.jpg" />
 </div>
 
 
@@ -321,7 +292,7 @@ Steven Wilson - 4 ½ (2016) [DTS 5.1|LPCM 2.0, 5.1|96/24|Blu-ray]  <Progressive 
 >>Blu-ray Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607945.jpg" />
 </div>
 
 
@@ -350,7 +321,7 @@ Harry Secombe - At Your Request (1958) [FLAC 2.0 24/96|image+.cue (Vinyl Rip)]<P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607676.jpg" />
 </div>
 
 
@@ -379,7 +350,7 @@ VA - Soul Meeting Vol. II - The Sound Of Young America (1966) [FLAC 2.0 24/96|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607675.jpg" />
 </div>
 
 
@@ -408,7 +379,7 @@ Al Martino - Spanish Eyes (1965) [FLAC 2.0 24/96|image+.cue (Vinyl Rip)]<Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607671.jpg" />
 </div>
 
 
@@ -437,7 +408,7 @@ VA - Rock Линия (2004) [FLAC 2.0 16/44,1|image+.cue (MC Rip)]<Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607553.jpg" />
 </div>
 
 
@@ -466,7 +437,7 @@ VA - Послушай музыку (1983) [FLAC 2.0 24/96|image+.cue (Vinyl Rip)
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607552.jpg" />
 </div>
 
 
@@ -495,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607549.jpg" />
 </div>
 
 
@@ -524,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607458.jpg" />
 </div>
 
 
@@ -551,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607453.jpg" />
 </div>
 
 
@@ -580,7 +551,7 @@ Glenn Miller And His Orchestra - Glenn Miller Plays Selections From The Glenn Mi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607448.jpg" />
 </div>
 
 
@@ -609,7 +580,7 @@ The Traveling Wilburys - The Traveling Wilburys Collection (2007) 3LP Vinyl Boxs
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606596.jpg" />
 </div>
 
 
@@ -638,7 +609,7 @@ Supertramp - Crime of the Century (1974) 2014, Reissue [DTS-HD MA, LPCM, Dolby T
 >>Blu-ray Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606203.jpg" />
 </div>
 
 
@@ -669,7 +640,7 @@ The Rolling Stones - Exile On Main Street (1972) 2013 [DTS-HD MA, LPCM, Dolby Tr
 >>Blu-ray Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606201.jpg" />
 </div>
 
 
@@ -699,7 +670,7 @@ Bryan Adams - Reckless (1984) 2014, A&M [DTS-HD MA, LPCM, Dolby TrueHD 2.0, 5.1|
 >>Blu-ray Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606196.jpg" />
 </div>
 
 
@@ -728,7 +699,7 @@ VA - Старинные вальсы (1983) [FLAC 1.0|96/24|tracks|Vinyl-Rip] <F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606113.jpg" />
 </div>
 
 
@@ -742,6 +713,37 @@ VA - Старинные вальсы (1983) [FLAC 1.0|96/24|tracks|Vinyl-Rip] <F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C240B8BDB80E89D342FB1C3A1C4F73B7104DCF9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038340   (606068) от 28.07.2016
+
+Bon Jovi - Slippery When Wet (1986) 2015,  Mercury [DTS-HD MA, Dolby TrueHD 5.1|96/24|BD-Audio] <Hard Rock, Glam Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Blu-ray Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Slippery When Wet — третий студийный альбом группы Bon Jovi, выпущенный в августе 1986 года на Vertigo Records. Альбом включает в себя песни, которые сейчас считаются самыми известными песнями Bon Jovi, например «You Give Love a Bad Name», «Livin' on a Prayer» и «Wanted Dead Or Alive». Альбом провёл восемь недель на 1 месте The Billboard 200.
+
+Slippery When Wet является (   Читать дальше...   )01. Let It Rock
+02. You Give Love A Bad Name
+03. Livin' On A Prayer
+04. Social Disease(   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DAB18CE42DE92A5A0606CD96ADA91A48D5EA4E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

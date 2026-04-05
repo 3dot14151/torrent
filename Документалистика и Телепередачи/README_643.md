@@ -1,3 +1,160 @@
+###  Публикация: 1638907   (211816) от 10.06.2023
+
+Жизнь замечательных людей (2012-2013) DVB (часть 1, 30 выпусков)
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект ЗАО "Первый канал. Всемирная сеть", ведущим которого стал писатель, актер, режиссер и сценарист Павел Санаев, обещает внести новые главы в историю изучения "жизни замечательных людей".
+В студии программы встретятся два оппонента — автор официальной биографии и сторонник альтернативного мнения. Самые яркие и спорные эпизоды жизни известных (   Читать дальше...   )Производство: Россия, ЗАО "Первый канал. Всемирная сеть"Жанр: документальный, история, биографияРежиссер: Станислав МарунчакЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: серии ~01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB86CD93E8D4621EE352508DB64F63669C5E5EAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638910   (211795) от 10.06.2023
+
+Центральная Азия. Дух дикой природы / Central Asia, Spirit of the Wild (2015) WEB-DL [H.264/1080p] (сезон 1, серии 1-5 из 5) CLS Media
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Центральная Азия состоит из бесконечных равнин, засушливых пустынь и коварных гор, что делает её самой изолированной и опасной местностью в мире. Именно поэтому она остается относительно неизведанной для остального мира и сохраняет свою природу в первозданном виде.Производство: Корея Южная / Educational Broadcasting System (EBS)Жанр: документальныйРежиссер: Со ДжонПеревод: Одноголосый профессиональный (CLS Media)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C546174778EC4E8D32F2772ECA9473EDF13AF54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639074   (211782) от 11.06.2023
+
+Дневники Энди Уорхола / The Andy Warhol Diaries (2022) WEB-DL [H.264/1080p] (серии 1-6 из 6)
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ о знаменитом американском художнике Энди Уорхоле.Производство: США, NetflixЖанр: документальный, история, биографияРежиссер: Эндрю РоссиУчастники: Билл Ирвин, Джеффри Дейч, Джессика Бек, Боб Колачелло, Кристофер МакосПеревод: многоголосый профессиональный (SDI Media)Язык озвучки: русский, английскийСубтитры: русские (форсированные, полные), английские (полные, для слабослышащих), немецкие, французские, испанские, итальянские, португальские (европейские, бразильские), арабские, венгерские, вьетнамские, голландские, греческие, датские, иврит, индонезийские, корейские, китайские (упрощённые, традиционные), малахийские, норвежские, польские, румынские, тайские, турецкие, (   Читать дальше...   )Продолжительность: 00:56:13+00:52:39+01:12:20+01:14:25+01:05:06+01:18:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAA59AD1FBE660FFA6F08C7C02EA854AF2109149
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625533   (211744) от 12.06.2023
+
+В европейской глуши / Europe's Wilderness (2021-2022) HDTV [H.264/1080i] (серии 1-10 из 10)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Посреди лесов, морей и равнин, в диких местах европы обитают редкие и исчезающие виды животных. В этой серии фильмов мы увидим самые удалённые уголки этих мест с невероятным разнообразием жизниПроизводство: EU, Gebruder Beetz Filmproduktion, ZDF, ARTEЖанр: документальный, природа, флора, фаунаРежиссер: Марлене Винантс, Кей ВайтонисПеревод: одноголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: серии ~00:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37E637AA21BEF5606A487299839E3391314BD5DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639149   (211723) от 12.06.2023
+
+Тайны интимной жизни Гитлера / Hitler's Secret Sex Life (2020) WEB-DL [H.264/1080p] (сезон 1, серии 1-4 из 4) Кириллица
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал раскрывает самого ужасного тирана 20-го века с новой стороны: проблемы со здоровьем, комплексы, инцест, низкая самооценка в постели, фетиши и страсть к наркотикам. Человек, который погрузил в войну весь мир и совершил зверские преступления против человечества, употреблял метамфетамины, кокаин, а также бодрящий коктейль с бычьей спермой. Одна из его пассий (   Читать дальше...   )Производство: Австралия / EQ Media GroupЖанр: документальныйПеревод: Многоголосый профессиональный (Cyrillica)Язык озвучки: Русский, АнглийскийСубтитры: РусскиеПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE144735119BF0A653AE3DB4864C4AEFE4BD8FFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579511   (211713) от 22.10.2022
+
+Темная сторона 90-х / Dark Side of the '90s (2022) WEBRip [H.264/720p] (сезон 2, серии 1-10 из 10)
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный сериал повествует о невероятных моментах в поп-культуре, тенденциях и известных личностях в 1990-х годах, когда наступило время грандиозных социальных перемен. Телевидение претерпело резкую эволюцию в конце XX-го века, а некогда популярные интеллектуальные ток-шоу проиграли конкуренцию низкопробным телепередачам, выпускающим шоковый контент для развлечения (   Читать дальше...   )Телекомпания: США / Insight Productions, Railsplitter PicturesЖанр: документальный, биография, историяРежиссер: Ричард РоттерПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русский, английскийСубтитры: русскиеПродолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18709ECABF1E624BFE7BB8415EB540DF1CA5D6DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1639028   (211711) от 11.06.2023
 
 Первая передача на НТВ. Автомобильная передача (11.06.2023) WEB-DL [H.264/720p-LQ]
@@ -6,7 +163,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211711.jpg" />
 </div>
 
 
@@ -35,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211688.jpg" />
 </div>
 
 
@@ -62,7 +219,7 @@ Discovery: Махинаторы / Wheeler Dealers (2021-2022) WEBRip [H.264/1080
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211683.jpg" />
 </div>
 
 
@@ -89,7 +246,7 @@ Discovery: Махинаторы / Wheeler Dealers (2020-2021) WEBRip [H.264/1080
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211681.jpg" />
 </div>
 
 
@@ -116,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211680.jpg" />
 </div>
 
 
@@ -142,7 +299,7 @@ Throbbing Gristle: Такой же другой, как я / Other, Like Me (202
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211679.jpg" />
 </div>
 
 
@@ -168,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211634.jpg" />
 </div>
 
 
@@ -195,7 +352,7 @@ Discovery: Махинаторы / Wheeler Dealers (2023) WEBRip [H.264/1080p] (�
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211622.jpg" />
 </div>
 
 
@@ -222,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211567.jpg" />
 </div>
 
 
@@ -248,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211529.jpg" />
 </div>
 
 
@@ -274,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211422.jpg" />
 </div>
 
 
@@ -301,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211419.jpg" />
 </div>
 
 
@@ -327,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211325.jpg" />
 </div>
 
 
@@ -353,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211246.jpg" />
 </div>
 
 
@@ -379,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211203.jpg" />
 </div>
 
 
@@ -406,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211166.jpg" />
 </div>
 
 
@@ -432,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211055.jpg" />
 </div>
 
 
@@ -458,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211002.jpg" />
 </div>
 
 
@@ -484,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210978.jpg" />
 </div>
 
 
@@ -510,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210975.jpg" />
 </div>
 
 
@@ -521,162 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FBFA0704E0420A4AA4F4749CFE9C980DE7230CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641169   (210903) от 21.06.2023
-
-Стэн Ли / Stan Lee (2023) WEB-DL [H.264/1080p] [MVO]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стэн Ли был не только талантливым автором комиксов, но и настоящей легендой в мире развлечений. Он был известен своим чувством юмора и необычными идеями, которые вдохновляли многих людей по всему миру. Его творчество оказало огромное влияние на культуру и искусство, и его персонажи стали настоящими символами силы, добра и справедливости. Сегодня многие люди по всему (   Читать дальше...   )Производство: США, Marvel Studios Inc., Genius Brands International, Supper ClubЖанр: документальный, биографияРежиссер: Дэвид ГелбУчастники: Стэн ЛиПеревод: Многоголосый профессиональный (HDRezka Studio)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:26:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BCDED7161EAE428D8EE575657EF384AEDC0A9E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641506   (210901) от 22.06.2023
-
-Сила растений / The Power of Plants (2021) WEB-DL [H.264/1080p] (серии 1-2 из 2)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы считаем растения неодушевленными, беззащитными и безобидными существами, но это не так! У растений есть свои хитрости. Например, чтобы защититься от холода, растения сбрасывают листья или вырабатывают собственный антифриз. От животных, пытающихся их съесть, растения защищаются с помощью острых шипов или ядовитых веществ "собственного производства". Растения, (   Читать дальше...   )Производство: Германия, NDR Naturfilm, DoclightsЖанр: документальный, природа, флора, фаунаПеревод: дублированныйЯзык озвучки: русскийСубтитры: английскиеПродолжительность: серии ~00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27FFF4B51B9C665DA20904B65A01223D592F81D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641409   (210783) от 22.06.2023
-
-Зелёные животные / Green Animal (2015) WEBRip [H.264/720p] (части 1-3 из 3)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Растения - это такие же животные, у которых есть желания и воля. Растения страдают от нехватки питательных веществ, в то время как у них возникает потребность в половом размножении, чтобы распространять свою ДНК подобно животным. Растения должны более чутко реагировать на окружающую среду, потому что они не могут путешествовать; им нужно двигаться активнее, чтобы (   Читать дальше...   )Производство: Южная Корея, Educational Broadcasting System (EBS)Жанр: документальный, природа, флора, фаунаРежиссер: Сон Сын-уПеревод: одноголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:20:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36ACC8C9127130485A8E02E66BCD4A0ACD487BBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602351   (210782) от 05.01.2023
-
-Мейдофф: монстр с Уолл Стрит / Madoff: The Monster of Wall Street (2023) WEB-DL [H.264/1080p] (серии 1-4 из 4) [EN / RU, EN Sub]
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот документальный сериал рассказывает о взлете и падении финансиста Берни Мейдоффа, который организовал одну из крупнейших схем Понци в истории Уолл-стрит.Производство: СШАЖанр: документальный, криминалРежиссер: Джо БерлингерПеревод: ОтсутствуетЯзык озвучки: английскийСубтитры: русские, английские, немецкие и др.Продолжительность: ~00:55:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEB0F2ECFA22FE94E0DBC844D90566C9BB1E465B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641654   (210746) от 23.06.2023
-
-Жан де Лафонтен: человек, любивший басни / Jean de la Fontaine: L'homme qui aimait les fables (2021) HDTVRip [H.264] [FR / RU Sub]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210746.jpg" />
-</div>
-
-
-###  Подробнее
-
-По случаю 400-летия со дня рождения Жана де Лафонтена (1621-1695) в Шато-Тьерри мы знакомимся с творчеством баснописца, неисчерпаемым источником вдохновения для иллюстраторов.Производство: Франция, Zadig ProductionsЖанр: документальный, история, биографияРежиссер: Паскаль БуэникУчастники: Пьер Альфери, Флоренс Дюмура, Гийом ДежеПеревод: субтитрыЯзык озвучки: французскийСубтитры: русские (перевод компании Hiventy by TransPerfect), английские, французские, немецкие, испанские - (SRT); нидерландские - (IDX+SUB)Продолжительность: 00:52:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:872C98095D239C5DDE1CE4B09AAF82A04E4C7F01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641597   (210725) от 23.06.2023
-
-От рассвета до заката. Мадагаскар: ящерицы и лемуры / Dawn to Dusk. Madagascar: lizards and lemurs (2021) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210725.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встаёт солнце, наступает рассвет и мир пробуждается к новому дню. В норах, колониях и на ветвях просыпаются животные, что бы встретить восход солнца и приступить к своим обычным делам. Всё это в период: от рассвета - до заката.Производство: Новая Зеландия, NHNZЖанр: документальный, природа, флора, фаунаРежиссер: Кэролин ДоддПеревод: дублированныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:47:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98CD24819AE327669D22979E8098708A9EABB841
 ```
 
 https://mybot314.ru/tekegram_catalog/

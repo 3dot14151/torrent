@@ -1,3 +1,160 @@
+###  Публикация: 1397078   (742363) от 18.07.2020
+
+Adobe Premiere Pro 2020 14.3.1.45 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Premiere Pro CC 2020 - профессиональная программа для нелинейного видеомонтажа. Приложение обеспечивает высококачественное редактирование видео разрешения 4K и выше, с 32-битовым цветом, как в RGB, так и YUV цветовом пространстве. Редактирование аудиосемплов, поддержка VST аудиоплагинов (plug-in) и звуковых дорожек 5.1 surround. Архитектура Premiere Pro плагинов (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E74C04537F240CE8D71E61B433574F691ADCC90E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396167   (742353) от 18.07.2020
+
+Контрольный список / Watch List (2019) HDTVRip [VO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на реальных событиях рассказывает о безнаказанных убийствах на Филиппинах. Летом 2016 года в Маниле избранный президент Родриго Дутерте начал кампанию против торговли наркотиками под названием "Операция Токханг ( Убить Всех)" пообещав избирателям расправиться с наркоторговлей и криминалом. Теперь он претворяет страшное обещание в жизнь, охота (   Читать дальше...   )Производство: Филиппины, США, Канада / Bron Studios, Reality EntertainmentЖанр: Триллер, драма, криминалРежиссер: Бен РекхиАктеры: Артур Акуна, Алессандра де Росси, Джейк Макапагал, Джесс Мендоза, Анхели Баяни, Тимоти Мабалот, Микко Лауренте, Лу Велосо ...Перевод: Любительский одноголосый (datynet)Субтитры: ОтсутствуютПродолжительность: 01:34:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC109F3E97E06186FE21A6F4350855FAAA6F70DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162405   (742352) от 18.07.2020
+
+Смешарики. Пин-код (3 сезон). Гуманитарные технологии + Пин-код 2.0 + Азбуки интернета, финансовой грамотности, защиты леса + Спорт + Наследники (2017-2020) WEB-DLRip [H.264/720p-LQ]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любознательным Смешарикам хочется узнать новое, они стремятся исследовать все вокруг. Пин изобретает машину, на которой вся компания совершает научную экспедицию. Эта машина способна преодолевать не только границы Страны Смешариков и других миров, но и границы времени, и даже размеров! Смешарики решают отправиться в совместное путешествие, не подозревая, что им предстоит (   Читать дальше...   )Производство: Россия / Студия компьютерной анимации "Петербург"Жанр: Детский, Компьютерная анимацияРежиссер: Алексей Горбунов, Светлана Мардаголимова, Александра Аверьянова...Перевод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: серия по ~00:13:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC92AC0920DD6926755114A1E493A94448A2E42A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524575   (742012) от 17.01.2022
+
+Очередное достижение: 11000 релизов от Весельчак У
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_742012.jpg" />
+</div>
+
+
+###  Подробнее
+
+ Очередное достижение: 11000 релизов от Весельчак У Дорогие друзья и гости клуба... Вроде бы ещё совсем недавно, отмечали СОБЫТИЕ в 10к релизов от нашего коллеги Весельчак У
+как, неожиданно, пришла пора поздравлять с очередным достижением:11000 релизов! (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282726   (741988) от 14.02.2019
+
+Mars One — банкрот: проект колонизации Марса провалился
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_741988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания едва ли исполнит обещание снять реалити-шоу на Красной планете.Колонизация Красной планеты – голубая мечта космических корпораций (Роскосмоса, NASA, ESA) и частных компаний (вроде SpaceX Илона Маска или британско-нидерландского предприятия Mars One).Впервые о своих планах Mars One заявила в 2012 году. Основной акцент делался на медийность: в рамках миссии (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282363   (741982) от 14.02.2019
+
+Разработчик «Ангары» сравнил керосиновый РД-180 и метановый Raptor
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_741982.jpg" />
+</div>
+
+
+###  Подробнее
+
+США и Россия вступили в эру научно-технических соревнований «в части создания наиболее эффективных с инженерной точки зрения двигателей, наиболее напряженных», заявил РИА Новости генеральный директор компании «КосмоКурс» Павел Пушкин.По его мнению, раньше Россия в области жидкостных ракетных двигателей «была безапелляционным лидером».Комментируя заявление главы компании (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414193   (741875) от 17.01.2022
 
 Resident Evil 3 (2020) [Ru/Multi] (build 7599632/dlc) Repack West4it
@@ -6,7 +163,7 @@ Resident Evil 3 (2020) [Ru/Multi] (build 7599632/dlc) Repack West4it
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741875.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741872.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ Life is Strange: True Colors (2021) [Ru/Multi] (1.1.192.628695/dlc) Repack Other
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741870.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ Pink Floyd - Discovery Box, 16 Studio Album (1967-1994) 2011, EMI Music Group, R
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741853.jpg" />
 </div>
 
 
@@ -113,7 +270,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4639.1000 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741852.jpg" />
 </div>
 
 
@@ -139,7 +296,7 @@ ELEX (2017) [Ru] (1.0.2981.0) Repack Other s
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741851.jpg" />
 </div>
 
 
@@ -165,7 +322,7 @@ Microsoft Office 2007 Enterprise + Visio Premium + Project Pro + SharePoint Desi
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741850.jpg" />
 </div>
 
 
@@ -191,7 +348,7 @@ Windows 10 Enterprise LTSB 2016 v1607 x64  by Zosma 13.02.2019
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741849.jpg" />
 </div>
 
 
@@ -220,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741846.jpg" />
 </div>
 
 
@@ -248,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741845.jpg" />
 </div>
 
 
@@ -274,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_741783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_741783.jpg" />
 </div>
 
 
@@ -300,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_741615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_741615.jpg" />
 </div>
 
 
@@ -326,7 +483,7 @@ KMS Tools 01.04.2018 Portable by Ratiborus [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741606.jpg" />
 </div>
 
 
@@ -352,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_741559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_741559.jpg" />
 </div>
 
 
@@ -378,7 +535,7 @@ Adobe Illustrator CC 2015.2.1 19.2.1 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741487.jpg" />
 </div>
 
 
@@ -404,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741406.jpg" />
 </div>
 
 
@@ -431,7 +588,7 @@ Alcohol 120% 2.0.3.7612 Final RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741402.jpg" />
 </div>
 
 
@@ -457,7 +614,7 @@ Adobe Photoshop Lightroom 6.0 [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741401.jpg" />
 </div>
 
 
@@ -483,7 +640,7 @@ Adobe Photoshop Lightroom 6 CC [Multi + Ru]
 >>12
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741397.jpg" />
 </div>
 
 
@@ -509,7 +666,7 @@ Far Cry 4 (2014) [Ru] (1.10.0/dlc) SteamRip Let'sPlay [Gold Edition]
 >>13
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741396.jpg" />
 </div>
 
 
@@ -520,164 +677,6 @@ Far Cry 4 (2014) [Ru] (1.10.0/dlc) SteamRip Let'sPlay [Gold Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E398CBD39AD893C9A9608883E1B63C4A3121B4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396981   (741191) от 19.07.2020
-
-Экс-глава РАО признал в суде вину в хищении 762 миллионов рублей
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_741191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший глава Российского авторского общества (РАО) Сергей Федотов полностью признал вину в мошенничестве на более чем 762 миллиона рублей, передает корреспондент РИА Новости из зала Пресненского суда Москвы.
-"Вину признаю, раскаиваюсь", - ответил Федотов на вопрос судьи. Он добавил, что просит рассмотреть дело в особом порядке, хотя и не сможет после оспорить (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396844   (741174) от 19.07.2020
-
-Появились изображения пользовательских терминалов Starlink и детали бета-теста спутникового интернета SpaceX
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_741174.jpg" />
-</div>
-
-
-###  Подробнее
-
-В процессе анализа кода сайта SpaceX Starlink удалось найти новые изображения спутниковых терминалов будущих пользователей компании. Речь идёт об антеннах, которые клиенты будут использовать для подключения к создаваемой на орбите Земли группировке интернет-спутников. Белое дискообразное устройство выглядит как «НЛО на палочке», как однажды описал генеральный директор (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396914   (741091) от 19.07.2020
-
-Microsoft® Windows® 7 Ultimate Ru x64 SP1 7DB by OVGorskiy® 07.2020
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741091.jpg" />
-</div>
-
-
-###  Подробнее
-
-64-х битная операционная система Windows® 7™ максимальная (x64) с интегрированными обновлениями, оформлением в темно-голубом стиле и стандартной ручной установкой на 1 DVD. Содержит удобное предзагрузочное меню для проверки компьютера.   Дополнительно в образ системы добавлена профессиональная редакция для установки на GPT диски.   Сборка предназначена для тех, кто предпочитает (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D32D90DD2FBB67CA58E6F75C3631E61903A3C9E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397314   (741086) от 19.07.2020
-
-Windows 10 2004 (x86/x64) 32in1 +/- Office 2019 by Eagle123 (07.2020) [Ru/En]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 v2004 19041.388, включающая в себя 8 русских и 8 английских редакций x86/x64, с обновлениями по 07.2020, дополнительными системными библиотеками (C++ Redistributable Package), с возможностью выбора опций установки и наличием MSDaRT. А также инсталляции Windows c уже предустановленным (или без - по выбору) Word, Excel, PowerPoint, Access, Publisher, Outlook (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7D3D6871BA21111174F85C6AB7079F9AB83FFEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282852   (740759) от 15.02.2019
-
-Очередное достижение: 4000 релизов от Telebalt!!!
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_740759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередное достижение: 4000 релизов от Telebalt!!!Друзья, рад сообщить о новом достижении нашего верного релизера Telebalt и поздравить его с 4000-м релизом!Насыщающий наш форум раздачами по домоводству, изданиями по радиоэлектронике и учебными пособиями, он пользуется заслуженным успехом и уважением широкой аудитории форума. Так давайте выразим ему нашу благодарность за его трудолюбие и упорный и ничем невознаграждаемый труд и пожелаем ему счастья, крепкого здоровья, а также новых релизов.От всей души поздравляем
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282449   (740673) от 15.02.2019
-
-Microsoft: Своевременные обновления Windows защищают только от 3% кибератак
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_740673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft недавно заявила, что повышенные риски безопасности и эксплуатации уязвимостей не являются главной причиной необходимости установки новых обновлений Windows 10Microsoft обычно не любит обсуждать концепцию принудительных обновлений Windows, потому что с момента релиза Windows 10 в июле 2015 года данная стратегия является предметом острой критики.Microsoft (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

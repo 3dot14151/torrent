@@ -1,3 +1,55 @@
+###  Публикация: 1267863   (345108) от 08.10.2019
+
+Ashen (2018) [Ru/Multi] (1.0.12.0/dlc) Repack Other s
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ashen – экшен-РПГ с открытым миром, что рассказывает историю о страннике, который отправился на поиски места, где он мог бы чувствовать себя как дома. В мире, где разворачиваются события игры, солнце скрыто пеленой пепла. Это мир, где ничего долго не существует, независимо от того, насколько сильно вы привязались к этому. По своей сути, Ashen рассказывает о построении (   Читать дальше...   )Тип издания: RepackРазработчик: A44Жанр: Action, RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8C830516FC4EE5283285A04385FD76562D62550
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180067   (344118) от 02.11.2017
+
+Expeditions: Viking (2017) [Ru/Multi] (1.0.7.1/dlc) Repack Other s
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344118.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идет 790 год нашей эры. Небольшой отряд воинов-северян высаживается на берегах Англии. В истории не сохранились их имена, но подвиги их вошли в легенды... Вы только что стали вождем небольшого клана викингов, и под вашим началом есть собственная деревня. Но для того, чтобы выбить свое имя на рунных камнях истории, вам понадобится великая сила и великое богатство. (   Читать дальше...   )Тип издания: RepackРазработчик: Logic ArtistsЖанр: RPG, Strategy (Turn-Based)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C474D8CF4471494B74259155354A9364917FAC32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1244335   (340197) от 28.10.2018
 
 Shadows: Awakening (2018) [Ru/Multi] (1.2/dlc) License CODEX
@@ -6,7 +58,7 @@ Shadows: Awakening (2018) [Ru/Multi] (1.2/dlc) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340197.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Revenant (1999) [En/Fr] (1.22L) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340196.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Wave of Darkness (2015) [En/Fr] (1.50s) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338934.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ CODE VEIN (2019) [Ru/Multi] (1.01.86038/dlc) Repack xatab [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338334.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Tyranny (2016) [Ru/Multi] (1.0.1.0010) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337470.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336767.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Jack Move (2022) [Ru/Multi] (1.0.5-118) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329541.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Gamedec (2021) [Ru/Multi] (1.7.0.r64951/dlc) Repack Other s [Definitive Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326030.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Drakensang: The River of Time / Drakensang: Река времени [Ru] (Repack
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325061.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ Fallout 2 [Ru] (L) 1998
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325043.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ Vendetta: Curse of Raven's Cry (2015) [En/De] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323064.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ The Other Half (2018) [En] (1.0) License HOODLUM
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320447.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ Battle Chasers: Nightwar (2017) [Ru/Multi] (24034) SteamRip R.G. Игроман�
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320278.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ HuniePop (2015) [En] (1.2.0) License GOG [Deluxe Edition] [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320248.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ Thronebreaker: The Witcher Tales / Кровная вражда: Ведьмак. 
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318119.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ WORLD OF FINAL FANTASY (2017) [Multi] (1.0.0.0/dlc) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315776.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ Fallout: New Vegas (2012) [Ru] (1.4.0.525/2.0.3 beta) Repack Other s [Ultimate E
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315769.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ DeathSpank: Thongs of Virtue [En] (L) 2010 l SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315201.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ Inquisitor / Инквизитор (2012) [Multi] (1.10.18) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313823.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ Lords Of The Fallen (2014) [Ru] (1.0/dlc) Repack xatab [Game of the Year Edition
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313437.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ Willy-Nilly Knight (2017) [Ru/Multi] (1.1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311665.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ Willy-Nilly Knight (2017) [Ru/Multi] (1.1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311294.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ Willy-Nilly Knight (2017) [Ru/Multi] (1.1.0) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306965.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ Lords Of The Fallen (2014) [Ru/Multi] (1.0.0/dlc) License GOG [Game of the Year 
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306530.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ Lords Of The Fallen (2014) [Ru/Multi] (1.0.0/dlc) License GOG [Game of the Year 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4DD8070D8FEAB3A94D4A63B0AF9168616033318
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328304   (304574) от 24.10.2019
-
-The Surge 2 (2019) [Ru/Multi] (1.0/upd2/dlc) Repack Other s
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы выжить в The Surge 2, вам придётся исследовать каждый уголок Джерико — полуразрушенного города на грани гибели. Сражайтесь с опасными врагами, рвите их на части и забирайте их экипировку.Тип издания: RepackРазработчик: Deck13Жанр: Action, RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E08767CF5DC84B069E69E39E677A975B8FC23C89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130334   (302329) от 11.11.2018
-
-Crashlands (2016) [En/Ch] (1.4.6) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Crashlands – ARPG с захватывающим сюжетом и возможностью создания предметов, действие которой происходит в чужеземном мире потаенной магии и высоких технологий. Вы – космический перевозчик Флакс Дейбс. Вашу последнюю поставку перехватил злобный пришелец по имени Хьюгодуко, а вы застряли на чужой планете. Попытка вернуть груз втягивает вас в мерзкие планы по захвату (   Читать дальше...   )Тип издания: LicenseРазработчик: Butterscotch ShenanigansЖанр: Strategy (Manage, Busin., Real-time), RPG (Rogue,Action), Top-downЯзык озвучки: АнглийскийЯзык субтитров: Английский, Китайский (упрощенный)Язык интерфейса: Английский, Китайский (упрощенный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:925EEC391E91ED4B6A11399B13735F4E062F4D70
 ```
 
 https://mybot314.ru/tekegram_catalog/

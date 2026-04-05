@@ -6,7 +6,7 @@ Vito Rezza - Cognitive Dissonance (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120065.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Best of Burlesque (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119960.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Michel Petrucciani - Estate (1982) 2005, TDM [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119939.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Jazz Tunes Winter 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119936.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Toshiyuki Miyama & New Herd - 90th Anniversary Concert (2012) 2CD, Little Beat [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119934.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Easy Listening Soothing Jazz After Dark (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119930.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Jazz Lounge Relaxation Intimate Moments Instrumentals (2024) [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119929.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Fusion Jazz Funk Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion &
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119923.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Club Des Belugas - Remixes (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Broken
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119782.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Ron Blake - Sonic Tonic (2005) Mack Avenue Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119752.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Dave Pell - Four Classic Albums (1956 - 1957) 2CD, 2013, Avid Jazz [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119605.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Anita O'Day - Indestructible! (2006) Kayo Stereophonic [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119604.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Relaxing Soothing Jazz Chilly Jams Playlist (2024) [FLAC|Lossless|WEB-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119473.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Smooth Jazz Hits 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119461.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Anita O'Day - Live At Ronnie Scott's (1986) Wadham [FLAC|Lossless|image + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119437.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Abdullah Ibrahim & The NDR Big Band - Ekapa Lodumo (2001) Tiptoe [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119434.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Art Blakey & The Jazz Messengers - Cu-Bop (1957) 1989, Fresh Sound Records [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119430.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Love Music Zone - Sexy Valentine’s Day 2024 [FLAC|Lossless|WEB-DL|tracks] <Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119347.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119330.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Randy Stark - At the Tower (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119320.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Lucio Sanchez (Sánchez) - De Buena Madera (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119318.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ The John Irvine Band - The Starships Are Gathering (2024) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119316.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Joe Pass - Meditation: Solo Guitar (1992) 2002, Pablo Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119315.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Joe Pass - Virtuoso In New York (1975) Victor Entertainment [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119311.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ New York Jazz Ensemble - Jazz & Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119310.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Brian Tarquin & Heavy Friends - Beyond The Warrior's Eyes (2024) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119309.jpg" />
 </div>
 
 

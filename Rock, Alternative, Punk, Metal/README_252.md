@@ -1,3 +1,148 @@
+###  Публикация: 1500957   (838119) от 08.10.2021
+
+Yes - The Quest (2021) 2xCD [FLAC 2.0|44.1/24|tracks|WEB-DL] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838119.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. The Ice Bridge (7:03)
+02. Dare to Know (5:58)
+03. Minus the Man (5:35)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:01:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9753DA117F98446F304902450DAD76533E9833F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501088   (838114) от 08.10.2021
+
+Evil Hunter - Lockdown (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guardian Angel
+02. You’ll Never Walk Alone
+03. Get Up
+04. Burning In Flames(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E00F3FA77AF2F4F4DD23128FE24575A62D9A96B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501109   (838113) от 08.10.2021
+
+Йорш - Подъездам, крышам и дворам (2021) [MP3|320 Kbps] <Punk Rock, Acoustic>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838113.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Молодость (Акустика)
+2. Грехи и партаки (Акустика)
+3. Счастье (Акустика)
+4. Равнодушие (Акустика)(   Читать дальше...   )Жанр: Punk Rock, AcousticПродолжительность: 00:38:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED326010149BCE2D45D6B7DA0890E1FD2BD0C825
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501175   (838109) от 08.10.2021
+
+Trivium - In The Court Of The Dragon (2021) [FLAC 2.0|48/24|tracks|WEB-DL] <Melodic Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. X [00:01:27]
+02. In The Court Of The Dragon [00:05:09]
+03. Like A Sword Over Damocles [00:05:30]
+04. Feast Of Fire [00:04:18](   Читать дальше...   )Жанр: Melodic Gothic MetalcoreПродолжительность: 00:52:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B91CD60254D513237CE378CD385D31164661DAF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 772693   (838090) от 01.04.2014
+
+AC/DC - Greatest Hell's Hits (2009) [MP3|320 кб/с]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838090.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Thunderstruck
+02. Shoot To Thrill
+03. Big Gun(   Читать дальше...   )Жанр: Hard RockПродолжительность: 02:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A2474B018DAF54D36299A4265A12EA3F7128D0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113265   (838083) от 11.03.2017
 
 Marilyn Manson - Lest We Forget: The Best Of (2004) [FLAC|Lossless|tracks+.cue] <Alternative, Industrial>
@@ -6,7 +151,7 @@ Marilyn Manson - Lest We Forget: The Best Of (2004) [FLAC|Lossless|tracks+.cue] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838083.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838018.jpg" />
 </div>
 
 
@@ -79,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837992.jpg" />
 </div>
 
 
@@ -108,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837990.jpg" />
 </div>
 
 
@@ -137,7 +282,7 @@ Rammstein - 5/4 B-Sides (2002) Unofficial Release [MP3|320 Kbps] <Industrial Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837947.jpg" />
 </div>
 
 
@@ -166,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837860.jpg" />
 </div>
 
 
@@ -195,7 +340,7 @@ VA - NOW Alternative Classics (2020) [MP3|320 Kbps] <Indie & Alternative>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837691.jpg" />
 </div>
 
 
@@ -224,7 +369,7 @@ Trivium - What the Dead Men Say (2020) Japan Bonus Tracks [FLAC|Lossless|tracks 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837578.jpg" />
 </div>
 
 
@@ -253,7 +398,7 @@ Panic At The Disco - Vices And Virtues (2011) [MP3|192-320 kbps]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837381.jpg" />
 </div>
 
 
@@ -288,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837322.jpg" />
 </div>
 
 
@@ -314,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837157.jpg" />
 </div>
 
 
@@ -349,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836900.jpg" />
 </div>
 
 
@@ -378,7 +523,7 @@ Stevie Nimmo - Sky Won't Fall (2016) [FLAC|Lossless|image + .cue] <Blues Rock, C
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836887.jpg" />
 </div>
 
 
@@ -407,7 +552,7 @@ Nelson - Peace Out (2015) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836883.jpg" />
 </div>
 
 
@@ -436,7 +581,7 @@ Netra - Ingrats (2017) [MP3|320 Kbps] <Depressive Black Metal, Trip-Hop>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836818.jpg" />
 </div>
 
 
@@ -465,7 +610,7 @@ Dawn Protection - Eternal (2015) [MP3|320 кб/с]<Instrumental, Progressive Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836815.jpg" />
 </div>
 
 
@@ -494,7 +639,7 @@ Deftones - Gore (2016) [FLAC|tracks|WEB-DL]<Alternative Metal, Post-Metal, Exper
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836770.jpg" />
 </div>
 
 
@@ -523,7 +668,7 @@ Filter - Crazy Eyes (2016) [MP3|320 кб/с] <Alternative Rock, Post-Grunge>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836768.jpg" />
 </div>
 
 
@@ -552,7 +697,7 @@ Three Colours Dark - Love's Lost Property (2021) [FLAC|Lossless|image + .cue] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836684.jpg" />
 </div>
 
 
@@ -584,7 +729,7 @@ Manimal - Armageddon (2021) [FLAC 2.0|48/24|tracks|WEB-DL] <Power Heavy Metal>
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836680.jpg" />
 </div>
 
 
@@ -613,7 +758,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836677.jpg" />
 </div>
 
 
@@ -627,151 +772,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:746056966E54870D3AD393EDD46F8AC34D61CBE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113601   (836608) от 12.03.2017
-
-VA - Отражения (Tribute to Каталог) (2016) [FLAC|lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Чичерина - Куда пропали Звезды (03:20)
-02. Братья Лапенковы - День наоборот (03:51)
-03. Специальный проект 'Сашины товарищи' - Если вас тревожит что-то (03:53)
-04. Настя Полева - Игра без правил (04:20)(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B20BAB5670159215F094D5E6DEA4E62C5E5C3C7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113604   (836594) от 12.03.2017
-
-VA - Отражения (Tribute to Каталог) (2016) [MP3|320 kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Чичерина - Куда пропали Звезды (03:20)
-02. Братья Лапенковы - День наоборот (03:51)
-03. Специальный проект 'Сашины товарищи' - Если вас тревожит что-то (03:53)
-04. Настя Полева - Игра без правил (04:20)(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1B69778D3354D5C871662F9833B570C535E2C00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501311   (836570) от 09.10.2021
-
-Malrun - Pandemonium (2021) [MP3|320 Kbps] <Modern Metal, Melodic Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - King of Madness [00:04:09]
-02 - The Mask of Joy [00:03:45]
-03 - Trail of Ashes [00:04:05]
-04 - Pandemonium [00:04:51](   Читать дальше...   )Жанр: Modern Metal, Melodic MetalcoreПродолжительность: 00:48:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB4472F8399B6F081EA859BF3E09332603E2E7F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501299   (836563) от 09.10.2021
-
-Мураками - Среди акул (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836563.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ласточки
-2. Ошибки
-3. Кепочка
-4. Встречи не будет(   Читать дальше...   )Жанр: RockПродолжительность: 00:28:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7AAF37DD7FA82D80C15C7B0F15B8D1A1408D542
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501298   (836558) от 09.10.2021
-
-Рабфак 2.0 - Живая классика (2021) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836558.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Наш дурдом
-2. Раскачивать лодку
-3. Просрали страну
-4. Хватит кормить Канзас(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:42:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B43E911FA0B33D68229D14CE04144042235B3551
 ```
 
 https://mybot314.ru/tekegram_catalog/

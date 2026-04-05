@@ -6,7 +6,7 @@ Udemy, Meritshot Academy | Statistics and Hypothesis Testing for Data science (2
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115586.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114067.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Freevods. Всё покерное видео. Обновления за март
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86219.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83083.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82779.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78391.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78367.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77989.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62990.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62780.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58382.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53286.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53264.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Pluralsight | Разработка печатных плат с Eagle (2015) PCR
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51893.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51537.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51531.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Klaus | Авторский курс "Зеркало Интернета 3. Моб
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51523.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Diodov.net, Дмитрий Забарило | Электроника для на
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46666.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44352.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ EducationMarine, Василий Березовский | Chief officer on oil ta
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39432.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Sinclair Intimacy Institute, Марк Шон | Pro секс: Взрослые и
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39153.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39147.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Pro секс: Наслаждение запретными удовольстви
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39036.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28054.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25582.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17650.jpg" />
 </div>
 
 

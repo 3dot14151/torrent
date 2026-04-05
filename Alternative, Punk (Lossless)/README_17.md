@@ -6,7 +6,7 @@ Switchfoot - Native Tongue (2019) [FLAC|Lossless|tracks + .cue] <Alternative Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767849.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Dandy Warhols - Why You So Crazy (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767792.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Linkin Park - Meteora (2003) Unofficial Release [FLAC|Lossless|tracks + .cue] <A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766642.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Loose Tooth - Big Day (2017) [FLAC|Lossless|tracks + .cue] <Rock, Alternative, I
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766316.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Muse - The Resistance (2009) [FLAC|Lossless]<Alternative rock / Progressive rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765101.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Girlpool - What Chaos Is Imaginary (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763694.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Beirut - Gallipoli (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Folk, Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763645.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Methods Of Mayhem - A Public Disservice Announcement (2010) Special Edition [FLA
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760626.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Three Days Grace - Outsider (2018) [FLAC|Lossless|tracks + .cue] <Post-Grunge, A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757782.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Rialto - Rialto (1998) [APE|Lossless|image + .cue] <Alternative Rock, Brit Pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757634.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Rialto - Night On Earth (2001) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757551.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Evanescence - The Open Door (2006) [FLAC|Lossless|image + .cue] <Alternative Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_757358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757358.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Tiny Ruins - Olympic Girls (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Folk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_757097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757097.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Deep Cut - Different Planet (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_757093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757093.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Broods - Don't Feed the Pop Monster (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756971.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Incubus - Morning View (2001) Epic Records [FLAC|Lossless|tracks + .cue] <Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756491.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Linkin Park - 9 Albums, 2 EP, 12 LP, 27 Singles (2000-2013) [FLAC|Lossless] <Alt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_752461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_752461.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Jessica Pratt - Quiet Signs (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Folk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752083.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Nina Nesbitt - The Sun Will Come Up, The Seasons Will Change (2019) [FLAC|Lossle
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752082.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Mercury Rev - Bobbie Gentry's the Delta Sweete Revisited (2019) [FLAC|Lossless|W
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751973.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Yak - Pursuit of Momentary Happiness (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750140.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Papa Roach - Who Do You Trust? (2019) E7M [FLAC|Lossless|tracks + .cue] <Alterna
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749917.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Skillet - Dominion (2022) [FLAC|Lossless|tracks] <Alt.Rock, Christian Metal>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749794.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Jake Shears - Jake Shears (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746789.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Faith No More - Angel Dust (1992) London [FLAC|Lossless|image + .cue] <Alt.Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745512.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Deerhunter - Why Hasn't Everything Already Disappeared? (2019) [FLAC|Lossless|tr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745409.jpg" />
 </div>
 
 

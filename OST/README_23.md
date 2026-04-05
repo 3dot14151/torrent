@@ -1,32 +1,3 @@
-###  Публикация: 1269518   (219897) от 15.12.2018
-
-Steve Jablonsky - Skyscraper / Небоскреб (Original Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hostage, Pt. 1 (07:29)
-02. Will & Sarah (03:56)
-03. Welcome To Heaven (02:40)
-04. Botha (03:23)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47619DFC3AEE548A6EF1EA4B617180FAAA8ACFC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269466   (219716) от 15.12.2018
 
 Tom Holkenborg aka Junkie XL - Mortal Engines / Хроники хищных городов (Original Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
@@ -35,7 +6,7 @@ Tom Holkenborg aka Junkie XL - Mortal Engines / Хроники хищных го
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219716.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Rupert Gregson-Williams - Aquaman / Аквамен (Original Motion Picture Soun
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219693.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218716.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Великие и неповторимые. Звезды советског
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218426.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA & Christophe Beck - Trolls / Тролли (Original Score + Original Soundtra
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218418.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217956.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ John Williams - Звёздные войны: Пробуждение силы / S
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217736.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215684.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ VA - Бременские Музыканты. По следам Бременск
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215217.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207980.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206918.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206888.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Jed Kurzel  - Alien: Covenant  / Чужой: Завет (2017) [MP3|320 Kbps] <S
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200614.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200302.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ VA - Atomic Heart, Vol.2 (2023) [MP3|320 Kbps] <OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197641.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197027.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ VA - Atomic Heart, Vol.3 (2023) [MP3|320 Kbps] <OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194852.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Stephen Parsons & Francis Haines - Считанные секунды / Split Sec
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189242.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Christopher Willis - Смерть Сталина / The Death Of Stalin (2017) [M
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_187895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187895.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ VA - Хочу замуж (к\ф «Хочу замуж» официальный �
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187518.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Charlie Clouser - Saw X (Original Motion Picture Soundtrack) (2023) [MP3|320 Kbp
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177874.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172542.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170532.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ VA - The Texas Chainsaw Massacre: The Beginning / Техасская резня 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170462.jpg" />
 </div>
 
 
@@ -730,7 +701,7 @@ John Debney - Один дома / Home Sweet Home Alone (2021) [MP3|320 Kbps] <S
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168200.jpg" />
 </div>
 
 
@@ -744,6 +715,35 @@ John Debney - Один дома / Home Sweet Home Alone (2021) [MP3|320 Kbps] <S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2D82B716AA36B1783D166D8426803082DE9048B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344711   (166481) от 15.12.2019
+
+Sean Kolton - MechWarrior 5: Mercenaries Digital Deluxe Edition (2019)  [MP3|320 Kbps] <OST, Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Threshold.mp3
+02 - Outlier.mp3
+03 - Zero Signal.mp3
+04 - Imminent Threat.mp3(   Читать дальше...   )Жанр: OST, SoundtrackПродолжительность: 01:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF13796C6C830E75969F2F19F1DB4D2C8156BF29
 ```
 
 https://mybot314.ru/tekegram_catalog/

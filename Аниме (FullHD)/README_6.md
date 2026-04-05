@@ -6,7 +6,7 @@ Re:Zero kara Hajimeru Isekai Seikatsu 2nd Season | Re: Жизнь в альте�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004620.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Yatogame-chan Kansatsu Nikki | Заметки Ятогамэ [ТВ-1] [2019, TV,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004480.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan o Erande Iraremasen | Asc
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004437.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mahou Shoujo Lyrical Nanoha: Detonation | Magical Girl Lyrical Nanoha Detonation
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004255.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Idoly Pride | Расцвет айдолов [2021, TV, 12 из 12] BDRip 1080p 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004131.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Araburu Kisetsu no Otome-domo yo. | O Maidens in Your Savage Season | Сезон
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002722.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Slayers Try | Рубаки снова [1997, TV, 26 из 26] BDRip 1080p 10-bit 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002721.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Slayers Next | Снова Рубаки [1996, TV, 26 из 26] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002676.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Urusei Yatsura Movie 3: Remember My Love | Those Obnoxious Aliens: Remember My L
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002305.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Urusei Yatsura Movie 5: Kanketsu Hen | Those Obnoxious Aliens: The Final Chapter
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002302.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Urusei Yatsura Movie 2: Beautiful Dreamer | Those Obnoxious Aliens: Beautiful Dr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002299.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Urusei Yatsura Movie 6: Itsudatte My Darling | Those Obnoxious Aliens: Always My
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002294.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Urusei Yatsura OVA Series | Those Obnoxious Aliens OVA | Несносные пр
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002292.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Azumanga Daiou The Animation | Azumanga Daioh | Адзуманга [2002, TV, 26
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002166.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Gekijouban Kyochuu Rettou | Остров насекомых-гигантов (ф
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001880.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Tamayomi | Tamayomi: The Baseball Girls | Тамаёми [2020, TV, 12 эп.] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001449.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Natsume Yuujinchou: Ishi Okoshi to Ayashiki Raihousha | Тетрадь друж�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001429.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Shin Evangelion Gekijouban:|| | Evangelion: 3.0+1.0 Thrice Upon a Time | Ева�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001366.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Kimi to Boku. 2nd Season / You and Me 2 / Ты и я. 2 [2012, TV, 13] BDrip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000176.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Interstella 5555 / Интерстелла 5555 [2003, MV] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995724.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Hellsing: The Dawn / Hellsing: The Dawn / Хеллсинг: Начало [2011-2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994358.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Gamba no Bouken | Adventure of Gamba | Приключения Гамбы [1975, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993279.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Higurashi no Naku Koro ni Rei / Когда плачут цикады ОВА [200
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991889.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Fate/Prototype / Судьба:Прототип [2011, OVA] BDrip 1080р raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988469.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Slayers OVA / Рубаки ОВА [1996-1999, OVA, 6] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988403.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Slayers Movie / Рубаки Фильмы [1995-2001, Movie, 5] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988315.jpg" />
 </div>
 
 

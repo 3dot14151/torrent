@@ -1,177 +1,3 @@
-###  Публикация: 783507   (743688) от 05.05.2014
-
-VA - Pure... Acoustic (2014) Box Set, 4 CD [FLAC|Lossless]<Acoustic, Pop, Rock,  Folk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sony Music в последнем выпуске из серии  Pure... собрала акустические версии 67 радио-хитов (главным образом), отобранных за несколько десятилетий и разнообразных по стилю. Здесь вы услышите необычные (в привычном смысле) по звучанию версии софт-роковых композиций  "Longer"CD1:
-01. Tom Odell - Long Way Down  (2:31)
-02. Walk Of The Earth - Somebody That I Used To Know  (4:10)
-03. The Shins - Simple Song (Acoustic)  (4:00)(   Читать дальше...   )Жанр: Acoustic, Pop, Rock,  FolkПродолжительность: 04:15:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59A30A1AC3DBC6F001DE92854D0142CE3AE1B72C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524562   (743634) от 16.01.2022
-
-The J.B.'s - Groove Machine (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Groove Machine (9:04)
-02. Georgia Peach Disco (10:19)
-03. Just Wanna Make You Dance (8:08)
-04. Rock Disco #1 (7:26)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:39:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2E45C42181132DBE772B7C058EE7FF31C604A11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282691   (743616) от 13.02.2019
-
-VA - Erotic Dreams - Over 60 Minutes Of Music (1991) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Serge Gainsbourg - Je T'aime, Moi Non Plus [4:11]
-02. G Michael - I Want Your Sex [4:45]
-03. А Lai - Bilitis [3:21]
-04. E Struzick/A Aldridge - Sharing the Night Together [3:02](   Читать дальше...   )Жанр: PopПродолжительность: 01:07:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAACD5106007DB9F6F6725A1339AD5E5385190C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282687   (743611) от 13.02.2019
-
-Вельвет - Тонкая красная линия (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743611.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro
-2. Сердце моё
-3. Тонкая красная линия
-4. Не молчи(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A11F6C02412725BAFB8E5860D22FEC61576FC5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524413   (743559) от 16.01.2022
-
-Supermax - Best Of Remixes (2008) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Disco, Reggae, Funk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Camillo (Stefan Obermaier Remix) (5:36)
- 02. World Of Today (Honolulu Dub Edit) (6:35)
- 03. It ain`t easy (Moonbootica Remix) (7:27)
- 04. Vision (SpinDoc Club Edit) (5:41)(   Читать дальше...   )Жанр: Electronic, Disco, Reggae, FunkПродолжительность: 01:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7AE59D0A728A02361D2364C32D2F4C9D651A442
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217457   (743486) от 04.04.2018
-
-Deana Carter (Дина Картер) - The Deana Carter Collection (2002) Capitol Records, Compilation [MP3|320 Kbps] <Country, Alternative Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дина Картер - американская кантри певица. Прорывом в карьере Дины Картер стал 1994 год. Тогда она приняла участие в благотворительном концерте «Farm Aid». Певица была замечена компанией «Capitol Records», после чего был подписан многообещающий контракт. В 2013 году у Дины Картер вышел последний диск, получивший название «Southern Way of Life». Так же певица недавно (   Читать дальше...   )01. Strawberry Wine 4:50
-02. We Danced Anyway 3:23
-03. Did I Shave My Legs for This? 3:13
-04. Count Me In 3:25(   Читать дальше...   )Жанр: Country, Alternative CountryПродолжительность: 00:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E450A52678C1C371F7BA16F270DC41EEDFD45D0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020795   (743332) от 27.05.2016
 
 Thomas Anders - History (2016) [FLAC|Lossless|tracks + .cue] <Pop, Electronic, Europop, Dancepop>
@@ -180,7 +6,7 @@ Thomas Anders - History (2016) [FLAC|Lossless|tracks + .cue] <Pop, Electronic, E
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743332.jpg" />
 </div>
 
 
@@ -209,7 +35,7 @@ Kylie Minogue - Golden (2018) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743234.jpg" />
 </div>
 
 
@@ -238,7 +64,7 @@ VA - Your Favorite Sing Along Ballads (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742736.jpg" />
 </div>
 
 
@@ -267,7 +93,7 @@ VA - Ultimate Workout Music Hits (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742607.jpg" />
 </div>
 
 
@@ -296,7 +122,7 @@ VA - NRJ Just Hits (2019) 3CD [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742464.jpg" />
 </div>
 
 
@@ -325,7 +151,7 @@ Patricia Paay - 4 Albums (1975-1981) LP [MP3|320 Kbps] <Europop, Pop Rock, Disco
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742459.jpg" />
 </div>
 
 
@@ -354,7 +180,7 @@ Deana Carter (Дина Картер) - Father Christmas (2001) Rounder Records [
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742409.jpg" />
 </div>
 
 
@@ -383,7 +209,7 @@ Azoto - 2 Albums (1978, 1980) [MP3|320 кб/с] <Electronic, Disco, Funk, Soul>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742190.jpg" />
 </div>
 
 
@@ -412,7 +238,7 @@ Sandra - The Very Best Of Sandra (2016) 2CD, Compilation [MP3|320 кб/с] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741720.jpg" />
 </div>
 
 
@@ -441,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741581.jpg" />
 </div>
 
 
@@ -471,7 +297,7 @@ VA - Holiday Body Workout Hits (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741340.jpg" />
 </div>
 
 
@@ -500,7 +326,7 @@ Bodies Without Organs - Prototype (2004) [MP3|320 Kbps] <Pop, Synth-pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741168.jpg" />
 </div>
 
 
@@ -529,7 +355,7 @@ Del Faro - 2 Albums (1988, 2015) CD [MP3|320 Kbps] <Electronic, Italo-Disco, Eur
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741062.jpg" />
 </div>
 
 
@@ -558,7 +384,7 @@ VA - Italo Disco Evolution (2018) [MP3|320 Kbps] <Italo-Disco, Hi-NRG>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741060.jpg" />
 </div>
 
 
@@ -587,7 +413,7 @@ Robbie Williams - Under the Radar, Vol. 3 (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741058.jpg" />
 </div>
 
 
@@ -616,7 +442,7 @@ VA - Sanremo 2019 (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741049.jpg" />
 </div>
 
 
@@ -645,7 +471,7 @@ Robbie Williams - Under The Radar Volume 3 (2019) [FLAC|Lossless|WEB-DL|tracks] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741046.jpg" />
 </div>
 
 
@@ -674,7 +500,7 @@ Marsius - ..... Save The Tiger (1977) LP [MP3|320 Kbps] <Electronic, Funk-Soul, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741039.jpg" />
 </div>
 
 
@@ -703,7 +529,7 @@ Samantha Sang - 3 Albums (1975-1979) LP [MP3|320 Kbps] <Vocal, Ballad, Disco, So
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740949.jpg" />
 </div>
 
 
@@ -732,7 +558,7 @@ Texas - Jump On Board (2017) Scene [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740911.jpg" />
 </div>
 
 
@@ -746,6 +572,180 @@ Texas - Jump On Board (2017) Scene [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC9A059339CE2003CB0D280CC4721B515E1DDF2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217778   (740837) от 06.04.2018
+
+Kylie Minogue - Golden (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing (2:59)
+ 02. Stop Me from Falling (3:02)
+ 03. Golden (3:08)
+ 04. A Lifetime to Repair (3:19)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:54:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:510A530C1E2833059D93D477FB87E07F3F0056EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217791   (740751) от 06.04.2018
+
+Lisa Stansfield - Deeper (2018) [FLAC|Lossless|image + .cue] <Pop, Sou, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything
+02. Twisted
+03. Desire
+04. Billionaire(   Читать дальше...   )Жанр: Pop, Sou, DiscoПродолжительность: 00:53:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E34F1312CB772DE3FF824AA3677A80B52A42ACDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217889   (740746) от 06.04.2018
+
+VA - Eurovision Song Contest Lisbon (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eugent Bushpepa - Mall (Eurovision 2018 - Albania)
+02. Sevak Khanagyan - Qami (Eurovision 2018 - Armenia)
+03. Jessica Mauboy - We Got Love (Eurovision 2018 - Australia)
+04. Cesar Sampson - Nobody But You (Eurovision 2018 - Austria)(   Читать дальше...   )Жанр: PopПродолжительность: 02:09:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAB41AFE16B0CCD2C14958585A9884917F4CAFC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021439   (740679) от 29.05.2016
+
+Fifth Harmony - 7/27 (2016) (Deluxe) [FLAC|Lossless|image + .cue] <Funk, Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That's My Girl (3:24)
+02. Work From Home (3:34)
+03. The Life (3:23)
+04. Write On Me (3:40)(   Читать дальше...   )Жанр: Funk, Soul, PopПродолжительность: 00:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65CE7A80CC0D93FBE04D6A62B8EE37F335E3B30E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217854   (740645) от 06.04.2018
+
+Юрий Чернавский - Золотая Коллекция, 2CD (2003) [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лунное Кино
+02. Если Ты Помнишь
+03. Капитан
+04. Фараон(   Читать дальше...   )Жанр: PopПродолжительность: 01:50:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DD553DF48CCFD2C31E06BA22CF1C298B96FC3F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283284   (740329) от 16.02.2019
+
+Fisky - Frisky (1979) LP [MP3|320 Kbps] <Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You've Got Me Dancing In My Sleep (6:56)
+02. Burn Me Up (With Your Love) (7:50)
+03. Tutty Frutty Booty (Is Good When Its Hot) (8:51)
+04. Love At First Sight (6:04)Жанр: Funk Soul, DiscoПродолжительность: 00:29:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8605A72109C7738BB355E09E68087970BBCD6ECA
 ```
 
 https://mybot314.ru/tekegram_catalog/

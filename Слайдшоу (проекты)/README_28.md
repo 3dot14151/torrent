@@ -1,3 +1,30 @@
+###  Публикация: 1010939   (797576) от 26.04.2016
+
+Проекты - VideoHive - Soul Surfer [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для презентаций или корпоративного видео.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50F2D7519204E2D0C1BF20B782B00CF94351478A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011074   (797417) от 26.04.2016
 
 Проекты - VideoHive - The Slideshow - 12007551 [AEP]
@@ -6,7 +33,7 @@
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797417.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796848.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796721.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796679.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796612.jpg" />
 </div>
 
 
@@ -136,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796510.jpg" />
 </div>
 
 
@@ -163,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796501.jpg" />
 </div>
 
 
@@ -191,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796499.jpg" />
 </div>
 
 
@@ -218,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796490.jpg" />
 </div>
 
 
@@ -244,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796238.jpg" />
 </div>
 
 
@@ -270,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796220.jpg" />
 </div>
 
 
@@ -296,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796215.jpg" />
 </div>
 
 
@@ -322,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796118.jpg" />
 </div>
 
 
@@ -348,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796116.jpg" />
 </div>
 
 
@@ -374,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796054.jpg" />
 </div>
 
 
@@ -400,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796041.jpg" />
 </div>
 
 
@@ -427,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796038.jpg" />
 </div>
 
 
@@ -453,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796016.jpg" />
 </div>
 
 
@@ -479,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795785.jpg" />
 </div>
 
 
@@ -505,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795338.jpg" />
 </div>
 
 
@@ -533,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795129.jpg" />
 </div>
 
 
@@ -559,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794483.jpg" />
 </div>
 
 
@@ -586,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794456.jpg" />
 </div>
 
 
@@ -613,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794413.jpg" />
 </div>
 
 
@@ -640,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794204.jpg" />
 </div>
 
 
@@ -651,32 +678,6 @@ Parallax Demo Reel - Кинематографическое слайд-шоу, �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9B82012E17853F671230C389B8AFEAEB5B2BB68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122383   (794202) от 05.04.2017
-
-Проекты - VideoHive - Slideshow I Opener [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Slideshow I Opener - проект для создания кинематографического слайд-шоу с последовательностью названий, 3D эффектом и параллаксом слоев. Также вы можете использовать этот шаблон в виде презентации с последующей демонстрацией логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:847FB22DAAF7271A84DB93BDA9281391831D91F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

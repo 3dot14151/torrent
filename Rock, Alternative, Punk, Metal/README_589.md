@@ -1,3 +1,32 @@
+###  Публикация: 1566158   (486517) от 27.07.2022
+
+Templars - King of Metal (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro (00:01:37)
+02 - War (00:04:16)
+03 - Nothing to Lost (00:04:03)
+04 - Pagan Gods (00:03:54)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:438354DC3277ECF40CCA3CF1EB820445451EFDB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566128   (486516) от 27.07.2022
 
 Snake Eyes - No One Left To Die (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
@@ -6,7 +35,7 @@ Snake Eyes - No One Left To Die (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486516.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Noctambulist - The Barren Form (2021) [FLAC 2.0|24/96|tracks|WEB-DL] <Death meta
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486515.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Sacral Night - Le Diademe D'argent (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486394.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Riptide - Masters of the Apocalypse (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486390.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Slipknot - We Are Not Your Kind (2019) [FLAC|Lossless|tracks + .cue] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486342.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Motorjesus - 4 Альбома + 1 EP (2004-2014) [MP3|320 кб/с]<Hard Rock, He
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486259.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486255.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Guru Guru - Guru Guru (1973) Reissue, 1997, Repertoire Records [MP3|320 Kbps] <P
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486250.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Herman Ze German - Take It As It Comes (2010) [FLAC|image +.cue]<Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486146.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Quiet Sun - Mainstream (1975) 1999, Expression Records  [WavPack|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486112.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Supertramp - Classics Volume 9 (1986) [FLAC|Lossless|tracks + .cue] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486076.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Y Not 7 & Fly - Forever Love Hits vol.1-vol.2 (2010) [APE|image+.cue]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486064.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ D Sound - Kisember (2002) [FLAC|image +.cue]<Psychedelic Rock, Space Rock, Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486055.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Elferya - Eden's Fall (2015) [MP3|320 кб/с]<Symphonic Metal, Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486052.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486040.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Beyond the Black - Heart of the Hurricane (2018) [MP3|320 Kbps] <Symphonic Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485954.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Smokie - On The Wire (2004) [FLAC|Lossless|image + .cue] <Pop-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485895.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Meat Loaf - Braver Than We Are (2016) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485892.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ Furious Zoo - Back To Blues Rock (2014) [MP3|320 Kbps] <Hard Rock, Blues Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485888.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ Cavern - Powdered (2020) [MP3|320 Kbps] <Progressive Sludge, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485837.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ Fleshcrawl - Into the Catacombs of Flesh (2019) [APE|Lossless|image + .cue] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485836.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ Akiavel - V (2020) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485833.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ Babirusa - Humanoid (2020) [MP3|320 Kbps] <Deathcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485831.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ Poema Arcanus - Stardust Solitude (2020) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485828.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ Nuclear Warfare - Lobotomy (2020) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485826.jpg" />
 </div>
 
 
@@ -714,35 +743,6 @@ Nuclear Warfare - Lobotomy (2020) [MP3|320 Kbps] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71E3295CDD31977E009057B1730DA3CFCFB368D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404990   (485821) от 29.08.2020
-
-Pinghost - Palingenesis (2020) EP [MP3|320 Kbps] <Progressive Metalcore, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Checkmate (4:36)
-02. Doom (4:26)
-03. Komplett Am Arsch (3:37)
-04. Palingenesis (3:33)(   Читать дальше...   )Жанр: Progressive Metalcore, Post-HardcoreПродолжительность: 00:20:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C60C421502EF5CA068012CBAF65D9537BAE5A8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

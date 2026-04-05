@@ -1,3 +1,57 @@
+###  Публикация: 1328021   (368018) от 28.09.2019
+
+Светлана Фалий | Новогодние чудеса из пятого измерения (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый год – волшебное время, когда у людей исполняются заветные желания и сбываются мечты. Но верно говорится, что мечты сбываются лишь у тех, у кого они есть. А если случилось так, что эту мечту кто-то похитил, и спасти ситуацию может только чудо? Тогда без Деда Мороза не обойтись. Ну, и, разумеется, без верных друзей.
+
+Новогодняя аудиопостановка для детей и взрослых.Жанр: Семейный, СказкаПродолжительность: 01:38:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:639391D9AA2FE85CC9F077F3B8993D236E87A07D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070634   (364139) от 08.11.2016
+
+Георгий Сытин | Здоровье мужчины (2008) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Георгий Николаевич Сытин является родоначальником новой духовной (воспитывающей) медицины, возможности которой практически безграничны. Духовная медицина универсальна и общедоступна. В ее основу положен метод оздоровления-омоложения творящими мыслями (исцеляющими настроями), усваивая которые, каждый человек способен победить любые недуги, противостоять возрастным (   Читать дальше...   )Жанр: ЭзотерикаПродолжительность: 00:45:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43090A4DA65406D990BBE54D0093079BDE76F06F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328584   (363538) от 30.09.2019
 
 Светлана Фалий | Новогодняя история (2013) [MP3]
@@ -6,7 +60,7 @@
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363538.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361646.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359160.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356510.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356411.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354295.jpg" />
 </div>
 
 
@@ -167,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354179.jpg" />
 </div>
 
 
@@ -193,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353654.jpg" />
 </div>
 
 
@@ -219,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352128.jpg" />
 </div>
 
 
@@ -248,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342358.jpg" />
 </div>
 
 
@@ -274,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340734.jpg" />
 </div>
 
 
@@ -300,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340454.jpg" />
 </div>
 
 
@@ -326,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333884.jpg" />
 </div>
 
 
@@ -353,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333831.jpg" />
 </div>
 
 
@@ -382,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333816.jpg" />
 </div>
 
 
@@ -408,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333363.jpg" />
 </div>
 
 
@@ -435,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332413.jpg" />
 </div>
 
 
@@ -461,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325496.jpg" />
 </div>
 
 
@@ -489,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323961.jpg" />
 </div>
 
 
@@ -515,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323578.jpg" />
 </div>
 
 
@@ -541,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322986.jpg" />
 </div>
 
 
@@ -568,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321703.jpg" />
 </div>
 
 
@@ -594,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321586.jpg" />
 </div>
 
 
@@ -620,7 +674,7 @@ Dark Knight, Blaadwin Dufo | Город Тысячи Мостов (2016) [MP3]
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321171.jpg" />
 </div>
 
 
@@ -631,58 +685,6 @@ Dark Knight, Blaadwin Dufo | Город Тысячи Мостов (2016) [MP3]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C32F974D4F08C71F4D83A71A242D30BCC364F38D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075207   (320787) от 22.11.2016
-
-Джон Гришэм | Серая гора (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320787.jpg" />
-</div>
-
-
-###  Подробнее
-
-Саманте Кофер казалось, что ей обеспечена блестящая карьера в солидной юридической фирме на Уолл-стрит, однако когда разразился кризис, ее мгновенно выкинули на улицу. И теперь единственная предложенная ей вакансия – это место юриста в затерянном в горах шахтерском городке Брэйди… Саманта, решив сменить обстановку и «отсидеться» в провинции в нелегкие времена, думала, (   Читать дальше...   )Жанр: ТриллерПродолжительность: 17:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A134A379BB3A9299FADC0612AB4BAAC8D11C5B2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259522   (319040) от 04.11.2018
-
-Дарья Плещеева | Блудное чадо (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319040.jpg" />
-</div>
-
-
-###  Подробнее
-
-Середина XVII века. Боярин Афанасий Ордин-Нащокин, выполняя ответственные поручения царя Алексея Михайловича, ведет переговоры с иностранными дипломатами. А его единственный избалованный сын – Воин, наслушавшись баек о просвещенной Европе, в один прекрасный день удирает в Польшу, увезя с собой секретные письма государя. В погоню отправляются подьячий Посольского (   Читать дальше...   )Жанр: Исторические приключенияПродолжительность: 12:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F661A0D6F6A92E97C0C6562135D481FC398A4FD4
 ```
 
 https://mybot314.ru/tekegram_catalog/

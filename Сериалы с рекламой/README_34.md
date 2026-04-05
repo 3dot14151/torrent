@@ -1,3 +1,55 @@
+###  Публикация: 1647859   (194634) от 06.08.2023
+
+Бронзовый сад / El Jardin de Bronce / The Bronze Garden (2023) WEB-DLRip [H.264/1080p] (сезон 3, серии 1-8 из 8) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь Фабиана и Лилы Данубио навсегда меняется, когда их четырехлетняя дочь бесследно исчезает в метро Буэнос-Айреса. Нет никаких мотивов, никаких улик и свидетелей. Родители ведут отчаянные поиски на протяжении многих лет и, наконец, приходят к удивительному выводу.Производство: Аргентина / HBO Latin America Group, Pol-Ka ProduccionesЖанр: ужасы, триллер, драма, криминал, детективРежиссер: Эрнан А. Голфрид, Пабло Фендрик, Бенджамин НайштатАктеры: Хоакин Фуррьель, Хульета Сильберберг, Норма Алеандро, Луис Луке, Даниэль Фанего, Марио Пасик, Francisco Quintana, Luciana Sevilla, Иван Стейнхардт, Andrés Ciavaglia и др.Перевод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, испанскийСубтитры: Русские, английскиеПродолжительность: ~00:45:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEBC9DFF2571E17910F021F2619328BEDE422F7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651012   (194443) от 12.08.2023
+
+Лаухгаммер - Смерть в Лаузице / Lauchhammer - Tod in der Lausitz (2022) WEBRip [H.264/1080p] [50 fps] (сезон 1, серии 1-6 из 6) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194443.jpg" />
+</div>
+
+
+###  Подробнее
+
+Майк Бриганд, бывший следователь земельного управления полиции, возвращается в родной город в Нижнем Лаузица, чтобы раскрыть таинственное убийство молодой девушки, и снова сталкивается с коллегами из своего бывшего полицейского участка, своей семьей и своим прошлым. Комиссар Анналена Готткнехт не хочет быть втянутой в старые делишки Бриганда. Но чем больше энергичная (   Читать дальше...   )Производство: Германия / ARD Degeto Film, MOOVIE, Mitteldeutscher Rundfunk (MDR)Жанр: драма, криминал, детективРежиссер: Тилль ФранценАктеры: Мишель Матичевич, Одине Йоне, Марк Хоземанн, Элла Ли, Якоб Маченц, Лукас Грегорович, Петра Келлинг, Юлишка Айхель, Хильмар Эйхгорн, Кристиан Грасхоф и др.Перевод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, немецкийСубтитры: РусскиеПродолжительность: ~00:45:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D066D8C4B98175891AB24414C30A2C41806B9FA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1651013   (194390) от 12.08.2023
 
 Лаухгаммер - Смерть в Лаузице / Lauchhammer - Tod in der Lausitz (2022) WEBRip (сезон 1, серии 1-6 из 6) ViruseProject [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194390.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194375.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194365.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194267.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194210.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193905.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193814.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193810.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193687.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193684.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193268.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193267.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192906.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192899.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191562.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191527.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190690.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190686.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189754.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189710.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189343.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189324.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188060.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188058.jpg" />
 </div>
 
 
@@ -619,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8ABFC8071504D926B025EB50B4F2E3D91C1C644
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662318   (188051) от 17.09.2023
-
-По ту сторону Шпреи / Jenseits der Spree (2022) WEBRip [H.264/720p] (сезон 2, серии 1-6 из 6) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188051.jpg" />
-</div>
-
-
-###  Подробнее
-
-В комиссариат берлинского округа Кёпеник набирается новая и необычная команда. Один из них это бывший главный инспектор Роберт Хеффлер, отец-одиночка, воспитывающий, трёх дочерей, который три года назад по личным причинам был переведен с постоянной службы из неспокойного района в Берлин-Кёпеник в качестве диспетчера. Из-за нехватки персонала по просьбе начальника (   Читать дальше...   )Производство: Германия / Studio ZentralЖанр: криминалРежиссер: Маркус Ульбрихт, Нилеша Бартел, Christoph Ischinger и др.Актеры: Юрген Фогель, Олег Тихомиров, Леа Зои Восс, Луна Джордан, Белла Бадинг, Элизабет Болитц, Aybi Era, Сейнеб Салех, Энн Мюллер, Жале Арыкан и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: Русский, немецкийСубтитры: РусскиеПродолжительность: ~01:00:00 серияРеклама: Присутствуют видео вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:540BB8BA18DBA2BE05E091A50109A33F30DAB5E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662320   (188018) от 17.09.2023
-
-По ту сторону Шпреи / Jenseits der Spree (2022) WEBRip (сезон 2, серии 1-6 из 6) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188018.jpg" />
-</div>
-
-
-###  Подробнее
-
-В комиссариат берлинского округа Кёпеник набирается новая и необычная команда. Один из них это бывший главный инспектор Роберт Хеффлер, отец-одиночка, воспитывающий, трёх дочерей, который три года назад по личным причинам был переведен с постоянной службы из неспокойного района в Берлин-Кёпеник в качестве диспетчера. Из-за нехватки персонала по просьбе начальника (   Читать дальше...   )Производство: Германия / Studio ZentralЖанр: криминалРежиссер: Маркус Ульбрихт, Нилеша Бартел, Christoph Ischinger и др.Актеры: Юрген Фогель, Олег Тихомиров, Леа Зои Восс, Луна Джордан, Белла Бадинг, Элизабет Болитц, Aybi Era, Сейнеб Салех, Энн Мюллер, Жале Арыкан и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: Русский, немецкийСубтитры: Русские (отдельно)Продолжительность: ~01:00:00 серияРеклама: Присутствуют видео вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:978B9710AE0E8B957F16EEA43D53DECF74CD358D
 ```
 
 https://mybot314.ru/tekegram_catalog/

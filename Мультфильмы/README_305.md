@@ -1,3 +1,133 @@
+###  Публикация: 1519574   (209339) от 30.08.2022
+
+Приключения домовёнка Кузи (1984 - 1987) DVDRip 1080p [H.264/1080p-LQ] [Remastered Upscale AI]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультипликационный сериал о приключениях домового Кузи, состоящий из четырех серий: Приключения домовёнка, Дом для Кузьки, Сказка для Наташи, Возвращение домовёнка.Производство: CCCР / Творческое объединение "Экран"Жанр: мультфильм, детский, короткометражкаРежиссер: Аида ЗябликоваАктеры: Светлана Травкина, Георгий Вицин, Григорий Большаков, Анатолий Кузнецов, Татьяна Пельтцер, Феликс Иванов и др.Перевод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 00:17:51 + 00:17:07 + 00:09:52 + 00:09:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A188B95E48E977ACF9E48AB341D110DCDC54CD0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573222   (209318) от 31.08.2022
+
+Я есть Грут / I Am Groot (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-5 из 5) LostFilm
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия небольших короткометражек, которые рассказывают о приключениях забавного малыша Грута и его друзей.Производство: США / Marvel StudiosЖанр: мультфильм, короткометражка, фантастика, фэнтезиРежиссер: Керстен ЛепореПеревод: Многоголосый профессиональный (LostFilm)Субтитры: отсутствуютПродолжительность: ~00:04:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BA74282692A4A331C23815894B16FFA9ECB8E35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606795   (209151) от 24.01.2023
+
+Чудо-женщина: Кровные узы / Wonder Woman: Bloodlines (2019) UHD BDRemux [H.265/2160p] [4K, HDR10, 10-bit] [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209151.jpg" />
+</div>
+
+
+###  Подробнее
+
+На острове, скрытом от людских глаз, живут прекрасные и воинственные амазонки. Однажды туда попадает американский пилот Стив Тревор. Диана, принцесса амазонок, решает помочь Стиву добраться домой и отправляется вместе с ним в США, где она начинает бороться с преступностью и несправедливостью.Производство: США / DC Universe, Envision Casting, Warner Bros. AnimationЖанр: мультфильм, боевик, фантастикаРежиссер: Джастин Коуплэнд, Сэм ЛюАктеры: Розарио Доусон, Джеффри Донован, Мари Авгеропулос, Сонни Дей, Рэй Чейз, Майкл Дорн, Можан Марно, Эдриэнн С. Мур, Кри Саммер, Кортни ТейлорПеревод: Многоголосый любительский (Flarrow Films)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:22:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E99D435AEE98089BECA71D26ABFC12FCDEFA794A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573905   (209123) от 02.09.2022
+
+Миньоны: Грювитация / Minions: The Rise of Gru (2022) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209123.jpg" />
+</div>
+
+
+###  Подробнее
+
+Миллион лет миньоны искали самого великого и ужасного предводителя, пока не встретили ЕГО. Знакомьтесь — Грю. Пусть он еще очень молод, но у него в планах по-настоящему гадкие дела, которые заставят планету содрогнуться.Производство: США / Illumination Entertainment , Universal PicturesЖанр: мультфильм, фантастика, комедия, криминал, приключения, семейныйРежиссер: Кайл Балда, Брэд Эблесон, Джонатан дель ВальПеревод: Дублированный (iTunes), профессиональный многоголосый (Jaskier, TVShows)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английские (full, SDH)Продолжительность: 01:27:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDC864EECF4C892D3D1573593C7C630C8C60FBFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645865   (209111) от 12.07.2023
+
+Новейшее платье короля / The Emperor's Newest Clothes (2018) WEB-DL [H.264/1080p] [EN / RU Sub]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209111.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тщеславный король заказывает праздничный наряд у двух проходимцев.Производство: США / Lifeboat Productions, Starburns IndustriesЖанр: мультфильм, короткометражка, мюзикл, фэнтези, комедия, семейныйРежиссер: Симон УилчесАктеры: Алан Алда, Джефф Дэниелс, Джон Эрли, Тим Хайдекер, Мэтт Хобби, Элисон Пилл, Габриэл СандайПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские (хардсаб)Продолжительность: 00:27:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D051852CB6AE81811AED1B49272040CFC9C1673C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607221   (209095) от 25.01.2023
 
 В некотором царстве... (1957) BDRip [H.264/1080p-LQ] [handmade remastered AI]
@@ -6,7 +136,7 @@
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209095.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209018.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208985.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208983.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208976.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208966.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208960.jpg" />
 </div>
 
 
@@ -191,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208955.jpg" />
 </div>
 
 
@@ -218,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208910.jpg" />
 </div>
 
 
@@ -244,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208892.jpg" />
 </div>
 
 
@@ -270,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208881.jpg" />
 </div>
 
 
@@ -296,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208872.jpg" />
 </div>
 
 
@@ -322,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208855.jpg" />
 </div>
 
 
@@ -348,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208847.jpg" />
 </div>
 
 
@@ -374,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208816.jpg" />
 </div>
 
 
@@ -400,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208801.jpg" />
 </div>
 
 
@@ -426,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208797.jpg" />
 </div>
 
 
@@ -454,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208784.jpg" />
 </div>
 
 
@@ -480,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208776.jpg" />
 </div>
 
 
@@ -506,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208753.jpg" />
 </div>
 
 
@@ -532,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208728.jpg" />
 </div>
 
 
@@ -543,137 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E5DE7216EE09FE7141E0071174B0008933C2854
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522695   (208722) от 07.09.2022
-
-Робинзон и самолет (1982) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультфильм о том, как человек с трудом воспринимает всё новое, разрушающее привычный уклад жизни.Производство: СССР, СоюзмультфильмЖанр: детский, рисованная анимацияРежиссер: Геннадий СокольскийСубтитры: ОтсутствуютПродолжительность: 00:08:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5092A044B1FDBAFA5E6773D08371C0EFD96FC8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574869   (208702) от 07.09.2022
-
-Танец льва / Xiong shi shao nian / I Am What I Am (2021) BDRip [DVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой кантонский деревенский парень должен преодолеть неуверенность в себе, насмешки и классицизм, чтобы осуществить свою мечту - принять участие в чемпионате Гуанчжоу по танцам со львами.Производство: Китай, Yi AnimationЖанр: мультфильм, драма, комедияРежиссер: Сунь ХайпэнПеревод: Двуголосый любительский (Pazl Voice)Субтитры: отсутствуютПродолжительность: 01:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F693011566FC0C1F485A1F6A80B93A9EA2138968
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525751   (208675) от 07.09.2022
-
-Мук-скороход (1975) DVDRip [Реставрация]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208675.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам сказки Вильгельма Гауфа «Маленький Мук».
-После смерти родителей маленький мальчик по имени Мук изгнан родственниками из дома. В поисках пропитания он устраивается служить в дом старухи, обожающей кошек. Однако кошки оказываются совсем не безобидными. Мука снова прогоняют. Но он исхитрился прихватить с собой волшебные туфли, позволяющие их обладателю бежать (   Читать дальше...   )Производство: СССР, ТО "Экран"Жанр: детский, рисованная анимацияРежиссер: Натан ЛернерАктеры: Галина Иванова, Михаил Козаков, Георгий Милляр, Ролан БыковСубтитры: ОтсутствуютПродолжительность: 00:16:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF726C425C72E1B8A15483CAC953F68E5447B77D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574862   (208671) от 07.09.2022
-
-Миньоны: Грювитация / Minions: The Rise of Gru (2022) HDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Миллион лет миньоны искали самого великого и ужасного предводителя, пока не встретили ЕГО. Знакомьтесь — Грю. Пусть он еще очень молод, но у него в планах по-настоящему гадкие дела, которые заставят планету содрогнуться.Производство: США, Universal Pictures, Illumination EntertainmentЖанр: мультфильм, фантастика, комедия, криминал, приключения, семейныйРежиссер: Кайл Балда, Брэд Эблесон, Джонатан дель ВальАктеры: Стив Карелл, Пьер Коффан, Алан Аркин, Тараджи П. Хенсон, Мишель Йео, Джули Эндрюс, Расселл Брэнд, Жан-Клод Ван Дамм, Дольф Лундгрен, Дэнни ТрехоПеревод: Дублированный (iTunes)Язык озвучки: русскийСубтитры: русские (отдельно)Продолжительность: 01:27:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A45B47F87A45FD6B97E03EC91A628D7BE76B5A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608488   (208633) от 30.01.2023
-
-Бэтмен и Супермен: битва Суперсыновей / Batman and Superman: Battle of the Super (2022) UHD BDRemux [H.265/2160p] [4K, HDR10, 10-bit] [MVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джонатан Кент и неохотно ставший его напарником Дэмиен Уэйн вынуждены спасать мир от гибели. Им придется объединить усилия, чтобы спасти своих отцов и планету, став супергероями, которыми им было всегда суждено быть.Производство: США / Warner Bros. AnimationЖанр: мультфильм, фантастика, боевикРежиссер: Мэтт ПитерсАктеры: Джек Дилан Грейзер, Джек Гриффо, Лора Бэйли, Трой Бэйкер, Дэрин Де Пол, Том Кенни, Нолан Норт, Зино Робинсон, Мирна Веласко, Трэвис УиллингэмПеревод: Многоголосый профессиональный (Flarrow Films)Язык озвучки: Русский, АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 01:19:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF6AC5B9F2816ADE5A236244051E65E8F5B73FA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

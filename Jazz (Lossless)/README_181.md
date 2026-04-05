@@ -6,7 +6,7 @@ Chie Ayado - 3 альбома (2000-2007) [FLAC|Lossless]<Jazz Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_445773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_445773.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ George Benson, Joe Pass & Wes Montgomery - Les Incontournables Guitare (2000) [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_445764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_445764.jpg" />
 </div>
 
 
@@ -76,7 +76,7 @@ Youn Sun Nah - 3 альбома (2003 - 2011) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_445759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_445759.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Sam Most - Musically Yours (1956) /2014, Solid Records/[FLAC|tracks+.cue]<Bop, C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445339.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Blue Mitchell - Step Lightly (1963) /2015, Universal/[FLAC|tracks+.cue]<Hard Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445338.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Gerry Mulligan - The Sound Of Jazz (1988) Master Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445127.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Ellis Larkins & Ruby Braff - Duets, Vol.1 (1956) 1999, Vanguard Records [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444799.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Charles Lloyd & the Marvels + Lucinda Williams - Vanished Gardens (2018) Blue No
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444786.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ The Cees Slinger Octet - Live At The North Sea Jazz Festival (1982) Remaster, 20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444780.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Benny Golson - Horizon Ahead (2016) HighNote Records[FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444779.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Count Basie & His Orchestra - Do You Wanna Jump...? (1938) 1989, Hep[FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444778.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ James Moody - Young At Heart (1996) Warner[FLAC|Lossless|tracks + .cue] <Mainstr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444775.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Peggy Lee - Black Coffee with Peggy Lee (1953, 1956) Remaster, 1999, Universal[F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444771.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Nancy Wilson - Like In Love & Something Wonderful (1959, 1960) 2003, EMI Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444767.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Avishai Cohen - Arvoles (2019) Razdaz Recordz [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444702.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Peggy Lee - Mirrors (1975) Remaster, 2002, Universal[FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444636.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Luiz Bonfa - Le roi de la Bossa Nova (1963) 2005 [WavPack|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444618.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Melody Gardot - 4 альбома (2005-2009) [FLAC|track+ .cue]<Jazz, Vocal Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_444426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_444426.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Grandad Turner - My Friends, My Fam (2011) Fhammond Family Ent [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443935.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Imelda May - No Turning Back (2007) [FLAC|Lossless]<Blues, Jazz, Swing, Rockabil
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_443384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_443384.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Turk Mauro - Hittin' The Jug (1995) Milestone [FLAC|Lossless|tracks + .cue] <Har
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443344.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Gil Coggins - Better Late Than Never (2001, 2002) 2007, Smalls Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443343.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Mel Torme - The Essentials (1946 - 1962) 2002, Warner [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443342.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Kenny Burrell - Giants of Jazz (2004) Savoy Jazz [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443341.jpg" />
 </div>
 
 
@@ -711,7 +711,7 @@ June Christy - The Ballad Collection (50-e - 60-e) 2000, Capitol Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443338.jpg" />
 </div>
 
 
@@ -740,7 +740,7 @@ Art Pepper - Gettin' Together! (1960) /1997, Victor/ [FLAC|image+.cue]<Bop, West
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443117.jpg" />
 </div>
 
 

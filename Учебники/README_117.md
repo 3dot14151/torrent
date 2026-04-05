@@ -1,3 +1,55 @@
+###  Публикация: 1739046   (106231) от 25.07.2024
+
+А.Ф. Филиппов | Сборник задач по дифференциальным уравнениям (1979) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник содержит материалы для упражнений по курсу дифференциальных уравнений для университетов и технических вузов с повышенной математической подготовкой.Жанр: МатематикаИздательство: НаукаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:660A3ED9ADC20959960F24FA5BF0B5C8FF560B2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739303   (106118) от 27.07.2024
+
+Н.С. Ахметов | Общая и неорганическая химия (1988) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106118.jpg" />
+</div>
+
+
+###  Подробнее
+
+На современном уровне рассмотрены основные понятия и законы химии: строение вещества, химическая связь (метод молекулярных орбиталей, метод валентных связей, зонная теория кристаллов), важнейшие положения химической термодинамики и химической кинетики, методы исследования структуры веществ. Химия элементов изложена на основе периодического закона Д.И. Менделеева (   Читать дальше...   )Жанр: ХимияИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1108081CA158256135421F0E71110992A62AF90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1739532   (106049) от 28.07.2024
 
 А.П. Крешков | Основы аналитической химии [3 книги] (1970 - 1971) [DJVU]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106049.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105874.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105867.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105861.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105807.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105783.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105660.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105187.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105151.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105141.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105138.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105135.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105133.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105103.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104678.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104008.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101583.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100934.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100930.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100907.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90818.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90800.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90715.jpg" />
 </div>
 
 
@@ -609,65 +661,13 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90661.jpg" />
 </div>
 
 
 ###  Подробнее
 
 В пособии последовательно изложена методика основ голосо-речевого тренинга и анализа художественно-поэтического текста. Издание предполагает практическое освоение основ работы над голосом в рамках преподавания мастерства актера, необходимое в любительских и профессиональных театральных коллективах. Предназначено для студентов институтов искусств и культуры, педагогических институтов искусств, колледжей культуры, режиссеров любительских театров.2005Формат: DOC
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487957   (90655) от 25.04.2012
-
-Пол Элсам | Мастер-класс для начинающего актера [2008] [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга представляет собой вводный курс актерского мастерства для студентов и людей, мечтающих стать актерами. Книга помогает «совлечь покров тайны» с исполнительского процесса. Автор избрал приближенный к жизни подход, основанный на многолетнем личном опыте преподавания актерского мастерства на различных уровнях. Актерская профессия очень многого требует от работающего в ней человека, и если вы по какой-то причине ощущаете отсутствие вдохновения, нехватку энергии или времени для репетиций, предлагаемые Полом Элсамом 20 простых средств помогут вам обрести уверенность при создании нового образа.2008Формат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487288   (90487) от 24.04.2012
-
-Т. В. Анисимова, Е. Г. Гимпельсон | Современная деловая риторика [2002] [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свобода общественной жизни требует от каждого члена общества активных речевых действий и умения говорить убедительно. Ведь речь — это основной инструмент деятельности не только преподавателя, политика, юриста, но и любого другого работника гуманитарной сферы, каждого активного гражданина страны...2002Формат: PDF
 
 ## Скачать торент
 ```bash

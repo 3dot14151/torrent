@@ -1,3 +1,58 @@
+###  Публикация: 1711416   (112478) от 30.03.2024
+
+SiteSucker 5.3.2 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112478.jpg" />
+</div>
+
+
+###  Подробнее
+
+SiteSucker- это альтернативный менеджер загрузки сайтов. SiteSucker это приложение для Macintosh, которое автоматически загружает веб-сайты из Интернета. Она делает это путем асинхронного копирования веб-страниц сайта, изображений, PDF-файлов, таблиц стилей и других файлов на локальном жестком диске, дублируя структуру каталогов сайта.
+SiteSucker умеет загружать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.03.2024Разработчик: © 2001-2024 Rick CraniskyПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44EEE7B13D2E6A45F13C7DA27B4DC2264193FFD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711382   (112477) от 30.03.2024
+
+Piezo 1.9.1 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piezo позволяет легко и быстро записать звук на вашем компьютере. В течение нескольких секунд и вы будете иметь запись звука из любого приложения.
+Кроме записи звука из приложений Piezo умеет записывать звук из встроенного микрофона, что может быть полезно для быстрой записи подкастов или создания аудио-заметок.
+Piezo не требует никаких настроек, достаточно его запустить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.03.2024Разработчик: © 2024 Rogue Amoeba Software, LLCПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EADF67587360B0CB17495B78358BF31F8D6C1268
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1711629   (112430) от 31.03.2024
 
 Valentina Studio Pro 13.9.1 [Multi/Ru]
@@ -6,7 +61,7 @@ Valentina Studio Pro 13.9.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112430.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ Omni Recover 3.6.11 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112423.jpg" />
 </div>
 
 
@@ -59,7 +114,7 @@ SyncBird Pro 4.0.14 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112417.jpg" />
 </div>
 
 
@@ -85,7 +140,7 @@ Scrutiny 12.8.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112396.jpg" />
 </div>
 
 
@@ -112,7 +167,7 @@ n-Track Studio Suite 10.0.0 ARM/Intel [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112377.jpg" />
 </div>
 
 
@@ -139,7 +194,7 @@ Integrity Pro 12.8.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112344.jpg" />
 </div>
 
 
@@ -165,7 +220,7 @@ Cookie 7.2.9 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112305.jpg" />
 </div>
 
 
@@ -192,7 +247,7 @@ iBarcoder 3.14.8 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112232.jpg" />
 </div>
 
 
@@ -218,7 +273,7 @@ TunesKit Audio Capture 3.2.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112228.jpg" />
 </div>
 
 
@@ -245,7 +300,7 @@ Adobe InCopy 2024 v.19.3.0 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112225.jpg" />
 </div>
 
 
@@ -272,7 +327,7 @@ LocalSend for Mac 1.14.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112217.jpg" />
 </div>
 
 
@@ -298,7 +353,7 @@ MarsEdit 5.1.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112197.jpg" />
 </div>
 
 
@@ -324,7 +379,7 @@ Bigasoft FLAC Converter for Mac 5.8.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112144.jpg" />
 </div>
 
 
@@ -350,7 +405,7 @@ QLab 5.3.7 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112142.jpg" />
 </div>
 
 
@@ -376,7 +431,7 @@ Bigasoft Video Downloader Pro for Mac 3.27.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112139.jpg" />
 </div>
 
 
@@ -402,7 +457,7 @@ Final Cut Express HD 4.0 [Eng]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90315.jpg" />
 </div>
 
 
@@ -431,7 +486,7 @@ Bento 4.0.6 [Eng/Rus]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90300.jpg" />
 </div>
 
 
@@ -459,7 +514,7 @@ Microsoft Office for Mac 2011 Service Pack 2 [RU/EN/DE]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88514.jpg" />
 </div>
 
 
@@ -485,7 +540,7 @@ SteerMouse 4.1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87251.jpg" />
 </div>
 
 
@@ -513,7 +568,7 @@ Alien Skin Bokeh 2.0.1.442 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81759.jpg" />
 </div>
 
 
@@ -541,7 +596,7 @@ Alien Skin Snap Art 3.0.0.697 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81712.jpg" />
 </div>
 
 
@@ -569,7 +624,7 @@ Spectra Foo Complete 4.2.3 [English]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79465.jpg" />
 </div>
 
 
@@ -595,7 +650,7 @@ DiskWarrior Boot DVD 4.4 rev. 1102 [Eng]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78614.jpg" />
 </div>
 
 
@@ -623,7 +678,7 @@ RAR Extractor - Unarchiver (vip) 6.5.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65065.jpg" />
 </div>
 
 
@@ -634,58 +689,6 @@ RAR Extractor, распаковать и открыть любой файл. RAR
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97ED112FEA6E4BB9C6AA3918658DF9EC418516B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807876   (65047) от 22.07.2025
-
-The Unarchiver - Unzip RAR ZIP 3.4.0 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65047.jpg" />
-</div>
-
-
-###  Подробнее
-
-Unarchiver - Unzip RAR ZIP - простое в использовании приложение, которое позволяет распаковывать десятки форматов архивов, такие как: Rar, Zip, 7z, Tar, Xz, Iso, Lha, bz2, Lzh, cab, cpio, jar, exe, pkg, dms, tbz, swf, Gzip, Bzip2. Также может сжимать и шифровать любые типы файлов, чтобы сделать личные данные более безопасными.Тип издания: macOS SoftwareРазработчик: © 2025 qing qing yuПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F5BD30235E9B060BC313A163018AE177A43F6E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704863   (63811) от 06.03.2024
-
-MacGPT 3.20 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63811.jpg" />
-</div>
-
-
-###  Подробнее
-
-MacGPT — это простое нативное приложение для macOS, которое позволяет быстро получить доступ к ChatGPT через строку меню. Всего одним щелчком мыши вы можете открыть ChatGPT и начать общение с помощью мощного помощника по языковой модели.Тип издания: macOS SoftwareРелиз состоялся: 20.02.2024Разработчик: © 2023 Good SnoozeПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89A9F4CC3C46AF30ED21AC44CB10DACC423D003A
 ```
 
 https://mybot314.ru/tekegram_catalog/

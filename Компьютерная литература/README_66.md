@@ -1,162 +1,3 @@
-###  Публикация: 935962   (495772) от 11.09.2015
-
-Rene Molenaar | How to Master CCNA / Как овладеть CCNA (2013) [PDF] [En]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга написана сертифицированный системным инструктором Cisco (CCSI) Rene Molenaar, и является компактным руководством по подготовке с экзамену CCNA. Обновленное издание с учетом экзаменов 100-101, 200-101 и 200-120.Жанр: Компьютерные сетиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B96ACE2A817617DCE59FD658072ACE3EAAE7A81A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936104   (495605) от 11.09.2015
-
-Василий Леонов | Сбои и ошибки компьютера. Простой и понятный самоучитель (2015) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы недавно начали осваивать компьютер? И возможно, уже успели столкнуться с проблемами в работе системы, вирусами или неполадками в работе жесткого диска? Не нужно отчаиваться! Наш компактный и наглядный самоучитель поможет вам справиться со всеми проблемами не хуже компьютерного мастера.
-Множество практических примеров и иллюстраций, а также простой и понятный стиль (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAB8719104625708084D66CB82E9CF5B7EECD9F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543306   (495218) от 05.09.2012
-
-Leonard Lobel, Andrew Brust | Programming Microsoft SQL Server 2012 [2012] [PDF] [En]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495218.jpg" />
-</div>
-
-
-###  Подробнее
-
-С этой книгой вы поднимите свои навыки программирования на новый уровень. Вы научитесь разрабатывать, тестировать и развертывать базы данных для SQL Server 2012. Основные аспекты - знакомство с ядром (T-SQL, SQL CLR, транзакции, безопасность); реляционные базы данных; прикладной SQL (технологии доступа к данным WCF, облачные технологии и синхронизация данных с SQL Azure).Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:927AC0CE3DBC10B7066EC8ADDD387A17D059BFFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543368   (495116) от 05.09.2012
-
-Бен Ватсон | С# 4.0 на примерах [2011] [DJVU]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495116.jpg" />
-</div>
-
-
-###  Подробнее
-
-На практических примерах рассмотрено программирование на языке Microsoft С# 4.0, начиная с основ языка и заканчивая решением типичных задач с помощью .NET Framework. Показано создание эффективных классов, интерфейсов и типов, а также программного кода, допускающего многократное использование. Описаны приемы обработки данных, основанные на применении коллекций, сериализации, баз данных и XML. Рассмотрена реализация пользовательского интерфейса с применением технологий WinForms и WPF, а также создание веб-приложений на основе технологий ASP.NET и Silverlight. Показано применение на практике новых возможностей языка С# 4.0. Уделено внимание взаимодействию с ОС Windows и системным ПО, использованию шаблонов для разработки сложных программ и другое. Приведено более 200 готовых решений, оптимальных технических приемов и примеров проверенного кода.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC98928E89CE02C110C060C952238B8A485A1A70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158119   (493185) от 15.08.2017
-
-И.В. Баскаков и др. | IP-телефония в компьютерных сетях (2016) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493185.jpg" />
-</div>
-
-
-###  Подробнее
-
-IP-телефония прочно входит в повседневную жизнь человека, превращаясь из экзотической услуги в базовый сервис. Это не просто альтернатива обычной телефонии, но и перспективная техническая платформа для передачи мультимедийной информации.
-Перед вами книга, которая поможет более глубоко разобраться в тонкостях IР-телефонии.
-Учебное пособие предназначено для широкого (   Читать дальше...   )Жанр: Сетевые технологииФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6331CA5228A0F4554E3F4D1590176E1717A3D95C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543961   (493001) от 06.09.2012
-
-Steve Johnson | Adobe Illustrator CS6 on Demand [2012] [PDF] [En]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет из себя пошаговый иллюстрированный самоучитель. Охвачен весь процесс работы с программой. Подробно рассмотрен интерфейс программы Adobe Illustrator CS6, новые возможности обозначены специальным значком. В конце книге они выделены в отдельный раздел с описанием. Книга позволяет подготовиться к сертификационным экзаменам Adobe.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ED2A198F63F31ACE29790293E5A4A03BE0EF135
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 543839   (492910) от 06.09.2012
 
 Д.В.Сошников | Функциональное программирование на F# [2011] [PDF]
@@ -165,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492910.jpg" />
 </div>
 
 
@@ -191,7 +32,7 @@ Steve Johnson | Adobe Photoshop CS6 on Demand [2012] [PDF] [En]
 >>2D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492829.jpg" />
 </div>
 
 
@@ -217,7 +58,7 @@ Steve Johnson | Adobe InDesign CS6 On Demand [2012] [PDF] [En]
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492826.jpg" />
 </div>
 
 
@@ -243,7 +84,7 @@ Steve Johnson | Adobe Dreamweaver CS6 On Demand [2012] [PDF] [En]
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492817.jpg" />
 </div>
 
 
@@ -269,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491829.jpg" />
 </div>
 
 
@@ -296,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491814.jpg" />
 </div>
 
 
@@ -322,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491812.jpg" />
 </div>
 
 
@@ -348,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491617.jpg" />
 </div>
 
 
@@ -374,7 +215,7 @@ Openssource | Авторская методика по анонимности и
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491534.jpg" />
 </div>
 
 
@@ -401,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491024.jpg" />
 </div>
 
 
@@ -427,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490540.jpg" />
 </div>
 
 
@@ -453,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489862.jpg" />
 </div>
 
 
@@ -482,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489581.jpg" />
 </div>
 
 
@@ -509,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489376.jpg" />
 </div>
 
 
@@ -535,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488498.jpg" />
 </div>
 
 
@@ -561,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486415.jpg" />
 </div>
 
 
@@ -589,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485421.jpg" />
 </div>
 
 
@@ -615,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485303.jpg" />
 </div>
 
 
@@ -641,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485279.jpg" />
 </div>
 
 
@@ -667,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483973.jpg" />
 </div>
 
 
@@ -678,6 +519,169 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86C6D5803B21E3540790EC35A6C9D0508A61BD2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566350   (483963) от 28.07.2022
+
+Тимур Машнин | Основы программирования с Java (2022) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга предназначена для всех, кто хочет изучить основы программирования с использованием языка Java.
+Эта книга даст понимание основных элементов программирования на Java и абстракции данных с использованием объектно-ориентированного подхода. С этой книгой Вы научитесь писать программы с использованием переменных, массивов, управляющих операторов, циклов, рекурсии, (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:956A63019A14B16F118964A28017E230215DBBBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 545426   (482142) от 11.09.2012
+
+Адам Фримен, Стивен Сандерсон | ASP.NET MVC 3 Framework с примерами на C# для профессионалов, третье издание , третье издание [2012] [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая платформа ASP.NET MVC обеспечила радикальный сдвиг в разработке веб-приложений на платформе Microsoft. В ней делается упор на ясную архитектуру, шаблоны проектирования и тестируемость, и не предпринимается попыток сокрытия того, как работает веб-среда.
+Первая часть книги призвана помочь в общих чертах разобраться в фундаментальных идеях, положенных в 0CH0ByASP.NET MVC 3, и ознакомиться с практическим применением этой платформы.
+
+В части II этой книги будут показаны все необходимые детали. Мы начнем с исследования структуры приложения ASP.NET MVC и конвейера обработки запросов в приложении. После этого мы сосредоточим внимание на отдельных аспектах, таких как маршрутизация , контроллеры и действия , система представлений MVC и способ работы MVC с моделями предметной области. В последних двух главах этой части мы покажем, как использовать в приложениях MVC технологии AJAX и jQuery.
+
+В оставшихся трех главах показано, как разработчик ASP.NET MVC 3 может избежать типичных проблем с безопасностью и развернуть (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D426200A3B8EBBEE272CCA8B2D0074908FDD476F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566441   (482069) от 29.07.2022
+
+Дави Педро Бауэр | Начало работы с Ethereum: Пошаговое руководство, как стать разработчиком блокчейна (2022) [PDF, DJVU]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная книга является пошаговым руководством по разработке блокчейна Ethereum. Читатель глава за главой пройдет весь путь от установки необходимого программного обеспечения до написания, тестирования и развертывания смарт-контрактов. «Начало работы с Ethereum» посвящено технологиям, наиболее тесно связанным с Ethereum, таким как IPFS, Filecoin, ENS, Chainlink, Truffle, (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26A3158C4C6E1DD360CEF34FDC318D3B8C544B09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566438   (482055) от 29.07.2022
+
+Кати Фислер и др. | Введение в программирование и структуры данных (2022) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482055.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге представлены полезные методы программирования, имеющие практическую ценность. Опираясь на свой многолетний опыт, авторы показывают, как написать надежный код, который смогут читать другие разработчики. Основной принцип обучения - составление плана решения: от определения структур данных по условиям поставленной задачи через примеры и тесты к написанию программного (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2A2980BEB4B02BBF3DA02519D02FF11A4626B4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405730   (480497) от 31.08.2020
+
+Денис Колисниченко | Секреты безопасности и анонимности в Интернете (2021) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Даже новички знают, что вычислить любого пользователя в Интернете совсем несложно. Книга рассказывает, как скрыть свое местонахождение и IP-адрес, используя анонимные сервисы и сеть Tor, посетить заблокированные администратором сайты, защитить личную переписку, домашние устройства и беспроводную сеть.
+Рассматриваются способы предотвратить утечку персональных данных, (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6D34169D581A2E213B0ECB42B21299C03F7A413
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565524   (479964) от 30.07.2022
+
+Бен Форта | SQL за 10 минут, 5-е издание (2021) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479964.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге SQL за 10 минут предлагаются простые и практичные решения для тех, кто хочет быстро получить результат. Проработав все 22 урока, на каждый из которых придется затратить не более 10 минут, вы узнаете обо всем, что необходимо для практического применения SQL. Приведенные в книге примеры подходят для IBM DB2, Microsoft Access, Microsoft SQL Server, MySQL, Oracle, (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2CD869BF3E38ED9FC660BDA3788B92739644654
 ```
 
 https://mybot314.ru/tekegram_catalog/

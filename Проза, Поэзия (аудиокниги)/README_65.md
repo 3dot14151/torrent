@@ -1,56 +1,3 @@
-###  Публикация: 245149   (434253) от 13.10.2010
-
-Кадзуо Исигуро | Не отпускай меня [2009] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это роман-притча, это история любви, дружбы и памяти, это предельное овеществление метафоры «служить всей жизнью».
-Тридцатилетняя Кэти вспоминает свое детство в привилегированной школе Хейлшем, полное странных недомолвок, половинчатых откровений и подспудной угрозы. Действие романа происходит в альтернативной Британии, где практикуется клонирование людей для последующего (   Читать дальше...   )Жанр: Зарубежная проза, интеллектуальный бестселлер
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14F389AB6677AFBFFA2FF6CD838E9D84602131FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945645   (433918) от 10.10.2015
-
-Джим Томпсон | Алкоголики (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433918.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бескорыстный врач захудалой клиники для алкоголиков после перенесенных мучений совершенно неожиданно поймал птицу счастья за огненный хвост.Жанр: ПрозаПродолжительность: 04:14:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B7B7704F849B77D04E68406B2C4EBF742D4C77C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410621   (433878) от 22.09.2020
 
 Пётр Алешковский | Секретики (2020) [MP3]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433878.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433141.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432532.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432520.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432386.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432381.jpg" />
 </div>
 
 
@@ -217,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431752.jpg" />
 </div>
 
 
@@ -243,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430588.jpg" />
 </div>
 
 
@@ -270,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430241.jpg" />
 </div>
 
 
@@ -296,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429746.jpg" />
 </div>
 
 
@@ -322,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429539.jpg" />
 </div>
 
 
@@ -348,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428511.jpg" />
 </div>
 
 
@@ -374,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428379.jpg" />
 </div>
 
 
@@ -400,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428215.jpg" />
 </div>
 
 
@@ -426,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427543.jpg" />
 </div>
 
 
@@ -453,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427502.jpg" />
 </div>
 
 
@@ -480,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427424.jpg" />
 </div>
 
 
@@ -506,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426914.jpg" />
 </div>
 
 
@@ -532,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425565.jpg" />
 </div>
 
 
@@ -559,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425391.jpg" />
 </div>
 
 
@@ -585,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424408.jpg" />
 </div>
 
 
@@ -611,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424403.jpg" />
 </div>
 
 
@@ -637,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424228.jpg" />
 </div>
 
 
@@ -663,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424227.jpg" />
 </div>
 
 
@@ -675,6 +622,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35B83D5E7BF3B6A1C02AC74A02340F10C416423E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064418   (424223) от 21.10.2016
+
+Пол Остер | Тимбукту (2012) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды нью-йоркский поэт Вилли Гуревич вообразил, что послан в мир Санта-Клаусом. Узрев своего патрона в телевизоре, он поменял фамилию на Сочельник и отправился по стране творить добро в компании верного пса по кличке Мистер Зельц - которому и отведена роль рассказчика. Трогательная история их странствий изложена прославленным автором "Нью-йоркской трилогии" (   Читать дальше...   )Жанр: зарубежная прозаПродолжительность: 06:30:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:268D192C84EEC18AA1F4D04D98E0B487AD394688
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064358   (424218) от 21.10.2016
+
+Франсуаза Саган | Неясный профиль. Смятая постель (2012) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любовь-это лабиринт, за каждым поворотом которого открываются манящие дали. И в этом лабиринте хорошо двум влюбленным сердцам. Но когда в закоулки любви проникает третий, он или разрушает иллюзии, или навсегда соединяет двух людей, созданных друг для друга.
+Там, где бушуют настоящие страсти, нет места ничтожным страстишкам - об этом романы замечательной французской (   Читать дальше...   )Жанр: Авторский сборник. РоманыПродолжительность: 15:07:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB32CC80860970A4C39BB1AC559C80FE10CA4D3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1132219   (700980) от 09.05.2017
+
+Pond - The Weather (2017) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700980.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 30000 Megatons (04:02)
+2. Sweep Me Off My Feet (03:29)
+3. Paint Me Silver (03:44)
+4. Colder Than Ice (03:10)(   Читать дальше...   )Жанр: Indie Rock, Psychedelic RockПродолжительность: 00:39:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EAD3E3A839DBA322AC16EC26BFB9DC65E8CE21C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131972   (700844) от 09.05.2017
+
+Grayscale - Adornment (2017) [FLAC|Lossless|tracks|WEB] <Alternative, Pop-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700844.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Let It Rain (03:07)
+2. Come Undone (feat. Patty Walters) (03:30)
+3. Slipping Away (03:34)
+4. Atlantic (03:53)(   Читать дальше...   )Жанр: Alternative, Pop-PunkПродолжительность: 00:38:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37E7FB837C91DB3E17C75FAC8CCE8F9793265275
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132698   (700828) от 09.05.2017
+
+The Rubettes - The Singles Collection (1992) [MP3|320 Kbps] <Rock & Roll, Pop Rock, Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sugar Baby Love
+02. Tonight
+03. Juke Box Jive
+04. I Can Do It(   Читать дальше...   )Жанр: Rock & Roll, Pop Rock, GlamПродолжительность: 01:17:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36B01EC6F6D5532456EFBBA1F9243DDB7D10CA26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132573   (700826) от 09.05.2017
+
+Фёдор Чистяков - Выше ноля. Концерт в ЛДМ 2015 (2016) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700826.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Буги вуги каждый день
+2. Улица Ленина
+3. Будет всё хорошо (Вдох)
+4. Цикорий(   Читать дальше...   )Жанр: RockПродолжительность: 01:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAB43F78F76CC576282FDCA009AEFA00C7E99933
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220829   (700642) от 21.04.2018
+
+Страна Советов - По твоим следам (2018) [MP3|320 Kbps] <Pop-Punk, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700642.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. От себя не уйти (1:51)
+ 2. По твоим следам (1:33)
+ 3. Больше не для нас (2:41)
+ 4. Как в последний раз (feat. Дмитрий Спирин) (1:22)(   Читать дальше...   )Жанр: Pop-Punk, Alternative RockПродолжительность: 00:21:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5697320EC481571D6284A3DFD897C7C446FD78B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220866   (700638) от 21.04.2018
 
 Ди Курцман (The Dartz) - Качели на краю света (2018) [MP3|320 Kbps] <Neo-Folk>
@@ -6,7 +151,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700638.jpg" />
 </div>
 
 
@@ -36,7 +181,7 @@ phoenix/NEBULIN - Mainframe (2018) [MP3|320 Kbps] <Alternative Rock, Industrial 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700630.jpg" />
 </div>
 
 
@@ -65,7 +210,7 @@ Nokturnal Mortum - Істина (2017) [MP3|320 Kbps] <Folk Metal, Pagan Metal, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700617.jpg" />
 </div>
 
 
@@ -94,7 +239,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700616.jpg" />
 </div>
 
 
@@ -120,7 +265,7 @@ Opium Ink - Opium Ink (2018) EP [MP3|320 Kbps] <Alternative Rock, Electronic Roc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700542.jpg" />
 </div>
 
 
@@ -149,7 +294,7 @@ Silverheart - Forsaken Words (2015) [FLAC|Lossless|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700508.jpg" />
 </div>
 
 
@@ -178,7 +323,7 @@ Bullet - Bite The Bullet (2008) [FLAC|Lossless|tracks] <Heavy Metal, Hard Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700507.jpg" />
 </div>
 
 
@@ -207,7 +352,7 @@ Jude Cole - A View From 3rd Street (1990) [FLAC|Lossless|tracks] <Soft Rock, Pop
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700506.jpg" />
 </div>
 
 
@@ -236,7 +381,7 @@ Stray Train - Just 'Cause You Got the Monkey off Your Back Doesn't Mean the Circ
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700333.jpg" />
 </div>
 
 
@@ -265,7 +410,7 @@ Nemrud - 3 Albums (2010 - 2016)[FLAC|Lossless|image + .cue]<Progressive rock, Ps
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700330.jpg" />
 </div>
 
 
@@ -294,7 +439,7 @@ Pianoбой (Піанобой) - Take Off (2015) [FLAC|Lossless|image + .cue] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700323.jpg" />
 </div>
 
 
@@ -323,7 +468,7 @@ The 1975 - I Like It When You Sleep, for You Are So Beautiful Yet So Unaware of 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700196.jpg" />
 </div>
 
 
@@ -352,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700073.jpg" />
 </div>
 
 
@@ -381,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700060.jpg" />
 </div>
 
 
@@ -410,7 +555,7 @@ OWNIT - Цикл насилия (2020) [MP3|~225 Kbps (V1)] <Hardcore, Crust-Pun
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700058.jpg" />
 </div>
 
 
@@ -439,7 +584,7 @@ Magic Bus - The Earth Years (2020) [FLAC|Lossless|image + .cue] <Progressive Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700057.jpg" />
 </div>
 
 
@@ -468,7 +613,7 @@ Radiohead - A Moon Shaped Pool (2016) [FLAC|Lossless|tracks + .cue] <Art Rock, I
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699961.jpg" />
 </div>
 
 
@@ -497,7 +642,7 @@ The Unguided - 2 Singles (2019-2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699945.jpg" />
 </div>
 
 
@@ -523,7 +668,7 @@ Feuerschwanz - Dаs Еlftе Gеbоt (2020) 2xCD [FLAC|Lossless|image + .cue] <Fo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699939.jpg" />
 </div>
 
 
@@ -552,7 +697,7 @@ Megakill Paranoise - Total Fucking Shame (2019) [FLAC|Lossless|WEB-DL|tracks] <T
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699936.jpg" />
 </div>
 
 
@@ -581,7 +726,7 @@ Stonehand - Вендетта (2020) [MP3|320 Kbps] <Southern Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699934.jpg" />
 </div>
 
 
@@ -595,151 +740,6 @@ Stonehand - Вендетта (2020) [MP3|320 Kbps] <Southern Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F456BB77C4BF85F4D0FA93FEF5DAB0381267FAE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402474   (699932) от 15.08.2020
-
-Kamelot - I Am the Empire: Live from the 013 (2020) [MP3|320 Kbps] <Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699932.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Transcendence (Intro) (Live from the 013) (2:02)
-02. Phantom Divine (Shadow Empire) (Live from the 013) (4:04)
-03. Rule the World (Live from the 013) (3:47)(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 01:45:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD35A20FA53C485080E00A9BBA792CDC0D393F98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402616   (699928) от 15.08.2020
-
-Coated With Filth - Like Sacrificial Lambs (2020) [FLAC|Lossless|WEB-DL|tracks] <Black Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Absolution/Renaissance [00:03:23]
-02. Aroma of Gloom [00:02:55]
-03. Pureblood [00:03:51]
-04. Wither [00:04:17](   Читать дальше...   )Жанр: Black Death MetalПродолжительность: 00:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BD6A72A7DE97ADC8103DB82A8E02E38E724363F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287870   (699884) от 09.03.2019
-
-Obscura - Illegimitation (2012) [WavPack|Lossless|image + .cue] <Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - And All Will Come to an End (2:58)
-02 - Crucified (4:24)
-03 - Fear (4:37)
-04 - Immanent Desaster (6:03)(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:48:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95BB90FD769464BEE776BC94F4CAC0FB017C99D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287840   (699883) от 09.03.2019
-
-Nifelheim - Devil's Force (1998) [FLAC|Lossless|image + .cue] <Black Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Deathstrike From Hell
-02 - The Final Slaughter
-03 - Desecration Of The Dead
-04 - Demonic Evil(   Читать дальше...   )Жанр: Black Metal, Thrash MetalПродолжительность: 00:34:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E34E303C842099AF87197CFE777A775C947418C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287872   (699881) от 09.03.2019
-
-Obscura - Omnivium (2011) [WavPack|Lossless|image + .cue] <Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Septuagint
-02. Vortex Omnivium
-03. Ocean Gateways
-04. Euclidean Elements(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:59:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:604376BEDE9FA33E9E5B84E03470E9F1A38F828C
 ```
 
 https://mybot314.ru/tekegram_catalog/

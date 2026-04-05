@@ -6,7 +6,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276877.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275429.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272327.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Def Leppard - Visualize, Video Archive (2001) DVD9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271125.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267324.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264071.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264066.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262025.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Queen feat. Adam Lambert — MTV EMA 2011. LIVE (2011) [H.264/720p-LQ] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256139.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255052.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Inna. Caliente (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253449.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Lionel Richie feat. Shania Twain. Endless Love (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253405.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252049.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251223.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251044.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ VA - Сборник клипов part. 3 Deutsch Rap (2002-2012) WEBRip 720p | K
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248236.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Lita Ford-The Complete Video Collection (2003) DVD9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230982.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ DVJ Bazuka - Rock'n'Roll (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229407.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ VA - Зимний марафон № 212: Дискотека в стиле Count
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225379.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ OKSI - Новогодняя 2013 (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223829.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222452.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Anacondaz - 18 клипов+4 видеопрезентации (2012-2015) WEBRi
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222117.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217523.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Mylene Farmer. Les clips - L'integrale (1999-2020) (2021) Blu-ray [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214661.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ JinSoul - Ring of Chaos [4K 60fps 24bit BagsUpZ] 2025 (2025) WEBRip [H.265/2160p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213444.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Miyeon - Sky Walking (Special) (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213443.jpg" />
 </div>
 
 

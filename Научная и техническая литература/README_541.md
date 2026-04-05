@@ -1,136 +1,3 @@
-###  Публикация: 1665030   (183641) от 28.09.2023
-
-Г. И. Катышев, В. Р. Михеев | Крылья Сикорского (2023) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_183641.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Книга посвящена Сикорскому — выдающемуся авиаконструктору XX века, с именем которого связано создание первых в мире многомоторных воздушных кораблей «Русский Витязь» и «Илья Муромец». В монографии достаточно полно освещен русский период деятельности Игоря Ивановича, его вклад в становление и развитие авиации России, опередившей по ряду направлений ведущие зарубежные (   Читать дальше...   )Жанр: История, история авиацииИздательство: Самиздат (Dtfm pub.)Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:533DBF7055DFA057D15571F0F7FD900C11B38CA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592538   (183544) от 22.11.2022
-
-Л. Гладков и др. | Физика. Практикум по решению задач (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основная цель пособия — научить студентов общим методам решения типовых задач, которые формируют физическое мышление. В пособие включены следующие разделы: «Механика», «Молекулярная физика и основы термодинамики», «Электростатика», «Постоянный ток», «Электромагнетизм», «Колебания и волны». В начале каждого раздела приводятся основные теоретические положения и формулы. (   Читать дальше...   )Жанр: Физические науки. АстрономияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB14D2BF3044BA486B0D5DF5BEBD093877CFDB01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592352   (183525) от 22.11.2022
-
-И.Игин | Что ни страница - знакомые лица (1956) [JPG]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный советский художник-карикатурист Иосиф Ильич Игин в 1956 году выпустил в свет книгу-альбом своих портретов-шаржей в сопровождении эпиграмм разных авторов на известных деятелей культуры.
-Спустя 66 лет мало кто найдет на этих страницах известные лица.
-
-Примечание:(   Читать дальше...   )Жанр: шаржиФормат: JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7132EB7031755B1E14CA270D6A240FF12AB69F3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427349   (183326) от 28.11.2020
-
-В.В. Ходарев | Казачий кладезь Витислава Ходарева : рассказы, фольклорные находки, история жизни автора (2020) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183326.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Казачьим Пушкиным» Витислава Васильевича Ходарева называли соратники по возрождению казачьего движения в России. Но деятельность поэта была обширной. Всю жизнь он собирал казачий фольклор. В этой книге представлены его находки - легенды и пословицы, поверья и сказки, забытые слова и игры терских казаков. Уникальны его рассказы о жизни в послевоенные годы и воспоминания (   Читать дальше...   )Жанр: История. Этнография. ПравославиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD00F9B69A3B89A0C396AB73815115814F8ED018
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665084   (183147) от 29.09.2023
-
-А. Вест | Химия твердого тела. Теория и приложения (1988) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классический учебник по химии твердого тела. Рассмотрены основы дисциплины - кристаллохимия и кристаллография, термодинамические и кинетические вопросы превращения твердых тел (в том числе мартенситные превращения), рентгеновские методы анализа, различные дефекты (в т. ч. межблоковые границы).Жанр: ХимияИздательство: МирФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:048045257B82C275C8A9351640C8B14A7D9C52D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427544   (183142) от 28.11.2020
 
 Наталия Басовская | Фееричная Франция (2020) [FB2]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183142.jpg" />
 </div>
 
 
@@ -166,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183001.jpg" />
 </div>
 
 
@@ -192,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182988.jpg" />
 </div>
 
 
@@ -218,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182878.jpg" />
 </div>
 
 
@@ -245,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182741.jpg" />
 </div>
 
 
@@ -271,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182730.jpg" />
 </div>
 
 
@@ -297,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182717.jpg" />
 </div>
 
 
@@ -323,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182697.jpg" />
 </div>
 
 
@@ -349,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182678.jpg" />
 </div>
 
 
@@ -375,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182672.jpg" />
 </div>
 
 
@@ -402,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182345.jpg" />
 </div>
 
 
@@ -429,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182325.jpg" />
 </div>
 
 
@@ -456,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182282.jpg" />
 </div>
 
 
@@ -482,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182281.jpg" />
 </div>
 
 
@@ -508,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182226.jpg" />
 </div>
 
 
@@ -534,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182225.jpg" />
 </div>
 
 
@@ -561,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182167.jpg" />
 </div>
 
 
@@ -588,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182118.jpg" />
 </div>
 
 
@@ -615,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182114.jpg" />
 </div>
 
 
@@ -641,7 +508,7 @@ Anthony Saunders | Оружие окопной войны 1914-1918/Weapons of t
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182021.jpg" />
 </div>
 
 
@@ -667,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182015.jpg" />
 </div>
 
 
@@ -678,6 +545,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E817086CBD7F23CCFF93962DCA4F38C35E678C8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 248558   (181849) от 29.11.2020
+
+Юрий Ненахов | Энциклопедия крейсеров 1860-1910 (2006) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Класс крейсеров появился в период гражданской войны в США и существует до сих пор. За 140 лет в мире было построено около полутора тысячи крейсеров. Данная энциклопедия содержит краткое описание, а также схемы и фотографии всех типов крейсеров за полвека, от момента возникновения этого класса кораблей и до начала строительства турбинных крейсеров после окончания (   Читать дальше...   )Жанр: Научно-популярная литература, военная историяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A82068583C2AD87D322EF9CA0DEF4C9EEFA78963
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357466   (181755) от 29.11.2020
+
+Книжная серия | Доктор Блогер [9 книг] (2018-2020) [EPUB] [Обновляемая]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия книг «Доктор Блогер» посвящена здоровью, здоровому питанию и воспитанию детей. Пока в серии выпущено 8 книг, но они уже стали настоящими бестселлерами. Здоровое питание – основа нашего здоровья в целом. Это не только легкость и энергия, отличное настроение и самочувствие, но и профилактика многих заболеваний. Как правильно выбирать продукты и готовить? Какой (   Читать дальше...   )Жанр: Медицина и здоровье, Здоровое и правильное питаниеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C95404BE2C90D4A88689786241C7C425D1A41F1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592997   (181685) от 25.11.2022
+
+В.Г. Герасимов (ред.) | Лабораторные работы по основам промышленной электроники (1989) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие соответствует программе по электротехническим дисциплинам для неэлектротехнических специальностей высших учебных заведений. Во втором издании исключены лабораторные работы по электровакуумным электронным и ионным приборам. Акцент сделан на изучение современных полупроводниковых приборов, аналоговых и цифровых интегральных микросхем, оптронов, микропроцессоров (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9017989AE0C8BA56E876D98E43B9E5609895E0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592994   (181656) от 25.11.2022
+
+Г.Г. Рекус, В.Н. Чесноков | Лабораторные работы по электротехнике и основам электроники (1989) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181656.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге приведены описания лабораторных работ, основные теоретические положения, общие методические рекомендации, представлены основные электроизмерительные приборы, правила техники безопасности.Жанр: ЭлектротехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5252834DA7EBAF6B60B9949091CBFCDD1426616C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593146   (181649) от 25.11.2022
+
+Липман Берс | Математический анализ (1975) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Переведенная с английского языка книга Липмана Берса представляет собой учебное пособие по курсу математического анализа (с элементами аналитической геометрии) и предназначается для первоначального ознакомления с предметом.
+Книгу отличает большая тщательность в подборе и расположении материала, наглядность, соединяющаяся с высоким научным уровнем, а также органическая (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:206B5F323484AB5B718218CEA9307AA0A8CC575E
 ```
 
 https://mybot314.ru/tekegram_catalog/

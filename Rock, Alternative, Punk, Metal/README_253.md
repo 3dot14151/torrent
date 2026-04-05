@@ -1,3 +1,148 @@
+###  Публикация: 1113601   (836608) от 12.03.2017
+
+VA - Отражения (Tribute to Каталог) (2016) [FLAC|lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Чичерина - Куда пропали Звезды (03:20)
+02. Братья Лапенковы - День наоборот (03:51)
+03. Специальный проект 'Сашины товарищи' - Если вас тревожит что-то (03:53)
+04. Настя Полева - Игра без правил (04:20)(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B20BAB5670159215F094D5E6DEA4E62C5E5C3C7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113604   (836594) от 12.03.2017
+
+VA - Отражения (Tribute to Каталог) (2016) [MP3|320 kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Чичерина - Куда пропали Звезды (03:20)
+02. Братья Лапенковы - День наоборот (03:51)
+03. Специальный проект 'Сашины товарищи' - Если вас тревожит что-то (03:53)
+04. Настя Полева - Игра без правил (04:20)(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1B69778D3354D5C871662F9833B570C535E2C00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501311   (836570) от 09.10.2021
+
+Malrun - Pandemonium (2021) [MP3|320 Kbps] <Modern Metal, Melodic Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - King of Madness [00:04:09]
+02 - The Mask of Joy [00:03:45]
+03 - Trail of Ashes [00:04:05]
+04 - Pandemonium [00:04:51](   Читать дальше...   )Жанр: Modern Metal, Melodic MetalcoreПродолжительность: 00:48:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB4472F8399B6F081EA859BF3E09332603E2E7F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501299   (836563) от 09.10.2021
+
+Мураками - Среди акул (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836563.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ласточки
+2. Ошибки
+3. Кепочка
+4. Встречи не будет(   Читать дальше...   )Жанр: RockПродолжительность: 00:28:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7AAF37DD7FA82D80C15C7B0F15B8D1A1408D542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501298   (836558) от 09.10.2021
+
+Рабфак 2.0 - Живая классика (2021) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836558.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Наш дурдом
+2. Раскачивать лодку
+3. Просрали страну
+4. Хватит кормить Канзас(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:42:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B43E911FA0B33D68229D14CE04144042235B3551
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1379899   (836523) от 01.05.2020
 
 Swiss & Die Andern - Saunaclub (2020) [FLAC|Lossless|WEB-DL|tracks] <Punk-Rock, Rapcore>
@@ -6,7 +151,7 @@ Swiss & Die Andern - Saunaclub (2020) [FLAC|Lossless|WEB-DL|tracks] <Punk-Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836523.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836416.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836397.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Car Seat Headrest - Making a Door Less Open (2020) [FLAC|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836393.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ The Apples In Stereo - 7 Albums (1995-2010) Collection [MP3|320 Kbps] <Rock, Ind
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836383.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Car Seat Headrest - Making a Door Less Open (2020) [MP3|320 Kbps] <Indie Rock, A
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836374.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836267.jpg" />
 </div>
 
 
@@ -206,7 +351,7 @@ Dругой Ветер & Элизиум - Чёрный флаг (2020) Single [M
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836259.jpg" />
 </div>
 
 
@@ -232,7 +377,7 @@ Eclipse - Monumentum (2017) Japanese Edition [MP3|320 Kbps] <Hard Rock, Melodic 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836210.jpg" />
 </div>
 
 
@@ -261,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836166.jpg" />
 </div>
 
 
@@ -290,7 +435,7 @@ Deftones - Gore (2016) [MP3|320 кб/с] <Alternative Metal, Post-Metal, Experim
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836165.jpg" />
 </div>
 
 
@@ -319,7 +464,7 @@ Electric Light Orchestra - The Very Best Of (2015) Japanese Edition [MP3|320 к�
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836161.jpg" />
 </div>
 
 
@@ -348,7 +493,7 @@ Satyros - Riven (2011) [MP3|320 kbps]<Black metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836102.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ Chicano Batman - Invisible People (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Psyched
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836092.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ Deep Purple - Limitless (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836066.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ Heaven's Gate - Menergy (1999) Japan[APE|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835343.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ Lethe - The First Corpse on the Moon (2017) [MP3|320 Kbps] <Avant-Garde Metal, E
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835337.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ Urma - Nomad Rhymes (2004) [FLAC|Lossless|image + .cue] <Art Rock, Acoustic, Pro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835336.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ Nuclear Bird - Tyrannical Megalomaniac (2021) [FLAC|Lossless|WEB-DL|tracks] <Pro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835313.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ Infrared - From the Black Swamp (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash, He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835312.jpg" />
 </div>
 
 
@@ -586,7 +731,7 @@ Fallen Lillies - No Master For Lilly (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835310.jpg" />
 </div>
 
 
@@ -600,151 +745,6 @@ Fallen Lillies - No Master For Lilly (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC9CFD9FC15A05D79A5FF03626AAFD4F592C9FA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501432   (835308) от 10.10.2021
-
-Kimmo Porsti - Past And Present (2021) [FLAC|Lossless|image + .cue] <Progressive Rock, Symphonic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awakening (2:10)
-02. At Lombardy Convent (8:40)
-03. Changewinds (5:40)
-04. Fused (5:04)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 00:56:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3864F31A55A0934376D0F9474B6D99122A737902
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501446   (835307) от 10.10.2021
-
-Impiety - Vengeance Hell Immemorial (2013) [FLAC|Lossless|image + .cue] <Death Metal, Black Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	Cuntblasphemy - Paganistic Bitchgoddess Deiimpalation 	03:30
-02. 	Magick-Consecration Goatsodomy 				05:18
------------------------------------------------------------------------
-Ceremonial Necrochrist Redesecration Demo 1992(   Читать дальше...   )Жанр: Death Metal, Black Metal, Thrash MetalПродолжительность: 00:59:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:097851836F24C9CFC3B6E4AC06F3B94C9F9C1B42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501287   (835306) от 10.10.2021
-
-Rivers Of Nihil - The Work (2021) [FLAC|Lossless|image + .cue] <Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_835306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Tower (Theme from «The Work»)
-02. Dreaming Black Clockwork
-03. Wait
-04. Focus(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 01:04:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:451982E04E0742664F17E53B39276FA791E00C88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113943   (835300) от 13.03.2017
-
-The Sweet Lord Animals - Rise (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 14 Dollars (3:09)
-02. Away (2:16)
-03. Flood (4:45)
-04. Crazy Faces (4:29)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:41:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:666A7C1512D4D239F322DD3B3930F56BFDCF1104
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113738   (835299) от 13.03.2017
-
-Ten Jinn - Alone (2003) [FLAC|Lossless|image + .cue] <Crossover prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who You Are (5:43)
-02. Alone (5:02)
-03. Never Ending Love (5:19)
-04. Felis Feminalis (4:23)(   Читать дальше...   )Жанр: Crossover progПродолжительность: 01:01:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:724B8659A24750BC175C793C3ABFA1DE7C076F97
 ```
 
 https://mybot314.ru/tekegram_catalog/

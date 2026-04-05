@@ -1,3 +1,57 @@
+###  Публикация: 1530172   (729688) от 10.02.2022
+
+iZotope Plugins Bundle [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Объедините микширование и мастеринг в один взаимосвязанный рабочий процесс, используя самые передовые инструменты: Ozone 9, Neutron 3, Neoverb, Nectar 3, Tonal Balance Control 2 и другие плагины из комплекта, взаимодействующие друг с другом для максимально продуктивной работы.Тип издания: macOS SoftwareРелиз состоялся: 19.01.2022Разработчик: iZotope Inc.Поддерживаемая ОС: OS X 10.11.6 (El Capitan) и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98DC7E495890278E511A1CC96A1B9B19C8796C6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284169   (729457) от 20.02.2019
+
+Lingon X 6.6.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lingon X позволяет визуально создавать файлы автозагрузки, которые используются для запуска приложений и скриптов автоматически при загрузке macOS. Список всех программ выносится в таблицу, где его удобно редактировать. Тут же отображается статус каждой программы: чем она занимается, работает ли в данный момент и т.п.
+
+Всю конфигурацию можно проводить и вручную, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.02.2019Разработчик: Peter Borg Apps ABПоддерживаемая ОС: macOS 10.13 или вышеЯзык интерфейса: Английскийлийский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:830F998D0F79F0A09E703B210B055B571A5668CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284449   (728954) от 21.02.2019
 
 NetWorker 5.3.2 [Multi]
@@ -6,7 +60,7 @@ NetWorker 5.3.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728954.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Paste 1.1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728937.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ iPIN - Secure PIN & Password Safe 2.25 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728791.jpg" />
 </div>
 
 
@@ -88,7 +142,7 @@ Taskly - Accomplish Today 1.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728790.jpg" />
 </div>
 
 
@@ -115,7 +169,7 @@ iStat 3.02 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728659.jpg" />
 </div>
 
 
@@ -144,7 +198,7 @@ Adobe Dreamweaver CC 2017.1 (17.1) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728306.jpg" />
 </div>
 
 
@@ -171,7 +225,7 @@ KeyKey 1.0.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728245.jpg" />
 </div>
 
 
@@ -200,7 +254,7 @@ Movavi PDFChef for Mac 2022 v22.2.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727827.jpg" />
 </div>
 
 
@@ -226,7 +280,7 @@ Boxy: email client for "Inbox by Gmail" 1.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727698.jpg" />
 </div>
 
 
@@ -255,7 +309,7 @@ Mate Translate 8.1.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727635.jpg" />
 </div>
 
 
@@ -282,7 +336,7 @@ Things 2.8.12 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727560.jpg" />
 </div>
 
 
@@ -310,7 +364,7 @@ Warp 3.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727554.jpg" />
 </div>
 
 
@@ -338,7 +392,7 @@ Corporate Templates - Business Stationery 3.1.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727446.jpg" />
 </div>
 
 
@@ -366,7 +420,7 @@ Folder Icon Maker 1.5.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727442.jpg" />
 </div>
 
 
@@ -393,7 +447,7 @@ Themes Mill - Templates for Keynote 4.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727441.jpg" />
 </div>
 
 
@@ -421,7 +475,7 @@ Resume Lab for Pages - Templates Bundle 1.0.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727439.jpg" />
 </div>
 
 
@@ -449,7 +503,7 @@ Corel Painter 2022 v22.1.0.121  [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727394.jpg" />
 </div>
 
 
@@ -476,7 +530,7 @@ CodeDrop - Gist client 1.0.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726698.jpg" />
 </div>
 
 
@@ -502,7 +556,7 @@ URI Handler – Open With Picker 1.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726695.jpg" />
 </div>
 
 
@@ -528,7 +582,7 @@ Drag and Drop Manager 1.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726693.jpg" />
 </div>
 
 
@@ -554,7 +608,7 @@ InstaCal 1.9.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726590.jpg" />
 </div>
 
 
@@ -581,7 +635,7 @@ Vivaldi 2.3.1440.48 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726571.jpg" />
 </div>
 
 
@@ -607,7 +661,7 @@ Canvas X Draw 7.0.2 fix [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726519.jpg" />
 </div>
 
 
@@ -633,7 +687,7 @@ Cisdem DataRecovery 4.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726463.jpg" />
 </div>
 
 
@@ -644,64 +698,6 @@ Cisdem DataRecovery может помочь вам восстановить по
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E09D26353D08D29423391BA25ED38F7A69BA3156
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128798   (726450) от 26.04.2017
-
-Business Template Lab - Templates for Pages 3.1.5 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Business Templates-  профессиональные и стильные бизнес-шаблоны для Pages.
-Business Templates представляет собой прекрасный комплект из 455 шаблонов для Pages, начиная от визитных карточек и информационных бюллетеней, брошюр, календарей,  товарных чеков и счетов,  заканчивая различными формами для менеджемента и других публикаций.
-
-Используйте шаблоны одной страницы, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16 апреля 2017Разработчик: JumsoftПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EEA7524B78ED03B0C020FE503B350E668720581
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128861   (726368) от 26.04.2017
-
-Flush Memory 2.1.1 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Flush Memory - это обязательный инструмент, который освободит RAM на вашем компьютере.
-Каждый раз, когда вы закрываете приложение, некоторая память, которую она использовала, преобразуется в неактивную память, и когда ОЗУ заполняется, система замедляется: процессы перестают отвечать на запросы и вам приходится ждать или делать принудительное завершение.
-
-Чтобы избежать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2016Разработчик: Giorgio VinciguerraПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3C34909100626493031F7982F344DC9938226BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

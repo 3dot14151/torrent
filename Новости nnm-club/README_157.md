@@ -1,3 +1,56 @@
+###  Публикация: 1563064   (505875) от 12.07.2022
+
+XYZ School | Пиксель Арт (2022) WEB-DL [AD] [RU]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пиксель-арт — это техника цифрового рисунка, при которой изображение редактируется на уровне отдельных пикселей. Почему пиксель-арт так популярен у инди-разработчиков? Научиться рисовать пиксель-арт можно быстро, и для этого не нужно быть «традиционным» художником.
+Создавать ассеты и анимации в этой технике можно быстрее и дешевле. Такая графика менее требовательна (   Читать дальше...   )Производство: XYZ SchoolЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 21:52:52Реклама: Присутствуют сторонние вставки и наложения
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DD9C0B7FA09241F5A24327A99DE2A08077338DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933207   (505830) от 01.09.2015
+
+NVIDIA GeForce Desktop 355.82 WHQL + For Notebooks [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505830.jpg" />
+</div>
+
+
+###  Подробнее
+
+NVIDIA GeForce Driver — драйвера для видеокарт производства NVIDIA. Предназначены для видеокарт семейства GeForce, работающих в операционной системе Windows. Унифицированная архитектура драйверов (UDA) гарантирует прямую и обратную совместимость драйверов с различными поколениями графических процессоров NVIDIA, что упрощает процесс замены видеоподсистемы, так как (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A072A74C83FB2801F6311D777A8CFDA2E55685FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 933295   (505818) от 01.09.2015
 
 Stasis (2015) [Ru/Multi] (1.04) License GOG
@@ -6,7 +59,7 @@ Stasis (2015) [Ru/Multi] (1.04) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505818.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505817.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Microsoft Office Standard 2016 Volume License Edition v15.13.3 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505815.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ Call of Duty: Black Ops III (2015) [En] (Beta 3.7.17.4) SteamRip
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505814.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505809.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ Colin McRae: DiRT 2 (2009) [Ru/En] (1.1) Repack R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505764.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ The Elder Scrolls V: Skyrim [Ru/En] (Lossless RePack/1.7.7.06/HD Texture Pack) 2
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505232.jpg" />
 </div>
 
 
@@ -195,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505129.jpg" />
 </div>
 
 
@@ -221,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_504993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_504993.jpg" />
 </div>
 
 
@@ -248,7 +301,7 @@ BlueStacks App Player 0.10.0.4321 (Android 4.4.2) Mod by AJacobs [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504992.jpg" />
 </div>
 
 
@@ -275,7 +328,7 @@ Pillars of Eternity [Patch] (2015) (2.0.0.0706) Official GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504989.jpg" />
 </div>
 
 
@@ -301,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_504169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_504169.jpg" />
 </div>
 
 
@@ -327,7 +380,7 @@ Microsoft уравнял французский и инопланетный яз
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_504102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_504102.jpg" />
 </div>
 
 
@@ -354,7 +407,7 @@ The Elder Scrolls V: Skyrim (RePack/1.7.7.0.6/2 DLC) [Ru/En] 2011 l R.G. Origami
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504016.jpg" />
 </div>
 
 
@@ -381,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504015.jpg" />
 </div>
 
 
@@ -407,7 +460,7 @@ Armed Assault 2 / ArmA 2: Тактика современной войны + Ope
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504011.jpg" />
 </div>
 
 
@@ -434,7 +487,7 @@ Rescue USB 16 Gb (BuTaJ1 Edition) 3.0 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503945.jpg" />
 </div>
 
 
@@ -463,7 +516,7 @@ BELOFF 2019.8 Unpacked
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503878.jpg" />
 </div>
 
 
@@ -489,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503047.jpg" />
 </div>
 
 
@@ -516,7 +569,7 @@ SoftMaker Office Professional 2016 rev 742.0829 RePack (& portable) by KpoJIuK [
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503046.jpg" />
 </div>
 
 
@@ -542,7 +595,7 @@ Total Commander VIM 9.00 Matros Edition [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503001.jpg" />
 </div>
 
 
@@ -568,7 +621,7 @@ Fallout: New Vegas Ultimate Edition + 6 DLC [Ru/En] (Repack/1.4.0.525) 2012 | R.
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502969.jpg" />
 </div>
 
 
@@ -597,7 +650,7 @@ PROMT Expert 11 Build 9.0.556 Portable by bumburbia [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502958.jpg" />
 </div>
 
 
@@ -623,7 +676,7 @@ Microsoft Office 2016 Professional Plus Preview 16.0.4229.1021 (x86-x64) by Rati
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502953.jpg" />
 </div>
 
 
@@ -634,59 +687,6 @@ Microsoft Office 2016 хорошо демонстрирует, как сегод
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92575CA42434F1BFB2D48242D3EB144AFE036509
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934207   (502949) от 04.09.2015
-
-CorelDRAW Graphics Suite X7 17.6.0.1021 Retail RePack by Krokoz [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полный комплект приложений для графического дизайна
-С обновленным интерфейсом, новыми, незаменимыми в работе инструментами и усовершенствованными функциями CorelDRAW Graphics Suite X7 открывает перед пользователями целый мир творческих возможностей. Новые рабочие пространства, где все необходимое всегда под рукой, отражают особенности вашего рабочего процесса. Занимаетесь (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC7E4168FE9AAD21FF5E0C8ACEDF44E668717766
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 865769   (502947) от 04.09.2015
-
-Factorio (2013) [Ru/Multi] (alpha 0.12.6) License
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502947.jpg" />
-</div>
-
-
-###  Подробнее
-
-2128 год. Земля страдает от перенаселения. Человечество на краю коллапса, и его время на исходе... Правительство Земли отправило во все уголки вселенной космические зонды, для поиска пригодных для жизни планет. Хорошие новости пришли от LCX-75, маленькой планеты находящейся в 17.2 световых годах от Земли. Атмосфера пригодна для жизни и обнаружено присутствие воды. (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Tomas Kozelek, Marwin Kovarex, Kasia MazurekЖанр: Стратегия, ПесочницаЯзык озвучки: АнглийскийЯзык субтитров: Английский, Русский и другиеЯзык интерфейса: Английский, Русский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D11AEA3CE59055325FE84D8C0D2BC67D4090551
 ```
 
 https://mybot314.ru/tekegram_catalog/

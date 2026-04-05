@@ -1,3 +1,110 @@
+###  Публикация: 1845647   (1050942) от 02.01.2026
+
+Eatr・Здоровые рецепты v2.11.0 Mod by vadj [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050942.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в Eatr – идеальный помощник для всех, от новичков на кухне до опытных шеф-поваров! Наше приложение с искусственным интеллектом создано, чтобы провести вас через кулинарное приключение, подобранное специально для вас. Неважно, ограничены ли вы во времени или хотите неспешно насладиться готовкой, Eatr поможет вам.Тип издания: ModРелиз состоялся: 31.12.2025Разработчик: Eatr - MealPlansПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52EEE7F7241B3CA965BD6EFFCE8DA00883388DA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845640   (1050941) от 02.01.2026
+
+Solid Explorer File Manager v3.2.11 + Plugins Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050941.jpg" />
+</div>
+
+
+###  Подробнее
+
+Solid Explorer - это приложение для управления файлами, на подобие олдскульных приложений для управления файлами. Приложение поможет вам:
+🗄️ легко управлять файлами на двойной панели
+🔐 защищать файлы с помощью надежного шифрования
+🖥️ управлять файлами в облачном хранилище или NAS(   Читать дальше...   )Тип издания: FullРелиз состоялся: 01.01.2026Разработчик: NeatBytesПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:291F6F2699E4BDAC2C887B6A7B4D2E88992F1854
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845684   (1050937) от 02.01.2026
+
+Nerd AI - Решатель Математики v4.0.3 Mod by vadj [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работая на основе новейших технологий ИИ, Nerd AI здесь, чтобы помочь вам легко справляться с учебой. С набором мощных функций Nerd AI меняет ваш подход к написанию, решению задач, изучению языков, составлению резюме, программированию и расширению знаний по любой теме.Тип издания: ProРелиз состоялся: 02.01.2026Разработчик: Deep Flow AppsПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:061AF2A8BD63565CD1F70F29338548D01FEA130D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845757   (1050892) от 03.01.2026
+
+Truecaller: AI Call Blocker / Oпределитель номера v16.10.5 Mod by PieMods [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Определяйте звонки с неизвестных номеров с помощью мощного идентификатора вызывающего абонента в России. 400 миллионов пользователей полагаются на Truecaller при общении — будь то определение неизвестных номеров, с которых вам звонят, или блокировка СМС-спамеров. Приложение отфильтровывает ненужные звонки и сообщения и соединяет вас только с теми, кто действительно (   Читать дальше...   )Тип издания: Premium / ModРелиз состоялся: 02.01.2026Разработчик: TruecallerПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0415964684C87C72B456EADA60890B18C7CB9A6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1845755   (1050891) от 03.01.2026
 
 PixelLab Pro - Text on pictures 2.1.6 Mod by Alex.Strannik [Ru/En]
@@ -6,7 +113,7 @@ PixelLab Pro - Text on pictures 2.1.6 Mod by Alex.Strannik [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050891.jpg" />
 </div>
 
 
@@ -33,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050823.jpg" />
 </div>
 
 
@@ -59,7 +166,7 @@ Real Fishing / Настоящая Рыбалка v0.1.2.0 Mod by vadj [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050822.jpg" />
 </div>
 
 
@@ -85,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050821.jpg" />
 </div>
 
 
@@ -113,7 +220,7 @@ Genius Art: Image AI Generator v1.5.4 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050775.jpg" />
 </div>
 
 
@@ -140,7 +247,7 @@ Picsart AI Photo Editor, Video v29.1.4 Gold Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050739.jpg" />
 </div>
 
 
@@ -166,7 +273,7 @@ IPTV Pro v9.1.14 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050738.jpg" />
 </div>
 
 
@@ -192,7 +299,7 @@ Broken Sword: Reforged v1.1.9.2 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1050708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050708.jpg" />
 </div>
 
 
@@ -219,7 +326,7 @@ Exo Player - Видеоплеер и IPTV v2.1.3 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1050693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050693.jpg" />
 </div>
 
 
@@ -245,7 +352,7 @@ Device Info / Информация об устройстве v3.4.1.3 Mod by Bal
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1050692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050692.jpg" />
 </div>
 
 
@@ -271,7 +378,7 @@ VK Музыка: песни и подкасты v8.7 Mod by VK Equals [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1050691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050691.jpg" />
 </div>
 
 
@@ -297,7 +404,7 @@ Night clock / Ночные часы v2.11.17 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1050690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050690.jpg" />
 </div>
 
 
@@ -323,7 +430,7 @@ Grok - ИИ ассистент v1.0.96-release.02 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1050689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050689.jpg" />
 </div>
 
 
@@ -349,7 +456,7 @@ Seven / 7 Минут Упражнение v9.24.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1050683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050683.jpg" />
 </div>
 
 
@@ -375,7 +482,7 @@ STEEZY Studio - Learn To Dance v5.19.0 Mod by youarefinished [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1050682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050682.jpg" />
 </div>
 
 
@@ -401,7 +508,7 @@ KineMaster - Video Editor & Maker v8.0.9.35926.GP Mod by youarefinished [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1050676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050676.jpg" />
 </div>
 
 
@@ -427,7 +534,7 @@ Relax Rain: sleeping sounds v9.3.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1050675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050675.jpg" />
 </div>
 
 
@@ -453,7 +560,7 @@ Photo Mate R3 v4.1.0 Mod by Balatan [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1050667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050667.jpg" />
 </div>
 
 
@@ -481,7 +588,7 @@ Listen Audiobook Player v5.4.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1050666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050666.jpg" />
 </div>
 
 
@@ -507,7 +614,7 @@ SuperImage Pro - AI Enhancer v3.16.2 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1050665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050665.jpg" />
 </div>
 
 
@@ -533,7 +640,7 @@ Photo Lab PRO v3.13.80 Mod by MixRoot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1050663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050663.jpg" />
 </div>
 
 
@@ -559,7 +666,7 @@ FBReader Premium v3.8.22 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1050662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050662.jpg" />
 </div>
 
 
@@ -570,111 +677,6 @@ FBReader Premium v3.8.22 Mod by Balatan [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:449E4613DBD3781A08DC31E1B3B955FBC5B40EDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845446   (1050660) от 31.12.2025
-
-Лучшие Аудиокниги всегда под рукой. AudioBooks v7.1 Plus [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1050660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Audio Books – новая платформа для прослушивания аудиокниг! Доступны источники: Akniga, ИзиБук, AudioBook, База Книг и Книгоблуд.
-В нашем приложении собраны лучшие произведения отечественных и зарубежных писателей. Детективы, ужасы, романы, прозы, мемуары, автобиографии – лучшие аудиокниги всегда под рукой! Так же мы собрали коллекцию книг и рассказов для детей. Есть (   Читать дальше...   )Тип издания: Free Plus от разработчикаРелиз состоялся: 31.12.2025Разработчик: fanok.incПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D69F2E5D25198C2EF3DFD23569433CE24025839C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845276   (1050573) от 30.12.2025
-
-Bendy: Lone Wolf v2.0.0 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050573.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Добро пожаловать в мир чернильных кошмаров Bendy: Lone Wolf®. Отправляйтесь в приключение прямиком в причудливый мир анимаций студии Джоуи Дрю. Эта история еще успеет потрепать вам нервы. Вы играете за Бориса, одинокого волка, который отважно шагает по бесконечным коридорам, полным монструозных мультяшных психов и смертельных ловушек. А по пятам неустанно крадется (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 16 окт. 2025 г.Разработчик: Joey Drew StudiosПоддерживаемая ОС: Android 9+Жанр: ПриключенияЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47C0FFFBC75AA60A4C2F2608AA62A8C4D5AA9431
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844907   (1050436) от 28.12.2025
-
-Red Dead Redemption NETFLIX v1.53.61003005 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050436.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы защитить свою семью от федеральных агентов, бывший бандит Джон Марстон вынужден начать охоту на прежних подельников, которых когда-то называл друзьями. Погрузитесь в историю о борьбе Марстона за право стереть свое кровавое прошлое, разворачивающуюся на живописных просторах американского фронтира и Мексики, в игре – предшественнице Red Dead Redemption 2, нашумевшего (   Читать дальше...   )Тип издания: UnlockedРелиз состоялся: 10 дек. 2025 г.Разработчик: Netflix, Inc.Поддерживаемая ОС: Android 10+Жанр: ПриключенияЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C68AECA8F70BE38E9FBA3E693A7CE586CCA9EC53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844940   (1050400) от 28.12.2025
-
-Red Dead Redemption v1.53.61003005 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы защитить свою семью от федеральных агентов, бывший бандит Джон Марстон вынужден начать охоту на прежних подельников, которых когда-то называл друзьями. Погрузитесь в историю о борьбе Марстона за право стереть свое кровавое прошлое, разворачивающуюся на живописных просторах американского фронтира и Мексики, в игре – предшественнице Red Dead Redemption 2, нашумевшего (   Читать дальше...   )Тип издания: ModРелиз состоялся: 12 дек. 2025 г.Разработчик: Rockstar GamesПоддерживаемая ОС: Android 10+Жанр: ПриключенияЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C0CDB1F31ED338AB50FC18D6F59505C2825D8EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

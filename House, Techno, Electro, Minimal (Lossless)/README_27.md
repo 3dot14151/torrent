@@ -1,3 +1,32 @@
+###  Публикация: 1023262   (726413) от 04.06.2016
+
+VA - John Digweed - Re: Structured (Bedrock Records) (2015) Box Set [FLAC|Lossless|image + .cue] <Progressive House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quivver - Time Go By (Reprise)
+02. Joop Junior - Sofie_Lucie
+03. Rory Gallagher & James Trystan - Waking Giants
+04. Philipp Straub & Andrew Fonda - True Basics(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 03:50:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB9133C95510996B33B0BC38EF8FC0FC060F23BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399919   (725152) от 02.08.2020
 
 Zhu - Ringos Desert (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Deep House, Downtempo>
@@ -6,7 +35,7 @@ Zhu - Ringos Desert (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Deep House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725152.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Alfa State - Plays 7V (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Dow
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724916.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Poppy Ackroyd - Resolve Reimagined (2019) [FLAC|Lossless|WEB-DL|tracks] <Electro
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724781.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Modern Eleven - Under The Bright Light (2016) [FLAC|Lossless|WEB-DL|tracks] <Amb
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724656.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Plastikman - Disconnect (2003) [FLAC|Lossless|tracks+.cue] <Techno, Minimal>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722467.jpg" />
 </div>
 
 
@@ -150,7 +179,7 @@ Parov Stelar - The Burning Spider (2017) [FLAC|Lossless|tracks + .cue] <Electron
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722155.jpg" />
 </div>
 
 
@@ -179,7 +208,7 @@ Cløtur (Clotur) - Levels of Consciousness (2017) Warok Music [FLAC|Lossless|WEB
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721739.jpg" />
 </div>
 
 
@@ -208,7 +237,7 @@ Von Grall - Stemplot (2014) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Techno
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720690.jpg" />
 </div>
 
 
@@ -237,7 +266,7 @@ Elle - Yemaja (2015) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720687.jpg" />
 </div>
 
 
@@ -266,7 +295,7 @@ BLNDR - Hypermental (2014) EP [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimenta
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720660.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ Hydrangea - Dawn Lights (2015) [FLAC|Lossless|WEB-DL|tracks] <Electronic,  Ambie
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720657.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ Gai Barone - Towards (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720578.jpg" />
 </div>
 
 
@@ -353,7 +382,7 @@ VA - Live In Montreal - Finale (Mixed By John Digweed) (2016) [FLAC|Lossless|WEB
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720558.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ Monochrome - Unforgettable Call Of The Octopus (2015) [FLAC|Lossless|WEB-DL|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720552.jpg" />
 </div>
 
 
@@ -411,7 +440,7 @@ VA - Ethereal Techno #002 (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, Deep Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720460.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ VA - Armin van Buuren - A State Of Trance Festival (Warm Up Sets) (2016) [FLAC|L
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720174.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ VA - ROHS! - Netlabel Collection (2008-2017) (2018) [FLAC|Lossless|WEB-DL|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719637.jpg" />
 </div>
 
 
@@ -495,7 +524,7 @@ VA - Beach Grooves Maretimo Vol.2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Beach Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719147.jpg" />
 </div>
 
 
@@ -524,7 +553,7 @@ VA - Beach Grooves Maretimo Vol.1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Beach Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719144.jpg" />
 </div>
 
 
@@ -553,7 +582,7 @@ Devotion Island - Critical Mass (2020) Cold Tear Records [FLAC|Lossless|WEB-DL|t
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719026.jpg" />
 </div>
 
 
@@ -582,7 +611,7 @@ Nørbak (Norbak) - Macula (2017) Warok Music [FLAC|Lossless|WEB-DL|tracks] <Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717674.jpg" />
 </div>
 
 
@@ -609,7 +638,7 @@ VA - Parlay - Winter Edition: Mixed by Sofa King (2019) [FLAC|Lossless|WEB-DL|tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716945.jpg" />
 </div>
 
 
@@ -638,7 +667,7 @@ VA - Buddha-Bar - Clubbing (In Deep Session With DJ Ravin) (2017) [FLAC|Lossless
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716247.jpg" />
 </div>
 
 
@@ -667,7 +696,7 @@ Quirke - Whities 015 (2018) Whities [FLAC|Lossless|WEB-DL|tracks] <Techno, Illbi
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715858.jpg" />
 </div>
 
 
@@ -695,7 +724,7 @@ Thyladomid - Interstellar Destiny (2015) Diynamic Music [FLAC|Lossless|tracks+.c
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715850.jpg" />
 </div>
 
 
@@ -709,35 +738,6 @@ Thyladomid - Interstellar Destiny (2015) Diynamic Music [FLAC|Lossless|tracks+.c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58904E433E89F49239F34DB859C8EBE527FBC938
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286129   (715089) от 01.03.2019
-
-Thomas Gandey - 4 Releases (2012-2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Nu Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715089.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Shake Your Head (ft. Maxxi Soundsystem) EP (2012)
-2. Invisible Man / Overnight Sensation (ft. Affkt) EP (2016)
-3. The Nameless One (ft. Katrinka) EP (2016)
-4. Pieces of Me (Alex Kaspersky) EP (2017)Жанр: Deep House, Tech House, Nu Disco |Продолжительность: 02:04:02 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4698174CCF5EA58F85A99F3B5591575F12E7422C
 ```
 
 https://mybot314.ru/tekegram_catalog/

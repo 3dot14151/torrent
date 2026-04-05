@@ -6,7 +6,7 @@ Bananarama - Masquerade (2022) [FLAC|Lossless|image + .cue] <Dance-pop, Synth-po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482335.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Chris De Burgh - Spark To A Flame: The Very Best Of Chris De Burgh (1989) [FLAC|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482020.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Olivia Newton-John - The Definitive Collection (2002) [FLAC|Lossless|image + .cu
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481684.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Lana Del Rey - Honeymoon (2015) [FLAC|Lossless|WEB-DL]<Indie Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481594.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Lana Del Rey - Honeymoon (2015) [FLAC|tracks+.cue]<Indie Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481301.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ ABBA - Gold: Greatest Hits (1992) Polydor D120679 [FLAC|Lossless|image + .cue]<P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480319.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Best Of 100% Hits (2003) 2CD [FLAC|Lossless]<Pop, Rock, Oldes, Retro>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480202.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ DJ BOBO - Mystorial (2016) [FLAC|Lossless|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479305.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ VA - 80s Road Trip (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478977.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Beyonce - RENAISSANCE (Explicit) (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478335.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Anitta - Kisses (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477458.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Chris De Burgh - A Better World (2016) [FLAC|Lossless|image + .cue] <Pop, Soft R
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477380.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Skylar Grey - Natural Causes (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477375.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Eros Ramazzotti - Ali E Radici (Limited Edition) (2009) (Limited Edition) [FLAC|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476092.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Pink (P!nk) - The Truth About Love (2012) [FLAC|Lossless]<Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475757.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ VA - 80s Love (2015) [FLAC|tracks|WEB-DL]<Rock, Ballad, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475357.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ VA - Pure... 90s (2012) Box Set, 4 CD [FLAC|Lossless]<Pop, Rock, Electronic, Sof
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475236.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Falco - So80s (Soeighties) Presents Falco (Curated By Blank & Jones) (2012) 2CD 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475137.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ The Chainsmokers - So Far So Good (+ Time Bomb) (2022) [FLAC|Lossless|WEB-DL|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474323.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Ani Lorak (Ани Лорак) - Smile (2005) [FLAC|Lossless|image + .cue]<Рор
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473992.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ VA - 101 Voices (2012) 5CD [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473853.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Barbra Streisand - 2 альбома (1980, 2005) [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473621.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Citizen King - Mobile Estates (1999) [FLAC|Lossless|tracks + .cue] <Hip Hop, Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470085.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ VA - Love Songs (2017) [FLAC|Lossless|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469657.jpg" />
 </div>
 
 
@@ -721,7 +721,7 @@ Carly Rae Jepsen - Curiosity (EP) (2012) [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469551.jpg" />
 </div>
 
 
@@ -752,7 +752,7 @@ MAGIC! - Expectations (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467880.jpg" />
 </div>
 
 

@@ -1,3 +1,114 @@
+###  Публикация: 1549878   (592787) от 08.05.2022
+
+Формула 1. Сезон 2022. Этап 05. Гран-при Майами. Квалификация. (07.05.2022) WEB-DL [H.264/1080p] [50fps] F1TV
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этап 5. Арена: Международный автодром Майами (Майами, США).
+Квалификация. 7 мая 2022, суббота.
+
+Картинка с канала F1 TV, автор LilAndrew (rfm).(   Читать дальше...   )Телекомпания: F1 TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова), Английский.Субтитры: отсутствуютПродолжительность: 01:19:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA16EDA30BBE542F1FB32532144E94942DF3B96E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550097   (592581) от 09.05.2022
+
+Формула 1. Сезон 2022. Этап 05. Гран-при Майами. Гонка (08.05.2022) WEB-DL [H.264/720p] [50fps]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592581.jpg" />
+</div>
+
+
+###  Подробнее
+
+8 мая 2022, воскресенье. 22:30 МСК. Этап 5. Арена: Международный автодром Майами, США.
+Гран-при Майами. Гонка (57 кругов)Телекомпания: F1TV HDЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: ОтсутствуютПродолжительность: 02:12:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF0A9325B8F253EC2773E193FF7EDC94F2F69BAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550053   (592572) от 09.05.2022
+
+Формула 1. Сезон 2022. Этап 05. Гран-при Майами. Гонка. (08.05.2022) WEB-DL [H.264/1080p] [50fps] F1TV
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этап 5. Арена: Международный автодром Майами (Майами, США).
+Гонка. 8 мая 2022, воскресенье.
+
+Картинка с канала F1 TV.Телекомпания: F1 TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: отсутствуютПродолжительность: 02:12:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:237937B4E889405312096C906C141CCA6EE811FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552702   (586597) от 21.05.2022
+
+Формула 1. Сезон 2022. Этап 06. Гран-при Испании. Квалификация (21.05.2022) WEB-DL [H.264/720p] [50fps]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586597.jpg" />
+</div>
+
+
+###  Подробнее
+
+21 мая 2022, суббота. 17:00 МСК. Этап 6. Арена: Автодром Каталунья, Испания. КвалификацияТелекомпания: F1TV HDЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: ОтсутствуютПродолжительность: 01:19:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AD44ABB60CACA25944EF11D6C18E49BAFE303F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1552713   (585623) от 22.05.2022
 
 Формула 1. Сезон 2022. Этап 06. Гран-при Испании. Квалификация. (21.05.2022) WEB-DL [H.264/1080p] [50fps] F1TV
@@ -6,7 +117,7 @@
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585623.jpg" />
 </div>
 
 
@@ -35,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585258.jpg" />
 </div>
 
 
@@ -64,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584636.jpg" />
 </div>
 
 
@@ -93,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583265.jpg" />
 </div>
 
 
@@ -122,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583262.jpg" />
 </div>
 
 
@@ -151,7 +262,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583199.jpg" />
 </div>
 
 
@@ -179,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577493.jpg" />
 </div>
 
 
@@ -205,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577371.jpg" />
 </div>
 
 
@@ -234,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575933.jpg" />
 </div>
 
 
@@ -263,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573440.jpg" />
 </div>
 
 
@@ -292,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572399.jpg" />
 </div>
 
 
@@ -318,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565724.jpg" />
 </div>
 
 
@@ -347,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565410.jpg" />
 </div>
 
 
@@ -376,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565268.jpg" />
 </div>
 
 
@@ -404,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563729.jpg" />
 </div>
 
 
@@ -432,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561869.jpg" />
 </div>
 
 
@@ -461,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556467.jpg" />
 </div>
 
 
@@ -487,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555019.jpg" />
 </div>
 
 
@@ -516,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554866.jpg" />
 </div>
 
 
@@ -545,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554851.jpg" />
 </div>
 
 
@@ -574,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554846.jpg" />
 </div>
 
 
@@ -602,7 +713,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552290.jpg" />
 </div>
 
 
@@ -616,121 +727,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0E06806C99FE5172511985A14FCA523EF90305F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237381   (551414) от 24.07.2018
-
-Формула 1. Сезон 2018. Этап 11. Гран-при Германии. Гонка (2018) SATRip
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551414.jpg" />
-</div>
-
-
-###  Подробнее
-
-22 июля 2018 года, воскресенье. 16:10 МСК
-Этап 11, Хоккенхайм, Германия
-Гран-при Германии. Гонка (67 кругов, 306.458 км)
-Арена: Автодром Хоккенхаймринг (Хоккенхайм, Германия)Телекомпания: Матч ТВЖанр: СпортПродолжительность: 01:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6CC4C54432479AB60B256ED1D3E68A8FAC95F54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310158   (548654) от 22.06.2019
-
-Формула 1. Сезон 2019. 8-й Этап. Гран-при Франции. Квалификация (22.06.2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548654.jpg" />
-</div>
-
-
-###  Подробнее
-
-22 июня 2019 года, суббота. 16:00 МСК
-70-й сезон Формулы-1 2019 года
-8-й Этап. Гран-при Франции. Ле-Кастелле (Франция)
-Квалификация(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:00:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11C57DE1619719A4FDAD40501D3AEC4D15CD260D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310340   (547773) от 23.06.2019
-
-Формула 1. Сезон 2019. Этап 08. Гран-при Франции. Гонка (23.06.2019) HDTVRip
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гран-при Франции. Гонка (53 круга, 309.69 км)
-Арена: Автодром имени Поля Рикара (Ле-Кастелле, Франция)
-23 июня 2019 года, воскресенье. 16:10 МСКТелекомпания: Матч ТВЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBA34308485286AB0F4E41254E3AEAEDDC3D874B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310332   (547689) от 23.06.2019
-
-Формула 1. Сезон 2019. 8-й Этап. Гран-при Франции. Гонка (23.06.2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547689.jpg" />
-</div>
-
-
-###  Подробнее
-
-23 июня 2019 года, воскресенье. 16:10 МСК
-70-й сезон Формулы-1 2019 года
-8-й Этап. Гран-при Франции. Ле-Кастелле (Франция)
-Гонка(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAC7348ADF09611B1F46D45C1368FDA23CD3E597
 ```
 
 https://mybot314.ru/tekegram_catalog/

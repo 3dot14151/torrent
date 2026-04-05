@@ -6,7 +6,7 @@ Angela Wilkes (editor) | Polish-English Bilingual Visual Dictionary (2018) [PDF]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52805.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Collins | Thai Visual Dictionary (2021) [EPUB] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52803.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Collins Dictionaries | Korean Visual Dictionary (2021) [EPUB] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52801.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Thomas Booth | English for everyone. English vocabulary Builder (2018) [PDF] [EN
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52708.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Jean-Claude Corbeil, Ariane Archambault | 5 Language Visual Dictionary - English
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52688.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Angela Wilke, Cheryl Hutty (еditors) | Japanese English visual dictionary (2011
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52664.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Ed Swick | Easy German Step-by-Step. Second edition (2019) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52579.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Rhona Snelling | Speaking: A2 Pre-intermediate (2013) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52384.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Steven D. Jamar, Lateef Mtima (еditors) | The Cambridge Handbook of Intellectua
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52262.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50593.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ D. Thompson, P. Falla et al (еditors) | The Oxford Russian Dictionary. Third ed
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48287.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Fyodor Dostoevsky | Dostoevsky: Letters and Reminiscences (1923) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48071.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47243.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45294.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43412.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42785.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40346.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36948.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35294.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33403.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31626.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31401.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29735.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25271.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24609.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24462.jpg" />
 </div>
 
 

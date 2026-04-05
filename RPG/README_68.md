@@ -1,3 +1,55 @@
+###  Публикация: 1779046   (27969) от 11.02.2025
+
+Cardfight!! Vanguard Dear Days 2 (2025) [Multi] (1.0.2/dlc) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Окунитесь в мир высшей битвы Авангарда в цифровом формате вместе с оригинальным сюжетом! Благодаря более чем 3 000 карт, совместимых со стандартными правилами, и уникальным внутриигровым анимациям ваши бои станут еще более захватывающими и увлекательными, чем когда-либо. Соревнуйтесь с бойцами по всему миру в «Рейтинговом бою» или наслаждайтесь более спокойной игрой (   Читать дальше...   )Тип издания: RepackРазработчик: FURYU Corporation, LANCARSE Ltd.Жанр: Ролевые игры, СтратегииЯзык озвучки: ЯпонскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CC061F347DD32792916CF56C43FD632B9801119
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758463   (27807) от 13.02.2025
+
+Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.5.89.0) Repack Wanterlude
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследуйте обширный и яркий мир грозных машин и загадочных руин давно забытой цивилизации, воссозданный на PC с потрясающей графикой и множеством новых возможностей. Вооружитесь луком и копьем в роли Элой - юной охотницы на машины, изгнанной из своего племени. Путешествуя вместе с ней, вы постепенно узнаете правду об этом загадочном мире и ее собственной миссии по (   Читать дальше...   )Тип издания: RepackРазработчик: Guerrilla Games, Nixxes SoftwareЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BDC4EF30B441FD6651B3EC9D648F2AAB3330406
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1767112   (27779) от 13.02.2025
 
 Saturn (2024) [Ru/En] (1.35.02.11.16461/dlc) Repack Let'sРlay
@@ -6,7 +58,7 @@ Saturn (2024) [Ru/En] (1.35.02.11.16461/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27779.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Noob - The Factionless (2023) [Multi] (20250124) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27667.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Avowed (2025) [Ru/Multi] (1.2.5.0/dlc) Repack FitGirl [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27567.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Few Nights More (2025) [Ru/Multi] (1.0.0214) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27527.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Robin Hood: Sherwood Builders (2024) [Ru/Multi] (04.12.16.01) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27496.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Grim Dawn (2016) [Ru/Multi] (1.2.1.5a/dlc) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27482.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ KAMiBAKO - Mythology of Cube - (2025) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27450.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Beneath Oresa (2022) [Ru/Multi] (1.1.5) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26936.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Dark PGT (2025) [Ru/En] (build 17435047) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26736.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Fallout 3 (2009) [Ru/En] (1.7.0.3/dlc) Repack Wanterlude [Game of the Year Editi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26726.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Dark PGT (2025) [Ru/En] (build 17435047) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26655.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Megaloot (2024) [Ru/Multi] (1.17.1) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26546.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ The Axis Unseen (2024) [Ru/Multi] (1.092) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26544.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ SKALD: Against the Black Priory (2024) [En] (Skald Modding Tool/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26431.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Small Saga (2023) [Ru/En] (Build 12840998) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26345.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ FRONT MISSION 1st: Remake (2023) [Multi] (16) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26223.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Techno Banter (2025) [Multi] (1.0.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26191.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Hogwarts Legacy (2023) [Ru/Multi] (1117238 Build 10461750/dlc) Repack dixen18 [D
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26118.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Trinity Fusion (2023) [Multi] (2.5.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26100.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (Build 17026604 Patch 5/dlc) Repack 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26011.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Final Fantasy VII Rebirth (2025) [Multi] (build 17035252/dlc) Repack FitGirl [Di
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25992.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Astral Throne (2025) [En] (1.0.0) Repack FitGirl [Supporter Bundle]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25978.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Terra Memoria (2024) [Multi] (2024.6.10a) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25932.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Final Fantasy VII Rebirth (2025) [Multi] (1.0.0.0/dlc) Repack DjDI [Digital Delu
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25919.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Final Fantasy VII Rebirth (2025) [Multi] (1.0.0.0/dlc) Repack DjDI [Digital Delu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56D8C2485B5E3A5EDD0548A01E19CF270CFF6EB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782928   (25890) от 03.03.2025
-
-Outward (2022) [Ru/Multi] (1.1.0/dlc) Repack FitGirl [Definitive Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Outward – приключенческая РПГ, события которой разворачиваются в большом открытом мире. Вам предстоит выступить в роли путешественника, отправившегося исследовать неизведанные земли, населенные опасными существами, неприятелями и интересными персонажами. Играть вы сможете как в одиночку, так и с друзьями в кооперативном режиме локально или онлайн.Тип издания: RepackРазработчик: Nine Dots StudioЖанр: Ролевая игра, Survival, ФэнтeзиЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, Португальский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Португальский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCD803473778FD3171BC68D74722AE965E7A5C1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783052   (25871) от 03.03.2025
-
-METRO QUESTER (2023) [Multi] (1.0.0) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это декадентский мир будущего, созданный манга-художником Кадзуси Хагиварой. Ролевая игра для исследования подземелий, специализирующаяся на игре в жанре "хак-энд-слэш". Игра полна захватывающих элементов. В игре 24 персонажа (8 классов), навыки для получения удовольствия от комбо, модифицируемое вооружение, "НОВАЯ ИГРА +" для получения удовольствия (   Читать дальше...   )Тип издания: LicenseРазработчик: Thousand GamesЖанр: Инди, Ролевые игрыЯзык интерфейса: Английский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8517D0551EBB78BF3B309621F14161F8A6D990F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

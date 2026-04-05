@@ -1,3 +1,161 @@
+###  Публикация: 1755613   (40186) от 16.10.2024
+
+Беломорско-Балтийский водный путь /  Б.Б.В.П. (1932) WEBRip
+
+>>Документалистика и Телепередачи
+>>Кинолетопись Страны Советской
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40186.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм снимался на одной из первых великих строек страны Советов. Беломорканал был возведён в рекордно короткий срок ценой ... Ладно, не будем уточнять про цену. Один из первых звуковых документальных фильмов СССР. Это был период перехода от немого кино к звуковому. И фильм точнее было бы определить не как звуковой, а как озвученный. И одновременно со звуком все еще (   Читать дальше...   )Производство: СССР / ВостокфильмЖанр: документальный, историяРежиссер: Александр ЛембергЯзык озвучки: русскийСубтитры: русские (интертитры)Продолжительность: 00:50:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94F50454D6E1B6A70334DE91DC48E2322277FCC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755946   (39953) от 18.10.2024
+
+Комсомол / Песнь о героях (1932) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Кинолетопись Страны Советской
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Голландский режиссер-коммунист Ивенс находясь в СССР снимает фильм в котором запечатлевает конец первой сталинской пятилетки, - строительство завода в Магнитогорске, а именно возведении больших доменных печей.Производство: СССР / МежрабпомфильмЖанр: документальный, историяРежиссер: Йорис ИвенсПродолжительность: 00:49:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF21816DF383550A74BCCA075310CB0833864B56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756201   (39756) от 20.10.2024
+
+Своя игра (19.10.2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39756.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2024 году программа "Своя игра" отмечает 30-летие. Турнир, начавшийся 14 сентября, называется "Продолжение следует" и продолжает первый турнир года "Возвращение к истокам". Победитель игры отправляется за центральный стол и остаётся там, пока не проиграет или сам не решит покинуть турнир. Чем больше игр проведёт участник, тем больше (   Читать дальше...   )Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1558CC5B7DD206CA4F3A7D400C4611FF93CC499
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756335   (39755) от 20.10.2024
+
+Чудо техники с Сергеем Малозёмовым (20.10.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как в Голливуде! Зубы с бриллиантами, титановые челюсти, накладные брекеты: люди готовы платить за новые тренды сотни тысяч рублей. Команда программы вместе со стоматологами разобралась, обойдется ли без жертв такая красота.
+ Какие опасности могут принести в дом наши любимые питомцы.
+ «Вечная зажигалка», которой не нужен ни газ, ни бензин, зарядить ее можно с помощью (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:547018872ED9A31696709F214BD5FEFE320C6AB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386905   (39734) от 21.10.2024
+
+Обитаемая Вселенная / Living Universe / Search For Second Earth (2018) HDTVRip [H.264/720p-LQ] (серии 1-4 из 4)
+
+>>Документалистика и Телепередачи
+>>Космос
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередное великое путешествие человека уже началось - поиск жизни на планетах, вращающихся вокруг далёких звезд. Благодаря исследованиям выдающихся учёных и впечатляющей компьютерной графике, фильм "Обитаемая Вселенная" покажет не только самые удалённые уголки нашей планеты с их экстремальными условиями, но также развеет и облака над планетами, которые (   Читать дальше...   )Производство: Австралия, Франция / Essential Media & Entertainment, ZedЖанр: Документальный, космосРежиссер: Vincent Amouroux, Alex BarryПеревод: Двуголосый профессиональный (Видеофильм ТВ)Субтитры: Английские (на французскую речь, вшитые, неотключаемые)Продолжительность: 4 x ~ 00:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDD045FFED5173035C7D3B1AE9D11E03FA2F34F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756384   (39649) от 21.10.2024
+
+Своя игра (20.10.2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39649.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2024 году программа "Своя игра" отмечает 30-летие. Турнир, начавшийся 14 сентября, называется "Продолжение следует" и продолжает первый турнир года "Возвращение к истокам". Победитель игры отправляется за центральный стол и остаётся там, пока не проиграет или сам не решит покинуть турнир. Чем больше игр проведёт участник, тем больше (   Читать дальше...   )Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F796C14C623E42BD58B0CEB1A329F9683C220FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1756648   (39595) от 22.10.2024
 
 Убежище. Истории о выживании в Альпах / Le plus beau pays du monde 3 (2019) WEB-DLRip [H.264] [MVO]
@@ -6,7 +164,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39595.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39584.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39474.jpg" />
 </div>
 
 
@@ -84,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39180.jpg" />
 </div>
 
 
@@ -110,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39175.jpg" />
 </div>
 
 
@@ -136,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39161.jpg" />
 </div>
 
 
@@ -162,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39109.jpg" />
 </div>
 
 
@@ -188,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39105.jpg" />
 </div>
 
 
@@ -214,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39079.jpg" />
 </div>
 
 
@@ -241,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39066.jpg" />
 </div>
 
 
@@ -269,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38992.jpg" />
 </div>
 
 
@@ -295,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38928.jpg" />
 </div>
 
 
@@ -321,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38741.jpg" />
 </div>
 
 
@@ -348,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38729.jpg" />
 </div>
 
 
@@ -375,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38556.jpg" />
 </div>
 
 
@@ -402,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38551.jpg" />
 </div>
 
 
@@ -428,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38512.jpg" />
 </div>
 
 
@@ -454,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38488.jpg" />
 </div>
 
 
@@ -480,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38487.jpg" />
 </div>
 
 
@@ -507,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38478.jpg" />
 </div>
 
 
@@ -518,163 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A5950887F9A14F4C94239DF4E602E299BBEBBD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758577   (38439) от 03.11.2024
-
-Кожа: История наготы в кино / Skin: A History of Nudity in the Movies (2020) WEBRip [H.264/720p] den904, DeadSno
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38439.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой истории рассказывается об эволюции обнаженной натуры в кинематографе от эпохи немого кино до эпохи металла. Рассматриваются моральные сдвиги, гендерная динамика, художественный замысел в сравнении с эксплуатацией и роль наготы в рассказывании историй на фоне распространения захватывающего контента.Производство: США / Plausible FilmsЖанр: документальный, историяРежиссер: Дэнни ВульфПеревод: Двухголосый любительский (den904, DeadSno)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 02:10:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7038C8CD1CB8948B646BADB7D41EF9BA447259A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366061   (38433) от 03.11.2024
-
-Наступит ночь / Night Will Fall (2014) HDTVRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38433.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1945 году во время освобождения нацистских лагерей союзные войска увидели страшную картину: трупы покрывали землю, кое-где дым поднимался над недогоревшими обугленными телами, бараки были наполнены мертвыми. Отступая, немцы спешили уничтожить следы преступлений. Операторы союзников запечатлели на пленку, возможно, самые шокирующие кадры ХХ века.
-Пользуясь архивами (   Читать дальше...   )Производство: Великобритания, Angel TV, Final Cut for Real, RatPac Entertainment, Spring FilmsЖанр: Документальный, война, историяРежиссер: Андре СингерУчастники: Хелена Бонем Картер, Альфред Хичкок, Бранко Лустиг, Сидни Бернштейн, Джаспер Бриттон, Джон Криш, Анита Ласкер-УоллфисчПеревод: Двуголосый закадровый, профессиональный (Марафон)Субтитры: русские (с надписями), русские (без надписей), английскиеПродолжительность: 01:14:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C76CAB54E85E2A4AC6CB7878BB1B3D7C543E489A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755577   (38121) от 06.11.2024
-
-Что? Где? Когда? (2024) HDTVRip [H.264/720p-LQ] (Осенняя серия: игра 1-5 из 5)
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Используя метод мозгового штурма, команда из шести игроков («знатоков») ищет в течение одной минуты правильный ответ на специально подобранный вопрос телезрителя. За правильный ответ очко получает команда знатоков, за неправильный же очко получают их противники — команда телезрителей. Побеждает команда, первой набравшая шесть очков.Производство: Россия / Студия Эксперимент, Главная редакция программ для молодежи ЦТ, ТВ ИграЖанр: ТВ-шоу, играЯзык озвучки: русскийПродолжительность: выпуски по ~01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF57C547C70226FFED109865ED6A070340CCDBD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758909   (38069) от 06.11.2024
-
-Тайны Бермудского Треугольника / Bermuda Triangle: The Definitive Guide (2016) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бермудский треугольник. Восемьсот тысяч квадратных километров океана и множество темных тайн. Более семидесяти лет люди верят, что мистические силы приводят к необъяснимым исчезновениям судов и самолетов. Но что на самом деле там происходит?Производство: Канада, студия Arrow MediaЖанр: документальный, научно-познавательный, исследованиеРежиссер: Марк БриджУчастники: Брайан Дж. Кано, Роберт Д'Энтремон, Поль Эссьембре, Макс Лаферьер, Кристоф ле Жён, Мартин Пеппер(II)Перевод: Одноголосый профессиональный (Гуд тайм медиа / Good Time Media)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:43:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7153FADA1F2613D93697A657D67CC9587AF773A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758768   (37963) от 07.11.2024
-
-Хемингуэй / Hemingway (2021) BDRip [H.264/1080p] (сезон 1, серии 1-3 из 3) HDRezka Studio
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследуйте кропотливый процесс, с помощью которого Хемингуэй создавал некоторые из самых важных художественных произведений в американской литературе.Производство: США / Florentine Films, WETAЖанр: документальный, биографияРежиссер: Кен Бёрнс, Линн НовикУчастники: Питер Койот, Джефф Дэниелс, Эдна О’Брайэн, Michael Kitakis и др.Перевод: Многоголосый профессиональный (HDRezka Studio)Язык озвучки: Русский, АнглийскийПродолжительность: ~01:40:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:321CD39D739E819973561C5141F971ACDFCA6D1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140981   (37801) от 09.11.2024
-
-Дунай: Европейская Амазонка / Danube: Europe's Amazon (2012) BDRip [H.264/720p] (серии 1-2 из 2)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Романтические берега, дикая природа, искусство барокко: очарование Дуная не может быть экранизировано. Двухсерийный документальный фильм показывает, неизвестные стороны всемирно известной реки, которая формирует континент, через который она течет, управляя природой и определяя жизнь людей. Она протекает через различные ландшафты и климатические зоны, изменяя их характер (   Читать дальше...   )Производство: Австрия,  ARTE, Bayerischer Rundfunk (BR), International Commission for the Protection of the Danube River (ICPDR)Жанр: Документальный, природа, флора, фаунаРежиссер: Майкл Шламбергер, Рита ШламбергерПеревод: Профессиональный одноголосый закадровый (студия «Омикрон»)Продолжительность: 00:51:33+ 00:51:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E140E97096B22EB42C027E1607AC35864ABA4224
 ```
 
 https://mybot314.ru/tekegram_catalog/

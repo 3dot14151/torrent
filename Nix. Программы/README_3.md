@@ -6,7 +6,7 @@
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39696.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kerio Control 9.4.5 [x64] 1xCD
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35395.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ DR14 T.meter 2.0.0 [x32, x64] (py)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34312.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Kerio Control v9.4.5 Patch 2 Build 8629 [x64] (iso, img) [Multi/Ru]
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15788.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ VMware Workstation 17 Pro 17.6.4-24832109 [x64] (bundle)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8541.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ RAR for Linux 7.12 [x64] (tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8103.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ DeaDBeeF for Linux 1.10.0 [x86_64] (deb, rpm, pkg.tar.xz, tar.bz2)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6674.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ CrossOver Linux 25.1.0 [x64] (deb, rpm, bin)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_829.jpg" />
 </div>
 
 

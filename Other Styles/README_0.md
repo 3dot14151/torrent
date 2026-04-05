@@ -1,3 +1,88 @@
+###  Публикация: 1603564   (1045672) от 10.01.2023
+
+Peruquois & Praful - Breathing Love (2009) [FLAC|Lossless|tracks + .cue] <New Age, World, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sun of Inspiration
+02. My Devotion
+03. Kissing the Spirit Awake
+04. Come my LoveЖанр: New Age, World, MeditativeПродолжительность: 00:49:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9999685D1EB8A093DB2DFB415CBE113CC0EAA13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604340   (1045374) от 13.01.2023
+
+Blackmore's Night - Spirit of the Sea (Ritchie & Candice Anniversary Home Session) (2022) Single [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spirit of the Sea (Ritchie & Candice Anniversary Home Session)
+02. Shadow of the Moon (25th Anniversary New Mix)Жанр: Folk RockПродолжительность: 00:07:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88F68AA2BB34926E41CF2F36179FDDEA527574B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604227   (1045311) от 14.01.2023
+
+Ambra - Honour & Glory (2003) [OGG Vorbis|470 Kbps] <Electronic, New Age, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From Dawn
+02. Spirit Of Silence
+03. Signs Of Love
+04. Walking In The Air(   Читать дальше...   )Жанр: Electronic, New Age, DowntempoПродолжительность: 00:54:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F9E07AAEC25E5D1E683F5A964A5D87B0C7AF149
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604093   (1045285) от 14.01.2023
 
 Ted Hammond Orchestra - Hammond Evergreens (2022) Vol. 1, 2 [MP3|320 Kbps] <Hammond, Instrumental>
@@ -6,7 +91,7 @@ Ted Hammond Orchestra - Hammond Evergreens (2022) Vol. 1, 2 [MP3|320 Kbps] <Hamm
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045285.jpg" />
 </div>
 
 
@@ -35,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044946.jpg" />
 </div>
 
 
@@ -64,7 +149,7 @@ Deep Forest - Deep Forest / Comparsa (1998) Reissue, 2001, Epic Records Group [O
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044437.jpg" />
 </div>
 
 
@@ -93,7 +178,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044418.jpg" />
 </div>
 
 
@@ -119,7 +204,7 @@ Le Grand Orchestre De Paul Mauriat - Penelope (1971) Reissue, Remastered, 1997, 
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044417.jpg" />
 </div>
 
 
@@ -148,7 +233,7 @@ Era - The Very Best Of (2004) [OGG Vorbis|480 Kbps] <Rock, Pop, Classical>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044228.jpg" />
 </div>
 
 
@@ -169,35 +254,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607598   (1043899) от 27.01.2023
-
-Земфира & Дмитрий Емельянов - CACTUS (2023) [MP3|320 Kbps] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043899.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Земфира - Cказка.начало
-2. Земфира - Превращение
-3. Дмитрий Емельянов - Минус
-4. Дмитрий Емельянов - Радио(   Читать дальше...   )Жанр: OSTПродолжительность: 00:23:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F37EB59B9AD5F7E74541ACC01553196C91C0D01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608721   (1043501) от 31.01.2023
 
 VA - Шедевры цыганской музыки, 4 Альбома (2000) [MP3|320 Kbps] <Folk>
@@ -206,7 +262,7 @@ VA - Шедевры цыганской музыки, 4 Альбома (2000) [MP
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043501.jpg" />
 </div>
 
 
@@ -235,7 +291,7 @@ Oota Dabun - Ani Kuni (2011) [MP3|320 Kbps] <Native American, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041646.jpg" />
 </div>
 
 
@@ -264,7 +320,7 @@ Ennio Morricone - Love Songs & Romantic Scores (2023) [FLAC|Lossless|WEB-DL|trac
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041567.jpg" />
 </div>
 
 
@@ -293,7 +349,7 @@ Laya Project - Laya Project  (2006)  2CD [FLAC|Lossless|tracks + .cue] <World>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041524.jpg" />
 </div>
 
 
@@ -322,7 +378,7 @@ Indian Spirit - Discography (2009 - 2020)  6 Releases [MP3|320 Kbps] <Native Ame
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041359.jpg" />
 </div>
 
 
@@ -351,7 +407,7 @@ Jim Brickman - The Ultimate Valentine's Day (2021) [FLAC|Lossless|WEB-DL|tracks]
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040616.jpg" />
 </div>
 
 
@@ -380,7 +436,7 @@ Offerings to the Ganges - Spiritual Tantric Energy: Enjoy Valentines Day (2023) 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040435.jpg" />
 </div>
 
 
@@ -409,7 +465,7 @@ John Weider - Intervals In Sunlight (1987) [FLAC|Lossless|tracks + .cue] <New Ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040421.jpg" />
 </div>
 
 
@@ -438,7 +494,7 @@ Richard Clayderman - The Music of Love (1984) [FLAC|Lossless|WEB-DL|tracks] <Ins
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040314.jpg" />
 </div>
 
 
@@ -467,7 +523,7 @@ Super Djata Band - 3 Albums (1982-2022) [MP3|320 Kbps] <World Music>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038587.jpg" />
 </div>
 
 
@@ -496,7 +552,7 @@ VA - Soul, Original Motion Picture Soundtrack - (2020) [FLAC|Lossless|tracks + .
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038463.jpg" />
 </div>
 
 
@@ -525,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038307.jpg" />
 </div>
 
 
@@ -554,7 +610,7 @@ VA - Top Country Soul of a Nation (2023) [MP3|320 Kbps] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038102.jpg" />
 </div>
 
 
@@ -583,7 +639,7 @@ Heidevolk - Wederkeer (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Black-metal, Folk-m
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038099.jpg" />
 </div>
 
 
@@ -612,7 +668,7 @@ Steve Hackett - Under A Mediterranean Sky (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037437.jpg" />
 </div>
 
 
@@ -641,7 +697,7 @@ Chinmaya Dunster - The Akasha Project (2023) [FLAC|Lossless|WEB-DL|tracks] <Worl
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037276.jpg" />
 </div>
 
 
@@ -670,7 +726,7 @@ Moreza - Fragrance (2019) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Nuevo Flamenc
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036933.jpg" />
 </div>
 
 
@@ -684,64 +740,6 @@ Moreza - Fragrance (2019) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Nuevo Flamenc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DD79A7FCD03822F7131D791FF8259E7FD615F41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442221   (1036880) от 24.01.2021
-
-Gabriella Quevedo - Acoustic Cover Songs, Vol. 1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Acoustic, Pop>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another Brick In The Wall (4:27)
-02. Back (3:44)
-03. Blackbird (2:30)
-04. Californication (5:56)(   Читать дальше...   )Жанр: Acoustic, PopПродолжительность: 00:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29679E3EB1DF0295465921166ADE858898B3DD3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442225   (1036870) от 24.01.2021
-
-Gabriella Quevedo - Gabriella’s Acoustic Arrangements (2020) [FLAC|Lossless|WEB-DL|tracks] <Acoustic, Pop>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sultans Of Swing (5:24)
-02. That's Life (3:18)
-03. Wanted Dead Or Alive (5:02)
-04. Lay All Your Love On Me (4:48)(   Читать дальше...   )Жанр: Acoustic, PopПродолжительность: 01:27:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CACE22C23373E01D94FF0BC8A19A255B5CEF499
 ```
 
 https://mybot314.ru/tekegram_catalog/

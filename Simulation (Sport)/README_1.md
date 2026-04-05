@@ -6,7 +6,7 @@ RTL Winter Sports 2009: The Next Challenge / RTL Зимние игры 2009: Н�
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787595.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ RTL Biathlon 2007 / RTL Биатлон 2007 (2006) [Ru] (1.0) Repack CoD - MW2
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787569.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Curling 2006 (2006) [Ru] (1.0) Repack CoD - MW2
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787566.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ RTL Winter Games 2007 / RTL Зимние игры 2007 (2006) [Ru] (1.0) Repack 
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787565.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ RTL Ski Jumping 2005 (2004) [En/Ge] (1.47) Repack CoD - MW2
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787564.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ RTL Ski Jumping 2007 / RTL Лыжный трамплин 2007 (2006) [Ru] (1.0) 
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787562.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Alpine Ski Racing 2007 / Горные лыжи: Альпийский сезон 
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787561.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ RTL Biathlon 2009 / RTL Биатлон 2009 (2008) [Ru] (1.0) Repack CoD - MW2
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787528.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Pro Basketball Manager 2017 (2017) [Multi] (1.0.0.9) License SKIDROW
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785885.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Winter Sports 2011: Go for Gold (2010) [Multi] (1.0) Repack CoD - MW2
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785234.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Winter Sports 2012: Feel the Spirit (2011) [En] (1.0) Repack CoD - MW2
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785222.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Vancouver 2010: The Official Video Game of the Olympic Games (2010) [Ru] (1.0) R
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785204.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Summer Athletics 2009 (2009) [Multi] (1.0) Repack CoD - MW2
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784862.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Summer Challenge: Athletics Tournament (2010) [En] (1.0) Repack CoD - MW2
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784850.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ RTL Winter Sports 2008: The Ultimate Challenge / Зимний спорт 2008 (2
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784829.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Pro Cycling Manager 2020 (2020) [Multi] (1.0.0.2) License SKIDROW
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783281.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Beijing 2008: The Official Video Game of the Olympic Games (2008) [Ru] (1.0) Rep
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780493.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Athens 2004 / Летние игры. Афины 2004 (2004) [Ru] (1.0) Repack Co
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780488.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ RTL Biathlon 2008 / Биатлон 2008 (2007) [Ru] (1.0) Repack CoD - MW2
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780475.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Sydney 2000 (2000) [Ru] (1.0) Unofficial
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780359.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Jack Nicklaus Perfect Golf (2016) [En] (1.4.0.1) License SKIDROW
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777054.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Hunting Unlimited 2010 (2009) [En] License
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769480.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Rival Stars Horse Racing (2020) [Ru/Multi] (1.0) Repack Other s [Desktop Edition
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769007.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Snow Moto Racing Freedom (2017) [Ru/Multi] (1.0) License HI2U
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767643.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ DUCATI - 90th Anniversary (2016) [En/Multi] (1.0) License CODEX
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715125.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Fast & Furious Crossroads / Форсаж Перекрестки (2020) [Ru/Multi
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712599.jpg" />
 </div>
 
 

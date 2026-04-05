@@ -6,7 +6,7 @@ Armin Van Buuren Ft. Sharon Den Adel - In And Out Of Love (2010)  [720p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624088.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623635.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Dream Theater - Live At Budokan (2011) Blu-Ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623550.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623513.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Rihanna - Good Girl Gone Bad Live (2008) Blu-Ray [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623461.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623423.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_623387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_623387.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622168.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621509.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Animal ДжаZ - Три полоски (2007) HDRip [H.264/720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620979.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620697.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Black Sabbath: Paranoid - Classic Albums (1970/2010) BDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620392.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620260.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620014.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619476.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Gia. Lights Out (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619227.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618616.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Jimi Hendrix: Jimi Plays Berkeley (2012) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_618538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_618538.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Duran Duran - A Diamond In the Mind (2011) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_618337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_618337.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618302.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ In Flames - Rock Am Ring (2015) HDTVRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617902.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617897.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617819.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Savage Garden - The Video Collection (1998) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617172.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Girls' Generation (SNSD) - Music video collection. Part 2 (2007-2012)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616473.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ Robert Plant & The Band of Joy: Live from the Artists Den (2011) [1080i] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_616471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_616471.jpg" />
 </div>
 
 

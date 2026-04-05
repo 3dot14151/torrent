@@ -1,137 +1,3 @@
-###  Публикация: 1634392   (198219) от 20.05.2023
-
-В.И. Корнеев и др. | Программирование графики на С++. Теория и примеры (2023) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198219.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии рассматриваются основные методы и алгоритмы построения графических изображений. Подробно анализируются приемы моделирования движения (анимации) двумерных изображений, рассматриваются алгоритмы трехмерной графики, построение сплайнов и сплайновых поверхностей, основы работы в графической библиотеке OpenGL. Каждое теоретическое положение компьютерной (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BE67A291D6CF419F840D794B8B5350154830271
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634160   (198213) от 19.05.2023
-
-М.И. Рожков, Н.Е. Смирнов | Витаминные растения (1956) [DJVU, PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторы настоящей книги поставили перед собой цель — собрать, систематизировать и обобщить разрозненный материал о содержании витаминов в основных видах и сортах плодов, ягод и овощей, о химическом составе и качествах их как продуктов питания и как сырья для витаминной, консервной, кондитерской и других отраслей пищевой промышленности. В работе дана краткая ботаническая (   Читать дальше...   )Жанр: ботаникаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7478FFDDE8CE7237123C2C0F4163C26494088F5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634601   (198202) от 21.05.2023
-
-Юлия Бедерова, Лев Ганкин и др. | Книга о музыке (2022) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198202.jpg" />
-</div>
-
-
-###  Подробнее
-
-“Книга о музыке” – это не только пунктирная и монументальная история европейской музыки, где музыка и музыканты – от героев мифов до современных композиторов и слушателей – спорят с географией, политикой, наукой, градостроительством, нравственностью, психологией и создают собственные версии мироздания. Это еще альбом, карта маршрутов и кардиограмма интимного и социального (   Читать дальше...   )Жанр: История искусства, Музыка, Научно-популярная литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4B5A95C84C44066ECE1979DFEE1F8C4FD61B988
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634578   (198186) от 21.05.2023
-
-А.Н. Ковальчук | Специальная подготовка (2023) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие включает разделы, необходимые для обеспечения требуемого уровня подготовки специалистов по экономической безопасности: правовая подготовка, подготовка к применению физической силы, специальных средств и огнестрельного оружия, топографическая подготовка, подготовка к действиям в чрезвычайных ситуациях.
-Предназначено для студентов, обучающихся по специальности (   Читать дальше...   )Жанр: Экономическая безопасностьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52B9D9938256E6757E6E9073D0659299B11FDF78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622922   (198181) от 19.05.2023
-
-В.А. Алёхин | Учебные материалы по электронике [18 книг] (2006 - 2020) [PDF] [с дополнительными материалами]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198181.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебные материалы по электронике. В состав комплекта входят:
-
-Комплексный лабораторный практикум (Mathcad и LabView)
-Материалы по микроконтроллерам PIC (учебник и схемы)(   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B2421CDB7CB20C74F568951038D8640CE125590
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1634593   (198123) от 21.05.2023
 
 И.А. Бессонова, C.Н. Белоусова | Основные принципы и концепции программирования на языке VBA в Excel (2016) [PDF]
@@ -140,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198123.jpg" />
 </div>
 
 
@@ -167,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_198051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_198051.jpg" />
 </div>
 
 
@@ -193,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_198049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_198049.jpg" />
 </div>
 
 
@@ -220,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198030.jpg" />
 </div>
 
 
@@ -246,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_198017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_198017.jpg" />
 </div>
 
 
@@ -272,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197952.jpg" />
 </div>
 
 
@@ -298,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197948.jpg" />
 </div>
 
 
@@ -324,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197946.jpg" />
 </div>
 
 
@@ -351,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197927.jpg" />
 </div>
 
 
@@ -377,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197889.jpg" />
 </div>
 
 
@@ -403,7 +269,7 @@ Marcos Mateu-Mestre | Серия книг по рисованию Framed: Drawin
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197806.jpg" />
 </div>
 
 
@@ -432,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197752.jpg" />
 </div>
 
 
@@ -459,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197727.jpg" />
 </div>
 
 
@@ -485,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197691.jpg" />
 </div>
 
 
@@ -511,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197668.jpg" />
 </div>
 
 
@@ -539,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197648.jpg" />
 </div>
 
 
@@ -565,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197618.jpg" />
 </div>
 
 
@@ -591,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197598.jpg" />
 </div>
 
 
@@ -617,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197512.jpg" />
 </div>
 
 
@@ -643,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197509.jpg" />
 </div>
 
 
@@ -669,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197484.jpg" />
 </div>
 
 
@@ -680,6 +546,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D93768FC30910141132EE00BA167AFB18D061535
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638375   (197364) от 08.06.2023
+
+О.В. Шишов | Программируемые контроллеры в системах промышленной автоматизации (2023) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник посвящен вопросам проектирования систем автоматизированного управления технологическими процессами низового и среднего звена производства на базе программно-технических комплексов, включающих кроме программируемых контроллеров операторные панели, устройства связи с объектом, цифровые сети, интеллектуальные датчики и исполнительные механизмы.
+Рассматриваются (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFF81F76B6B622937B4DDE5F263818A49988F136
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 267350   (197363) от 06.06.2023
+
+Шимон Датнер | Преступления немецко-фашистского вермахта в отношении военнопленных во Второй Мировой войне [1963] [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197363.jpg" />
+</div>
+
+
+###  Подробнее
+
+На Нюрнбергском процессе по делу главных немецких военных преступников были осуждены невиданные дотоле как по своим масштабам, так и по бесчеловечности кровавые злодеяния людоедов XX века, включавшие дикие насилия и зверства над миллионами мужчин и женщин, стариков и детей в оккупированных фашистами странах, рабский принудительный труд огромных масс невольников на (   Читать дальше...   )Язык: РусскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4070B52647C20FACB9B9B85FFF56050A51601700
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638378   (197299) от 08.06.2023
+
+Александр Никонов | Квантовая механика и парадоксы (2023) [PDF, EPUB]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197299.jpg" />
+</div>
+
+
+###  Подробнее
+
+Никонов Александр Петрович – автор более двух десятков художественных и научно-популярных книг. Будучи без пяти минут кандидатом наук, бросил уже написанную диссертацию и ушел из науки сначала в журналистику, а потом в писательство, где немало преуспел: стал лауреатом премий Союза журналистов России (2001) и Союза журналистов Москвы (2002). За вклад в отечественную (   Читать дальше...   )Жанр: Научно-популярная литератураФормат: PDF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0C58464014CB60C1C8AF8B3994BE0B14C1AB244
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639217   (197208) от 12.06.2023
+
+Г.Ю. Касьянова (ред.) | Охрана труда. Универсальный справочник (2023) [PDF]
+
+>>Научная и техническая литература
+>>Нормативная документация
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197208.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот сборник является уникальным в своем роде. В нем приводятся все основные нормативные документы по охране труда. Комментарий-путеводитель к сборнику подготовлен с учетом последних изменений в законодательстве (включая вступающие в силу с 01.03.2023 и с 01.09.2023), также описан порядок учета и налогообложения расходов, связанных с охраной труда.
+Книга адресована (   Читать дальше...   )Жанр: Охрана трудаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F45233A04368C92C7C99321B0B3E27F6CD2C78C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639204   (197198) от 12.06.2023
+
+ЦЕНТРМАГ | Новейший сборник законов для электрика (2023) [PDF]
+
+>>Научная и техническая литература
+>>Нормативная документация
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание содержит актуальные тексты ПОТЭЭ, ПТЭЭП, Правил работы с персоналом в организациях электроэнергетики РФ, Инструкции по применению и испытанию средств защиты, используемых в электроустановках, Правил технической эксплуатации электрических станций и сетей РФ с последними изменениями и дополнениями. Для работников организаций, занятых техническим обслуживанием (   Читать дальше...   )Жанр: Электротехника, электробезопасностьФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9F72137B59941A7AB101AFDE090EFAE8CF95F17
 ```
 
 https://mybot314.ru/tekegram_catalog/

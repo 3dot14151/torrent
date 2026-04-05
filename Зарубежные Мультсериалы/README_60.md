@@ -1,3 +1,55 @@
+###  Публикация: 1741239   (41339) от 06.10.2024
+
+Футурама / Futurama (2024) WEB-DL  [H.265/2160p] (Сезон 9, Серия 1-10 из 10) (TVShows, Jaskier, LostFilm, LE-Production)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всё начинается с того, когда разносчик пиццы по имени Фрай случайно оказывается замороженным в 1999 году и просыпается в будущем, спустя 1000 лет. Однако, новый мир, хотя и населённый роботами и инопланетянами, не так уж сильно отличается от старого. Фрай начинает работать в службе Планеты Экспресс, доставляющей посылки в различные уголки Вселенной. В будущем Фрай (   Читать дальше...   )Производство: США, 20th Century Fox TelevisionЖанр: Мультсериал, фантастика, мелодрама, комедияРежиссер: Питер Аванзино, Брэт Хааланд, Грегг ВанцоАктеры: Билли Уэст (II), Кэти Сагал, Джон Ди Маджио, Тресс МакНилл, Фил ЛаМарр, Лорен Том, Морис ЛаМарш, Дэвид Херман (I), Фрэнк Уэлкер, Рене ГарсияПеревод: Многоголосый профессиональный (TVShows, Jaskier, LostFilm, LE-Production)Язык озвучки: Русский, АнглийскийСубтитры: Английские, ИспанскиеПродолжительность: ~00:25:10 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25C1DE37554A766FE51CB8F3DEB96CCAFB389BC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744885   (41325) от 06.10.2024
+
+Футурама / Futurama (2024) WEB-DL [H.265/1080p-LQ] [10 bit] (Сезон 9, Серия 1-10 из 10) (TVShows, Jaskier, LostFilm, LE-Production)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всё начинается с того, когда разносчик пиццы по имени Фрай случайно оказывается замороженным в 1999 году и просыпается в будущем, спустя 1000 лет. Однако, новый мир, хотя и населённый роботами и инопланетянами, не так уж сильно отличается от старого. Фрай начинает работать в службе Планеты Экспресс, доставляющей посылки в различные уголки Вселенной. В будущем Фрай (   Читать дальше...   )Производство: США, 20th Century Fox TelevisionЖанр: Мультсериал, фантастика, мелодрама, комедияРежиссер: Питер Аванзино, Брэт Хааланд, Грегг ВанцоАктеры: Билли Уэст (II), Кэти Сагал, Джон Ди Маджио, Тресс МакНилл, Фил ЛаМарр, Лорен Том, Морис ЛаМарш, Дэвид Херман (I), Фрэнк Уэлкер, Рене ГарсияПеревод: Многоголосый профессиональный (TVShows, Jaskier, LostFilm, LE-Production)Язык озвучки: Русский, АнглийскийСубтитры: Английские (SDH)Продолжительность: ~00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A071C4F9DA14F10494543086F77D05C423CFF84D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1741233   (41312) от 06.10.2024
 
 Футурама / Futurama (2024) WEB-DL [H.264/1080p-LQ] (Сезон 9, Серия 1-10 из 10) (TVShows, Jaskier, LostFilm, LE-Production)
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41312.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41287.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41278.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41081.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40584.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40219.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39225.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38777.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37847.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37752.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37036.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37007.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37003.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37000.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36323.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36234.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35989.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35659.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35595.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35482.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35456.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35448.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35024.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34788.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1262A8AAB7EF9B6E8D7EE56F1F12F3462BED5418
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764732   (34781) от 08.12.2024
-
-Рэдволл / Хроники Рэдволла: Мартин Воитель / Redwall (2001) [H.265/2160p] [4K, SDR, 10-bit] DVDRip (сезон 3 из 3, серии 1-13 из 13) Пилот [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совсем маленьким Мартин попал в рабство к горностаю Бадрангу и лишился отцовского меча. И вот однажды юный герой со своими друзьями совершает дерзкий побег из замка Маршанк. Вместе они отправляются в поход, чтобы собрать достойную армию и нанести поражение Бадрангу. Терпению рабов, по-прежнему вынужденных оставаться в замке и выполнять тяжелую работу, приходит конец. (   Читать дальше...   )Производство: Франция, Германия, Канада / Nelvana Limited, Molitor Productions Ltd., United Productions, Gaumont-AlphanimЖанр: мультфильм, фэнтези, боевик, драма, мелодрама, приключения, семейныйРежиссер: Реймонд Джэфелис, Люк Бьян, Паскаль ПинонАктеры: Крис Уиггинс, Брайан Джейкс, Ричард Бинсли, Джон Стокер, Грэхэм Хейли, Эндрю Гиллис, Эллен-Рэй Хеннесси, Тайрон Сэвадж, Джонатан Уилсон, Джанет РайтПеревод: Дублированный (Пилот)Язык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: ~00:23:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F0979DAF32473E0D8A7F48697DBF867B6BF6FAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765071   (34623) от 10.12.2024
-
-Русалочки: Морская магия / Mermaid Magic (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-10 из 10)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Принцесса Мерлинда — русалочка, живущая в Мертропии. Она проводит свои дни в тренировках со своими близкими подругами Сашей и Нериссой. Но однажды принцесса узнает, что волшебные жемчужины, питающие всю Мертропию, слабеют с каждым днем. До сих пор они держатся только потому, что король отдает им свою жизненную силу. Мерлинда сбегает с подругами на сушу, чтобы самостоятельно (   Читать дальше...   )Производство: Италия, Канада, Bardel Entertainment, Rainbow S.p.A.Жанр: Мультсериал, фэнтези, приключения, комедия, семейныйРежиссер: Вики Лопес Аморес, Гай Барели, Иджинио СтраффиАктеры: Фрэнки Кевич, Ниса Уорд, Кортни Шоу, Стефани Новак, Брайс Папенбрук, Седрик Л. Уильямс, Карен Страссман, Кит Силверштейн, Эрик БрааПеревод: Дублированный (TrueDubbing Studio)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: ~ 00:25:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D2FBBE37D41A09645376494EEB5F034D0BC6335
 ```
 
 https://mybot314.ru/tekegram_catalog/

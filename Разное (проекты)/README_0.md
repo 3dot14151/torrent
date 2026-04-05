@@ -1,3 +1,29 @@
+###  Публикация: 1368514   (908445) от 20.03.2020
+
+Проекты - EasyEdit Pro - Covid 19 Awareness Free Graphics Pack [AEP, AI, PSD]
+
+>>Проекты
+>>Разное (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908445.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Covid 19 Awareness Free Graphics Pack» - стильный элегантный проект для создания промо ролика посвященного вирусу Covid 19. Осведомленность о вирусе - это первое, что нам нужно, чтобы сохранить спокойствие и предотвратить распространение Covid-19. Именно поэтому был создан специальный пакет, который поможет вам очень быстро создавать разный информационный контент. (   Читать дальше...   )Формат: AEP, AI, PSD
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D697146419B3B1C89DBB39DC81BA5C4179467B48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 181412   (907849) от 08.03.2010
 
 Videohive - 101 Project Pack for After Effects Vol.1-4 [Multi]
@@ -6,7 +32,7 @@ Videohive - 101 Project Pack for After Effects Vol.1-4 [Multi]
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907849.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906256.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895500.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879740.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_875451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_875451.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856784.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846157.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814876.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804658.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802234.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801359.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786791.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780699.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766767.jpg" />
 </div>
 
 
@@ -382,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765100.jpg" />
 </div>
 
 
@@ -408,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744359.jpg" />
 </div>
 
 
@@ -435,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741619.jpg" />
 </div>
 
 
@@ -461,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740028.jpg" />
 </div>
 
 
@@ -488,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716354.jpg" />
 </div>
 
 
@@ -515,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702116.jpg" />
 </div>
 
 
@@ -541,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700185.jpg" />
 </div>
 
 
@@ -567,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700174.jpg" />
 </div>
 
 
@@ -594,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692658.jpg" />
 </div>
 
 
@@ -620,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_666913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_666913.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648825.jpg" />
 </div>
 
 
@@ -657,32 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56259428B34D7FCB00BD62E1515231CE696CDB8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038512   (605920) от 28.07.2016
-
-Проекты - VideoHive - Clean Audio Spectrum Music Visualizer - 15786650 [AEP]
-
->>Проекты
->>Разное (проекты)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Clean Audio Spectrum Music Visualizer - этот проект включает в себя 18 аудио спектральных визуализаторов. Все анимации приводятся в движение от вашей музыкальной дорожки. Добавьте свой звук, фоновое изображение, и все готово. Этот шаблон применим для Youtube-каналов, звукового воздействия, визуализации звука, отображения формы сигнала и спектра эквалайзера.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35693E8DD7771A09106F9FAAD18AB25F85CD72AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

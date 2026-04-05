@@ -1,3 +1,83 @@
+###  Публикация: 1687976   (125300) от 28.12.2023
+
+Мария Татар | Тысячеликая героиня (2023) [MP3, Екатерина Бабкова]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Грандиозное исследование женских образов в мировой культуре, в котором гарвардский профессор, культуролог и литературовед Мария Татар бросает вызов каноническим архетипам, описанным Джозефом Кэмпбеллом.
+Она анализирует «путешествие героини» по пространству историй, чтобы убедительно доказать, что женщины – не только матери, супруги или богини-покровительницы героев. (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: Альпина ДиджиталПродолжительность: 13:14:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06771652CB7180E02976727ECB8C9735B145885D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688484   (125026) от 30.12.2023
+
+Александр Пятигорский | Философия одного переулка (2013) [MP3, Федор Степанов]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125026.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга русского философа, профессора Лондонского университета, А. М. Пятигорского представляет собой синтез философского трактата и художественной прозы. Главное действующее лицо повести – Н. И. Ардатовский (реальный человек, как и другие персонажи и события) – философ в душе и бизнесмен по профессии.
+В повести прослеживаются три хронологических и топографических (   Читать дальше...   )Жанр: ФилософияИздательство: Неофициальное изданиеПродолжительность: 04:05:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A2601EE7B21EC61518ACAD79995275A7D39D12A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689279   (124781) от 01.01.2024
+
+Стивен Джонсон | Изобрели телеграф, затем айфон (2022) [MP3, Семён Ващенко]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как связан Голливуд и изобретение Wi-Fi и Bluetooth? Аудиокнига приоткроет для нас дверь в мир гениальных идей, изменивших мир Стивен Джонсон – автор одиннадцати бестселлеров, в том числе «Откуда берутся хорошие идеи», один из создателей завоевавшего «Эмми» сериала «Как мы до этого додумались», ведущий подкаста «Американские инновации». Стивен Джонсон исследует многовековую (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: Аудиокнига АСТПродолжительность: 02:36:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:513514D0F94A114C226DCCF6D1CF4BA737598746
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691011   (123508) от 10.01.2024
 
 Полина Лосева | Против часовой стрелки (2021) [MP3, Люба Петрова]
@@ -6,7 +86,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123508.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123410.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123264.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122921.jpg" />
 </div>
 
 
@@ -111,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122763.jpg" />
 </div>
 
 
@@ -137,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122184.jpg" />
 </div>
 
 
@@ -163,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122027.jpg" />
 </div>
 
 
@@ -189,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121843.jpg" />
 </div>
 
 
@@ -215,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121468.jpg" />
 </div>
 
 
@@ -244,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121461.jpg" />
 </div>
 
 
@@ -271,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121261.jpg" />
 </div>
 
 
@@ -297,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120817.jpg" />
 </div>
 
 
@@ -326,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120108.jpg" />
 </div>
 
 
@@ -353,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119944.jpg" />
 </div>
 
 
@@ -380,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119809.jpg" />
 </div>
 
 
@@ -406,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119787.jpg" />
 </div>
 
 
@@ -432,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119625.jpg" />
 </div>
 
 
@@ -458,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119354.jpg" />
 </div>
 
 
@@ -485,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119183.jpg" />
 </div>
 
 
@@ -512,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118931.jpg" />
 </div>
 
 
@@ -539,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118421.jpg" />
 </div>
 
 
@@ -566,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117831.jpg" />
 </div>
 
 
@@ -592,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117675.jpg" />
 </div>
 
 
@@ -603,85 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:883567879B49D93BCB2591DD0F507120FE4E1F9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700939   (116698) от 19.02.2024
-
-Еремей Парнов | Боги Лотоса (2010) [MP3, Юрий Рудник]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большой знаток Востока - Парнов, он увлекательно, в форме путевых заметок, повествует о вековых обычаях, древнейших культах загадочного для многих мира, срывает окутывавший его мистический покров, показывает земные истоки мистических представлений. Написанная ярко, публицистически остро, основанная на личных впечатлениях и наблюдениях, книга, несомненно, вызовет (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: Нигде не купишьПродолжительность: 16:08:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EA9CD8B191235D367D8ED588505BE17042B800F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701192   (116520) от 20.02.2024
-
-Кристина О‘Крейн | Страстное искусство (2021) [MP3, Марина Кузнецова]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116520.jpg" />
-</div>
-
-
-###  Подробнее
-
-В аудиокниге художники превращаются из абстрактных больших художников и творцов в людей, которые любят, боятся и совершают ошибки. Можно ли быть настоящим творцом без любви? Без сердечного трепета, ощущения, что готов вечностью дышать в одно дыхание с любимой? Автор аудиокниги «Страстное искусство» Кристина О’Крейн рассказывает трогательные и страстные истории любви (   Читать дальше...   )Жанр: ИскусствоведениеИздательство: Аудиокнига АСТПродолжительность: 05:59:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14980268F135D19603EB3948731912378730BEE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701667   (116211) от 22.02.2024
-
-Хайно Фальке | Свет во тьме (2023) [MP3, Максим Суслов]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116211.jpg" />
-</div>
-
-
-###  Подробнее
-
-В апреле 2019 г. первое в истории изображение черной дыры покорило сердца четырех миллиардов телезрителей по всему миру. Знаменитый ученый-астрофизик Хайно Фальке вместе с научным журналистом Йоргом Рёмером рассказывает слушателям полную предысторию создания этой эпохальной фотографии!
-В апреле 2019 года около четырех миллиардов человек по всему миру смогли увидеть (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: Издательство CorpusПродолжительность: 11:08:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D3951B0F645A2A0CCC73FF1BDB7ABB51AD1126D
 ```
 
 https://mybot314.ru/tekegram_catalog/

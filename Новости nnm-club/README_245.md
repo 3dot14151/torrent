@@ -1,3 +1,56 @@
+###  Публикация: 1592905   (181295) от 25.11.2022
+
+Astra Linux Special Edition 1.7.3 [amd64] 1xDVD
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181295.jpg" />
+</div>
+
+
+###  Подробнее
+
+ОС Astra Linux Special Edition 1.7.3 на базе Debian 10 (buster).
+Astra Linux Special Edition 1.7.3 успешно прошла комплекс испытаний в системе сертификации СЗИ ФСТЭК России по первому, высочайшему, уровню доверия. Продукт в полной мере соответствует самым строгим критериям, изложенным в «Требованиях по безопасности информации, устанавливающих уровни доверия к средствам (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A58C80DBF9529DE679C9EF7305A6B94E68C31723
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428025   (180997) от 30.11.2020
+
+System USB-Flash 10 v.15.0.0.3636 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180997.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная утилита является "конструктором" и рассчитана на людей, которые не умеют делать загрузочные USB-устройства. С помощью "конструктора" вы сможете создать любой загрузочный USB-накопитель как на 1 Gb так и на 8, 16, 32, 64 Gb и так далее. Данный "конструктор" будет полезен как простым пользователям так и системным администраторам.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:889214AB8109472FE225CF6ABC1BBDF116F6C703
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1663537   (180975) от 01.10.2023
 
 SolidWorks 2023 SP4.0 Premium RePack by xetrin [Multi/Ru]
@@ -6,7 +59,7 @@ SolidWorks 2023 SP4.0 Premium RePack by xetrin [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180975.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180063.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180061.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ Google, Netflix и других IT-гигантов захотели заста�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_179882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_179882.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_179851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_179851.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179734.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ Profileschool, Алексей Довгуля | Ретушь для фотогр�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179450.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ Microsoft Windows 11 Insider Preview, Version 23H2 [10.0.22631.2361] - Ориг�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179121.jpg" />
 </div>
 
 
@@ -220,7 +273,7 @@ KMS Tools Portable by Ratiborus 01.11.2020 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178601.jpg" />
 </div>
 
 
@@ -246,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178564.jpg" />
 </div>
 
 
@@ -272,7 +325,7 @@ Udemy, Александр Сокирка (Alexandr Sochirca) | Весь WordPres
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178288.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178271.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177765.jpg" />
 </div>
 
 
@@ -350,7 +403,7 @@ Batman: Arkham Asylum (2010) [Ru/En] (1.1/dlc) Repack R.G. Catalyst [Game of the
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177762.jpg" />
 </div>
 
 
@@ -376,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177553.jpg" />
 </div>
 
 
@@ -402,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177493.jpg" />
 </div>
 
 
@@ -428,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176966.jpg" />
 </div>
 
 
@@ -454,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176921.jpg" />
 </div>
 
 
@@ -480,7 +533,7 @@ VPN подал в суд на Роскомнадзор за незаконную
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176341.jpg" />
 </div>
 
 
@@ -507,7 +560,7 @@ Pink Floyd Solo Projects: Roger Waters, David Gilmour, Richard Wright, Nick Maso
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176215.jpg" />
 </div>
 
 
@@ -539,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176196.jpg" />
 </div>
 
 
@@ -565,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176111.jpg" />
 </div>
 
 
@@ -591,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175736.jpg" />
 </div>
 
 
@@ -617,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175514.jpg" />
 </div>
 
 
@@ -628,58 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA8A7911F94C8233CB6A41D08D1980BEDD16EB19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429442   (175357) от 07.12.2020
-
-Как перенести лицензию Windows 10 на новый компьютер или жёсткий диск
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_175357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычно при покупке нового компьютера или ноутбука на нём есть уже активированная копия Windows 10. Однако, если вы собираете компьютер самостоятельно, это не так. Если вы хотите собрать компьютер из отдельных компонентов своими руками, нужна лицензия на Windows 10, которая в зависимости от редакции может стоить десятки тысяч рублей.Если на предыдущем компьютере у (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460542   (175202) от 05.12.2022
-
-Жуки (2021) WEBRip [H.264/1080p-LQ] (сезон 2, серии 1-16 из 16 + Фильм о сериале)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175202.jpg" />
-</div>
-
-
-###  Подробнее
-
-За этот год мир полностью изменился, а в Жуках все так же солнечно и душевно. Никита, Дэн и Артемий продолжают работать над своим приложением для знакомств TWIN под присмотром инвестора, который после событий первого сезона всё-таки добрался до Жуков в трезвом уме и теперь живёт тут, несмотря на неодобрение участкового Маслова. У Маслова, кроме инвестора, появляется (   Читать дальше...   )Производство: Россия / Comedy Club ProductionЖанр: комедияРежиссер: Константин Смирнов, Константин КолесовАктеры: Вячеслав Чепурченко, Вадим Дубровин, Павел Комаров, Максим Лагашкин, Анастасия Акатова, Дмитрий Радонов, Валерий Новиков, Александр Робак, Владимир Епифанцев, Игорь Верник, Анатолий Журавлёв и др.Продолжительность: ~00:25:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F62692276A7C0032991DEE9B1BC7CEF806204246
 ```
 
 https://mybot314.ru/tekegram_catalog/

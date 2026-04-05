@@ -1,3 +1,107 @@
+###  Публикация: 1841362   (1047916) от 10.12.2025
+
+Grok - ИИ ассистент v1.0.85-release.02 Mod by kljovyj [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grok — это AI-ассистент, разработанный xAI, предназначенный для максимальной правдивости, полезности и любопытства. Получайте ответы на любые вопросы, генерируйте впечатляющие изображения и видео, ведите естественные разговоры в голосовом режиме и загружайте картинки, чтобы глубже понять свой мир. С Grok вселенная в ваших руках!Тип издания: ModРелиз состоялся: 10.12.2025Разработчик: xAIПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCD8291C84149D3CE8A73464F2DC83AB483ADFC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841060   (1047737) от 08.12.2025
+
+МДС | Модель для Сборки - аудиокниги v20.3 Mod by Alex.Strannik [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047737.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Модель для сборки» (сокращённо МДС) - культовая российская радиопередача. Одно из самых известных радиошоу в сегменте авторских программ. Впервые начала выходить на радио в 1995 году. МДС - радиопостановки произведений современной прозы в сопровождении электронной музыки. Приложение является каталогом крупнешего архива МДС mds-club.ru от фанатов с расширенными возможностями: (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 08.12.2025Разработчик: Anton BalashovПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03849A83443463DBC13F93EF88D31BB89D52645A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840707   (1047629) от 07.12.2025
+
+Grok - ИИ ассистент v1.0.83-release.02 Mod by kljovyj [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047629.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grok — это AI-ассистент, разработанный xAI, предназначенный для максимальной правдивости, полезности и любопытства. Получайте ответы на любые вопросы, генерируйте впечатляющие изображения и видео, ведите естественные разговоры в голосовом режиме и загружайте картинки, чтобы глубже понять свой мир. С Grok вселенная в ваших руках!Тип издания: ModРелиз состоялся: 06.12.2025Разработчик: xAIПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33AE37AA9F3106EB0C4C8647836C69D2A809F1FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840701   (1047628) от 07.12.2025
+
+Smart AudioBook Player Pro v11.6.3 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа разработана специально для проигрывания аудиокниг. Предполагается, что у Вас есть аудиокниги и Вы их уже скопировали на телефон. Воспроизведение форматов: opus, mp3, m4a, m4b, awb, ogg, wma (можно слушать книги, конвертированные для Nokia).Тип издания: FullРелиз состоялся: 06.12.2025Разработчик: Александр КравченкоПоддерживаемая ОС: Android 11+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:373D7A34D0593115598B615F5C1F803E7D66DF8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840605   (1047565) от 07.12.2025
 
 Magic Eraser / Магический ластик v2.25.0 Mod by Maximoff⁠ [Ru/En]
@@ -6,7 +110,7 @@ Magic Eraser / Магический ластик v2.25.0 Mod by Maximoff⁠ [Ru/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047565.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ SD Card Test Pro v2.7 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047564.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047549.jpg" />
 </div>
 
 
@@ -88,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047548.jpg" />
 </div>
 
 
@@ -115,7 +219,7 @@ Solid Explorer File Manager v3.2.6 + Plugins Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047545.jpg" />
 </div>
 
 
@@ -144,7 +248,7 @@ Seven / 7 Минут Упражнение v9.24.3 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047541.jpg" />
 </div>
 
 
@@ -170,7 +274,7 @@ FolderSync Pro v4.8.2 Mod by Number one' [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047536.jpg" />
 </div>
 
 
@@ -196,7 +300,7 @@ Vanced Tube v5.5.80.195 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047530.jpg" />
 </div>
 
 
@@ -222,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047508.jpg" />
 </div>
 
 
@@ -249,7 +353,7 @@ PhotoDirector v20.8.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047507.jpg" />
 </div>
 
 
@@ -275,7 +379,7 @@ Web Video Cast | Browser to TV (Chromecast/DLNA/+) v5.12.8 Mod by Balatan  [Ru/M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047503.jpg" />
 </div>
 
 
@@ -301,7 +405,7 @@ DNS Changer Pro v1.4.2 Mod by Balatan [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047502.jpg" />
 </div>
 
 
@@ -328,7 +432,7 @@ Night clock / Ночные часы v2.11.7 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047485.jpg" />
 </div>
 
 
@@ -354,7 +458,7 @@ Moon+ Reader Pro v10.3 (b1003000) Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047483.jpg" />
 </div>
 
 
@@ -380,7 +484,7 @@ Relax Rain: sleeping sounds v9.1.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047482.jpg" />
 </div>
 
 
@@ -406,7 +510,7 @@ AI Photo Editor Pro - Polish v1.694.240 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047372.jpg" />
 </div>
 
 
@@ -432,7 +536,7 @@ Daff Moon Phase (Фазы Луны) v3.51 Mod by shv7net [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047363.jpg" />
 </div>
 
 
@@ -459,7 +563,7 @@ Auto Reply: автоответчик v6.2 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047352.jpg" />
 </div>
 
 
@@ -485,7 +589,7 @@ Pencil Photo Sketch : Drawing v2.2.61 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047351.jpg" />
 </div>
 
 
@@ -511,7 +615,7 @@ Revo Uninstaller Mobile v3.4.480G Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047346.jpg" />
 </div>
 
 
@@ -538,7 +642,7 @@ Grok - ИИ ассистент v1.0.82-release.02 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047342.jpg" />
 </div>
 
 
@@ -564,7 +668,7 @@ Email Aqua Mail - Fast, Secure v1.56.0 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047312.jpg" />
 </div>
 
 
@@ -576,110 +680,6 @@ Gmail, Yahoo, Hotmail, FastMail, Apple, GMX, Outlook, AOL или Exchange - Aqua
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80FAFB8157FDA48B05654049F973C927429C0A39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840357   (1047289) от 04.12.2025
-
-Exo Player - Видеоплеер и IPTV v2.1.0 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047289.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшой видеопроигрыватель с поддержкой 4K и 8К и расширенными возможностями. Позволяет транслировать видео через Google Cast, устанавливать в качестве статуса WhatsApp да воспроизводить оное в плавающем окне. 📱Приложение работает безупречно, что позволяет смотреть видео без задержек и перерывов. Он также оптимизирован для использования аккумулятора, поэтому (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 03.12.2025Разработчик: I N F I N I T YПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D638F318D115917E8F290E2C4758BD29C5155746
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840359   (1047287) от 04.12.2025
-
-Цитаты+ — Вдохновение дня v3.7.4а3 Mod by vadj [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Quotes+ — Твой карманный источник ежедневного вдохновения. Наслаждайся более чем 2800+ вдохновляющими цитатами, чтобы поднять настроение, замотивироваться или задуматься. Простой, чистый и красивый дизайн — Quotes+ помогает сосредоточиться на главном.Тип издания: ProРелиз состоялся: 01.12.2025Разработчик: Sashkin AppsПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBF4972D4C99AF7BB25101B084376ED6EC0870CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840363   (1047285) от 04.12.2025
-
-Открытки с поздравлениями, gif v1.27.1 Mod by vadj [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Открытки и поздравления на все случаи жизни от лидера РУнета - OtkritkiOK.ru. Самый большой каталог красивых открыток с днем рождения, прикольных картинок с поздравлениями, а также стикеры для WhatsApp и ежедневные гифки с добрым утром и спокойной ночи. Более 15 млн. пользователей ежегодно отправляют наши картинки и стикеры (wasticker), порадуйте и вы своих друзей, (   Читать дальше...   )Тип издания: ProРелиз состоялся: 03.12.2025Разработчик: OtkritkiOKПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F8007367B31CDA42B2B36E0C9D85892A740870B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840225   (1047172) от 03.12.2025
-
-Horary Chart / Астрология: Хорарная Карта v4.1.4 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хорарная карта - это программа для построения хорарных карт, включающая астрологическую карту с линейкой, расчет событий в пределах знака и отображающая соединения планет и домов с антисами и звездами. Есть функция добавления формул жребиев и выбор из ста звезд.Тип издания: Paid / ProРелиз состоялся: 18.04.2025Разработчик: Roman ShimchenkoПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4CB8B3840D2657AE978D04ED5B8FA94D5516238
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,31 @@
+###  Публикация: 1394619   (1029422) от 23.02.2021
+
+Школа Кайно, Павел Голубев | Марафон «Blender Start» (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Низкополигональное моделирование и основы работы в Blender 2.8 на бесплатном марафоне онлайн-университета Кайно.
+
+Другие курсы школы Кайно: Школа КайноПроизводство: Школа КайноЖанр: 3D моделированиеПродолжительность: 03:35:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7D1B6A03E9C61F4A7F2C52D8F4BFFFFED615B8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450069   (1029263) от 24.02.2021
 
 Елена Арестова | Съёмка девушек SIZE+ (2021) PCRec
@@ -6,7 +34,7 @@
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029263.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ Jeremy Huxley | Vegetation & Plants for Games (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029151.jpg" />
 </div>
 
 
@@ -61,7 +89,7 @@ Udemy, Dmitri Nesteruk | Design Patterns in C# and .NET (2021) PCRec [En / En Su
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029141.jpg" />
 </div>
 
 
@@ -90,7 +118,7 @@ Udemy, Andrei Dumitrescu | Linux Administration: The Complete Linux Bootcamp 202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029121.jpg" />
 </div>
 
 
@@ -118,7 +146,7 @@ Udemy, Maximilian Schwarzmüller | Svelte.js - The Complete Guide (incl. Sapper.
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028993.jpg" />
 </div>
 
 
@@ -145,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028954.jpg" />
 </div>
 
 
@@ -173,7 +201,7 @@ Anastasia Opara | Houdini Procedural Lake Houses Volume 4 (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028888.jpg" />
 </div>
 
 
@@ -201,7 +229,7 @@ Anastasia Opara | Houdini Procedural Lake Houses Volume 3 (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028885.jpg" />
 </div>
 
 
@@ -229,7 +257,7 @@ Anastasia Opara | Houdini Procedural Lake Houses Volume 2 (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028868.jpg" />
 </div>
 
 
@@ -257,7 +285,7 @@ Anastasia Opara | Houdini Procedural Lake Houses Volume 5 (2016) PCRec [Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028860.jpg" />
 </div>
 
 
@@ -285,7 +313,7 @@ Lu Dongjun | Glass Study (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028855.jpg" />
 </div>
 
 
@@ -314,7 +342,7 @@ Lu Dongjun | Stone Study (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028852.jpg" />
 </div>
 
 
@@ -342,7 +370,7 @@ Lu Dongjun | Fish & Portrait Study (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028843.jpg" />
 </div>
 
 
@@ -371,7 +399,7 @@ Udemy, We Secure © Training & Consultancy | The Information Security Masterclas
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028839.jpg" />
 </div>
 
 
@@ -399,7 +427,7 @@ Udemy, Denis Panjuta | Complete Android 11 Jetpack Masterclass (2021) PCRec [En 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028837.jpg" />
 </div>
 
 
@@ -426,7 +454,7 @@ Anastasia Opara | Houdini Procedural Lake Houses Volume 1 (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028821.jpg" />
 </div>
 
 
@@ -454,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028820.jpg" />
 </div>
 
 
@@ -481,7 +509,7 @@ Udemy, Валерий Жданов | Google Офис (2021) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028814.jpg" />
 </div>
 
 
@@ -507,7 +535,7 @@ The StationX Cyber Security School, Udemy, Nathan House | The Complete Cyber Sec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028789.jpg" />
 </div>
 
 
@@ -536,7 +564,7 @@ Ironskills, Иван Гордынец | Онлайн-курс "Работа с �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028783.jpg" />
 </div>
 
 
@@ -565,7 +593,7 @@ Raf Grassetti | Female Anatomy Tutorial (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028778.jpg" />
 </div>
 
 
@@ -591,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028761.jpg" />
 </div>
 
 
@@ -619,7 +647,7 @@ Pentester Academy | Powershell For Pentesters  (2020) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028757.jpg" />
 </div>
 
 
@@ -645,7 +673,7 @@ Moscow Business School | MBA Start. Модуль 4. Организационно
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028690.jpg" />
 </div>
 
 
@@ -674,7 +702,7 @@ Moscow Business School | MBA Start. Модуль 6. Методы исследо�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028687.jpg" />
 </div>
 
 
@@ -688,35 +716,6 @@ Moscow Business School | MBA Start. Модуль 6. Методы исследо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD4761365CAE0AD7D0490B8AF4FA955F2AF6FED5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450891   (1028685) от 28.02.2021
-
-Moscow Business School | MBA Start. Модуль 3. Общий менеджмент (2008) DVDRip
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если Вы нашли эту раздачу – Вы знаете что такое MBA
-В данной раздаче выложен видеокурс одного из 15-ти модулей программы MBA Start:
-Модуль 3. Общий менеджмент
-от Moscow Business School, дистрибутирующей MBA General, стоимостью от 4500$ и предназначенный для дистанционного обучения в течение одного года(   Читать дальше...   )Производство: Россия. MBSЖанр: БизнесЯзык озвучки: РусскийПродолжительность: ~11:21:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36A444203A4BC150A821435193FB2F6780A6C706
 ```
 
 https://mybot314.ru/tekegram_catalog/

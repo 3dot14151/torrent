@@ -6,7 +6,7 @@ Organ Freeman - Organ Freeman (2015) [FLAC|Lossless|WEB-DL|tracks] <Jazz-Rock>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553064.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Billy Cobham - Spectrum (1973) 1992, Remasters Series [WavPack|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553039.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - The Girl from Ipanema: The Antonio Carlos Jobim Songbook (1995) [WavPack|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552950.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Red Nichols - 1929 - 1930 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552945.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Illinois Jacquet - The Illinois Jacquet Story: It's Wild (1944 - 1951) 2002, Pro
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552523.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Christian McBride Trio - Out Here (2013) Mack Avenue [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552522.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Brother Jack McDuff - The Best Of The Concord Years (1992 - 2001) 2CD, 2003, Con
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552521.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Rosemary Clooney - Demi-Centennial (1995) Concord Jazz [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552520.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Christian McBride Big Band - Bringin' It (2017) Mack Avenue Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552236.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Art Tatum - More Of The Greatest Piano Of Them All (1954, 1955) 2015, Poll Winne
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552204.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Koktebel Jazz Festival - Хиты Джаз Коктебель (2012) Live [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551853.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Gerry Gibbs and the Thrasher Band - Faces Unknown (2006) [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551589.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Fission - Waves // And // Flow (2019) [FLAC|Lossless|tracks + .cue] <Fusion, Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551211.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Ron Carter - The Puzzle (1986) SMS [FLAC|Lossless|image + .cue] <Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550634.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Jane Bunnett - Cuban Odyssey (2002) Blue Note [FLAC|Lossless|image + .cue] <Afro
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550537.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Gary Burton - Something's Coming! (1963) Remaster, 2015, Sony Music[FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550459.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Rein De Graaff Trio - Drifting On A Reed (1977) Remaster, 2015, Solid Records[FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550458.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Bobbi Humphrey - Flute-In (1971) 1982, Applause[APE|Lossless|image + .cue] <Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550457.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Paul Hardcastle - Jazzmasters 7 (2014) [FLAC|Lossless]<Nu Jazz, Lounge, Chillout
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550407.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Jack McDuff - The Soulful Drums (1964, 1965) 2001, Prestige[FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550368.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Steve Hunt - From Your Heart And Your Soul (1997) [WavPack|Lossless|image + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550364.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Toots Thielemans - The Soul of Toots Thielemans (1959) 2010, FSR [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550363.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Sadao Watanabe - Orange Express (1981) Remaster, 2016, Sony Music[FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550361.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Nadiamori - Nadiamori Electro Jazz (2005) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550357.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Malene Mortensen - You Belong To Me (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550265.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Ilonka - To Be Loved (2016) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550261.jpg" />
 </div>
 
 

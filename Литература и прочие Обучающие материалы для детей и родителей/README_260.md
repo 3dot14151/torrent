@@ -1,3 +1,56 @@
+###  Публикация: 1318055   (497739) от 04.08.2019
+
+А.В. Могилев, Л.В. Листрова | Методы программирования. Компьютерные вычисления (2008) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга является частью комплекта учебников по курсу информатики и информационно-коммуникационных технологий (ИКТ) в старших классах общеобразовательной школы на профильном уровне. Она охватывает 5-й и 6-й из 10-ти модулей курса и является продолжением пособий "Информация и информационные процессы. Социальная информатика", "Средства информатизации. Телекоммуникационные (   Читать дальше...   )Жанр: ИнформатикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B591391444D753EB0A442AA0833FD62B3D8C27B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564806   (497654) от 21.07.2022
+
+Лев Толстой (сост.) | Липунюшка (1966) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497654.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге юные читатели познакомятся со сказками, загадками и пословицами отобранными и обработанными Львом Николаевичем Толстым.
+Для детей младшего школьного возраста. Иллюстрации И.Кузнецова.Жанр: Сказки, Загадки, ПословицыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73404BA6331E9498554F8EECAD99B87CEADDFB1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 935791   (497499) от 10.09.2015
 
 Дарья Арвачева (сост.) | The Princess and the Pea. Почитаем по-английски (2014) [PDF]
@@ -6,7 +59,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497499.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497438.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497402.jpg" />
 </div>
 
 
@@ -89,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497324.jpg" />
 </div>
 
 
@@ -115,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496889.jpg" />
 </div>
 
 
@@ -143,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496745.jpg" />
 </div>
 
 
@@ -170,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496602.jpg" />
 </div>
 
 
@@ -197,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496601.jpg" />
 </div>
 
 
@@ -224,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496590.jpg" />
 </div>
 
 
@@ -250,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496490.jpg" />
 </div>
 
 
@@ -276,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496370.jpg" />
 </div>
 
 
@@ -304,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496182.jpg" />
 </div>
 
 
@@ -331,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496167.jpg" />
 </div>
 
 
@@ -357,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496153.jpg" />
 </div>
 
 
@@ -383,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496101.jpg" />
 </div>
 
 
@@ -409,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495983.jpg" />
 </div>
 
 
@@ -436,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495923.jpg" />
 </div>
 
 
@@ -462,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495856.jpg" />
 </div>
 
 
@@ -491,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495753.jpg" />
 </div>
 
 
@@ -519,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495448.jpg" />
 </div>
 
 
@@ -547,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495434.jpg" />
 </div>
 
 
@@ -573,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495279.jpg" />
 </div>
 
 
@@ -602,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495276.jpg" />
 </div>
 
 
@@ -629,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495275.jpg" />
 </div>
 
 
@@ -641,58 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF8220DE63DFFEC1E2F65DC86DE8584031B6FF2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 382259   (495196) от 31.08.2011
-
-М.Н. Султанова | Кто это? Рабочая тетрадь для детей 2-3 лет (5 тетрадей) (2008) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Рабочие тетради, прописи и разукрашки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тетради серии "Кто это?" предназначены для индивидуальной работы с ребенком 2-3 лет. Входит в комплект из 5 тетрадей. Предлагается 12 заданий: на картинке изображена только часть животного, малышу предлагается узнать кто это или ответить чьё это? ; графическое задание на штриховку, дорисовку, на закрепление знания цвета; задание на логику; на подбор одинакового (   Читать дальше...   )Жанр: Обучение и развитиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C74732ADF492B1FAA4593182F12DF1B3AACAE9F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404316   (495179) от 24.08.2020
-
-Н. И. Кулакова | Детская ревность. Для тех, кто ждет еще одного ребенка (2012) [PDF, FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная проблема, которая возникает при появлении младшего в семье, – ревность старшего ребенка. Зачастую многие родители ошибочно полагают, что старший еще слишком мал, чтобы понимать и ревновать к младшему. Но на деле ревность может оказаться очень сильной, может сопровождаться истериками и открытой агрессией по отношению к младшему. Дело осложняется тем, что некоторым (   Читать дальше...   )Жанр: Воспитание детей, Детская психология, Семейная психологияФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B248901673319E814EBF4FCA82389094614FC13
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238994.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238387.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NG. Море надежды. Подводные сокровища Америк�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237891.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237875.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NG. Львы с Крокодильей реки / Lions of Crocodile River (2007
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236749.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NG. Тайны слонов / Secrets of the Elephants (2023) WEB-DL [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_236295.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235360.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235045.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ NGW. Путешествие по Атлантике / Facing The Atlantic (2011)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235032.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233400.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ NGW: Чудеса океана / Wonders of The Ocean (2019) WEBRip [H.264/1080p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232490.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232263.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ BBC. Чувствуешь ли ты это - Как танцевальная м�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232056.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231347.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231294.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231033.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ NG. Непокорный остров / Port Protection (Lawless Island) (2023) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230727.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230640.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Discovery. Махинаторы. Машина мечты / Wheeler Dealers: Drea
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230525.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230517.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230473.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230389.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_229953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229953.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229410.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229012.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ NGW: Поместье луговой собачки / Prairie Dog Manor (2019) H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228986.jpg" />
 </div>
 
 

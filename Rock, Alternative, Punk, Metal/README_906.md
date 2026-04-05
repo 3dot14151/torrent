@@ -1,3 +1,32 @@
+###  Публикация: 1647034   (231863) от 17.07.2023
+
+Morguenstern - 2 Albums (2014-2023) [MP3|320 Kbps] <Horror Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мёртвое Сердце
+02. Мне Неведома Жалость
+03. Погрёбенная Заживо
+04. Эйфория(   Читать дальше...   )Жанр: Horror Gothic MetalПродолжительность: 00:38:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CBC6FA15BC64C3D2CD4261B27BC79A2B5A3B7B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1646322   (231861) от 14.07.2023
 
 The Three Tremors - Guardians of the Void (2021) [FLAC|Lossless|image + .cue] <Heavy, Power Metal>
@@ -6,7 +35,7 @@ The Three Tremors - Guardians of the Void (2021) [FLAC|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231861.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Quidam - Sny Aniołów (Sny Aniolow) (1998) Remaster, 2023, GAD Records [MP3|320
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231844.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Within Temptation - Wireless (2023)  [FLAC 2.0|24/96|WEB-DL|tracks] <Symphonic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231843.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Bards of Antiquity - The Paladin (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Progress
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231839.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Noturnall - Cosmic Redemption (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231833.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Evile - The Unknown (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231829.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Supremacy - Influence (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231822.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Vermilion Whiskey - Crimson & Stone (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231819.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Def Leppard - Diamond Star Halos (2022) Limited Edition [MP3|320 kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231816.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ The Guess Who - Plein D'Amour (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock / 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231808.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Unfelled - Pall of Endless Perdition (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmos
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231794.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Ross the Boss - Legacy of Blood, Fire & Steel (2023) Compilation [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231791.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Veilburner - VLBRNR (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231790.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Usnea - Portals Into Futility (2017) [FLAC|Lossless|WEB-DL|tracks] <Blackened Fu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231788.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Grave Digger - 25 Albums, 6 EP, 46 CD (1984-2022) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231787.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Rise to the Sky - 3 Albums (2022-2023) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Atmosph
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231782.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Midnight Chaser - Rough And Tough (2011) [WavPack|Lossless|image + .cue] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231780.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Undead Killer - Awakening of the Undead Killers (2017) [MP3|320 Kbps] <Thrash Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231779.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Frenzy - Blind Justice (2019) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231772.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Unsoulicited - Reflections (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231770.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231767.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Venus - Two-0-One-9 (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231764.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Vansidian - Reflecting the Shadows (2023) [MP3|320 Kbps] <Melodic Death, Power M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231759.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ The Night Eternal - Fatale (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231756.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Veonity - Into the Void (2016) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231753.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Veonity - Into the Void (2016) [FLAC|Lossless|image + .cue] <Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A37B049119FC1505772ECC1BD6DCD298533E1032
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646931   (231750) от 16.07.2023
-
-VA - Superunknown (Redux) (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom metal, Stoner metal, Stoner rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ufomammut - Let Me Drown 07:42
-02. High Priest - My Wave 06:18
-03. Marissa Nadler - Fell on Black Days 04:47
-04. Somnuri - Mailman 04:38(   Читать дальше...   )Жанр: Doom metal, Stoner metal, Stoner rockПродолжительность: 01:23:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC9FB4E76BB4CE4C5B545364A7D4D7CB214CF075
 ```
 
 https://mybot314.ru/tekegram_catalog/

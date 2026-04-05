@@ -6,7 +6,7 @@ The Rolling Stones - Steel Wheels Live (Live From Atlantic City, NJ, 1989) (2020
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427525.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Fish - Weltschmerz (2020) 2xCD [MP3|320 Kbps] <Art Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427519.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Rehab Allstars - Feel The Blues (2015) [OGG| 521-558 кб/с]<Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427358.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ THR3E - 30 Day Hop (2015) [OGG| 505-529 кб/с]<Rock'n'Blues>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427312.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Rod Stewart - Blood Red Roses (2018) Deluxe Version [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426874.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Now That's What I Call Driving Rock (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426636.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Papadosio - Pattern Integrities (2016) EP [MP3|320 Kbps] <Experimental Electroni
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426251.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Kerry Livgren - Q.A.R. (2022) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425600.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Ray Thomas - Words & Music (2020) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423166.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Kasabian - West Ryder Pauper Lunatic Asylum (2009) [MP3|320 kb/s]<Indie Rock / B
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_422855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_422855.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ The Power Station - 2 Albums (1985, 1996) [MP3|320 Kbps] <Rock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422544.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Bakerloo - Bakerloo (1969) Reissue, 1993, Repertoire Records [MP3|320 Kbps] <Hea
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422062.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Maureen & The Mercury 5 - Gimme Mo! (2017) [MP3|320 Kbps] <Rockabilly, Swing>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421785.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Led Zeppelin - Led Zeppelin x Led Zeppelin (2018) Remastered [MP3|320 Kbps] <Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421733.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Setka - Silent Warning (2020) [MP3|320 Kbps] <Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420642.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Falling Up - 11 альбомов, 2 Сингла, 2 EP (2004-2017) [MP3|128-320 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419711.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ The 69 Eyes - West End (2019) [MP3|320 Kbps] <Gothic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418848.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Copperhead - Copperhead (1973) Reissue, 2001, Acadia [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417571.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Johnny Winter - Still Alive And Well (1973) 1994, Columbia [MP3|320 Kbps] <Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417428.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Santana - Santana IV Live at the House of Blues Las Vegas (2016) 2CD [MP3|320 Kb
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416335.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ The Archipelago - Mind And Failure (2020) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416184.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ VA - Body Pump Rock Classics (2020) [MP3|320 Kbps] <Rock, Dance>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415883.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Led Zeppelin - An Introduction To Led Zeppelin (2018) Remastered [MP3|320 Kbps] 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415243.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ The Love Affair - The Everlasting Love Affair (1968) Reissue, 2005, Dogtoire [MP
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414868.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ Robert Plant - Digging Deep: Subterranea (2020) 2xCD [MP3|320 Kbps] <Classic Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413730.jpg" />
 </div>
 
 
@@ -736,7 +736,7 @@ Jon Lord - 15 альбомов (1971-2010) [MP3|320 kbps]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_413567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_413567.jpg" />
 </div>
 
 

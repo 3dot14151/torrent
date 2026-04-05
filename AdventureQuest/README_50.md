@@ -1,3 +1,81 @@
+###  Публикация: 1337031   (275637) от 09.11.2019
+
+Moons of Madness (2019) [Ru/Multi] (1.01) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ученые зафиксировали таинственный сигнал, идущий с Красной планеты. И содержащиеся в нем сведения поставили исследователей из «Орочи» в тупик. Расшифровав сигнал, аналитики корпорации осознали, что он – разумного происхождения. Правление «Орочи» тотчас решило засекретить все данные об открытии, чтобы не рисковать. В атмосфере полной секретности корпорация начинает (   Читать дальше...   )Тип издания: LicenseРазработчик: Rock Pocket GamesЖанр: Action, Horror, Adventure, Sci-fi, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB54DBD695FE8BDB99EB11C2A354ACF77D33A3FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337107   (275547) от 09.11.2019
+
+Moons of Madness (2019) [Ru/Multi] (1.01) Repack xatab
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275547.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ученые зафиксировали таинственный сигнал, идущий с Красной планеты. И содержащиеся в нем сведения поставили исследователей из «Орочи» в тупик. Расшифровав сигнал, аналитики корпорации осознали, что он – разумного происхождения. Правление «Орочи» тотчас решило засекретить все данные об открытии, чтобы не рисковать. В атмосфере полной секретности корпорация начинает (   Читать дальше...   )Тип издания: RepackРазработчик: Rock Pocket GamesЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93CCC6BEF07A4AE71F29C1F31B078843ACCD8AED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083228   (274499) от 15.12.2016
+
+The Wolf Among Us (2013) [Ru/En] (1.0) Repack Seraph1 [Episodes 1-5]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274499.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире игры персонажи известных сказок оказались перенесены в мрачный Нью-Йорк, где им пришлось волей-неволей обживаться в суровом обществе людей. Главным героем The Wolf Among Us станет Бигби Вульф (Bigby Wolf - то есть Big Bad Wolf, классический Злой серый волк из сказок о Красной шапочке и трех поросятах), который является теперь матерым детективом Нью-Йорка. (   Читать дальше...   )Тип издания: RepackРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F4FC14EE69E9799F181A7E12548ED843A8AA23C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1188582   (274333) от 02.12.2017
 
 Edna & Harvey: Harvey's New Eyes (2012) [Ru/Multi] (3.0.0442) License GOG
@@ -6,7 +84,7 @@ Edna & Harvey: Harvey's New Eyes (2012) [Ru/Multi] (3.0.0442) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274333.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Black Mirror (2017) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274146.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ The Little Acre (2016) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273281.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Beholder (2016) [Ru/Multi] (1.5.0.10020/dlc) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271918.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Discolored (2019) [Ru/Multi] (1.0) Repack Butter_
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271175.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Jekyll and Hyde / Джекил и Хайд [Ru] (RePack) 2010 | Martin
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271152.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Silent Hill: Shattered Memories [En] (Р) 2009
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271073.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ Black Mirror (2017) [Ru/Multi] (1.0.0.1005) Repack OneTwo
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270951.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ Sally Face (2016) [Ru/Multi] (1.4.13/dlc) License PLAZA [Episode 1-4]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269843.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ Some Distant Memory (2019) [Ru/Multi] (1.0.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269386.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ Neverhood (1996) [Ru] (1.0/dlc) Unofficial
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268253.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ Beholder 2 (2018) [Ru/En/Ch] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267427.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ The Council - Complete Season (2018) [Ru/En] (0.9.5.6336) Repack xatab [Episode 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267381.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ Frosty Nights (2017) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266600.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ Frosty Nights (2017) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266598.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ What Remains of Edith Finch (2017) [Ru/Multi] (1.0.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266533.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ Event[0] (2016) [En] (169221) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266524.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ Sherlock Holmes versus Jack the Ripper / Шерлок Холмс против Д
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265675.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ The Testament of Sherlock Holmes / Последняя воля Шерлока Х
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265625.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ Treasure Hunter Simulator (2018) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265462.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ Sherlock Holmes: The Awakened / Шерлок Холмс и секрет Ктул
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264992.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ The Council - Complete Season (2018) [Ru/Multi] (0.9.5.6336) License PLAZA [Epis
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264756.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ EBONY (2019) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264497.jpg" />
 </div>
 
 
@@ -591,84 +669,6 @@ EBONY (2019) [Ru/Multi] (1.0) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53506A64AB48F617896F96D6A71C59633B23F241
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191350   (264344) от 13.12.2017
-
-Sherlock Holmes: The Case of the Silver Earring / Шерлок Холмс. Загадка серебряной сережки (2004) [Ru/Multi] (1.0) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264344.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Шерлок Холмс: Загадка серебряной сережки» – оригинальный квест, разработанный компанией Frogwares и озвученный «лучшим Холмсом современности», актером Василием Ливановым. Действие игры начинается с загадочного убийства. Устроив торжественный прием в честь возвращения любимой дочери Лавинии, сэр Бромсби и не подозревал, что этот ужин окажется для него последним. (   Читать дальше...   )Тип издания: LicenseРазработчик: FrogwaresЖанр: Приключение, Квест, ДетективЯзык озвучки: Русский, Английский, Немецкий, Испанский и другиеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06054824574DFE95AFEC8B274861789A815B3897
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339969   (264194) от 22.11.2019
-
-Brukel (2019) [Ru/Multi] (1.0.2) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы проникли в заброшенный дом детства вашей 92-летней бабушки. Вы были очарованы историями о ее юношеских годах на протяжении большей части своей жизни, но прошлым летом вы наконец решили записать ее воспоминания, чтобы поделиться этими историями с миром онлайн. Теперь все что вам нужно, это несколько фотографий дома и, возможно, некоторые предметы, которые все еще (   Читать дальше...   )Тип издания: RepackРазработчик: Bob De SchutterЖанр: Adventure, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4964430258A36757A98474DB7CB65DD0B0DCBC44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191606   (264053) от 14.12.2017
-
-Sherlock Holmes: Nemesis / Шерлок Холмс против Арсена Люпена (2010) [Ru/Multi] (1.0) License GOG [Remastered]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_264053.jpg" />
-</div>
-
-
-###  Подробнее
-
-Битва умов: два знаменитых героя популярной литературы сходятся в бескомпромиссном поединке. Шерлок Холмс возвращается к расследованию дела джентльмена-вора в переработанной версии квеста "Шерлок Холмс против Арсена Люпена"! Классическое приключение стало еще интереснее благодаря инновациям из позднейших игр серии: камеры с видом от третьего лица и умной (   Читать дальше...   )Тип издания: LicenseРазработчик: FrogwaresЖанр: Приключение, Квест, ДетективЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18D2DD9A95801F5BF22495E0F978767A32A5DAF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

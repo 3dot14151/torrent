@@ -1,3 +1,38 @@
+###  Публикация: 476297   (85937) от 02.04.2012
+
+Yngwie Malmsteen - Best Ballads (1996) [MP3|320 кб/с]<Neo-classical metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreaming
+02. Crying
+03. Save Our Love
+04. Forever One
+05. I'm My Own Enemy
+06. Black Star
+07. I'm Die Without You
+08. Faultline
+09. Dark Ages
+10. Brothers(   Читать дальше...   )1996Жанр: Neo-classical metalПродолжительность: 01:13:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01107BC522E2C22F12D7316B1FCEE2C9C04D83C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 476728   (85931) от 02.04.2012
 
 Suzi Quatro - Story (2011) [MP3|320 кб/с]<Rock, Hard Rock, Blues>
@@ -6,7 +41,7 @@ Suzi Quatro - Story (2011) [MP3|320 кб/с]<Rock, Hard Rock, Blues>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85931.jpg" />
 </div>
 
 
@@ -41,7 +76,7 @@ Serenity - 3 альбома (2007 - 2011) [FLAC|Lossless]<Progressive Metal,Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85908.jpg" />
 </div>
 
 
@@ -76,7 +111,7 @@ Fox - 2012 (2012) [FLAC|Lossless]<Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85870.jpg" />
 </div>
 
 
@@ -111,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85865.jpg" />
 </div>
 
 
@@ -146,7 +181,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85823.jpg" />
 </div>
 
 
@@ -181,7 +216,7 @@ Creedence Clearwater Revival - Creedence Clearwater Revival. 10 CD Collection (1
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85766.jpg" />
 </div>
 
 
@@ -214,7 +249,7 @@ Rammstein - LIFAD Demos Edition (2008) [MP3|128-320 kbps]<Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85757.jpg" />
 </div>
 
 
@@ -240,7 +275,7 @@ The Shadows - Platinum Collection 2CD (2006) [MP3|320 кб/с]<Instrumental Guit
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85722.jpg" />
 </div>
 
 
@@ -266,7 +301,7 @@ Joan Jett & The Blackhearts - Greatest Hits [2CD] (2010) [WavPack|Lossless]<Glam
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85719.jpg" />
 </div>
 
 
@@ -301,7 +336,7 @@ Kula Shaker - [5 альбомов] Дискография (1996-2010) [MP3|320 �
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85697.jpg" />
 </div>
 
 
@@ -336,7 +371,7 @@ Ian Anderson - Thick As A Brick 2 - Whatever Happened to Gerald Bostock? (2012) 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85679.jpg" />
 </div>
 
 
@@ -371,7 +406,7 @@ Christina Sturmer - [24 альбома] Дискография (2003-2010) [MP3|
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85509.jpg" />
 </div>
 
 
@@ -400,7 +435,7 @@ Uriah Heep - Logical Revelations (2012) [MP3|320 кб/с]<Hard rock, Progressive
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85482.jpg" />
 </div>
 
 
@@ -435,7 +470,7 @@ Annihilator - The Best Of Annihilator (2004) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85347.jpg" />
 </div>
 
 
@@ -470,7 +505,7 @@ Tacere - 2 альбома (2006 - 2007) [APE|Lossless]<Power Metal,Symphonic Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85260.jpg" />
 </div>
 
 
@@ -505,7 +540,7 @@ The Allman Brothers Band - [40 альбомов] Дискография (1969-20
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85165.jpg" />
 </div>
 
 
@@ -540,7 +575,7 @@ Tina Turner - Best Ballads (1996) [APE|Lossless]<Rock, Soul, R'n'B, >
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85051.jpg" />
 </div>
 
 
@@ -575,7 +610,7 @@ Accept - Stalingrad (2012) [MP3|320 кб/с]<Heavy Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84969.jpg" />
 </div>
 
 
@@ -610,7 +645,7 @@ Hysterica - The Art Of Metal (2012) [FLAC|lossless]<Heavy Metal / Female Vocal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84861.jpg" />
 </div>
 
 
@@ -645,7 +680,7 @@ Tomorrow's Outlook - 34613 (2012) [FLAC|Lossless]<Progressive/Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84853.jpg" />
 </div>
 
 
@@ -680,7 +715,7 @@ Uriah Heep - 10 Albums (1970-1977) /Teichiku, Japan/ [FLAC|Lossless]<Progressive
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84765.jpg" />
 </div>
 
 
@@ -706,7 +741,7 @@ VA - Beauty And The Beast Compilation (2012) [MP3|320 кб/с]<Symphonic, Black,
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84431.jpg" />
 </div>
 
 
@@ -741,7 +776,7 @@ Shinedown - Amaryllis (2012) [FLAC|Lossless]<Alternative Rock, Post-Grunge>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84389.jpg" />
 </div>
 
 
@@ -776,7 +811,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84291.jpg" />
 </div>
 
 
@@ -811,7 +846,7 @@ Elvis Presley - ELVIS 30 #1 HITS (2003) [MP3|320 кб/с]<Rock'n Roll>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84282.jpg" />
 </div>
 
 
@@ -831,41 +866,6 @@ Elvis Presley - ELVIS 30 #1 HITS (2003) [MP3|320 кб/с]<Rock'n Roll>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D05BAFCE6D25064DE180DC175B0996212FA9FBA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473205   (84272) от 25.03.2012
-
-The Korea - Колесницы Богов (2012) [FLAC|Lossless]<Progressive Metalcore / Djent>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кобра (3:47)
-02. Ватерлиния (4:46)
-03. Манускрипт (5:18)
-04. Зомби (5:02)
-05. Нева (2:52)
-06. Я Понял, Чего Ты Ждёшь (4:48)
-07. Армада (4:48)
-08. Валгалла (3:48)
-09. Поцелуй Иуды (4:36)
-10. Xiii (2:53)(   Читать дальше...   )2012Жанр: Progressive Metalcore / DjentПродолжительность: 00:50:27
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

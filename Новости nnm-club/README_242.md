@@ -1,3 +1,57 @@
+###  Публикация: 1587528   (191866) от 02.11.2022
+
+На Западном фронте без перемен / Im Westen nichts Neues / All Quiet on the Western Front (2022) WEB-DLRip [H.264/1080p] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191866.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация одноименного антивоенного романа Эриха Марии Ремарка.
+Их вырвали из привычной жизни и швырнули в кровавую грязь войны. Когда-то они были юношами, учившимися жить и мыслить, а теперь они — пушечное мясо, которое учится выживать и не думать.Производство: Германия, США, Великобритания, Amusement Park Films, Rocket Science, Sliding Down Rainbows EntertainmentЖанр: военный, боевик, драма, история, экранизацияРежиссер: Эдвард БергерАктеры: Феликс Каммерер, Альбрехт Шух, Аарон Хилмер, Мориц Клаус, Адриан Грюневальд, Эдин Хасанович, Даниэль Брюль, Тибо де Монталембер, Девид Штрисов, Андреас ДёлерПеревод: Профессиональный многоголосый (Jaskier)Язык озвучки: русский, украинский, английский, немецкийСубтитры: Русские (Full), английские (SDH), немецкие (SDH), украинские, французские, итальянские, испанские, голландские, португальскиеПродолжительность: 02:27:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA55CA8BAC7B5C0284EF61F9710EF31180FCF128
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205775   (191645) от 06.09.2023
+
+Владимир Семёнович Высоцкий: Коллекция фильмов (1959-1976) DVDRip, HDTVRip, SATRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191645.jpg" />
+</div>
+
+
+###  Подробнее
+
+Владимир Семёнович Высоцкий — советский поэт, актёр и автор-исполнитель песен, автор прозаических произведений. Лауреат Государственной премии СССР (1987, посмертно).
+Актёр Театра драмы и комедии на Таганке в Москве (1964—1980). Владимир Высоцкий сыграл более 20 ролей в театре. Многие его работы в кинематографе также полюбились зрителям. Владимир Высоцкий вошёл в (   Читать дальше...   )Производство: СССРЖанр: драма, комедия, приключенияРежиссер: различные в разных фильмахАктеры: Владимир Высоцкий и другиеСубтитры: отсутствуютПродолжительность: 38:02:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30B3CF56E77D7E79F218B9DEE52915B025E623F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1658139   (191503) от 07.09.2023
 
 Очередное достижение: 1000+ релизов от Vitaxa52!
@@ -6,7 +60,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191503.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_191221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_191221.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ SoundHound∞ v10.2 [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191157.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191039.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191027.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ GoodbyeDPI 0.2.2. Launcher 5.7 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190926.jpg" />
 </div>
 
 
@@ -167,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_190712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_190712.jpg" />
 </div>
 
 
@@ -193,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190278.jpg" />
 </div>
 
 
@@ -219,7 +273,7 @@ Rocket Lab не смогла поймать первую ступень раке
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_190107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_190107.jpg" />
 </div>
 
 
@@ -245,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189968.jpg" />
 </div>
 
 
@@ -271,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189859.jpg" />
 </div>
 
 
@@ -298,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_189853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189853.jpg" />
 </div>
 
 
@@ -326,7 +380,7 @@ Skypro | Разработчик на Python (2021) WEB-DL [RU]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189808.jpg" />
 </div>
 
 
@@ -355,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_189804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189804.jpg" />
 </div>
 
 
@@ -381,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189522.jpg" />
 </div>
 
 
@@ -407,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_189513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189513.jpg" />
 </div>
 
 
@@ -433,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189510.jpg" />
 </div>
 
 
@@ -459,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_189463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189463.jpg" />
 </div>
 
 
@@ -485,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_189451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189451.jpg" />
 </div>
 
 
@@ -511,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_189447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189447.jpg" />
 </div>
 
 
@@ -537,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_189443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189443.jpg" />
 </div>
 
 
@@ -563,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_189003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189003.jpg" />
 </div>
 
 
@@ -589,7 +643,7 @@ Intel представила самые производительные про�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_188924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188924.jpg" />
 </div>
 
 
@@ -615,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188681.jpg" />
 </div>
 
 
@@ -626,58 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589706   (188649) от 14.11.2022
-
-Китай отказывается от одноразовых ракет для лунной миссии, в приоритете – создание Long March 9 с возможностью повторного использования
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_188649.jpg" />
-</div>
-
-
-###  Подробнее
-
-В середине прошлого десятилетия Китай серьезно задумался о высадке своих астронавтов на Луну, а инженеры страны принялись проектировать большой ускоритель для реализации миссии.В 2016 году государственный разработчик ракет China Academy of Launch Vehicle Technology приступил к проектированию сверхтяжелой ракеты Long March 9. Подобно Space Launch System, которую NASA (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659893   (188625) от 14.09.2023
-
-Два, три, демон, приди! / Talk to Me (2022) WEBRip  [H.264/1080p] [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа подростков решает развлечься и во время вечеринки устраивает спиритический сеанс. Миа пытается установить контакт со сверхъестественной силой, преследующей её после смерти матери, но общение с духом оборачивается для всех участников сеанса настоящим кошмаром.Производство: Австралия, Великобритания / Bankside FilmsЖанр: ужасыРежиссер: Дэнни Филиппу, Майкл ФилиппуАктеры: Софи Уайлд, Александра Дженсен, Джо Бёрд, Миранда Отто, Отис Дханджи, Зои Теракс, Крис Алозио, Александрия Стеффенсон, Маркус Джонсон, Санни ДжонсонПеревод: Профессиональный многоголосый (GoLTFilm)Язык озвучки: РусскийСубтитры: ОтсутствуетПродолжительность: 01:34:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2036B962CE4662C67C171377F31CC99F1F70A90
 ```
 
 https://mybot314.ru/tekegram_catalog/

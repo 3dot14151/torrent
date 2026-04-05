@@ -1,3 +1,29 @@
+###  Публикация: 1408179   (457682) от 11.09.2020
+
+Robby Branham | Multi Pass Rendering and Compositing (2017) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457682.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом видеокурсе 3D художник Робби Брэнхам расскажет про фундаментальные и продвинутые техники мульти-пасс рендеринга и композитинга с помощью Maya, VRay и Nuke. Вы узнаете как получить больше контроля над процессом рендеринга и композитинга, что поможет ускорить ваш воркфлоу. Техники продакшена включают в себя упрощение сетапов рендер-слоев, рендер пассов и дерева (   Читать дальше...   )Производство: The Gnomon WorkshopЖанр: Создание видеоЯзык озвучки: Английский, РусскийПродолжительность: 04:06:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F697AA47D933AD4097FCD69ED2B0D9CEA01AC0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408186   (457489) от 11.09.2020
 
 CG Cookie | Текстурирование оружия в Blender 2.79 и Substance Painter / Texturing Weapons in Blender 2.79 and Substance Painter (2017) PCRec [EN]
@@ -6,7 +32,7 @@ CG Cookie | Текстурирование оружия в Blender 2.79 и Subst
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457489.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Udemy | Создание катаны для игр в Blender 2.83 и Substance
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457355.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Profileschool | Коммерческая фотография. Рецепт ус
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457300.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ CG Cookie | Моделирование оружия для шутера от п�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457235.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Denis Kozhar | UE4 by Denis Kozhar (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457222.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Profileschool | Графический планшет для ретушера (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457211.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ Sophie Black | Мастер-класс по обработке фотограф�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457199.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ Profileschool | МК Предметная съемка 2.0 (2014) PCRec
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457196.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ EMPO | Аналитика для SEO (2015) PCRec [H.264/720p]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457191.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457052.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ Bob Harper | Inside Out Method - Kettlebell Sculpted Body (2010) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457010.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ Anja Garcia | Inferno Workout Program (2016) DVDRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456969.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456964.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456919.jpg" />
 </div>
 
 
@@ -380,7 +406,7 @@ CG Cookie | Создание карт нормалей для игр в Blender 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455577.jpg" />
 </div>
 
 
@@ -406,7 +432,7 @@ CG Cookie | Текстурирование и шейдинг Sci-Fi шлема �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455433.jpg" />
 </div>
 
 
@@ -434,7 +460,7 @@ CG Cookie | Моделирование пост апокалиптическог
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455430.jpg" />
 </div>
 
 
@@ -463,7 +489,7 @@ CG Cookie | Моделирование Sci-Fi шлема в Blender 2.71 / Model
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455429.jpg" />
 </div>
 
 
@@ -489,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455427.jpg" />
 </div>
 
 
@@ -517,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455282.jpg" />
 </div>
 
 
@@ -546,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455157.jpg" />
 </div>
 
 
@@ -574,7 +600,7 @@ ITVDN | Алгоритмы и структуры данных (2015) PCRec [H.26
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454950.jpg" />
 </div>
 
 
@@ -600,7 +626,7 @@ Skillbox, Павел Козлов и др. | MS Office и инструменты
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454916.jpg" />
 </div>
 
 
@@ -627,7 +653,7 @@ Skillbox, Ренат Шагабутдинов и др. | PowerPoint + Google П�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454911.jpg" />
 </div>
 
 
@@ -655,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454653.jpg" />
 </div>
 
 
@@ -669,34 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:205559C070BF4A11EE0426C24756DBB55A84FB23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060440   (454617) от 07.10.2016
-
-Zuzka Light | ZCUT Power Strength Series (2013) DVDRip [H.264] [EN]
-
->>Обучающие видеоматериалы
->>Здоровье и Спорт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454617.jpg" />
-</div>
-
-
-###  Подробнее
-
-ZCUT Power Strength Series это 12 новых высокоинтенсивных жиросжигающих тренировок.
-
-Эти тренировки являются динамически структурированными, чтобы обеспечить функциональную силу, сделать сухопарое телосложение. В комплекте идут 30, 60 и 90-дневные календари.Производство: СШАЖанр: ФитнесПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 03:18:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99019FB2D6C53E37A88C92BECAB74FAE6A06D940
 ```
 
 https://mybot314.ru/tekegram_catalog/

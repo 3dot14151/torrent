@@ -1,33 +1,3 @@
-###  Публикация: 582504   (319415) от 29.11.2012
-
-Ирина Аллегрова - Полная коллекция хитов (2012) 3CD [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ирина Александровна Аллегрова (20 января 1952, Ростов-на-Дону) — советская и российская эстрадная певица, актриса. Народная артистка России (2010)
-Родилась в Ростове-на-Дону, в семье театрального режиссёра, актёра, заслуженного артиста АзССР и РСФСР, армянина Александра Григорьевича Аллегрова1. Глупый мальчишка (3:49)
- 2. Не улетай, любовь (4:12)
- 3. Фотография 9х12 (3:29)
- 4. Войди в меня (4:45)(   Читать дальше...   )Жанр: PopПродолжительность: 11:28:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C2116137E5DE7235E8F8047BC223CB705E4DB04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1075640   (318359) от 23.11.2016
 
 Божья коровка - Девушка денег дай! (2016) [MP3|320 Kbps] <Pop>
@@ -36,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318359.jpg" />
 </div>
 
 
@@ -65,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318060.jpg" />
 </div>
 
 
@@ -94,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313057.jpg" />
 </div>
 
 
@@ -123,7 +93,7 @@ VERA - Полускромная; Слабая; Название альбома (
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312020.jpg" />
 </div>
 
 
@@ -151,7 +121,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311925.jpg" />
 </div>
 
 
@@ -180,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311917.jpg" />
 </div>
 
 
@@ -209,7 +179,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310108.jpg" />
 </div>
 
 
@@ -238,7 +208,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310105.jpg" />
 </div>
 
 
@@ -267,7 +237,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310079.jpg" />
 </div>
 
 
@@ -296,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310001.jpg" />
 </div>
 
 
@@ -325,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309460.jpg" />
 </div>
 
 
@@ -354,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307497.jpg" />
 </div>
 
 
@@ -383,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307458.jpg" />
 </div>
 
 
@@ -412,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307115.jpg" />
 </div>
 
 
@@ -441,7 +411,7 @@ Lx24 - Зависимость (2016) [MP3|320 Kbps] <Pop, R&B, Hip-Hop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306434.jpg" />
 </div>
 
 
@@ -470,7 +440,7 @@ Vavan ака Вова Селиванов - Женщины. Свобода (2016)
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304462.jpg" />
 </div>
 
 
@@ -499,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304192.jpg" />
 </div>
 
 
@@ -528,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303894.jpg" />
 </div>
 
 
@@ -557,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303889.jpg" />
 </div>
 
 
@@ -586,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303289.jpg" />
 </div>
 
 
@@ -615,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302730.jpg" />
 </div>
 
 
@@ -644,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300162.jpg" />
 </div>
 
 
@@ -673,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298942.jpg" />
 </div>
 
 
@@ -702,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297932.jpg" />
 </div>
 
 
@@ -731,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297923.jpg" />
 </div>
 
 
@@ -745,6 +715,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62D9529E478D47E8AB847E44D98A7999108980C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078954   (297661) от 02.12.2016
+
+Alekseev - Пьяное солнце (2016) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Океанами стали
+02. Чувствую душой
+03. Пьяное солнце
+04. Больно как в раю(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC8ADF4642CAC47581665F6A044241F20BA796FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 996822   (869810) от 19.03.2016
+
+Maria Callas - Callas at La Scala (2014) [FLAC 2.0|96/24|Lossless|WEB-DL|tracks] <Classical, Opera>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869810.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vincenzo Bellini (1801-1835)
+La sonnambula
+01. Act 1: "Compagne, temiri amici ....Come per me sereno" (Amina) (5:48)
+02. Act 3: "Oh, se una volta sola ....Ah! non credea mirarti" (Amina) (14:06)(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 00:41:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7B2F283120F40ED3A2B36B1935970FEBACF68A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996845   (869809) от 19.03.2016
 
 George Frideric Handel - Arminio (2016) [FLAC 2.0|96/24|Lossless|WEB-DL|tracks] <Classical>
@@ -6,7 +35,7 @@ George Frideric Handel - Arminio (2016) [FLAC 2.0|96/24|Lossless|WEB-DL|tracks] 
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869809.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Jean Sibelius - Lemminkainen Suite, Pohjola’s Daughter (Finnish Radio Symphony
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869695.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869553.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Wolfgang Amadeus Mozart - Symphonies 38 in C major "Prague" & 40 in G minor (CSO
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869548.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Richard Strauss, Alfred Lord Tennyson - Enoch Arden: A Melodrama (Mac Morgan, Wi
 >>Вокал
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867802.jpg" />
 </div>
 
 
@@ -149,7 +178,7 @@ Ludger Remy - Johann Jacob Froberger: Strasbourg Manuscript (2000) 2CD [FLAC|Los
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866604.jpg" />
 </div>
 
 
@@ -178,7 +207,7 @@ Jean Rondeau - Vertigo (2016) [FLAC|Lossless|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866375.jpg" />
 </div>
 
 
@@ -207,7 +236,7 @@ Ivan Moravec - Chopin: Nocturnes (1991) 2 CD [FLAC|Lossless|tracks] <Classical, 
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866117.jpg" />
 </div>
 
 
@@ -236,7 +265,7 @@ Claude Debussy - Images & Preludes II (Marc-Andre Hamelin) (2014) [FLAC 2.0|96/2
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865956.jpg" />
 </div>
 
 
@@ -265,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865926.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ Antonio Vivaldi - Recorder Concertos (Jan Bjoranger; Ensemble 1B1; Jonas Paradis
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865831.jpg" />
 </div>
 
 
@@ -323,7 +352,7 @@ La Serenissima, Adrian Chandler - Per Monsieur Pisendel: Six Virtuoso Violin Son
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864616.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ Chopin - 4 Ballades, Prelude, 4 Scherzi (Ashkenazy) (2000) [FLAC|Lossless|tracks
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864344.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ La Serenissima, Adrian Chandler - Per Monsieur Pisendel: Six Virtuoso Violin Son
 >>Камерная
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864209.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ Emil Gilels, Shopin, Poulenc - Recitals in Moscow, Vol. 1 (Live) (1962) 2004, М
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864207.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ Hermitage String Trio - Mozart - Divertimento in E flat major, KV 563 - Preludes
 >>Камерная
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864195.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ Stefan Obermaier - Beethoven Reloaded (2008) [FLAC|Lossless|image + .cue] <Elect
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862710.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ Chopin - 4 Ballades, Prelude, 4 Scherzi (Ashkenazy) (2000) [MP3|320 кб/с] <Cl
 >>Фортепиано
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862423.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ Chopin - 51 Mazurkas (Arthur Rubinstein) (1999) [MP3|320 кб/с] <Classical>
 >>Концерты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862416.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ Glenn Gould - The Sound of Glenn Gould (Bach, Mozart, Beethoven, Haydn, Brahms, 
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862179.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ Daigo Hanada - Ichiru (2017) [FLAC|Lossless|tracks] <Classical,Ambient>
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860746.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ Wiener Philharmoniker - Highlights From Mozart's Figaro (2007) [FLAC|Lossless|im
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860726.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ Annie Moses Band - The Art Of The Love Song (2016) [MP3|320 кб/с] <Classical 
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860711.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ Teresa Berganza, Plácido Domingo, London Symphony Orchestra - Georges Bizet: Ca
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860709.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ VA - Magical World Of Melodies. The Most Beautiful Romantic Symphonies (1995) 3C
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860708.jpg" />
 </div>
 
 
@@ -714,35 +743,6 @@ Royal Philharmonic Orchestra, Massimo Freccia
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9590CBFFFD54354FF1152F4BD820689593CDC6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999241   (860539) от 24.03.2016
-
-Chopin - 51 Mazurkas (Arthur Rubinstein) (1999) [FLAC|Lossless|tracks] <classical>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860539.jpg" />
-</div>
-
-
-###  Подробнее
-
-·4 Mazurkas, op. 41
-01 no. 1
-02 no. 2
-03 no. 3(   Читать дальше...   )Жанр: classicalПродолжительность: 02:20:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CEF67FDE5094D24782FACEA1B02033D6EF8DB81
 ```
 
 https://mybot314.ru/tekegram_catalog/

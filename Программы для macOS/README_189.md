@@ -1,3 +1,57 @@
+###  Публикация: 1706786   (62972) от 14.03.2024
+
+BoltAI 1.15.0 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62972.jpg" />
+</div>
+
+
+###  Подробнее
+
+BoltAI — это универсальный инструмент, который повышает производительность в широком спектре профессий, от написания текстов и разработки до управления и предпринимательства.
+BoltAI — это мощный помощник ИИ, предназначенный для пользователей macOS. Он использует технологию OpenAI GPT для предоставления помощи ИИ в приложениях macOS. В нем есть библиотека подсказок, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.03.2024Разработчик: © 2023 Podzim LLCПоддерживаемая ОС: macOS 12.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD6732BE53D6425E8DBA647751C5CAE58CEDC0D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706925   (62955) от 14.03.2024
+
+DxO PhotoLab 7 ELITE Edition 7.5.1 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обрабатывайте RAW и JPEG изображения в наилучшем качестве без труда: DxO PhotoLab обеспечивает полный набор умных коррекций, которые Вы можете настроить в ручную в любой момент. Возьмите контроль над Вашими фото: эффективно убирайте шум, исправляйте освещение, восстанавливайте детали цветов, корректируйте оптические искажения и улучшайте детализацию.
+Придайте Вашим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.03.2024Разработчик: © 2024 DxO LabsПоддерживаемая ОС: macOS 12.6 +Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BDB90B3F153FE3EAAA757170A86476B7378D77E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706938   (62953) от 14.03.2024
 
 Audio Hijack 4.3.2 U2B [En]
@@ -6,7 +60,7 @@ Audio Hijack 4.3.2 U2B [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62953.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ Parallels Desktop Business Edition 19 for Mac 19.3.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62937.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ FonesGo WhatsApp Transfer for Mac 8.5.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62675.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ FxFactory Pro 8.0.14 U2B [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62673.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ Navicat Charts Viewer for Mac 1.2.17 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62549.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ CheckBook Pro 2.7.29 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62548.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ ON1 NoNoise AI 2024 for Mac v18.2.0.15224 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62530.jpg" />
 </div>
 
 
@@ -191,7 +245,7 @@ Live Wallpaper & Themes 4K Pro for Mac 19.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62529.jpg" />
 </div>
 
 
@@ -217,7 +271,7 @@ JetBrains WebStorm for Mac 2023.3.5 Intel/ARM [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62488.jpg" />
 </div>
 
 
@@ -243,7 +297,7 @@ Commander One PRO - FTP client 3.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62483.jpg" />
 </div>
 
 
@@ -270,7 +324,7 @@ iTubeGo YouTube Downloader Pro for Mac 7.4.2 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62464.jpg" />
 </div>
 
 
@@ -297,7 +351,7 @@ Commander One PRO Pack 3.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62457.jpg" />
 </div>
 
 
@@ -324,7 +378,7 @@ Alfred PowerPack 5.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62445.jpg" />
 </div>
 
 
@@ -351,7 +405,7 @@ Things 3 v.3.20.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62430.jpg" />
 </div>
 
 
@@ -378,7 +432,7 @@ JetBrains Rider for Mac 2023.3.4 Intel/Mac [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62429.jpg" />
 </div>
 
 
@@ -406,7 +460,7 @@ Infuse PRO 7.7.2 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62360.jpg" />
 </div>
 
 
@@ -432,7 +486,7 @@ VideoProc Converter 6.4 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62330.jpg" />
 </div>
 
 
@@ -458,7 +512,7 @@ Proxyman for Mac 5.1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62320.jpg" />
 </div>
 
 
@@ -484,7 +538,7 @@ CrossOver 24.0.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62280.jpg" />
 </div>
 
 
@@ -511,7 +565,7 @@ DaisyDisk 4.30 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62273.jpg" />
 </div>
 
 
@@ -538,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62258.jpg" />
 </div>
 
 
@@ -564,7 +618,7 @@ JetBrains GoLand for Mac 2023.3.5 ARM  [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62242.jpg" />
 </div>
 
 
@@ -590,7 +644,7 @@ Notebooks – Write and Organize 3.4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62236.jpg" />
 </div>
 
 
@@ -616,7 +670,7 @@ DRmare Audio Capture 2.0.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62234.jpg" />
 </div>
 
 
@@ -628,58 +682,6 @@ DRmare Audio Capture - это профессиональный и универс
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3C805FE24810E08D0384285B5C65588082990E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708675   (62232) от 21.03.2024
-
-JetBrains RubyMine for Mac 2023.3.5 Intel/ARM [En]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62232.jpg" />
-</div>
-
-
-###  Подробнее
-
-RubyMine — умная и удобная интегрированная среда разработки для языка Ruby и веб-фреймворка Rails, которая включает в себя все необходимые разработчику инструменты и поддерживает наиболее востребованные технологии из мира Ruby. Как и все IDE, разработанные на основе платформы IntelliJ, RubyMine обладает уникальным механизмом анализа кода, который лежит в основе таких (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.03.2024Разработчик: © 2018 Jeffrey JohnsonПоддерживаемая ОС: macOS 10.15 (Intel)+, macOS 12.0 (ARM)Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A75874A73C27F831715EA717F4B8EA87C75F6DF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708636   (62219) от 21.03.2024
-
-JetBrains GoLand for Mac 2023.3.5 Intel  [En]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62219.jpg" />
-</div>
-
-
-###  Подробнее
-
-GoLand - это IDE от JetBrains, нацеленная на создание эргономичной среды для разработки Go. IDE расширяет платформу IntelliJ с помощью кодирования и интеграции инструментов, специфичных для языка Go. IDE анализирует ваш код, ищет соединения между символами, обеспечивает завершение кода, быструю навигацию, умный анализ ошибок, форматирование и рефакторинг.Тип издания: macOS SoftwareРелиз состоялся: 12.03.2024Разработчик: © 2000-2024 JetBrains s.r.o.Поддерживаемая ОС: macOS 10.15Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08648195A5F814A9550BB4A58545673BF9B02952
 ```
 
 https://mybot314.ru/tekegram_catalog/

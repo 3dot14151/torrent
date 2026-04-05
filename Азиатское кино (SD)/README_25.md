@@ -1,3 +1,55 @@
+###  Публикация: 1532423   (714731) от 19.02.2022
+
+Девушки, танцующие хулу / Hura garu / Hula Girls (2006) BDRip [H.264] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714731.jpg" />
+</div>
+
+
+###  Подробнее
+
+1965, Япoния пepexoдит c yгля нa нeфть. Углeдoбывaющaя пpoмышлeннocть в yпaдкe, шaxты пoвceмecтнo зaкpывaютcя, ocтaвляя тыcячи людeй бeзpaбoтными. B oднoм из ceвepныx шaxтepcкиx гopoдoв Япoнии былo peшeнo, иcпoльзoвaв pecypcы гopячиx иcтoчникoв, пocтpoить гaвaйcкий цeнтp, кoтopый бы oбecпeчил нoвыe paбoчиe мecтa для мecтнoгo нaceлeния и пpивлeк тypиcтoв c paзныx (   Читать дальше...   )Производство: Япония, Black Diamonds, Cine Quanon, Happinet, Japan Digital Contents Trust (JDCT), Stardust Pictures (SDP)Жанр: Драма, комедияРежиссер: Ли Сан-ильАктеры: Ясуко Мацуюки, Эцуси Тоёкава, Ю Аои, Сидзуё Ямадзаки, Сёко Икэдзу, Эри Токунага, Койо Мияке, Сусуму Тэрадзима, Масару Сига, Хироси ОкотиПеревод: Двуголосый любительский (АрхиAsia)Субтитры: Русские, английскиеПродолжительность: 02:00:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEC6797750017F58D76614760511C1EC6D3DD1F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532460   (714643) от 19.02.2022
+
+Девушки, танцующие хулу / Hura garu / Hula Girls (2006) BDRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714643.jpg" />
+</div>
+
+
+###  Подробнее
+
+1965, Япoния пepexoдит c yгля нa нeфть. Углeдoбывaющaя пpoмышлeннocть в yпaдкe, шaxты пoвceмecтнo зaкpывaютcя, ocтaвляя тыcячи людeй бeзpaбoтными. B oднoм из ceвepныx шaxтepcкиx гopoдoв Япoнии былo peшeнo, иcпoльзoвaв pecypcы гopячиx иcтoчникoв, пocтpoить гaвaйcкий цeнтp, кoтopый бы oбecпeчил нoвыe paбoчиe мecтa для мecтнoгo нaceлeния и пpивлeк тypиcтoв c paзныx (   Читать дальше...   )Производство: Япония, Black Diamonds, Cine Quanon, Happinet, Japan Digital Contents Trust (JDCT), Stardust Pictures (SDP)Жанр: Драма, комедияРежиссер: Ли Сан-ильАктеры: Ясуко Мацуюки, Эцуси Тоёкава, Ю Аои, Сидзуё Ямадзаки, Сёко Икэдзу, Эри Токунага, Койо Мияке, Сусуму Тэрадзима, Масару Сига, Хироси ОкотиПеревод: Двуголосый любительский (АрхиAsia)Субтитры: Русские, английские - отдельными файламиПродолжительность: 02:00:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8EEDDE5AFC9852D770BCAEC7847F07B2B1045C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1532329   (714636) от 19.02.2022
 
 Пепел - самый чистый белый / Jiang hu er nu / Ash Is Purest White (2018) BDRip [H.264]
@@ -6,7 +58,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714636.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714524.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711012.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710695.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710443.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709734.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708984.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708935.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707054.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705615.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705163.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705020.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704996.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704675.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703679.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702491.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700798.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699833.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699580.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698948.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698433.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697509.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697508.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697284.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6AC48D835AC184E8BC20B2197D8AACD07DD1544
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027629   (695922) от 19.06.2016
-
-Гость / Sonnim (2015) HDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695922.jpg" />
-</div>
-
-
-###  Подробнее
-
-После Корейской войны хромой музыкант через всю страну ведет своего маленького сына в Сеул, где, как пообещал ему заезжий лекарь, он сможет вылечить мальчика от туберкулеза. По дороге они случайно забредают в отдаленную деревушку в горах и просят приюта на пару дней. Деревенский староста разрешает им остаться, но, кажется, что он что-то скрывает. Кроме того деревня (   Читать дальше...   )Производство: Южная КореяЖанр: Триллер, Ужасы, ДетективРежиссер: Ким Кван-теАктеры: Рю Сын-рён, Ли Сон-мин, Чон У-хи, Ли Джун, Гу Сын Хён, Ли Сын-джунПеревод: Многоголосый закадровый, любительский  (den904, DeadSno, Izanami, Berserk, Kas, Simon)Субтитры: ОтсутствуютПродолжительность: 01:47:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ADA59A7EFC0DB3893C71A40E8C3E9DFE2558F55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 896192   (695182) от 08.05.2015
-
-Страшная воля богов / Kamisama no iu tori (2014) WEB-DLRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сун Такахата тяготится своей заурядной жизнью, пока однажды в его классе не начинают происходить странные вещи. Школьникам являются загадочные игрушки во главе с куклой Дарума — божеством, приносящим счастье. Загадочные посетители призывают ребят принять участие в играх, цена которым — жизнь. Они подбадривают сомневающихся, рисуя радужные перспективы. Однако в случае отказа от участия им грозит немедленная смерть…Производство: Japan / OLM, Toho Company, Toho PicturesЖанр: ужасы, триллерРежиссер: Такаси МиикеАктеры: Рюноскэ Камики, Сёта Сомэтани, Рири Фуранки, Фукуси Сота, Ацуко Маеда, Хирона Ямадзаки, Дзинги Ириэ, Мио Юки, Нао Омори, Рена ШимураПеревод: профессиональный (полное дублирование) (iTunes Russia)Продолжительность: 01:52:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F583376011CC13E17657C03FCB24CCCED038967
 ```
 
 https://mybot314.ru/tekegram_catalog/

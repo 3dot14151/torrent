@@ -1,32 +1,3 @@
-###  Публикация: 1797598   (66781) от 17.05.2025
-
-Slow Danse With The Dead - Eternl Mourning (2025) Remastered [FLAC|Lossless|WEB-DL|tracks] <Coldwave, Darkwave, Post-Punk>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. He Speaks Too Much (Remastered) [00:03:27]
-02. I Prefer To Be Alone (Remastered) [00:04:28]
-03. Dream Stalker (Remastered) [00:03:31]
-04. If One Coffin Lod Shuts Another Shall Open (Remastered) [00:03:37](   Читать дальше...   )Жанр: Coldwave, Darkwave, Post-PunkПродолжительность: 01:12:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10A7AA4E9E767E077D7A8D8372F8CC2AB4E542C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808086   (65064) от 22.07.2025
 
 Mari Kattman - Year Of The Katt (2025) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Industrial>
@@ -35,7 +6,7 @@ Mari Kattman - Year Of The Katt (2025) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65064.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Erasure - ABBA-Esque (CDM) (1992) 1st UK Press [APE|Lossless|image + .cue] <Synt
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64603.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Pet Shop Boys - Dancing star (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60857.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Depeche Mode - Some Great Reward (1984) 1st German Press [APE|Lossless|image + .
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58750.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Pet Shop Boys - Nonetheless (2024) [FLAC|Lossless|WEB-DL|tracks] <SynthPop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58550.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Pet Shop Boys - Nonetheless (2024) 2CD Special Edition [FLAC|Lossless|image + .c
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58337.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Sky Van Dreamer - Laser Dance & Koto Covers (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57298.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Depeche Mode - Music For The Masses (1987) 1st German Press AAD [APE|Lossless|im
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56786.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Pet Shop Boys - A New Bohemia (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Synth Pop
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54293.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Whole - Hydra (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52023.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Wolfsheim - Discography 7CDs (1992-2003) 1st German Press / Repress [APE|Lossles
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51096.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ VA - Pure Workout, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synt
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50232.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Empire Of The Sun - Ask That God (2024) [FLAC|Lossless|WEB-DL|tracks] <Electroni
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48759.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Ward White - Here Come The Dowsers (2024) [FLAC|Lossless|WEB-DL|tracks] <Power P
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48479.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Kazaky - Like It (Part I) (2014) [WavPack|Lossless|image + .cue] <Synth-pop, Ele
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48175.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Krachtek Elektronik - Oslo Syndrome (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthp
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48173.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Vaylon - A Different Void Of Silence (2024) [FLAC|Lossless|WEB-DL|tracks] <Synth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48172.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Deus Ex Lumina - As Above So Below (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpo
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48170.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Space Purr - X-Meow | Once Upon a Space (2016, 2018) [FLAC|Lossless|WEB-DL|track
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47321.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Duran Duran - Notorious (1986) Remaster, 2024, Rhino [FLAC|Lossless|WEB-DL|track
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45260.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Duran Duran - Notorious (1986) Deluxe Edition, Remaster, 2010, Parlophone Record
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45258.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ Rick Astley - Free (1991) Remaster, 2024,  BMG [FLAC|Lossless|WEB-DL|tracks] <Sy
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44701.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ VA - Spacedance, Vol. 6 (2024) [FLAC|Lossless|WEB-DL|tracks] <Spacedance, Spaces
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44609.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ Galaxy Observer - Through the Solar System (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43978.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ Ashbury Heights - Ghost House Sessions, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|trac
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43798.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ Ashbury Heights - Ghost House Sessions, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3046BC60CDCB53FFA622C43FD5E02942A5377AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751681   (42288) от 26.09.2024
+
+Kraftwerk - The Fairfield Four (UK Broadcast 1975) (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Krautrock, Experimental>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Klingklang [00:10:38]
+02. Tongebirge [00:02:06]
+03. Tanzmusik [00:05:35]
+04. Ruckzuck [00:08:31](   Читать дальше...   )Жанр: Electronic, Krautrock, ExperimentalПродолжительность: 01:10:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7553E96BD2F1DA125C981C4B478EB8FD60B923F
 ```
 
 https://mybot314.ru/tekegram_catalog/

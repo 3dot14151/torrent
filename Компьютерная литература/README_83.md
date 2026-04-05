@@ -1,164 +1,3 @@
-###  Публикация: 1336772   (277167) от 08.11.2019
-
-Бен Симондс | Мастер класс по Blender / Blender Master Class [+ DVD] (2013) [PDF, EPUB, ODT] [Ru/En]
-
->>Компьютерная литература
->>3D графика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Практическое руководство по моделированию, скульптингу, материалам и рендерингу.
-Blender - это мощный и бесплатный инструмент для 3D-графики, используемый художниками и дизайнерами по всему миру. Но даже опытные дизайнеры могут найти его сложным, чтобы превратить идею в нужный результат.
-Для тех, кто хотел узнать как создавать профессиональные проекты в Blender, (   Читать дальше...   )Жанр: 3D моделированиеФормат: PDF, EPUB, ODT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A56D548F78876C3978BE22A00A69AA739F69807
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336948   (277163) от 08.11.2019
-
-Джеймс Кронистер | Основы Blender. Учебное пособие / Blender Basics [4-ое издание по Blender 2.5/2.6] (2011) [PDF] [Ru/En]
-
->>Компьютерная литература
->>3D графика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277163.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джеймс Кронистер написал это учебное пособие, основываясь на своем трёхлетнем опыте преподавания 3D-моделирования и анимации студентам Central Dauphin Hight School. Книга представляет собой готовый курс по трёхмерной компьютерной графике. Каждая глава рассчитана на 2 академических часа и включает теоретическую часть, на базе которой выполняется практическое задание, (   Читать дальше...   )Жанр: 3D моделирование, АнимацияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40E3999536A9276513D3B1822D9D3291F7AF1E45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336907   (277042) от 08.11.2019
-
-Брент Ластер | Jenkins 2. Приступаем к работе (2019) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена Jenkins – программной системе с открытым исходным кодом на Java, предназначенной для обеспечения процесса непрерывной интеграции программного обеспечения. Автор показывает, насколько Jenkins 2 отличается от более традиционных версий этой популярной платформы автоматизации с открытым исходным кодом, предназначенных только для интернета.
-
-Если вы знакомы (   Читать дальше...   )Жанр: Разработка программного обеспечения, Системное администрированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDB8628B63AB6630895E2AA901AA437BC85C3B18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337108   (275895) от 09.11.2019
-
-Джеймс Кронистер | Основы Blender. Учебное пособие / Blender Basics [5-ое издание по Blender 2.78] (2017) [PDF] [En]
-
->>Компьютерная литература
->>3D графика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джеймс Кронистер написал это учебное пособие, основываясь на своем трёхлетнем опыте преподавания 3D-моделирования и анимации студентам Central Dauphin Hight School. Книга представляет собой готовый курс по трёхмерной компьютерной графике. Каждая глава рассчитана на 2 академических часа и включает теоретическую часть, на базе которой выполняется практическое задание, (   Читать дальше...   )Жанр: 3D моделирование, АнимацияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE4F09EA436E1123B979B98B197FB7CDABFCFEDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337140   (275848) от 09.11.2019
-
-Николай Путько | Всё о Blender за 16 уроков (2014) [PDF, DOCX]
-
->>Компьютерная литература
->>3D графика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275848.jpg" />
-</div>
-
-
-###  Подробнее
-
-16 уроков по Blender 2.7x в которых мы рассмотрим: 3D моделирование, текстурирование, риггинг, скининг, анимацию, симуляцию, рендеринг, композитинг. Также мы создадим несколько простых 3D игр прямо в Blender.
-Для прохождения уроков нужны базовые знания по Blender.Жанр: 3D моделирование, АнимацияФормат: PDF, DOCX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:585E84CAEA06ADCBECCE81E8D102448AB2AB6516
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 273682   (274298) от 22.12.2010
-
-Е.В. Филимонова  | 1С: Предприятие 8.1. Управление торговлей. Пошаговый самоучитель по бухгалтерскому учету на компьютере [2010] [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274298.jpg" />
-</div>
-
-
-###  Подробнее
-
-1С: Предприятие 8.1. Управление торговлей. Пошаговый самоучитель по бухгалтерскому учету на компьютере (2010). Пособие предназначено для бухгалтеров, пользователей персональных компьютеров и руководителей фирм, работников складов и кадровых служб, менеджеров предприятий, решающих задачи планирования закупок и продаж, управления поставками, взаиморасчетов с контрагентами, (   Читать дальше...   )Жанр: Обучающий курсФормат: PDFКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91A7F2774F6B8DFAC53098AEBC46F8F90D7D0A0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1188864   (273150) от 03.12.2017
 
 Никита Культин | Основы программирования в Delphi 2010 (+CD) (2010) [PDF]
@@ -167,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273150.jpg" />
 </div>
 
 
@@ -194,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272193.jpg" />
 </div>
 
 
@@ -220,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>2D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271997.jpg" />
 </div>
 
 
@@ -246,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271995.jpg" />
 </div>
 
 
@@ -273,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271985.jpg" />
 </div>
 
 
@@ -299,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271976.jpg" />
 </div>
 
 
@@ -326,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271966.jpg" />
 </div>
 
 
@@ -354,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271904.jpg" />
 </div>
 
 
@@ -380,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271896.jpg" />
 </div>
 
 
@@ -406,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271890.jpg" />
 </div>
 
 
@@ -432,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271874.jpg" />
 </div>
 
 
@@ -458,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270316.jpg" />
 </div>
 
 
@@ -484,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268745.jpg" />
 </div>
 
 
@@ -510,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268716.jpg" />
 </div>
 
 
@@ -536,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268689.jpg" />
 </div>
 
 
@@ -562,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268617.jpg" />
 </div>
 
 
@@ -588,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267887.jpg" />
 </div>
 
 
@@ -614,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267789.jpg" />
 </div>
 
 
@@ -640,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267669.jpg" />
 </div>
 
 
@@ -666,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266800.jpg" />
 </div>
 
 
@@ -677,6 +516,164 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEF8388832E78693662EB29F8346B157B833BDCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190586   (266583) от 10.12.2017
+
+В. Потопахин | Современное программирование с нуля! (2016) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга для тех, кто хочет получить хорошие навыки программирования с использованием языка Компонентный Паскаль - современной версии языка Паскаль. Изложение сопровождается большим количеством примеров, способствующих успешному усвоению материала людьми с различным
+уровнем подготовки – необходимо только желание и терпение. Материал курса представлен в виде последовательности (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39B5856A216860901E5C7DFD326FC9E8216F1290
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191123   (265002) от 12.12.2017
+
+Джеймс Артур /James Arthur | Raspberry Pi. Полное руководство по Raspberry Pi для начинающих / The complete guide to Raspberry Pi for beginners (2017) [EPUB, PDF] [En]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга служит руководством для новичков в мире Raspberry Pi, о разных моделях, как их использовать и каковы их возможности. Из книги вы узнаете о способностях микрокомпьютера Raspberry Pi, какая модель для вас правильная, как настроить свой Pi для использования и как начать работу с вашим первым проектом. Вы откроете для себя различные языки программирования, (   Читать дальше...   )Жанр: Компьютерная литератураФормат: EPUB, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC2943EF12B7EDADEEBDC7D1BBD822CC3A6A8AC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339810   (264542) от 21.11.2019
+
+Гарет Халфакри | BBC micro:bit. Официальное руководство пользователя (+file) (2020) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Микрокомпьютер BBC micro:bit был разработан корпорацией BBC совместно с крупными технологическими компаниями, сообществами и образовательными организациями для того, чтобы предоставить детям интересный, практичный и недорогой способ изучения программирования. Несмотря на свою простоту и доступность, эта плата обладает огромным потенциалом, а благодаря широкой совместимости (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B681EE6BB4560C61BFCA35CC260CE68D399A9886
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339760   (264500) от 21.11.2019
+
+Крис Бернхард | Квантовые вычисления для настоящих айтишников (2020) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264500.jpg" />
+</div>
+
+
+###  Подробнее
+
+Квантовые вычисления для настоящих айтишников — Квантовые вычисления часто упоминаются в новостях: Китай телепортировал кубит с Земли на спутник; алгоритм Шора поставил под угрозу ныне используемые методы шифрования; квантовое распределение ключей снова сделает шифрование надежным средством защиты; алгоритм Гровера увеличит скорость поиска данных.
+Но что все это (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E32F470D7E86FFB0823695E63A0C9D0C0755F47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340332   (263876) от 23.11.2019
+
+Джеймс Бони | Руководство по Cisco IOS (2008) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263876.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом удобном руководстве, состоящем из двух частей, рассматривается конфигурация IOS (Internetwork Operating System) для семейства протоколов TCP/IP. В первый раздел входят главы, посвященные пользовательскому интерфейсу, настройке линий и интерфейсов, спискам доступа, протоколам маршрутизации, маршрутизации вызовов по запросу и безопасности. Практические руководства (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C6B78FFBED047DE279544EC11BB61C33E0C7804
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191814   (263699) от 15.12.2017
+
+А.Г. Дубина и др. | MS Excel в электротехнике и электронике (2001) [DJVU]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга является практическим руководством по разработке и реализации в среде Excel 97/2000 расчетных решений, предназначенных для автоматизации расчетов различных характеристик электрических цепей и их узлов, электронных устройств и компонентов. На прилагаемой дискете находятся готовые к использованию XLS-файлы, с помощью которых читатели смогут выполнять расчеты (   Читать дальше...   )Жанр: Компьютерная литератураФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:255D0CC53C5E5A01EDF081684E8D8F87B30CF1FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

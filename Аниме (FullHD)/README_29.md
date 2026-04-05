@@ -6,7 +6,7 @@ Slow Loop | Медленная петля [2022, TV, 12 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579949.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Evangelion Shin Gekijouban: Ha / Evangelion 2.22: You Can (Not) Advance / Ева
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579501.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Evangelion Shin Gekijouban: Jo / Evangelion 1.11: You are (not) alone / Еван
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579428.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Uchi no Maid ga Uzasugiru! | UzaMaid! | Наша служанка слишком
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578116.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ DMC | Detroit Metal City | Detroit Metal City: The Animated Series | Детро�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576895.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Gekijouban Ao no Exorcist / Ao no Exorcist The Movie / Синий Экзорци
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576794.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Gin no Saji (2014) / Silver Spoon (2014) / Серебряная ложка [ТВ
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576338.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Shirokuma Cafe | Polar Bear Cafe | Кафе «У Белого Медведя» [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574323.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Kuroko no Basuke / Kuroko's Basketball / Баскетбол Куроко [ТВ-1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573990.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Bubble | Пузырь [2022, ONA] WebRip 1080p raw+eng
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573815.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Kokkoku | Миг за мигом [2018, TV, 12 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572727.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Kujira no Kora wa Sajou ni Utau | Children of the Whales | В песках по�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572620.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka Gaiden: Sword Oratoria |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572307.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Basquash! | Баскваш! [2009,TV, 26] BDrip 1080p Hi10P raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566987.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Next A-Class [2012, ONA] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566868.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Release the Spyce | Освобождение шпионов [2018, TV, 12 эп.]
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565418.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Soushin Shoujo Matoi | Matoi the Sacred Slayer | Матой: Изгоняюща�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565390.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Hamatora The Animation | Хаматора [2014, TV, 12] BDrip 1080p HEVC Hi10p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565047.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Reply Hamatora | Re: Hamatora | Re: Хаматора [2014, TV, 12] BDrip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565031.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565018.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Seishun Buta Yarou wa Bunny Girl Senpai no Yume o Minai | Rascal Does Not Dream 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564993.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Youjo Senki: Saga of Tanya the Evil | Военная хроника малень
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564728.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Shirogane no Ishi: Argevollen | Аргеволлен: Серебряная мо�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563246.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Re-Kan! | Ре-Кан! [2015, TV, 13] BDrip 1080p HEVC Hi10p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563111.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Nisekoi: | Притворная Любовь 2 [ТВ-2][2015, TV, 12 эп. + 2 O
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561285.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Nisekoi | Nisekoi: False Love | Притворная любовь | Любовь
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561270.jpg" />
 </div>
 
 

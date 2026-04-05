@@ -6,7 +6,7 @@ PBS. Природа - Дом животных / Nature - The Animal House (2007)
 >>PBS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749733.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ BBC: Горькое озеро / Bitter Lake (2015) Web-DLRip [H.264/720p] [EN /
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_749620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749620.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ BBC: Сокрытые миры / Hidden Kingdoms (2014) BDRip [H.264/1080p] (С�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749094.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ BBC. Horizon: Как дожить до 101 года? / How to live to 101? (2008
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748662.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ BBC: Величайшие явления природы / Nature's Great Events 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748586.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ BBC: Загадки истории. Век полетов: Легенды мир
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748583.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ BBC: Глубина / Deep Blue (2003) [720p]BDRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748582.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ NG: Спасти Титаник с Бобом Баллардом / Save the Tita
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748459.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ NG: Осушить океан. Титаник / The Drain Titanic (2015) HDTV [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748187.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748153.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ NG: Китайская мегагробница. Секреты терракот
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748126.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748068.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ History Channel. Боссы мафии / Kingpin (2018) HDTVRip [H.264/720p-LQ] 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747936.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ History Channel. Боссы мафии / Kingpin (2018) HDTVRip (1-4 серия 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747834.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747830.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ BBC: Жизнь на земле / Life on Earth (1979) BDRip [H.264/720p-LQ] (Э
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747488.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ BBC: Белый медведь - Шпион во льдах / BBC: Polar Bear - 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747055.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ BBC: Что такое свет / Light Fantastic (2004)
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746588.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746533.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746254.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746250.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745900.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ NGW: Смертоносная Африка. Побережья / Africa's Deadly
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745230.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Discovery. Легендарные места / Legendary Locations (2018) HDTVRi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745168.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Animal Planet: Животный мир Дубая / Wild Dubai (2018) HDTVRip [H
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745154.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ BBC: Свет и Тьма / BBC: Light and Dark (2013) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745130.jpg" />
 </div>
 
 

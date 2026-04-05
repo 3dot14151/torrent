@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058167.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057478.jpg" />
 </div>
 
 
@@ -59,40 +59,13 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057244.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Очередное достижение: 3000 релизов от LORDKILL!!Уважаемые одноклубники, в преддверии Дня Защитника Отечества рада сообщить Вам о возможности поздравить нашего товарища и активного релизера фильмов, мультфильмов, а также hand made * video (что само по себе очень трудоемкий процесс!!) с преодолением очередного рубежа в  3000 релизов!! Ждем очередных достижений)) Так (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854508   (1057243) от 19.02.2026
-
-Первое достижение: 1000 релизов от adguard
-
->>След.
->>Поздравления
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057243.jpg" />
-</div>
-
-
-###  Подробнее
-
- Первое достижение: 1000 релизов от adguard Дорогие друзья и гости клуба...Все мы знаем, как в последние годы вырос спрос на всякого рода репаки и сборки ПО. К сожалению на этом фоне безумства теряются истинные приверженцы оригинального софта.
-И вот когда заходит речь об официальном релизе Операционной Системы Windows, то каждый раз добрым словом вспоминаю нашего (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -112,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053866.jpg" />
 </div>
 
 
@@ -139,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050728.jpg" />
 </div>
 
 
@@ -166,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049273.jpg" />
 </div>
 
 
@@ -192,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953521.jpg" />
 </div>
 
 
@@ -222,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_851973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_851973.jpg" />
 </div>
 
 
@@ -249,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_792910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_792910.jpg" />
 </div>
 
 
@@ -276,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_791148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_791148.jpg" />
 </div>
 
 
@@ -302,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_751900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_751900.jpg" />
 </div>
 
 
@@ -332,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_751756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_751756.jpg" />
 </div>
 
 
@@ -360,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_659899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_659899.jpg" />
 </div>
 
 
@@ -386,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_655127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_655127.jpg" />
 </div>
 
 
@@ -413,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_590913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_590913.jpg" />
 </div>
 
 
@@ -439,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_579935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_579935.jpg" />
 </div>
 
 
@@ -465,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_578775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_578775.jpg" />
 </div>
 
 
@@ -491,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_446799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_446799.jpg" />
 </div>
 
 
@@ -520,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_394598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_394598.jpg" />
 </div>
 
 
@@ -546,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_358866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_358866.jpg" />
 </div>
 
 
@@ -574,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236145.jpg" />
 </div>
 
 
@@ -602,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191537.jpg" />
 </div>
 
 
@@ -631,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151865.jpg" />
 </div>
 
 
@@ -657,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56061.jpg" />
 </div>
 
 
@@ -684,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56045.jpg" />
 </div>
 
 
@@ -692,6 +665,32 @@ https://mybot314.ru/tekegram_catalog/
 
 Друзья! Снова в эфире — "Свежие новости с полей": В нашем Клубе еще одно достижение – 2000 релизов от Канск!
 Поздравляем Канск с этим достижением, благодарим его за труды ратные и потраченное время. Желаем творческого вдохновения и гигабайты интересного материала для создания новых, "вкусных" релизов!(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750506   (42941) от 20.09.2024
+
+Первое достижение: 1000 релизов от RGplanB
+
+>>След.
+>>Поздравления
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42941.jpg" />
+</div>
+
+
+###  Подробнее
+
+ Первое достижение: 1000 релизов от RGplanB Дорогие друзья и гости клуба...Хотелось бы отметить первое значительное достижение Релиз Группы: План Б (надеюсь правильно расшифровал ник). Ещё год назад, будучи неизвестными, они пришли на трекер в поиске славы и внимания. Прошли обиды и недопонимания, разногласия и многое другое, что вставало и возможно не единожды ещё (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

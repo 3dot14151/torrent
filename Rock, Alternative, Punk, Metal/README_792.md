@@ -1,3 +1,32 @@
+###  Публикация: 1838292   (260068) от 22.11.2025
+
+Treat - The Wild Card (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic-Hard-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out With a Bang (4:08)
+02. Rodeo (3:54)
+03. 1985 (4:02)
+04. Endeavour (4:20)(   Читать дальше...   )Жанр: Melodic-Hard-RockПродолжительность: 00:52:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50722107A5C81399E95307CF8C6F6EC489C622FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1838366   (260067) от 22.11.2025
 
 Cassidy Paris - Bittersweet (2025) [ FLAC 24/44.1, 48|Lossless|WEB-DL|tracks] <Hard-Rock>
@@ -6,7 +35,7 @@ Cassidy Paris - Bittersweet (2025) [ FLAC 24/44.1, 48|Lossless|WEB-DL|tracks] <H
 >>Hard Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260067.jpg" />
 </div>
 
 
@@ -33,7 +62,7 @@ Regina Spektor - What We Saw From The Cheap Seats (2012) [FLAC (tracks+cue)|Loss
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259974.jpg" />
 </div>
 
 
@@ -62,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259890.jpg" />
 </div>
 
 
@@ -97,7 +126,7 @@ Kiss - Alive! (Live) (1975) Remaster, 2025, UMe Direct 2 [FLAC 24/96|Lossless|WE
 >>Hard Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259867.jpg" />
 </div>
 
 
@@ -126,7 +155,7 @@ Papa Roach - Сollection (1997 - 2022) 17 CD [FLAC|Lossless|tracks + .cue] <Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259858.jpg" />
 </div>
 
 
@@ -156,7 +185,7 @@ Def Leppard - Diamond Star Heroes Live From Sheffield (2025) Live [FLAC 24/48|Lo
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259842.jpg" />
 </div>
 
 
@@ -185,7 +214,7 @@ The Itch - Spreading Like Wildfire (2012) [FLAC|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259804.jpg" />
 </div>
 
 
@@ -220,7 +249,7 @@ Deep Jimi And The Zep Creams - Funky Dinosaur (1992) [FLAC|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259803.jpg" />
 </div>
 
 
@@ -255,7 +284,7 @@ Maribel - Reveries (2012) [MP3|256 кб/с]<Shoegaze Indie-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259797.jpg" />
 </div>
 
 
@@ -289,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259666.jpg" />
 </div>
 
 
@@ -315,7 +344,7 @@ Geoff Achison & The Souldiggers - Little Big Men (2005) Remastered / 2012, Jupit
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259593.jpg" />
 </div>
 
 
@@ -350,7 +379,7 @@ Andwella - World's End (1970) & People's People (1971) Remastered /2002, Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259355.jpg" />
 </div>
 
 
@@ -385,7 +414,7 @@ Pee Wee Bluesgang - Our Blue Side (1979) - Our Blue Side /2003, Sireena Records/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259322.jpg" />
 </div>
 
 
@@ -419,7 +448,7 @@ Disappears - Pre Language (2012) [MP3|320 кб/с]<Post-Rock, Alternative>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259267.jpg" />
 </div>
 
 
@@ -453,7 +482,7 @@ Royal Thunder - CVI (2012) [MP3|320 кб/с]<Psych Stoner Southern Hard Rock / F
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259059.jpg" />
 </div>
 
 
@@ -488,7 +517,7 @@ Cuzo - Alquimia Para Principiantes (2012) [MP3|320 кб/с]<Psychedelic Stoner R
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259023.jpg" />
 </div>
 
 
@@ -521,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259008.jpg" />
 </div>
 
 
@@ -550,7 +579,7 @@ Chris Rea - Hofner Blue Notes (2003) [FLAC|Lossless]<Rock, Blues, Louisiana Blue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258861.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258853.jpg" />
 </div>
 
 
@@ -620,7 +649,7 @@ Mekong Delta - Intersections (2012) [FLAC|Lossless]<Progressive Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258748.jpg" />
 </div>
 
 
@@ -655,7 +684,7 @@ Mekong Delta - Intersections (2012) [MP3|320 кб/с]<Progressive Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258732.jpg" />
 </div>
 
 
@@ -690,7 +719,7 @@ Dumbsaint - Something That You Feel Will   Find Its Own Form (2012) [MP3|320 к�
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258702.jpg" />
 </div>
 
 
@@ -723,7 +752,7 @@ VA - Return To The Dark Side Of The Moon - A Tribute To Pink Floyd (2006) Limite
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258648.jpg" />
 </div>
 
 
@@ -758,7 +787,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258482.jpg" />
 </div>
 
 
@@ -793,7 +822,7 @@ The Rolling Stones - 8 альбомов (1971 - 1981) Remastered, Collector's Ed
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258150.jpg" />
 </div>
 
 
@@ -813,35 +842,6 @@ The Rolling Stones - 8 альбомов (1971 - 1981) Remastered, Collector's Ed
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838223   (258007) от 21.11.2025
-
-Sainted Sinners - High On Fire (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crown of Thorns (5:38)
-02. Out of the Blue (4:07)
-03. Night After Night (4:18)
-04. Sunshine (3:55)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79B825485986D3AB9E234837997592A953DAF7F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

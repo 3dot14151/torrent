@@ -1,3 +1,57 @@
+###  Публикация: 535182   (517461) от 15.08.2012
+
+CorelDRAW Graphics Suite X6 16.1.0.843 (x32/x64) [Русский/Английский]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517461.jpg" />
+</div>
+
+
+###  Подробнее
+
+CorelDRAW Graphics Suite X6 — надежное программное решение для графического дизайна, которое подойдет как начинающим, так и опытным пользователям. Пакет включает в себя среду с обширным контентом и профессиональные приложения для графического дизайна, редактирования фотографий и веб-дизайна. С ним вы получите безграничные возможности, чтобы проявить себя и реализовать ваши творческие идеи. Встроенная справка, обучающие видеоматериалы и профессиональные шаблоны помогут вам быстро освоиться с программами пакета. Затем вы сможете с уверенностью создавать все что угодно — например, впечатляющие логотипы и вывески, веб-сайты и элементы веб-графики, афиши, декоративные наклейки для автомобилей, буклеты и многое другое!
+
+(   Читать дальше...   )Название программы: CorelDRAW Graphics Suite X6Язык интерфейса: Русский/Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929586   (517207) от 21.08.2015
+
+Erica - новый фотореалистичный робот-андроид профессора Хироши Ишигуро
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_517207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессор из университета Осаки Хироши Ишигуро (Hiroshi Ishiguro) получил широкую известность в мире робототехники благодаря созданным им и его группой фотореалистичным роботам-андроидам серии Geminoid, Kodomoroid, Otonaroid и другим. Каждое творение профессора Ишигуро становится все реалистичней и обретает дополнительные способности, увеличивающие его сходство с (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 929742   (516910) от 21.08.2015
 
 Destroy Windows 10 Spying 1.5 Build 295 Hot Fix [Multi/Ru]
@@ -6,7 +60,7 @@ Destroy Windows 10 Spying 1.5 Build 295 Hot Fix [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516910.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Geekbrains | Вебинары (2014-2015) PCRec [H.264] (Часть 1)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516896.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516895.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ UltraISO Premium Edition 9.6.5.3237 DC 22.07.2015 RePack by VIPol [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516893.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ Full Metal Panic! Invisible Victory | Fullmetal Panic! Invisible Victory | Ст�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516873.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516749.jpg" />
 </div>
 
 
@@ -167,7 +221,7 @@ Aquadelic GT / Powerboat GT / Акваделик: Быстрее торпеды!
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516748.jpg" />
 </div>
 
 
@@ -193,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516426.jpg" />
 </div>
 
 
@@ -219,7 +273,7 @@ VA - Лучшие Танцевальные Хиты 90-х (1993 - 1998) [FLAC|Lo
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516368.jpg" />
 </div>
 
 
@@ -245,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515929.jpg" />
 </div>
 
 
@@ -278,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515916.jpg" />
 </div>
 
 
@@ -304,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515890.jpg" />
 </div>
 
 
@@ -332,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515745.jpg" />
 </div>
 
 
@@ -359,7 +413,7 @@ eWeather HD v7.9.5 Premium [Ru/Multi] - погода, качество возд�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515699.jpg" />
 </div>
 
 
@@ -385,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515415.jpg" />
 </div>
 
 
@@ -411,7 +465,7 @@ The Amazing Spider-Man / Новый Человек-паук [Ru/En/Multi6] (Loss
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515306.jpg" />
 </div>
 
 
@@ -438,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_515001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_515001.jpg" />
 </div>
 
 
@@ -464,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_514997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_514997.jpg" />
 </div>
 
 
@@ -490,7 +544,7 @@ Acronis True Image 2019 Build 13660 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514729.jpg" />
 </div>
 
 
@@ -516,7 +570,7 @@ Disturbed - 6albums + 1EP +7singles (2000-2015) [MP3|320kbps] <Alternative Metal
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514652.jpg" />
 </div>
 
 
@@ -544,7 +598,7 @@ Winamp Pro 5.666 Build 3516 Final Repack by elchupacabra (22.08.2015) [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514634.jpg" />
 </div>
 
 
@@ -570,7 +624,7 @@ Endless Space - Emperor Special Edition [Ru] (Repack/1.0.14) 2012 | R.G. Element
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514219.jpg" />
 </div>
 
 
@@ -596,7 +650,7 @@ Kaspersky Internet Security 2013 13.0.1.4190 RC [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514190.jpg" />
 </div>
 
 
@@ -624,7 +678,7 @@ CorelDRAW Graphics Suite X6 16.1.0.843 SP1 RePack by MKN [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514174.jpg" />
 </div>
 
 
@@ -637,62 +691,6 @@ CorelDRAW Graphics Suite X6 — надежное программное реше
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 535927   (514169) от 18.08.2012
-
-Microsoft Visual Studio 2012 - Оригинальные образы MSDN [Eng]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514169.jpg" />
-</div>
-
-
-###  Подробнее
-
-Visual Studio Ultimate 2012 — это передовое решение для разработки, позволяющее командам любого размера проектировать и создавать привлекательные приложения, которые удовлетворят самым взыскательным требованиям заказчиков.
-Вы можете использовать инструменты гибкого планирования — такие как планирование объема работ, панели задач и управление невыполненной работой — для внедрения методов последовательной разработки и применения гибких методологий в удобном для вас темпе.
-Используйте расширенные средства моделирования, обнаружения и проектирования архитектуры, чтобы описать свою систему и обеспечить полную реализацию вашей концепции архитектуры.
-Добейтесь взаимодействия между командами разработчиков и операторов с помощью таких программных средств, как IntelliTrace в производственной среде, Operations Manager Connector и Preemptive Analytics.
-Повышайте качество и сокращайте время устранения неполадок путем создания ошибок из развернутого программного обеспечения, включающих конкретный перечень действий, и обеспечивайте (   Читать дальше...   )Название программы: Microsoft Visual Studio Ultimate 2012Язык интерфейса: English
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB56C93EC0A2901F620A76CCBCB829AED7D75216
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 374906   (514126) от 13.08.2011
-
-Ложь путинского режима - 2 (2011) TVRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный TVRip сборник, состоит из 12 короткометражных документальных фильмов, раскрывающих и показывающих правду о годах правления В.В.Путина.Жанр: Документальный, ТелепередачаПродолжительность: 00:50:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:460887FA67F43F1C7B795645B06590CE035E25B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

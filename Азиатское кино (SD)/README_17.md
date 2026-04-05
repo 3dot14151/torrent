@@ -1,3 +1,81 @@
+###  Публикация: 1379730   (837464) от 30.04.2020
+
+Чёрные священники / Geomeun sajedeul / The Priests / Black Priests (2015) HDTVRip [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Святой отец Ким ищет помощника для проведения обряда изгнания демона, вселившегося в тело школьницы. Выбор падает на диакона Чхве. Однако ему не даёт покоя то, что много лет назад случилось с его сестрой. Второй экзорцист обязан посмотреть в лицо своим страхам, чтобы помочь священнику спасти одержимую, и самому не попасться на удочку демона.Производство: Южная Корея, Zip Cinema, CJ E&M Film Financing & Investment Entertainment & Comics, CJ EntertainmentЖанр: Триллер, криминал, детектив, мистикаРежиссер: Чан Дже ХёнАктеры: Кан Дон-вон, Ким Юн-сок, Пак Со-дам, Пак Ун, Ким И-сон, Ким Бён-ок, Чо Су-хян, Чон Ха-дам, Сон Джон-хак, Ли Хо-джэПеревод: Многоголосый любительский (GREEN TEA)Субтитры: Английские - отдельным файломПродолжительность: 01:48:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17E45960013C23052D7F61D04972B11ED0937127
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501331   (836406) от 09.10.2021
+
+Одиночка / Da Xue Dong Zhi / A Loner (2017) WEB-DLRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пожилая жительница пекинских окраин Вэй Дасюэ ведёт уединённый образ жизни. Единственные её собеседники — собака, соседи и квартирант. Дни проходят в ожидании приезда дочери и внука, которые живут далеко в Шанхае и радуют одинокую старушку разве что телефонными звонками.Производство: Китай, Yourpet Pictures, Deijing Big Box Pictures Co., LtdЖанр: ДрамаРежиссер: Син СяоАктеры: Чжу Сицзюан, Го Чжи, Чжан Тун, Ли Цзиньдоу, Чжао ВаньюйПеревод: Одноголосый любительский (Franek Monk)Субтитры: Английские, китайские - hardsub (неотключаемые)Продолжительность: 01:28:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3968553D8632AD5035A8C0F948DF370304E63CD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380271   (834630) от 02.05.2020
+
+Эротическая история призраков 4: Идеальная пара / Liu jai yim tam ji yau kau / Erotic Ghost Story: Perfect Match (1997) DVDRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834630.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обитатели Небес не имеют права спускаться на Землю надолго, но одна из Фей-Кроликов Небесной Властительницы, устав от постоянного нахождения в четырех стенах ее сада, решается на побег. На земле она успевает даже выйти замуж, а когда ее настигает небесный посланник Йе, не сдается на милость своей владычицы, а опять убегает. Императрица, не желая терпеть такого поведения (   Читать дальше...   )Производство: Гонконг / State Billion, World Perfect Production Co., Ltd.Жанр: ДрамаРежиссер: Йи-хунг ЛинАктеры: Тереза Мак, Кэм Фанг Миу, Элвис Цуй, Йут Феи Вон, Вонг Лэй, Цуй Кам-Конг, Хо Пак-Квонг, Чуй Бо-Лунь, Чун Бин-ЧанПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:27:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2052C0FF415AA826B9AA74297D5707004EA1EA4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 309899   (833580) от 20.03.2011
 
 Детектив Ди и тайна призрачного пламени / Detective Dee and the Mystery of the Phantom Flame / Di Renjie (2010) HDRip
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833580.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833537.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833465.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832864.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832696.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832621.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832538.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832531.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831960.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830000.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829501.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827884.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826615.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826510.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_826140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_826140.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824691.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824226.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822822.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822514.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_822151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822151.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821209.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820789.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820677.jpg" />
 </div>
 
 
@@ -590,84 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B467350BDA8F2D02307FEB44C93930E210C2D83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382270   (820605) от 10.05.2020
-
-Притворная любовь / Nisekoi / Nisekoi: False Love (2018) HDRip [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старшеклассник Раку Итидзё — единственный сын главаря банды якудза. Но парень, в отличие от отца, не выносит насилия, много учится и мечтает стать госслужащим. Однажды в школе он знакомится с новенькой — Титогэ Кирисаки, которая является единственной дочерью лидера соперничающей банды якудза. Вместе Раку и Титогэ решают сохранить мир между своими отцами и притвориться, (   Читать дальше...   )Производство: Япония / Aniplex, Chubu-nippon Broadcasting Company (CBC), Fine EntertainmentЖанр: Драма, комедия, мелодрамаРежиссер: Хаято КаваиАктеры: Кэнто Накадзима, Марика Мацумото, Аями Накадзё, Нацуми Икэма, Харука Симадзаки, Марк Чиннери, Каэдэ Аоно, Томоми Маруяма, Син Такума, ГэнкинПеревод: Двуголосый любительский (XDUB DORAMA & КОЛОБОК)Субтитры: Английские - отдельными файламиПродолжительность: 01:56:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA819C8CCF49E16D8A9984C613904C7F35D58241
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196430   (820421) от 04.01.2018
-
-Воины кунг-фу / Warriors of Kung Fu (1982) VHSRip [AVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ради облания мечом, банда злостного мастера кунг-фу убивает даосского мастера. А его маленьким сыновьям вырывают одному язык, другому выкалывают глаза. Сыновья учатся у разных даосских монахов. И потом решают отмстить всей банде, вместе с девушкой, которая также натерпелась боли от этой бандыПроизводство: Корея ЮжнаяЖанр: Боевик, ПриключенияРежиссер: Годфри ХоАктеры: Казанова Вонг, Тони Квок, Билли Юэнь, Ким Ин ЖуПеревод: Авторский одноголосый (Михаил Иванов)Субтитры: отсутствуютПродолжительность: 01:27:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FD719FB9CD2D467A1D345CAAA55A20940198BEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503106   (819391) от 19.10.2021
-
-Найди меня / Bring Me Home / Nareul chajajwo (2019) HDRip [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Через шесть лет после того, как у Чун-Ён пропал без вести сын, она все еще не потеряла надежды найти его. Даже после несчастного случая с ее мужем, находясь в трауре, утопая в отчаянии от своих потерь, она не сдается. Как раз в тот момент, когда все кажется ей напрасным, она узнаёт о маленьком мальчике, живущем в рыбацкой деревне, который, кажется, похож на ее потерянного (   Читать дальше...   )Производство: Корея Южная / 26 CompanyЖанр: драма, триллер, детективРежиссер: Ким Сын-уАктеры: Ли Ён-э, Ю Джэ-мён, Пак Хэ-джун, Ли Вон-гын, Хо Дон-вон, Пэк Чу-хи, Чин Ю-ён, Чон Э-хва, Ким Джон-су, Ли Хан-на и др.Перевод: Профессиональный двуголосый (ViruseProject)Язык озвучки: Русский, корейскийСубтитры: Русские, английские (отдельно)Продолжительность: 01:48:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:983772BE9A0079F665101159FBE5C14E135CC0D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

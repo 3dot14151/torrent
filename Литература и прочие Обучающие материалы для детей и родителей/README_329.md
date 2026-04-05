@@ -1,3 +1,55 @@
+###  Публикация: 730911   (302488) от 05.12.2013
+
+Л. Воронкова | Синее облачко (1954) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник рассказов Любови Воронковой, изданный в серии «Библиотечка детского сада».Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D129668F71DC88F465BEA540991EA8E3CAFE448
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 730691   (302486) от 05.12.2013
+
+Л. Воронкова | Солнечный денёк (1948) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Таня прошла через двор к палисаднику. Возле сирени на самом солнцепёке росли в палисаднике весёлые цветы мальвы. Таня подняла голову к розовым бутонам, – как они высоко растут! – взялась рукой за шершавый стебель; стебель покачнулся, и капелька росы из алого цветка упала ей прямо на лицо....Жанр: Детская литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0C71825111FB5772055C411A032EEEF2444D4AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 730726   (302472) от 05.12.2013
 
 Гектор Мало | Без семьи (2005) [FB2]
@@ -6,7 +58,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302472.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302398.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302212.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302132.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302095.jpg" />
 </div>
 
 
@@ -143,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301888.jpg" />
 </div>
 
 
@@ -171,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301757.jpg" />
 </div>
 
 
@@ -198,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301500.jpg" />
 </div>
 
 
@@ -227,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301422.jpg" />
 </div>
 
 
@@ -254,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301415.jpg" />
 </div>
 
 
@@ -281,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301195.jpg" />
 </div>
 
 
@@ -307,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300985.jpg" />
 </div>
 
 
@@ -333,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300948.jpg" />
 </div>
 
 
@@ -361,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300939.jpg" />
 </div>
 
 
@@ -387,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300754.jpg" />
 </div>
 
 
@@ -413,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300615.jpg" />
 </div>
 
 
@@ -439,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300537.jpg" />
 </div>
 
 
@@ -465,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300470.jpg" />
 </div>
 
 
@@ -491,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300468.jpg" />
 </div>
 
 
@@ -517,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300460.jpg" />
 </div>
 
 
@@ -543,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300343.jpg" />
 </div>
 
 
@@ -570,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300328.jpg" />
 </div>
 
 
@@ -596,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300320.jpg" />
 </div>
 
 
@@ -622,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300284.jpg" />
 </div>
 
 
@@ -633,59 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFF9A1E3804A8407E37A731856CA7948440AFD88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423540   (300241) от 13.11.2020
-
-Джилл Барклем | Сказки и истории Ежевичной поляны (2017) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джилл Барклем приглашает вас на Ежевичную поляну! Здесь, на другой стороне ручья, за полем, среди корней и в старых стволах деревьев живут милые мышки, с которыми происходят разные истории.
-Познакомьтесь с их друзьями, забирайтесь с ними в подземные ходы, проплывите на лодке, отправляйтесь в горы, находите таинственные потайные лестницы и весело встречайте праздники!Жанр: Детская литература/Сказки народов мираПеревод: Н. В. ВиноградоваФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCEDB3F0722D311D839D33576267938AE86DC110
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 730963   (300151) от 06.12.2013
-
-Анна Антонова | Бал под пальмами (2007) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Какая девчонка не мечтает попасть на самый настоящий бал? Аня тоже мечтала. Но не просто так – ведь ее танцевальная студия приехала на летние сборы в приморский лагерь. И скоро состоится главное событие смены – знаменитый "Бал под пальмами". Но пригласят на него только лучшие пары. К сожалению, партнер Ани далек от совершенства, а потому ни один танец у них не получается как надо… Девчонка уже почти потеряла надежду выступить на балу, когда в студии появился новый парень. Симпатичный, уверенный в себе, классный танцор! Вот только у него есть своя партнерша. Так что они просто идеальная пара. Или это только так кажется?..Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B0AA15B3AB9A499EB3F274101C9BDA465195375
 ```
 
 https://mybot314.ru/tekegram_catalog/

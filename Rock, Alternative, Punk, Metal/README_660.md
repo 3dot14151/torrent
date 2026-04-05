@@ -1,3 +1,32 @@
+###  Публикация: 1574044   (407550) от 03.09.2022
+
+Birth Control - Open Up (2022) [FLAC|Lossless|image + .cue] <Prog Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407550.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Gamma Ray 2.0
+2. The Last Word
+3. Wrestling Mama
+4. Open Sesame(   Читать дальше...   )Жанр: Prog Rock, Hard RockПродолжительность: 00:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46ED067A95CBDB7CC533BB86A15EBE1F89AAB6C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573920   (407549) от 03.09.2022
 
 Аясын Салхи - Coffin Town Under the Moon (2004) 2021, Metal Race [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
@@ -6,7 +35,7 @@
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407549.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407545.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Aquaria - Alethea (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407541.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407538.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Mad Max - Wings Of Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407534.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407511.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407495.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ King's X - Three Sides Of One (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407491.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407434.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Arc Gotic - 4 Альбома (1994-2008) [MP3|320 кб/с]<Post-punk/New wave/In
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407402.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ Liam Gallagher - Why Me? Why Not. (2019) Deluxe Edition [MP3|320 Kbps] <Indie Ro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407370.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Trilogy - Here It Is (1980) Reissue CD, 2009, MALS [MP3|320 Kbps] <Electronic, P
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407266.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ My Dying Bride - A Map Of All Our Failures (2012) [MP3|320 кб/с]<Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407255.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407236.jpg" />
 </div>
 
 
@@ -413,7 +442,7 @@ King Moon And The Purple Tongues - The Golden Giant (2020) [MP3|320 Kbps] <Stone
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407231.jpg" />
 </div>
 
 
@@ -442,7 +471,7 @@ Corey Taylor - CMFT (2020) [FLAC|24/48|Lossless|WEB-DL|tracks] <Alt. Rock, Hard 
 >>Hard Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407186.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ The Tea Party - 16 albums, 21CD (1991-2015) [FLAC|Lossless|tracks + .cue] <Prog 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407178.jpg" />
 </div>
 
 
@@ -500,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407167.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ Slade - Cum On Feel the Hitz: The Best of Slade (2020) [FLAC|Lossless|WEB-DL|tra
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407128.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ Kogai - Hagakure (2007) [FLAC|Lossless|image + .cue] <Progressive Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406836.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ Iron Angel - Emerald Eyes (2020) [FLAC|Lossless|WEB-DL|tracks] <Speed, Heavy, Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406835.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ The Feather - ROOM (2020) [FLAC|Lossless|tracks + .cue] <Alternative>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406834.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ Tygers Of Pan Tang - Ambush (2012) Remastered Edition, 2020, Mighty Music [FLAC|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406833.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ Yusuf / Cat Stevens - Tea for the Tillerman² (2020) [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406829.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ Roger Waters - Us + Them (2020) Live, 2CD [FLAC|Lossless|tracks + .cue] <Art Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406799.jpg" />
 </div>
 
 
@@ -718,35 +747,6 @@ CD2 - 00:55:55
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:570BAE72CEED600FA74A85A90C962E8CC4C14E35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412831   (406735) от 06.10.2020
-
-Leo Moracchioli - 31 Albums (2014-2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406735.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Poker Face (Metal Version) 3:32
-2. Rolling In The Deep (Metal Version) 3:46
-3. Stayin´ Alive (Metal Version) 3:16
-4. U Cant´t Touch This (Metal Version) 2:56(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 20:04:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80E276522185566F266235E4D07A489006E0EDCF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ PC Football 2007 / Лига чемпионов. Футбол (2006) [Ru] (1.6) L
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338402.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NBA 2K18 (2017) [En] (1.0) License CODEX
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334768.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mutant Football League (2018) [En] (1.8.0/dlc) License GOG [Dynasty Edition]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322541.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Football Manager 2019 (2018) [Ru/Multi] (19.1.1/dlc) Repack Other s
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311059.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Football Manager 2019 (2018) [Ru/Multi] (19.1.1) Repack xatab
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311057.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Pure Pool - Snooker pack (2015) [Ru/Multi] (1.05) License POSTMORTEM
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309010.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Handball 16 (2015) [Multi] (1.0.0.2) License CODEX
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306653.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ NBA 2K15 (2014) [En/Ml] (1.0/u2) Repack R.G. Games
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285808.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Pro Evolution Soccer 2019 (2018) [Ru/Multi] (1.0) License CPY
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276074.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ NBA 2K19 (2018) [Multi] (1.05) Repack xatab
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276066.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Pro Evolution Soccer 2019 (2018) [Ru/En] (1.02.00) Repack xatab
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275936.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Infinite Air with Mark McMorris (2016) [En] (1.0) License SKIDROW
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275426.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Pro Basketball Manager 2019 (2018) [Multi] (1.10) License CODEX
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273991.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Sensible Soccer 2006 (2006) [En] (1.0) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273100.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ NBA 2K Playgrounds 2 (2018) [Ru/Multi] (1.2.0.0/dlc) Repack Let'sРlay
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261549.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Lonely Mountains: Snow Riders (2025) [Ru/Multi] (1.3.101.1763.0303/dlc) Repack F
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260077.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Session: Skate Sim (2022) [Ru/Multi] (1.0.6.37/dlc) Repack FitGirl [Year One & T
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256395.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Zaccaria Pinball (2016) [Ru/Multi] (1.0/dlc) Repack FitGirl [Platinum Pack]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255924.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ FIFA 20 (2019) [Ru/Multi] (1.0.66.8249) Repack Let'sРlay
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252292.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Tour de France 2023 (2023) [Multi] (1.00.04.703) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247695.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ WWE 2K19 (2018) [Multi] (1.03/dlc) Repack xatab
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223662.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Cabela's Big Game Hunter: Pro Hunts (2014) [En] (1.0) License RELOADED
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219640.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Cabela's Hunting Expeditions (2012) [En] (1.00 Hotfix) License SKIDROW
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217958.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Cabela's Big Game Hunter (2008) [En] (1.0) Unofficial
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215890.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Cabela's Outdoor Adventures (2009) [Ru/En] (1.0) Unofficial
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215707.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Hunting Simulator 2 (2020) [Ru/Multi] (1.0.0.311.66949/dlc) Repack R.G. Меха
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211583.jpg" />
 </div>
 
 

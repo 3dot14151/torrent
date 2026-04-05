@@ -6,7 +6,7 @@ Shadows of the Damned: Hella Remastered (2024) [Multi] (Build 15991776) Repack O
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38648.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Sofie: The Echoes (2024) [Ru/Multi] (1.0) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38572.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Max Payne 3 (2012) [Ru/Multi] (1.0.0.272/dlc) Repack Other s [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38542.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Max Payne 3 (2012) [Ru/Multi] (1.0.0.272) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38530.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ L.A. Noire (2011) [Ru/Multi] (2675.1/dlc) Repack Other s [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38519.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ L.A. Noire (2011) [Ru/Multi] (2675.1/dlc) Scene Razor1911 [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38443.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Red Dead Redemption (2024) [Ru/Multi] (1.0.40.57107) Scene Razor1911
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38359.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Totally Spies! - Cyber Mission (2024) [Multi] (1.0) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38306.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Tomb Raider I-III Remastered Starring Lara Croft (2024) [Ru/Multi] (15795727) Re
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38241.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Max Payne 3 (2012) [Ru/Multi] (1.0.0.272/dlc) Repack FitGirl [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38219.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Cold War: Hot report / Cold War: Остаться в живых (2005) [Ru/En] (
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38163.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Beyond Good & Evil / За гранью добра и зла (2003) [Ru] (1.01) R
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38161.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Fifth Element (1998) [Ru/Multi] (1.0) Repack 1nomok
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38064.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ The Thing (2002) [Ru/En] (1.2) Repack 1nomok
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38055.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Oni (2001) [Ru] (1.0) Repack 1nomok
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38030.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Tomb Raider I-III Remastered Starring Lara Croft (2024) [Ru/Multi] (1.01) Licens
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37740.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Take no Prisoners (1997) [Ru/En] (1.0) Repack 1nomok
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37553.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ MageSlayer (1997) [Ru/En] (1.1) Repack 1nomok
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37552.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Resident Evil 6 / Biohazard 6 (2013) [Ru/Multi] (1.0.6/1.1.0/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37538.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Assassin's Creed Mirage (2023) [Ru/Multi] (1.0.6/dlc) Repack FitGirl [Master Ass
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37045.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Assassin's Creed Mirage (2023) [Ru/Multi] (1.0.6/dlc) Repack dixen18 [Master Ass
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37026.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Assassin's Creed Mirage (2023) [Ru/Multi] (1.0.6/dlc) Repack Decepticon [Master 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36940.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ God of War: Ragnarök (2024) [Ru/Multi] (1.0.622.6666/dlc) Scene Rune [Digital D
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36738.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ L.A. Noire (2011) [Ru/Multi] (2675.1.0.0/dlc) Repack FitGirl [The Complete Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36283.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Quantum Break (2016) [Ru/Multi] (1.0.126.0307) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36205.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Arma III (3) (2013) [Ru/Multi] (2.18.152405/dlc) Scene Rune [Ultimate Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35907.jpg" />
 </div>
 
 

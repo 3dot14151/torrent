@@ -1,3 +1,81 @@
+###  Публикация: 1445423   (1032548) от 10.02.2021
+
+Азиатский чемпионат Формулы-3. Сезон 2021. Этап 2. Абу-Даби. Гонка 1-3 / F3 Asian Championship 2021. Abu Dhabi. Race 1-3 (04-05.02.2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат мира по ралли (англ. World Rally Championship, WRC) — раллийная серия, проводимая Международной автомобильной федерацией (FIA) с 1973 года. Пришёл на смену Международному чемпионату по ралли для производителей, проводившемуся в 1970-1972 годах.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:11:06 + 01:04:07 + 01:12:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9B7B5FB80E20129D9BA8CE6A409DA3E0499081F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446033   (1032545) от 10.02.2021
+
+Азиатский чемпионат Формулы-3. Сезон 2021. Этап 3. Абу-Даби. Гонка 1-3 / F3 Asian Championship 2021. Abu Dhabi. Race 1-3 (06-07.02.2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Азиатский чемпионат Формулы-3 — региональная гоночная серия класса «Формула-3», основанная в 2018 году.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:11:56 + 01:04:47 + 01:13:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EA45789DC525EB4170317521F0FB0C3EE7F7DE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446845   (1032303) от 11.02.2021
+
+Серия Кубков NASCAR 2021. Этап 0. Дайтона. Гонка / NASCAR Cup Series 2021. Busch Clash WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия Кубков Nascar 2021 года — 73 сезон американских профессиональных гонок сток-каров и 50 сезон кубка современной эры. Сезон стартует на международном треке Дайтона Интернейшнл Спидвей внезачетным этапом Busch Clash. 2021 год станет первым, когда гонка-открытие чемпионата пройдет на дорожной трассе. Следом пройдут две квалификационные гонки Bluegreen Vacations (   Читать дальше...   )Телекомпания: 36Racing / A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD7A595B317C36E54B16C7662CA7E537DAF81EA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447320   (1031892) от 13.02.2021
 
 Серия Кубков NASCAR 2021. Этап 0. Дайтона. Дуэли 1-2 / NASCAR Cup Series 2021. Bluegreen Vacations Duel 1-2 at Daytona [H.264/720p-LQ]
@@ -6,7 +84,7 @@
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031892.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031385.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031384.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031381.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ MotoGP. Этап 01. Гран-при Португалии. Спринт (25.03.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030964.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030949.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030944.jpg" />
 </div>
 
 
@@ -194,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030936.jpg" />
 </div>
 
 
@@ -220,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030931.jpg" />
 </div>
 
 
@@ -249,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029377.jpg" />
 </div>
 
 
@@ -275,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029371.jpg" />
 </div>
 
 
@@ -301,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029350.jpg" />
 </div>
 
 
@@ -327,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029346.jpg" />
 </div>
 
 
@@ -356,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028897.jpg" />
 </div>
 
 
@@ -382,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028890.jpg" />
 </div>
 
 
@@ -408,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028736.jpg" />
 </div>
 
 
@@ -434,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027596.jpg" />
 </div>
 
 
@@ -460,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027582.jpg" />
 </div>
 
 
@@ -486,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027566.jpg" />
 </div>
 
 
@@ -512,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027405.jpg" />
 </div>
 
 
@@ -538,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027403.jpg" />
 </div>
 
 
@@ -564,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027098.jpg" />
 </div>
 
 
@@ -590,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027094.jpg" />
 </div>
 
 
@@ -601,91 +679,6 @@ Monster Jam - это серия автоспортивных соревнова�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:579DF5E09E32BEE663EECAD4FB9B852529CE32AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453541   (1026957) от 11.03.2021
-
-Формула-E 2021. Превью сезона (2021) IPTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сезон 2021 года Чемпионата мира «Формулы E» — 7-й сезон чемпионата Формулы Е, турнира для автомобилей с электроприводом, признанный международной автомобильной федерацией как высший класс электрических гоночных автомобилей с открытыми колесами.
-Сезон 2020–2021 года станет первым сезоном проведённым в статусе чемпионата мира (под эгидой ФИА)Телекомпания: Eurosport HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 00:46:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA8C7DDA0CECCD64F787FDC8116374EA354D4B87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453548   (1026950) от 11.03.2021
-
-Серия Кубков NASCAR 2021. 2-й Этап. Дайтона 253. Гонка / NASCAR Cup Series 2021. Round 2. O'Reilly Auto Parts 253 (2021) WEB-DL [H.264/1080p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Кубков NASCAR 2021 года.
-21 февраля 2021 года
-2-й Этап. Дайтона (O'Reilly Auto Parts 253). Дайтона-Бич (штат Флорида, США).
-Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 03:11:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D533768C9F1676451C92869CA61A50FA6176F485
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453602   (1026943) от 11.03.2021
-
-Формула-E 2021. Гран-при Эд-Диръия. 1-2 Этап / Formula E World Championship 2021. Diriyah E-Prix. Rounds 1-2 (2021) IPTV [H.264/1080i-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026943.jpg" />
-</div>
-
-
-###  Подробнее
-
-7-й сезон Чемпионата мира Формулы E 2021 года, среди автомобилей с электроприводом.
-1-й Этап:
-25 февраля 2021 года
-Практика 1(   Читать дальше...   )Телекомпания: Setanta Sports HDЖанр: СпортЯзык озвучки: Русский, Английский, ИнтершумСубтитры: отсутствуютПродолжительность: 00:37:52 - 01:13:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDD47335E841F4C63E07E81AEAA8D9F6FF516708
 ```
 
 https://mybot314.ru/tekegram_catalog/

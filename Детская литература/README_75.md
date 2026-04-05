@@ -1,29 +1,3 @@
-###  Публикация: 506502   (688053) от 06.06.2012
-
-Отфрид Пройслер | Маленькое привидение [2012] [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688053.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Маленькое привидение" - одна из лучших сказок известного немецкого писателя Отфрида Пройслера. Для детей младшего среднего возраста.2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A3727B68D0FE8025071595AB38807C659A8D07D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 506766   (688039) от 06.06.2012
 
 Мила Блинова | Про кышей [2010] [PDF]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688039.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687964.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687790.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687623.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687609.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687588.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687574.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687570.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687563.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687561.jpg" />
 </div>
 
 
@@ -296,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687560.jpg" />
 </div>
 
 
@@ -325,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687495.jpg" />
 </div>
 
 
@@ -354,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687493.jpg" />
 </div>
 
 
@@ -380,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687492.jpg" />
 </div>
 
 
@@ -406,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687341.jpg" />
 </div>
 
 
@@ -435,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687334.jpg" />
 </div>
 
 
@@ -461,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687236.jpg" />
 </div>
 
 
@@ -487,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687229.jpg" />
 </div>
 
 
@@ -513,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686912.jpg" />
 </div>
 
 
@@ -539,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686910.jpg" />
 </div>
 
 
@@ -565,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686909.jpg" />
 </div>
 
 
@@ -591,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686826.jpg" />
 </div>
 
 
@@ -618,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686762.jpg" />
 </div>
 
 
@@ -647,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686593.jpg" />
 </div>
 
 
@@ -673,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686498.jpg" />
 </div>
 
 
@@ -684,6 +658,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46C6DC1937A3088ED7B4E4B4F3FDFAF57F67DE84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403958   (686457) от 22.08.2020
+
+Кики Торп | Корпорация монстров (2020) [FB2, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Корпорация монстров – сердце Монстрополиса. Именно она снабжает мир монстров энергией – детскими криками. Самые грозные монстры, которых зовут страшилами, отправляются в мир людей по ночам и добывают там крики. Лучший страшила корпорации – Джеймс П. Салливан, или просто Салли. Он могуч и отважен, а как иначе, если каждый день приходится встречаться с самым страшным (   Читать дальше...   )Жанр: Детская литература/Фантастика/ПриключенияПеревод: А. А. МингазоваФормат: FB2, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23DE49F5F11C30B3FEC2B5484CD0B4124D810C99
 ```
 
 https://mybot314.ru/tekegram_catalog/

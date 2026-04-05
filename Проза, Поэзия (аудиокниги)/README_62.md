@@ -1,55 +1,3 @@
-###  Публикация: 1057692   (473180) от 29.09.2016
-
-Геннадий Малкин | Умнеть надо незаметно (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Афористы – удивительный народ! В то время как многие писатели на протяжении всей истории литературы ищут (и порой небезуспешно) признания у человечества через создание огромных романов, эпопей и поэм, афористы пытаются достигнуть той же цели посредством малюсеньких предложений, которые они называют то афоризмами, то фразами, то лаконизмами, полагая (и тоже небезосновательно), (   Читать дальше...   )Жанр: АфоризмыПродолжительность: 04:19:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45069556091C4C2E84C61F2A150E422D7760317B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320380   (471394) от 18.08.2019
-
-Александр Снегирёв | Я намерен хорошо провести этот вечер (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он мечтал о счастье. И всё его обещало: и вёдра с нарциссами на стойке бара, и острый запах прелести, наглости, ранимости, разлитый в клубе, и пара-тройка «лонг-айлендов», и чувство уверенности, что любит и любим той единственной, которая сейчас далеко. Он мечтал… Но только апреля в сердце не было. Как не было ощущения, что по-прежнему юн. Как не было веры, что любовь (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 05:34:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1004ED5F372F99CA92F3C3C23BA1C86B79DC9184
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1057699   (471308) от 30.09.2016
 
 Виктор Козько | Хроника детдомовского сада (2012) [MP3]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471308.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470838.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468801.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468475.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468387.jpg" />
 </div>
 
 
@@ -191,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467132.jpg" />
 </div>
 
 
@@ -219,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466547.jpg" />
 </div>
 
 
@@ -245,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466054.jpg" />
 </div>
 
 
@@ -274,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466034.jpg" />
 </div>
 
 
@@ -300,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464273.jpg" />
 </div>
 
 
@@ -326,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464169.jpg" />
 </div>
 
 
@@ -352,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464156.jpg" />
 </div>
 
 
@@ -378,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464082.jpg" />
 </div>
 
 
@@ -404,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463641.jpg" />
 </div>
 
 
@@ -430,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463384.jpg" />
 </div>
 
 
@@ -456,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462443.jpg" />
 </div>
 
 
@@ -482,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462275.jpg" />
 </div>
 
 
@@ -508,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462111.jpg" />
 </div>
 
 
@@ -534,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462098.jpg" />
 </div>
 
 
@@ -563,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461409.jpg" />
 </div>
 
 
@@ -589,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460661.jpg" />
 </div>
 
 
@@ -617,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459929.jpg" />
 </div>
 
 
@@ -643,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459272.jpg" />
 </div>
 
 
@@ -669,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457741.jpg" />
 </div>
 
 
@@ -680,6 +628,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BAD5F3E5231E4376A49D8C7D183E9CAFB28DB40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246683   (457011) от 13.09.2018
+
+Жюль Верн | Клодиус Бомбарнак (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный французский писатель Жюль Верн — замечательный мастер романа путешествий и приключений, первый классик научно-фантастического жанра, страстный пропагандист науки и ее грядущих завоеваний.Жанр: Роман, Путешествия и географияПродолжительность: 09:14:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68ADB8D6555835E466A6FFD79F2B33BBCCE2256D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246783   (456839) от 13.09.2018
+
+Чак Паланик | Удушье (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый шедевр «короля контркультурной прозы» Чака Паланика.
+Книга о молодом мошеннике, который каждодневно разыгрывает в дорогих ресторанах приступы удушья — и зарабатывает на этом неплохие деньги...
+Книга о сексоголиках, алкоголиках и шмоткаголиках. О любви, дружбе и философии. О сомнительном «втором пришествии» — и несомненной «невыносимой легкости бытия» наших (   Читать дальше...   )Жанр: Роман, КонтркультураПродолжительность: 07:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DED4AD11221AC1B08492900A76FEF6CAA045F0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

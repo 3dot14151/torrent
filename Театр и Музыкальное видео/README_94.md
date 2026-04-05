@@ -6,7 +6,7 @@ VA - Осенний марафон № 200 / Видеоклипы (Презен�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365072.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Adele - Hello (2015) WEBRip[H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365066.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Yanni Live! The Concert Event (2006) HDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364001.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_363685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_363685.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363572.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Rammstein - 100 Jahre Rammstein, Arena Berlin (1996) VHSRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363460.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363376.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Masami Okui - GIGS 2006 evolution (2007) 2xDVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363138.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Mike Oldfield - Tubular Bells III Live (1998) DVDRip [hand made 60fps]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363077.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362730.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361742.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361270.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360913.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ The best of Zero project (2017) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360351.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Epica - Abyss of Time - Countdown to Singularity (2020) WEB-DL [VP9/2160p-LQ] <S
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360212.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_359780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_359780.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Slipknot - Rock am Ring (2009) SATRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359586.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359213.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Alisher - Компромат (2012)  [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358725.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Usher - Numb (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358722.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Usher - Dive (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358716.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358546.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Ludacris - Representin (Explicit) ft. Kelly Rowland (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358544.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Ludacris - Rest Of My Life ft. Usher, David Guetta (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358366.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Nelly Furtado - Parking Lot (2012) [H.264/1080p]  HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358356.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358348.jpg" />
 </div>
 
 

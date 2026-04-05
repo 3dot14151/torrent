@@ -6,7 +6,7 @@ VA - Super Italo Made in Spain, 2CD (2019) Compilation [FLAC|Lossless|image + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625656.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Timecop1983 - Lovers (part I) EP (2016) [FLAC|Lossless|WEB-DL|tracks] <80's Retr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625359.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Billy - I'm Not Ok (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, Electro, Downte
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624122.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623296.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Isabelle Boulay - En verite (2017) [FLAC|44.1kHz/24bit|Lossless|WEB-DL|tracks|] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622529.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Goodnight Suzie - Boombox (2019) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622509.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Billie Eilish - When We All Fall Asleep, Where Do We Go? (2019) Japanese Edition
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622052.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Tom Jones - Legendary Performer (1999) 3CD Box [FLAC|image+.cue]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621895.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Pebbles - Straight From My Heart (1995) [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621171.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ VA - 2005 Grammy Nominees (2005) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621080.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Melanie C - Version Of Me (2017) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620878.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Sara Bareilles - Amidst the Chaos (2019) [FLAC|Lossless|tracks + .cue] <Pop, Ind
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620767.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VA - Now That's What I Call Music! 102 (2019) 2CD, UK Series [FLAC|Lossless|trac
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620619.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Laid Back - Play It Straight (1985) Unofficial Release, 2003, Medley Records [FL
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620471.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Laid Back - Laidest Greatest (1995) [FLAC|Lossless|tracks + .cue] <Pop, Electron
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620322.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Savage Garden - Savage Garden (1997) 2CD, Mixed [APE|Lossless|image + .cue] <Syn
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619095.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ ABBA - The Album (1977) Reissue, Deluxe Edition, 2007, Polar [FLAC|Lossless|imag
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618984.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ VA - The Mojo Machine Turns You On 1 (1997) [FLAC|Lossless|tracks + .cue] <Pop, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618977.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ VA - The British Pop Collection (60 Original Artists 60 Original Hits) (1983) Ax
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618298.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Lucho Gatica - Historia de un amor (2013) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618083.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Carole King - The Real... Carole King (The Ultimate Collection) (2017) 3CD [FLAC
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617978.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Bibio - Ribbons (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Indie Pop, Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617024.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Harry Nilsson - The Real... Harry Nilsson (The Ultimate Collection) (2014) 3CD [
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616197.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Rainhard Fendrich - Lieder Mit Gefuhl (1994) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615745.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ VA - SuperVara (2016) 2CD [FLAC|Lossless|image + .cue] <Dance,  Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615662.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Westlife - Westlife (1999) [FLAC|Lossless|image + .cue] <Europop, Ballad>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615139.jpg" />
 </div>
 
 

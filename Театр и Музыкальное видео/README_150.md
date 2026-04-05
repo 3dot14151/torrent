@@ -6,7 +6,7 @@
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47195.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Chickenfoot - Get Your Buzz On Live (2010) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47188.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Def Leppard - Historia: In the Round In Your Face (2001) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47182.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47179.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47177.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47163.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47125.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Depeche Mode - Live In Berlin (2014) 2хDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47089.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Michael Jackson's Vision (2010) 2xDVD9 + DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47088.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Lady GaGa Presents: The Monster Ball Tour at Madison Square Garden (2011) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47068.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Dream fest. День звезд российской эстрады (2024) WEBRi
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47008.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Paul McCartney - The McCartney Years (2007) 3xDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46996.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46986.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Carlos Santana present Blues At Montreux  B.Gay, C.C.Brown,B Parker (2004) 3xDVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46978.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ THe Who - The Kids Are Alright (2004) [DTS|1510 Kbps] <Rock>
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46976.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Vaya Con Dios - the ultimate collection (2006) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46961.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Deep Purple: Live In California 1974 (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46880.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Metallica - Live Shit: Binge & Purge (San Diego 1992 & Seattle 1989) (2002) (2xD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46786.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Metallica - The Videos 1989-2004 (2006) DVD-9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46784.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46735.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46734.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Eurythmics Ultimate Collection  (2005) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46685.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Dire Straits - Rockpalast (1979) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46684.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Metallica - Quebec Magnetic (2012) DVD9+DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46678.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ METALLICA  -  Cunning stunts (live at Texas, 1997) DVD9+DVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46669.jpg" />
 </div>
 
 
@@ -712,7 +712,7 @@ Judas Priest - Screaming for Vengeance (Special 30TH Anniversary Edition) (Bonus
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46653.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Joe Negri - Guitars For Christmas (2003) MCG Jazz [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145330.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Joe Negri - Uptown Elegance (2004) MCG Jazz [FLAC|Lossless|tracks + .cue] <Mains
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145328.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Sonny Rollins - 5 Original Albums (1951-1956) 5CD, 2016, Concord Music Group[FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145263.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Lionel Hampton And His All-Stars - Complete Jazztone Recordings (1956) 2CD, 2007
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144838.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Harry James - The In Person And Hi-Fi Sound Of Harry James (1952 - 1955) 2CD, 20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144790.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Enrico Rava - Rava l'opera va (1993) Label Bleu [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144737.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Enrico Pieranunzi & Horns - Evans Remembered (2001) Via Veneto Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144728.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Harry Allen - The Bloody Happy Song (2020) [FLAC|Lossless|image + .cue] <Mainstr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144449.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Stan Kenton - City Of Glass (1947 - 1953) 1995, Capitol [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144424.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Billie Holiday - The Essential Brunswick Recordings (1935 - 1939) 3CD, 2014, Not
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144283.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Stan Getz - Quartets (1950) 1991, Original Jazz Classics [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144230.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Lee Morgan - Expoobident (1960) 1995, Charly Records [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144141.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Charlie Barnet - 1939-1940 (2002) Classics [FLAC|Lossless|tracks + .cue] <Swing,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144047.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Wes Montgomery - Wes's Best (1960-e) 2019, Resonance Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143892.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ The Lenny Hambro Quintet - The Nature Of Things (1956) Remaster, 2015, Sony Musi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143876.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Arnett Cobb - Live (1982) Remaster, 2015, Timeless Records[FLAC|tracks+.cue] <Ma
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143865.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Urbie Green - Five Classic Albums 1953 - 1956 (2013) 2CD, Avid Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143784.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ The Frank Wright Quartet - Church Number Nine (1970) 2002, Black Keys[FLAC|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143778.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Jef Gilson - Malagasy (1972) Reissue, 2014, Jazzman [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143731.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Acoustic Alchemy - The Best of Acoustic Alchemy (2013) [FLAC|Lossless]<Instrumen
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143684.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Frank Morgan - Listen to the Dawn (1994) Verve[FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143318.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Johnny Smith - Favorites (1959) Remaster, 2016, Warner[FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143302.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Big Bad Family (1994) Finalmix Records[FLAC|Lossless|tracks + .cue] <Jazz Fusion
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143221.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ T-Square - Human (1993) Sony Music[FLAC|Lossless|image + .cue] <Jazz Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143202.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Yusef Lateef - The Diverse Yusef Lateef (1970) 2006, Rhino [WavPack|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142765.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Lee Morgan - Volume 3 (1957) 2007, Blue Note [FLAC|Lossless|tracks + .cue] <Hard
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142740.jpg" />
 </div>
 
 

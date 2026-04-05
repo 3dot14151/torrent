@@ -1,3 +1,61 @@
+###  Публикация: 1208140   (780129) от 21.02.2018
+
+VA - Power Sounds (Volume 1) (2018) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. WTDJ, Mark Vox, Robbie Mirello - Dirty Sound  04:18
+02. Denis Dawydow, Simon Aces - F.A.Q.  05:15
+03. Julian Blaze, StarBouncers - Valentine (Time to Groove)  04:43
+04. Grimm Brothers - Back to Trumpets  04:52(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:37:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AE5201ABF7BB3643285CE8A64BEA1FDCFA0C1E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208325   (780128) от 21.02.2018
+
+John Shima - Elements Unknown (2017) FireScope [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elements (08:27)
+ 02. Symbols (07:15)
+ 03. Implant (07:17)
+ 04. Illuminate (07:24)Жанр: Electro, IDM, TechnoПродолжительность: 00:30:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:421DD4CBB53312BED78054C89BD42CFAEE35FC1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208186   (780119) от 21.02.2018
 
 The Primitive Painter - The Primitive Painter (1994) Klang Elektronik [FLAC|Lossless|tracks] <Techno, Ambient, IDM>
@@ -6,7 +64,7 @@ The Primitive Painter - The Primitive Painter (1994) Klang Elektronik [FLAC|Loss
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780119.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - True People: The Detroit Techno Album (1996) React [FLAC|Lossless|tracks+.c
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780116.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Best Of Trance 2018 Vol.01 (2018) [MP3|320 Kbps] <Trance, Progressive Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780101.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Milieu - Amtrax Plus (2018) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Experim
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779994.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ FUCT TAPE - FUCT TAPE (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779821.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Deep House Look in the Mirror, Vol. 1 (2018) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779818.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Von Grall - Infinitum (2018) Horo [FLAC|Lossless|WEB-DL|tracks] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779817.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Sexy Miami Beach, Vol. 2 (2018) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779810.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ GusGus - Lies Are More Flexible (2018) Oroom [FLAC|Lossless|WEB-DL|tracks] <Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779791.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Hidden Places Chillout And Ambient 7 (2018) [MP3|320 Kbps] <Downtempo, Loun
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779680.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Merovingian - Prøv å Forstå (The Remixes) (2018) Drift Deeper Recordings [FLA
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779675.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Debbie Tebbs - Chrome (2018) [FLAC|Lossless|WEB-DL|tracks] <Electro, Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779660.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Makia Blue - Dreams In The Twilight: Psychedelic Chillout (2018) [MP3|320 Kbps] 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779539.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Yann Novak - The Future Is a Forward Escape into the Past (2018) Touch [FLAC|Los
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779538.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Zirkus Zirkus, Vol. 18 | Elektronische Tanzmusik (2018) [FLAC|Lossless|WEB-
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779535.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Subculture (Mixed By John O'Callaghan & Cold Blue) (2018) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779533.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Black Hole Presents Best Of Vocal Trance 2018 Vol 1 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779525.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Vocal Hits Vol.4 (2018) [MP3|320 Kbps] <Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779524.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Ladies Of Synth Vol.2 (Compiled by Scott Forte) (2017) [MP3|320 Kbps] <Synt
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779501.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Ambient-E: Chapter 6 (2018) [MP3|320 Kbps] <Downtempo, Chillout>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779407.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Contemporary Chilling (2018) [MP3|320 Kbps] <Downtempo, Chillout>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779406.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Relax Vibration Vol.01 (2018) [MP3|320 Kbps] <Downtempo, Chillout>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779402.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Lounge Coffee Break (2018) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779401.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Prophet Collection Anniversary (Compiled by Manuel) Vol.5 (2018) [MP3|320 K
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779397.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Prophet Collection Anniversary (Compiled by Manuel) Vol.5 (2018) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8AD670EC103F65F7489F5F86B93866507B6F747
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209363   (779388) от 26.02.2018
-
-VA - Best Of Chillout 2018 Vol.02 (2018) [MP3|320 Kbps] <Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  DJSaint  -  Souls (Harold-Alexis Remix)  6:06
-02.  Data Rebel  -  Broken Note (Original Mix)  5:26
-03.  Puremusic  -  Closer (SineRider Remix)  6:17
-04.  Jama & Stendahl  -  Follow Me (Original Mix)  4:21(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 01:55:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63FE8599E8140CB07E5E6AA2EA9D281179B98169
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209498   (779301) от 27.02.2018
-
-VA - FG Top 10 February 2018 [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Orphyd - Apex (Original Mix) 06:18
-02. Francesco Sambero - Uoy (Original Mix) 05:46
-03. Novan Vs. Titus1 - Only Love (feat Luke McMaster - Max Freegrant extended remix) 05:28
-04. Amst - Sexerei (Original Mix) 06:15(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:59:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9119FB94A7CC6DD74B26F1E9125864CCE0E342F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

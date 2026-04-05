@@ -1,3 +1,160 @@
+###  Публикация: 1478631   (1009616) от 23.06.2021
+
+МС-21 подготовили к серийному производству
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009616.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Иркутске запущен новый цех сборки МС-21. Он рассчитан на станционную стапельную сборку 36 самолётов в год. Опытные сборочные работы на старых мощностях прекращены.МС-21, разработка полностью российская, прямой и более удачный технологически конкурент Боинга-737 MAX.Российский самолёт - это среднемагистральный борт, который имеет самый широкий фюзеляж в своем классе (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438026   (1009615) от 23.06.2021
+
+Обыкновенный фашизм (1965) DVDRip [H.264] [10-bit] (части 1-2 из 2)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм-монолог, фильм-исследование. Но исследование не фашизма в целом и тем более не детальный анализ всех его чудовищных массовых преступлений. Нет, это исследование природы фашизма, той питательной среды, на которой вызрели его споры. Исследование не одного только «фюрера», хотя и его тоже, ибо, словами Генриха Манна, «Свет никогда не узнал бы, до какой грязной (   Читать дальше...   )Производство: СССР, к/ст МосфильмЖанр: документальный, хроника, военный, историяРежиссер: Михаил Ромм, и он же о съёмках фильма "Обыкновенный фашизм"Участники: Михаил Ромм, Марлен Дитрих, Йозеф Геббельс, Адольф Гитлер, Герман Геринг, Иосиф Сталин, Дзюкити УноСубтитры: НетПродолжительность: 02:10:07 (01:08:02+01:02:05)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D15B2DE902AB2A72F162BC14D3E75E8643B4F25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478553   (1009503) от 24.06.2021
+
+Нижегородцам запретили вступать в брак без прививки от коронавируса
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глава Нижегородской области запретил жениться без прививки от COVID-19
+В Нижегородской области пары теперь не могут жениться без справки о прививке от коронавируса, сообщает сайт Главного управления записи актов гражданского состояния (ЗАГС) региона. Такие ограничения соответствуют указу губернатора региона Глеба Никитина.Так, при регистрации брака гражданам нужно (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479544   (1009499) от 24.06.2021
+
+Opera 77.0.4054.146 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABB15446C935697F3B0D6CD0AB8D8633335EC547
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479608   (1009357) от 25.06.2021
+
+Названы сроки выхода Windows 11
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Корпорация Microsoft провела презентацию Windows 11 и назвала сроки выхода новой операционной системы. Трансляция доступна на сайте компании.Главное визуальное отличие новой операционной системы — центрирование кнопки «Пуск» на панели задач. Во всех предыдущих версиях ОС стартовая кнопка располагалась строго слева. По словам представителей компании, подобное расположение (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 381413   (1009353) от 25.06.2021
+
+Звездный путь: Дальний космос 9 / Star Trek: Deep Space Nine (1993-1999) DVDRip (сезон 1-7, серии 1-173 из 173) FUNTik, Yrich&Natasha
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие сериала разворачивается в 2369—2375 годах на космической станции «Дальний Космос 9» , находящейся на орбите только что освобожденной от оккупации Кардассианской Империи планеты Бэйджор. Волею случая в непосредственной близости от станции обнаруживается пространственная аномалия — коридор, связывающий Бэйджор с Гамма-квадрантом галактики. Это открытие превращает (   Читать дальше...   )Производство: США / Paramount TelevisionЖанр: фантастика, боевик, драма, приключенияРежиссер: Дэвид Ливингстон, Лес Ландау, Уинрих КольбеАктеры: Эйвери Брукс, Рене Обержонуа, Сиррок Лофтон, Александр Сиддиг, Колм Мини, Нана Визитор, Армин Шимерман, Терри Фаррелл, Майкл Дорн, Рэнди ДжеймсПеревод: Одноголосый любительский (с 20 серии 6 сезона двуголосый) - FUNTik, Yrich&NatashaЯзык озвучки: Русский, английскийПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E452EF61D0C2E1AB407FA217757806A1493B138
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1479808   (1009223) от 26.06.2021
 
 С устройств Western Digital My Book NAS по всему миру загадочно исчезают данные
@@ -6,7 +163,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009223.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009060.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009054.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ Metro: Exodus / Метро: Исход (2019) [Ru/Multi] (2.0.7.1/dlc) License G
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009052.jpg" />
 </div>
 
 
@@ -110,7 +267,7 @@ Microsoft призналась в подписании вредоносного 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008910.jpg" />
 </div>
 
 
@@ -136,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008897.jpg" />
 </div>
 
 
@@ -162,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008888.jpg" />
 </div>
 
 
@@ -188,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008875.jpg" />
 </div>
 
 
@@ -214,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008874.jpg" />
 </div>
 
 
@@ -240,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008872.jpg" />
 </div>
 
 
@@ -266,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008792.jpg" />
 </div>
 
 
@@ -292,7 +449,7 @@ Hige o Soru. Soshite Joshikousei o Hirou. / What Happened When I Shaved My Beard
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008774.jpg" />
 </div>
 
 
@@ -318,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008772.jpg" />
 </div>
 
 
@@ -344,7 +501,7 @@ Royal Quest: Тьма наступает (2012) [Ru] (1.2.095) License (обно
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008761.jpg" />
 </div>
 
 
@@ -370,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008634.jpg" />
 </div>
 
 
@@ -400,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008509.jpg" />
 </div>
 
 
@@ -426,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008505.jpg" />
 </div>
 
 
@@ -452,7 +609,7 @@ Topaz Video Enhance AI 2.3.0 RePack (& Portable) by TryRooM [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008504.jpg" />
 </div>
 
 
@@ -478,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008496.jpg" />
 </div>
 
 
@@ -504,170 +661,13 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008379.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Социальный рейтинг сегодня — не что иное, как совокупность социальных индикаторов, оценку которым дает некая автоматизированная система. В упрощенном виде весь процесс сводится к следующей схеме: в сложную алгоритмическую систему стекаются массивы информации (как выясняется, далеко не объективной и имеющей высокую погрешность) по всевозможным аспектам жизни человека (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481287   (1008360) от 02.07.2021
-
-Война будущего / The Tomorrow War (2021) WEB-DLRip [H.264] [MVO] [PR]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008360.jpg" />
-</div>
-
-
-###  Подробнее
-
-В будущем идёт разрушительный конфликт с инопланетной расой. В попытке переломить ход войны учёные начинают призывать в свою армию солдат из прошлого.Производство: США / Skydance Productions, Lit Entertainment Group, New Republic PicturesЖанр: Фантастика, боевикРежиссер: Крис МакКейАктеры: Крис Пратт, Ивонн Страховски, Дж.К. Симмонс, Бетти Гилпин, Сэм Ричардсон, Жасмин Мэтьюз, Эдвин Ходж, Райан Кира Армстронг, Кит Пауэрс, Мэри Линн РайскабПеревод: Профессиональный многоголосый (NewComers)Язык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: 02:18:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B58E98B936A89F0304625A71064D4B45612C60F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471011   (1008183) от 03.07.2021
-
-Пищеблок (2021) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-8 из 8)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008183.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пока вся страна следит за Олимпиадой-80, в пионерском лагере «Буревестник» на Волге происходят странные события. Дети загадочно исчезают по ночам, а потом возвращаются — но совсем не такими, как прежде. Увлеченные летней свободой и друг другом вожатые не замечают, как в их отрядах оживают страшные пионерские легенды, а руководство лагеря делает вид, что все в порядке. (   Читать дальше...   )Производство: Россия / 	SredaЖанр: триллер, фантастикаРежиссер: Святослав ПодгаевскийАктеры: Пётр Натаров, Даниил Вершинин, Ангелина Стречина, Илья Коробко, Ирина Пегова, Сергей Шакуров, Тимофей Трибунцев, Николай Фоменко, Никита Кологривый, Яна ГладкихСубтитры: РусскиеПродолжительность: ~ 00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6459E64BCC8FCEF0239523179F5685B791408E0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481338   (1007960) от 05.07.2021
-
-Microsoft изменит цвет «синего экрана смерти»
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007960.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новой операционной системе фон сообщающего о критической ошибке экрана изменится на черный. Таким образом, цвета экранов при ошибке, включении и выключении компьютера будут одинаковыми. Нововведение доступно в бета-версии Windows 11 и будет добавляться в ОС постепенно.Журналисты отметили, что это первое серьезное изменение дизайна «синего экрана смерти» (Blue Screen (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481733   (1007928) от 05.07.2021
-
-Вот как  выглядят новые поезда «Иволга 3.0»
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания «Трансмашхолдинг» в рамках Московского урбанистического форума показала головной вагон нового состава пассажирского поезда «Иволга 3.0». Поезд создан для использования в режиме наземного метро. «Иволга 3.0» отличается высокой плавностью хода и низким уровнем шума.Максимальная скорость состава достигает 160 км/ч. В поезде предусмотрены 50 дополнительных кресел (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481950   (1007808) от 06.07.2021
-
-Почему земным организмам не выжить на Марсе
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Марс последнее время преподносит все больше сюрпризов. То там найдут воду, то высохшие озера, и возможность того, что там когда-нибудь можно будет жить, кажется все реальнее — но стоит несколько приглушить оптимизм.Марс — планета недружелюбная. Там очень холодно, почти нет жидкой воды, а ультрафиолет постоянно бомбардирует поверхность планеты. А еще в ее почве куча (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480740   (1007798) от 06.07.2021
-
-Игра! Три заголовка – одна инсценировка
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007798.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три заголовка – одна инсценировкаПравила ИГРЫ
-Из трёх разных названий (заголовков) фильмов требуется составить (инсценировать) один новый и законченный по смыслу словесный оборот.Пример.(   Читать дальше...   )
 
 ## Скачать торент
 ```bash

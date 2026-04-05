@@ -1,3 +1,215 @@
+###  Публикация: 1340868   (263092) от 25.11.2019
+
+Heavy Rain (2019) [Ru/Multi] (build 362) Repack xatab
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Погрузитесь в напряженный психологический триллер, где ваш выбор и действия могут привести к драматическим последствиям... и определите, кто останется в живых, а кто умрет. Мастер Оригами терроризирует город, который получил такое прозвище из-за своей жуткой визитной карточки — манеры оставлять на месте преступления сложенные из бумаги фигурки, не оставляет полиции (   Читать дальше...   )Тип издания: RepackРазработчик: Quantic DreamЖанр: Action, Adventure, Int.Movie, 3rd PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73A16B29F9EDC8ECAE990585C000C7FEADCA6106
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273283   (263085) от 25.11.2019
+
+Подшивка журналов | Дилетант (2019) [PDF]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263085.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый исторический журнал, в живой, далеко не академической форме передающий колорит эпох и помогающий ориентироваться в истории, искать и находить в прошлом ответы на многие сегодняшние вопросы.
+В каждом номере увлекательные и познавательные материалы, подготовленные именитыми историками, великолепными писателями, популярными журналистами. Каждый выпуск журнала (   Читать дальше...   )Жанр: Исторический журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E0CAAD4F68D64A47E4F9033761FDAB834EF199F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340658   (263081) от 25.11.2019
+
+⚡  Лучший процессор для игр в 2019 году
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уже давно мы не видели такой борьбы между производителями процессоров как в 2019 году. Что и говорить, много лет подряд AMD могла только снижать цены на процессоры, выступая в роли догоняющего.Сейчас же на её стороне многоядерные процессоры, самый эффективный технологический процесс и отличная архитектура. Кроме того, красная команда выставила на свою продукцию отличные (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340657   (263079) от 25.11.2019
+
+Windows 10 Enterprise x64 lite 1909 build 18363.476 by Zosma
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263079.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на официальном образе Microsoft:
+Microsoft Windows 10.0.18363.418 Version 1909 (November 2019 Update)
+Удалены компоненты связанные с шпионством и отправкой телеметрии.
+Отключены бесполезные (вредные) службы(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:884C3507CC2490D0784D89ED9A3309D26018772C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340723   (263078) от 25.11.2019
+
+Adobe Photoshop 2020 21.0.1.47 (24.11.2019) RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop — это комплексное решение для профессиональной обработки цифровых изображений, которое содержит самые современные инструменты для работы с изображениями и новые возможности для реализации творческих идей, которые позволяют значительно повысить производительность. Редактируйте изображения с исключительной точностью, используйте новые интуитивно понятные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEF2305D94BB3430A764BA372E41D5986B140882
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 254167   (263077) от 25.11.2019
+
+Ходячие мертвецы / Walking Dead (2010) (весь 1 сезон) WEB-DLRip [LostFilm]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263077.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал рассказывает историю жизни семьи шерифа после того, как «зомби» — эпидемия апокалиптических масштабов захлестнула земной шар. Шериф Рик Граймс путешествует со своей семьей и небольшой группой выживших в поисках безопасного места для жизни. Но постоянный страх смерти каждый день приносит тяжелые потери, заставляя героев почувствовать глубины человеческой жестокости. (   Читать дальше...   )Жанр: Драма, УжасыРежиссер: Frank DarabontАктеры: Andrew Lincoln, Jon Bernthal, Sarah Wayne Callies, Laurie Holden, Jeffrey DeMunn, Steven Yeun, Chandler Riggs, Lennie James, Emma Bell и дрПеревод: Многолосый закадровыйПродолжительность: 6 ~ 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA0C0C342905153E5537CD874F02D88E8EDA4E8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340753   (263074) от 25.11.2019
+
+Однажды в… Голливуде / Once Upon a Time ... in Hollywood (2019) WEB-DL [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм повествует о череде событий, произошедших в Голливуде в 1969 году, на закате его «золотого века». Известный актер Рик Далтон и его дублер Клифф Бут пытаются найти свое место в стремительно меняющемся мире киноиндустрии.Производство: Великобритания, США, Китай / Bona Film Group, Heyday Films, Sony Pictures EntertainmentЖанр: Драма, комедияРежиссер: Квентин ТарантиноАктеры: Леонардо ДиКаприо, Брэд Питт, Майя Хоук, Остин Батлер, Марго Робби, Сидни Свини, Маргарет Куэлли, Дакота Фаннинг, Тимоти Олифант, Аль ПачиноПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, full), украинские (Full), английские (Full, SDH)Продолжительность: 02:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:624A3C9DC11AAF50807744AF6DAF675A35D8DC08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191888   (262985) от 17.12.2017
+
+За каждой бутылкой водки будут следить с помощью блокчейна
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262985.jpg" />
+</div>
+
+
+###  Подробнее
+
+В России с июля 2018 года заработает система поштучного учета алкогольной продукции, сообщает «Интерфакс» со ссылкой на пресс-секретаря Росалкогольрегулирования Александра Куликова.«Система поштучного учета использует механизмы технологии блокчейн: движение каждой единицы продукции создает цепочку блоков неизменных транзакций, хранящихся в дублирующих центрах обработки (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1192034   (262969) от 17.12.2017
 
 Сисадмин организовал криптоферму прямо на рабочем месте во  «Внуково»
@@ -6,7 +218,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262969.jpg" />
 </div>
 
 
@@ -32,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262954.jpg" />
 </div>
 
 
@@ -58,7 +270,7 @@ Octane Render 3.07 R2 + C4D Plugins [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262951.jpg" />
 </div>
 
 
@@ -87,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262950.jpg" />
 </div>
 
 
@@ -113,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262949.jpg" />
 </div>
 
 
@@ -139,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262854.jpg" />
 </div>
 
 
@@ -165,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262783.jpg" />
 </div>
 
 
@@ -192,7 +404,7 @@ GoodbyeDPI.0.1.6. Launcher-3.2 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262774.jpg" />
 </div>
 
 
@@ -221,7 +433,7 @@ Zver Windows 10.0.17763.737 Enterprise LTSC Version 1809 x64 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262764.jpg" />
 </div>
 
 
@@ -249,7 +461,7 @@ Star Wars Jedi: Fallen Order / Звездные Войны Джедаи: Пав�
 >>14
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262763.jpg" />
 </div>
 
 
@@ -275,7 +487,7 @@ SpaceX впервые запустила вместе уже летавшие к
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262670.jpg" />
 </div>
 
 
@@ -301,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262662.jpg" />
 </div>
 
 
@@ -327,7 +539,7 @@ Far Cry 4 (2014) [Ru/Multi] (1.10.0/dlc) Repack Other s [Gold Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262638.jpg" />
 </div>
 
 
@@ -353,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262560.jpg" />
 </div>
 
 
@@ -380,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262523.jpg" />
 </div>
 
 
@@ -406,7 +618,7 @@ Wanpiisu / One Piece / Ван-Пис. Раздача №2 [1999, TV, 384-415] HD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262511.jpg" />
 </div>
 
 
@@ -434,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262503.jpg" />
 </div>
 
 
@@ -460,222 +672,13 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262413.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Россия выступила с инициативой наладить с соответствующими контролирующими ведомствами Китая обмен информацией по случаям нарушения законодательств обеих стран интернет-ресурсами. Соответствующее предложение озвучил в понедельник на встрече с заместителем руководителя Администрации киберпространства Китая Жэнь Сяньляном глава Роскомнадзора Александр Жаров, принимающий (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193045   (262403) от 19.12.2017
-
-Очередное достижение: 100+ TB отданного трафика от Salarmael
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262403.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередное достижение: 100+ TB отданного трафика от Salarmael!!!Уважаемые друзья! - есть повод поздравить нашего товарища-одноклубника, который перешагнул планку более 100 ТB отданного разнообразного контента!!!(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192903   (262382) от 19.12.2017
-
-В Windows 10 нашли опасную уязвимость для кражи паролей
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262382.jpg" />
-</div>
-
-
-###  Подробнее
-
-В менеджере Keeper, предустановленном в операционной системе Windows 10, обнаружили опасную уязвимость, которая позволяет сайтам красть сохраненные пароли пользователей.Внимание на ошибку в тестовой версии обратил специалист Google Тэвис Орманди. Однако позднее, по его словам, пользователи сообщили о наличии недоработки и в релизной версии, пишет издание ARS Technica.В (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190515   (262358) от 19.12.2017
-
-Короткие истории
-
->>3
->>96
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уважаемые одноклубники!
-Команда Клубные Таланты NNM-Club приглашает Вас принять участие в игре "Короткие истории". Предлагаем читателям поделиться своими жизненными наблюдениями посредством нескольких метких фраз.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192910   (262177) от 20.12.2017
-
-Opera Software ASA решила переименоваться в Otello Corporation
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания также сменит логотип, но пока ещё не разработала его.Норвежская Opera Software ASA, которая появилась после продажи бизнеса по разработке браузера Opera китайскому консорциуму, решила изменить название на Otello Corporation. Об этом сообщает Reuters со ссылкой на уведомление компании на сайте Фондовой биржи Осло.Компания планирует провести ребрендинг, но (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192923   (262164) от 20.12.2017
-
-Выгодный этап «ценовой войны»: операторы начали снижать цены на связь
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262164.jpg" />
-</div>
-
-
-###  Подробнее
-
-18 декабря 2017 года Yota объявила о снижении цен на тарифы в 12 регионах, включая Москву и Московскую область. Это изменение — следствие «ценовой войны» операторов, возобновившейся в ноябре. TJ вспоминает, как компании пришли к новому витку конкуренции, и приводит примеры тарифов из регионов.Что изменилось и почемуВ апреле 2017 года «большая четвёрка» операторов (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193366   (262158) от 20.12.2017
-
-NVIDIA GeForce Desktop 388.71 WHQL + For Notebooks [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262158.jpg" />
-</div>
-
-
-###  Подробнее
-
-NVIDIA GeForce Driver — драйвера для видеокарт производства NVIDIA. Предназначены для видеокарт семейства GeForce, работающих в операционной системе Windows. Унифицированная архитектура драйверов (CUDA) гарантирует прямую и обратную совместимость драйверов с различными поколениями графических процессоров NVIDIA, что упрощает процесс замены видеоподсистемы, так как (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61773C541DD40C919B548E8E0CB442D9DFD857BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193344   (262047) от 21.12.2017
-
-Очередное достижение: 4000 релизов от maykov!!!
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262047.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередное достижение: 4000 релизов от maykov!!!Уважаемые одноклубники , рад сообщить Вам о возможности поздравить нашего товарища с 4000-м релизом!С удовольствием поздравляю активного релизера , участника RG Музыки maykov с этим достижением и выражаем огромную благодарность от имени всех одноклубников и администрации NoNaMe ClubНадеюсь, что вы все также присоединитесь (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192180   (262023) от 21.12.2017
-
-Российских водителей обязали носить ночью за городом светоотражающие жилеты
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262023.jpg" />
-</div>
-
-
-###  Подробнее
-
-Правительство РФ дополнило правила дорожного движения пунктом, обязывающим водителей носить светоотражающие жилеты при остановке вне населенных пунктов в темное время суток или в условиях плохой видимости.«Постановление вступает в силу по истечении 90 дней со дня его официального опубликования», — сказано в документе.В правительстве сообщили, что количество наездов (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

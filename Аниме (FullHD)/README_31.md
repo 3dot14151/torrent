@@ -6,7 +6,7 @@ Kakumeiki Valvrave | Valvrave the Liberator | Валврейв Освободи�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534955.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Miss Monochrome The Animation 2 | Мисс Монохром 2 [2015, TV, 13] BDr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528549.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Miss Monochrome The Animation 3 | Мисс Монохром 3 [2015, TV, 13] BDr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528547.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Date a Live III | Рандеву с жизнью [ТВ-3] [2019, TV, 12 эп.] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528054.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Yakusoku no Nanaya Matsuri | Starlight Promises | Звездное паломн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523663.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Heroine Taru Mono! Kiraware Heroine to Naisho no Oshigoto | Heroines Run the Sho
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521855.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Peace Maker Kurogane | Железный миротворец (фильм) [2018,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520212.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Strike Witches: Operation Victory Arrow | Штурмовые ведьмы OVA-2 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518109.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Shuumatsu no Harem | World's End Harem | Гарем конца света [2021,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516586.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Gekijouban Psycho-Pass | Психо-паспорт (фильм) [2015, МV] BDri
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514762.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Drifters (2017) | Скитальцы [2017, OVA, 3 из 3] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512353.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Higashi no Eden Gekijoban II: Paradise Lost / Eden of The East the Movie II: Par
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511856.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Madan no Ou to Vanadis | Повелитель волшебных стрел и �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507827.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Yuukoku no Moriarty (2022) | Патриотизм Мориарти OVA [2022, OV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506217.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Yuyushiki / Формула ЮЮ [2013, TV, 12 + 6 SP] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503339.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Fantasy Bishoujo Juniku Ojisan to | Life with an Ordinary Guy who Reincarnated i
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499666.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Shin no Nakama ja Nai to Yuusha no Party o Oidasareta node, Henkyou de Slow Life
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499600.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Magia Record: Mahou Shoujo Madoka Magica Gaiden Final Season - Asaki Yume no Aka
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499586.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Kaijin Kaihatsubu no Kuroitsu-san | Miss Kuroitsu from the Monster Development D
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499582.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Gekijouban Fate/Grand Order: Shinsei Entaku Ryouiki Camelot Zenpen - Paladin; Ag
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499581.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Kimetsu no Yaiba: Mugen Ressha Hen | Demon Slayer: Mugen Train Arc | Истре�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499530.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Shachou, Battle no Jikan Desu! | Shachibato! President, It's Time for Battle! | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498523.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Gyokou no Nikuko-chan | Fortune Favors Lady Nikuko | Никуко из Рыба�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498514.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Taifuu no Noruda / Typhoon no Noruda / Тайфун Норды [2015, Movie] BDr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498233.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Vatican Kiseki Chousakan | Vatican Miracle Examiner | Инспекторы чу�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495176.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Shingeki no Bahamut: Virgin Soul | Ярость Бахамута: Непороч
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493817.jpg" />
 </div>
 
 

@@ -1,3 +1,81 @@
+###  Публикация: 1131451   (706501) от 06.05.2017
+
+Дипак Чопра | Исцеляющая сила разума (2017) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дипак Чопра - известный врач-эндокринолог, специалист по аюрведе и писатель, написавший множество книг по духовному самосовершенствованию и нетрадиционной медицине. К 2011 году написал более 57 книг, которые были переведены на 35 языков, общий тираж которых составил более 20 миллионов книг по всему миру. Основная мысль данной книги состоит в том, что жизнь – это (   Читать дальше...   )Жанр: ЭзотерикаПродолжительность: 09:21:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D6B4B938FB5075495E9E7B1C118A6FA5124EAF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131796   (705381) от 07.05.2017
+
+Рихард Рудзитис | Сознание красоты спасет (2016) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705381.jpg" />
+</div>
+
+
+###  Подробнее
+
+О книге "Сознание Красоты спасет" лучше не скажешь, чем это сделала Е.И.Рерих в своем письме к Р.Я.Рудзитису от 10 октября 1936 года: "Родной наш Рихард Яковлевич, вчера нам радость, пришла Ваша чудесная книга "Сознание Красоты спасет". В тот же вечер мы прочли этот огненный гимн Красоте. С восторгом вчитывались в эти одухотворенные строки. (   Читать дальше...   )Жанр: ФилософияПродолжительность: 02:34:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2DA64D2BE1713B4B10472BB1A73A8F366A7B5C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131791   (705378) от 07.05.2017
+
+Николай Данилкин | Полярные дневники (2016) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705378.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Полярные дневники"- увлекательный рассказ о путешествии к Северному полюсу в 1987 на атомоходе "Сибирь", рассказанная Николаем Петровичем Данилкиным- доктором физико-математических наук, профессором, работающем в Институте прикладной геофизики им Е.К. Федорова (г. Москва). Вы узнаете о задачах, которые ставили перед собой ученые, интересные факты (   Читать дальше...   )Жанр: научно-популярная литератураПродолжительность: 01:15:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3509CC91B2B9C82C232E4119E2724D4268D8E07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131823   (704941) от 07.05.2017
 
 Александр Спиркин | Основы философии (2014) [MP3]
@@ -6,7 +84,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704941.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702734.jpg" />
 </div>
 
 
@@ -61,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702208.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700421.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697915.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693151.jpg" />
 </div>
 
 
@@ -166,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692953.jpg" />
 </div>
 
 
@@ -193,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690113.jpg" />
 </div>
 
 
@@ -222,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689103.jpg" />
 </div>
 
 
@@ -248,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689089.jpg" />
 </div>
 
 
@@ -274,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688887.jpg" />
 </div>
 
 
@@ -300,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687234.jpg" />
 </div>
 
 
@@ -326,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686445.jpg" />
 </div>
 
 
@@ -354,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683069.jpg" />
 </div>
 
 
@@ -382,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682349.jpg" />
 </div>
 
 
@@ -409,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681958.jpg" />
 </div>
 
 
@@ -435,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680956.jpg" />
 </div>
 
 
@@ -461,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678173.jpg" />
 </div>
 
 
@@ -487,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676732.jpg" />
 </div>
 
 
@@ -514,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674750.jpg" />
 </div>
 
 
@@ -540,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672327.jpg" />
 </div>
 
 
@@ -566,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671021.jpg" />
 </div>
 
 
@@ -592,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667883.jpg" />
 </div>
 
 
@@ -603,84 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE405BBD52CBCC9E683E3C3ABD92736B3F7744CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137618   (666722) от 27.05.2017
-
-Нина Фрейман | Аудиоэкскурсия Царское Село (2007) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Царское село - один из красивейших пригородов Петербурга, который можно посетить в любое время года. Аудиоэкскурсия предлагает прогулку по Екатерининскому парку, включающую 17 остановок. Вы познакомитесь с такими знаменитыми на весь мир памятниками, как Екатерининский дворец, Камеронова галерея, павильоны «Эрмитаж» и «Грот», Большой каприз, Китайская деревня. И, (   Читать дальше...   )Жанр: АудиоэкскурсияПродолжительность: 01:49:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93CE2424EF6D43ABB3615D7C6281596939DA0ADC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537665   (666639) от 17.03.2022
-
-Роберт Райт | Эволюция Бога. Бог глазами Библии, Корана и науки (2021) [MP3, Сергей Уделов]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга – грандиозный рассказ о том, как родился, взрослел и становился нравственно совершеннее Бог иудаизма, христианства и ислама. Опираясь на самые авторитетные исследования по археологии, теологии, библеистике, истории религий и эволюционной психологии, автор показывает, как многочисленные кровожадные племенные боги войны становятся одним богом, ревнивым, высокомерным (   Читать дальше...   )Жанр: Религиоведение, История религийПродолжительность: 23:34:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F13FAD82D32D137E77AA0A1A7A5BA387B6FAA96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537650   (666638) от 17.03.2022
-
-Рой Варгезе, Энтони Флю | Бог есть. Как самый знаменитый в мире атеист изменил свои взгляды (2021) [MP3, Максим Гамаюнов]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга отправляет читателя прямиком на поле битвы самых ярких интеллектуальных идей, гипотез и научных открытий, будоражащих умы всех, кто сегодня задается вопросами о существовании Бога. Самый известный в мире атеист после полувековой активной деятельности по популяризации атеизма публично признал, что пришел к вере в Бога, и его взгляды поменялись именно благодаря (   Читать дальше...   )Жанр: Научно-популярная литература, РелигиоведениеПродолжительность: 06:11:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9AD8964FAD113D723DB357AFA56E485F9635A60
 ```
 
 https://mybot314.ru/tekegram_catalog/

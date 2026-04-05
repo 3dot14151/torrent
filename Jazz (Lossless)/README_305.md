@@ -6,7 +6,7 @@ Toshiyuki Miyama & New Herd - Misty (1982) 1985, SMS Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121095.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Cyrus Chestnut - My Father's Hands (2022) HighNote Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121086.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Robby Krieger - Robby Krieger & The Soul Savages (2024) [FLAC|Lossless|WEB-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120928.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Anita O'Day - Live At The City San Francisco (1979) 1997, Emily Productions [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120781.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Gato Barbieri - Priceless Jazz Collection (1997) GRP [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120780.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Mel Torme - Swingin' On The Moon (1993) LaserLight Digital [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120779.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Anita O'Day - Live In Concert Tokyo (1976) 1997, Emily Productions [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120775.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Mel Torme - An Evening With Mel Torme: Live from The Disney Institute (1996) Con
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120631.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Charles Mingus - Four Classic Albums Plus (1954 - 1959) 2CD, 2011, Avid Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120613.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Soulstance - The Jazz Art Of Relax Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120602.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ JD Allen - Barracoon (2019) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop, Cont
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120598.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Sarah Vaughan - Four Classic Albums (1954 - 1957) 2CD, 2019, Avid Jazz [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120594.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Kalle Reger - Smooth Groove 1 (Smooth Groove 1) (2024) [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120451.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Streetwize - Lift Me Up (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120446.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Caro Emerald & The Grandmono Orchestra - Live In Concert (At The Heineken Music 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120442.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ JD Allen - Toys / Die Dreaming (2020) Savant [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120412.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Mel Torme & Carmen McRae - Ralph J Gleason's Jazz Casual (1962, 1964) 2001, Koch
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120410.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Mel Torme - Two Darn Hot (1990) 2CD, 2002, Concord Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120409.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Alice Babs - The Unforgettable Songbird (2024) [FLAC|Lossless|WEB-DL|tracks] <Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120404.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ JD Allen - Americana, Vol. 2 (2022) Savant [FLAC|Lossless|tracks + .cue] <Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120254.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ C# - Me & 23 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120095.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ The Breadmen - Rise of the Breadmen (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120080.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Coccolite - Extrasystole (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120079.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Grant Clarkson - South West Five (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120078.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Ante Valcic (Valčić) - Synchronicity (2024) [FLAC|Lossless|WEB-DL|tracks] <Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120071.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Tony Drake - Escape (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Roc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120066.jpg" />
 </div>
 
 

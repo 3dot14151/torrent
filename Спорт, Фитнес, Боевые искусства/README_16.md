@@ -6,7 +6,7 @@
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271996.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271672.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269419.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269345.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263764.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263725.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258906.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258119.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258084.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253520.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253496.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253492.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253289.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253288.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234249.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223180.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223137.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220575.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220434.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220058.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219095.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219043.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219012.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218285.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218193.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217924.jpg" />
 </div>
 
 

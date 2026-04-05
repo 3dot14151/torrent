@@ -6,7 +6,7 @@ Charlie Mariano & Jerry Dodgion Sextet - Beauties Of 1918 (1957) Remaster, 2011,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640286.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Andre Fisichella - Seduction (2016) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640277.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Andrew Hill - Dance With Death (2012) [FLAC|Lossless]<Jazz, Post-Bop, Modern Cre
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639933.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Dollar Brand - African Breeze (2015) [FLAC|Lossless]<Jazz, Post-Bop, African Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639932.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ John Patton - Along Came John (2015) [FLAC|Lossless]<Jazz, Post-Bop, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639931.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Milt Jackson - High Fly (2004) 2CD[FLAC|Lossless]<Jazz, Post-Bop, Mainstream Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639928.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Lauren Desberg - Twenty First Century Problems (2015) [FLAC|Lossless|WEB-DL]<Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639733.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Stefanie Schlesinger - Reality (2017) [FLAC|Lossless|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639559.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Youn Sun Nah - She Moves On (2015) ACT [FLAC|Lossless|tracks + .cue] <Vocal Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639462.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ James P. Johnson - 1928 - 1938 (1992) Classics [FLAC|Lossless|tracks + .cue] <Ra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639412.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Pee Wee Russell - Portrait of Pee Wee (1958) 1991, DCC Jazz [APE|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639409.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Ron Carter and Helen Merrill - Duets (1989) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_639375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_639375.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Wayne Shorter Quartet - Beyond The Sound Barrier (2002 - 2004) 2005, Universal [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639204.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Al Di Meola & Leonid Agutin - Cosmopolitan Life (2005) [FLAC|Lossless]<Fusion, L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_639110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_639110.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ VA - Midnight Radio - NOIR JAZZ (2016) Signora Ward Records [FLAC|Lossless|Web-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639050.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Ken McIntyre - Year Of The Iron Sheep (1962) Remaster, 2010, United Artists Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638310.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Jeff Richman - Like That (2010) [FLAC|Lossless]<Jazz, Jazz Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638269.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Omar Hakim & Rachel Z - The Trio Of Oz (2010) Ozmosis Records[FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638242.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Eric Le Lann & Paul Lay - Thanks a Million (2018) Gazebo [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637784.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Snorre Kirk - Beat (2018) Stunt Records [FLAC|Lossless|tracks + .cue] <Contempor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637783.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ The Wrong Object - Into The Herd (2019) [FLAC|Lossless|tracks + .cue] <Fusion, J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637677.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Dewa Budjana - Mahandini (2018) [FLAC|Lossless|tracks + .cue] <World Fusion, Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637674.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Fugu Quintet (Fugu Quartet) - Sisyphus (2016) EP [FLAC|Lossless|Web-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637673.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Fugu Quintet - Circus (2017) Single [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637672.jpg" />
 </div>
 
 
@@ -710,7 +710,7 @@ Dizzy Gillespie All Star Sessions - Three Classic Albums Plus (1955 - 1957) 2CD,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637669.jpg" />
 </div>
 
 
@@ -739,7 +739,7 @@ Swami LatePlate (Bobby Previte and Jamie Saft) - Doom Jazz (2007) 2012, Veal [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637664.jpg" />
 </div>
 
 

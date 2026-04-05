@@ -6,7 +6,7 @@ Mirror for LG TV 2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411166.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Resolutionator 1.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411161.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Path Finder 7.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411110.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Ableton Live Suite 9.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411103.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Microsoft Office Standard 2016 Volume License Edition v15.13.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410625.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ File Cabinet Pro 4.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410615.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Gestimer 1.1.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410598.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Carbon Copy Cloner 5.0.2 (5102) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410565.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Geekbench 4.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410561.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ WidsMob Montage 2.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410549.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Mp3tag 1.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410547.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Aspect Ratio X 2.1.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410546.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ WidsMob Panorama 4.26 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410540.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Color UI 2.2.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410488.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ PhotosRevive 2.0.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410486.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Cisdem Duplicate Finder 6.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410482.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ MWeb Pro 4.3.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410481.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Jettison 1.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410476.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ AudKit Spotify Music Converter for Mac 2.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410397.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Viwizard Spotify Music Converter for Mac 2.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410327.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Rhinoceros 7 v.7.22 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410323.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Navicat Premium Essentials  16.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410321.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Typora 1.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410319.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ hr - Task timer as simple as it's name 1.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410174.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ CrossCode v.1.2.0 (2018) [Multi] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409961.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ DMG Canvas 2.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409911.jpg" />
 </div>
 
 

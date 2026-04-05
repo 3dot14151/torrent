@@ -6,7 +6,7 @@ VA - Hotel Lobby Instrumental Greatest Hits (2020) [AAC|~353 Kbps] <Instrumental
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300243.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Coffee & Jazz Lounge: Chillout Your Mind (2020) [AAC|~335 Kbps] <Downtempo,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300242.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Roxette - Bag Of Trix Vol. 2 (Music From The Roxette Vaults) (2020) [AAC|~342 Kb
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300239.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Elevator Music: Greatest Hits Instrumental (2020) [AAC|~348 Kbps] <Instrume
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300237.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Restaurant Instrumental Greatest Hits (2020) [AAC|~355 Kbps] <Instrumental>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300233.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300192.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300158.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ VA - Restaurant Instrumental 80's Hits (2020) [AAC|~366 Kbps] <Instrumental>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300088.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ VA - Instrumental Greatest Hits (2020) [AAC|~347 Kbps] <Instrumental>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300085.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ VA - Coffee Shop Instrumental Greatest Hits (2020) [AAC|~359 Kbps] <Instrumental
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300084.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ De-Phazz - Music to Unpack Your Christmas Present (2020) [AAC|~328 Kbps] <Nu-Jaz
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300080.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299933.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299696.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Andrea Bocelli - Believe (2020) [AAC|~323 Kbps] <Classical, Opera>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299658.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299577.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299571.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299471.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299444.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298668.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298550.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298409.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298408.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298404.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Ghostkid - GHOSTKID (2020) [AAC|~256 Kbps] <Post-Hardcore, Electronic>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298081.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Elton John - Jewel Box (2020) [AAC|~300 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297869.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ Secret Garden, Cathrine Iversen - Sacred Night (2020) [AAC|320 Kbps] <Classical,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297866.jpg" />
 </div>
 
 

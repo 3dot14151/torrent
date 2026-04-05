@@ -6,7 +6,7 @@ Ella Fitzgerald - Ella A Nice (1971) 1983, Pablo[FLAC|Lossless|image + .cue] <Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535131.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Dickie Wells - 1927 - 1943 (1997) Classics [FLAC|Lossless|tracks + .cue] <New Or
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534499.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ James Williams - Magical Trio 2 (1988) Emarcy [FLAC|Lossless|tracks + .cue] <Har
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534498.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Gene Krupa & Harry James - The Complete Capitol Recordings Of Gene Krupa & Harry
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533768.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Mavis Rivers & Shorty Rogers - Mavis Meets Shorty (1962) /2014, Warner/[FLAC|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533663.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Lester Bowie's Brass Fantasy - I Only Have Eyes For You (1985) [FLAC|image+.cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533662.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Cedar Walton - Pit Inn (1974) /2015, Universal/[FLAC|tracks+.cue]<Jazz, Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533659.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Stefano Di Battista - Trouble Shootin' (2007) EMI [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533624.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Jasmine Tommaso - Nelle Mie Corde (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533572.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Joyce Cooling - Global Cooling (2009) [FLAC|Lossless|image + .cue] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533534.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Benny Goodman And His Orchestra - Sing, Sing, Sing (1935, 1936) 1987, Bluebird R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533528.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Ray Brown & Laurindo Almeida - Moonlight Serenade (1981) 1984, Bell Records[WavP
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532798.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Carlos Vega - Bird's Up (2017) Origin Records [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532791.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ John Graas - Four Classic Albums (1956 - 1958) 2CD, 2017, Avid Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532790.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Shakatak - Times And Places (2016) [FLAC|Lossless|image + .cue] <Smooth-Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532578.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Nancy Wilson - With My Lover Beside Me (1991) Sony Music [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532036.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Barney Wilen - Barney (1959) /2014, Sony Music/[FLAC|tracks+.cue]<Jazz, Mainstre
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531729.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Fattburger - One Of A Kind (1986) /Golden Boy Jazz/[FLAC|tracks+.cue]<Jazz, Smoo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531726.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Dee Dee Bridgewater - Dee Dee's Feathers (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531717.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Jack Teagarden & Jonah Jones - Old Timey Jazz (1979) 2014, Music Trax [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531691.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Rosey - Luckiest Girl (2008) [FLAC|Lossless|image + .cue] <Soul-Jazz, Cool Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531681.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Jose James - Yesterday I Had The Blues - The Music Of Billie Holiday (2015) [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531621.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Quincy Jones - Complete Recordings 1955-1959 (2013) 4CD, Enlightenment [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531574.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Sonny Rollins - Trio & Quartet: Paris 1965 - Copenhagen 1968 (2008) 2CD, Gambit 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531397.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Oscar Peterson - Jam Montreux '77 (1977) 1989, Prestige[FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531063.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Dann Zinn - Day Of Reckoning (2019) Origin Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530967.jpg" />
 </div>
 
 

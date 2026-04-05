@@ -7,7 +7,7 @@ VA - The Best Of Suanda Chillout 2025 (2025) [MP3|320 Kbps] <Downtempo, Chillout
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049794.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ VA - Musica Pilates 2023 [MP3|320 Kbps] <Balearic, Downtempo>
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045925.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ VA - Frühlingsgefühle: Lounge & Easy Listening Deluxe (2023) [MP3|320 Kbps] <D
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035839.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Kim & Buran - Tramplin (2022) Limited Edition [MP3|320 Kbps] <Synthpop, Space di
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035526.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Mirage Of Deep - The Best Of Mirage Of Deep (2023) [MP3|320 Kbps] <Balearic, Dow
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029092.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Workout Music Tv - Pilates & Yoga 2021 Session [MP3|320 Kbps] <Balearic, Downtem
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028194.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Tricky - Fall to Pieces (Remixes) (2021) EP [MP3|320 Kbps] <Trip-Hop, E﻿lectro
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026397.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Deya Dova - Collection (1999-2017) 4 альбома [MP3|320 Kbps] <Downtempo, G
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018611.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ SEX-O-RAMA - Collection (1998-2011) 2альбома [MP3|320 Kbps] <Lounge, Rock
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004734.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ ONUKA - KOLIR (2021) [MP3|320 Kbps] <Electronic, Folk, Downtempo>
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892292.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Vangarde & Louis Sandoro - The Best Of Lounge: Jazz Lounge (2001) [MP3|320 Kbps]
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790339.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Vangarde feat. XXL - The Best Of Lounge: Buddha Lounge (2001) [MP3|320 Kbps] <Ch
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790328.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VA - Chill Out Vocal Trance 2022 [MP3|320 Kbps] <Balearic, Downtempo>
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593823.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Sexy Chillout Music Cafe - Quickie: Sexual Chill Music Collection (2022) [MP3|32
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410087.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Moderator - In the Garden (2022) EP [MP3|320 Kbps] <Trip-Hop, Downtempo, Jazz>
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387932.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ VA - Luxury Bar Grooves Vol. 1 (2022) [MP3|320 Kbps] <Chillout, Downtempo, Balea
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255228.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ VA - Luxury Bar Grooves Vol. 2 (2023) [MP3|320 Kbps] <Chillout, Downtempo, Balea
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255225.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ VA - Cafe Del Mar Ibiza Chillout Mix II (DJ Mix) (2023) [MP3|320 Kbps] <Chillout
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238619.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ VA - 50 Lounge Chillout Tunes - Best of Cafe Lounge & Chill out Ambient Classics
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235976.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ VA - Chill Out, Vol. 1 (2023) [MP3|320 Kbps] <Chillout, Downtempo, Balearic>
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232001.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ VA - Sensual Chilling Moves (2023) [MP3|320 Kbps] <Downtempo, Lounge, Easy Liste
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223078.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Blank & Jones - The Best Of Relax // 20 Years // 2003 - 2023 (2023) [MP3|320 Kbp
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206530.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ VA - Balearic Chill out Edition, Vol. 1 - 4 (2023) [MP3|320 Kbps] <Chillout, Bal
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206469.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ VA - Bar Lounge Classics - Session 2023 (2023) [MP3|320 Kbps] <Downtempo, Chillo
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189253.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ VA - The Orient Collective - Collection (2023) 8 Relise [MP3|320 Kbps] <Electron
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177352.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ VA - Redux Chill Out Moments 2023 [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173180.jpg" />
 </div>
 
 

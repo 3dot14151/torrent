@@ -1,3 +1,30 @@
+###  Публикация: 1332226   (315841) от 19.10.2019
+
+Blender Cloud | Создание видеоэффектов в Blender: Трекинг и Матчмувинг / Blender VFX Workflow: Track Match Blend 1 & 2 (2014) PCRec [H.264/720p-LQ] [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс о том, как создавать визуальные эффекты с помощью Blender.
+Одной из сильных сторон Blender является тесная интеграция моделирования, рендеринга и композитинга. Импорт видеоматериалов, трекинг и солвинг движения камеры и объекта, рендеринг и композитинг теперь могут быть выполнены в одном плавном рабочем процессе, всё внутри Blender.Производство: Blender Cloud (часть 1, часть 2)Жанр: VFXПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 14:59:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9D13383AAC385978B4CF84458B746E103522B13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582890   (315838) от 12.10.2022
 
 Wingfox, Nikolay Naydenov | Dragon Rider - Cartoon 3D Character Creation Course in Blender (2022) PCRec [EN]
@@ -6,7 +33,7 @@ Wingfox, Nikolay Naydenov | Dragon Rider - Cartoon 3D Character Creation Course 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315838.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Blender Cloud | Создание мультипликационного перс
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315830.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ Udemy, Ryan Dhungel | React Redux Ecommerce - Освой MERN Stack Веб-Ра�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315061.jpg" />
 </div>
 
 
@@ -88,7 +115,7 @@ Udemy, Mrawan Hussain | Создание маленького K-2SO робота
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315056.jpg" />
 </div>
 
 
@@ -114,7 +141,7 @@ Udemy, Alex Horea | Программирование на Java с JavaFx: Соз
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314929.jpg" />
 </div>
 
 
@@ -140,7 +167,7 @@ Udemy, Stephan Dowless | Делаем Клон Uber | Swift / Firebase | Без 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314919.jpg" />
 </div>
 
 
@@ -169,7 +196,7 @@ Udemy, Artem Bondar | Cypress: Автоматизированное тестир
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314810.jpg" />
 </div>
 
 
@@ -197,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314792.jpg" />
 </div>
 
 
@@ -223,7 +250,7 @@ Geekbrains | Swift (2015) PCRec [H.264/720p]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313796.jpg" />
 </div>
 
 
@@ -249,7 +276,7 @@ Blender Cloud | Создание игровых ассетов в Blender / Game
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313504.jpg" />
 </div>
 
 
@@ -275,7 +302,7 @@ Blender Cloud | Моушн графика в Blender / Blender Motion Graphics (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313309.jpg" />
 </div>
 
 
@@ -304,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313204.jpg" />
 </div>
 
 
@@ -330,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313197.jpg" />
 </div>
 
 
@@ -356,7 +383,7 @@ CG Fast Track | Полигональное моделирование в Blender
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312725.jpg" />
 </div>
 
 
@@ -385,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312393.jpg" />
 </div>
 
 
@@ -412,7 +439,7 @@ Skillbox | SMM-специалист с нуля (2020) PCRec
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312374.jpg" />
 </div>
 
 
@@ -441,7 +468,7 @@ Paul Levesque | WWE Power Series: Triple H (2014) DVDRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311907.jpg" />
 </div>
 
 
@@ -467,7 +494,7 @@ Jan Urschel | Мегасити 01 - Моделирование и Рендери
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311313.jpg" />
 </div>
 
 
@@ -494,7 +521,7 @@ CG Cookie | Генеративное Моделирование и Дизайн 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311307.jpg" />
 </div>
 
 
@@ -521,7 +548,7 @@ Jan Urschel | Интерьерное освещение - Футуристичн
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311301.jpg" />
 </div>
 
 
@@ -548,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311174.jpg" />
 </div>
 
 
@@ -576,7 +603,7 @@ ITVDN | C# Универсальные шаблоны (2016) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310523.jpg" />
 </div>
 
 
@@ -602,7 +629,7 @@ Skillbox, Логомашина | Дизайнер логотипа и фирме
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310236.jpg" />
 </div>
 
 
@@ -631,7 +658,7 @@ Skillbox | Веб-дизайн с нуля до PRO (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310235.jpg" />
 </div>
 
 
@@ -657,7 +684,7 @@ AIC, Skillbox, Tagline | Три дизайн-курса в одном - UX-ди�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310234.jpg" />
 </div>
 
 
@@ -668,32 +695,6 @@ AIC, Skillbox и Тэглайн подготовили для вас компл�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1948FDFE1690B527BAA03D14A8A89DB7B3752D6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422325   (310233) от 08.11.2020
-
-Skillbox | ArchiCAD для дизайнеров интерьера (2020) PCRec
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы научитесь пользоваться Archicad  на продвинутом уровне. Сможете быстро делать рабочие чертежи, создавать документацию, визуализировать проекты и станете более востребованным специалистом. Курс ориентирован полностью на практические навыки, преподаватели простыми формулировками объясняют сложные вещи. В программу обучения входят все важные аспекты, которые должен (   Читать дальше...   )Жанр: Archicad, дизайнПродолжительность: 32:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3C50BEF89F1FA1180C471F0F9B297CFCB1D75D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

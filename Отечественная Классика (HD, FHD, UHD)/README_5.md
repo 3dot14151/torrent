@@ -1,3 +1,57 @@
+###  Публикация: 769267   (833781) от 08.04.2016
+
+Белое солнце пустыни (1969) BDRemux [1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесконечная пустыня, боец Сухов, прикуривающий с динамитной шашки, нескладный Петруха с вечно заклинивающей трехлинейкой, обаятельный Верещагин, с надоевшей черной икрой и знаменитыми песнями-балладами, ловкий Саид с незабвенным «Стреляли», злодей Абдулла со своей бандой, любознательная Гульчатай, играющая с черепахою…Производство: СССР / Ленфильм, МосфильмЖанр: Боевик, драма, мелодрама, комедия, приключения, военныйРежиссер: Владимир МотыльАктеры: Анатолий Кузнецов, Спартак Мишулин, Кахи Кавсадзе, Павел Луспекаев, Раиса Куркина, Татьяна Федотова, Николай Годовиков, Муса Дудаев, Николай Бадьев, Владимир КадочниковПеревод: Не требуется (Русский язык)Субтитры: ОтсутствуютПродолжительность: 01:23:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE664B1DA0D7112B91C54228695C7C3B4BFC50F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 195388   (830261) от 25.04.2010
+
+Человек с бульвара Капуцинов (1987) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830261.jpg" />
+</div>
+
+
+###  Подробнее
+
+В одном из ковбойских городков Дикого Запада с его традиционной стрельбой, сквернословием и мордобоем появляется тихий миссионер кино мистер Фёст. Неведомое прежде ковбоям «синема» до неузнаваемости меняет уклад их жизни, нравы и привычки.
+
+Правда, позднее благородный мистер Фёст будет изгнан недоброжелателями. Но обитатели городка уже никогда не смогут забыть, что (   Читать дальше...   )Производство: СССР,  киностудия "Мосфильм"Жанр: Мюзикл, мелодрама, комедия, вестернРежиссер: Алла СуриковаАктеры: Андрей Миронов, Александра Яковлева, Михаил Боярский, Олег Табаков, Николай Караченцов, Игорь Кваша, Лев Дуров, Галина Польских, Наталья Крачковская, Наталья Фатеева, Спартак Мишулин, Альберт Филозов, Михаил Светин, Леонид Ярмольник, Олег Анофриев, Семен Фарада, Александр ПавловПродолжительность: 01:37:47
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 697140   (828104) от 11.04.2016
 
 Кин-дза-дза! (1986) BDRemux [1080p] (серии 1-2 из 2)
@@ -6,7 +60,7 @@
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828104.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827067.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826429.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_822095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822095.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818581.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816938.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814810.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809594.jpg" />
 </div>
 
 
@@ -218,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_804886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_804886.jpg" />
 </div>
 
 
@@ -244,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801498.jpg" />
 </div>
 
 
@@ -270,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799816.jpg" />
 </div>
 
 
@@ -296,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798584.jpg" />
 </div>
 
 
@@ -322,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797898.jpg" />
 </div>
 
 
@@ -348,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797182.jpg" />
 </div>
 
 
@@ -374,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792800.jpg" />
 </div>
 
 
@@ -400,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789456.jpg" />
 </div>
 
 
@@ -426,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788009.jpg" />
 </div>
 
 
@@ -453,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780210.jpg" />
 </div>
 
 
@@ -479,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780021.jpg" />
 </div>
 
 
@@ -505,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779320.jpg" />
 </div>
 
 
@@ -531,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772927.jpg" />
 </div>
 
 
@@ -557,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770430.jpg" />
 </div>
 
 
@@ -584,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769715.jpg" />
 </div>
 
 
@@ -610,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768830.jpg" />
 </div>
 
 
@@ -621,59 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:159242410858762E5FFCF2840304D3CA58AA1C65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123938   (766769) от 16.04.2017
-
-Весна на Заречной улице (1956) WEB-DL [H.264/1080p-LQ] [Цветная версия]
-
->>След.
->>Отечественная Классика (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766769.jpg" />
-</div>
-
-
-###  Подробнее
-
-История любви юной учительницы школы рабочей молодежи и ее ученика — одна из самых популярных отечественных мелодрам. Герой фильма, парень лихой и самоуверенный, лучший сталевар завода, не привык к отказам женщин. И вдруг его домогательства получают отпор!..
-Поначалу он пытается играть в безразличие. Но проходит время — и он вдруг понимает, что к нему впервые пришло (   Читать дальше...   )Производство: СССР / Одесская киностудияЖанр: МелодрамаРежиссер: Марлен Хуциев, Феликс МиронерАктеры: Нина Иванова, Николай Рыбников, Владимир Гуляев, Валентина Пугачева, Геннадий Юхтин, Римма Шорохова, Николай Ключнев, Марина Гаврилко, Юрий Белов, Валентин Брылеев ...Продолжительность: 01:30:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07E046A5BF010D432FA9902469A4C91D0507B360
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214114   (765682) от 20.03.2018
-
-Кубанские казаки (1949) WEBRip [H.264/1080p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765682.jpg" />
-</div>
-
-
-###  Подробнее
-
-На колхозной ярмарке встречаются представители двух процветающих кубанских колхозов — Галина Пересветова и Гордей Ворон. Они любят друг друга, но скрывают свои чувства, ведь Галина и Гордей — давние конкуренты. Они соревнуются в трудовых подвигах, и главное для каждого из них — вывести свой колхоз на первое место.Производство: СССРЖанр: Мьюзикл, комедияРежиссер: Иван ПырьевАктеры: Марина Ладынина, Сергей Лукьянов, Владимир Володин, Александр Хвыля, Сергей Блинников, Клара Лучко, Екатерина Савинова, Владлен Давыдов, Андрей Петров, Юрий Любимов, Борис АндреевСубтитры: ОтсутствуютПродолжительность: 01:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9855DB48E172707F4DBC351836270A202AF09A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

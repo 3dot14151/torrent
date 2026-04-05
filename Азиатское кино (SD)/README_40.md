@@ -1,3 +1,55 @@
+###  Публикация: 721078   (372193) от 11.11.2013
+
+Пом Пом наносит ответный удар / Shuang long tu zhu / Pom Pom Strikes Back (1986) DVDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полицейские Джон и Ричард по-прежнему слывут самыми безалаберными детективами в своем отделе, но начальник верит, что для этих двоих еще не все потеряно и поручает им охранять девчушку-свидетельницу по делу об ограблении на 80 миллионов. Намаявшись с отелями, напарники поселяют ее в своей квартире, пока жена Ричарда отсутствует…Производство: ГонконгЖанр: Комедия, БоевикРежиссер: Йип Винг ЧоАктеры: Джон Шам, Ричард Нг, Динни Йип, Майкл Чан, Мэй Ло, Билли Чинг, Ву Ма, Деннис Чан, Зебра Пан, Йип Винг-Чо, Коби Вонг, Ма Чао, Нг Мин-Кан, Стэнли Фунг, Филлип Чан, Фунг Кин-МанПеревод: Одноголосый закадровыйПродолжительность: 01:25:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BEDC464B9986B38B93308DABDC690991CEDCEBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415934   (371574) от 14.10.2020
+
+Полночная закусочная (Ночной ресторан) / Shinya shokudo / Midnight Diner (2014) BDRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371574.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Полночная закусочная" открывается ровно в полночь и работает до 7 утра. Здесь нет меню, но хозяин ресторана, он же повар, может приготовить почти любое блюдо, которое закажет его гость. А гости сюда приходят абсолютно разные. В фильме "Ночной ресторан" вы увидите три истории: о "меркантильной" женщине, бросившей молодого любовника, (   Читать дальше...   )Производство: Япония, Shogakukan, Kinoshita Komuten, Toei CompanyЖанр: Драма, комедияРежиссер: Дзёдзи МацуокаАктеры: Каору Кобаяси, Саки Такаока, Токио Эмото, Хироюки Мотои, Акира Сагара, Микако Табэ, Киёхико Сибукава, Мицуки Танимура, Ёсиюки Морисита, Макото АрикаваПеревод: Одноголосый любительский (Павел Тимонин aka 3df)Субтитры: Английские - отдельным файломПродолжительность: 01:59:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3826B416866513B3672EC37DEBF08159861FEEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1069647   (371003) от 05.11.2016
 
 Мальчики и гиперпространство / Jiong nan hai (2008) DVDRip
@@ -6,7 +58,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371003.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370697.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370127.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369544.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367516.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366621.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365552.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365408.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365001.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364234.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363012.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362819.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362679.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362467.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362383.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362354.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ V.I.P. / V.I.P. (2017) BDRip
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362288.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362258.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362075.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361091.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360390.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359846.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358376.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357487.jpg" />
 </div>
 
 
@@ -621,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FE8558241651D0603E0F1E490E1EAAD08FC6C1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577370   (356878) от 18.09.2022
-
-Сад Робинсона / Robinson no niwa / Robinson's Garden (1987) BDRip [AVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Устав от рутинной жизни, Кумико увольняется с работы. Однажды она забредает на заброшенную стройку и решает превратить ее в свой райский островок. Словно Робинзон Крузо, она засеивает огороды и сажает клумбы. Но хватит ли у нее сил и терпения?Производство: ЯпонияЖанр: драмаРежиссер: Масаси ЯмамотоАктеры: Кумико Охта, Ко Матида, Туко Уэно, Тибо, Ото, Мицува Сакамото, Марино Тику, Рёдзи Номура, Идзаба, Сакэви ЁкоямаПеревод: АвторскийЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:00:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24E8033AE78D9A6B83D63D894A49F069E02113E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417592   (355734) от 21.10.2020
-
-Бабье царство / Onna no za / A Woman's Place (1962) WEB-DLRip [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355734.jpg" />
-</div>
-
-
-###  Подробнее
-
-В доме Исикава нет сильной мужской руки: отец состарился, старший его сын умер, средний сын занят своим семейством, внук ещё учится в школе. Зато в доме много женщин: невестка-вдова и пять дочерей. Старшие уже замужем, но трем младшим надо найти хороших мужей. Дом не бедный, но как обеспечить всех дочерей приданым, и кто будет заботиться о родителях, когда все они (   Читать дальше...   )Производство: Япония, Toho CompanyЖанр: ДрамаРежиссер: Микио НарусэАктеры: Хидэко Такаминэ, Ёко Цукаса, Юрико Хоси, Рэйко Дан, Кэйко Авадзи, Мицуко Кусабуэ, Харуко Сугимура, Акэми Кита, Яцуко Танами, Аико МимасуПеревод: Многоголосый любительский (STEPonee)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85C33C630BD2BD23577DD6C5C0268E7DF5C2EFB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

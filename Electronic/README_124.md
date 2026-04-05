@@ -1,3 +1,61 @@
+###  Публикация: 1119981   (802053) от 31.03.2017
+
+Dash Berlin - We Are Part 2 (2017) Extended Versions [MP3|320 Kbps] <House, Vocal House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dash Berlin & Matt Simons - With You (Extended Mix)  5:21
+02.  Dash Berlin & DBSTF vs. Jake Reese & Waka Flocka ft. DJ Whoo Kid - Gold (Extended Club Mix)  3:34
+03.  Dash Berlin & Do - Heaven (Club Mix)  5:22
+04.  Dash Berlin & Luca Perra - Without The Sun (Extended Club  4:53(   Читать дальше...   )Жанр: House, Vocal HouseПродолжительность: 00:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65AF395A2AD306EA9F54815DC5C0FCA10AAB6732
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120569   (802050) от 31.03.2017
+
+VA - Erotic Chilled Beats (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sombra Modos – Botavara 05:34
+ 02. The Sura Quintet – Keep Me Company 06:05
+ 03. Lamar Ensemble – Stay Sharp 05:36
+ 04. Aqua Mundi – Night Flavour 06:24(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:56:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8044399FB9DEAB437BFE8C2949DF1225BBBE7B10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120345   (802013) от 31.03.2017
 
 VA - Dream Minimal (2016) [FLAC|Lossless|WEB-DL|tracks] <Minimal, Tech House>
@@ -6,7 +64,7 @@ VA - Dream Minimal (2016) [FLAC|Lossless|WEB-DL|tracks] <Minimal, Tech House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802013.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Ultrаnоire - Intrоnаut (2017) [FLAC|Lossless|image + .cue] <SynthPop, Electr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802007.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Hed Kandi - World Series: Tokyo (2010) [FLAC|Lossless|tracks] <Progressive House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801843.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Cosy Winter Lounge Vol.3 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801841.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Ori Uplift - Uplifting Only 257 (2018) [MP3|320 Kbps] <Trance,Uplifting Tra
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801839.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Aly & Fila - Future Sound Of Egypt 530 (2018) [MP3|320 Kbps] <Trance,Uplift
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801836.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Future Sounds. EDM (2018) [MP3|320 Kbps] <House, Club, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801835.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Hed Kandi - Beach House (2010) [FLAC|Lossless|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801834.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Islandman - Rest In Space (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801771.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Kamasutra Sensual Chillout Vol.5 (2018) [MP3|320 Kbps] <Downtempo, Chillout
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801770.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Yppah - Sunset in the Deep End (2020) [FLAC|Lossless|Web-DL|tracks] <Ambient, Br
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801749.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Trance Winter Essentials Vol.01 (2018) [MP3|320 Kbps] <Trance, Progressive 
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801689.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Workout Trance & Workout Electronica - Workout 2020 Progressive House [MP3|
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801677.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Tranquility (2021) [MP3|320 Kbps] <Psy, Trance>
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801512.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Embedded Audio EA presents: Best Of 2017 (Mixed by Sebastian Montano) (2018
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801143.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Atragun - Younity (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801139.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Silk Music Pres. Trance Treasures 09 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801137.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801133.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Markus Schulz - Global DJ Broadcast:World Tour - Los Angeles (2018) [MP3|32
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801094.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Fizzarum - Discography 5 Releases (2000-2017) [FLAC|Lossless|tracks+.cue, tracks
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801091.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Workout Motivation Vol.1 (Most Motivating Tech House & Techno Tunes For Spo
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801090.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - DJ Feel - TOP 40 Russian Tracks 2017 (2018) [MP3|320 Kbps] <Trance,Progress
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801037.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Maxthor - Fiction (2020) [MP3|320 Kbps] <Synthwave, Retrosynth, Synth Rock, New 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800916.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Nikosf. - Discography 8 Releases (2008-2014) MOSHItaka, Dewtone, Etoka Records [
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800856.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Nikosf. - Discography 8 Releases (2008-2014) MOSHItaka, Dewtone, Etoka Records [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C86F5948DE48E9B90E4116785047CA9CF03DF63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121379   (800651) от 02.04.2017
-
-VA - Ferry Corsten presents:Corstenas Countdown March (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiesto - Ten Seconds Before Sunrise (Moska Remix) (05:07)
-02. Solid Stone & Tiffany Johnston - Tempted (Extended Mix) (05:49)
-03. Max Millian - Evolve (Extended Mix) (06:09)
-04. Dan Dobson - Pressurized (Original Mix) (06:40)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:02:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC582BA4E503B92AB8264DB3F7FAAB037154D95C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120888   (800647) от 02.04.2017
-
-VA - Easy Sun Lounger Born To Be Cool Chillin Vol.4 (Finest Chill Out Lounge and Ambient Music) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  York & Anthya - The Horizon Of Mars  5:39
-02.  351 Lake Shore Drive - Sunrise  5:37
-03.  Inventors Of The Sun - Wonder Of Romance  5:19
-04.  Lazy Hammock - Naked Being  4:42(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:33:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BBF6A6F422B95C822E5A8DBDD8B35A13887C69D
 ```
 
 https://mybot314.ru/tekegram_catalog/

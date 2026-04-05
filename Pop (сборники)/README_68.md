@@ -1,3 +1,151 @@
+###  Публикация: 361992   (575089) от 11.07.2011
+
+VA - Хит-парад 200 50/50 (2011) [MP3|128 kbps]<Поп>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ПопПродолжительность: 12:18:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10CA76E83C598B5C8F5C0BC8E668C8E45BA7858E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043009   (574790) от 15.08.2016
+
+VA - Super Dance Party Vol.3 (2016) [MP3|320 Kbps] <Dance, Club>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lana Del Rey - Summertime Sadness (DJ Favorite & DJ Kharitonov Radio Edit)
+02. Calvin Harris & Rihanna - This Is What You Came For (Denis First Radio Edit)
+03. Jahkarta - Never Seen The Sun (Denis First Radio Edit)
+04. Galantis - No Money (Denis First Radio Edit)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 05:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF678D0638C62F94ED68BE5E8517C8A05A113778
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527515   (574735) от 27.07.2012
+
+VA - 100 Лучших хитов от Русского радио Спецвыпуск летний (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 T1One - Девочка Поверь
+02 Земфира - Дождь
+03 Faktor-2 - Никто Не Забыл
+04 Алексей Кабанов - Легкие
+05 Алсу - Поговорим Перед Сном
+06 Дмитрий Маликов - Прости
+07 Ани Лорак - Why
+08 Слава - Sex Не Любовь
+09 Lilu - Солнышко (Dj Jedy Radio Edit)
+10 Арман Габриелян И Юлия Савичева - Мир, В Который Верю Я(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D23F17E22D6933A1F413667807066557809E710A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043008   (574717) от 15.08.2016
+
+VA - Союз Летних Хитов (2016) [MP3|256 Kbps] <Поп, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Влад Ульянич - Невыносимая
+02. Юля Шатунова - Мечты Сбываются
+03. Coldplay - Adventure Of A Lifetime
+04. Mad Show Boys - Хечословацкая Сепня(   Читать дальше...   )Жанр: Поп, DanceПродолжительность: 06:06:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52E7ACC00353F2D5C35DA0821C6AF50DCB65F2FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043022   (574699) от 15.08.2016
+
+VA - Mega Hits. World top №9 (2016) [MP3|128-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574699.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Drake - Controlla
+002. Ariana Grande - Into You
+003. Florida Georgia Line - H.O.L.Y.
+004. OneRepublic - Kids(   Читать дальше...   )Жанр: PopПродолжительность: 06:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:555D32EBE86B267D69BEE68F165266737A41D8AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043024   (574660) от 15.08.2016
 
 VA - Убойное лето №5 Europa Plus (2016) [MP3|256 Kbps] <Pop>
@@ -6,7 +154,7 @@ VA - Убойное лето №5 Europa Plus (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574660.jpg" />
 </div>
 
 
@@ -35,7 +183,7 @@ VA - Золотые Хиты Дискотек 80-х В Обработке  (2011
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574594.jpg" />
 </div>
 
 
@@ -61,7 +209,7 @@ VA - Super Summer Hits 2016 (2016) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574574.jpg" />
 </div>
 
 
@@ -90,7 +238,7 @@ VA - Русское радио. Убойное лето №4 (2016) [MP3|256 Kbp
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574424.jpg" />
 </div>
 
 
@@ -119,7 +267,7 @@ VA - VIP Абсолютно Танцевальный (2011) [MP3|256 kbps]<Pop, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573500.jpg" />
 </div>
 
 
@@ -145,7 +293,7 @@ VA - Муз обоз №5 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572983.jpg" />
 </div>
 
 
@@ -174,7 +322,7 @@ VA - Зажги Под Летние Хиты 8 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572841.jpg" />
 </div>
 
 
@@ -203,7 +351,7 @@ VA - Turbo mix World Hits №6 (2016) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572832.jpg" />
 </div>
 
 
@@ -232,7 +380,7 @@ VA - Наша летняя соточка №1 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572825.jpg" />
 </div>
 
 
@@ -261,7 +409,7 @@ VA - Super Dance Party Vol.4 (2016) [MP3|320 Kbps] <Dance, Club>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572824.jpg" />
 </div>
 
 
@@ -290,7 +438,7 @@ VA - 100 Хитов Любимой Музыки (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572695.jpg" />
 </div>
 
 
@@ -319,7 +467,7 @@ VA - The Greatest 80's Collection (2016) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572600.jpg" />
 </div>
 
 
@@ -348,7 +496,7 @@ VA - Now Thats What I Call The 80s Hits (2016) [MP3|320 Kbps] <Pop, Disco, R&B, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572592.jpg" />
 </div>
 
 
@@ -377,7 +525,7 @@ VA - World Top 100 DFM (2016) [MP3|128-320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572389.jpg" />
 </div>
 
 
@@ -406,7 +554,7 @@ VA - 60 лучших песен на французском языке (2017) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572239.jpg" />
 </div>
 
 
@@ -435,7 +583,7 @@ VA - Hit Music: лето (2022) от Мяу [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571810.jpg" />
 </div>
 
 
@@ -464,7 +612,7 @@ VA - Хит топ 2015. Лирические баллады (2015) [MP3|320 к�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571647.jpg" />
 </div>
 
 
@@ -493,7 +641,7 @@ VA - Союз хитовый Русский (2011) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571542.jpg" />
 </div>
 
 
@@ -519,7 +667,7 @@ VA - Летняя улетная вечеринка (2012) [MP3|256 кб/с]<Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571294.jpg" />
 </div>
 
 
@@ -554,7 +702,7 @@ VA - Без тормозов: Super дискотека 10 (2012) [MP3|256 кб/�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571048.jpg" />
 </div>
 
 
@@ -589,7 +737,7 @@ DJ.Amure - Best Remixes (2017) [MP3|320 Kbps] <Dance, Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570357.jpg" />
 </div>
 
 
@@ -603,157 +751,6 @@ DJ.Amure - Best Remixes (2017) [MP3|320 Kbps] <Dance, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4522C624EED06DCA3FDA7E982BB7A42F9C8D6C4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151726   (570229) от 20.07.2017
-
-VA - Power FM Hits 2017 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rag'n'bone Man - Human 03:21
-02. Kda Feat. Tinashe - Just Say 03:22
-03. Mahmut Orhan Feat. Sena Sener - Feel 02:54
-04. The Chainsmokers Feat. Halsey - Closer 04:07(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE72038F045188A150714EC9E6067AA347B4FD5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303698   (570080) от 22.05.2019
-
-Ace Of Base - All That She Wants (2019) 2 CD Compilation [MP3|320 Kbps] <Disco, Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voulez-Vous Danser
-02. Never Gonna Say I'm Sorry
-03. Lucky Love
-04. The Sign(   Читать дальше...   )Жанр: Pop, Disco, EurodanceПродолжительность: 01:33:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A6D9AFB4368001E1CBC5AC3C5D526A60A82FD4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922323   (569817) от 28.07.2015
-
-VA - Летние super новинки. Часть 3 (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569817.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Eduard De Costa - Summer Time
-002. Валенсия И Андрей Гражданкин - Лепестки Белых Роз
-003. Lx24 - Когда Ты Рядом Со Мной
-004. Dami Im - One More Time(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B98B1C9CA852A5EC1C12E41946162B11A0090264
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043951   (568919) от 18.08.2016
-
-VA - Абсолютные Хиты Лета 7 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568919.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. White Sea - Yesterday
-002. Джакомо Feat. D.O.D - Играем В Любовь
-003. Jacob Whiteside - Lovesick
-004. Oleynik - Прости(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F730D0ADC81A051D9F1208B8974B3CCA65A060E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528869   (568795) от 30.07.2012
-
-VA - Русский Размер Удовольствия (2012) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Sandro Escobar vs. BiffGuyz - Бум Бум Бум (Radio Mix)
- 02. Gaudi - Забери Меня
- 03. Dress Code - Кучерявое Лето
- 04. Нюша - Queen Of The Night
- 05. Kazaky (Казаки) - Barcelona
- 06. Горячий Шоколад - Ты Обними
- 07. Дима Билан и Юлия Волкова - Любовь-Сука
- 08. Мариетта - Слов Не Надо
- 09. Потап и Настя - Прилелето (Moscow Club Bangaz feat. Demid Rezin Radio Edit)
- 10. Юрий Шатунов - Майский Вечер 2012Жанр: PopПродолжительность: 04:53:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EDD94CFFA7C5D7451866A7C7668F679771AE597
 ```
 
 https://mybot314.ru/tekegram_catalog/

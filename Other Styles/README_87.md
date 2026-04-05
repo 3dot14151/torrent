@@ -1,3 +1,61 @@
+###  Публикация: 1548640   (593903) от 06.05.2022
+
+Кметъ - Солнце, Ладога И Киев (2022) [FLAC|Lossless|WEB-DL|tracks] <Pagan Folk Metal, Groove Metal>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Кий, Щек, Хорив и Лыбедь (00:05:07)
+02 - Выше Солнца (00:04:32)
+03 - Капище (00:04:54)
+04 - Иду на Вы (00:04:12)(   Читать дальше...   )Жанр: Pagan Folk Metal, Groove MetalПродолжительность: 00:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E20AD6701DCDF7E8BCC3D4E2E5867561A1967EE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300182   (593697) от 05.05.2019
+
+Joy Williams - Front Porch (2019) [FLAC|Lossless|tracks + .cue] <Folk, Country, Americana>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Canary
+02. Front Porch
+03. When Does A Heart Move On
+04. All I Need(   Читать дальше...   )Жанр: Folk, Country, AmericanaПродолжительность: 00:43:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D5B4ECCAAB8A56C04F8AAF764CDA989E9EEA9BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1233364   (593296) от 29.06.2018
 
 Emir Kusturica and the No Smoking Orchestra - Corps Diplomatique (2018) [FLAC|Lossless|WEB-DL|tracks] <Balcan Folk Rock, Gypsy Jazz, Folk Punk, Ska>
@@ -6,7 +64,7 @@ Emir Kusturica and the No Smoking Orchestra - Corps Diplomatique (2018) [FLAC|Lo
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593296.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Henry Jackman - Pokémon: Detective Pikachu / Покемон. Детектив �
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592774.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Henry Jackman - Pokémon: Detective Pikachu / Покемон. Детектив �
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592772.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Satyaa & Pari - New Year Celebrations (Live) (2020) [FLAC|Lossless|WEB-DL|tracks
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592637.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Blackwater - Earth Rhythms Spirit Of The Drum (2006) [MP3|320 кб/с]<Native Am
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592385.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Spiritu (986) - Spiritu (986) (2000) Legacy Recordings, 2021 Remastered [FLAC|Lo
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592153.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Giovanni Marradi - Feelings (1997) [FLAC|Lossless|image + .cue] <Piano, Instrume
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591192.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ TYA - Echoes (2015) [MP3|320 кб/с]<New Age, Chillout, World, Tribal>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589960.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Indios de America - Indios de America (2004) [MP3|160 кб/с]<Native american, 
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589947.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Valentina Babor - Piano Princess (2015) [MP3|320 кб/с]<Instrumental, Classica
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589532.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Evgeny Grinko - Orange Marmalade (2021) [MP3|320 Kbps] <Instrumental, Piano>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588516.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Valeriy Dolgin - Erektogitara (2013) [MP3|320 Kbps] <Guitar, Instrumental>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588512.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Giovanni Marradi - The Best of Giovanni, Vol. 2 (2008) [FLAC|Lossless|WEB-DL|tra
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588494.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Giovanni Marradi - Italian Love Songs (2006) [FLAC|Lossless|WEB-DL|tracks] <Pian
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588492.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Giovanni Marradi - The Best of Giovannii, Vol. 3 (2008) [FLAC|Lossless|WEB-DL|tr
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588479.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588127.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Allegro Milano - Crocodile Rock - Allegro Milano plays Elton John (1992) [FLAC|L
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588125.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Allegro Milano - Plays The Hits Of Tina Turner In DDD (1993) [FLAC|Lossless|imag
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588116.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Amaru Tribe - Between Two Worlds (2022) [MP3|320 Kbps] <Folktronica, World, Folk
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587674.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Giovanni Marradi - The Best of Giovanni (2008) [FLAC|Lossless|WEB-DL|tracks] <Pi
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587626.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Vangelis - 11 альбомов (1971-2003) [FLAС|APE|Lossless|image, tracks + .
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587494.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Kayo Konishi & Yukio Kondo - Elfen Lied Original Soundtrack (2007) [FLAC|Lossles
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587150.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Kenio Fuke - Piano e Natureza, Vol. 1-5 (2005-2018) KF Music [FLAC|Lossless|WEB-
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587143.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ David Hicken - The Art of Piano (2016) [MP3|320 Kbps] <New age, Instrumental, Re
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586446.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ David Hicken - The Art of Piano (2016) [MP3|320 Kbps] <New age, Instrumental, Re
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C605B6E8585DAADFD6773D928B2BC389285C549
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301198   (586254) от 10.05.2019
-
-Henry Jackman - Ralph Breaks the Internet / Ральф против интернета (Original Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imagine Dragons - Zero (03:32)
-02. Sarah Silverman, Gal Gadot, Cast - Ralph Breaks the Internet - A Place Called Slaughter Race (03:28)
-03. Julia Michaels - In This Place (03:21)
-04. Henry Jackman - Best Friends (02:53)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C87F3F26C3DBFFD9A44F21C25464B7CBC0B1A814
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301244   (586252) от 10.05.2019
-
-Allegro Milano - Allegro Milano Spielt Die Schönsten Weihnachtslieder (1993) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Weisse Weihnachten (3:25)
-02. Leise Rieselt Der Schnee (3:12)
-03. Alle Jahre Wieder (3:30)
-04. Morgen Kommt Der Weihnachtsmann (3:05)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:57:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CDD4636421D921A1386DE514B2F06807E46703D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 707503   (486780) от 28.08.2020
+
+Создание из Черной лагуны / Creature from the Black Lagoon (1954) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486780.jpg" />
+</div>
+
+
+###  Подробнее
+
+В глубоких амазонских дебрях, что-то ищет в земле палеонтологическая экспедиция. Не найдя того, чего искали, ученые мужи решили проверить - а может быть то, что они искали отнесло течением в зловещую Черную лагуну!? Надо проверить и искать там. Забрались, начали искать... дальше, понятно: на сцене появляется главный герой фильма и последовательно кушает (вернее, (   Читать дальше...   )Производство: США, Universal International PicturesЖанр: Ужасы, фантастика, приключенияРежиссер: Джек АрнольдАктеры: Ричард Карлсон, Джули Адамс, Ричард Дэннинг, Антонио Морено, Нестор Пайва, Уит Бисселл, Рику Браунинг, Бен ЧэпманПеревод: Многоголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:19:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7141ED21822575E6D033001A18329863DECA65B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317506   (486442) от 10.08.2019
+
+Короли Солнца / Kings of the Sun (1963) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Индейцы из племени майя во главе с молодым королем Баламом решают перебраться через Мексиканский залив и осесть на североамериканских землях. На новой земле они сталкиваются с племенем коренных американцев, предводителем которых является вождь по имени Черный Орел. Конфликт двух племен осложняется еще и тем, что и король Балам, и Черный Орел влюбляются в прекрасную (   Читать дальше...   )Производство: США / The Mirisch CorporationЖанр: Триллер, Драма, Приключения, ИсторияРежиссер: Дж. Ли ТомпсонАктеры: Юл Бриннер, Джордж Чакирис, Ширли Энн Филд, Ричард Бейсхарт, Брэд Декстер, Бэрри Морс, Армандо Сильвестре, Лео Гордон, Виктория Ветри, Руди СолариПеревод: Многоголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:47:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:602C6FE6F590F51CF473350D1D4E945DB46D97DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 934757   (485830) от 16.09.2015
 
 Королева скота из Монтаны / Cattle Queen of Montana (1954) DVDRip [H.264] [VO]
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485830.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485793.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485354.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484583.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483911.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483886.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483845.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482963.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482645.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481854.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481811.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481602.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480928.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480524.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480476.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479837.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479743.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479589.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479366.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479259.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478896.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478562.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478438.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478381.jpg" />
 </div>
 
 
@@ -625,60 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EA143DD1B3F3EF4D6353A3801DFC12F15E97000
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 133999   (478285) от 08.09.2011
-
-Убийцы / The Killers (1964) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прекрасный триллер по рассказу Хемингуэя о двух жестоких профессиональных убийцах, которые решили узнать правду, почему они были наняты, чтобы устранить их жертву. Прекрасная сцена с ограблением броневика, хитроумно сплетенные обманы и предательство. Все актеры играют великолепно, особенно хорош бывший президент США Роналд Рейган в роли коррумпированного разработчика (   Читать дальше...   )Жанр: Детектив, ДрамаРежиссер: Дон СигелАктеры: Ли Марвин, Энджи Дикинсон, Джон Кассаветес, Клу Гулагер, Клод Экинс, Норман Фелл, Рональд Рейган, Вирджиния Кристин, Дон Хэггерти, Роберт Филлипс, Кэтлин О'Мэлли, Тед Жак, Ирвин Мосли, Джимми Джойс, Дэвис Робертс, Барт Мастин, Питер Хоббс, Тайлер МакВей, Сеймур Кэссел, Ричард Лэйн, Берт СтевенсПеревод: Двухголосый закадровыйПродолжительность: 01:34:56
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546532   (478128) от 13.09.2012
-
-Индиана Джонс: В поисках утраченного ковчега / Raiders of the Lost Ark (1981) [H.264] BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный археолог и специалист по оккультным наукам доктор Джонс получает опасное задание от правительства США. Он должен отправиться на поиски уникальной реликвии — священного Ковчега. Но Индиана и не подозревает, что аналогичный приказ уже получили тайные агенты Адольфа Гитлера…
-
-Этим потрясающим фильмом продюсер Джордж Лукас и режиссер Стивен Спилберг положили начало саги о странствиях благородного доктора Джонса по всевозможным уголкам земного шара.Жанр: Боевик, ПриключенияРежиссер: Стивен СпилбергАктеры: Харрисон Форд, Карен Аллен, Пол Фримен, Рональд Лейси, Джон Рис-Дэвис, Денхолм Эллиот, Альфред Молина, Вольф Калер, Энтони Хиггинс, Вик Тэблиан, Дон Феллоуз, Уильям Хуткинс, Билл Рэймбуд, Фред Соренсон, Патрик Даркин, Мэтью Скарфильд, Малкольм Уивер, Санни Каодинез, Энтони Чинн, Пэт Роуч, Тутте Лемков, Ишак Бакс, Киран Шах, Соуад Мессоуди, Терри Ричардс, Стив Хэнсон, Фрэнк Маршалл, Мартин Крейдит, Джордж Харрис, Эдди Тэгоу, Джон Рис, Тони Фогель, Тед ГроссманПеревод: Многоголосый закадровый (Киномания), Многоголосый закадровый (НТВ+), Авторский, одноголосый закадровый (А. Гаврилов)Продолжительность: 01:55:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45492F8E945DAA62895512D50F065CB5373F471A
 ```
 
 https://mybot314.ru/tekegram_catalog/

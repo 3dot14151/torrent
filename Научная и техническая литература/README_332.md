@@ -1,133 +1,3 @@
-###  Публикация: 1048869   (544555) от 04.09.2016
-
-Серия | XX век: Путешествия. Открытия. Исследования [20 книг] (1972-1976) [DJVU]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544555.jpg" />
-</div>
-
-
-###  Подробнее
-
-В серию «XX век: Путешествия. Открытия. Исследования», выпущенную издательством «Мысль» в 1972-1976 гг., вошли произведения выдающихся русских и зарубежных путешественников и исследователей, продолжающие многовековую традицию литературы путешествий и открытий неведомого на нашей планете. Книги содержат множество фотоиллюстраций.Жанр: ПутешествияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88517C2EEC190D1E3E316B0F8D1404FAF433E961
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238732   (544500) от 01.08.2018
-
-М.В. Адаменко | Приставки к электрогитаре. Секреты ретро-звучания (2013) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544500.jpg" />
-</div>
-
-
-###  Подробнее
-
-При выступлениях профессиональных музыкальных коллективов на сцене среди современных цифровых синтезаторов и линий эффектов всегда можно увидеть небольшие педали, к которым музыканты относятся с величайшим почтением, переходящим в благоговение. При исполнении многих гитарных партий исполнители отдают предпочтение именно этим аналоговым приставкам, а не современным (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B504CCAAEDE7D00BC0AA6A3DED22F029368C7F2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310832   (544448) от 27.06.2019
-
-Владимир Арнольд | Гюйгенс и Барроу, Ньютон и Гук (2014) [PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544448.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге, написанной на основе лекции для студентов, посвящённой трёхсотлетию «Математических начал натуральной философии» Ньютона, рассказывается о рождении современной математики и теоретической физики в трудах великих учёных XVII века. Некоторые идеи Гюйгенса и Ньютона опередили своё время на несколько столетий и получили развитие только в последние годы. Об этих (   Читать дальше...   )Жанр: Научно-популярная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:157886101DBDCDDF262AFB6F0DCE882BDEF66FBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310630   (544446) от 27.06.2019
-
-Оксана Чернявская | Что такое Аргентина, или Логика абсурда (2019) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аргентина – удивительная и парадоксальная страна, воплотившая в себе «дух Латинской Америки» в полном ее объеме. Однако какова эта страна сегодня? Действительно ли это все еще родина бесконечной лености, «жгучих мачо» и футболистов? Или Аргентина в XXI веке преобразилась, став чем-то новым? Автор этой книги исколесила Аргентину вдоль и поперек, рассмотрела все уголки (   Читать дальше...   )Жанр: История, ЭтнографияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F692CC5C7B2CDC4FB4BC849E868CEA9AF2F8112F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310907   (544365) от 27.06.2019
-
-К.А. Гузеева, С.И. Костыгина | Инфинитив. Грамматика английского языка (2000) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544365.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие предназначено для студентов факультетов иностранных языков и широкого круга изучающих английский язык. Цель данного пособия состоит в том, чтобы дать максимально полное описание форм, значений и функций инфинитива, показать на многочисленных примерах его особенности и сформировать навыки его употребления.Жанр: Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A46ED40051AD5AAADB15471F5F8C243E0C9EEB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1310925   (544364) от 27.06.2019
 
 А.Ф. Артемова | Английская фразеология. Спецкурс (2009) [PDF]
@@ -136,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544364.jpg" />
 </div>
 
 
@@ -162,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544269.jpg" />
 </div>
 
 
@@ -188,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544225.jpg" />
 </div>
 
 
@@ -214,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544183.jpg" />
 </div>
 
 
@@ -240,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544171.jpg" />
 </div>
 
 
@@ -266,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544148.jpg" />
 </div>
 
 
@@ -292,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544135.jpg" />
 </div>
 
 
@@ -318,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543785.jpg" />
 </div>
 
 
@@ -346,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543776.jpg" />
 </div>
 
 
@@ -372,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543711.jpg" />
 </div>
 
 
@@ -400,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543513.jpg" />
 </div>
 
 
@@ -426,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543503.jpg" />
 </div>
 
 
@@ -452,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543473.jpg" />
 </div>
 
 
@@ -478,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543347.jpg" />
 </div>
 
 
@@ -504,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543087.jpg" />
 </div>
 
 
@@ -532,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543069.jpg" />
 </div>
 
 
@@ -558,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542655.jpg" />
 </div>
 
 
@@ -584,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542647.jpg" />
 </div>
 
 
@@ -610,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542545.jpg" />
 </div>
 
 
@@ -636,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542530.jpg" />
 </div>
 
 
@@ -663,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542522.jpg" />
 </div>
 
 
@@ -675,6 +545,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D742BB489B57240CBB9497C842D4E8DD5A314E75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531514   (542445) от 05.08.2012
+
+ОГУ | Система создания полнотекстовых электронных библиотек [2010] [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобный инструмент автора для создания и размещения учебно-методических пособий и полнотекстовых документов в электронной библиотеке.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B7A11E5F7DF786931D4F18EA24CD3C903A558CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154342   (542410) от 29.07.2017
+
+Кендра Левин | Одиссея писателя: Как найти вдохновение и соблюсти дедлайн (2017) [FB2]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда перед вами стоит задача написать что-то длиннее одного предложения, самое сложное – не вдохновение. Гораздо труднее заставлять себя регулярно садиться и писать, пока желанное произведение не будет готово. Писать, несмотря на лень, сомнения, горе-советчиков, собственный перфекционизм и отговорки.
+
+Кендра Левин, лайф-коуч и литературный редактор, в книге «Одиссея (   Читать дальше...   )Жанр: Теория литературы, Писательское мастерство, Развитие творческих способностейФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EB953D8EAB6068371E218E270E7DE6D3E5982FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153863   (542392) от 29.07.2017
+
+НП «АВОК» | Р НП «АВОК» 4.4-2013 Системы водяного напольного отопления и охлаждения жилых, общественных и производственных зданий (2013) [TIF, PDF, RTF]
+
+>>Научная и техническая литература
+>>Нормативная документация
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542392.jpg" />
+</div>
+
+
+###  Подробнее
+
+• Рекомендации распространяются на проектирование и монтаж систем водяного напольного отопления и охлаждения вновь строящихся и реконструируемых зданий с целью повышения теплового комфорта помещений и тепловой эффективности зданий.
+• Водяное напольное отопление — особый вид инженерной системы здания, где отопительными приборами являются поверхности пола обогреваемых (   Читать дальше...   )Жанр: СтроительствоФормат: TIF, PDF, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D67DB1EEDCB43123690188C13DACC2A6DCDF0F02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154161   (542212) от 29.07.2017
+
+М.Г. Рязанов | 1001 секрет телемастера [3 книги] (2007) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Написанию данной книги предшествовал большой поток электронных писем на сайт автора книги от радиолюбителей и профессионалов со всего мира с просьбой помочь решить проблемы с ремонтом. На сайте была открыта рубрика "Секреты ремонта" с постоянным обновлением материалов, а также форум, где можно задать вопрос или обменятся мнением с коллегами. Основная особенность (   Читать дальше...   )Жанр: ТелевидениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B005FB62D9D3459162AC2A84CB782954F5544C90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 372931   (541929) от 05.08.2012
+
+Л.В.Антонова | Золотой ус. Исцеляющие рецепты [2010] [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Препараты каллизии душистой, или, как ее называют в народе, Золотой ус, оказывают исцеляющее действие при самых разнообразных заболеваниях. Целебные свойства Золотого уса проверили на себе тысячи и тысячи людей, уже потерявших надежду на избавление от своих болезней.Жанр: Медицина, фитотерапия, народная медицинаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87B8F6FC45C147E264287048083C17552C895128
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Crusaders - Ghetto Blaster (1984) [FLAC|Lossless|image + .cue] <Funk-jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792275.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ David "Fathead" Newman - Lone Star Legend: Still Hard Times • Resurgence! (198
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792265.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Elsie Bianchi - The Sweetest Sound (1965) 2016, MPS [FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792264.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Caterina Valente - The Jazz Singer (1954, 1955) 2017, Jazzhaus [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792260.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Elsie Bianchi - Fly Me To The Moon (1960 - 1962) 2011, Sonorama [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792231.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Caterina Valente In London (1963) 2004, Warner [FLAC|Lossless|tracks + .cue] <Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792230.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Steve Tyrell - This Time Of The Year (2002) Columbia [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792209.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Art Farmer - Silk Road (1997) Arabesque Jazz [FLAC|Lossless|tracks + .cue] <Hard
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792207.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Red Norvo And His Orchestra - 1945 - 1947 (2005) Classics [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792196.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Pat Metheny - Side-Eye NYC (V1.IV) (2021) [FLAC|Lossless|tracks + .cue] <Fusion,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792144.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Tony Bennett - Here's To The Ladies (1995) Columbia [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791855.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Buck Clayton - Three Classic Albums Plus (1954 - 1958) 2CD, 2011, Avid Jazz [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791718.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Al Hirt - Bourbon Street Parade (1993) MCMXCIII Intersound [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791677.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Margo Rey - The Roots Of Rey / Despacito Margo (2018) [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791625.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Kenny Dorham and The Jazz Prophets, Vol. 1 (1956) 1997, MCA [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791594.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ James Moody - Moody's Mood For Love (1957) 1998, GRP Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791585.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Jihye Lee Orchestra - Daring Mind (2021) [FLAC|Lossless|tracks + .cue] <Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791578.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Peters Drury Trio - When Old Met New (1999) Self-Released [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791342.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Bruut! - V (2018) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791163.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Barabas Lorinc Quartet - Other Than Unusual (2018) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791159.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Count Basie - Chairman Of The Board (1958) 2003, Roulette [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791155.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Baptiste Herbin - Dreams and Connections (2018) [FLAC|Lossless|tracks + .cue] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791152.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Philip Catherine - Oscar (1990) Igloo [FLAC|Lossless|tracks + .cue] <Post-Bop, J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791063.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Miles Davis & Stan Getz - Move (1950 - 1952) 2003, Dynamic Entertainment [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791059.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Ben Webster - Three Classic Albums Plus (1954, 1957, 1958) 2CD, 2011, Avid Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791056.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Maynard Ferguson - Primal Scream (1976) 2004, Wounded Bird [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790973.jpg" />
 </div>
 
 

@@ -1,32 +1,3 @@
-###  Публикация: 1697583   (118761) от 07.02.2024
-
-Love Music Zone - Sexy Valentine’s Day 2024 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sexy & Noir (3:29)
-02. Music for Quiet Moments (4:28)
-03. Jazz Mood – Erotic Dance (4:03)
-04. Sentimental Sounds (3:50)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:55:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21D858A6E132A8D5B69036A9BA508B1AD3ED95FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697656   (118750) от 07.02.2024
 
 Background Instrumental Music Collective - Joyful Jazz Session: Swingin' into Happiness (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
@@ -35,7 +6,7 @@ Background Instrumental Music Collective - Joyful Jazz Session: Swingin' into Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118750.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Thin Lizzy - Vagabonds Of The Western World (1973) Deluxe Edition, 2023, Univers
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118574.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Bob Marley & The Wailers - One Love (Original Motion Picture Soundtrack) (2024) 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118460.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Lacuna Coil - In a Reverie (1999) Reissue, 2019, Century Media [FLAC|24/192|imag
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118414.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ XentriX - Studio Albums (6 releases) (1989-2022) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118409.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Lacuna Coil - Karmacode (2006) [WavPack|32/384|image + .cue|Vinyl-Rip] <Gothic M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118395.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Lacuna Coil - Broken Crown Halo (2014) [FLAC|24/192|image + .cue|Vinyl-Rip] <Got
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118311.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ VA - Песни И Романсы. Поют В. Трошин, З. Невская
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118295.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Coffee Lounge Collection, Restaurant Jazz Music Collection, Romantic Restaurant 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118292.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Background Instrumental Music Collective, Romantic Music Center, Romantic Beats 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118290.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Chill Lounge Music Zone, Jazz Music Collection Zone - Night with Red Wine: A Toa
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118264.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Il Divo - XX (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Neo-Classical, Classi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118259.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Cooking Jazz Music Academy, Instrumental Music Ensemble, Calming Jazz Relax Acad
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118254.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Enemy of Reality - Studio Albums (3 releases) (2014-2023) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118252.jpg" />
 </div>
 
 
@@ -440,7 +411,7 @@ Elegant People and Lo Greco Bros - Stories Of Us (2024) [FLAC 24/44.1|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118251.jpg" />
 </div>
 
 
@@ -469,7 +440,7 @@ Lacuna Coil - Black Anima (2019) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic, A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118250.jpg" />
 </div>
 
 
@@ -498,7 +469,7 @@ Elena Malaguti - Jazz Chronicles (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118244.jpg" />
 </div>
 
 
@@ -527,7 +498,7 @@ Lacuna Coil - Delirium (2016) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118231.jpg" />
 </div>
 
 
@@ -556,7 +527,7 @@ Al Di Meola - Flesh on Flesh (2002) [DSD 2.0, DST 5.1 1bit/2822,4kHz |SACD-R] <J
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118184.jpg" />
 </div>
 
 
@@ -585,7 +556,7 @@ Heretic - Filthy Hymns for Sleazy Demons (2024) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118116.jpg" />
 </div>
 
 
@@ -614,7 +585,7 @@ My Life Story - Loving You is Killing Me (2024) [FLAC 24/44.1,96|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118093.jpg" />
 </div>
 
 
@@ -643,7 +614,7 @@ Minuit 10 - Sans Bruit (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118079.jpg" />
 </div>
 
 
@@ -672,7 +643,7 @@ Nickelback - Studio albums (11 releases) (1996-2022) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118070.jpg" />
 </div>
 
 
@@ -701,7 +672,7 @@ Anathema - Studio Albums (15 releases) (1992-2017) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117984.jpg" />
 </div>
 
 
@@ -730,7 +701,7 @@ Emanuele Uva - Harbor Harmonies (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117954.jpg" />
 </div>
 
 
@@ -744,6 +715,35 @@ Emanuele Uva - Harbor Harmonies (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE81624D9569BB733F6DEC32852674B77082C894
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699226   (117949) от 12.02.2024
+
+The Pineapple Thief - It Leads To This (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Crossover Prog>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Put It Right (5:31)
+02. Rubicon (4:37)
+03. It Leads to This (4:44)
+04. The Frost (5:41)(   Читать дальше...   )Жанр: Crossover ProgПродолжительность: 00:40:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC5AEEB2F6B0B14AD43EB6F0B2CB71D58F32B9D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Virtual Villagers 3: The Secret City / Робинзоны. Затерянный 
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394560.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Offworld Trading Company (2016) [Ru/Multi] (1.8.13949/dlc) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377461.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Port Royale 4 (2020) [Ru] (1.1.1.16203) Repack xatab [Extended Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368983.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Banished (2014) [Ru/En] (1.0.7) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364682.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Football Manager 2014 (2013) [Ru/Multi] (14.1.3) Repack R.G. Catalyst
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362006.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Blood Bowl 2 (2015) [Ru/Multi] (3.0.219.2/dlc) Repack R.G. Механики
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355813.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Emergency 2013 [En/Ru] (RePack/2.0f) 2012 l R.G. Catalyst
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347089.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Motorsport Manager (2016) [Ru/Multi] (1.5.1/dlc) License SKIDROW
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344222.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Surviving Mars (2018) [Ru/Multi] (20191010/dlc) Repack xatab [Digital Deluxe Edi
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338341.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Tropico 4 - Steam Special Edition [En/Multi5] (Steam-Rip/1.0.6.345/6 DLC) 2011 |
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337121.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Tropico 4 [En/Ru] (Repack/1.0.6.345/7 DLC) 2011 | z10yded
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321865.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ RollerCoaster Tycoon World (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312896.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ TransRoad: USA (2017) [Ru/Multi] (1.0.7) Repack xatab
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311446.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Cityconomy: Service for your City (2015) [Ru/Multi] (1.0) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296318.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Surviving Mars (2018) [Ru/Multi] (237 425/dlc) License CODEX [Digital Deluxe Edi
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294717.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ RollerCoaster Tycoon Classic (2017) [Multi] (1.0/dlc) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288877.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Democracy 3 (2013) [Ru/Multi] (1.31/dlc) License GOG [Complete Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288861.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Prison Architect (2015) [Ru/Multi] (2.0/dlc) SteamRip Let'sPlay
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287377.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Motorsport Manager (2016) [Ru/Multi] (1.53/dlc) Repack R.G. Catalyst
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283444.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Startopia (2001) [En] (1.00) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281867.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Blood Bowl : Legendary Edition (L) [Multi5\-] 2010 | RELOADED
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275560.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Evolution: The Game of Intelligent Life (1997) [Ru] (1.0) Repack R.G. Games
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275060.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Rise of Industry (2019) [Ru/Multi] (2.1.0.1211a/dlc) Repack R.G. Механик�
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270286.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Farthest Frontier (2025) [Ru/Multi] (1.0.5) Repack Necros
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261631.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Rebel Inc: Escalation (2021) [Ru/Multi] (1.4.0.12/dlc) Repack Necros [Mega Editi
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261464.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Port Royale 3: Pirates & Merchants + DLC (RePack/1.1.2.24556) [Ru/En] 2012 l Fen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261088.jpg" />
 </div>
 
 

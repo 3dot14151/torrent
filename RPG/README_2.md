@@ -1,3 +1,55 @@
+###  Публикация: 1846683   (1051374) от 08.01.2026
+
+Drakensang: The Dark Eye (2008) [En] (1.03) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мирный и спокойный город Фердок охвачен ужасом. Жестокие и на первый взгляд бессмысленные убийства заставили людей прятаться за крепкими стенами. Разрастается заговор, в окрестностях появился таинственный архимаг, и неизвестно, что замышляют жрецы могущественного культа Хесинде. Четверке отважных персонажей предстоит сразиться с многочисленными врагами, раскрыть (   Читать дальше...   )Тип издания: LicenseРазработчик: Radon LabsЖанр: Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4567D9B453FF8C82CBE1F6BFAF4F4EBFD53D5109
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846692   (1051372) от 08.01.2026
+
+The Dark Heart of Uukrul (1989) [En] (1.0) License GOG
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет игры предельно прост: игрок ведёт группу из четырёх персонажей (воина, паладина, мага и священника – состав группы предопределён) по километрам коридоров, залов и пещер подгорного королевства Eriosthe, уничтожая монстров, собирая артефакты, решая головоломки и пытаясь спасти королевство от тирании злого Uukrul’а. Вот только на самом деле игра оказывается намного (   Читать дальше...   )Тип издания: LicenseРазработчик: Digital StudiosЖанр: Приключение, Ролевые игрыЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FD45DCDB86869A51AE63F5A5941473B10FDFF35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1846696   (1051371) от 08.01.2026
 
 Challenge of the Five Realms (1992) [En] (1.0) License GOG
@@ -6,7 +58,7 @@ Challenge of the Five Realms (1992) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051371.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Alaloth: Champions of The Four Kingdoms (2022) [Ru/Multi] (2025.11.18.994fa78/dl
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051074.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ UltraGirl Alters (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051053.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Fallout 4 (2015) [Ru] (1.10.163.0.1/dlc) Repack CoronerLemur [Game of the Year E
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050929.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Lovely Lady RPG (2025) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050906.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ STAR OCEAN THE DIVINE FORCE (2022) [Ru/Multi] (01.01 Build 23063/dlc) Repack Let
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050580.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Of Ash and Steel (2025) [Ru/Multi] (1.05b) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050529.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ SKALD: Against the Black Priory (2024) [Ru/En] (1.0.7e/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050515.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Suikoden I & II HD Remaster: Gate Rune and Dunan Unification Wars (2025) [Ru/Mul
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050365.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ ENDER LILIES: Quietus of the Knights (2021) [Ru/Multi] (1.1.6_13932) Repack Let'
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050327.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Trinity Fusion (2023) [Ru/Multi] (2.8/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050326.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Fallout 4 (2015) [Ru/Multi] (1.10.980.0/dlc) Repack seleZen [Game of the Year Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050076.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Lost in Random: The Eternal Die (2025) [Ru/Multi] (build 85239/dlc) Repack seleZ
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049664.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Realmz (1999) [En] (7.1.2) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049563.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Chaos Galaxy II (2) (2022) [Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049094.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (179951/dlc) Repack HardwareMining [D
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049060.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Three Kingdom: The Journey (2022) [Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048540.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Anima Gate of Memories: I&II Remaster (2025) [Multi] (20722096) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048490.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ The Elder Scrolls IV (4): Oblivion Remastered (2025) [Ru/Multi] (1.512.105.0/dlc
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048387.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (57661/dlc) Repack HardwareMining 
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048047.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Drova - Forsaken Kin (2024) [Multi] (1.3.4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047925.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Monster Hunter Stories 2: Wings of Ruin (2021) [Ru/Multi] (1.6.1/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047319.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Monster Hunter Stories 2: Wings of Ruin (2021) [Ru/Multi] (1.6.1/dlc) Repack Fit
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047298.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Dustwind: Resistance (2025) [Ru/Multi] (12101/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047218.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Dustwind: Resistance - это тактическая одиночная игра
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95317DE8A196D9E41FC119B217696AFF4F6CC94B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840159   (1047066) от 03.12.2025
-
-Nanotale - Typing Chronicles (2021) [Ru/Multi] (1.96) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Атмосферное RPG-приключение в ярком живом мире, где игровой процесс завязан на набор ключевых слов на клавиатуре. Следуйте за Розалиндой, хронистом-новичком, в её путешествии за знаниями, помогайте ей собирать образцы удивительной флоры и фауны. Вокруг тихо и спокойно. Кажется, война осталась далеко в прошлом. Но магия диссонанса набирает силу в тенях, отравляя сломленные (   Читать дальше...   )Тип издания: LicenseРазработчик: Fishing CactusЖанр: Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:960E5B5E871489929D4F0EBFB7A1C83D6AE26F56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839678   (1046865) от 30.11.2025
-
-UnReal World (1992) [En] (3.86.1/dlc) License GOG
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046865.jpg" />
-</div>
-
-
-###  Подробнее
-
-UnReal World - это уникальное сочетание ролевой игры в жанре roguelike и симулятора выживания, действие которых разворачивается на Крайнем Севере давным-давно. На протяжении многих лет UnReal World славится своей глубиной, реализмом, атмосферой и захватывающим дух погружением. Игра полностью открыта, и вы сами решаете, хотите ли вы жить жизнью рыбака, отшельника (   Читать дальше...   )Тип издания: LicenseРазработчик: Sami Maaranen, Erkka LehmusЖанр: Инди, Ролевые игры, Симуляторы, СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6605B33322C92BB790140844D707887DF777BE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

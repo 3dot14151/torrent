@@ -1,3 +1,32 @@
+###  Публикация: 1181430   (323495) от 07.11.2017
+
+Status Quo - Collected (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323495.jpg" />
+</div>
+
+
+###  Подробнее
+
+СD1
+01.  Pictures Of Matchstick Men  3:11
+02.  Black Veils Of Melancholy  3:14
+03.  Ice In The Sun  2:13(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FDD6A38F41059FBB4E14022FEE8C48446320E8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582200   (323490) от 09.10.2022
 
 Neroargento - Land Of Silence (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic Metal, Industrial Rock>
@@ -6,7 +35,7 @@ Neroargento - Land Of Silence (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323490.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Edenbridge - Shangri-La (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323489.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Octane - Back in the Game (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323487.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323486.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Teramaze - 7 Albums (1995-2022) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323484.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Trishula - 3 Albums (2019-2022) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323482.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Young Gun Silver Fox - AM Waves (2018) Japanese Edition [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323480.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Sonic Youth - In/Out/In (2022) [FLAC|Lossless|Web-DL|tracks] <Noise Rock, Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323479.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Purpendicular, Ian Paice - Human Mechanic (2021) [FLAC|Lossless|image + .cue] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323477.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323475.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323472.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ Ligabue - Made in Italy (2016) [FLAC|Lossless|tracks + .cue] <Pop rock, Soft roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323447.jpg" />
 </div>
 
 
@@ -353,7 +382,7 @@ Joe Satriani - Flying in a Blue Dream (1989) [FLAC|Lossless|tracks + .cue] <Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323406.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ Birth of Joy - Hyper Focus (2018) [FLAC|Lossless|tracks + .cue] <Psychedelic Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323404.jpg" />
 </div>
 
 
@@ -411,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323395.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323388.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ Marianne Faithfull - Negative Capability (2018) [FLAC|Lossless|WEB-DL|tracks] <F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323384.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ Lost Society - If The Sky Came (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323358.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ Robert Palmer - 3 Albums (1979-1990) [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323352.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323351.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ Lacrimosa - Abendlied (2022) Single [FLAC|Lossless|WEB-DL|tracks] <Neue Deutsche
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323344.jpg" />
 </div>
 
 
@@ -611,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323341.jpg" />
 </div>
 
 
@@ -639,7 +668,7 @@ The Kinks - Live at Kelvin Hall (1967) Reissue, 2001, Sanctuary Records [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323312.jpg" />
 </div>
 
 
@@ -668,7 +697,7 @@ Motley Crue - The End (Live In Los Angeles) (2016) [FLAC|Lossless|tracks + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323299.jpg" />
 </div>
 
 
@@ -697,7 +726,7 @@ Steven Wilson - Home Invasion: In Concert at the Royal Albert Hall (2018) [MP3|3
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323279.jpg" />
 </div>
 
 
@@ -711,33 +740,6 @@ Steven Wilson - Home Invasion: In Concert at the Royal Albert Hall (2018) [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DB72C975854705A13EA4BA27AAF70D65EFD4F9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259028   (323271) от 02.11.2018
-
-Dead Can Dance - Dionysus (2018) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ACT I : Sea Borne - Liberator of Minds - Dance of the Bacchantes (16:38)
-02. ACT II : The Mountain - The Invocation - The Forest - Psychopomp (19:26)Жанр: Modern Classical, AmbientПродолжительность: 00:36:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA0CCB81ABE7369BC52D4A0B44E5D3BE8D295910
 ```
 
 https://mybot314.ru/tekegram_catalog/

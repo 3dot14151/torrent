@@ -6,7 +6,7 @@ Sade - Lovers Live (2002) Epic 506125-2 [FLAC|Lossless|image + .cue]<Sophisti-Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313058.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Roby Facchinetti & Riccardo Fogli - Insieme (2017) [FLAC|Lossless|WEB-DL|tracks]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312343.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Madonna - Something To Remember (1995) [FLAC|tracks+.cue]<Downtempo, Ballad>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312251.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Nu Cool Covers (Pop Classics ReStyled) (2017) [FLAC|Lossless|tracks] <Loung
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312204.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Rumer (Sarah Joyce) - This Girl's In Love: a Bacharach and David Songbook (2016)
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311885.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Amy Sky, Olivia Newton-John, Beth Nielsen Chapman - Liv On (2016) [FLAC|Lossless
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311537.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Ane Brun - After The Great Storm (2020) [FLAC|Lossless|WEB-DL|tracks] <Art-Pop, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310814.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Gloria Estefan - Cuts Both Ways (1989) [FLAC|tracks+.cue]<Latin, Cubano, Synth-p
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310319.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Cyndi Lauper - The Body Acoustic (2005) [FLAC|image+.cue]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307887.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Ten Sharp - You (Single) (1991) [FLAC|Image+cue]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307823.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Mireille Mathieu - Mes classiques (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Cla
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307287.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - New Year 2021 (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306040.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Cigarettes After Sex - Cry (2019) [FLAC|Lossless|WEB-DL|tracks] <Dream Pop, Indi
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305259.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - 80s Symphonic (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305204.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Golden Memories - The...Gold Party Collection (2012) 4CD [FLAC|image + .cue
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305151.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Mylene Farmer - The Best Of (2007) [FLAC|image + .cue]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304812.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Hits of the 80s, Vol. 2 (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304633.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Hits Of The 80s, Vol. 1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304630.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Mylene Farmer - Monkey Me (2012) [FLAC 2.0 24/96|tracks (WEB-DL)]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304525.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Greatest Hits Instrumental (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Instr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304027.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Fitness Forever - Tonight (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electropop,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303522.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Top Of The Pops '1979 (2018) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <19
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303095.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Tanja Lasch - Lebensecht (2015) [FLAC|Lossless|image + .cue] <Pop, Schlager>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301459.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Rick Astley - The Best Of Me (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301435.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Chante Moore - The Rise of the Phoenix (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301382.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Everything But The Girl - Adapt or Die. Ten Years of Remixes (2005) [FLAC|image+
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301231.jpg" />
 </div>
 
 

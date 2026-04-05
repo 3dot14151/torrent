@@ -6,7 +6,7 @@ TechSmith Snagit 4.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299840.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Magnet 2.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299639.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ LilyView 1.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299563.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ iExplorer 4.1.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299440.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Iridient Developer 3.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299132.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ DxO PhotoLab 2 ELITE Edition 2.3.3 (build 47) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299125.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ PowerPhotos 1.1.2
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299065.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ iWatermark Pro 2.5.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298957.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ MKVToolNix 36.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298955.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ AnyTrans 4.7.4 (20151127) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298908.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ WhatSize 6.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298907.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Amadeus Pro 2.5.1 (2080) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298871.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Twitterrific 5 v5.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298865.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Translate Tab 2.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298859.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Deliver Express 2.6.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298856.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Sketch 3.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298803.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Aurora HDR Pro 1.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298796.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ iShowU Instant (Advanced) 1.2.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298768.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ PhotoMill X (aka Reformator) 1.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298754.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ AudioFinder 5.9.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298751.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Adguard 2.1.3.600 release (CL - 1.4.138) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298739.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ iShowU Studio 2 v2.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298682.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Audio Playr 2.2 (24) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298680.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Reflector 2.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298640.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ LilyView 1.4.1 [Rus/En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298567.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Gemini 1.5.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298457.jpg" />
 </div>
 
 

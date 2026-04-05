@@ -1,3 +1,30 @@
+###  Публикация: 1405984   (478675) от 01.09.2020
+
+Creative Shrimp | Риггинг механизмов в Blender 2.83 / Hard Surface Rigging in Blender 2.83 (2020) PCRec [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всем привет и добро пожаловать в курс для начинающих по ригу механизмов в Blender.
+Этот курс предназначен для начинающих пользователей Blender, которые хотят усовершенствовать свои навыки риггинга и научиться настраивать роботов, механизмы, гидравлику и другие предметы с твердой поверхностью. Рекомендуются некоторые базовые знания пользовательского интерфейса Blender, (   Читать дальше...   )Производство: Creative ShrimpЖанр: 3D моделирование, РиггингПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 06:59:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D62CB095FDB596209AA8637C0EFB1A7F0734AD08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1406023   (478664) от 01.09.2020
 
 Артём Семуков | Погружение в язык VBA (2016) PCRec
@@ -6,7 +33,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478664.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Udemy, Josh Gambrell, Ponte Ryuurui | Создание Sci-Fi оружия в Bl
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478658.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478615.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478521.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ SF Education | Финансовая академия (2020) PCRec
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478511.jpg" />
 </div>
 
 
@@ -141,7 +168,7 @@ English For IT, Анна Гандрабура | English For Tech Level 2. Speaki
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478074.jpg" />
 </div>
 
 
@@ -170,7 +197,7 @@ Blender Cloud | Создание примитивных животных в Blen
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476999.jpg" />
 </div>
 
 
@@ -196,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476987.jpg" />
 </div>
 
 
@@ -222,7 +249,7 @@ ultimatecourses.com | Мастер-класс по JavaScript / JavaScript Maste
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476658.jpg" />
 </div>
 
 
@@ -249,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476534.jpg" />
 </div>
 
 
@@ -276,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476419.jpg" />
 </div>
 
 
@@ -303,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476402.jpg" />
 </div>
 
 
@@ -329,7 +356,7 @@ CG Sphere | Create Super Detailed Shield In Blender Tutorial (Modeling, Texturin
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475888.jpg" />
 </div>
 
 
@@ -357,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475653.jpg" />
 </div>
 
 
@@ -383,7 +410,7 @@ ITVDN | HTML5 & CSS3 ADVANCED (2018) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475434.jpg" />
 </div>
 
 
@@ -409,7 +436,7 @@ Udemy | Unity для начинающих (2018) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475433.jpg" />
 </div>
 
 
@@ -435,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475432.jpg" />
 </div>
 
 
@@ -463,7 +490,7 @@ CG Cookie | Создание облаков в Blender 2.8 и Eevee/ Creating Cl
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474741.jpg" />
 </div>
 
 
@@ -489,7 +516,7 @@ Profileschool | Разбор полетов. Портфолио-ревю (2015) 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474727.jpg" />
 </div>
 
 
@@ -515,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474503.jpg" />
 </div>
 
 
@@ -544,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474407.jpg" />
 </div>
 
 
@@ -570,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474397.jpg" />
 </div>
 
 
@@ -598,7 +625,7 @@ Softwaretesting | Docker: инструменты тестировщика (2020)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474380.jpg" />
 </div>
 
 
@@ -624,7 +651,7 @@ Justin Rubin | True Beginner (2017) HDTVRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473634.jpg" />
 </div>
 
 
@@ -651,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473518.jpg" />
 </div>
 
 
@@ -665,32 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5018A4E12D7439D74191BEA0E60E931F21E55611
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157717   (473400) от 25.08.2017
-
-Артём Исламов | Веб-разработчик 6.0 (2017) PCRec [H.264/720p-LQ]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый из учеников получает фундаментальные знания в работе с HTML и CSS и готов брать заказы на верстку сложных, адаптивных сайтов с применением javascript и PHP.Жанр: Веб-разработка, HTML, CSS, JavaScriptПродолжительность: 33:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50A07D69A9D9A336D39440B9175B931466DF3513
 ```
 
 https://mybot314.ru/tekegram_catalog/

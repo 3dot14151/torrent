@@ -6,7 +6,7 @@
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349405.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349364.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349241.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348677.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344771.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343922.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ VideoHive - Winter Snow Titles - 24729209 [AEP]
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343086.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ VideoHive - Autumn Titles - 24779626 [AEP]
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342854.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ VideoHive - Freestyle Two - 4436308 [AEP]
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340832.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337742.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336897.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334755.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332076.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ VideoHive - Directional - 120486 [AEP]
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331077.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331054.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328214.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327337.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327286.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327277.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327246.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326472.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324281.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323239.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ VideoHive - Monster Typeface - 24792969 [AEP]
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322513.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320421.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314207.jpg" />
 </div>
 
 

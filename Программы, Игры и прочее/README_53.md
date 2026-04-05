@@ -1,3 +1,112 @@
+###  Публикация: 1521969   (761773) от 05.01.2022
+
+Headway: Краткие содержания из книг v1.6.2.0 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Погрузись в саморазвитие с самыми важными идеями из лучших книг мира про продуктивность, бизнес, переговоры, деньги, здоровье, любовь, инвестиции и прочее.
+
+Не хватает времени? Здесь ты не найдешь сотен долгих страниц — только 15 минут чтения кратких содержаний и вдохновляющие виджеты для твоей бесконечной мотивации на пути к лучшей версии себя!Тип издания: Пиратка (Premium)Релиз состоялся: 24 декабря 2021 г.Разработчик: Books Made Easy CorpПоддерживаемая ОС: Android 6.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C6CF08914EA49DD86973419EF4BB820127E55B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522048   (761650) от 05.01.2022
+
+Изучение языков LingQ v4.9.22 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761650.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учите языки, погрузившись в мир интересного и оригинального материала! Начните с уроков начального уровня, чтобы потом достичь быстрого роста, используя реальный, захватывающий материал. Тысячи часов уроков, подкастов, аудиокниг, интервью и тд, все с текстом. LingQ позволит вам загружать и учиться на любом материале, который вы найдете в интернете! Начните свое языковое (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 21 октября 2021 г.Разработчик: LingQ Languages LtdПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B17AD12D8039104BB12D4D7A3B4FC8E9A189E9AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521926   (761521) от 05.01.2022
+
+Английский словарь - 90 000 слов с картинками v141.0 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761521.jpg" />
+</div>
+
+
+###  Подробнее
+
+💘💘💘Любят и доверяют во всем мире 🥇🥇🥇
+🏆 «Английский словарь - 90 000 слов с картинками» был назван приложением года по версии Facebook.
+😃 Начинающий или продвинутый ученик, путешественник или бизнесмен - это приложение для американского английского отлично работает и динамически подстраивается под ваши (   Читать дальше...   )Тип издания: Пиратка (Pro)Релиз состоялся: 23 декабря 2021 г.Разработчик: 90.000 Words & Pictures - © 2021 EducationПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B6427B736FE5F11EBD58200A477D37040A05A9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522311   (760060) от 06.01.2022
+
+Weather Live Wallpapers v1.74 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Взгляни на погоду по-новому!
+Движение солнца, осадки и фаза луны – реалистичная анимация на экране, с великолепно проработанными деталями. Живописный пейзаж отражает погоду с потрясающей точностью. Наслаждайтесь восходом солнца, радугой, пением птиц и каждым солнечным бликом!Тип издания: Пиратка (Pro+Paid)Релиз состоялся: 2 декабря 2021 г.Разработчик: SkySkyПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0F5E9029C1B8A05EB1D9ABF9656CDE5A8ACEFD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522074   (759921) от 06.01.2022
 
 Geeky Hacks Pro : Anti Hacking Protection v1.0.2 [En]
@@ -6,7 +115,7 @@ Geeky Hacks Pro : Anti Hacking Protection v1.0.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759921.jpg" />
 </div>
 
 
@@ -32,7 +141,7 @@ Malwarebytes Anti-Malware v3.9.1.68 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759639.jpg" />
 </div>
 
 
@@ -59,7 +168,7 @@ Piggly v1.10ggl + Mod [En/De]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759529.jpg" />
 </div>
 
 
@@ -85,7 +194,7 @@ Money Pro v1.6.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759462.jpg" />
 </div>
 
 
@@ -111,7 +220,7 @@ ProPilkko 2.7 [Ru/Multi] - Мультиплеерный online симулято�
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758920.jpg" />
 </div>
 
 
@@ -139,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756521.jpg" />
 </div>
 
 
@@ -165,7 +274,7 @@ OttPlayer v2.0.9 [Ru/Multi] - бесплатный плеер для просм�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754984.jpg" />
 </div>
 
 
@@ -191,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754945.jpg" />
 </div>
 
 
@@ -217,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754911.jpg" />
 </div>
 
 
@@ -243,7 +352,7 @@ Listonic v6.44.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_754811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_754811.jpg" />
 </div>
 
 
@@ -269,7 +378,7 @@ Garmin: Ukraine Topo Map v1.06 (Топографическая карта Укр
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753333.jpg" />
 </div>
 
 
@@ -295,7 +404,7 @@ Cross Stitch Paradise v1.3.7 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753290.jpg" />
 </div>
 
 
@@ -321,7 +430,7 @@ Tomorrow.io: Прогноз погоды v2.10.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753280.jpg" />
 </div>
 
 
@@ -348,7 +457,7 @@ AccuWeather - прогноз погоды v7.17.1-2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753279.jpg" />
 </div>
 
 
@@ -375,7 +484,7 @@ Unit Converter Plus v1.4.5.19.2 [Ru/Multi] - многофункциональн
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753208.jpg" />
 </div>
 
 
@@ -401,7 +510,7 @@ Weather Underground v6.11.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753159.jpg" />
 </div>
 
 
@@ -427,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753076.jpg" />
 </div>
 
 
@@ -453,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752870.jpg" />
 </div>
 
 
@@ -479,7 +588,7 @@ Garmin: City Navigator North America NT 2017.20 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751519.jpg" />
 </div>
 
 
@@ -505,7 +614,7 @@ Garmin: Crimea Navigator 2014.1 (Крым Навигатор 2014.1) [Ru]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751516.jpg" />
 </div>
 
 
@@ -531,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751282.jpg" />
 </div>
 
 
@@ -559,7 +668,7 @@ Corel Painter Mobile v2.2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749674.jpg" />
 </div>
 
 
@@ -570,113 +679,6 @@ Corel Painter Mobile v2.2 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C893D98359129BE5AFF6695F653903DBB4D00CB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523626   (749670) от 12.01.2022
-
-MeMeteo: прогноз погоды v4.1.1 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749670.jpg" />
-</div>
-
-
-###  Подробнее
-
-MeMeteo - ваш метео эксперт и повседневный помощник.Тип издания: Пиратка (Full)Релиз состоялся: 1 октября 2021 г.Разработчик: MeMeteoПоддерживаемая ОС: Android 4.2+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93C09F841F297E2835DE7777AB37B762EA541DFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019130   (749611) от 23.05.2016
-
-Assassins Creed Identity 2.5.1 [Ru/En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_749611.jpg" />
-</div>
-
-
-###  Подробнее
-
-Теперь у вас есть возможность попробовать первую игру жанра ACTION RPG в известнейшей серии ASSASSINS CREED.
-Изучайте ЭПОХУ ИТАЛЬЯНСКОГО ВОЗРОЖДЕНИЯ, смотря на нее глазами СОЗДАННОГО ВАМИ АССАСИНА, и выполняйте десятки заданий, чтобы в итоге раскрыть невероятную тайну загадочных Воронов.
-
-**ASSASSINS CREED** одна из самых популярных серий за всю историю видеоигр. (   Читать дальше...   )Тип издания: FreeРазработчик: Ubisoft Blue ByteПоддерживаемая ОС: Android 4.1+Жанр: Action (Экшен), RPG — Role Playing Game (РПГ, Ролевая игра)Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA1EEBA035CAA95D3F1022CBA1A375F111AD75CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523688   (749553) от 12.01.2022
-
-aTorrent - Torrent Downloader v3093 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749553.jpg" />
-</div>
-
-
-###  Подробнее
-
-aTorrent - торрент (битторрент)клиент. Качайте торрент файлы прямо на ваш телефон или планшет! Поддерживаются Magnet ссылки!Тип издания: Пиратка (Pro)Релиз состоялся: 20 сентября 2021 г.Разработчик: Mobilityflow TorrentsПоддерживаемая ОС: Android 4.2+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67AB606996C187B41ABAD2C99F0612983F393816
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282064   (747948) от 10.02.2019
-
-Все правила по русскому языку v2.3 AdFree [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение включает в себя все правила по разделам: правописание и пунктуация! С удобным поиском нужного правила.Тип издания: Пиратка (удалена реклама и всякий мусор)Релиз состоялся: 10.07.2016Разработчик: Vad0k & CabjectПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DBA433623B140C2225252351B28ED2D47E23F2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

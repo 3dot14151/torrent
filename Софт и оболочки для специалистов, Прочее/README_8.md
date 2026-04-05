@@ -1,3 +1,107 @@
+###  Публикация: 1376450   (860173) от 17.04.2020
+
+SQLite Expert Professional 5.3.5.475 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860173.jpg" />
+</div>
+
+
+###  Подробнее
+
+SQLite Expert Professional – мощный визуальный инструмент для удобного управления БД SQLite3. Программа совмещает управление базами данных и их обслуживание в единой интегрированной среде с четким и интуитивно понятным пользователю графическим интерфейсом. С помощью этого приложения пользователь может редактировать и просматривать таблицы, перестраивать поля, проставлять (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1CBDE18CE7CEF6198AF450B75C6C82B90BE1244
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109924   (854968) от 01.03.2017
+
+Security Eye 3.5 [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Security Eye - бесплатная программа для наблюдения с помощью камер, поддерживает работу с Веб и IP камерами, записывает видео и имеет встроенный детектор движения. Это программное обеспечение позволяет организовать систему видеонаблюдения и в реальном времени мониторить обстановку дома, в офисе, на автостоянке и в других местах где установлены ваши камеры. Интерфейс (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45673F77EC8EBCDACBC4428C20F5DA2C3F664009
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002049   (850033) от 30.03.2016
+
+SPTD 2.11 (x86/x64) [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Драйверы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850033.jpg" />
+</div>
+
+
+###  Подробнее
+
+CSI Pass Through Direct (SPTD, имя файла «sptd.sys») — драйвер устройства, разработанный Duplex Secure Ltd., который обеспечивает новый метод доступа к запоминающим устройствам. SPTD API не является публично открытым (ASPI от компании Adaptec и SPTI (SCSI Pass-Through Interface) от Microsoft являются документированными альтернативами). SPTD используется в программах (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:644B3785341E371A270FB02DBF5CADEC2D2FC1F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002130   (848108) от 31.03.2016
+
+Autodesk Inventor Professional 2017 Build 142 (x64) [Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Autodesk Inventor Professional - 3D-САПР для машиностроительного проектирования. В состав 3D-САПР Autodesk® Inventor® входит простой в использовании комплект инструментов для машиностроительного 3D-проектирования, выпуска рабочей документации, проведения расчетов и анализа. Технология цифровых прототипов, реализованная в Inventor, помогает испытывать продукцию в (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDF5386F0B0D588F1EB240214861C8674D66CBA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378030   (847798) от 24.04.2020
 
 Raxco PerfectUpdater 2.0.651.18068 [En]
@@ -6,7 +110,7 @@ Raxco PerfectUpdater 2.0.651.18068 [En]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847798.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Qemu Simple Boot 1.3 Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847359.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Colors Pro 2.2 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844732.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ MapInfo Pro 15.2.1 Build 224 (x64) [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844461.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ MapInfo Pro 15.0 Build 18 (x86) [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844344.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ DirectX Software Development Kit Июнь 2010 [Английский]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842038.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ MapInfo Professional 9.0 Portable [RUS]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840499.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ PWBoot 3.0.2 [английский]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835469.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ Code Composer Studio 7.0.0.00043 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834775.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ Code::Blocks 16.01 + Portable [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832811.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ Visual Assist X 10.9.2094 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832134.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ Delcam PowerMILL Pro 2016 SP10 Version 20.0.10.64.1187259 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824512.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ Microsoft Visual Studio 2019 Community 16.11.5 (Offline Cache, Unofficial) [Ru/E
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822578.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ Geany 1.38.0 + Plugins [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820967.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ StairDesigner 7.05a [Multi]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818638.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818515.jpg" />
 </div>
 
 
@@ -426,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813057.jpg" />
 </div>
 
 
@@ -455,7 +559,7 @@ Autodesk Robot Structural Analysis Pro 2017 30.0.0.5913 (x64) [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812952.jpg" />
 </div>
 
 
@@ -482,7 +586,7 @@ Autodesk Advance Steel 2017 Build 722 (x64) [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812802.jpg" />
 </div>
 
 
@@ -508,7 +612,7 @@ Autodesk AutoCAD Civil 3D 2017 11.0.659.0 (x64) [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812798.jpg" />
 </div>
 
 
@@ -534,7 +638,7 @@ Nemetschek Allplan 2015 (30 Years Edition) Build 28.501.4211.1019 (x64) [Multi/R
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807175.jpg" />
 </div>
 
 
@@ -560,7 +664,7 @@ PGI Visual Fortran 12.10 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804106.jpg" />
 </div>
 
 
@@ -571,111 +675,6 @@ PGI Visual Fortran - компилятор Fortran и инструменталь�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33941B2E7E7B6928EC18D11E91DF8DE3B25D1301
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 885146   (802668) от 05.04.2015
-
-Autodesk AutoCAD Design Suite Ultimate 2016 (x86, x64) [En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Средства визуализации и САПР-проектирования AutoCAD® Design Suite расширяют возможности AutoCAD благодаря решениям для визуального представления и программе AutoCAD Raster Design. Преобразуйте существующие проектные данные в файлы DWG™, демонстрируйте проекты с использованием надежной технологии TrustedDWG™ и создавайте реалистичные визуализации проектов.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DCC6D9BD159C67491823DBB5B30236D422C9FFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198992   (802475) от 14.01.2018
-
-Microtest PentaScanner+ (firmware & manual) 5.0.0 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разное (прочее ПО)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прошивка портативного прибора для сертификации кабельных систем категории 5. Тестирует на соответствие стандартам: TIA TSB-67 Level II, TIA 568A, ISO 11801, 10BASE-T, ATM 155, Token Ring, 100BASE-TXЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F664B8F8700C746F480653D332ED7777E0ED6CDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252735   (800539) от 01.01.2019
-
-3Planesoft - All in One 104 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разное (прочее ПО)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800539.jpg" />
-</div>
-
-
-###  Подробнее
-
-Универсальный патч, который способен сломать любую заставку от компании 3Planesoft, на данный момент  таких насчитывается 104 штук в данном релизе.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D138AC1B12DDE8E6CD441A4FC07FEBA1B679FD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506710   (799335) от 01.11.2021
-
-HxD Hex Editor 2.5.0.0 + Portable [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799335.jpg" />
-</div>
-
-
-###  Подробнее
-
-HxD - это быстрый и легковесный HEX-редактор, который, в дополнение к редактированию дисков в формате raw и модификации данных в RAM памяти, обрабатывает файлы любого размера.
-Программа предоставляет такие функции, как поиск и замена, экспорт, контрольные суммы, вставка байтовых шаблонов, шредер файлов, объединение или разделение файлов, статистика и многое другое.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4127666386DB60E49016BB2F0CECF5A4868105F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

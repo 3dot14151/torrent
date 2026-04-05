@@ -1,3 +1,32 @@
+###  Публикация: 1587216   (193003) от 30.10.2022
+
+Hostage - MEMENTO MORI (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Swarm [00:03:06]
+02. Cancer [00:04:11]
+03. Vanitas [00:03:55]
+04. Ark [00:04:12](   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:56:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1403D42B22004F88E016E72CA14EBC276137073F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587351   (193001) от 30.10.2022
 
 Vulture - Dealin' Death (2021) [FLAC|Lossless|image + .cue] <Speed, Thrash Metal>
@@ -6,7 +35,7 @@ Vulture - Dealin' Death (2021) [FLAC|Lossless|image + .cue] <Speed, Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193001.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Silver Phantom - Crimson Cabaret (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard & He
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192999.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Thammuz - Sons of the Occult (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192995.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Vescera - Beyond The Fight (2017) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192993.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Jamie Hosmer - Comfortable Shoes (2021) Japanese Edition [FLAC|Lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192991.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ John Bongiovi - John Bongiovi (2000) [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192989.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Vulture - Ghastly Waves & Battered Graves (2019) [FLAC|Lossless|image + .cue] <S
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192987.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Dead Man's Dirt - Dead Man's Dirt (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192985.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Various Artists - Rock Guitar Forever (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192984.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Avatarium - Death, Where Is Your Sting (2022) [FLAC|Lossless|WEB-DL|tracks] <Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192981.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Fans Of The Dark - Suburbia (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192971.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Turkish Delight - Volume One (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192968.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Los Bastardos Finlandeses - Viva! (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192967.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ The Damned - A Night of a Thousand Vampires (Live in London) (2022) [FLAC 2.0|48
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192965.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192963.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Rock Playlist Masters - Top 100 Rock Anthems Playlist (2013) [FLAC|Lossless|WEB-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192962.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192961.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ The Damned - A Night of a Thousand Vampires (Live in London) (2022) [MP3|320 Kbp
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192953.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Young Gun Silver Fox - West End Coast (2015) Japanese Edition [FLAC|Lossless|ima
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192949.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Foo Fighters - The Essential Foo Fighters (2022) Compilation [FLAC|Lossless|WEB-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192947.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Streetlight Circus - Super Fine Sugar (2022) [FLAC|Lossless|image + .cue] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192946.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Orianthi - Rock Candy (2022) Japanese Edition [FLAC|Lossless|tracks + .cue] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192930.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Faith in Jane - Axe to Oak (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psy
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192927.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Simple Minds - Direction Of The Heart (2022) Deluxe Edition [FLAC|Lossless|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192923.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Pearls and Flames - Reliance (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192799.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Pearls and Flames - Reliance (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F9913670450F78BAA802AA49201E2C6D0FAF1D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657305   (192798) от 03.09.2023
-
-Vortex Unit - The Bringer of Sun (2020) [FLAC|Lossless|WEB-DL|tracks] <Black, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Into the Saturnine Realm (00:04:12)
-02 - The Bringer of Sun (00:05:18)
-03 - A Broken Branch (00:04:41)
-04 - I Speak With Verity (00:06:31)(   Читать дальше...   )Жанр: Black, Death MetalПродолжительность: 00:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F34B85653027F863DADB8075BC60DE74DB8F7F22
 ```
 
 https://mybot314.ru/tekegram_catalog/

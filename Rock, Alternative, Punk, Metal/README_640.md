@@ -1,3 +1,32 @@
+###  Публикация: 1166337   (426919) от 16.09.2017
+
+Root - Hell Symphony (1991) [APE|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Belzebub              06:08
+02 - Belial                03:08
+03 - Lucifer               04:07
+04 - Abaddon               03:15(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:45:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F94DB520E8678456F5A4EBB02D1CE3161AE7E04B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1166209   (426916) от 16.09.2017
 
 Boris - Dear (2017) Deluxe Japanese Version [FLAC|Lossless|Web-DL|tracks] <Drone Metal, Shoegaze, Experimental>
@@ -6,7 +35,7 @@ Boris - Dear (2017) Deluxe Japanese Version [FLAC|Lossless|Web-DL|tracks] <Drone
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426916.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Wolfheart - Constellation Of The Black Light (2018) [MP3|320 Kbps] <Melodic Deat
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426888.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Brainstorm - Midnight Ghost (2018) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426885.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Drowning the Light - Varcolaci Rising (2017) [FLAC|Lossless|image + .cue] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426879.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Slash (Featuring Myles Kennedy and The Conspirators) - Living the Dream (2018) [
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426878.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Rod Stewart - Blood Red Roses (2018) Deluxe Version [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426874.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Quiet Riot - Road Rage (2017) [FLAC|Lossless|tracks + .cue] <Glam Metal, Hard Ro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426802.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Rose Tattoo - Angry Metal / 20 Great Tracks (1993) Compilation, Repertoire Recor
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426798.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Stratovarius - Enigma: Intermission II (2018) [MP3|320 Kbps] < Melodic Power Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426768.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Marilyn Manson & The Spooky Kids - Lunch Boxes & Choklit Cows (2004) Compilation
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426640.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - Now That's What I Call Driving Rock (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426636.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_426517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_426517.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ Russ Ballard - Premium Gold Collection (1999) [FLAC|Lossless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_426415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_426415.jpg" />
 </div>
 
 
@@ -386,7 +415,7 @@ Roger Hodgson - 4 Solo Albums (1984-2000) [WavPack|Lossless]<Pop Rock, Classic R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_426406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_426406.jpg" />
 </div>
 
 
@@ -421,7 +450,7 @@ Perpetual Dreams - A New Rising (2016) [MP3|320 Kbps] <Melodic Heavy Metal, Hard
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426369.jpg" />
 </div>
 
 
@@ -450,7 +479,7 @@ Papadosio - Pattern Integrities (2016) EP [MP3|320 Kbps] <Experimental Electroni
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426251.jpg" />
 </div>
 
 
@@ -479,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_426158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_426158.jpg" />
 </div>
 
 
@@ -505,7 +534,7 @@ Draupnir - In Culpa Versari (2008) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425980.jpg" />
 </div>
 
 
@@ -534,7 +563,7 @@ Messiah - Fracmont (2020) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425979.jpg" />
 </div>
 
 
@@ -563,7 +592,7 @@ Ebony Tears - Evil As Hell (2001) [FLAC|Lossless|image + .cue] <Melodic Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425977.jpg" />
 </div>
 
 
@@ -592,7 +621,7 @@ Jethro Tull - Original Masters (1985) remaster, 1998 DCC Compact Classics [WavPa
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425948.jpg" />
 </div>
 
 
@@ -621,7 +650,7 @@ The Kings of Frog Island - 3 CD: The Kings of Frog Island IV-VI (2013-2020) [FLA
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425722.jpg" />
 </div>
 
 
@@ -650,7 +679,7 @@ Summoning - With Doom We Come (2018) Box Set, Deluxe Limited Edition [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425721.jpg" />
 </div>
 
 
@@ -679,7 +708,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425718.jpg" />
 </div>
 
 
@@ -708,7 +737,7 @@ Decameron - My Shadow (1996) Reissue, 2020, 	No Fashion Records [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425608.jpg" />
 </div>
 
 
@@ -722,35 +751,6 @@ Decameron - My Shadow (1996) Reissue, 2020, 	No Fashion Records [FLAC|Lossless|i
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D13A1E41E712C3A0A949C8F9F35AF7B8DDB5947F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572044   (425607) от 25.08.2022
-
-Sinistral King - Serpent Uncoiling (2020) [FLAC|Lossless|image + .cue] <Black, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425607.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Serpent Uncoiling
-2.	Nahemoth
-3.	Isheth Zenunim
-4.	Fields of Necromance(   Читать дальше...   )Жанр: Black, Death MetalПродолжительность: 00:41:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BB446095E0D78BA68D3A2C575F1D0BC596F8DB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,159 @@
+###  Публикация: 1812521   (7786) от 15.08.2025
+
+Чужие: Расширенная версия / Aliens Expanded (2024) WEB-DL [H.264/1080p] [DVO]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глубокий и инновационный документальный фильм, который исследует историю создания любимого научно-фантастического эпика Джеймса Кэмерона «Чужие» (1986) и его невероятное влияние.Производство: США / CreatorVCЖанр: документальныйРежиссер: Йен НэйтанУчастники: Джеймс Кэмерон, Сигурни Уивер, Гейл Энн Хёрд, Майкл Бин, Лэнс Хенриксен, Пол Райзер, Дженетт Голдстин, Уильям Хоуп, Марк Ролстон, Кэрри ХеннПеревод: Двухголосый любительский (Pazl Voice)Язык озвучки: русский, английскийСубтитры: русские,  английскиеПродолжительность: 04:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E78EED918813819F505B7530CB48D225ABB7B5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812543   (7745) от 15.08.2025
+
+Супермен: История Кристофера Рива / Super/Man: The Christopher Reeve Story (2024) WEB-DL [H.264/1080p] [DVO]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет рассказывает историю жизни американского киноактера Кристофера Рива, который прославился благодаря четырем фильмам о Супермене, где сыграл главную роль. В 1995 году он неудачно упал с лошади, в результате чего оказался парализованным ниже шеи и даже утратил возможность самостоятельно дышать. Несмотря на это мужчина начинает заниматься активизмом, борясь за (   Читать дальше...   )Производство: США, Великобритания / DC Studios, HBO Documentary Films, CNN FilmsЖанр: документальный, биографияРежиссер: Иэн Бонхот, Питер ЭттедгиУчастники: Кристофер Рив, Уилл Рив, Александра Рив Гивенс, Мэттью Рив, Сьюзен Сарандон, Кевин Джонсон, Гленн Клоуз, Майкл Манганьелло, Джефф Дэниелс, Пьер СпенглерПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русский, английскийСубтитры: русские (forced + fullПродолжительность: 01:44:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C67565CA75023B75CDADED2807784E4A42A53601
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812534   (7739) от 15.08.2025
+
+Величайшие ужасы / Horror's Greatest (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-5 из 5) [DVO]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправляйтесь в захватывающее путешествие по лучшим фильмам жанра, узнав о мастерах, создавших ваши любимые страшилки.Производство: США / Marwar Junction ProductionsЖанр: документальный, ужасыПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русский, английскийСубтитры: русские (forced + full), английские (SDH)Продолжительность: ~00:56:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D8F76ADF48C305AD1D090E39BB0EEF8769A8105
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812535   (7735) от 15.08.2025
+
+Величайшие ужасы / Horror's Greatest (2025) WEB-DL [H.264/1080p] (сезон 2, серии 1-5 из 5) [DVO]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправляйтесь в захватывающее путешествие по лучшим фильмам жанра, узнав о мастерах, создавших ваши любимые страшилки.Производство: США / Marwar Junction ProductionsЖанр: документальный, ужасыПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русский, английскийСубтитры: русские (forced + full), английские (full + SDH)Продолжительность: ~00:54:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75E05E9A2C0BC78D08A94201B99030B5043AF568
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812529   (7723) от 15.08.2025
+
+Как Дисней построил Америку / How Disney Built America (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6) [MVO]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный сериал, рассказывающий о визионере и новаторе Уолте Диснее, прошедшем путь от начинающего аниматора в Канзас-Сити до создателя огромной индустрии развлечений и культуры.Производство: США / A+E Factual ProductionsЖанр: документальныйРежиссер: Стивен СкоттПеревод: Многоголосый любительский (OMSKBIRD)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB2FFC11C0740EA20D67FF6BF64D1932C08E5CB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812586   (7696) от 15.08.2025
+
+Портрет Антона Адриана Мюссерта / Portret van Anton Adriaan Mussert (1970) DVDRip [NL / RU Sub]
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм о лидере фашистской партии в Нидерландах, существовавшей с 1931 по 1945 год. Этот архитектор по имени Антон Муссерт был расстрелян в 1946 году после того, как был признан виновным в государственной измене и помощи врагу.Производство: Нидерланды / VPROЖанр: документальный, биография, историяРежиссер: Пол ВерховенУчастники: Ir. H.A.M. Dibbits, Т. Клеийн, J.G. Krabbendam, J.V.D. Laan, Антон Мюссерт, E.J. Roskam, Florrie Rost van Tonningen, Prof. Dr. Ir. Schermerhorn, J. ZaaijerПеревод: субтитрыЯзык озвучки: нидерландскийСубтитры: русскийПродолжительность: 00:55:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E9EA05F804BB0F8338FDCA33E824B3A1316B059
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1812516   (7672) от 15.08.2025
 
 Дикий стиль / Wild Style (1983) WEB-DL [H.264/1080p] [DVO]
@@ -6,7 +162,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7672.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7529.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Half-Life 2: Документальный фильм к 20-летию / Half-Lif
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7523.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7503.jpg" />
 </div>
 
 
@@ -113,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7492.jpg" />
 </div>
 
 
@@ -139,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7437.jpg" />
 </div>
 
 
@@ -168,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7278.jpg" />
 </div>
 
 
@@ -194,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7263.jpg" />
 </div>
 
 
@@ -220,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7249.jpg" />
 </div>
 
 
@@ -246,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7107.jpg" />
 </div>
 
 
@@ -272,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6936.jpg" />
 </div>
 
 
@@ -298,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6472.jpg" />
 </div>
 
 
@@ -324,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6334.jpg" />
 </div>
 
 
@@ -350,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6273.jpg" />
 </div>
 
 
@@ -379,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6266.jpg" />
 </div>
 
 
@@ -408,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6102.jpg" />
 </div>
 
 
@@ -434,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6086.jpg" />
 </div>
 
 
@@ -460,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6040.jpg" />
 </div>
 
 
@@ -486,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5350.jpg" />
 </div>
 
 
@@ -512,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5253.jpg" />
 </div>
 
 
@@ -523,168 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCB6F591409155C258830F740F1DE151B7714E31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815477   (5235) от 30.08.2025
-
-Главная дорога (30.08.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Налоговое бремя: машина под арестом, изъята приставами, передана неизвестному, а договор купли-продажи расторгнут. Как не платить налог на чужую машину и вернуть те деньги, что уже списали?
- Юристы с большой дороги: как мошенники под прикрытием автоюристов от «Главной дороги» помогают в решении спорных дорожных ситуаций за деньги.
-Гармония трассы: многие автомобилисты (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EB91605A60B462F727090A37D3EAFD383A1C40B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815543   (5151) от 30.08.2025
-
-Живая еда с Сергеем Малозёмовым (30.08.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пять ресторанных приемов, которые легко повторить на кухне: команда программы вместе с шеф-поваром и представителями старшего поколения рассказали, какие из приемов реально повторить дома, и что — молекулярная селедка под шубой, сладкое картофельное пюре, фрукты на огне — по силам и вкусу тем, кто привык к традиционным рецептам.
- Также зрители узнают, какой рис — (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F90EEA3D4C7BEC38CFE8D1F59D0985F3CB81B847
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815493   (5135) от 30.08.2025
-
-Пятеро на одного (30.08.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5135.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:38:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03F7792F3CF17ED66182E0C9AD931AAB4E258456
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815568   (5127) от 30.08.2025
-
-Своя игра (30.08.2025) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играУчастники: Семён Родыгин, Елизавета Бархотова, Михаил ШевельЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBE97FD833A27BBBE2AA90C740050F7E6935F289
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815514   (5125) от 30.08.2025
-
-Тест-драйв BELGEE X70 2024 — Минтранс (30.08.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5125.jpg" />
-</div>
-
-
-###  Подробнее
-
-🔸 Штраф за «докатку». Как доехать до ремонта, не привлекая внимания инспектора?
-🔸 Тест-драйв BELGEE X70 2024. Что многих раздражает в этой машине?
-🔸 Вопрос тонировки. Считается ли стекло обтекателя мотоцикла ветровым и можно ли его тонировать плёнкой?
-🔸 Неприятные пятна. Что делать, если на двигателе появились потёки масла?(   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:48:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36EE9F15DA02ED8D5AB613C18BC918F723727ECF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815502   (5120) от 30.08.2025
-
-Военная тайна с Игорем Прокопенко (30.08.2025) WEBRip [H.264]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5120.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5220B90CB0FA93522CD045D831E244B4E4178FE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

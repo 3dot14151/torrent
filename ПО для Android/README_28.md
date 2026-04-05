@@ -1,3 +1,109 @@
+###  Публикация: 1470554   (1015601) от 17.05.2021
+
+Avee Music Player (Pro) 1.2.101 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Avee music player – это новейший музыкальный плеер, который позволит вам наслаждаться своей любимой музыкой с максимальным комфортом и удобством. Если вы ищите хороший музыкальный плеер, который бы позволил вам слушать музыку с комфортом, то это именно то, что вы искали. Это приложение позволит вам настраивать музыку на ваш вкус, например, с помощью эквалайзера вы (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 20.02.2021Разработчик: Daaw AwwПоддерживаемая ОС: Android 4.1+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4CA0947F3556D6A55F31AE7178798742737F222
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471171   (1015286) от 19.05.2021
+
+Сказки Пушкина А. С. v11
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всеми любимые сказки А. С. Пушкина для детей и взрослых с удобным управлением.
+Представляем Вашему вниманию приложение Сказки Пушкина А. С.
+Александр Сергеевич Пушкин - величайший русский поэт и писатель, создатель русского литературного языка, автор всеми любимых сказок. Не одно поколение детей воспитывалось на его сказках. Эти сказки и сегодня не потеряли своей (   Читать дальше...   )Тип издания: Paid (Куплена в Маркете)Релиз состоялся: 21 сентября 2020 г.Разработчик: VodiaПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B95FB802CCEF00EB11B9D358B4746BAECFA8A807
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471222   (1015265) от 19.05.2021
+
+Токарь v2.1 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Содержит сведения, необходимые для разрешения практических и теоретических вопросов, связанных с работой на токарном станке. Материалы даны в виде текста с таблицами и с иллюстрациями, указывающими рациональные приемы и методы токарной обработки.Изложены сведения о процессах и режимах резания, нормировании токарных работ. Приведены методы повышения производительности (   Читать дальше...   )Тип издания: Paid (Куплена в Маркете)Релиз состоялся: 30 апреля 2017 г.Разработчик: NeosectorgazaПоддерживаемая ОС: Android 3.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAF24330021D5875B14F12B2228870C1D143474D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471235   (1015098) от 20.05.2021
+
+Аквариумистика - рыбы v3.2 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это приложение предназначено для любителей аквариума, которые любят украшать его растениями и наблюдать за жизнью своего молчаливого зеленого мира, неповторимого в своей красоте.В приложении вы узнаете как правильно устроить аквариум, как выбрать рыб и обеспечить их успешное содержание и разведение.Вы узнаете о анатомии, поведении, кормлении рыб.В приложении собрана (   Читать дальше...   )Тип издания: Paid (Куплена в Маркете)Релиз состоялся: 13 октября 2018 г.Разработчик: Progressiv Digital Inc.Поддерживаемая ОС: Android 3.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5C673670AAB22DAC149F2B7C4538E268846E84C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1471404   (1015093) от 20.05.2021
 
 Гражданское оружие v3.1.1 [Ru]
@@ -6,7 +112,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015093.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015092.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014906.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ Picture Insect v2.2 [Ru/Multi] - Bug Identifier
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014772.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ Photographer's companion v1.9.0 Pro [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014749.jpg" />
 </div>
 
 
@@ -138,7 +244,7 @@ Geometryx: Геометрия - Расчёты и формулы v3.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014723.jpg" />
 </div>
 
 
@@ -164,7 +270,7 @@ Hotspot Shield Free VPN v8.7.0 Elite [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014712.jpg" />
 </div>
 
 
@@ -192,7 +298,7 @@ Mobile Observatory - Astronomy v2.75 / 3 v3.3.5d Pro  [En] - вся информ
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014709.jpg" />
 </div>
 
 
@@ -218,7 +324,7 @@ Audiomack v6.4.0 [Ru/Multi] - скачайте музыку для оффлай�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014499.jpg" />
 </div>
 
 
@@ -246,7 +352,7 @@ Launcher 10 - Лаунчер стилизованный под Windows 2.7.31 [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014419.jpg" />
 </div>
 
 
@@ -272,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014313.jpg" />
 </div>
 
 
@@ -299,7 +405,7 @@ txtpad+ 3.1.2 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014208.jpg" />
 </div>
 
 
@@ -325,7 +431,7 @@ TonalEnergy Tuner and Metronome v1.9.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014197.jpg" />
 </div>
 
 
@@ -352,7 +458,7 @@ chomp SMS 8.39 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014191.jpg" />
 </div>
 
 
@@ -378,7 +484,7 @@ Material Status Bar 10.23 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014177.jpg" />
 </div>
 
 
@@ -404,7 +510,7 @@ Amber Weather (Янтарная погода) 4.7.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014172.jpg" />
 </div>
 
 
@@ -430,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014074.jpg" />
 </div>
 
 
@@ -456,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013981.jpg" />
 </div>
 
 
@@ -485,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013966.jpg" />
 </div>
 
 
@@ -511,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013808.jpg" />
 </div>
 
 
@@ -537,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013456.jpg" />
 </div>
 
 
@@ -563,7 +669,7 @@ Avast: Mobile Security & Antivirus 6.38.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012985.jpg" />
 </div>
 
 
@@ -574,113 +680,6 @@ Avast: Mobile Security & Antivirus 6.38.2 [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31DEA274DA4654D57FA32D8E0E435CC5B350F0A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474960   (1012689) от 04.06.2021
-
-Звуковой навигатор для леса АуАу v1.94 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012689.jpg" />
-</div>
-
-
-###  Подробнее
-
-Звуковой навигатор для грибников, охотников, рыбаков и всех кто может заблудится в лесу. Позволяет не доставая телефон из кармана (по звуковым подсказкам) следовать к заранее сохранённым координатам или выбранным на картах, таких как Locus, Osmand, Maps With Me и других способных поделится через "geo" или буфер обмена.Тип издания: Пиратка (Paid)Релиз состоялся: 1 апреля 2021 г.Разработчик: shelnikПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99AB406F3C545C397F1B2C5FD35874B4F12084E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475029   (1012545) от 05.06.2021
-
-BirdNerd v1.0.9b [Ru/En] - Определение птицы по голосу (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012545.jpg" />
-</div>
-
-
-###  Подробнее
-
-* Приложение может идентифицировать птицу по голосу с помощью микрофона на устройстве.
-* Устойчивость к шуму (ветер, автомобили, журчание воды).
-* ​Определение нескольких видов одновременно, если они звучат хором.
-​* Определение птиц не только по пению, но и по другим видоспецифичным звукам, включая сигналы птенцов.(   Читать дальше...   )Тип издания: Пиратка (открыт Premium)Релиз состоялся: 26.05.2021Разработчик: Bird Nerd LLCПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9A905147B125898E6BDC24740379C28A3E0CA68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417976   (1012476) от 05.06.2021
-
-По грибы v72 [Ru/En] (обновляемая)
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение содержит атлас с 212 видами грибов, их подробным описанием и качественными фотографиями. Также там есть ключ, помагающий определить гриб согласно его свойствам. Интересной особенностью приложения является определение гриба с помощью эксперементальной функции, работающей на основе нейронной сети.Тип издания: Пиратка (открыт Premium)Релиз состоялся: 19.04.2021Разработчик: VocomПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Польский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55B14174C23047D32020C6D066233E96A426474B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910380   (1012304) от 06.06.2021
-
-Strelok / Стрелок v5.0.0 Plus и v6.0.4 Pro [Ru/En]
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012304.jpg" />
-</div>
-
-
-###  Подробнее
-
-Баллистический калькулятор, разработанный с применением самых последних знаний в области баллистики. Предназначена для опытных пользователей и стрелков высокого класса. Позволяет вычислять Фактор гироскопической стабильности, деривацию, вертикальный ветровой снос и эффект Кориолиса. Позволяет использовать драг-функции компании Lapua, собственные драг-функции. Может (   Читать дальше...   )Тип издания: Free и ProРелиз состоялся: 05.06.2021Разработчик: Igor V.BorisovПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E702CC513496A2130F25EA8F8E5B63F3D7C69C69
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,135 @@
+###  Публикация: 1737830   (106468) от 20.07.2024
+
+Не бей копытом / Home on the Range (2004) WEB-DLRip [H.265/2160p] [Локализованная версия] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106468.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь на ферме проста и привольна. Хозяева и питомцы живут душа в душу, поют песни и веселятся. Но внезапно этой идиллии приходит конец. На смену обанкротившимся владельцам фермы приходит безжалостный делец, желающий продать землю и избавиться от животных.
+
+Естественно, это не устраивает привыкших к сладкой жизни четвероногих и пернатых обитателей. Начинается потрясающе (   Читать дальше...   )Производство: США, Япония / Walt Disney Pictures, Walt Disney Feature AnimationЖанр: мультфильм, мюзикл, комедия, приключения, семейный, вестернРежиссер: Уилл Финн, Джон СанфордАктеры: Дж. У. Бейли, Розанна Барр, Бобби Блок, Стив Бушеми, Кэрол Кук, Чарли Делл, Джуди Денч, Чарльз Дэннис, Маршалл Эфрон, Джо ФлаэртиПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: русскиеПродолжительность: 01:13:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EF4F43864269B56A8242505F587A757C61A05D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738478   (106336) от 22.07.2024
+
+Микки: И снова под Рождество / Mickey's Twice Upon a Christmas (2004) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приходите в гости к Санта Клаусу, Микки Маусу и другим диснеевским героям на праздник и узнайте, как они встречают Рождество. Старина Дональд всеми силами пытается противостоять празднику, в то время как Микки и Плуто веселятся от души.Производство: США, Австралия / Walt Disney Pictures, DisneyToon StudiosЖанр: мультфильм, фэнтези, комедия, семейныйРежиссер: Тереза Петтенджилл, Кэрол Холлидэй, Пегги ХолмсАктеры: Уэйн Оллвэйн, Тони Ансельмо, Джефф Беннетт, Джим Каммингс, Билл Фармер, Тресс МакНилл, Джейсон Мэрсден, Чак МакКанн, Клайв Ревилл, Расси ТейлорПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: русские (full, forced), английскиеПродолжительность: 01:07:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8890D3D613FE50A284C8A47F8B080DD85823A4F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739406   (106137) от 27.07.2024
+
+Гарфилд / The Garfield Movie (2024) BDRemux [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106137.jpg" />
+</div>
+
+
+###  Подробнее
+
+После неожиданного воссоединения со своим давно потерянным отцом — уличным котом Виком — Гарфилд вместе с другом-псом Оди вынужден отказаться от своей идеально тепличной жизни и присоединиться к весёлому и опасному приключению.Производство: США, Великобритания, Гонконг / Columbia Pictures, Alcon EntertainmentЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Марк ДиндалАктеры: Крис Пратт, Сэмюэл Л. Джексон, Ханна Уэддингхэм, Винг Реймз, Николас Холт, Сесили Стронг, Харви Гильен, Бретт Голдстин, Бовэнь Ян, Снуп ДоггПеревод: Дублированный, Многоголосый профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Украинские, АнглийскиеПродолжительность: 01:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D037C6706FC84B92DB077FC3603010E44C118945
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739443   (106053) от 28.07.2024
+
+Винни Пух и Слонотоп: Хэллоуин / Pooh's Heffalump Halloween Movie (2005) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герои празднуют веселый Хэллоуин в Сказочном Лесу с новыми приятелями Кенгуру и Слонотопом. Но веселье продолжается до тех пор, пока Тигра не предупредит их о страшном злом волшебнике, если он поймает их, то превратит во что-нибудь странное. Но если они найдут его первым, то смогут загадать желания.Производство: США, Филиппины, Таиланд / Walt Disney Pictures, DisneyToon StudiosЖанр: мультфильм, мюзикл, фэнтези, комедия, семейныйРежиссер: Сауль Эндрю Блинкофф, Эллиот М. БурАктеры: Джимми Беннетт, Питер Каллен, Джим Каммингс, Джон Фидлер, Кен Сэнсом, Кэт Суси, Кайл Стэнджер, Дэвид Огден Стайерз, Трэвис Оутс, Брайан КаммингсПеревод: Дублированный (ZeroVoice)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:707C3D851B117333BE22D6A4A49C0229E5B54F66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740438   (105878) от 02.08.2024
+
+Двенадцать месяцев (1956) BDRip [H.264/720p]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Снежной холодной зимой, в январе, под вечер, когда люди сидят в домах, прислушиваясь к треску поленьев в печках, злая мачеха отправила свою падчерицу в лес, чтобы та набрала корзину подснежников. Бедной девочке ничего не оставалось делать, как исполнить прихоть мачехи… По одноименной сказке Самуила Яковлевича Маршака.Производство: СССР / СоюзмультфильмЖанр: мультфильм, фэнтези, детский, семейныйРежиссер: Иван Иванов-Вано, Михаил БотовАктеры: Татьяна Барышева, Юлия Юльская, Людмила Касаткина, Галина Новожилова, Эраст Гарин, Григорий Шпигель, Георгий Вицин, Алексей Грибов, Владимир Володин, Геннадий Малышев и другиеСубтитры: отсутствуютПродолжительность: 00:52:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F94C18E33053C3D3B190EA7A0D3B3EE8902D627
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1740725   (105802) от 03.08.2024
 
 Принц драконов / The Dragon Prince (2023) WEB-DL [H.264/1080p] (сезон 5, серии 1-9 из 9) TVShows, HDrezka Studio
@@ -6,7 +138,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105802.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105650.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105469.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105465.jpg" />
 </div>
 
 
@@ -110,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105226.jpg" />
 </div>
 
 
@@ -136,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105221.jpg" />
 </div>
 
 
@@ -162,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105149.jpg" />
 </div>
 
 
@@ -188,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105140.jpg" />
 </div>
 
 
@@ -214,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105112.jpg" />
 </div>
 
 
@@ -240,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105069.jpg" />
 </div>
 
 
@@ -266,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104925.jpg" />
 </div>
 
 
@@ -292,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104923.jpg" />
 </div>
 
 
@@ -318,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104426.jpg" />
 </div>
 
 
@@ -346,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104027.jpg" />
 </div>
 
 
@@ -372,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103847.jpg" />
 </div>
 
 
@@ -399,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103821.jpg" />
 </div>
 
 
@@ -426,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102820.jpg" />
 </div>
 
 
@@ -452,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102727.jpg" />
 </div>
 
 
@@ -478,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102726.jpg" />
 </div>
 
 
@@ -504,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102715.jpg" />
 </div>
 
 
@@ -530,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_102633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102633.jpg" />
 </div>
 
 
@@ -541,138 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A1B0800673D288FA18CBC7FE4961FB4FFF24A1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490641   (102530) от 01.05.2012
-
-Магазинчик БО (27 серий из 27) (2003) DVDRip
-
->>Мультфильмы
->>Отечественные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102530.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Магазинчик Бо!!!" - сериал студии Олега Куваева, создателя главного героя российского Интернета - Масяни. Любители ее бесшабашного юмора с удовольствием познакомятся с инопланетным зайцем Бо. Хотя внешне он не похож на Масяню, но манерами - очень. В проекте явно прослеживается влияние Масяни с ее молодежным юмором и выходками. Главными героями мультика опять стали студенты. Только теперь к молодым людям прибавился еще один забавный персонаж - инопланетный заяц, "припарковавший" свою тарелку где-то под Выборгом.Жанр: Компьютерная анимация, Для взрослых, КомедияРежиссер: Олег Куваев, Катя ГореловаПерсонажи: Выпендрёжник, Лапкин, Чувырла, Охламон, Заяц БоПродолжительность: 27 x ~ 00:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE1D4AB53E4E9750F34E57C5AE3D01A7CFDD09DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490737   (102445) от 01.05.2012
-
-Несносный Деннис Против Магии Вуду / Dennis the Menace in Cruise Control (2002) DVBRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102445.jpg" />
-</div>
-
-
-###  Подробнее
-
-В поисках тишины и покоя сварливый сосед Денниса мистер Уилсон решил отправиться в морской круиз. Но все его мечты разбились о суровую реальность!
-Деннис и его семейка оказались на борту этого же самого круизного корабля. А когда Деннису вздумалось протянуть руку помощи маленькой островной принцессе, которой грозят темные колдовские силы, и наказать двух мошенников, (   Читать дальше...   )Жанр: Детский,  комедия, приключения,Режиссер: Патрик А. ВентураПерсонажи: Деннис с псом Рафом, сосед мистер Уилсон, принцесса Лиана и др.Перевод: ДублированныйПродолжительность: 01:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A246D3E8887276A8BECD0EED16DA7CCC7056D780
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479207   (102349) от 30.04.2012
-
-Мстители - Могучие Герои Земли / The Avengers - Earth's Mightiest Heroes (Сезон: 2, серии: 1-4 из 26) (2012) WEB-DL [H.264/720p-LQ] [Обновляемая]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102349.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неизвестная сила наносит удар по четырем тюрьмам для сверхлюдей, и десятки опаснейших суперзлодеев вырываются на свободу, самые могучие супергерои объединяются в альянс под названием Мстители, чтобы вернуть вырвавшееся на свободу зло за решетку и остановить Гравитрона, который кстати и стоял за нападением на тюрьмы. В первых эпизодах Мстители предстанут в классическом (   Читать дальше...   )Жанр: Мультсериал, Фантастика, БоевикРежиссер: Ciro Nieli, Vinton HeuckСубтитры: ОтсутствуютЯзык: Русский, АнглийскийФормат: MKVКачество: WEB-DL ( Рип Мстители - Могучие Герои Земли сезон 2)Продолжительность: 4 ~ 00:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC560FEA841015AFD0B583C27DBB879DEFD608D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490222   (102205) от 30.04.2012
-
-Девочка и Робот / Girl and Robot (2008) HDTVRip [H.264/720p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юная изобретательница, нетерпеливо берётся за создание робота. Получится ли у неё довести дело до конца, не разрушив собственное творение?Жанр: Короткометражная анимацияРежиссер: Мэдс Дам Якобсен, Славен Риз, Хенрик Уоллмарк, Кеннет ХаунстрапПерсонажи: Девочка и её творениеПеревод: Без слов / НемойПродолжительность: 00:04:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDCFBBF8F3E169343548177ACA0692D164FFB68D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490106   (102178) от 30.04.2012
-
-Специальный агент Фредди / Freddie as F.R.O.7. (1992) DVDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда-то давным-давно во Франции жил принц по имени Фредерик. И быть бы принцу королем, если бы злая тетка Фредерика — колдунья Мессина — не превратила его в лягушонка, ростом с человека. Но Фредди недолго пребывал в унынии.
-С помощью магического дара, унаследованного от своего отца-короля, Фредди начал новую жизнь в облике супершпиона на службе у правительства Франции! (   Читать дальше...   )Жанр: мультфильм, мюзикл, фэнтези, приключенияРежиссер: Джон АсевскиПерсонажи: Специальный агент лягушонок Фредди против таинственных злодеевПеревод: Двуголосый закадровыйПродолжительность: 01:13:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFABBA9C6866392DA0ECB511C0F39E7F8F105A54
 ```
 
 https://mybot314.ru/tekegram_catalog/

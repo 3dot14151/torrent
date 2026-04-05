@@ -1,3 +1,135 @@
+###  Публикация: 1407118   (467924) от 06.09.2020
+
+Моя реинкарнация в отомэ-игре в качестве главной злодейки | Hamefura | Otome Game no Hametsu Flag shika Nai Akuyaku Reijou ni Tensei Shiteshimatta [TV-1] [2020, TV, 12 из 12] BDRip HEVC raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды Катарина, дочь герцога Клаэса, особенно сильно ударяется головой, после чего внезапно вспоминает свою прошлую жизнь, где она была обычной японской девочкой-подростком. Прямо перед своей преждевременной кончиной она играла в некую девичью игру, сеттинг которой удивительно похож на мир, где живёт Катарина. Только угодила она на место не главной героини, а антагонистки, (   Читать дальше...   )Производство: Япония, студия Silver LinkЖанр: комедия, исекайРежиссер: Иноэ КэйсукэЯзык озвучки: Профессиональный многоголосый (закадровый) Crunchyroll, Профессиональный многоголосый (закадровый) AniLibria.TVСубтитры: Русские надписи, Русский, English, Français, Arabic, German, Italian, Spanish, PortugueseПродолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:055CB145430089A978061320F25779CC58A34852
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 824878   (464239) от 25.09.2014
+
+Saikin, Imouto no Yousu ga Chotto Okashiinda ga. / ImoCho / Сейчас моя сестра малость сама не своя [2014, TV, 12 ep + OVA] BDRip Hi10p 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отец Юи Кандзаки женился второй раз, и у 16-летнего школьника появилась на год младшая сводная сестра. Мицуки – не красавица, не гений, но вполне нормальная девчонка, правда, малость молчаливая и стеснительная. Конечно, привыкать к новой семье нелегко, потому Юя, как настоящий мужчина, решил всячески помогать обретенной родне, тем более что парень он хозяйственный и любую работу по дому знает. А что сестренка скромная попалась - это хорошо, скромность красит девушку, а время лечит. Так бы все и шло, но вмешался (   Читать дальше...   )Жанр: комедия, эттиРежиссер: Хата ХироюкиПеревод: FooBooФормат: MKV |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59DC070F03DB47850E35B9A96955994708E13ADC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941346   (461583) от 27.09.2015
+
+Hyakka Ryouran: Samurai Bride / Буйство цветов (ТВ-2): Самурай невеста [2013, TV, 12 ep + 6 SP] BDRip Hi10p 720p Raw+Rus x2(ext)
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой воин Мунэакира вместе с подругой детства принцессой Сэн, бунтовщицей Юкимурой и таинственной Дзюбэй спасли Великую Японию от возрождения жуткого чернокнижника Сиро Амакусы. Помогли не сколько фамильные приемы школы Ягю, сколько способность парня своим поцелуем превращать любую девушку в грозного мастера-самурая. Увы, как часто бывает, всю славу присвоил себе (   Читать дальше...   )Жанр: приключения, боевые искусства, эттиРежиссер: Сидзуно КобунПеревод: Русские субтитры от YakuSub Studio
+Переводчики: @sh, Nika_Elrik, Редакторы: SapogaN, Sharingan, Оформление: KeeperRusСубтитры: ASS, Полные | Надписи (внешними файлами)Формат: MKVПродолжительность: 12 эпизодов и 6 спэшлов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56CEDC6F402CF88434C902D01884301C88C2E1FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941356   (461582) от 27.09.2015
+
+Grisaia no Kajitsu / The Fruit of Grisaia / Натюрморт в серых тонах [2014, TV, 13 ep + 6 SP] BDRip Hi10p 720p Raw+Rus x2(ext)
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юдзи Кадзами в 10 лет потерял родителей и был воспитан людьми, для которых писаные законы – пустой звук, а чужие жизни – что трава на ветру. Творя разное, парень быстро познал законы темного мира, и ныне его разум отточен, рефлексы – совершенны, а принципы гибки, как стальной клинок. Но даже сталь имеет предел усталости, и «рыцарь ночи» обратился к знакомой хозяйке (   Читать дальше...   )Жанр: романтика, комедия, драмаРежиссер: Танака МотокиПеревод: Русские субтитры от Timecraft
+Переводчик/Перевод песен: Nachtwandler, Редактор: AleX_MytH, Оформление: SurokuneСубтитры: ASS, Полные | Надписи (внешними файлами)Формат: MKVПродолжительность: 13 эпизодов и 6 спэшлов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE9507276F228F5F168886C9EF47CADFF3BCA645
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 862189   (461579) от 27.09.2015
+
+Saenai Heroine no Sodatekata / Saekano: How to Raise a Boring Girlfriend / Как из обычной девушки воспитать героиню [2015, TV, 13 ep] BDRip Hi10p 720p Raw+Rus x4(ext)
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461579.jpg" />
+</div>
+
+
+###  Подробнее
+
+16-летний Томоя Аки знает, что истинный отаку - не тот, кто сутками смотрит аниме, глотает мангу и играет в игры. Нет, отаку – это вечный искатель, солдат великой армии искусства, что носит в ранце маршальский жезл будущего творца. В общем, Томоя, встретив под цветущей сакурой девушку своей мечты, «воспылал» и решил подготовить к Комикету полноценную визуальную новеллу (   Читать дальше...   )Жанр: комедия, школаРежиссер: Камэй КантаПеревод: Русские субтитры от Gerale & Komugi-chan & RyujiСубтитры: ASS, Полные | Надписи (внешними файлами)Формат: MKVПродолжительность: 13 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB4EB4318CC0EF1EB0DCC799A734BE9C71B6C7FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1034257   (461457) от 04.10.2016
 
 91 Days / 91 день [2016, TV, 12 ep] HDTV 720p Raw+Rus
@@ -6,7 +138,7 @@
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461457.jpg" />
 </div>
 
 
@@ -33,7 +165,7 @@ Handa-kun / Ханда-кун [2016, TV, 12 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461258.jpg" />
 </div>
 
 
@@ -59,7 +191,7 @@ Haikyuu!! / Волейбол!! [2014, TV, 25 ep] WEBRip 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459536.jpg" />
 </div>
 
 
@@ -85,7 +217,7 @@ Charlotte / Шарлотта [2015, TV, 13] HDTVRip 720p raw+rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457072.jpg" />
 </div>
 
 
@@ -111,7 +243,7 @@ Orange / Апельсин [2016, TV, 13 ep] HDTVRip 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456652.jpg" />
 </div>
 
 
@@ -138,7 +270,7 @@ Devil Survivor 2 The Animation / Выжившие среди демонов 2 [2
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456640.jpg" />
 </div>
 
 
@@ -164,7 +296,7 @@ Muv-Luv Alternative: Total Eclipse / Total Eclipse / Полное затмени
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455487.jpg" />
 </div>
 
 
@@ -192,7 +324,7 @@ Sakigake!! Otokojuku / Charge!! Men's School / Мужская школа, в а�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454968.jpg" />
 </div>
 
 
@@ -218,7 +350,7 @@ Seikimatsu Kyuseishu Densetsu: Hokuto no Ken 2 / Fist of the North Star 2 / Ку
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454965.jpg" />
 </div>
 
 
@@ -245,7 +377,7 @@ Seikimatsu Kyuseishu Densetsu: Hokuto no Ken / Ken, the Great Bear Fist / Кул
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454962.jpg" />
 </div>
 
 
@@ -271,7 +403,7 @@ Hitsugi no Chaika: Avenging Battle / Чайка - принцесса с гроб
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454956.jpg" />
 </div>
 
 
@@ -298,7 +430,7 @@ Megalo Box | Мегалобокс [2018, TV, 13 из 13] HDTVRip 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454291.jpg" />
 </div>
 
 
@@ -324,7 +456,7 @@ Soten no Ken / Fist of the Blue Sky / Кулак Синего Неба [2006, TV
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452827.jpg" />
 </div>
 
 
@@ -350,7 +482,7 @@ Koukaku Kidoutai 2.0 / Ghost in the Shell 2.0 / Призрак в доспеха
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452747.jpg" />
 </div>
 
 
@@ -377,7 +509,7 @@ Kotonoha no Niwa / The Garden of Words / Сад изящных слов [2013, M
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448438.jpg" />
 </div>
 
 
@@ -403,7 +535,7 @@ Arslan Senki / Сказания об Арслане [2015, TV-сериал, 25] 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448432.jpg" />
 </div>
 
 
@@ -429,7 +561,7 @@ Kotonoha no Niwa / The Garden of Words / Сад изящных слов [2013, M
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446262.jpg" />
 </div>
 
 
@@ -455,7 +587,7 @@ Shimoneta to Iu Gainen ga Sonzai Shinai Taikutsu na Sekai / Скучный ми�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446257.jpg" />
 </div>
 
 
@@ -481,7 +613,7 @@ Birthday Wonderland | The Wonderland | В стране чудес [2019, Movie] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444482.jpg" />
 </div>
 
 
@@ -507,7 +639,7 @@ Shokugeki no Souma / Food Wars! Shokugeki no Soma / Кулинарные пое�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444049.jpg" />
 </div>
 
 
@@ -533,7 +665,7 @@ Mahouka Koukou no Rettousei / The Irregular at Magic High School / Бездар�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444045.jpg" />
 </div>
 
 
@@ -544,137 +676,6 @@ Mahouka Koukou no Rettousei / The Irregular at Magic High School / Бездар�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DA965D1EC4D451B28C938BEC903AD8D9DFF3D96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943721   (444044) от 05.10.2015
-
-Koukaku Kidoutai Stand Alone Complex | Ghost in the Shell: Stand Alone Complex | Призрак в доспехах: Синдром одиночки (ТВ-1) [2002, TV, 26 эп.] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444044.jpg" />
-</div>
-
-
-###  Подробнее
-
-В будущем грань между дигитальным и физическим мирами заметно стёрлась, кибертроника изменила жизнь человечества до неузнаваемости, создав новый синтетический уровень существования и сведя людей в единую Сеть. Однако сближение живых организмов и машин оказалось чревато опаснейшими последствиями, предоставив злоумышленникам невиданные доселе возможности манипулирования (   Читать дальше...   )Производство: Production I.GЖанр: приключения, фантастика, меха, киберпанкРежиссер: Камияма КэндзиПеревод: MC Entertainment | Suzaku | Rising Sun (eng)Язык субтитров: Русский (отключаемый), Английский (отключаемый)Формат: mkvПродолжительность: 26 эп., 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A43D082CE800F52F5DF8B2780C0C47732950B5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032495   (443454) от 12.10.2016
-
-Berserk / Берсерк [TV-2] [2016, TV, 12] WEB-DL 720p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443454.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет повествует о могучем воине по имени Гатс, он странствует по миру, похожему на средневековую Европу, но с демонами. Означенных демонов Гатс люто ненавидит и истребляет в надежде отомстить одному конкретному и крайне могущественному, в схватке с приспешниками которого он некогда потерял глаз, левую руку и ещё кое-что крайне ценное. Для этих целей Гатс использует (   Читать дальше...   )Производство: Япония, Liden Films / ライデンフィルムЖанр: приключения, фэнтезиРежиссер: Итагаки СинПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA59E542EEDD2045AA4643E975A891E9B348D9E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 828335   (439083) от 06.10.2014
-
-Outbreak Company / Мятежная компания [2013, TV, 12 ep] BDRip Hi10p 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439083.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мечты сбываются! Когда Япония первой обнаружила проход в параллельный мир людей, гномов и эльфов, оказалось, что самым востребованным товаром в межмировом обмене является… современная массовая культура! Да, вы не ослышались – партнеры проявили интерес не к ядерной энергии или политическому строю, а именно к манге, аниме и прочим сокровищам Страны Восходящего солнца. Кто же понесет братьям по разуму благую весть о Творце Тэдзуке-сама и Миядзаки, пророке его? Конечно же, истинный отаку, бывший хикикомори, в любом (   Читать дальше...   )Жанр: комедия, фэнтези, пародияРежиссер: Ойкава КэйПеревод: antibillotic & kuro & ximikФормат: MKV |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FA290A8856E0113DADE037D3C886A76A75F7821
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236362   (439024) от 21.09.2018
-
-Isekai Maou to Shoukan Shoujo no Dorei Majutsu / How Not to Summon a Demon Lord / Повелитель тьмы: Другая история мира [2018, TV, 12 ep] HDTV 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439024.jpg" />
-</div>
-
-
-###  Подробнее
-
-В MMORPG-игре «Перепутье» ни один игрок не мог потягаться по силе и стратегии с Диабло — игроком, которого остальные часто называли «Королём демонов». В реальности же Диабло — Такума Сакамото, затворник, который посвятил игре уже несколько лет и знает о ней практически всё.
-Однажды Такума при странном стечении обстоятельств приходит в себя на странном алтаре в окружении (   Читать дальше...   )Жанр: комедия, фэнтезиРежиссер: Мурано ЮтаЯзык озвучки: Японский и РусскийСубтитры: ASS, Встроенные, Полные | НадписиФормат: MKVПродолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CC8D21FF56C8D181B027D7708E3532AD318C7E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944399   (437124) от 08.10.2015
-
-Naruto The Movie 10: The Last Naruto the Movie / Наруто последний фильм [2015, Movie] WEB-DL 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аниме расскажет о Наруто, сильном и отважном воине Ниндзя. Много времени мы наблюдали за этим героем, как он поставил перед собой цель стать воином, и упорно шел к ней. Не останавливаясь ни перед чем, несмотря на падения, он все-таки добился своего. Сейчас Наруто практически достиг совершенства в своем деле, и может по праву называться ниндзя. Мы знаем его как отважного, (   Читать дальше...   )Производство: Япония, Aniplex, Dentsu, ShueishaЖанр: приключения, боевые искусства, сёнэнРежиссер: Цунэо КобаясиОзвучка: Профессиональная (полное дублирование от Reanimedia)Язык субтитров: ОтсутствуютПродолжительность: 1:51:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B894206474929154A293B22E7DED4B42B3BD0325
 ```
 
 https://mybot314.ru/tekegram_catalog/

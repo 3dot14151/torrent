@@ -1,3 +1,159 @@
+###  Публикация: 1345554   (166369) от 15.12.2019
+
+NG. Суперсооружения Третьего рейха - 7 / Nazi Megastructures - 7 (2019) HDTVRip [H.264/720p-LQ] (7 сезон: 2-4 серия из 6) (Обновляемая)
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166369.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом сериале вы познакомитесь с примерами мышления и тактики, а также с технологиями, применявшимися во время Второй мировой войны нацистами и японцами, от создания ВВС Германии, до строительства бирманской железной дороги смерти. Вы увидите образцы военного снаряжения того времени, оборонительные сооружения и другие забытые свидетельства войны, которые обнаружены (   Читать дальше...   )Производство: США, Darlow Smithson Productions, National GeographicЖанр: Документальный, война, историяРежиссер: Джеймс МиллярПеревод: Документальный дубляж студии «Велес» (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 3 х ~ 00:43:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01DDEE0BFD5F1630D3CC625EA132CEE7A189DA97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345511   (166301) от 15.12.2019
+
+Танцы (14.12.2019) WEB-DL [H.264/1080p-LQ] (сезон 6, выпуск 20)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166301.jpg" />
+</div>
+
+
+###  Подробнее
+
+На ТНТ стартует новый сезон шоу «ТАНЦЫ» – проекта, который давно вышел за рамки развлекательного шоу и стал для танцовщиков и миллионов зрителей со всей России и ближнего зарубежья чем-то большим. «ТАНЦЫ» – это бренд, «ТАНЦЫ» – это проект национального масштаба, на котором выросло целое поколение, «ТАНЦЫ» – это сотни изобретательных постановок от лучших хореографов (   Читать дальше...   )Телекомпания: ТНТЖанр: Реалити-шоу, танцы, развлекательный, хореографияСубтитры: ОтсутствуютПродолжительность: 01:32:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF5810C8CA85866E8E96DBB334313566288B1785
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673265   (166288) от 31.10.2023
+
+Огюст Эскофье: у истоков современной гастрономии / Auguste Escoffier ou la naissance de la gastronomie moderne (2010) HDTVRip [H.264] [FR / RU Sub]
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он возвел гастрономию в ранг изобразительного искусства. Шеф-мечтатель Огюст Эскофье (1846-1935) произвел революцию в кулинарном искусстве на рубеже 20-го века. Портрет "короля поваров и повара королей".Производство: Франция, ImagissimeЖанр: документальный, биография, кулинарияРежиссер: Оливье ЖюльенУчастники: Сара Бернар, Николай А. Брукер, Ив КамдебордПеревод: субтитрыЯзык озвучки: французскийСубтитры: русские (Hiventy), английские, французские, немецкие, испанскиеПродолжительность: 01:30:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54533C6C93FA469A8A0E696D32481FD0BBFC32DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345534   (166264) от 15.12.2019
+
+Битва экстрасенсов (2019.12.14) WEBRip [H.264/720p-LQ] (сезон 20, выпуск 12)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Паранормальное шоу канала ТНТ об экстрасенсах, магах, ясновидящих, гадалках и колдунах. «Битва экстрасенсов 20 сезон» – продолжение рейтингового российского шоу «Битва экстрасенсов», которое выходит с 2007 года на канале ТНТ. Создатели проекта в 20-м сезоне вновь подготовили для телезрителей встречи с удивительными людьми, обладающими уникальными способностями.Телекомпания: ТНТЖанр: ТВ-шоуСубтитры: ОтсутствуютПродолжительность: 01:06:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D45B314D9BA79A78A1D18777581555868B440C3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345538   (166259) от 15.12.2019
+
+Промывка мозгов: Парадокс гендерного равенства / Hjernevask (2010) WEB-DLRip [H.264/720p-LQ] [MVO]
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Среди всех стран мира Норвегия считается местом, где наивысший уровень гендерного равенства. Это достигалось на основании убеждения, согласно которому разница между мужчинами и женщинами заключена только разницей в гениталиях и не касается нервной системы. И это решение привело к возникновению известного парадокса.Производство: Норвегия, Norsk Rikskringkasting (NRK1)Жанр: Документальный, познавательный, научно-популярныйРежиссер: Терже ЛервикПеревод: Двуголосый закадровый, любительскийСубтитры: Английские (неотключаемые)Продолжительность: 00:32:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF6E1BBAC948AFE0CB55CB12CA095E12EBD5CD3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516459   (166222) от 11.12.2021
+
+Сто к одному (11.12.2021) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72FEA7C90DB972151E7A2FEE20EFD095054EC455
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516493   (166205) от 11.12.2021
 
 Пятеро на одного (11.12.2021) WEBRip [H.264/1080p-LQ]
@@ -6,7 +162,7 @@
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166205.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166197.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166177.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166132.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166126.jpg" />
 </div>
 
 
@@ -137,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166111.jpg" />
 </div>
 
 
@@ -163,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166053.jpg" />
 </div>
 
 
@@ -189,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166039.jpg" />
 </div>
 
 
@@ -215,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166030.jpg" />
 </div>
 
 
@@ -241,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166008.jpg" />
 </div>
 
 
@@ -267,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165970.jpg" />
 </div>
 
 
@@ -294,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165904.jpg" />
 </div>
 
 
@@ -320,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165882.jpg" />
 </div>
 
 
@@ -346,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165781.jpg" />
 </div>
 
 
@@ -372,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165730.jpg" />
 </div>
 
 
@@ -398,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165695.jpg" />
 </div>
 
 
@@ -424,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165684.jpg" />
 </div>
 
 
@@ -450,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165509.jpg" />
 </div>
 
 
@@ -477,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165424.jpg" />
 </div>
 
 
@@ -503,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165378.jpg" />
 </div>
 
 
@@ -514,162 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C1FD09556B05F91176D6CA1A16250457E688F43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516662   (165351) от 12.12.2021
-
-Первая передача на НТВ. Автомобильная передача (12.12.2021) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165351.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Тотал»: методика расчета или страховая афера? И кто продает машины несговорчивых клиентов? Свидетель ДТП – видеокамера: как уличить виновника-хитреца? Детский автобизнес: что за терки у пацанов с людьми из белого Mercedes-Benz? Что делать, если одолжили деньги под залог авто, а его владелец умер и машину сняли с учета?Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:23:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29AAD596E93815949363599CB203D2972E391A25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516663   (165317) от 12.12.2021
-
-Чудо техники с Сергеем Малозёмовым (12.12.2021) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все об экзоскелетах: команда программы проверила на себе, становится ли с ними действительно легче делать то, что раньше требовало титанических усилий.Виртуальная реальность лечит?! Как современные технологии помогают пациентам реабилитироваться после серьезных травм? Чудо-товары: 20-килограмовое одеяло для крепкого сна и прибор для коррекции жировых отложений на (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9C16260DDA296AA9E73B67D443CE44A7AD4689E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516811   (165307) от 12.12.2021
-
-Елисейский дворец: тайное и явное (Секреты Елисейского дворца) / The Elysee Palace, Architecture of Power (2018) SATRip [H.264]
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165307.jpg" />
-</div>
-
-
-###  Подробнее
-
-Елисейский дворец олицетворяет собой мощь и славу Французской республики. С виду старинное здание мало похоже на правительственную резиденцию XXI века. Именно потому, что дворец не предназначался для подобной функции, его перестройка вызывает такое глубокое восхищение. Ценой колоссальных преобразований, которые велись на протяжении трех веков, здание стало соответствовать (   Читать дальше...   )Производство: Франция, La FamigliaЖанр: документальный, архитектура, историяРежиссер: Фабрис БюишарПеревод: одноголосый профессиональный (Видеофильм ТВ)Субтитры: отсутствуютПродолжительность: 00:53:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DED8DEED7638C8434CE0AE74E9C1FCC115F03608
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516774   (165253) от 12.12.2021
-
-Следствие вели... (12.12.2021) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165253.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Побег из Урюпинска». 1984 год. В Саратовской области в лесу найдено тело мужчины. За что был убит колхозный электрик? Почему рыбные консервы стали уликой? И как преступников остановили бдительные граждане?Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99CA4598F126F5E42E2AD01D61130E6E580FAB10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516782   (165235) от 12.12.2021
-
-Я - Джон Фицджеральд Кеннеди-младший / I Am JFK Jr. (2016) HDTVRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165235.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1999 году трагически погиб Джон Кеннеди-младший, "золотой мальчик", любимец всей Америки. Сын президента Джона Фицджеральда Кеннеди и неотразимой Жаклин Кеннеди был звездой с рождения. Непоседливый малыш вызывал умиление и восторг. Для США, где никогда не было наследственной монархии, он был маленьким принцем. Но каково было самому Джону расти в тени (   Читать дальше...   )Производство: Канада, А network entertainment productionЖанр: документальный, история, биографияРежиссер: Дерик Мюррей, Стив БерджессПеревод: двуголосый профессиональныйСубтитры: отсутствуютПродолжительность: 01:28:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AEE14675FF1AD562564E12A747892A973944AAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516776   (165200) от 12.12.2021
-
-Доктор Джек и Мистер Николсон / Dr Jack et Mr Nicholson (2019) SATRip [H.264]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Никто не может устоять перед его убийственной улыбкой. С его сразу узнаваемой фигурой Джек Николсон очень далек от калифорнийского плейбоя, одновременно бесспорно сексуальный, но в то же время необычайно пугающий... Как этот простой молодой человек в одночасье стал иконой контркультуры?Производство: Франция, Канада, Швейцария, Бразилия, Испания, Италия, Польша, ОАЭ, Morgane Production, ARTE, DevTVCine 5Жанр: документальный, биографияРежиссер: Эммануэль НобекурПеревод: двухголосый профессиональный (Видеофильм ТВ)Субтитры: отсутствуютПродолжительность: 00:53:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D47E41ED354F7275450E56163A190B3196F8614D
 ```
 
 https://mybot314.ru/tekegram_catalog/

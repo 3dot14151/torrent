@@ -1,3 +1,138 @@
+###  Публикация: 477098   (85982) от 02.04.2012
+
+Глаз бури / Eye of the Storm (2011) HDRip [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85982.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еще одна отличная, короткометражная анимация в духе стимпанк, снятая известной студией "Oddball Animation". Удивительный клип режиссера Кристофера Алендера на меланхоличную песню музканта Lovett под названием «Eye of the Storm».
+По словам Lovett вдохновением для этого анимированного клипа на тему фэнтэзи стали отношения между людьми и то, как сложно порой (   Читать дальше...   )Производство: Австралия, СШАЖанр: короткометражка, драма, мелодрамаРежиссер: Кристофер АлендерПеревод: Без перевода / Не требуется (музыкальное сопровождение, речь отсутствует)Продолжительность: 00:05:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6C4288CAC118664B81CAD3400826F1789779ECF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474699   (85730) от 01.04.2012
+
+Новая школа императора / The Emperor's New School (2006) TVRip (1 сезон, серии 20 из 20)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85730.jpg" />
+</div>
+
+
+###  Подробнее
+
+Император Кузко знакомый всем по фильму «Новое обличие императора» продолжает свое шоу, на этот раз действия разварачиваются в школе…. ведь для того чтобы управлять государством нужны твердые знания, и если Кузко их не получит он не станет императорам и как обычно ему хочет помешать завоевать по праву принадлежащий ему трон «наша» старая знакомая колдунья Изма.Жанр: Фэнтези, Комедия, Приключения, Семейный, МультфильмРежиссер: Хови Паркинс / Howy ParkinsПерсонажи: Жан-Поль Ману, Патрик Варбертон, Кертис Армстронг, Боб Берген, Фред Татаскьор, Эрта Китт, Джастин Кауден, Гэбриел Иглесиас, Джессика Ди Чикко, Рип ТейлорПеревод: Дублированный (1 канал)Продолжительность: 20 серий по ~00:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59FE65FCA6235C9C34F9DD063249E8946EAABA91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474681   (85125) от 29.03.2012
+
+9,99 долларов / $9.99 (2008)  [H.264/720p-LQ] BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85125.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вы когда-нибудь задавались вопросом, в чем смысл жизни? Теперь вы можете получить ответы на все волнующие вас вопросы,
+ заказав красочный буклет всего лишь за $9,99». Это объявление меняет жизнь безработного Дэйва Пека,
+ проживающего с отцом и братом в многоквартирном доме. Стремясь поделиться своим открытием с миром,
+ Дэйв знакомится с другими обитателями дома, людьми (   Читать дальше...   )Жанр: Для взрослыхРежиссер: Татья РозентальПеревод: Многоголосый закадровыйСубтитры: Вшитые - русский (перевод Сhedap), русский (перевод T.S.Eliot с Феникс-клуба), английскийПродолжительность: 01:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:103F86481AC2F2BFBAFAB85940B77EC5EA7E74AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475287   (85079) от 29.03.2012
+
+Хезарфен / Турецкий Икар / Hezarfen (2010)  HDTVRip [H.264/720p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85079.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хезарфен - историческая турецкая личность. События происходят в 1632 году в Стамбуле, где он и совершит попытку первого полета человека.Жанр: Комедия, Приключения, КороткометражныйРежиссер: Толга Ари, Ромен Бланше, Чанг Ю Хуанг, Реми Харлин (Tolga Ari, Romain Blanchet, Chang Yu Huang, Rémy Hurlin)Перевод: Без слов / НемойПродолжительность: 00:03:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1033917ED64288A3B2C3A8151747F879242429E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473293   (84585) от 26.03.2012
+
+Вальс с Баширом / Vals Im Bashir / Waltz with Bashir (2008) BDRip [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый полнометражный документальный мультфильм – глубоко личная работа израильского режиссера Ари Фольмана. Друг автора страдает от ночных кошмаров, связанных с 1980-ми годами, когда оба они были юными солдатами израильской армии.
+Сам Фольман понимает, что из его памяти выпали большие куски воспоминаний о том времени. Он начинает разыскивать друзей и сослуживцев, (   Читать дальше...   )Производство: США, Германия, Финляндия, Франция, Швейцария, Австралия, Бельгия, ИзраильЖанр: Военный, драма, исторический, анимационныйРежиссер: Ари ФольманПерсонажи: Рон Бен-Ишай, Ронни Даяг, Ари Фольман, Shmuel Frenkel, Дрор Харази, Ехезкель Лазаров, Мики Леон, Ори Сиван, Захава СоломонПеревод: Профессиональный MVO (лицензия, Кино без Границ)Язык субтитров: Русские (3 вида), английскиеПродолжительность: 01:30:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40841F7BEA870325B074753529963F25AFEFB9BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 473761   (84567) от 26.03.2012
 
 Скуби-Ду! Музыка вампира / Scooby Doo! Music of the Vampire (2012) DVD5
@@ -6,7 +141,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84567.jpg" />
 </div>
 
 
@@ -32,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84380.jpg" />
 </div>
 
 
@@ -58,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84131.jpg" />
 </div>
 
 
@@ -84,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83478.jpg" />
 </div>
 
 
@@ -110,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83369.jpg" />
 </div>
 
 
@@ -136,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83129.jpg" />
 </div>
 
 
@@ -163,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82933.jpg" />
 </div>
 
 
@@ -189,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82898.jpg" />
 </div>
 
 
@@ -215,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82379.jpg" />
 </div>
 
 
@@ -241,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82352.jpg" />
 </div>
 
 
@@ -267,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82261.jpg" />
 </div>
 
 
@@ -295,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82138.jpg" />
 </div>
 
 
@@ -321,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81808.jpg" />
 </div>
 
 
@@ -347,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81328.jpg" />
 </div>
 
 
@@ -374,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81306.jpg" />
 </div>
 
 
@@ -400,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81304.jpg" />
 </div>
 
 
@@ -428,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81227.jpg" />
 </div>
 
 
@@ -454,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80881.jpg" />
 </div>
 
 
@@ -480,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79865.jpg" />
 </div>
 
 
@@ -506,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79595.jpg" />
 </div>
 
 
@@ -532,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79583.jpg" />
 </div>
 
 
@@ -543,137 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5AB74489AA3D1DEAC7A06D77613F7A50F4F9F7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 460022   (79278) от 29.02.2012
-
-Приключения Тинтина: Тайна Единорога / The Adventures of Tintin (2011) [1080p] BDRip [Горизонтальная анаморфная стереопара 3D]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79278.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой - молодой газетный репортёр Тинтин. Благодаря своей профессии он путешествует по всему миру и становится участником увлекательных приключений...Жанр: Мультфильм, Боевик, Детектив, Приключения, СемейныйРежиссер: Стивен СпилбергПерсонажи: Джейми Белл, Энди Серкис, Дэниэл Крэйг, Саймон Пегг, Ник Фрост, Дэниэл Мейс, Гад Эльмалех, Тоби Джонс, Джо Старр, Енн РейтелПеревод: ДублированныйЯзык субтитров: Английский, Финский, Французский, Норвежский, Португальский (Бразилия), Русский, Шведский, ВьетнамскийПродолжительность: 01:46:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAEDE9D6A9F55D790FB1A130834BA026B8AFB76B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458889   (79071) от 28.02.2012
-
-Крошечка-Хаврошечка (2007) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79071.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это рассказ о сироте, попавшей к чужим людям. Кроме насмешек и тумаков девочка ничего не видит. Но благодаря корове, доставшейся ей в наследство, она попадает на «Тот Свет», где встречается с умершими родителями, а на «Этом Свете» выходит замуж за царевича.Жанр: Рисованная анимация, ДетскийРежиссер: Инга КоржневаПерсонажи: Хаврошечка, БурёнкаПродолжительность: 00:13:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBB299BFFA246C24DD0EFAFB2429DE0FBF1BAB4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458909   (78944) от 28.02.2012
-
-Златовласка (1978) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78944.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Кукольный, ДетскийРежиссер: Леонид Аристов, Лидия СуриковаПерсонажи: Король, Иржик, Златовласка и др.Продолжительность: 00:19:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39E70155B8A141C36443A7C13BDEDCA649FFEAB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458994   (78815) от 27.02.2012
-
-Приключения Тинтина: Тайна Единорога / The Adventures of Tintin (2011) [1080p] BDRemux
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой — молодой газетный репортёр Тинтин. Благодаря своей профессии он путешествует по всему миру и становится участником увлекательных приключений.
-Нам предстоит увидеть, как молодой журналист Тинтин, его пёс по кличке Снежок и непросыхающий капитан Хэддок сражаются с бандитами в гонке за пиратским сокровищем - в дивных ретро-декорациях ХХ века.Жанр: Mультфильм, Боевик, Детектив, Приключения, СемейныйРежиссер: Стивен СпилбергАктеры: Джейми Белл, Энди Серкис, Дэниэл Крэйг, Саймон Пегг, Кэри Элвис, Тоби Джонс, Ник Фрост, Себастьян Роше, Маккензи Крук, Тони КарранПеревод: ДублированныйЯзык субтитров: Русский, АнглийскийПродолжительность: 01:46:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2FE5C0854C3B7B9D5B54BD307F26AC9D18B281A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458635   (78637) от 26.02.2012
-
-Труп Невесты / Corpse Bride (2005) [H.264/720p-LQ] BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78637.jpg" />
-</div>
-
-
-###  Подробнее
-
-ействие развивается в европейской деревушке XIX века. Главного героя — молодого человека Виктора — силы тьмы утаскивают в преисподнюю и женят там на таинственном Трупе Невесты, в то время как его настоящая невеста Виктория ожидает своего жениха в мире живых. Несмотря на то, что проживание в Царстве мертвых оказывается много интересней, чем его привычный викторианский (   Читать дальше...   )Жанр: Мультфильм, фэнтези, музыкаРежиссер: Тим Бёртон, Майк ДжонсонПеревод: ДублированныйЯзык субтитров: Русские, английскиеПродолжительность: 01:20:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:331B5B7EAE99CEFAE98E511F60B2A6F45389D956
 ```
 
 https://mybot314.ru/tekegram_catalog/

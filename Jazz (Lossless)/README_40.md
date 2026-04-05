@@ -6,7 +6,7 @@ The Ned Irving Quintet - Round & Round (1996) Rafsky Records[FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905447.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Weslia Whitfield - Teach Me Tonight (1997) HighNote[FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905418.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Thelonious Monk - Straight, No Chaser (1967) 2002, Sony[FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905326.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Camera Soul - Connections (2017) [FLAC|Lossless|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905316.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Jackie Gleason - The Romantic Moods Of Jackie Gleason (1996) 2 CD, Compilation [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905098.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Dizzy Reece - Soundin' Off (1960) 2003, Toshiba[FLAC|Lossless|tracks + .cue] <Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904555.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Dizzy Gillespie - 1945 (1996) Classics [FLAC|Lossless|tracks + .cue] <Bop, Big B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903918.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Randy Brecker - In The Idiom (1987) Denon [FLAC|Lossless|tracks + .cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903903.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Bill Evans - Escape (1996) [FLAC|Lossless|image + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903813.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Lawrence Brown - Slide Trombone (1955) 1999, Verve[FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903712.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Harry Verbeke & Rob Agerbeek Quartet - Seven Steps (1982) Remaster, 2016, Solid 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903707.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Renee Rosnes - Written In The Rocks (2016) Smoke Sessions Records[FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903699.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Tomer Bar - Memories (2007) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903694.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Thelonious Monk Quartet with Johnny Griffin - Thelonious In Action (1958) 1995, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903676.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ The Necks - Unfold (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz, Free Impro
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903672.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Blaxploitation: Soul Jazz & Funk From The Inner City (1996) 2CD, Global Tel
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903619.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ David Hines - Inner Duality (2009) Aluben Publishing BMI[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902815.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Joe Pass - Simplicity (1967) Remaster, 2011, EMI Music[FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902788.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ The Modern Jazz Quartet - Third Stream Music (1960) Remaster, 2013, Warner[FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902782.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Oscar Peterson & Dizzy Gillespie - 1974 (1987) Pablo [FLAC|Lossless|image + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902118.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Jeff Golub - Soul Sessions (2003) [FLAC|Lossless|image + .cue] <Jazz, Funk, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902020.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Morten Schanz - Godspeed (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Fusion, Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901903.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Rumer - The Magic of Sarah Joyce (2017) [FLAC|Lossless|tracks + .cue] <Vocal Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901546.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Eight O'Five Jive - Swing Set (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jump 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901490.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Scott Bradlee's Postmodern Jukebox - Squad Goals (2016) [FLAC|Lossless|WEB-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901130.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901127.jpg" />
 </div>
 
 

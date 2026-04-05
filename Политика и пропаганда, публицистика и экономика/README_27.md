@@ -1,3 +1,29 @@
+###  Публикация: 964876   (280787) от 12.12.2015
+
+Постскриптум с Алексеем Пушковым (12.12.2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еженедельная аналитическая программа, посвящённая важнейшим событиям, происходящим в России и за её пределами. Гостями автора и ведущего программы Алексея Пушкова становятся видные российские и зарубежные политики, общественные деятели, представители науки и культуры. Программу отличают взвешенность оценок и выводов, компетентность экспертов, точность фактов и анализа. (   Читать дальше...   )В этом выпуске: Франция - победа Национального фронта как разворот к России. Не только помидоры - чем Россия ответит Турции? Порошенко и Яценюк: почему они идут проторенным путём к краху? Курорт для террористов - как Турция даёт приют исламским боевикам? А также... Бесплодный союз. Послесловие к визиту Байдена в Киев - мысли вслух с Николаем Азаровым. И... Будут ли США вести реальную, (   Читать дальше...   )Телекомпания: ТВ-ЦентрЖанр: ТелепередачаПродолжительность: 00:56:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E73E3203BAC912410CFF64A7B9B2A04DC94419AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1082058   (280747) от 11.12.2016
 
 Вести недели (11.12.2016) SATRip
@@ -6,7 +32,7 @@
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280747.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280625.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280616.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278720.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278707.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277486.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277299.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277146.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276044.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274771.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274427.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274421.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271445.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271353.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269474.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268727.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267954.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267867.jpg" />
 </div>
 
 
@@ -488,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267099.jpg" />
 </div>
 
 
@@ -514,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266031.jpg" />
 </div>
 
 
@@ -542,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265088.jpg" />
 </div>
 
 
@@ -569,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264081.jpg" />
 </div>
 
 
@@ -595,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263848.jpg" />
 </div>
 
 
@@ -621,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263771.jpg" />
 </div>
 
 
@@ -647,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261948.jpg" />
 </div>
 
 
@@ -659,32 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5762CAB4F0C5249BFB6DC69912DE3EB8720FDBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193794   (261908) от 22.12.2017
-
-Дебаты с Ксенией Собчак по делу Улюкаева (21.12.2017) WEBRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261908.jpg" />
-</div>
-
-
-###  Подробнее
-
-Можно ли избежать коррупции во власти или она давно стала частью системы? Справедлив ли срок, назначенный бывшему министру экономичного развития? И управляли американские спецслужбы Улюкаевым или нет? Депутат Госдумы Евгений Федоров и общественный деятель Дмитрий Некрасов обсудили в рамках дебатов, как уменьшить коррупцию во власти, ожидаем ли был приговор Алексею (   Читать дальше...   )Производство: РоссияЖанр: ПолитикаПродолжительность: 00:36:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2208FF191264650EC5E2C9072917D3541BCB48C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

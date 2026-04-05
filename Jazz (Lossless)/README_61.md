@@ -6,7 +6,7 @@ Acoustic Alchemy - Discography (1987 - 2007) 17CD [WavPack|Lossless]<Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822435.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Brenda Layne - Torch (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822406.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - 100% Jazz Hits volume 1 (2001) [FLAC|tracks]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821758.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ The Buddy DeFranco (De Franco) Quintet - Cooking The Blues (1955) Remaster, 2013
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821694.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Art Blakey & The Jazz Messengers - 'S Make It (1964) Remaster, 2002, Universal[F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821621.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Sadao Watanabe - Naturally (2016) Red River [FLAC|Lossless|tracks + .cue] <Post-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821341.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ McCoy Tyner Quartet - Live At Yoshi's (2007) Half Note Records [FLAC|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821284.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Antipop Consortium - Antipop Vs. Matthew Shipp (2003) [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821283.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Earl Bostic - The EP Collection (1951-1958) 1999, See For Miles Records[FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821281.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Russ Freeman - Trio & Quartet (1952 -1959) 2010, Fresh Sound Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821193.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Chico Freeman - Tradition in Transition (1982) 2008, Wounded Bird Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821181.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Classical Jazz Quartet - Complete Recordings (2001, 2002) 2CD, 2015, Recording A
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821179.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Thelonious Monk - Monk Alone (1962-1968) 2CD, 1998, Columbia [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821177.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Mark Murphy - Memories of You: Remembering Joe Williams (2003) HighNote [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821033.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Yusef Lateef - The Doctor Is In ...and Out (1976) 2002, Collectables [WavPack|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820748.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Darryl Williams - Here To Stay (2017) [FLAC|Lossless|tracks + .cue] <Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820744.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Earl ''Fatha'' Hines - Here Comes (1966) Remaster, 2014, Sony Music[FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819905.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Dorothy Donegan - Live At The Widder Bar (1986) Remaster, 2015, Solid Records[FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819897.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Chet Baker - Live In Rosenheim: Chet Baker's Last Recording As Quartet (1988) Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819894.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Miller, Petrucciani, Lagrene, White, Garrett - Dreyfus Night In Paris (recorded 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819824.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Weather Report - Night Passage (1980) Reissue 1990 [APE|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819755.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Dinah Shore - Happy In Love (1940 - 1942) 1995, Hallmark Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819596.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Mark Murphy - Song For The Geese (1997) RCA Victor [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819414.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Marcus Roberts Trio - In Honor Of Duke (1999) Columbia [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819351.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Diana Krall - When I Look In Your Eyes (1999) [FLAC|Lossless|image + .cue]<Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819279.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ V.A. - Tales Of Wonder: A Jazz Celebration Of Stevie (2020) [FLAC|Lossless|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819278.jpg" />
 </div>
 
 

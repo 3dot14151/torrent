@@ -6,7 +6,7 @@ Moaning - Moaning (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779018.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Cranes - Population Four (1997) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779014.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Superorganism - Superorganism (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778207.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Vance Joy - Nation of Two (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock, Pop 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776460.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Radiohead - A Moon Shaped Pool (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776019.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ De Staat - Bubble Gum (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, El
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774320.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Turbonegro - RockNRoll Machine (2018) [FLAC|Lossless|tracks + .cue] <Deathrock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774318.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Paleons - Hyperborean (2017) [FLAC|Lossless|tracks + .cue] <indierock, noise, kr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773453.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Bazooka - Bazooka (2012) [FLAC|Lossless|tracks + .cue] <Garage Rock, Psychedelic
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773305.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Lorelle Meets The Obsolete - De Facto (2019) [FLAC|Lossless|tracks + .cue] <Drea
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773180.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Weezer - Weezer (Teal Album) (2019) [FLAC|Lossless|tracks] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773167.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Bring Me The Horizon - amo (2019) RCA Records [FLAC|Lossless|WEB-DL|tracks] <Alt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772838.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Maroon 5 - Songs About Jane (2002) [FLAC|Lossless|tracks + .cue] <Alternative Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772662.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Sufferer - Sufferer (2017) Limited Edition [FLAC|Lossless|tracks + .cue] <Post-H
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771995.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Better Oblivion Community Center - Better Oblivion Community Center (2019) [FLAC
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771990.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Alice Merton - MINT (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771827.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ The Smiths - The Sound Of The Smiths (2008) [FLAC|Lossless|tracks] <New wave, Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771256.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Namesake - Borders & Fences (2016) Deluxe Edition [FLAC|Lossless|tracks] <Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770274.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Hum - Inlet (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769875.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Bob Mould - Sunshine Rock (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768604.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Sunflower Bean - King of the Dudes (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Indi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768535.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ ROME - Le Ceneri di Heliodoro (2019) [FLAC|Lossless|tracks + .cue] <Neofolk, Dar
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768530.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ The Cure - 4:13 Dream (2008) Geffen Records [FLAC|Lossless|tracks + .cue] <Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768528.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Steve Gunn - The Unseen in Between (2019) [FLAC|Lossless|tracks + .cue] <Indie R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768474.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Cold War Kids - La Divine (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768053.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ TOY - Happy in the Hollow (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767854.jpg" />
 </div>
 
 

@@ -1,4 +1,56 @@
 https://t.me/izofen
+###  Публикация: 1863276   (1063855) от 
+
+Warhammer 40,000: Space Marine (2025) [Ru/Multi] (1.0.1041.4326) Repack dixen18 [Master Crafted Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063855.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре Warhammer 40,000: Space Marine вам отводится роль капитана Титуса, космодесантника ордена Ультрамаринов, закаленного в огне бесчисленных сражений. Неисчислимая орда орков вторглась в имперский мир-кузницу - одну из фабрик размером с планету, где создаются машины для непрекращающейся борьбы человечества за выживание.Тип издания: RepackРазработчик: SneakyBox, Relic EntertainmentЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Русский, Английский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F30DDE009AB3323DC508A450FB0C576D3D4CF07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863036   (1063724) от 
+
+Warhammer 40,000: Space Marine (2025) [Ru/Multi] (1.0.1041.4326/dlc) Repack HardwareMining [Master Crafted Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063724.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре Warhammer 40,000: Space Marine вам отводится роль капитана Титуса, космодесантника ордена Ультрамаринов, закаленного в огне бесчисленных сражений. Неисчислимая орда орков вторглась в имперский мир-кузницу - одну из фабрик размером с планету, где создаются машины для непрекращающейся борьбы человечества за выживание.Тип издания: RepackРазработчик: SneakyBox, Relic EntertainmentЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Русский, Английский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA829A1A67A8D29A71B3F2770D67988C6D73FB76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861981   (1063104) от 
 
 Ai Limit (2025) [Ru/Multi] (Build 22521250/dlc) Scene Rune
@@ -7,7 +59,7 @@ Ai Limit (2025) [Ru/Multi] (Build 22521250/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1063104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063104.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ tawarerumono: ZAN 2 (2026) [Multi] (22071867/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062969.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ Across the Obelisk (2021) [Ru/Multi] (1.7.5/dlc) Repack Let'sРlay [Complete Bun
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062933.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ Lost Soul Aside (2025) [Ru/Multi] (1.101/dlc) Repack HardwareMining [Digital Del
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062884.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ Last Epoch (2019) [Ru/Multi] (1.4.0.1/dlc) Repack Let'sРlay [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062765.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ Solasta: Crown of the Magister (2020) [Ru/Multi] (1.5.97/dlc) Repack Let'sРlay 
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062541.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ Wild West Legacy (2023) [Ru/Multi] (1.0.9747/dlc) Repack Other s [Digital Suppor
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062319.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ Wild West Legacy (2023) [Ru/Multi] (1.0.9747/dlc) Repack FitGirl [Digital Suppor
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062318.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ Under The Island (2026) [Multi] 1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062083.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ Dragon Quest I and II HD: 2D Remake (2025) [Multi] (1.0.2.0/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061708.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ Diablo II (2): Resurrected (2021) [Ru/En] (3.0.91735/dlc) Repack Decepticon [Inf
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061644.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ Kingdom Come: Deliverance (2018) [Ru/Multi] (1.9.7/dlc) Repack FitGirl [Royal Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061592.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ Escape from Ever After (2026) [Ru/Multi] (2.7.4) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060790.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ Weird RPG 2 (2026) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060289.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ Kingdom Come: Deliverance Dilogy (2018-2025) [Ru/Multi] (1.9.6-404-504czj3/1.5.4
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060137.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ Avowed (2025) [Ru/Multi] (2.0.0.0/dlc) Repack HardwareMining [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060123.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ Of Ash and Steel (2025) [Ru/Multi] (1.06) Repack HardwareMining
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059984.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ Kingdoms And Slaves (2025) [Multi] (1.1) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059872.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ Machine Tower 2984 (2026) [Ru/Multi] (1.0.0) Repack FitGirl [Supporter Pack]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059849.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ Machine Tower 2984 (2026) [Ru/Multi] (1.0.2) Repack Let'sРlay [Supporter Pack]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059784.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ Elden Ring Nightreign (2025) [Ru/Multi] (1.03.2/dlc) Scene Rune [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059751.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ Ys X (10): Proud Nordics (2025) [Multi] (1.0.3r10/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059539.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ Final Fantasy IV (4) (2014) [Ru/En] (1.0) License GOG [3D Remake]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058891.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ Final Fantasy IX (9) (2016) [Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058890.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ Final Fantasy IX (9) (2016) [Multi] (1.0) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:160F6CB210D286EEFF6D30997CEB76312DB894DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856407   (1058889) от 28.02.2026
-
-Final Fantasy VIII (8) - Remastered (2019) [Multi] (1.0.3) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Война уже на пороге. Республика Гальбадия, попавшая под влияние чародейки Эдеи, собирает огромную армию для нападения на другие страны. Скволл и другие члены элитной организации наемников SeeD объединяются с партизанкой Риноа, чтобы противостоять тирании Гальбадии и помешать Эдее воплотить в жизнь свою истинную цель. Эта игра является ремастером Final Fantasy VIII (   Читать дальше...   )Тип издания: LicenseРазработчик: Square EnixЖанр: Ролевые игрыЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27FEC9EF84BC637F6D43A7242001E9391CBA0089
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856426   (1058861) от 28.02.2026
-
-Final Fantasy III (3) (2014) [Multi] (1.0) License GOG [3D Remake]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Японская ролевая игра Final Fantasy III сочетает в себе компоненты двух предыдущих частей франшизы, привнося дополнительные нюансы. В центре сценария находится группа молодых ребят, которые были поглощены Кристаллом Света. Именно он дает им уникальные нечеловеческие способности и призывает вернуться, чтобы вернуть мировой баланс.Тип издания: LicenseРазработчик: Square EnixЖанр: Ролевые игрыЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:453A9510BA4A7E39A67001FE5FC4EE429EE6B23A
 ```
 
 https://mybot314.ru/tekegram_catalog/

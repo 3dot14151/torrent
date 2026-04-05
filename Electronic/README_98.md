@@ -1,3 +1,61 @@
+###  Публикация: 1107583   (868113) от 22.02.2017
+
+VA - Kamasutra Erotic and Sexy. Compilation Love Making Music Vol.4 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Street Line - Chill Sensation
+02. Indian Dawn - Predictions
+03. Sweet Ocean - Soft Emotion
+04. Deep blue - Velvet Secrets(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:38:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0836ECD7C992392AE0B8E2FABDE3A0C94497F3FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469279   (867398) от 20.03.2016
+
+Martin Grey - Solitudes Episode 001 - 127 (2009-2016)[MP3|320 кб/с]<Chillout, Ambient>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hour 1 - Martin Grey:
+01. Simon Le Grec feat. Denise Guttenbach - There Must Be A Reason (Original Mix)
+02. Tim Deluxe - Surya (Reprise)
+03. Owen Ear - Inside(   Читать дальше...   )Жанр: Chillout, Ambient, Downtempo, Dark Ambient, Easy Listening, Psy Chill, LoungeПродолжительность: 284:54:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C987E35F4811A823925DD4BA3B1CAD99796C139
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999263   (866692) от 21.03.2016
 
 CatchAll - Project Sky (2013) [MP3|320 кб/с] <Psybient, Downtempo, Psy-Trance, Ambient>
@@ -6,7 +64,7 @@ CatchAll - Project Sky (2013) [MP3|320 кб/с] <Psybient, Downtempo, Psy-Trance
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866692.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ CatchAll - The Attraction To Earth (2015) Plexus Music [MP3|320 кб/с] <Psybie
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866690.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Sofa Lovers (Deephouse Selection) (2016) [MP3|320 кб/с] <Electronic, Dee
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866619.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Poems Lounge Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866582.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Lounge Bar by Skyloft: Alternative Ambience Remastered (2017) [MP3|320 Kbps
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866578.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Top 20 Chillout February (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866576.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Sunday Brunch Chill Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866574.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Clear the Air Vol.4: Pure Chill out and Electronica (2017) [MP3|320 Kbps] <
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866572.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Chillout Dimension: Pure Chill Music Selection (2017) [MP3|320 Kbps] <Downt
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866570.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Mallorca Beach and Chill (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866569.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - 12 Bombs To Rock: Tech and Deep-House Edition 15 (2017) [MP3|320 Kbps] <Fun
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866566.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Going Deep in London (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866565.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Manufacture - 2 Albums (1988, 1990) [MP3|320 кб/с] <Electronic, EBM, Techno>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866507.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - A Deep and Soulful House Selection Vol.1 (2017) [MP3|320 Kbps] <Deep House,
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866488.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Smooth & Smart Vol. 1 Some Perfect Summer Relaxing Tunes (2017) [MP3|320 Kb
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866486.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Disco Nights, Vol. 2 (2017) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866478.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - The Sweetest Taboo Vol.2: 20 Lounge Negligees (2017) [MP3|320 Kbps] <Downte
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866477.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - 35 Relaxation Meditation Multibundle (2017) [MP3|320 Kbps] <Downtempo, Chil
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866476.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - The Sweetest Taboo Vol.3: 20 Lounge Negligees (2017) [MP3|320 Kbps] <Downte
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866368.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Best Of Chill Out Vocal Trance (2017) [MP3|320 Kbps] <Downtempo, Chillout, 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866247.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ a-ha - Time And Again: The Ultimate a-ha (2016) 2CD [FLAC|Lossless|WEB-DL|tracks
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866114.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Convextion - 2845 (2016) [MP3|320 Kbps] <Electronic, Techno>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866098.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - From Fitness To Dance (2020) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865609.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - I Love Synthes12''er Dance Vol. 1-3 (2002-2004) Limited Edition, Remastered
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865490.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - I Love Synthes12''er Dance Vol. 1-3 (2002-2004) Limited Edition, Remastered
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACB5C56E0C2114EED694AC02EBAE72FBACDDF7E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375483   (865485) от 14.04.2020
-
-Peter Pearson - A Piece of a Dream (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Piece of a Dream
-02. Chilled to the Heart
-03. Affairs of the Heart
-04. Midnight Oil(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:47:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D01B432F6989B35D6BC8E49CF1650486E45468A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375565   (865398) от 14.04.2020
-
-Lennart Krarup | aka: Ibizarre, Mushroom Man, Lenny Ibizarre - Discography 28 Releases (1997-2019) [MP3|320 Kbps] <Downtempo, Deep House, Ambient, Psy Trance>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865398.jpg" />
-</div>
-
-
-###  Подробнее
-
-1997 - The Ambient Collection
-1997 - Reports From The Morphogenetic Research Lab
-1998 - Ibizarre presents Alchemea (A Journey Through Psychedelic Trip-Hop)
-1998 - Elevation(   Читать дальше...   )Жанр: Downtempo, Deep House, Ambient, Psy Trance, Progressive House, Chillout, Dub, Easy ListeningПродолжительность: 28:22:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9904D78636680BFF895FA0E4D5A6B20F0EEC4C7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

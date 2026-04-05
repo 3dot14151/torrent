@@ -1,3 +1,133 @@
+###  Публикация: 1148090   (604172) от 05.07.2017
+
+Обитель зла: Вендетта / Resident Evil: Vendetta (2017) BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сотрудник организации по борьбе с биотерроризмом B.S.A.A. Крис Редфилд проникает в таинственный особняк, который, согласно информации, является базой контрабандистов оружием. В ходе расследования Крис сталкивается с Гленом Ариасом, преступником объявленным в международный розыск, и становится свидетелем странной картины, в результате которой упускает Ариаса.Производство: Япония, Marza Animation PlanetЖанр: мультфильм, ужасы, фантастика, боевик, детектив, приключенияРежиссер: Таканори ЦудзимотоАктеры: Кевин Дорман, Мэттью Мерсер, Эрин Кехилл, Кари Уолгрен, Ариф С. Кинчен, Арни Пантойя, Джон ДеМита, Кристина Валенсуела, Фред Татаскьор, Александр Полински и др.Перевод: Дублированный - iTunesСубтитры: Русские (внешние)Продолжительность: 01:37:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB7A410B8EACC940968BAD47751D44D8B45CCC8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148257   (604165) от 05.07.2017
+
+Обитель зла: Вендетта / Resident Evil: Vendetta (2017) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сотрудник организации по борьбе с биотерроризмом B.S.A.A. Крис Редфилд проникает в таинственный особняк, который, согласно информации, является базой контрабандистов оружием. В ходе расследования Крис сталкивается с Гленом Ариасом, преступником объявленным в международный розыск, и становится свидетелем странной картины, в результате которой упускает Ариаса.Производство: Япония, Marza Animation PlanetЖанр: мультфильм, ужасы, фантастика, боевик, детектив, приключенияРежиссер: Таканори ЦудзимотоАктеры: Кевин Дорман, Мэттью Мерсер, Эрин Кехилл, Кари Уолгрен, Ариф С. Кинчен, Арни Пантойя, Джон ДеМита, Кристина Валенсуела, Фред Татаскьор, Александр Полински и др.Перевод: дублированный - iTunesСубтитры: русские, английскиеПродолжительность: 01:37:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDA04806870D2E7068191C00F4E7B96909958620
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297455   (604021) от 22.04.2019
+
+ЛЕГО Фильм 2 / The Lego Movie 2: The Second Part (2019) BDRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прошло пять лет с тех пор, как все было прекрасно, и теперь жители пластмассового мира столкнулись с новой невероятной угрозой — вторженцами LEGO DUPLO®, прибывшими из космоса и разрушающими всё на своем пути куда быстрее, чем герои могут построить вновь. В результате жёлтым человечкам приходится жить в мрачной постапокалиптике, но Эммет этого не замечает и продолжает (   Читать дальше...   )Производство: Дания, Норвегия, Австралия, СШАЖанр: Мультфильм, мюзикл, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Майк МитчеллПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, full), украинские (Forced), английскиеПродолжительность: 01:47:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8711CE2B9D1235650514E2D08434D77FC5ED70A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 199531   (604003) от 22.04.2019
+
+Сборник мультфильмов. Киевнаучфильм (1968-1989) DVDRip [диск 5]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604003.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многие мультфильмы снятые ТО "Киевнаучфильм" стали шедеврами советской анимации и запомнились многим зрителям своим уникальным типом рисовки и юмором, и, не смотря на то, что они были выпущены так давно, они всё ещё являются достойными внимания.Жанр: Детский, Рисованая анимацияПродолжительность: 06:11:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7597D2148AD12ECC69930DD876F5ACCFE0384F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148435   (603782) от 06.07.2017
+
+Аврил и поддельный мир / Avril et le monde truque (2015) BDRip [H.264/1080p] [VO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нас окружает мир, наполненный всеми достижениями научно-технического прогресса. Но в мультфильме показан ход альтернативной истории. Действие происходит в 1941 году во Франции, где правит Наполеон VI. Все ученые, которые пытаются создать инновационный прорыв в науке, бесследно исчезают. Поэтому в этом мире до сих пор преобладают машины, работающие на паровых двигателях. (   Читать дальше...   )Производство: Франция, Бельгия, КанадаЖанр: ПриключенияРежиссер: Кристиан Димар, Франк ЭкинджиПеревод: Одноголосый закадровый, любительский (Eugene Greene)Субтитры: Русские, английскиеПродолжительность: 01:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:820E5306D28A84DBDCA5F38986059680ADB18DED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1148349   (603733) от 06.07.2017
 
 Чип и Дейл спешат на помощь / Chip 'n' Dale Rescue Rangers (1989-1990) [H.264] (1-3 сезоны: 65 серий из 65) WEBRip [MP4|768x576]
@@ -6,7 +136,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603733.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603536.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603534.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603525.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603332.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603297.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603283.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602867.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602126.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602104.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602087.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601984.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601970.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601881.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601745.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601738.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601331.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600969.jpg" />
 </div>
 
 
@@ -476,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600897.jpg" />
 </div>
 
 
@@ -504,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600875.jpg" />
 </div>
 
 
@@ -530,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600867.jpg" />
 </div>
 
 
@@ -541,137 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2ECD1851660E3B3A7DB2C4E0C46EC723E6CFC028
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149344   (600823) от 10.07.2017
-
-Чип и Дейл спешат на помощь / Chip and Dale Rescue Rangers (1989-1990) WEB-DLRip [H.264] (1-3 сезоны: 65 серий из 65)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600823.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чип и Дейл — самые большие шалуны, которых когда-либо создавала студия Дисней. Эти милые и очаровательные бурундучки вечно попадают в неприятности.Производство: США, Walt Disney Television AnimationЖанр: Анимация, Приключения, СемейныйРежиссер: Джон Кимболл, Роб ЗамбониАктеры: Кори Бёртон, Питер Каллен, Джим Каммингс, Тресс МакНилл, Роб Полсен, Дэнни ГэнсПеревод: ДублированныйСубтитры: АнглийскиеПродолжительность: 65х ~00:22:40Реклама: Заставка в начале серий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64175DB33D7E5566F88032367C2D833984B8197A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299065   (600708) от 30.04.2019
-
-Охотники на троллей / Trollhunters (2017) WEBRip [H.264/1080p] (сезон 2, серии 13 из 13) Пифагор
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой — пятнадцатилетний парень по имени Джим Лэйк-младший. Однажды утром, по пути в школу, он находит волшебный амулет, благодаря которому узнает о существовании мистических существ, обитающих вблизи его маленького городка Аркадии. Оказывается, под землями скрывается целая цивилизация могущественных троллей, возглавляемых злодеем Буларом. Внезапно Джим становится (   Читать дальше...   )Производство: США, Мексика, Double Dare You (DDY), DreamWorks Animation, DreamWorks Animation TelevisionЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Родриго Блаас, Эндрю Л. Шмидт, Илэйн БоганАктеры: Антон Ельчин - Jim Lake Jr, Чарли Сэкстон - Toby Domzalski, Лекси Медрано - Claire Nuñez, Келси Грэммер - Blinky, Рон Перлман - Bular, Фред Татаскьор - AAARRRGGHH!!!, Джонатан Хайд - Strickler, Виктор Рэйдер-Векслер - Vendel, Эми Ландекер - Barbara Lake, Стивен Ян - Steve Palchuk и др.Перевод: Дублированный, профессиональный - ПифагорПродолжительность: ~ 00:23:40 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF47D82FB4BA915C541830348079ACB7124C56A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299060   (600703) от 30.04.2019
-
-Охотники на троллей / Trollhunters (2018) WEBRip [H.264/1080p] (сезон 3, серии 13 из 13) Пифагор
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой — пятнадцатилетний парень по имени Джим Лэйк-младший. Однажды утром, по пути в школу, он находит волшебный амулет, благодаря которому узнает о существовании мистических существ, обитающих вблизи его маленького городка Аркадии. Оказывается, под землями скрывается целая цивилизация могущественных троллей, возглавляемых злодеем Буларом. Внезапно Джим становится (   Читать дальше...   )Производство: США, Мексика, Double Dare You (DDY), DreamWorks Animation, DreamWorks Animation TelevisionЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Родриго Блаас, Эндрю Л. Шмидт, Илэйн БоганАктеры: Антон Ельчин - Jim Lake Jr, Чарли Сэкстон - Toby Domzalski, Лекси Медрано - Claire Nuñez, Келси Грэммер - Blinky, Рон Перлман - Bular, Фред Татаскьор - AAARRRGGHH!!!, Джонатан Хайд - Strickler, Виктор Рэйдер-Векслер - Vendel, Эми Ландекер - Barbara Lake, Стивен Ян - Steve Palchuk и др.Перевод: Дублированный, профессиональный - ПифагорСубтитры: английскиеПродолжительность: ~ 00:23:40 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA3977F508F5A03C52F0CDC2B0266E457BA42F63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299049   (600698) от 30.04.2019
-
-Звёздная принцесса и силы зла/Стар против Сил Зла/Star vs. the Forces of Evil (2015) WEB-DL [H.264/1080p] (сезон 1, серии 13 из 13) Кириллица
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600698.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о девочке, живущей в ином измерении, по имени Стар Баттерфляй, которая получила в 14 лет волшебную палочку. Но после того, как Стар чуть ли не превратила свой родной город в прах, родители отправили её в другое измерение, которое называется Земля, чтобы жить с семьёй Диаз, которая состоит из добродушных родителей и подростка по имени Марко. Все одноклассники (   Читать дальше...   )Производство: США / Daron Nefcy Productions, Disney XD, Walt Disney Television AnimationЖанр: мультфильм, фантастика, фэнтези, комедия, приключения, семейныйРежиссер: Аарон Хэммерсли, Пьеро Пилузо, Дэвид ВассонАктеры: Иден Шер - Star Butterfly, Адам МакАртур - Marco Diaz, Грэй Гриффин - Queen Butterfly, Алан Тьюдик - Ludo и др.Перевод: Дублированный, профессиональный - КириллицаПродолжительность: ~ 00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B7A46CE16E58CA6F88CCC67BD14E4708414E700
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 356014   (600601) от 27.06.2011
-
-Подарок (2007) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Какой может быть лучший
-подарок на День Рождения ?Жанр: Рисованая анимация, ДетскийРежиссер: Степанова.МПерсонажи: медвежонок,слоненок,кот.и др.Продолжительность: 00:07:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EED29D63663BDCB7D07B358B27350DD6A7C24AE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1202426   (789928) от 29.01.2018
+
+VA - Hed Kandi Ibiza (2016) [FLAC|Lossless|tracks] <Deep House, Disco, Tropical House, House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sigala - Give Me Your Love (feat John Newman And Nile Rodgers - radio edit) (3:29)
+02.Gorgon City - All Four Walls (feat Vaults) (3:12)
+03.Tieks - Sunshine (feat Dan Harkna - extended mix) (4:22)
+04.AlunaGeorge - I'm In Control (feat Popcaan - The Magician remix) (4:35)(   Читать дальше...   )Жанр: Deep House, Disco, Tropical House, House, Tech HouseПродолжительность: 06:36:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77FBF7F933FAE72C2C5590E620D175FD227A984F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202393   (789885) от 29.01.2018
 
 VA - Sextape 50 Chansons Pour le Sexe (2009) [FLAC|Lossless|tracks] <Electronic, Pop>
@@ -6,7 +35,7 @@ VA - Sextape 50 Chansons Pour le Sexe (2009) [FLAC|Lossless|tracks] <Electronic,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789885.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Microtrauma - Sonar (2018) [FLAC|Lossless|WEB-DL|tracks] <Techno, Progressive Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789099.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Svårmod Records (Svarmod Records) - Label 2 Releases (2017) [FLAC|Lossless|WEB-
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789064.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Ross From Friends - Family Portrait (2018) [FLAC|Lossless|WEB-DL|tracks] <House,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789043.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Mama Thresl, Vol.1: Urban Soul meets the Alps (2018) [FLAC|Lossless|WEB-DL|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789039.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - Deep House | Odyssey, Vol. 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788668.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Maayan Nidam - Sea of Thee (2018) [FLAC|Lossless|tracks + .cue] <Tech House, Dee
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788226.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Adverb - Collection 6 Releases (2013-2019) Etoka Records [FLAC|Lossless|WEB-DL|t
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787249.jpg" />
 </div>
 
 
@@ -237,7 +266,7 @@ Dirty Disco Stars - Body Rock (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Funky H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787056.jpg" />
 </div>
 
 
@@ -266,7 +295,7 @@ Danger - Origins (2019) 1789 Records [FLAC|Lossless|WEB-DL|tracks] <Electro, Syn
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786990.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ Meute - Puls (2020) [FLAC|Lossless|tracks + .cue] <Deep House, Nu-Jazz, Broken B
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786736.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ Martin Buttrich - Collaborator Vol.1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786389.jpg" />
 </div>
 
 
@@ -353,7 +382,7 @@ VA - Live in Brooklyn Output NYC (Mixed by John Digweed) (2017) [FLAC|Lossless|W
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785582.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ Occer - Imperfect (2017) Zenon Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Ps
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785467.jpg" />
 </div>
 
 
@@ -411,7 +440,7 @@ MRUKS - Deja VU Vol. 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785457.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ VA - Deep House | Odyssey, Vol. 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785386.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ Norken - Galaxy Driven (2020) [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Tech 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785166.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ VA - Various Artists pt.5 (2015) Etoka Records [FLAC|Lossless|WEB-DL|tracks] <Du
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785032.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ Feral - Climbing Himalaya: Part II (2018) Hypnus Records [FLAC|Lossless|WEB-DL|t
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785029.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ Acronym & Kali Malone - The Torrid Eye (2019) Stilla Ton [FLAC|Lossless|WEB-DL|t
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785020.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ VA - In The Mix 006 - Progressive Sessions (Mixed by Gai Barone) (2018) [FLAC|Lo
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_784977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784977.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Maks Henning - Spring Dub 2 (2020) 7th Cloud [FLAC|Lossless|WEB-DL|tracks] <Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784583.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ VA - Rooftop Beats, Vol. 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784404.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ Rødhåd (Rodhad) - Discography 20 Releases (2012-2020) Dystopian [FLAC|Lossless
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784174.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ VA - Training Hits: Workout Music (2020) [FLAC|Lossless|WEB-DL|tracks] <House, D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783905.jpg" />
 </div>
 
 
@@ -715,35 +744,6 @@ VA - Training Hits: Workout Music (2020) [FLAC|Lossless|WEB-DL|tracks] <House, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CFAF32607411C96DB6D3B894871BD02C023F366
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205215   (783803) от 09.02.2018
-
-VA - A Taste Of Kandi Summer (2008) [FLAC|Lossless|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Aaron Ross feat. Gia Mellish - Love Potion (4:03)
-02.Wez Clarke & Maxime Hardcastle feat. The Lovely Laura on Sax - Another Chance (Richard Earnshaw Mix) (5:03)
-03.Notus feat. Shena - Still in Love (Original Club Mix) (5:17)
-04.Steve Haines - Be with You (5:38)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:14:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B8C0EC2C87C98256C45391977B3DD3BA21782E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

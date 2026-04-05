@@ -1,3 +1,32 @@
+###  Публикация: 1404990   (485821) от 29.08.2020
+
+Pinghost - Palingenesis (2020) EP [MP3|320 Kbps] <Progressive Metalcore, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Checkmate (4:36)
+02. Doom (4:26)
+03. Komplett Am Arsch (3:37)
+04. Palingenesis (3:33)(   Читать дальше...   )Жанр: Progressive Metalcore, Post-HardcoreПродолжительность: 00:20:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C60C421502EF5CA068012CBAF65D9537BAE5A8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1405060   (485816) от 29.08.2020
 
 Willie Nile - New York At Night (2020) [FLAC|Lossless|image + .cue] <Rock>
@@ -6,7 +35,7 @@ Willie Nile - New York At Night (2020) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485816.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Radiant Knife - The Body (2020) [MP3|320 Kbps] <Sludge Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485814.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485805.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ The Agonist - Orphans (2019) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485731.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ Ramos - My Many Sides (2020) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485725.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ Volatile Ways - Condemned to Life, Burdened to Death (2020) [MP3|320 Kbps] <Beat
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485723.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ Tony Mitchell - Church Of A Restless Soul (2020) [MP3|320 Kbps] <Melodic Hard Ro
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485604.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ Clt Drp - Without the Eyes (2020) [MP3|320 Kbps] <Garage Punk, Electroclash, Syn
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485465.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ John Petrucci - Terminal Velocity (2020) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485462.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ Crematory - Unbroken (2020) 2xCD [FLAC|Lossless|image + .cue] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485460.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ In Flames - Clayman (2000) 20th Anniversary Edition, Remastered, 2020, Nuclear B
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485459.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Buck Dharma - BD Archive 3CD (2000) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485368.jpg" />
 </div>
 
 
@@ -357,7 +386,7 @@ Helldorados - Helldorados (2012) [FLAC|Lossless]<Heavy Metal>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485249.jpg" />
 </div>
 
 
@@ -392,7 +421,7 @@ Pain Of Salvation - Panther (2020) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485181.jpg" />
 </div>
 
 
@@ -421,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485082.jpg" />
 </div>
 
 
@@ -456,7 +485,7 @@ Dave Matthews Band - Away From The World (2012) / RCA / [FLAC|Lossless]<Alternat
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484872.jpg" />
 </div>
 
 
@@ -491,7 +520,7 @@ Hawksley Workman - Median Age Wasteland (2019) [FLAC|Lossless|tracks + .cue] <In
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484798.jpg" />
 </div>
 
 
@@ -520,7 +549,7 @@ Blisses B - Tell Your Friends You Love Them And Why (2019) [FLAC|Lossless|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484793.jpg" />
 </div>
 
 
@@ -549,7 +578,7 @@ Operators - Radiant Dawn (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Synth
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484790.jpg" />
 </div>
 
 
@@ -578,7 +607,7 @@ Stabbing Westward - 4 альбома (1994-2001) [MP3|320 кб/с]<Industrial Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484753.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ Hapax - Monade (2019) [FLAC|Lossless|tracks + .cue] <Synthwave, Gothic Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484727.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ Tomb Mold - Planetary Clairvoyance (2019) [FLAC|Lossless|tracks + .cue] <Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484726.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ Unruly Child - Big Blue World (2019) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484717.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ Transmetal - Peregrinacion A La Cabeza De Cristo (2014) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484616.jpg" />
 </div>
 
 
@@ -729,7 +758,7 @@ Suspension Solar - Crisis del Arte (2022) [MP3|320 Kbps] <Progressive Rock, Cros
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484615.jpg" />
 </div>
 
 
@@ -743,35 +772,6 @@ Suspension Solar - Crisis del Arte (2022) [MP3|320 Kbps] <Progressive Rock, Cros
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79CEC34075A44E89A723DC936F192433805FA039
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566190   (484554) от 28.07.2022
-
-The Xebellian Triangle - At The Banks Of The Rubicon (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Spawn Of Ungoliant (00:03:27)
-02 - This Cursed Lineage (00:04:07)
-03 - Dracarys (00:07:26)
-04 - Confirmed (00:02:29)(   Читать дальше...   )Жанр: Symphonic, Melodic Death MetalПродолжительность: 00:34:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA913E386C45AD84EE7900CDE1F7F9F7C7B156D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,109 @@
 https://t.me/izofen
+###  Публикация: 1862714   (1063627) от 
+
+На семи ветрах (2025) WEBRip [H.264] (серии 1-2 из 2)
+
+>>Горячие новинки
+>>Отечественные Новинки (SD, DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алиса выходит из тюрьмы, отсидев 7 лет за убийство младшей сестры Марины, которого не совершала, и возвращается в родной городок Семиветер. Её встречает бывший жених Сергей, успешный бизнесмен, который раскаивается, что все эти годы не давал о себе знать, но Алиса не может его простить. Её жизнь разрушена, а мать отказывается с ней общаться и не пускает в дом. Женщине (   Читать дальше...   )Производство: Россия | «ЧБк фильм»Жанр: Детектив, триллер, мелодрама, криминалРежиссер: Юрий ЛейзеровАктеры: Екатерина Олькина, Иван Зайцев, Антон Соколов, Максим Брагинец, Виктор Рыбчинский, Игорь Сидорчик, Евгения Жукович, Сергей Широчин, Татьяна Ружавская, Елена Стеценко и др.Субтитры: ОтсутствуютПродолжительность: ~00:44:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF72E8AF64014077D5D66D09937E01FA69C8734A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862722   (1063617) от 
+
+Уволить Жору (2026) WEBRip
+
+>>Горячие новинки
+>>Отечественные Новинки (SD, DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Макс — молодой и шустрый, не особо отягощенный моралью и принципами провинциал, энергично делающий успешную карьеру в Москве. Он работает в кадровом агентстве, и его специализация — увольнять топ-менеджеров, помогать отжимать доли в компаниях и тому подобные рутинные для бизнеса вопросы. Очередное задание Макса — избавиться от главного программиста большой IT-компании (   Читать дальше...   )Производство: Россия / Централ Партнершип, Вайс ФилмсЖанр: комедияРежиссер: Марюс ВайсбергАктеры: Данила Козловский, Михаил Галустян, Наталья Бардо, Станислав Ярушин, Елена Фомина, Вадим Андреев, Ольга Тумайкина, Константин Чепурин, Яна Кошкина, Никита ТарасовСубтитры: отсутствуютПродолжительность: 01:30:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C700CBA0DCD44915D2BA19BB9F800F37DB79DF07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862796   (1063581) от 
+
+Человек, который смеётся (2026) WEBRip
+
+>>Горячие новинки
+>>Отечественные Новинки (SD, DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дмитрий — популярный актер, звезда боевиков. Публика любит его за образ мачо с непроницаемым лицом. Однажды Дмитрий получает предложение от сурового, но очень богатого бизнесмена из Сибири Сергея сняться в криминальной драме про 90-е в главной роли хладнокровного киллера. Сергей предлагает агенту Дмитрия гонорар в 10 раз больше обычного. Они соглашаются.
+На съемках (   Читать дальше...   )Производство: Россия / Инфинити контентЖанр: комедияРежиссер: Владимир КоттАктеры: Евгений Цыганов, Степан Девонин, Сергей Гармаш, Ирина Пегова, Анастасия Красовская, Кирилл Каганович, Антон Ескин, Андрей Цыганов, Дмитрий Горевой, Сергей ШароватовСубтитры: Русские (forced) - hardsubПродолжительность: 01:37:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C091BD9D51CCEF532390A0BDD1E43276AEF30FB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862854   (1063535) от 
+
+Уволить Жору (2026) WEBRip [H.264]
+
+>>Горячие новинки
+>>Отечественные Новинки (SD, DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Макс — молодой и шустрый, не особо отягощенный моралью и принципами провинциал, энергично делающий успешную карьеру в Москве. Он работает в кадровом агентстве, и его специализация — увольнять топ-менеджеров, помогать отжимать доли в компаниях и тому подобные рутинные для бизнеса вопросы. Очередное задание Макса — избавиться от главного программиста большой IT-компании (   Читать дальше...   )Производство: Россия / Централ Партнершип, Вайс ФилмсЖанр: комедияРежиссер: Марюс ВайсбергАктеры: Данила Козловский, Михаил Галустян, Наталья Бардо, Станислав Ярушин, Елена Фомина, Вадим Андреев, Ольга Тумайкина, Константин Чепурин, Яна Кошкина, Никита ТарасовСубтитры: отсутствуютПродолжительность: 01:30:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B401E90597B9CC6C0BCC81E3BE47A54D5CDFEE01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861970   (1062697) от 
 
 Равиоли Оли (2025) WEBRip [H.264]
@@ -7,7 +112,7 @@ https://t.me/izofen
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062697.jpg" />
 </div>
 
 
@@ -33,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062409.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062408.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062398.jpg" />
 </div>
 
 
@@ -112,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062397.jpg" />
 </div>
 
 
@@ -139,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062109.jpg" />
 </div>
 
 
@@ -165,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062108.jpg" />
 </div>
 
 
@@ -191,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062107.jpg" />
 </div>
 
 
@@ -217,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061835.jpg" />
 </div>
 
 
@@ -243,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061834.jpg" />
 </div>
 
 
@@ -269,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061338.jpg" />
 </div>
 
 
@@ -295,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061285.jpg" />
 </div>
 
 
@@ -321,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061284.jpg" />
 </div>
 
 
@@ -347,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061282.jpg" />
 </div>
 
 
@@ -373,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060727.jpg" />
 </div>
 
 
@@ -399,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060722.jpg" />
 </div>
 
 
@@ -425,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059108.jpg" />
 </div>
 
 
@@ -451,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058894.jpg" />
 </div>
 
 
@@ -477,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058268.jpg" />
 </div>
 
 
@@ -503,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058118.jpg" />
 </div>
 
 
@@ -529,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057527.jpg" />
 </div>
 
 
@@ -555,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056623.jpg" />
 </div>
 
 
@@ -566,110 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:603C080A2A45C2CBD3541FE94B5BBA2FAC11DF78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853212   (1056398) от 12.02.2026
-
-Добрый доктор (2025) WEBRip
-
->>Горячие новинки
->>Отечественные Новинки (SD, DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056398.jpg" />
-</div>
-
-
-###  Подробнее
-
-Олег Семёнович Мандрыгин — врач со скверным характером, работающий в одиночку. Дима — обычный молодой курьер, не обременяющий себя тягостями жизни. Их судьбы переплетаются в тот момент, когда Дима неудачно врезается на самокате в Олега Семеновича. Теперь, чтобы Мандрыгину не потерять работу и не оставить без внимания пациентов, Диме придётся притвориться настоящим (   Читать дальше...   )Производство: Россия / Arna Media, Legio Felix, PREMIERЖанр: комедияРежиссер: Никита ГрамматиковАктеры: Юрий Стоянов, Виктор Хориняк, Анастасия Куимова, Елена Валюшкина, Егор Овчинников, Данила Рассомахин, Василиса Семашкова, Александр Вдовин, Полина Дудкина, Валерий НиколаевСубтитры: отсутствуютПродолжительность: 01:29:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46DEB42BF479B0AF78D8A9D540B17E65B6DA2CA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850682   (1054513) от 29.01.2026
-
-Волчок (2025) WEBRip
-
->>Горячие новинки
->>Отечественные Новинки (SD, DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российская империя. Рубеж XIX и XX веков. Тринадцатилетний дворянин и сирота Ваня Огарев бежит из Москвы в Нижний Новгород, спасаясь от убийц, подосланных его собственным дядей, решившим завладеть наследством мальчика. Для своей защиты Ваня нанимает случайно подвернувшегося ему кулачного бойца Волчка. Волчок должен помочь Ване добраться в целости и сохранности до (   Читать дальше...   )Производство: Россия / MEM Cinema Production, OkkoЖанр: приключения, комедияРежиссер: Константин СмирновАктеры: Евгений Ткачук, Юлия Хлынина, Марк-Малик Мурашкин, Андрей Смоляков, Сергей Маковецкий, Даниил Воробьев, Кирилл Полухин, Михаил Евланов, Андрей Пынзару, Фёдор ПарамоновСубтитры: отсутствуютПродолжительность: 02:02:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:078617853EF7D5A3D9D645A98C9880E56CA4D77B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850721   (1054440) от 29.01.2026
-
-Волчок (2025) WEBRip [H.264]
-
->>Горячие новинки
->>Отечественные Новинки (SD, DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российская империя. Рубеж XIX и XX веков. Тринадцатилетний дворянин и сирота Ваня Огарев бежит из Москвы в Нижний Новгород, спасаясь от убийц, подосланных его собственным дядей, решившим завладеть наследством мальчика. Для своей защиты Ваня нанимает случайно подвернувшегося ему кулачного бойца Волчка. Волчок должен помочь Ване добраться в целости и сохранности до (   Читать дальше...   )Производство: Россия / MEM Cinema Production, OkkoЖанр: приключения, комедияРежиссер: Константин СмирновАктеры: Евгений Ткачук, Юлия Хлынина, Марк-Малик Мурашкин, Андрей Смоляков, Сергей Маковецкий, Даниил Воробьев, Кирилл Полухин, Михаил Евланов, Андрей Пынзару, Фёдор ПарамоновСубтитры: отсутствуютПродолжительность: 02:02:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E0C3318266F1D0A658A299B5001D44B459775C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849603   (1053725) от 24.01.2026
-
-Голосовой помощник (2025) WEBRip [H.264]
-
->>Горячие новинки
->>Отечественные Новинки (SD, DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053725.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания друзей арендует на выходные дизайнерский загородный дом. Там есть всё для комфортного и весёлого отдыха, включая умную колонку Алёна. Она умеет развлекать гостей и управлять домом, а ещё ей известны секреты, которые скрывают друзья. Устройство вынуждает компанию играть в игру «Найди убийцу», чтобы выяснить обстоятельства смерти их подруги, которая погибла (   Читать дальше...   )Производство: Россия / Централ Партнершип, Ирсна МедиаЖанр: триллер, фантастикаРежиссер: Олег ВитвицкиАктеры: Полина Федина, Илья Антоненко, Борис Дергачев, Виолетта Оноp, Владислав Ценёв, Юлия Джулай, Илья Исаев, Ольга ЗубковаСубтитры: отсутствуютПродолжительность: 01:43:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AD90558BD0DAAFFA8C380D43121C7DE8F44B360
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 868157   (760143) от 11.04.2015
+
+Лучше звоните Солу / Better Call Saul (2015) WEB-DL [H.264/1080p-LQ] (сезон 1, серия 1-10 из 10) (NewStudio)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760143.jpg" />
+</div>
+
+
+###  Подробнее
+
+История об испытаниях и невзгодах, которые приходится преодолеть Солу Гудману, адвокату по уголовным делам, в тот период, когда он пытается открыть свою собственную адвокатскую контору в Альбукерке, штат Нью-Мексико.Производство: СШАЖанр: драма, комедия, криминалРежиссер: Колин Бакси, Адам Бернштейн, Винс ГиллиганАктеры: Боб Оденкёрк, Ри Сихорн, Патрик Фабиан, Майкл МакКин, Майкл Мэндо, Джонатан Бэнкс, Ген Н. Чавес, Джил Мюррэй, Тим Чайлдресс и др.Перевод: Многоголосый закадровый, профессиональный - NewStudioФормат: MKVПродолжительность: ~ 00:53:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83452F263E2A7C2C5030E9D91814824822470EDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 660218   (759856) от 28.05.2013
 
 Call of Juarez: Gunslinger (2013) [Ru/En] (1.0/u1/DLC) RePack R.G. Origami
@@ -6,7 +32,7 @@ Call of Juarez: Gunslinger (2013) [Ru/En] (1.0/u1/DLC) RePack R.G. Origami
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759856.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759629.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759627.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_759460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_759460.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Total Commander 9.12 Podarok Edition + Lite [Ru/Uk]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759354.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759351.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759234.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759232.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Painkiller Антология [Ru] (Lossless RePack) 2004-2011 | R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759231.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Windows lwgame nCore v.2.5 OBT Rus 2010  [Только русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_759156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_759156.jpg" />
 </div>
 
 
@@ -276,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_758968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_758968.jpg" />
 </div>
 
 
@@ -302,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758700.jpg" />
 </div>
 
 
@@ -328,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_758618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_758618.jpg" />
 </div>
 
 
@@ -354,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758307.jpg" />
 </div>
 
 
@@ -381,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758304.jpg" />
 </div>
 
 
@@ -409,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_758262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_758262.jpg" />
 </div>
 
 
@@ -435,7 +461,7 @@ Kerish Doctor 2019 4.70 DC 31.01.2019 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758066.jpg" />
 </div>
 
 
@@ -461,7 +487,7 @@ PCRADIO 6.0.2 Premium RePack (& Portable) by elchupacabra [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_758059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_758059.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_757679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757679.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ Windows 10 Pro 1709 x86/x64 by kuloymin v12.5 (esd) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757671.jpg" />
 </div>
 
 
@@ -542,7 +568,7 @@ Adobe Muse CC 2015.1.2.44 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757079.jpg" />
 </div>
 
 
@@ -568,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756957.jpg" />
 </div>
 
 
@@ -594,7 +620,7 @@ Adobe Acrobat Pro DC 2015.016.20039 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756950.jpg" />
 </div>
 
 
@@ -620,7 +646,7 @@ Resident Evil / Biohazard HD Remaster (2015) [Ru/Multi] (1.1.0) Repack West4it
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756715.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ Age of Empires (2019) [Ru/Multi] (38862) Repack xatab [Definitive Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756713.jpg" />
 </div>
 
 
@@ -657,32 +683,6 @@ Age of Empires - легендарная стратегия в реальном �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4661955AE99D0C4EA9DD61E270140337D870504E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280939   (756571) от 05.02.2019
-
-NVIDIA GeForce Desktop 418.81 WHQL + For Notebooks + DCH [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756571.jpg" />
-</div>
-
-
-###  Подробнее
-
-NVIDIA GeForce Driver — драйвера для видеокарт производства NVIDIA. Предназначены для видеокарт семейства GeForce, работающих в операционной системе Windows. Унифицированная архитектура драйверов (CUDA) гарантирует прямую и обратную совместимость драйверов с различными поколениями графических процессоров NVIDIA, что упрощает процесс замены видеоподсистемы, так как (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4301CBFD60C7011C26036D4E727BE356AAB2CBF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

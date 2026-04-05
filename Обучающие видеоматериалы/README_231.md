@@ -1,3 +1,31 @@
+###  Публикация: 1654120   (194049) от 19.08.2023
+
+IndigoGo, Денис Швец | Онлайн-курс по развитию вашей речи и дикции (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс по развитию дикции включает в себя 3 объёмных, насыщенных практикой видеоурока. Каждый урок - это полноценная тренировка, благодаря которой ваша дикция будет становиться чётче, а голос сильнее и увереннее с каждым днём!
+
+При регулярном выполнении упражнений вы выработаете правильную артикуляцию, избавитесь от погрешностей дикции, скорректируете произношение (   Читать дальше...   )Производство: IndigoGoЖанр: ораторское искусство, дикция, артикуляцияЯзык озвучки: русскийПродолжительность: 01:12:33Реклама: cторонние вставки и наложения на видео и в презентации (водяной знак спонсора)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:857BCD978DA24857724F8BCA7655113F04062E8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654536   (193955) от 21.08.2023
 
 Виктор Блуд | Курс по зверошагу (2023) WEB-DL [AD] [RU]
@@ -6,7 +34,7 @@
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193955.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193930.jpg" />
 </div>
 
 
@@ -63,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193873.jpg" />
 </div>
 
 
@@ -92,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193830.jpg" />
 </div>
 
 
@@ -120,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193805.jpg" />
 </div>
 
 
@@ -149,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193759.jpg" />
 </div>
 
 
@@ -178,7 +206,7 @@ Stepik, Павел Коган | Google-таблицы. от А до Я (2023) WE
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193472.jpg" />
 </div>
 
 
@@ -207,7 +235,7 @@ Udemy, Sebastian Glöckner | Der Komplette Excel Kurs - Vom Anfänger zum Profi 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193225.jpg" />
 </div>
 
 
@@ -236,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193141.jpg" />
 </div>
 
 
@@ -265,7 +293,7 @@ Udemy, Stephen Ulibarri | Blender Sculpting - Rune Sword (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193098.jpg" />
 </div>
 
 
@@ -292,7 +320,7 @@ Adrian Cantrill | AWS Certified Advanced Networking - Specialty (2022) WEB-DL [E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193092.jpg" />
 </div>
 
 
@@ -321,7 +349,7 @@ Academind Pro, Udemy, Maximilian Schwarzmüller | GitHub Actions - The Complete 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193089.jpg" />
 </div>
 
 
@@ -349,7 +377,7 @@ Udemy, Art Studio | Modelling and Animating a Car in Blender (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193086.jpg" />
 </div>
 
 
@@ -376,7 +404,7 @@ Udemy, Art Studio | Learn Modelling and Animating in Blender (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193081.jpg" />
 </div>
 
 
@@ -402,7 +430,7 @@ Adrian Cantrill | AWS Certified SysOps Administrator - Associate [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193064.jpg" />
 </div>
 
 
@@ -431,7 +459,7 @@ Udemy, Dzianis Matveyenka | JUnit 5 (2022) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193044.jpg" />
 </div>
 
 
@@ -460,7 +488,7 @@ ArtStation, Daniel Peres | Creating Vegetation for Games (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192785.jpg" />
 </div>
 
 
@@ -488,7 +516,7 @@ PhotoWhoa, Sam Henderson | 12 Videos For Creating Stunning Fine Art Nude Photogr
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192768.jpg" />
 </div>
 
 
@@ -515,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192607.jpg" />
 </div>
 
 
@@ -541,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192604.jpg" />
 </div>
 
 
@@ -567,7 +595,7 @@ Filab, Діма Малєєв, Кріс Косик | Engineering Management (2023
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192592.jpg" />
 </div>
 
 
@@ -593,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192584.jpg" />
 </div>
 
 
@@ -619,7 +647,7 @@ Udemy, Dzianis Matveyenka (DMdev) | Beginner's Guide to Groovy for Java Devs (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192524.jpg" />
 </div>
 
 
@@ -647,7 +675,7 @@ Skillfactory, Михаил Королев | Data Engineering (2023) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192500.jpg" />
 </div>
 
 
@@ -676,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192492.jpg" />
 </div>
 
 
@@ -689,32 +717,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49E83A3C3BC1597641D3F9267012F6342E00709A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657538   (192490) от 03.09.2023
-
-Udemy, Dzianis Matveyenka (DMdev) | Computer Science on Java for Beginners (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вводный курс для тех, кто хочет освежить свои знания или кто впервые знакомится с программированием и хочет иметь представление о том, что это такое, как написать свою первую программу, убедиться, что это довольно просто и легко. Поэтому курс не требует каких-то предварительных знаний. Мы пройдемся от самого нуля до того уровня, когда вы сможете писать собственные (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 04:57:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86A4B4590119969666ED6AE1D73C958A08537DB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

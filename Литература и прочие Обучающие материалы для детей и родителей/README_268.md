@@ -1,3 +1,59 @@
+###  Публикация: 1319826   (477201) от 15.08.2019
+
+Эдуард Успенский | Лучшие сказки [cборник] (2019) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477201.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия Ретромонохром — это сказки из нашего детства, из любимых, большей частью ещё советских изданий, в любимых же иллюстрациях.
+ В компиляциях серии печатаются только лучшие отечественные и зарубежные сказочники и самые удавшиеся из написанных ими историй.
+Их же более слабые сказки, равно как и авторы второго плана, не снискавшие признания отечественной читающей (   Читать дальше...   )Жанр: Сказки народов мираФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD70B54F7453E68186BF04A938639C5B50C0829B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057063   (477095) от 27.09.2016
+
+Инна Мальханова | Школа для трудных родителей. Монография (2015) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Прочие материалы для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все родители прекрасно знают, что воспитание детей - это тяжелый, многолетний, непрерывный, хотя обычно невидимый со стороны, труд.
+Автор книги считает, что воспитание ребенка нужно начинать с себя, ведь не только родителям тяжело понимать своих детей, но и детям бывает нелегко с родителями.
+Книга, написанная с юмором, живым, доходчивым языком, будет не просто полезной, (   Читать дальше...   )Жанр: МонографияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07F862D6D992BC54A1921C21B738ABB6480C7A80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1406332   (476993) от 02.09.2020
 
 Валентина Егупова | Ломоносовская школа. Рисую узоры для одаренных детей 4-5 лет (2013) [PDF]
@@ -6,7 +62,7 @@
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476993.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476844.jpg" />
 </div>
 
 
@@ -58,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476666.jpg" />
 </div>
 
 
@@ -85,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476557.jpg" />
 </div>
 
 
@@ -114,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476015.jpg" />
 </div>
 
 
@@ -140,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476009.jpg" />
 </div>
 
 
@@ -166,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475989.jpg" />
 </div>
 
 
@@ -193,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475987.jpg" />
 </div>
 
 
@@ -219,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475792.jpg" />
 </div>
 
 
@@ -247,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475700.jpg" />
 </div>
 
 
@@ -273,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475680.jpg" />
 </div>
 
 
@@ -301,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475665.jpg" />
 </div>
 
 
@@ -327,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475477.jpg" />
 </div>
 
 
@@ -353,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475365.jpg" />
 </div>
 
 
@@ -379,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475355.jpg" />
 </div>
 
 
@@ -406,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475277.jpg" />
 </div>
 
 
@@ -433,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475264.jpg" />
 </div>
 
 
@@ -460,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475200.jpg" />
 </div>
 
 
@@ -487,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475181.jpg" />
 </div>
 
 
@@ -513,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475060.jpg" />
 </div>
 
 
@@ -540,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475058.jpg" />
 </div>
 
 
@@ -566,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475037.jpg" />
 </div>
 
 
@@ -593,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475010.jpg" />
 </div>
 
 
@@ -619,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474898.jpg" />
 </div>
 
 
@@ -630,58 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:299D7D4D01224C47479A0680F6DBF27BF55FAAAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057526   (474886) от 28.09.2016
-
-Росмэн | Сборник книг "Внеклассное чтение" 6 книг (2016) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отличные иллюстрированные детские книги. Хорошие книги приходят в мир разными путями. Бывает, что только автор издал произведение, и оно тут же стало известным, а бывает, что пройдёт много лет, прежде чем его полюбят и оценят. Так и путь домовёнка Кузи оказался намного длиннее, чем следовало бы.Жанр: Детская классическая литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00DC48B3D0238D7FFFC31F608D7E6B12994573DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406523   (474759) от 03.09.2020
-
-Подшивка журналов | Мурзилка №1-12 (2018) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Журналы для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474759.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Мурзилка" - популярный ежемесячный детский литературно-художественный журнал. Адресован детям от 6 до 12 лет. Первый номер журнала вышел 16 мая 1924 года, после чего выход издания не прерывался ни разу. Современный журнал "Мурзилка" наполнен познавательными материалами по разнообразным сферам знаний. В журнале печатаются сказки, сказочные повести, (   Читать дальше...   )Жанр: Познавательный журнал для детейФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57BFD94203AA3509C4462CDE3AB45A7E55637517
 ```
 
 https://mybot314.ru/tekegram_catalog/

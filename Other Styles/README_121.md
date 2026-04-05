@@ -1,3 +1,61 @@
+###  Публикация: 1069433   (373679) от 04.11.2016
+
+Sarah Schachner - Call of Duty: Infinite Warfare (Original Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anthropic Universe (04:22)
+02. Home (01:47)
+03. Rising Threat (05:29)
+04. Olympus Mons (04:09)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:23:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45E2F1E3B9808ADDE778D2DB3912BBCD2B2C53EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254369   (373007) от 14.10.2018
+
+Caravelli - Caravelli in Moscow (1982) 1999, Reissue, Boheme Music [MP3|320 Kbps] <Pop, Folk, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Starlit Summer (2:47)
+02. Love Has Come (4:38)
+03. The Moon Is Shining (3:50)
+04. It Was Long Ago (3:53)(   Читать дальше...   )Жанр: Pop, Folk, Easy ListeningПродолжительность: 00:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0A54D4DC0B28E118F440F5056390EE37A9BB8E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1254437   (372993) от 14.10.2018
 
 Roberto Danova - Panpipe moods (2001) [FLAC|Lossless|image + .cue] <Pop, Instrumental, Pan Flute, Easy Listening>
@@ -6,7 +64,7 @@ Roberto Danova - Panpipe moods (2001) [FLAC|Lossless|image + .cue] <Pop, Instrum
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372993.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Chris Piorkowski - Piano: Romantic Collection (2011) [MP3|320 Kbps] <Instrumenta
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372992.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Popular Melodies of Russia (2011) [MP3|192 Kbps] <Other, Instrumental, Soun
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372657.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - The Great American Songbook: 66 American Standards (2018) [MP3|320 Kbps] <P
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372639.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Hans Zimmer - Eclipse (From Dune: Original Motion Picture Soundtrack) [Trailer V
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371566.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ VA - Музыка Экрана. Коллекция Ридерз Дайджест
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370985.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ VA - The Elder Scrolls (Collection Original Soundtrack) (1994-2016) [MP3|320 к�
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368682.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ VA - Mannerpension Die Musik Zum Film (1996) Soundtrack [FLAC|Lossless|tracks + 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368298.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ Rawlins Cross - Reel 'n' Roll (1993) [FLAC|Lossless|tracks + .cue] <Rock, Folk, 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368216.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ VA - The Best Of Me - Original Motion Picture Soundtrack (2015) [FLAC|tracks + .
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367890.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ Mariah Carey - The Star (2017) Single [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367474.jpg" />
 </div>
 
 
@@ -319,7 +377,7 @@ VA - Ultimate Movies: 4CDs Of Great Hits From The Movies (2015) Box Set, 4CD [FL
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367406.jpg" />
 </div>
 
 
@@ -348,7 +406,7 @@ VA - Romantic Collection - Instrumental vol.3 (2000) [APE|image+.cue]<Instrument
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367283.jpg" />
 </div>
 
 
@@ -377,7 +435,7 @@ Gustavo Santaolalla - Last of Us (2013) [FLAC|Lossless|tracks + .cue] <Soundtrac
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366531.jpg" />
 </div>
 
 
@@ -406,7 +464,7 @@ Howard Shore - Edge of Darkness (2010) [FLAC|Lossless|tracks + .cue] <Score, Mod
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366232.jpg" />
 </div>
 
 
@@ -435,7 +493,7 @@ Leo Rojas - Colours of Nature (2022) [MP3|320 Kbps] <New Age, Instrumental, Nati
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366159.jpg" />
 </div>
 
 
@@ -464,7 +522,7 @@ The Cottars - Forerunner (2006) [FLAC|Lossless|tracks + .cue] <Folk, Celtic>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366059.jpg" />
 </div>
 
 
@@ -493,7 +551,7 @@ VA - Lady Bird (2018) [FLAC|Lossless|tracks + .cue] <Soundtrack, Score>
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366052.jpg" />
 </div>
 
 
@@ -522,7 +580,7 @@ Andrey Klimkovsky (Андрей Климковский) - Star Triangle (2001) [
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366029.jpg" />
 </div>
 
 
@@ -551,7 +609,7 @@ VA - Modern Sound Orchestras - Another Day In Paradise (1992) [FLAC|Lossless|ima
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366028.jpg" />
 </div>
 
 
@@ -580,7 +638,7 @@ VA - Tea Music (Музыка для Чайных Церемоний) - 12 CD (19
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_365816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_365816.jpg" />
 </div>
 
 
@@ -609,7 +667,7 @@ Various Artists - Rocketman (Music From The Motion Picture) (2019) 2CD / Target 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365543.jpg" />
 </div>
 
 
@@ -638,7 +696,7 @@ Jean Michel Jarre - Waiting For Cousteau (1990) Remastered / 2015, Sony Music / 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365490.jpg" />
 </div>
 
 
@@ -667,7 +725,7 @@ VA - Арабские ночи (Инструментальная музыка 2 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_365268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_365268.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Арабские ночи (Инструментальная музыка 2 
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416732   (364963) от 17.10.2020
-
-Andreas Vollenweider - Quiet Places (2020) [FLAC|Lossless|image + .cue] <New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pygmalion (4:05)
-02. Polyhymnia (5:10)
-03. The Pyramidians (4:50)
-04. Entangled (4:08 )(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 00:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:647A3731AA0D2FBCD44272B7C0BECAFE6F3526AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177072   (364908) от 24.10.2017
-
-L'One - 1985 (2017) Из т/с «Чернобыль 2. Зона отчуждения» [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364908.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Эхо (feat. Варвара Визбор)
-2. Клён (feat. Билли Новик)
-3. Время перемен
-4. Хоккеисты (Трус не играет в хоккей) (feat. NEL)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:23:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4727897424319DDB90ABBBCCBD7A231DDEDB352
 ```
 
 https://mybot314.ru/tekegram_catalog/

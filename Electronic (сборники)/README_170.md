@@ -1,3 +1,61 @@
+###  Публикация: 959169   (319265) от 23.11.2015
+
+VA - Trance 100 Best Of 2015 (EDM RG Deluxe Edition) (2015) [MP3|320 кб/с]<Trance, Progressive, Melodic, Vocal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319265.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin van Buuren feat. Mr.Probz - Another You (Mark Sixma Remix) 04:42
+002. Gaia - Carnation (Original Mix) 05:14
+003. Jody Wisternoff feat. Sian Evans - The Bridge (Chicane Rework) 05:48
+004. W&W - The One (Extended Mix) 04:03(   Читать дальше...   )Жанр: Trance, Progressive, Melodic, VocalФормат: CD, CompilationПродолжительность: 14:34:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2039AB274C533D91CF37430E72DD45C6F365C07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075759   (318825) от 23.11.2016
+
+VA - Beatport Trance Pack (23.11.) (2016) [MP3|320 Kbps] <Trance, Melodic, Energy, Emotional, Harmonic, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aley & Oshay - So Far Away (Original Mix) (feat. Sunflare) 8:36
+02. Assaf - Syndicate 3:33
+03. Feel - Did We Feel (Mark W Dub Mix) 5:55
+04. Vito Fognini - New Atlantis (Original Mix) 6:33(   Читать дальше...   )Жанр: Trance, Melodic, Energy, Emotional, Harmonic, ProgressiveПродолжительность: 06:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:347BDC2EB370B335051E6DCC5271FC305D5F23A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1075685   (318821) от 23.11.2016
 
 VA - Ibiza Missing Magic Music (2016) [MP3|320 Kbps] <House, Progressive, Dance, Club>
@@ -6,7 +64,7 @@ VA - Ibiza Missing Magic Music (2016) [MP3|320 Kbps] <House, Progressive, Dance,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318821.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Silk Weightlessness: Chill Electronic Music (2019) [MP3|320 Kbps] <Chillout
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318358.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Top50: Tracks Deep House Ver.13 (2019) [MP3|320 Kbps] <House, Deep House, P
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317914.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Top50: Tracks Deep House Ver.14 (2019) [MP3|320 Kbps] <House, Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317912.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Summer Time: Hot Trance Session (2020) [MP3|320 Kbps] <Trance, Progressive,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317659.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Future Sound: New Trance Music (2020) [MP3|320 Kbps] <Future Trance, Electr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317658.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Vibe Music: Tech House Electro Sound Mix (2020) [MP3|320 Kbps] <Tech House,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317644.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Autumn Love (A Lounge Collection) (2015) [MP3|320 кб/с]<Downtempo, Chill
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317400.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Trance Box: Progressive And Vocal Party (2015) [MP3|320 кб/с]<Progressiv
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317396.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Dubstep Classic Hits Top 100 (2015) [MP3|320 кб/с]<Drumstep, Dubstyle>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317212.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Charming Bourgeois Vol 3 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Loun
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317196.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Charming Bourgeois Vol 1 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Loun
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317194.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Games At Sunset: Psy Goa Trance (2017) [MP3|320 Kbps] <Psy, Goa Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317171.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Charming Bourgeois Vol 2  (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317087.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - crazyДвиж number tri (2020) [MP3|320 Kbps] <Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317015.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Spiritual Liberation: Psychedelic Healing (2018) [MP3|320 Kbps] <Psy, Goa T
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316777.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Record Super Chart 560 (2018) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316772.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - EDM Pro Chord Fast Life 001 (2016) [MP3|241~320 Kbps] <House, Progressive, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316572.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Dance Meteor Fitness Hits (2016) [MP3|241~320 Kbps] <House, Beat, Bass, Big
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316566.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - In Da Club Vol.68 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316160.jpg" />
 </div>
 
 
@@ -592,7 +650,7 @@ Steve Aoki - DJ Mag Top 100 (2012) [MP3|320 кб/с]<House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316000.jpg" />
 </div>
 
 
@@ -626,7 +684,7 @@ VA - Dj Compressor Relax Mix 2012-11 (2012) [MP3|320 кб/с]<Downtempo, Lounge,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315816.jpg" />
 </div>
 
 
@@ -661,7 +719,7 @@ VA - DeepEmotions - Car Dubstep Vol.9 (2012) [MP3|320 кб/с]<Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315814.jpg" />
 </div>
 
 
@@ -696,7 +754,7 @@ ICON-CELENTANO - mixed by dj Pitkin (2012) [MP3|320 кб/с]<progressive dance /
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_315690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_315690.jpg" />
 </div>
 
 
@@ -716,64 +774,6 @@ ICON-CELENTANO - mixed by dj Pitkin (2012) [MP3|320 кб/с]<progressive dance /
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421963   (315438) от 06.11.2020
-
-VA - Deep House Mafia (2020) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Veive - Black Silence
-02. Unwritten Smooth - Except Pyramid
-03. Double Deep - Play It Loud
-04. Anatoliy Kurakin - Moon(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 07:17:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CD878CB81D32EE404B332276A282EA87D2CB142
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421969   (315428) от 06.11.2020
-
-VA - Sunset Vibe: Absolute Chillout (2020) [MP3|320 Kbps] <Chillout, Lounge, Ambient>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315428.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rezwan Khan - Slow Jam
-002. Piazza Grande - Mondana
-003. Lvgsh - Tunnel Vision
-004. Brussels Pony Club - Warrior(   Читать дальше...   )Жанр: Chillout, Lounge, AmbientПродолжительность: 09:07:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3939B2ED97CE611261A772B62789A8F43AB7E636
 ```
 
 https://mybot314.ru/tekegram_catalog/

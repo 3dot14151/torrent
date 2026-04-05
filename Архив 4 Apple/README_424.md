@@ -6,7 +6,7 @@ Duplicate File Finder Pro 6.9  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355898.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ DxO PhotoLab 4 ELITE Edition 4.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355895.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Disk Expert Pro 3 v3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355893.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355760.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Big Mean Folder Machine 2 v2.42 [EN]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355758.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ MacCleaner 2 PRO 2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355756.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355735.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Adobe Illustrator CC2018 v22 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355382.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Alien Skin Exposure X3 Bundle 3.0.4.56 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355379.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Total Video Converter Pro 3.9.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355336.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Adobe Photoshop Lightroom Classic CC v7.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355137.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Scrutiny 12 v.12.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354827.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ EdgeView 3 v.3.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354824.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ BusyCal 2022.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354823.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Cardhop 2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354821.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ BookMacster 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354820.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ File Juicer 4.50 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354790.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Art Text 4 v.4.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354754.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ djay - DJ App & AI Mixer 4.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354746.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ BusyContacts 1.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354572.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ iCollections 4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354569.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Amadeus Pro 2.5.0 (2051) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354564.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ BusyCal 3 v3.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354558.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ GraphicConverter 10 v10.6.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354554.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ BetterTouchTool 2.646 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354423.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ xScope 4 v4.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354412.jpg" />
 </div>
 
 

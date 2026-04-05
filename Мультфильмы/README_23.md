@@ -1,3 +1,133 @@
+###  Публикация: 1469679   (1016217) от 13.05.2021
+
+Райя и последний дракон / Raya and the Last Dragon (2021) UHD BDRemux H.265/2160p] [4K, HDR, 10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Давным-давно в волшебной стране Кумандре бок о бок с людьми жили драконы — создатели и хранители воды. Мирной жизни пришел конец, когда появились друуны. Порождения тьмы обращали людей и драконов в каменные изваяния, и только магия драконихи Сису смогла прогнать злых созданий и расколдовать людей, но на драконов не подействовала. Кумандра раскололась на государства (   Читать дальше...   )Производство: США / Walt Disney Animation Studios, Walt Disney PicturesЖанр: Мультфильм, Фэнтези, Боевик, Комедия, Приключения, СемейныйРежиссер: Дон Холл, Карлос Лопес Эстрада, Пол БриггсАктеры: Келли Мари Трэн, Аквафина, Айзек Ванг, Джемма Чан, Дэниэл Дэ КимПеревод: Дублированный, МногоголосыйСубтитры: Русские (Full, Forced), АнглийскиеПродолжительность: 01:47:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3250E7520BBFE5BFFA88927D3D1E7465968D69BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395553   (1016032) от 14.05.2021
+
+Зебра в клеточку (2020-2021) WEB-DLRip [H.264/720p-LQ] (сезон 1-2, серии 1-46 из 52) [Обновляемая]
+
+>>Мультфильмы
+>>Отечественные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Где-то в африканской саванне появляется самая удивительная зебра на свете, которую украшают не привычные полоски, а веселая клеточка. И пусть она отличается от сородичей, Клеточка по-своему красива и, главное, жизнерадостна. Она знакомится с «классической» полосатой зеброй Полей, застенчивым Слоником, крокодилом-добряком Гошей, обезьянкой-непоседой Яной, страусом (   Читать дальше...   )Производство: Россия | СоюзмультфильмЖанр: Мультсериал, Анимация, ДетскийРежиссер: Алексей Алексеев, Анна Борисова, Максим КуликовАктеры: Ольга Кузьмина, Владимир Паляница, Лариса Брохман, Диомид Виноградов, Мария Хамидуллина, Алексей Войтюк, Ольга ШороховаПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: ~ 00:06:30 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75D8F8A0B4BFD319FFC859797F9EBDA30255ED20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470242   (1015983) от 15.05.2021
+
+Пирог со смеяникой (1980) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультфильм об удивительном городе Смехограде. Пришел в Смехоград день Смеха и Веселья и был объявлен карнавал. Все жители этого волшебного города начали усердно готовиться к празднику и делать веселые маски. Только трехглавый Дракон был недоволен предстоящим праздником и решил его испортить…Производство: СССР, КиевнаучфильмЖанр: ДетскийРежиссер: Елена БариноваАктеры: Николай Гринько, Евгений Паперный, Антонина Лефтий, И. ГрызСубтитры: отсутствуютПродолжительность: 00:09:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA74DFCFCE71194C8EB75ADFC0233D753195BB40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470234   (1015968) от 15.05.2021
+
+Три Панька (1989) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три чудаковатых брата Панька из села Паньковка, по совету соседа, решили наконец заняться делом. И занялись, но по-своему: дрова помыли, посуду покололи. И близким помогли как умели... А потом отправились правды искать и неизвестно куда б заехали, если б пьяный сосед случайно воз не развернул. Так и решили братья, вернувшись назад, что Паньковка — повсюду.Производство: СССР, КиевнаучфильмЖанр: Детский, Рисованная анимация, КомедияРежиссер: Ефрем ПружанскийСубтитры: отсутствуютПродолжительность: 00:09:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6868D5073AB72E7A6CAB294F1D2D0E67F55433E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470150   (1015839) от 15.05.2021
+
+Белка и Стрелка: Карибская тайна (2020) BDRip [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015839.jpg" />
+</div>
+
+
+###  Подробнее
+
+У берегов Кубы происходит загадочная аномалия – огромный водяной смерч всасывает воду, осушая океан. Решением советского командования Белка и Стрелка отправляются к острову братских народов с разведывательной миссией. Красочная Куба, лазурная гладь океана и окутанный тайнами подводный мир встречают героев. Четвероногим исследователям и их команде предстоят опасные (   Читать дальше...   )Производство: Россия / Киностудия им. М. Горького, КиноАтисЖанр: мультфильм, комедия, приключения, семейныйПеревод: Не требуетсяСубтитры: отсутствуютПродолжительность: 01:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBD48EC592EDEB5A47C26A1875CC9036F5AE94EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463802   (1015600) от 17.05.2021
 
 Бесконечный поезд / Infinity Train (2021) WEB-DL [H.264/720p-LQ] (сезон 4, серии 1-10 из 10) NewStation
@@ -6,7 +136,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015600.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015579.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015569.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015403.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015069.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014759.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014742.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014490.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ LEGO Ниндзяго: Мастера кружитцу / Lego Ninjago: Masters o
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014430.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014268.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013798.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013796.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013791.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013458.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013136.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013133.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013123.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013113.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013111.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013106.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013104.jpg" />
 </div>
 
 
@@ -537,138 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07B957771826EBF9C7ACEEAFB9886D144C63BD9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470060   (1013103) от 01.06.2021
-
-От винта 2 (2021) WEBRip [H.264/1080p-LQ]
-
->>Мультфильмы
->>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013103.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современные электролеты пришли на смену старой дизельной технике, и Витязь был отправлен в запас. Но когда на город нападают пришельцы, которые охотятся за энергией, Витязь вновь взмывает в небо, чтобы спасти землю. На новых виражах ему помогают старые добрые друзья и лайнер Молния, в которую он снова влюбляется как мальчишка.Производство: Россия / Touch FX Animation Studio, Продюсерский центр «Парадиз»Жанр: Детский, приключения, комедия, мультфильм, семейныйРежиссер: Ваге СаргсянАктеры: Илья Зудин, Юлия Проскурякова, Игорь Богомазов, Вячеслав Даньков, Борис Токарев, Константин Карасик, Лина Иванова, Иван Породнов, Евгений Толоконников, Дмитрий КуртаПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:25:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:054E3B34B50D537C643C9DBB83ED585B19C19214
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474428   (1013020) от 02.06.2021
-
-Меч в камне / The Sword in the Stone (1963) WEB-DLRip [H.264]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013020.jpg" />
-</div>
-
-
-###  Подробнее
-
-В стародавние времена в центре Лондона появился громадный камень с замурованным в нем старинным мечом. Золотая надпись на мече гласила, что королем Англии станет тот, кто вытащит этот заколдованный меч, доказав тем самым свою особую силу и право на власть. Пока это не удавалось никому.
-А между тем в далекой лесной глуши жил себе 11-летний мальчик Артур, прислуживал (   Читать дальше...   )Производство: США / Walt Disney ProductionsЖанр: мультфильм, мюзикл, фэнтези, комедия, приключенияРежиссер: Вольфганг РайтерманАктеры: Себастьян Сабот, Карл Свенсон, Джуниос Мэтьюз, Джинни Тайлер, Марта Вентуорф, Норман Элден, Алан Напье, Ричард Рейтерман, Роберт РейтерманПеревод: Дублированный, Профессиональный (многоголосый закадровый)Субтитры: Русские, английскиеПродолжительность: 01:19:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34575FB7D4F0F9F05FBCD16C9906F0B3B85E8CE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 381671   (1012464) от 05.06.2021
-
-Красная Шапка против зла / Hoodwinked Too! Hood vs. Evil (2011) BDRip [H.264/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красная Шапка проходит курс подготовки в шпионской школе «Хитрый Дятел» и становится секретным агентом. Глава разведшколы сразу кидает Шапку в самое пекло. Ее миссия — расследовать загадочное исчезновение Гензель и Гретель. Возможно, Шапка так бы и провалила первое задание, но отважная Бабушка, Волк — папарацци и вся банда лесной братвы сотрут в порошок любого, кто (   Читать дальше...   )Производство: США / HW Two, Kanbar Entertainment, The Weinstein CompanyЖанр: Мультфильм, Комедия, СемейныйРежиссер: Майкл Д’Иса-ХоганПеревод: Профессиональный (полное дублирование) Лицензия R5Продолжительность: 01:26:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D417AC78A1B25CECA6E7FDB3E39B83F467659350
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220596   (1012463) от 05.06.2021
-
-Стражи Галактики / Marvel’s Guardians of the Galaxy: Mission Breakout! (2018-2019) WEB-DL [H.264/720p-LQ] (сезон 3, серии 1-26 из 26) [MVO]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012463.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Guardians of the Galaxy вернулись на третий сезон в Marvel’s Guardians of the Galaxy: Mission Breakout! - «Миссия: Прорыв!»
-В этом сезоне Стражи Галактики оказались в тюрьме Коллекционера и, со свойственным им особенностями характера, освобождаются от плена. Ракета, как всегда, - реактивен, Гамора - в гневе, Груут - забавляется, а Звездный Лорд - тупит. Дракс-Разрушитель, (   Читать дальше...   )Производство: США / Marvel Animation, Walt Disney Television AnimationЖанр: Мультсериал, Фантастика, Боевик, Приключения, ФэнтезиРежиссер: Лео Райли, Эрик Радомски, ...Актеры: Джонатан Адамс, Джефф Беннетт, Тревор Дивэлл, Уилл Фридел, Ванесса Маршалл, Джеймс С. Мэтис III, Ной Нельсон, Кевин Майкл Ричардсон, Дэвид Соболев, Кри СаммерПеревод: Многоголосый закадровый, профессиональныйОзвучка / Автор перевода: Алексей Соловьёв, Анастасия Снегирева, Андрей ЖариковСубтитры: отсутствуютПродолжительность: ~00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71D40C84B2F702DD99FDC27E90D1EBBD33A5F1B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475574   (1012256) от 07.06.2021
-
-Пчёлка Майя и Кубок мёда / Maya the Bee: The Honey Games (2018) BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пчёлка Майя с нетерпением ждёт начала спортивных соревнований между ульями за Кубок мёда. Однако Императрица не только не допускает её улей до игр, но и требует, чтобы они отдали половину своего урожая мёда для питания других спортсменов. Такое положение дел не устраивает пчёлку, и она летит к Императрице, чтобы добиться включения её команды в список участников.Производство: Германия, Австралия / Studio 100 Media, Studio B AnimationЖанр: Мультфильм, Комедия, Приключения, СемейныйРежиссер: Ноэль Клири, Серджо Делфино, Алекс СтадерманнАктеры: Коко Джек Гиллис, Бенсон Джек Энтони, Ричард Роксбург, Джастин Кларк, Марни МакКуин, Линда Нго, Кэм Ральф, Джордан Хэа, Сэм Хафт, Питер МакАллумПеревод: Дублированный (iTunes)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:24:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49B8E09884DBAD7813968C4496B1CD75276F1E47
 ```
 
 https://mybot314.ru/tekegram_catalog/

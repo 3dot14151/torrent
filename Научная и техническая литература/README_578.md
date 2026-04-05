@@ -1,134 +1,3 @@
-###  Публикация: 970698   (139525) от 31.12.2015
-
-Георг Лукач | Душа и формы. Эссе (2006) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139525.jpg" />
-</div>
-
-
-###  Подробнее
-
-«В моем сборнике эссе «Душа и формы» стремление к конкретности проявилось в том, что я попытался понять внутреннюю структуру, общую природу известных типических форм человеческого поведения и поставить их во взаимосвязь с литературными формами путем изображения и анализа жизненных конфликтов». Георг Лукач
-«Вероятно, надо отступить вплоть до «Писем об эстетическом (   Читать дальше...   )Жанр: ФилософияПеревод: С. Н. ЗемлянойФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6B084AF56BE4567CB623FA78A38384EDC7CD3E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970560   (139511) от 31.12.2015
-
-Жан Поль Сартр | Проблемы метода (2008) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очерк французского философа и писателя Жана Поля Сартра (1905-1980) «Проблемы метода», непосредственно связанный с его обширным трудом «Критика диалектического разума», характеризуется автором как общий обзор круга вопросов, охватываемых экзистенциализмом. Это исследование вскрывает внутренние противоречия философской антропологии и намечает, на методологическом (   Читать дальше...   )Жанр: ФилософияПеревод: В. П. ГайдамакФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA1C35DEE66EAD619644E20FEA9974160CFAA35F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970693   (139501) от 31.12.2015
-
-А. Б. Рахманов | Социальная философия Макса Вебера: Метаморфозы и кризисы (2012) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая монография является первым в российской науке научным исследованием социальной философии (теоретической социологии) выдающегося немецкого мыслителя Макса Вебера с точки зрения ее целостности и развития. Объектом анализа выступает весь комплекс научных трудов Вебера, и в первую очередь наиболее важные из них — «Хозяйство и общество» и «Хозяйственная этика (   Читать дальше...   )Жанр: Философия, История философииФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0A586F81C79CADAA8E2266D98D73A7FADF6A31B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970692   (139479) от 31.12.2015
-
-Макс Вебер | О России (2007) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139479.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник включены сокращенные версии двух больших эссе, полные тексты или фрагменты газетных статей Макса Вебера, прямо касающиеся России. Вебер анализирует в них общественно-политическую ситуацию в России в 1905-1906 и 1917-1918 годах. Вебер обсуждает перспективы либеральной демократии и конституционной монархии в России, оценивает разные социальные силы в российском (   Читать дальше...   )Жанр: Общество, социологияПеревод: А. С. КустаревФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E37BE08A75A747787FB39286D166FD877E915E8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348989   (139477) от 30.12.2019
-
-В. Д. Меньшагин, З. А. Вышинская | Советское уголовное право (1950) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Советское уголовное право является одной из важнейших отраслей советского социалистического права. Советское уголовное право раскрывает на основе общего учения Маркса — Энгельса — Ленина — Сталина о государстве и праве сущность общественно-опасных деяний (преступлений), совершаемых в Советском государстве, а также устанавливает цели, задачи и виды наказаний, применяемых (   Читать дальше...   )Жанр: История, политология, социология, правоведениеФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B25E962F5EA169904B535358A57CBD4FCCF2D210
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272903   (139431) от 30.12.2018
 
 Элизабет Таскер | Фабрика планет. Экзопланеты и поиски второй Земли (2019) [PDF]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139431.jpg" />
 </div>
 
 
@@ -163,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139417.jpg" />
 </div>
 
 
@@ -190,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139405.jpg" />
 </div>
 
 
@@ -216,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139384.jpg" />
 </div>
 
 
@@ -242,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139356.jpg" />
 </div>
 
 
@@ -270,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139346.jpg" />
 </div>
 
 
@@ -296,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139317.jpg" />
 </div>
 
 
@@ -322,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139306.jpg" />
 </div>
 
 
@@ -348,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139296.jpg" />
 </div>
 
 
@@ -375,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139289.jpg" />
 </div>
 
 
@@ -401,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139287.jpg" />
 </div>
 
 
@@ -427,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139279.jpg" />
 </div>
 
 
@@ -454,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139270.jpg" />
 </div>
 
 
@@ -480,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139262.jpg" />
 </div>
 
 
@@ -506,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139249.jpg" />
 </div>
 
 
@@ -532,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139243.jpg" />
 </div>
 
 
@@ -558,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139234.jpg" />
 </div>
 
 
@@ -585,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139223.jpg" />
 </div>
 
 
@@ -611,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139210.jpg" />
 </div>
 
 
@@ -637,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139206.jpg" />
 </div>
 
 
@@ -663,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139199.jpg" />
 </div>
 
 
@@ -675,6 +544,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C24A0C1C0375DF677FD6CC8CA96337F82041384
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348986   (139164) от 30.12.2019
+
+Эндрю Лумис | Искусство иллюстрации (2015) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139164.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге представлено то, что, по моему опыту, является основой и фундаментом иллюстрации. Насколько мне известно, до меня никто не предпринимал попыток систематизировать и изложить эти основы. Поэтому я решил собрать все столь необходимые познания, черпая их из собственного опыта работы на поприще создания иллюстраций. Я постараюсь ясно изложить основные принципы, (   Читать дальше...   )Жанр: Изобразительное искусствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5F055E34442DAE51FF50A185BC9FCA94C6A39DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970619   (139150) от 31.12.2015
+
+Ф. Бэкон | Сочинения [2 тома] (1971-1972) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый том включает одно из основных произведений выдающегося английского материалиста, основоположника «индуктивного метода» в изучении рациональных наук, Фрэнсиса Бэкона (1561 - 1626) — «О достоинстве и приумножении наук», в котором он пропагандирует научное знание, разрабатывает классификацию наук и их методологию, критикует суеверии и схоластический способ мышления. (   Читать дальше...   )Жанр: История, философияФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8966BF70CB742F130273C610A435A824E6608F02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272968   (139141) от 30.12.2018
+
+Дугал Диксон | После человека. Зоология будущего (2017) [FB2]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139141.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Едва увидев эту книгу, я пожалел, что не написал ее сам…
+Это изумительная, красиво поданная идея. Ее автор поставил перед собой интригующую задачу: рассмотреть эволюцию на нашей собственной планете в будущем, основываясь на тех видах, которые существуют сегодня. Книгу не только интересно читать – она обладает реальной научной ценностью. Животные на ее страницах (   Читать дальше...   )Жанр: Научно-популярная литература, ЗоологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFB230029C8C5AD12256055993F93F57BC923B17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970682   (139128) от 31.12.2015
+
+М. Вебер | Избранные произведения (1990) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой сборник работ по социологии одного из ведущих западных социологов XIX–XX вв. М. Вебера (1864–1920), оказавшего и оказывающего значительное влияние на ее развитие. В работах, вошедших в сборник, нашли отражение его идеи о связи социологии и истории, о «понимающей социологии», концепция «идеальных типов» и др. М. Вебера нередко называют на (   Читать дальше...   )Жанр: Философия, Обществознание, социологияПеревод: П. П. Гайденко, А. Ф. Филиппов, М. И. ЛевинФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0AFF37B2E5EC48C9B3F8B15DF892A50923308E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970530   (139120) от 31.12.2015
+
+Дж. Р. Ландер | Войны Роз (2013) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вот уже почти полвека книга известного специалиста по средневековой политической истории Англии проф. Дж. Ландера «Войны Роз» пользуется неизменным успехом. За это время она десятки раз переиздавалась в Великобритании, а теперь и у русскоязычного читателя впервые появилась возможность с ней познакомиться. Она стала первой из целой череды одноименных книг, написанных (   Читать дальше...   )Жанр: ИсторияПеревод: А. А. КралинаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51CB85BA3053412E06C0F9BAD31AC4E43E2BC098
 ```
 
 https://mybot314.ru/tekegram_catalog/

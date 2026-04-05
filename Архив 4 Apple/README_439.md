@@ -6,7 +6,7 @@ Dash 5.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333236.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Office Standard 2016 v15.16 (with License Installer) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333193.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ JetBrains WebStorm 11.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333183.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ TextMate 2.0-rc.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333156.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ PullTube 0.11.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333147.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Fileloupe - Media Browser 1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333038.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ BlueHarvest 7 v7.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333034.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ MediaHuman YouTube Downloader 3.9.9.8 (3110) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333026.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Movavi PDF Editor 1.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333025.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ AnyTrans for Android 6.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333023.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ CleanMyMac X 4.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332997.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Winclone Pro 7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332932.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ TechSmith Snagit 2019.0.0 (94003) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332922.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Hands Off! 4.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332869.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Sketch 52.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332868.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Debookee 7 v7.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332616.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ iA Writer 5.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332610.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Blocs 1.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332473.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ IconJar 1.13.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332355.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ DoubleTake 2.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332354.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ iSkysoft Video Converter Ultimate 11.5.0.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332353.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ SoftRAID 5.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332352.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Softorino YouTube Converter 2 v2.1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332351.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Keyboard Maestro 9 v9.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332276.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ NCH WavePad Mater 9.51 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332275.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ ChronoSync & ChronoAgent 4.9.5 & 1.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332266.jpg" />
 </div>
 
 

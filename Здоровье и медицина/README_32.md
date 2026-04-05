@@ -1,29 +1,3 @@
-###  Публикация: 1744477   (46007) от 22.08.2024
-
-Александр Сушанский | Большая книга о еде, несущей здоровье. Теория системного питания (2024) [EPUB, PDF, RTF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Более 50 лет автор книги — Александр Сушанский, доктор медицинских наук, специалист по питанию — восстанавливает нормальные отношения своих пациентов с едой и пищеварением. В процессе работы автор создал уникальную систему — теорию системного питания. Она ответит на главнейший вопрос о еде, который мы задаем себе каждый день: как и что есть, чтобы быть здоровым. (   Читать дальше...   )Жанр: Здоровье и медицинаИздательство: АСТФормат: EPUB, PDF, RTFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:795DA06290ADAC0763C32C8BE5CD72F6C1789CF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1744904   (45922) от 23.08.2024
 
 Владимир Демченко | Здоровая спина. 10 эффективных комплексов упражнений (2024) [FB2, PDF, RTF]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45922.jpg" />
 </div>
 
 
@@ -59,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45912.jpg" />
 </div>
 
 
@@ -86,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44310.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43624.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43499.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43493.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43366.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41300.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41242.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40931.jpg" />
 </div>
 
 
@@ -297,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40822.jpg" />
 </div>
 
 
@@ -323,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40821.jpg" />
 </div>
 
 
@@ -349,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40741.jpg" />
 </div>
 
 
@@ -375,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40722.jpg" />
 </div>
 
 
@@ -401,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40720.jpg" />
 </div>
 
 
@@ -427,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40715.jpg" />
 </div>
 
 
@@ -453,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40713.jpg" />
 </div>
 
 
@@ -481,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40706.jpg" />
 </div>
 
 
@@ -507,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40638.jpg" />
 </div>
 
 
@@ -535,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40618.jpg" />
 </div>
 
 
@@ -562,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40617.jpg" />
 </div>
 
 
@@ -591,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40612.jpg" />
 </div>
 
 
@@ -618,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40609.jpg" />
 </div>
 
 
@@ -645,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40606.jpg" />
 </div>
 
 
@@ -674,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40605.jpg" />
 </div>
 
 
@@ -687,6 +661,34 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57599BFC3DCDE652D7E5F69DF99AD312E4DDEC2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756370   (39797) от 20.10.2024
+
+Ю. Николаева | Тайные травы императоров. Излечение с помощью женьшеня, сабельника и столетника (2021) [DOCX, PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39797.jpg" />
+</div>
+
+
+###  Подробнее
+
+С древних времен известны растения, которые помогают бороться с серьезными заболеваниями. Когда-то лечение такими драгоценными дарами природы было доступно лишь знатным людям, а препараты из них стоили очень дорого.
+В этой книге вы найдете исчерпывающую информацию о способах исцеления с помощью женьшеня, сабельника болотного и столетника.
+Женьшень – это «корень жизни», (   Читать дальше...   )Жанр: лекарственные растения, фитотерапияИздательство: Москва: «Рипол Классик»Формат: DOCX, PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CB60C1F26B4123E493ED3A00948CFB5B6D38ADA
 ```
 
 https://mybot314.ru/tekegram_catalog/

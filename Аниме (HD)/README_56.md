@@ -6,7 +6,7 @@ Ameku Takao no Suiri Karte / Ameku Takao's Detective Karte / Детективн�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22743.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Medalist | Медалистка [2025, TV, 13 эп.] WEBRip 720p HEVC raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22739.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Momentary Lily | Мгновение Лили [2025, TV, 13 эп. + SP] WebRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21699.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Touhai: Ura Rate Mahjong Touhai Roku | Ледяные кости [2024, TV, 25 �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20126.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Lycoris Recoil: Friends Are Thieves of Time. / Ликорис Рикойл: Др
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17574.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Guilty Gear Strive: Dual Rulers | Guilty Gear Strive: Двойные прави�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17188.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Bye Bye, Earth 2 / Пока, Земля 2 [2025, TV, 10] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15410.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Moonrise | Восход Луны [2025, Web, 18 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15080.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Kanchigai no Atelier Meister / The Unaware Atelier Master / Не знающий 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14568.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Ballpark de Tsukamaete! | Catch Me at the Ballpark! | Ловец бейсбол�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14352.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Aru Majo ga Shinu Made / Once Upon a Witch's Death / Пoкa вeдьмa нe ум�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14339.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Haite Kudasai, Takamine-san / Please Put Them On, Takamine-san / Пожалуй�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14273.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Isshun de Chiryou Shiteita no ni Yakudatazu to Tsuihou Sareta Tensai Chiyushi, Y
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14150.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Wind Breaker Season 2 | Ветролом 2 [2025, TV, 12 эп.] WEBRip 720 raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14134.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Kanpeki Sugite Kawaige ga Nai to Konyaku Hakisareta Seijo wa Ringoku ni Urareru 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14132.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Enen no Shouboutai San no Shou | Fire Force (2025) | Пламенная бриг
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14055.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Danjo no Yuujou wa Seiritsu Suru? (Iya, Shinai!!) / Can a Boy-Girl Friendship Su
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14049.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Slime Taoshite 300-nen, Shiranai Uchi ni Level Max ni Nattemashita 2 / Убив�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13949.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Shoushimin Series / How to Become Ordinary / Как стать обычным ч
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13833.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Katainaka no Ossan, Kensei ni Naru / From Old Country Bumpkin to Master Swordsma
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13756.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Zatsu Tabi: That's Journey / Это путешествие [2025, TV, 12] WEBRip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13743.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Gorilla no Kami kara Kago Sareta Reijou wa Ouritsu Kishidan de Kawaigarareru | T
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13741.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Maebashi Witches | Ведьмы Маэбаси [2025, TV, 12 эп.] WebRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13715.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Aharen-san wa Hakarenai 2 / Непостижимая Ахарэн-сан 2 [2025
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13709.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Apocalypse Hotel | Апокалипсис: Отель [2025, TV, 12 эп.] WebRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13630.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Nazotoki wa Dinner no Ato de | The Dinner Table Detective | Разгадыван
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13496.jpg" />
 </div>
 
 

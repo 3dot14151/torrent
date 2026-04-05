@@ -1,32 +1,3 @@
-###  Публикация: 1671941   (171058) от 26.10.2023
-
-Dokken - Heaven Comes Down (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fugitive (3:57)
-02. Gypsy (4:19)
-03. Is It Me Or You? (4:23)
-04. Just Like A Rose (4:19)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:393EC4CC4FE3860A61A86BC0877E97A86B9B82E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672002   (171035) от 26.10.2023
 
 In This Moment - Godmode (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metalcore>
@@ -35,7 +6,7 @@ In This Moment - Godmode (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metalcore>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171035.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Doro - Conqueress - Forever Strong and Proud (2023) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171030.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Duran Duran - Danse Macabre (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop, Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170992.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Endseeker - Global Worming (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Death Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170503.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ The Gaslight Anthem - History Books (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170466.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Tower Hill - Deathstalker (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Old Scho
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170463.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ W.E.B. - Into Hell Fire We Burn (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Extr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170456.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ The Kills - God Games (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170384.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Journey - Frontiers (1983) Remastered, 2023, Columbia [FLAC 24/192|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170341.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ DJ Shadow - Action Adventure (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170313.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Simple Minds - New Gold Dream (Live From Paisley Abbey) (2023) [FLAC 24/48|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170304.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Barbra Streisand - Evergreens - Celebrating Six Decades on Columbia Records (202
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170211.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Sorcerer - Reign of the Reaper (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Doo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170186.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Death - Scream Bloody Gore (1987) Reissue, 2001, Century Media [FLAC|24/96|track
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170154.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Red Reign - Don't Look Back (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170133.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Prince & The New Power Generation - Diamonds and Pearls (Super Deluxe Edition) (
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170113.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Taylor Swift - 1989 (Taylor's Version) (2023) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170101.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169929.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Prospective - Reasons To Leave (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169546.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Ragana - Desolation's Flower (2023) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <black
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169504.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Death - Leprosy (1988) [FLAC|24/96|tracks|Vinyl-Rip] <Death Metal, Progressive D
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169459.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ Mass Hysteria - Tenace, Pt. 2 (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rapcor
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169403.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ King Gizzard & The Lizard Wizard - The Silver Cord (2023) [FLAC 24/48|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169370.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ Julia Fischer, Martin Helmchen - Schubert: Complete Works for Violin and Piano (
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169209.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ Ghosts of Atlantis - Riddles of the Sycophants (2023) [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169122.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ Ghosts of Atlantis - Riddles of the Sycophants (2023) [FLAC 24/44.1|Lossless|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B0F0AB8CC419EF6FD94D7E61A8C69B43B369684
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596711   (169069) от 11.12.2022
+
+Audioslave - Studio Albums (3 releases) (2002 - 2006) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock, Post-Grunge>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Audioslave — супергруппа, состоявшая из бывших инструменталистов группы Rage Against the Machine Тома Морелло (гитарист), Тима Коммерфорда (бас-гитарист и сопровождающий вокал) и Брэда Уилка (ударные), а также Криса Корнелла (бывший ведущий вокалист и ритм-гитарист группы Soundgarden) в качестве ведущего вокалиста. Группа сформировалась после распада Rage Against (   Читать дальше...   )2002 - Audioslave
+2005 - Out Of Exile
+2006 - Revelations
+.Жанр: Hard Rock, Post-GrungeПродолжительность: 03:15:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81A4F82AD84BF0EB3C66DC0C808D4CC0E2CE0970
 ```
 
 https://mybot314.ru/tekegram_catalog/

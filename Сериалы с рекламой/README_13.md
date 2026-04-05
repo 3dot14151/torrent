@@ -1,3 +1,55 @@
+###  Публикация: 1398135   (712849) от 08.08.2020
+
+Голова / The Head (2020) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-6 из 6) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Международная антарктическая исследовательская станция. Во время длительной полярной ночи учёным из разных стран предстоит столкнуться не только с культурными различиями, но и с неким неведомым ужасом.Производство: Испания / HBO AsiaЖанр: триллер, детективРежиссер: Хорхе С. ДорадоАктеры: Сандра Андреис, Лаура Бах, Джон Линч, Альваро Морте, Крис Райлли, Рихард Заммель и др.Перевод: Двуголосый профессиональный (ViruseProject)Субтитры: русскиеПродолжительность: ~00:50:00 серияРеклама: присутствуют вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7A192BCDE61EF27A2A313E810C29B0D174AF06D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275648   (712407) от 02.03.2019
+
+Смерть в раю / Death in Paradise (2019) WEBRip (сезон 8, серии 1-8 из 8) Coldfilm [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712407.jpg" />
+</div>
+
+
+###  Подробнее
+
+В будущих сериях инспектора Лондонского управления полиции Джека Муни ждут новые расследования, а верный напарник Дуэйн Майерс покинет его. На замену Дуэйну придет женщина - племянница комиссара Паттерсона.Производство: Великобритания, ФранцияЖанр: триллер, драма, криминал, детективРежиссер: Стюарт СвасандАктеры: Элизабет Буржин, Дон Уоррингтон, Джозефина Жобер, Тоби Бакаре, Ардал О’Хэнлон, Эндрю Тирнан, Дайвин Хенри, Роберт Джеймс-Колльер и др.Перевод: Многоголосый закадровый, любительский-ColdfilmПродолжительность: ~00:57:00 серияРеклама: присутствуют аудио и видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6904110F09F058C77E9DD181BC8B08A00B91502
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112250   (712011) от 03.05.2017
 
 Заложница / Taken (2017) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-10 из 10) OMSKBIRD [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712011.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709475.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709472.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707195.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707173.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707127.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707003.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706981.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706854.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706829.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706782.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706691.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705752.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705750.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705301.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705142.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704914.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704906.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704695.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704690.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702414.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702283.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702004.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700794.jpg" />
 </div>
 
 
@@ -619,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:007182B4F8049CE30AC4FBE12EDF66BBF923D158
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130474   (700543) от 09.05.2017
-
-Заложница / Taken (2017) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-10 из 10) AMS [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700543.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это история молодого Брайана Миллса, бывшего «зеленого берета», пережившего трагедию, которая полностью изменила его. Справляясь с последствиями травмы, Миллс становится оперативником ЦРУ, и новая работа пробуждает в нем особенные и невероятно опасные таланты.Производство: США, Франция / FLW Films, Universal Television, Europacorp TelevisionЖанр: боевик, триллерРежиссер: Холли Дэйл, Ромео Тироне, Лекси АлександрАктеры: Клайв Стэнден, Джеймс Хеберт, Симу Лью, Дженнифер Марсала, Романо Орцари, Джанет Рэкуэл, Дженнифер Билз, Моник Кёрнен, Гай Чарльз, Майкл Ирби и др.Перевод: Многоголосый закадровый, профессиональный - AMS (Adiós Muchachos Studio)Субтитры: русские, английскиеПродолжительность: ~00:45:00 серияРеклама: присутствуют аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03600517FD494589F66178D289148AB88E4561D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220825   (700317) от 21.04.2018
-
-Прислуга (2018) WEBRip (серии 1-12 из 12) [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700317.jpg" />
-</div>
-
-
-###  Подробнее
-
-В одном из домов фешенебельного коттеджного городка происходит убийство сотрудницы из обслуживания Лары, в котором обвиняют молодого человека Антона, но полиция не спешит с расследованием Его жена Марта специально устроилась работать в тот же жилой комплекс, чтобы доказать невиновность любимого...Производство: Украина / "Sister's production" по заказу телеканала "1+1"Жанр: детектив, мелодрамаРежиссер: Бата НедичАктеры: Мишель Андраде,Антон Денисенко, Валерия Ходос, Олег Савкин, Лариса Руснак, Борис Хвошнянский, Ирина Мельник, Анна Сагайдачная, Людмила Загорская, Владимир Канивец и др.Язык озвучки: русскийПродолжительность: ~00:46:00 серияРеклама: присутствуют текстовые вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C608098FF324139A887E1EDEA79B181CF4FD5C59
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737616.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737566.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737467.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Exquisit Chillout Taste (2022) [AAC|~295 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737411.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ VA - Finest Chill House Tunes (2022) [AAC|~308 Kbps] <House, Chill House, Deep H
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737410.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ VA - Balearica (Deep-House Grooves) (2022) [AAC|~307 Kbps] <House, Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737407.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ VA - Furniture Lounge Works, Vol. 1 (2022) [AAC|~310 Kbps] <Lounge, Chill Out, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737406.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ VA - Audioholic (Groovy Deep-House Tunes), Vol. 1 (2022) [AAC|~326 Kbps] <House,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737404.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ VA - Best of Cafe De Anatolia 1 (2018) [AAC|~324 Kbps] <Chill Out, Downtempo, Or
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737386.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Roxette - Look Sharp! (30th Anniversary Edition) (2022) [AAC|~333 Kbps] <Pop, Ro
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737383.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ VA - The 90's (2022) [AAC|~335 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737374.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737225.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ VA - Lounge Tales, Vol. 4 (2015) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736949.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ VA - Lounge Tales, Vol. 3 (2015) [AAC|~337 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736948.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ VA - Lounge Tales, Vol. 1 (2014) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736947.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ VA - Mediterraneo 2 (2018) [AAC|~328 Kbps] <Chill Out, Downtempo, Organic House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736946.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ VA - Cappuccino Lounge, Vol. 2 (Relaxed Coffee Tunes) (2017) [AAC|~334 Kbps] <Lo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736945.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ VA - Lounge Tales, Vol. 2 (2014) [AAC|~334 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736944.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ VA - Cappuccino Lounge, Vol. 3 (Relaxed Coffee Tunes) (2017) [AAC|~343 Kbps] <Lo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736943.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ VA - Cappuccino Lounge, Vol. 1 (Relaxed Coffee Tunes) (2015) [AAC|~325 Kbps] <Lo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736942.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ VA - Mediterraneo 3 (2020) [AAC|~332 Kbps] <Chill Out, Downtempo, Organic House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736938.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ VA - Electro Swing Dance Session (2018) [AAC|~324 Kbps] <Electro Swing, Nu Jazz,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736937.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ VA - Cafe Deluxe Chillout - Nu Jazz / Lounge, Vol. 8 (2022) [AAC|~297 Kbps] <Eas
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736933.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ VA - Best of Cafe De Anatolia 3 (2020) [AAC|~317 Kbps] <Chill Out, Downtempo, Or
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736926.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ VA - Vintage Remix Cafe (2022) [AAC|~309 Kbps] <Lounge, Chill Out, Downtempo, Po
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736924.jpg" />
 </div>
 
 
@@ -719,7 +719,7 @@ VA - Best of Cafe De Anatolia 2 (2019) [AAC|~310 Kbps] <Chill Out, Downtempo, Or
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736918.jpg" />
 </div>
 
 

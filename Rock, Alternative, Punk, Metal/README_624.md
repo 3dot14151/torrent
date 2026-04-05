@@ -1,3 +1,32 @@
+###  Публикация: 944066   (445215) от 05.10.2015
+
+Secret Someones - Secret Someones (2015) 2CD [OGG| 429-549 кб/с]<Alternative, Indie Pop Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445215.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. I Won't Follow 03:57
+02. Quit Pulling Me Down 03:57
+03. Let You Go 03:29(   Читать дальше...   )Жанр: Alternative, Indie Pop Rock, Female VocalПродолжительность: 00:22:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16D32203CADF13D134CB2EDC4F4E4EF5753EA5E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 942107   (445210) от 05.10.2015
 
 Deathdefier - Transformator (2015) [FLAC|Lossless|WEB-DL]<Instrumental, Technogenic, Progressive, Death Metal>
@@ -6,7 +35,7 @@ Deathdefier - Transformator (2015) [FLAC|Lossless|WEB-DL]<Instrumental, Technoge
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445210.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445154.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Doctors Rock - 6 альбомов (2011-2013) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445137.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Stallion - Slaves Of Time (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Spee
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445131.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ The Vazeline - Подросткам плевать на весь мир (2022) [
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445126.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445119.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Sweet - The Answer (1995) Remastered, 2022 [MP3|320 Kbps] <Rock, Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445104.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Zero People - Песни человека (2022) [MP3|320 Kbps] <Alternative Roc
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445100.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Children Of Bodom - I Worship Chaos (2015) Limited Edition [FLAC|image+.cue]<Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445069.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Weird Dreams - Choreography (2012) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444926.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Clutch - Psychic Warfare (2015) [MP3|320 кб/с]<Stoner Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444924.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ U.D.O. - Steelhammer (2013) Standart Edition [FLAC|Lossless]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444870.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Steve Vai - 15 альбомов (1984-2016) [FLAC|Lossless|image+.cue|track+.cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444805.jpg" />
 </div>
 
 
@@ -386,7 +415,7 @@ Todd Snider - New Connection (2002) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444802.jpg" />
 </div>
 
 
@@ -415,7 +444,7 @@ VA - Voyager: 10 Years Nuclear Blast (1997) 3CD [FLAC|Lossless|image + .cue] <Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444801.jpg" />
 </div>
 
 
@@ -444,7 +473,7 @@ The Antlers - Burst Apart (2011) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444798.jpg" />
 </div>
 
 
@@ -473,7 +502,7 @@ Azra - Singl Ploče 1979-1982 (1982) 1995, Croatia Records [FLAC|Lossless|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444797.jpg" />
 </div>
 
 
@@ -502,7 +531,7 @@ The Muffin Men - Play The Music Of Frank Zappa: Say Cheese and Thank You (1993) 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444796.jpg" />
 </div>
 
 
@@ -531,7 +560,7 @@ Rolled Up Sleeves - Pointless. (2018) EP [MP3|320 Kbps] <Alternative Rock, Hard 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444787.jpg" />
 </div>
 
 
@@ -560,7 +589,7 @@ Teleman - Family of Aliens (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444783.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444746.jpg" />
 </div>
 
 
@@ -618,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444704.jpg" />
 </div>
 
 
@@ -647,7 +676,7 @@ Cold Chisel - 23 Albums (1978 - 2019) 39 CD [FLAC|Lossless|image + .cue|tracks +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444651.jpg" />
 </div>
 
 
@@ -676,7 +705,7 @@ VA - Tribute to Lake Of Tears - Twenty Years In Tears 2 (2014) 2CD [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444508.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ John Fogerty - Revival (2007) [APE|Lossless|image + .cue] <Rock & Roll, Country 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444454.jpg" />
 </div>
 
 
@@ -717,35 +746,6 @@ John Fogerty - Revival (2007) [APE|Lossless|image + .cue] <Rock & Roll, Country 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74D582E6C003751DB6CFBE8CA3CB7C80688AAEDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 827879   (444359) от 04.10.2014
-
-Алиса - Цирк (2014) [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Цирк (4:09)
-02. Кайф и истерика (4:39)
-03. Ток шок рок (3:39)
-04. Такие дела, хозяин (3:29)(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA0261A80EE7C41306095A47FAB3CB59FF9510C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

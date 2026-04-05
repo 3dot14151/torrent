@@ -1,3 +1,55 @@
+###  Публикация: 1303020   (577708) от 18.05.2019
+
+А.Н. Ядловский, Т.С. Шабан | Лучшие задачи на логику (2018) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577708.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге представлены лучшие задачи, стимулирующие развитие логики. Задания на разрезание и перестановку, «магические» квадраты и пространственные загадки, упражнения на внимательность и сообразительность, головоломки из спичек и вопросы на смекалку – все это и много других задачек, способствующих развитию математического, объемно-пространственного, интуитивного (   Читать дальше...   )Жанр: Задачи, головоломкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A832B3F37070523C0AE9C94B6F89D1ABFF5F9DE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150911   (577566) от 16.07.2017
+
+Б.В. Рыкунин | Юный конструктор (1957) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Настольные игры и Поделки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577566.jpg" />
+</div>
+
+
+###  Подробнее
+
+..Если юный техник хорошо владеет различными инструментами, знает свойство некоторых материалов, любит мастерить, он может стать юным конструктором. Но всё равно он должен заниматься моделированием, учиться конструировать сложные модели. Он должен внимательно изучать механизмы различных машин, приборов, аппаратов и установок, читать литературу по различным вопросам (   Читать дальше...   )Жанр: Самоделки, сделай самФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B5878FC2645E2B692D2787B6B93633B89F45114
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1150853   (577564) от 16.07.2017
 
 Е. О. Воскресенская и др. | ЕГЭ. Русский язык (2017) [PDF]
@@ -6,7 +58,7 @@
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577564.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577550.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577354.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577321.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577228.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576993.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576666.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576639.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576628.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576548.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576540.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576538.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576537.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576467.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576466.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576456.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576442.jpg" />
 </div>
 
 
@@ -457,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576418.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576303.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576297.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576265.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576209.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576051.jpg" />
 </div>
 
 
@@ -617,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575970.jpg" />
 </div>
 
 
@@ -628,60 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:848B7AB16D3BBB644F7B1D83E4F3B287FD89A19A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151210   (575804) от 17.07.2017
-
-Н. Э. Варавва, О. В. Мешкова | ЕГЭ. Химия (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие содержит теоретические сведения по всем темам, проверяемым на ЕГЭ по химии. После каждого раздела приводятся тренировочные задания разных типов с ответами. Наглядное и доступное изложение материала позволит быстро найти нужную информацию, устранить пробелы в знаниях и в кратчайшие сроки повторить большой объем информации.
-Издание окажет помощь старшеклассникам (   Читать дальше...   )Жанр: ЕГЭ. ХимияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0031C353B694E2DF9A4709668AA1410AEEBE8041
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151145   (575608) от 17.07.2017
-
-Самиздат | Мегаколлекция раскрасок для детей (2017) [JPG]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Рабочие тетради, прописи и разукрашки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575608.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мегаколлекция раскрасок для детей с героями любимых сказок, мультфильмов и комиксов,а также модели разнообразной техники(машинки,самолеты,корабли).
-2500 раскрасокЖанр: РаскраскиФормат: JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5DFA5BA98E59B2BAF04A3B0E24679AB28D7E484
 ```
 
 https://mybot314.ru/tekegram_catalog/

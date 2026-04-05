@@ -1,3 +1,108 @@
+###  Публикация: 1856651   (1059026) от 01.03.2026
+
+Smart Tools 2 v1.2.4 Mod by TryRoon [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059026.jpg" />
+</div>
+
+
+###  Подробнее
+
+Smart Tools® 2 - это расширенный набор инструментов. «Smart Tools 2» включает в себя все функции существующих «Smart Tools», поэтому мы рекомендуем новым пользователям приобрести это приложение. «Smart Tools 2» = «Smart Tools» + больше инструментов + больше возможностейТип издания: ModРелиз состоялся: 27.02.2026Разработчик: Smart Tools co.Поддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C69FBA01F2FB7C5FDA13C0F1DF747F3319CCF001
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856557   (1058960) от 01.03.2026
+
+PortalWG Lite 2.1.6 Mod by STR_BYPASS [Ru/Multi]
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Форк AmneziaWG 1.5 со встроенным генератором конфигураций. Быстрый и надежный VPN-протокол благодаря компактному коду и высокой эффективности.
+Лёгкий VPN-клиент для обхода блокировок. Оптимизирован под слабые устройства - быстро и стабильно.Тип издания: FreeПоддерживаемая ОС: Android 7.0 и вышеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63B2DEE88BE4C2D1E67DCBDF4FA34151CA94EBC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856487   (1058817) от 28.02.2026
+
+Logic Circuit Simulator Pro / Симулятор Логической Схемы v39.0.2 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Logic Circuit Simulator PRO предоставляет вам место для разработки собственной цифровой схемы. Хотите понять, как работает электроника? Приложение поможет вам изучить основы электроники и электротехники. Создавайте удивительные логические схемы со всеми предоставленными логическими элементами. Используйте различные элементы, чтобы развиваться, экспериментировать (   Читать дальше...   )Тип издания: ProРелиз состоялся: 27.02.2026Разработчик: Stefan BelinovПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3E463E36CFEE898BBA5E620A9BEF3DC3082E38B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856490   (1058816) от 28.02.2026
+
+HiPER Calc Pro v11.3.3 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощный и стильный научный калькулятор с обширными настройками внешнего вида. В наличии несколько удобных тем оформления, построение графиков и возможность поделиться подробным результатом вычислений в виде изображения. Поддерживается смена системы счисления. Реализовано вычисление превеликого числа функций.Тип издания: Pro / ModРелиз состоялся: 27.02.2026Разработчик: HiPER LabsПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D7EBDC3348E6BD2575559628D221A57A22BC3A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856495   (1058814) от 28.02.2026
 
 Eatr・Здоровые рецепты v2.52.0 Mod by vadj [Ru]
@@ -6,7 +111,7 @@ Eatr・Здоровые рецепты v2.52.0 Mod by vadj [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058814.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ Ventusky: Прогноз погоды v51.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058799.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ Mary’s recipes: рецепты, меню v7.3.0 Mod by Alex.Strannik [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058789.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058779.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ Signal for Android 7.74.5 Stable и 8.0.4 Pre-release [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058468.jpg" />
 </div>
 
 
@@ -138,7 +243,7 @@ Solid Explorer File Manager v3.4.1 + Plugins Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058153.jpg" />
 </div>
 
 
@@ -167,7 +272,7 @@ Grok - ИИ ассистент v1.1.30-release.12 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058152.jpg" />
 </div>
 
 
@@ -193,7 +298,7 @@ Exo Player - Видеоплеер и IPTV v3.0.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058042.jpg" />
 </div>
 
 
@@ -219,7 +324,7 @@ HiPER Calc Pro v11.3.2 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058040.jpg" />
 </div>
 
 
@@ -245,7 +350,7 @@ AdGuard Ad Blocker Premium [No-Root] v4.12.81 Final Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057993.jpg" />
 </div>
 
 
@@ -272,7 +377,7 @@ AdGuard Ad Blocker TV Premium Final [No-Root] v4.12.81 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057992.jpg" />
 </div>
 
 
@@ -299,7 +404,7 @@ Magic Eraser / Магический ластик v3.1.7 Mod by Maximoff⁠ [Ru/E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057991.jpg" />
 </div>
 
 
@@ -325,7 +430,7 @@ Words of Wonders: Игра в слова v5.5.4 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057990.jpg" />
 </div>
 
 
@@ -351,7 +456,7 @@ HDRezka TV v1.4.0 Mod by NibRut2244 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057989.jpg" />
 </div>
 
 
@@ -377,7 +482,7 @@ Signal for Android 7.73.2 Stable и 8.0.2 Pre-release [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057873.jpg" />
 </div>
 
 
@@ -405,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057846.jpg" />
 </div>
 
 
@@ -431,7 +536,7 @@ Remini / Улучшение Фото v3.7.1277.202519515 Mod by Mixroot [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057831.jpg" />
 </div>
 
 
@@ -457,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057830.jpg" />
 </div>
 
 
@@ -483,7 +588,7 @@ Win 11 Launcher v9.45 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057827.jpg" />
 </div>
 
 
@@ -509,7 +614,7 @@ Smart AudioBook Player Pro v11.6.6 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057780.jpg" />
 </div>
 
 
@@ -535,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057779.jpg" />
 </div>
 
 
@@ -562,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057778.jpg" />
 </div>
 
 
@@ -574,110 +679,6 @@ TV+: Бесплатное Онлайн Телевидение
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8660C4580C1AECD0EF05B28739021AC974330B11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854791   (1057767) от 19.02.2026
-
-ColorNote - Блокнот заметки v4.8.2 Mod by TRUMods [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057767.jpg" />
-</div>
-
-
-###  Подробнее
-
-ColorNote — ColorNote это простой блокнот. Он предоставит возможность легкого и простого пользования блокнотом при написании заметок, напоминаний, email, сообщений, перечней дел и покупок. С ColorNote создание заметок проще, чем с любыми другими блокнотами и органайзерами.Тип издания: ModРелиз состоялся: 16.02.2026Разработчик: NotesПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30A305D13B020AEC605510D56571DEBB148713AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854782   (1057764) от 19.02.2026
-
-ГдеПосылка v3.48 Mod by vadj [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057764.jpg" />
-</div>
-
-
-###  Подробнее
-
-ГдеПосылка — это универсальный и удобный сервис для отслеживания почтовых отправлений. Достаточно знать лишь трекинг-номер, чтобы легко найти посылку как в России, так и в США, Германии, Украине, Китае или Казахстане.Тип издания: AdfreeРелиз состоялся: 16.02.2026Разработчик: PackageRadarПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:928B3FACD904CE40DEF4C23E2AC23F95A6BDDB0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854796   (1057762) от 19.02.2026
-
-ЯПлакалъ v2.134 Mod Alex.Strannik [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057762.jpg" />
-</div>
-
-
-###  Подробнее
-
-Yaplakal.com — популярное информационно-развлекательное сообщество. Мы любим обсуждать интересные события и весело проводить время. Все материалы добавляют и оценивают пользователи. Работаем с 2004 года. Трижды лауреат Премии Рунета в категории "Сообщество Рунета". Официальное приложение для Android. У нас вы найдете: громкие мировые события, обсуждение (   Читать дальше...   )Тип издания: AdfreeРелиз состоялся: 19.02.2026Разработчик: Yaplakal.comПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDAE43A5D060A2246B303921DE0FBC6878827856
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854760   (1057761) от 19.02.2026
-
-Photo Studio PRO v2.9.1.4770 Mod by youarefinished [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Studio — не просто приложение для редактирования фотографий, в нем собраны необычные эффекты для фото. Подручный редактор фотографий добавит красок повседневным кадрам, подскажет как исправить фото. Интересные фильтры, неожиданные эффекты, потрясающий коллаж, веселые стикеры на фото: все то, чего мы ждем, выбирая редактор фото.Тип издания: Pro / ModРелиз состоялся: 12.02.2026Разработчик: KVADGroup App StudioПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6C50CDD5F498A1E88DFE8BEA1D5BD491B6DA64F
 ```
 
 https://mybot314.ru/tekegram_catalog/

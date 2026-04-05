@@ -1,3 +1,32 @@
+###  Публикация: 1632775   (198563) от 11.05.2023
+
+Синхронизация, Ольга Чуворкина, Анна Пронина и др. | Как смотреть картины (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы разработали курс так, чтобы вы получили подробную инструкцию, на что обращать внимание в живописи. И смогли посещать выставки как осознанный зритель.
+
+Чему вы научитесь
+- «Разбирать» картину на составляющие: замечать композицию, свет и цвет(   Читать дальше...   )Производство: СинхронизацияЖанр: ИскусствоЯзык озвучки: РусскийПродолжительность: 02:22:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE6DB8F2AC801BA3DAAC7280FD6F47E49511FB22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1632612   (198559) от 11.05.2023
 
 Kalacheva School, Вероника Калачева | Композиция силы. Вторая ступень (2023) WEB-DL [AD] [RU]
@@ -6,7 +35,7 @@ Kalacheva School, Вероника Калачева | Композиция си�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198559.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Enterclass, Мария Хаэт | Рисование карандашом (2023)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198545.jpg" />
 </div>
 
 
@@ -63,7 +92,7 @@ Productuniversity, Яна Чаруйская и др. | ИИ и для гене�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198533.jpg" />
 </div>
 
 
@@ -92,7 +121,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198526.jpg" />
 </div>
 
 
@@ -121,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198520.jpg" />
 </div>
 
 
@@ -149,7 +178,7 @@ Udemy, Alex Cordebard | The Ultimate Blender 3D Geometry Nodes Course (2023) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198444.jpg" />
 </div>
 
 
@@ -176,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198442.jpg" />
 </div>
 
 
@@ -205,7 +234,7 @@ FXPHD, Charles Chorein | HOU115 – Height Fields in Houdini, Part 1 (2022) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198430.jpg" />
 </div>
 
 
@@ -231,7 +260,7 @@ Kalacheva School, Вероника Калачева | Акварель Про 2.
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198393.jpg" />
 </div>
 
 
@@ -260,7 +289,7 @@ FXPHD, Charles Chorein | HOU116 – Height Fields in Houdini, Part 2 (2022) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198380.jpg" />
 </div>
 
 
@@ -286,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198368.jpg" />
 </div>
 
 
@@ -314,7 +343,7 @@ Watermedia, Татьяна Ширбидова | Базы акварели Сту
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198347.jpg" />
 </div>
 
 
@@ -342,7 +371,7 @@ LavandaSchool, Анастасия Чиркова | Цифровой портре
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198340.jpg" />
 </div>
 
 
@@ -371,7 +400,7 @@ FrontendMasters, Ben Callahan | Enterprise Design Systems Thinking (2023) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198332.jpg" />
 </div>
 
 
@@ -400,7 +429,7 @@ Enterclass, Ольга Паволга | Черно-белая фотографи
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198313.jpg" />
 </div>
 
 
@@ -426,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198299.jpg" />
 </div>
 
 
@@ -454,7 +483,7 @@ Bengala.art, Ирина Глушкова | Мини-курс NFT (2023) WEB-DL [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198295.jpg" />
 </div>
 
 
@@ -483,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198271.jpg" />
 </div>
 
 
@@ -509,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198269.jpg" />
 </div>
 
 
@@ -537,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198266.jpg" />
 </div>
 
 
@@ -565,7 +594,7 @@ FrontendMasters, Lydia Hallie | Advanced Front-End & JavaScript Questions (2023)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198259.jpg" />
 </div>
 
 
@@ -591,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198250.jpg" />
 </div>
 
 
@@ -620,7 +649,7 @@ Enterclass, Павел Шевелев | Вид из окна (2023) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198249.jpg" />
 </div>
 
 
@@ -648,7 +677,7 @@ Enterclass, Сергей Курбатов | Марафон. Тропинками
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198241.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198235.jpg" />
 </div>
 
 
@@ -685,32 +714,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64AB332887E2F0BC0C8573E9A620F50231CF6979
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634420   (198231) от 20.05.2023
-
-Lumos, Олег Грознов | Как правильно читать картины? (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198231.jpg" />
-</div>
-
-
-###  Подробнее
-
-В ходе мастер-класса мы узнаем, как понимать картины. Мы обсудим различные составляющие изобразительного искусства: сюжет, композицию, рисунок, колорит и многое другое.Производство: LumosЖанр: ИскусствоЯзык озвучки: РусскийПродолжительность: 01:34:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F24549B169C73734051D2D03916583A5A343B40
 ```
 
 https://mybot314.ru/tekegram_catalog/

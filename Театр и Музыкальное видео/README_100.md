@@ -6,7 +6,7 @@ Europakonzert 2004 from Athens BDRip [H.264/1080i-LQ] <сlassical>
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328404.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Clan Of Xymox "Visible" (2008) 2хDVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327604.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Bon Jovi - Super Rock (1984) VHSRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327548.jpg" />
 </div>
 
 
@@ -95,7 +95,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327495.jpg" />
 </div>
 
 
@@ -124,7 +124,7 @@ The London Rock and Roll Show (1972/2005) DVDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327350.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Wayra - Dreams of the Wind (2006) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326651.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ VA - Осенний марафон № 205 / Видеоклипы (Дискот�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326391.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Bon Jovi - Tokyo Road Live In Japan (1985) VHSRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325745.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Bon Jovi - Live At Nokia Theatre (2005) HDTVRip [H.264/1080i-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324870.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Bon Jovi - Rock in Rio V (2013) HDTVRip [H.264/1080i-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324836.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ The Beatles Anthology [Episode 1-4, русская озвучка М.Жолоб�
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323605.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323359.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Skrillex & The Doors. Breakn A Sweat (2012)  [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322590.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Metallica - Concerts and Video Compilation (1987-2004) TVRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322432.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ The Rolling Stones - Doom And Gloom (Uncensored Version) (2012)  [H.264/1080p] W
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322306.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322297.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Pain - We Come In Peace (2012) Blu-Ray [1080]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_322174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_322174.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Katy Perry - Live At Glastonbury (2017) HDTVRip [H.265/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322100.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Black Sabbath - Live... Gathered In Their Masses (2013) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321941.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Bon Jovi - Yokohama Stadium Japan Live (1996) VHSRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321751.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Sodom - Live Depravity (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321704.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Venom - Live In London 1985 (2004) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321588.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Overkill - Wrecking Everything (2002) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321581.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ VA - Осенний марафон № 206: Дискотека с размахо
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321245.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ Trey Songz. Never Again (2012) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321147.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ Chris Thrace feat. Glorya. Angel & Devil (2012) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321142.jpg" />
 </div>
 
 

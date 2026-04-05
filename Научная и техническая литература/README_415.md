@@ -1,136 +1,3 @@
-###  Публикация: 1067121   (387391) от 29.10.2016
-
-Б. А. Воронцов-Вельяминов | Строение Вселенной (1952) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга в занимательной форме рассказывает о строении Вселенной.Жанр: История, науковедение, астрономия, естествознаниеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C88882772C246D13DB600C81F326D51CFA56FE39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174324   (387363) от 14.10.2017
-
-Бернард Льюис | Арабы в мировой истории. С доисламских времен до распада колониальной системы (2017) [FB2, EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387363.jpg" />
-</div>
-
-
-###  Подробнее
-
-В классическом исследовании Бернарда Льюиса, одного из ведущих историков-востоковедов мира, рассматривается само понятие «араб» и место арабского народа в мировой истории с доисламских времен до победы движения за независимость и суверенитет в середине XX столетия. Автор прослеживает зарождение ислама и сопровождавшие его политические, религиозные и общественные (   Читать дальше...   )Жанр: История, РелигиоведениеФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F3C22B66444C5DA58C7B24B70EDB75D193E027D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325668   (387311) от 19.09.2019
-
-Ф. Энгельс | Развитие социализма от утопии к науке (1937) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работа "Развитие социализма от утопии к науке" возникла из трех глав труда Ф. Энгельса "Анти-Дюринг", переработанных им в самостоятельную книгу. В ней раскрыты историческая роль утопического социализма и его ограниченность, охарактеризованы предпосылки возникновения научного социализма, даны его главные положения. В книге Ф. Энгельс доказывает, (   Читать дальше...   )Жанр: История, политология, науковедение, философия, публицистикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A26C085EDB5D28FAC553BAE6A1067B5E088C0371
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326333   (387305) от 19.09.2019
-
-Брайан Китинг | Гонка за Нобелем (2019) [PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инсайдерская история о том, как ученые пытались открыть одну из главных тайн космологии и сбились с пути, обольщенные блеском Нобелевского золота. Каково это – быть очевидцем Большого взрыва? В 2014 году астрономы, вооруженные самым мощным в истории наземным радиотелескопом BICEP2, сочли, что увидели искру, воспламенившую Большой взрыв…Жанр: Научно-популярная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA25766DD9AEC3B70DBEEC4EC8B5F597F5037CF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174355   (387251) от 14.10.2017
-
-В.М. Соловьев | Нам нужна великая Россия (2012) [PDF, FB2, EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387251.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2012 году в нашей стране отмечался знаменательный юбилей – 1150-летие основания государства Российского.
-В глубину веков уходит история нашей Родины. Когда-то в древности она называлась Русью, а сравнительно недавно – Советским Союзом, или сокращенно СССР.
-Но большую часть времени своего существования Отечество наше носило то же имя, что и сейчас, – Россия.
-Россия (   Читать дальше...   )Жанр: ИсторияФормат: PDF, FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91AC01A01F1B32DAB7DCAFC9F6A954920C770A9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 571675   (387220) от 07.11.2012
 
 А.Г. Курош | Книги по математике [1967 - 1973] [DJVU]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387220.jpg" />
 </div>
 
 
@@ -165,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387192.jpg" />
 </div>
 
 
@@ -191,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387190.jpg" />
 </div>
 
 
@@ -218,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387187.jpg" />
 </div>
 
 
@@ -246,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387144.jpg" />
 </div>
 
 
@@ -273,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387100.jpg" />
 </div>
 
 
@@ -299,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387094.jpg" />
 </div>
 
 
@@ -326,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387024.jpg" />
 </div>
 
 
@@ -352,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387017.jpg" />
 </div>
 
 
@@ -378,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386996.jpg" />
 </div>
 
 
@@ -404,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386995.jpg" />
 </div>
 
 
@@ -430,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386984.jpg" />
 </div>
 
 
@@ -457,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386983.jpg" />
 </div>
 
 
@@ -483,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386964.jpg" />
 </div>
 
 
@@ -511,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386962.jpg" />
 </div>
 
 
@@ -537,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386950.jpg" />
 </div>
 
 
@@ -563,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386944.jpg" />
 </div>
 
 
@@ -590,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386863.jpg" />
 </div>
 
 
@@ -616,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386861.jpg" />
 </div>
 
 
@@ -642,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386858.jpg" />
 </div>
 
 
@@ -668,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386850.jpg" />
 </div>
 
 
@@ -679,6 +546,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90F032EFE6A4504AC38EE579C41C899045D80BE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326367   (386842) от 19.09.2019
+
+Александр Марков, Елена Наймарк | Перспективы отбора (2019) [FB2, EPUB, MOBI]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386842.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Главный герой» этой книги – естественный отбор. Способен ли он ещё удивлять биологов? Какие эволюционные процессы идут в современных человеческих популяциях? Угроза интеллектуальной деградации человечества – это страшилка или научный факт? Об интереснейших открытиях в эволюционной биологии продолжают рассказывать известные учёные и популяризаторы науки Александр (   Читать дальше...   )Жанр: БиологияФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B2280C575E8F8DD0FA5EEBD0E47E4DF4FA0A3C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066393   (386839) от 29.10.2016
+
+Коллектив авторов | Школа изобразительного искусства [10 книг] (1964-1968) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Практическое руководство для начинающих и самодеятельных художниковЖанр: Изобразительное искусствоФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF51084219A6159F2008CF408D81F637FC6C2CDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174383   (386801) от 14.10.2017
+
+Н.А. Кун | Легенды и мифы Древней Греции и Древнего Рима (2016) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386801.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Легенды и мифы Древней Греции» в изложении знаменитого исследователя античности Н.А. Куна уже давно стали классикой, без которой трудно представить себе детство или юность образованного человека.
+Данное издание подарит вам уникальную возможность познакомиться с работами Н.А. Куна в том виде, в каком они вышли в свет в 1914 г. «для учениц и учеников старших классов (   Читать дальше...   )Жанр: Мифы, Легенды, ЭпосФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD6EEB02AEAA13102CBB8B84E20A1FCA339787C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174396   (386796) от 14.10.2017
+
+Мэри Бирд | SPQR. История Древнего Рима (2017) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы встречаемся с образами и историей Древнего Рима в науке, литературе, искусстве. Но насколько близки к реальности наши представления об эпохе, на которую опирается вся западная цивилизация? Ведущий мировой специалист по древней истории Мэри Бирд в своей книге «SPQR: История Древнего Рима» объясняет, почему нам так важна римская история, каким образом маленький, (   Читать дальше...   )Жанр: Античная историяФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CF9644C1C3C3DB4FBF5437038B00DDD67D3E008
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067056   (386745) от 29.10.2016
+
+ICAO - IAMSAR | ИКАО - МАМПС 2013 (Том I,II,III) [3 книги] (2013) [PDF]
+
+>>Научная и техническая литература
+>>Нормативная документация
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386745.jpg" />
+</div>
+
+
+###  Подробнее
+
+МАМПС - Руководство по международному авиационному и морскому поиску и спасанию.
+Целью данного пособия является обеспечение руководства для тех, кто во время бедствия на море запрашивает помощь или кто сам может оказать такую помощь. В частности, оно предназначено для капитанов и помощников всех судов. Основная цель трех томов Руководства по международному авиационному (   Читать дальше...   )Жанр: РуководствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61DE97D6DD9EC83063C45DD3F9E73DA7C86A478D
 ```
 
 https://mybot314.ru/tekegram_catalog/

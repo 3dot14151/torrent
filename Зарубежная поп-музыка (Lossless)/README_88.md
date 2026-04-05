@@ -6,7 +6,7 @@ The Free Design - Butterflies Are Free: The Original Recordings 1967-72 (2020) 4
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110582.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Imagination - The Golden Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <R&B, Disco>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109792.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Xana - The Sex Was Good Until It Wasn't (2024) [FLAC|Lossless|WEB-DL|tracks] <Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109589.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Dance: Made in Italy (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109487.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Soft Relaxing Piano Music - Famous Piano Songs 2024: Piano Jazz Relax [FLAC|Loss
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109464.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ The Yum Yums - Poppin' Up Again (2024) [FLAC|Lossless|WEB-DL|tracks] <Power-Pop,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109420.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Cicero - For Broken Hearts (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108647.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Elton John - Captain Fantastic And The Brown Dirt Cowboy (1975) Reissue, 1995, R
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108310.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Gym Workout Pumped Up 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107868.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ GoGo Morrow - Ready Reloaded (2024) [FLAC|Lossless|WEB-DL|tracks] <R&B>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107845.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Raveena - Where the Butterflies Go in the Rain (2024) [FLAC|Lossless|WEB-DL|trac
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107843.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Lovejoy - Wake Up & It's Over (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107216.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Billie Piper - Something Deep Inside (2020) Remaster, 2024, Virgin Records[FLAC|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107158.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Climie Fisher - 3 Albums (1988-2020) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Sy
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107139.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Billie Piper - Walk Of Life (2CD) (2020-2024) [FLAC|Lossless|WEB-DL|tracks] <Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107104.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Maya Vik - Hustlebot (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Soul & Funk
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106986.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ The Rah Band - Orkestronique (2024) [FLAC|Lossless|WEB-DL|tracks] <synthpop, spa
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106984.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Sunshine Makers - Sunshine Makers (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106968.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Duran Duran - Meet El Presidente (1987) Remaster, 2024, Parlophone Records [FLAC
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106942.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Drupi - The Best of Drupi (2007) [WavPack|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106859.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Zucchero - Overdose D' Amore Tour (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106806.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Dalida - La Dolce Vita (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson franç
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106670.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Griff - Vertigo (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106646.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Duran Duran - Skin Trade (1987) Mix, 2024, Parlophone Records [FLAC|Lossless|WEB
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106560.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Fancy - Fancy For Fans (2005) [WavPack|Lossless|image + .cue] <Pop, Disco>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106437.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Florizel - Mon Amour (2007) [WavPack|Lossless|image + .cue] <Europop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106396.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ BBC: Борьба за жизнь / Fight for Life (2007) DVDRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_571336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_571336.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BBC: Освенцим (Аушвиц). Окончательное решение 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_571210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_571210.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ NGW: Слон: Король Калахари / Elephant. King of the Kalahari (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570902.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ NGW: Прекрасная Америка: Величественный Севе�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570759.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ NGW: Прекрасная Америка. На границе с дикой пр
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570631.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570627.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ NG: Последние животные / The Last Animals (2017) HDTV [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570507.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ BBC: Англия во времена Плантагенетов / The Plantagen
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569789.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ BBC: Борьба за выживание / BBC: The Trials of Life (1990) 4 х 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569729.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ BBC: Древний Египет: Великое открытие / BBC: Egypt (
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_569555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_569555.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ NG:  Дорога в ад / Descent into Hell (2002) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568680.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ NG.Запреты: Соединённые Штаты алкоголя / NG.Taboo
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568675.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Animal Planet: Дикая (Суровая) Арктика (1-4 серии) / Wil
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568267.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ BBC: Планеты / BBC: Planets (1999)
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_567815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_567815.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567025.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ NGW: Хищник в раю. Битва в джунглях / Predator in Paradi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566993.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Discovery: Искривление времени / Time Warp (2008) BDRip (Се�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566730.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566684.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ NG: Секреты Шамбалы. В поисках священных пеще
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566372.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ BBC: Мир природы. Маршруты песочника / Natural World.
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565756.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ NGW: В мире дикой природы. Долина смерти / Into The
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565736.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ NG: Кладбище воинов. Флотилия проклятых / Warrior
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565734.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Discovery: Мегамир. Мексика / Megaworld. Mexico (2011) HDTVRip [H.
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565727.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ NG: Живая Земля / X-Ray Earth (Faszination Erde) (2011) BDRip [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565691.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ BBC: Моцарт в Лондоне / Mozar in London (Lucy Worsley: Mozart's Lo
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565404.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ NG: С точки зрения науки: Великое оледенение /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563820.jpg" />
 </div>
 
 

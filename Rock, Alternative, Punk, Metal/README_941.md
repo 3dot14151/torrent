@@ -1,3 +1,32 @@
+###  Публикация: 1585687   (220716) от 23.10.2022
+
+Blakk Ledd - Heavy Metal Fans (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heavy Metal Fans
+02. Cold Trash Coming
+03. Bad Sign
+04. Ignite Your Life(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C8A0CD65F40AA5CF13E9843844830098B361627
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585628   (220705) от 23.10.2022
 
 Tom Hansen - Matters Of The Heart (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Westcoast, AOR>
@@ -6,7 +35,7 @@ Tom Hansen - Matters Of The Heart (2022) Japanese Edition [FLAC|Lossless|image +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220705.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Deep Purple - Turning to crime (2021) [FLAC|Lossless|image + .cue] <Classic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220694.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Stardrive - Kings And Slaves (2022) [MP3|320 Kbps] <Stoner Metal, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220667.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Dark Tranquillity - Moment (2020) 2xCD [FLAC|Lossless|image + .cue] <Melodic Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220658.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Solitude Within - 2 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220657.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220608.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Sede Vacante - 2 Albums (2016-2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220591.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Chez Kane - 2 Albums (2021-2022) [MP3|320 Kbps] <Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220568.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220562.jpg" />
 </div>
 
 
@@ -266,7 +295,7 @@ Lacrimorta - Lacrimorta (2022) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock, Gothi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220560.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ Richard Marx - HTV Music History (2001) 2 CD Unofficial Release [OGG Vorbis|480 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220549.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ Stonerboner - Bonerstone (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stone
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220479.jpg" />
 </div>
 
 
@@ -353,7 +382,7 @@ Heavenly - Carpe Diem (2009) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220472.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ Rainbow - On Stage 1977 (Deluxe Edition) (2CD) (2012) [MP3|320 кб/с]<Hard Roc
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220417.jpg" />
 </div>
 
 
@@ -413,7 +442,7 @@ Deep Purple - 24 Carat Purple (1975) Reissue, 1987, EMI [MP3|320 кб/с] <Сlas
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220325.jpg" />
 </div>
 
 
@@ -442,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220319.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ Cathalepsy - Blood and Steel (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_220261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_220261.jpg" />
 </div>
 
 
@@ -500,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220227.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220205.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220179.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220159.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ Leaves' Eyes - Black Butterfly (2019) EP [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220118.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ White Ward - Love Exchange Failure (2019) [FLAC|Lossless|Web-DL|tracks] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220104.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ StoneWire - Life As We Know It (2019) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220096.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ Running Wild - Crossing the Blades (2019) EP [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220056.jpg" />
 </div>
 
 
@@ -717,35 +746,6 @@ Running Wild - Crossing the Blades (2019) EP [MP3|320 Kbps] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFD0D26444B8E0377401FE99A4D38617AA3EC825
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966481   (220002) от 17.12.2015
-
-Bloodhound Gang - Hard-Off (2015) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Punk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Dad Says That's For Pussies
-02. Dimes
-03. American Bitches
-04. Chew Toy(   Читать дальше...   )Жанр: Alternative, Punk-RockПродолжительность: 00:38:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:374408E7C58FC12E69A537EB3ACEE98BCE6811A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

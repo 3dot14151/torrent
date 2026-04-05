@@ -1,3 +1,32 @@
+###  Публикация: 380440   (500835) от 26.08.2011
+
+VA - На зарядку становись! Новые песни о спорте (2008) [MP3|320 kbps]<Детские песенки и музыка>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500835.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зарядка:
+001. День с зарядки начинай!
+002. Пробежка
+003. Потягушки(   Читать дальше...   )Жанр: Детские песенки и музыкаПродолжительность: 04:49:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C67C20F2C969BD9E4647FC4DCCD9E94B31B4DD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1317545   (500492) от 01.08.2019
 
 Фрэнсис Элиза Бёрнетт | Маленькая принцесса (Радиоспектакль) (2019) [MP3]
@@ -6,7 +35,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500492.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499748.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499711.jpg" />
 </div>
 
 
@@ -84,7 +113,7 @@ VA - Музыкальные сновидения - джаз для всех (200
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499093.jpg" />
 </div>
 
 
@@ -113,7 +142,7 @@ VA - Бодрящая классика (2011) [MP3|320 кб/с]<Классика
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498373.jpg" />
 </div>
 
 
@@ -142,7 +171,7 @@ VA - Музыка для беременных [MP3|128] <Classical>
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498364.jpg" />
 </div>
 
 
@@ -171,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498086.jpg" />
 </div>
 
 
@@ -197,7 +226,7 @@ VA - Любимые песни детства (2006) [MP3|320 kbps]<Детски
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495447.jpg" />
 </div>
 
 
@@ -226,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495316.jpg" />
 </div>
 
 
@@ -255,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494992.jpg" />
 </div>
 
 
@@ -281,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494931.jpg" />
 </div>
 
 
@@ -308,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494262.jpg" />
 </div>
 
 
@@ -334,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493337.jpg" />
 </div>
 
 
@@ -363,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493336.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493333.jpg" />
 </div>
 
 
@@ -417,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493223.jpg" />
 </div>
 
 
@@ -444,7 +473,7 @@ VA - Песни для детей из кинофильмов (2007) [MP3|320 kb
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493061.jpg" />
 </div>
 
 
@@ -473,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492719.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492453.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492449.jpg" />
 </div>
 
 
@@ -553,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491013.jpg" />
 </div>
 
 
@@ -580,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_490952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_490952.jpg" />
 </div>
 
 
@@ -606,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490946.jpg" />
 </div>
 
 
@@ -632,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490894.jpg" />
 </div>
 
 
@@ -661,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490892.jpg" />
 </div>
 
 
@@ -673,35 +702,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC09B368197FED812F187105C18D83B4C61BD3CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318953   (490758) от 08.08.2019
-
-Дария Мазанова | Аудиосказки. Волшебный фонарь (1 сезон) (2019) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490758.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Остовок сокровищ
-2. Робинзончик Крузо
-3. Маленький капитан
-4. Маленький принц и маленький нищий(   Читать дальше...   )Жанр: Детские сказкиПродолжительность: 02:33:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C67D29B92DE71351446FC1EC2DA26417BB76E0D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

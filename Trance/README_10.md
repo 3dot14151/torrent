@@ -1,3 +1,61 @@
+###  Публикация: 1200249   (796410) от 20.01.2018
+
+VA - Your Running Music 11 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sl4tch feat. Doris Stadler - In a Game 02:37
+02. The Boogeyman - Be Free (Radio Edit) 03:03
+03. Mr. Groove - Mouraria (Radio Edit) 03:20
+04. Dr. Beat - How About You (Radio Edit) 03:02(   Читать дальше...   )Жанр: TranceПродолжительность: 02:09:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3800EB9FCABDCBFBA77AE66167B7A7481A222E6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011822   (796357) от 28.04.2016
+
+Markus Schulz - Watch The World (2016) [MP3|320 кб/с] <Trance, Progressive House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz - Code 10-66 (02:41)
+02. Markus Schulz feat. Brooke Tomlinson - In The Night (03:53)
+03. Markus Schulz feat. Ethan Thompson - Love Me Like You Never Did (04:23)
+04. Markus Schulz feat. Delacey - Destiny (03:48)(   Читать дальше...   )Производство: Black Hole RecordingsЖанр: Trance, Progressive HouseПродолжительность: 01:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D66412A880D40C21B7D0CCAF87D0DE54AFB97F39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274172   (795054) от 05.01.2019
 
 VA - FSOE Clandestine: Best Of (2018) [MP3|320 Kbps] <Trance>
@@ -6,7 +64,7 @@ VA - FSOE Clandestine: Best Of (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795054.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Clubbers Culture: Trancefields 003 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795021.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Indecent Noise - Everything Is Connected (Expanded & Extended) (2021) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795002.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Dark Uplifting Vol.3 (2018) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794979.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Damian Wasse - Music Colours (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794978.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Activa - Origins (2021) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794941.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Melodic Trance Vol. 1 (2016) [MP3|320 кб/с] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794809.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Always Alive Recordings: Best Of 2018 (Mixed by Daniel Kandi) (2018) [MP3|3
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794164.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Mysterious Station Dark The Best Of 2017 (Mixed by Dr Riddle) (2018) [MP3|3
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794069.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Black Hole Trance Music 11-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792934.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - True Hits Vol.2 (2018) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792880.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Vocal Trance Hits 2018 Vol.1 (2018) [MP3|320 Kbps] <Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792691.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Best Of LW Trance III (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791153.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Ferry Corsten presents Corsten's Countdown January (2018) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791054.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Trance 100 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790977.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Damaged Presents Charged (Mixed by Jordan Suckley & Coming Soon!!!) (2018) 
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790549.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Uplift Underground (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789950.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Progressive Trance Selections Vol.02 (2018) [MP3|320 Kbps] <Trance, Progres
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789946.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Soundport Recordings. The Best Of 2016 (Mixed by Dr Riddle) (2018) [MP3|320
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789543.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Neostatics Sounds Best Of 2017 (2018) [MP3|320 Kbps] <Trance ,House>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789541.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - FG Top 10: January (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789538.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Base Hits Vol.3 (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789536.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Uplifting Trance Sessions Vol. 05 (2018) [MP3|320 Kbps] <Trance,Uplifting T
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789110.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Best Of The Best Suanda Vol 4 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789096.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Best Of The Best Suanda Vol 4 (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B098BD1620907F116F3CF8F489765DBF514D2945
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276046   (789074) от 14.01.2019
-
-VA - Restricted Dance Reloaded (2019) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bomb N Amato - Can't Stop Raving (Single Mix)
-02. Rave Vegas - Hardcore Vibes (Calvo Edit)
-03. Stereo Palma feat. Myra - Because The Night (Roberto Rios x Dan Sparks Remix Edit)
-04. Freischwimmer feat. Jason Anousheh - Get it on Tonite(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:05:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8065530E86DD75B7E79559B0C17C99E92AF60176
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203256   (788669) от 01.02.2018
-
-Lostly - Outburst presents Spotlight (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lostly – Since (Album Mix)
-02. Lostly – The Art of Acid (Album Mix)
-03. Lostly & Emma Gillespie – Nightwalker feat. Emma Gillespie (Album Mix)
-04. Lostly – Rage at the Stars (Album Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:13:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83EF9F4766BFDEB6EA8E6012858A61D4D8004437
 ```
 
 https://mybot314.ru/tekegram_catalog/

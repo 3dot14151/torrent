@@ -1,3 +1,59 @@
+###  Публикация: 804412   (808734) от 27.03.2017
+
+VA - Magic Island: Music For Balearic People Vol.1-7 (Mixed by Roger Shah) (2008-2016) [FLAC|Lossless|WEB-DL]<Trance, Balearic Trance,Progressive Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brian Laruso & John James Renfrow - Holding Closer (Intro Mix) [05:22]
+02. Rogier Dulac & Miss Autumn Leaves - Endless Dream (Original Mix) [05:08]
+03. Brian Laruso - The Way (Original Mix) [05:38]
+04. Raul Pablo Sanchez - Day Out (Original Mix) [06:53](   Читать дальше...   )Жанр: Trance, Balearic Trance,Progressive TranceПродолжительность: 30:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13AEEF7E3CC1FEFCAAE176316A66737E57CE66D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019586   (808546) от 27.03.2017
+
+Label Pack - Future Sound Of Egypt Recordings (FSOE) - 223 Releases (2009 - 2017) [MP3|320 кб/с] <Trance , Uplifting Trance , Progressive Trance>
+
+>>Electronic
+>>Label-Packs
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Heaven (Radio Edit) (3:40)
+02. All Heaven (Extended Mix) (7:06)Жанр: Trance , Uplifting Trance , Progressive TranceПродолжительность: 00:10:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3F35CEDFA56FCEA8BD86686FC73FB4D1413E947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198236   (808402) от 11.01.2018
 
 VA - Alfa Romeo La Meccanica Delle Emozioni (2017) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -6,7 +62,7 @@ VA - Alfa Romeo La Meccanica Delle Emozioni (2017) [MP3|320 Kbps] <Balearic, Dow
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808402.jpg" />
 </div>
 
 
@@ -35,7 +91,7 @@ VA - House Progressive Resistant (2016) [MP3|320 кб/с] <House, Progressive Ho
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808356.jpg" />
 </div>
 
 
@@ -64,7 +120,7 @@ VA - Electrotastic Vol.21 (Everyone Wants Electro) (2016) [MP3|320 кб/с] <Hou
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808355.jpg" />
 </div>
 
 
@@ -93,7 +149,7 @@ Accelera Deck - Perfect Nostalgia Beach Rave (2020) [FLAC|Lossless|WEB-DL|tracks
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808280.jpg" />
 </div>
 
 
@@ -122,7 +178,7 @@ VA - The Best Of Liquid Soul (2018) [MP3|320 Kbps] <Psy-Trance, Progressive>
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808146.jpg" />
 </div>
 
 
@@ -151,7 +207,7 @@ VA - Ibiza Megamix 2020 [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808144.jpg" />
 </div>
 
 
@@ -180,7 +236,7 @@ Pessimist - Pessimist Discography 2011 - 2016 (2019) Pessimist Productions [FLAC
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808141.jpg" />
 </div>
 
 
@@ -209,7 +265,7 @@ VA - Progressive House Trance 2020 Top 40 Chart Hits, Vol. 2 DJ Mix 3Hr (2020) [
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808137.jpg" />
 </div>
 
 
@@ -238,7 +294,7 @@ VA - Milchbar - Seaside Season 8 (Compiled By Blank & Jones) (2016) [MP3|320 к�
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808123.jpg" />
 </div>
 
 
@@ -267,7 +323,7 @@ VA - Global Underground: Afterhours (2016) [MP3|320 кб/с] <House, Deep House,
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808116.jpg" />
 </div>
 
 
@@ -296,7 +352,7 @@ VA - Outliers​:​1 (2020) Samurai Music [FLAC|Lossless|WEB-DL|tracks] <Drum n
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808001.jpg" />
 </div>
 
 
@@ -325,7 +381,7 @@ Roger Shah - Music For Meditation, Yoga & Other Wellbeing Moments (2016) [MP3|32
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807984.jpg" />
 </div>
 
 
@@ -354,7 +410,7 @@ Triplex - Катапульта (2003) [FLAC|Lossless|tracks + .cue] <House, Tran
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807969.jpg" />
 </div>
 
 
@@ -383,7 +439,7 @@ Riz Maslen (Neotropic, Small Fish with Spine) - Discography 20 Releases (1996-20
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807722.jpg" />
 </div>
 
 
@@ -412,7 +468,7 @@ Mr.Kitty - Time (2014) [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, New Wave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807702.jpg" />
 </div>
 
 
@@ -441,7 +497,7 @@ VA - Lazy Weekend: Kick Back to the Coolest and Most Chilled-Out Beats (2017) [M
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807600.jpg" />
 </div>
 
 
@@ -470,7 +526,7 @@ VA - Turn It Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807599.jpg" />
 </div>
 
 
@@ -499,7 +555,7 @@ VA - Dreams Builder 10th Potion (2017) [MP3|320 Kbps] <Downtempo, Chillout, Loun
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807597.jpg" />
 </div>
 
 
@@ -528,7 +584,7 @@ Boris Brejcha - 22 (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, Minimal>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807576.jpg" />
 </div>
 
 
@@ -557,7 +613,7 @@ VA - Progressive House Spring Essentials (2017) [MP3|320 Kbps] <Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807494.jpg" />
 </div>
 
 
@@ -586,7 +642,7 @@ Scooter - Age Of Love (20 Years Of Hardcore Expanded Edition) (2013) [3CD|FLAC|L
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807279.jpg" />
 </div>
 
 
@@ -612,7 +668,7 @@ Shingo Nakamura - Best of Shingo Nakamura (2017) [MP3|320 Kbps] <House,Progressi
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807110.jpg" />
 </div>
 
 
@@ -638,7 +694,7 @@ Floog - Ambele EP (2018) [FLAC|Lossless|Vinyl|tracks] <Techno, Tech House, Minim
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806378.jpg" />
 </div>
 
 
@@ -666,7 +722,7 @@ Michał Wolski (Michal Wolski) - Collection 8 Releases (2012-2017) [FLAC|Lossles
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806374.jpg" />
 </div>
 
 
@@ -680,64 +736,6 @@ Michał Wolski (Michal Wolski) - Collection 8 Releases (2012-2017) [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BF32EAB033197DB1167D6065C6AA25D82896553
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198267   (806372) от 12.01.2018
-
-VA - Supermoon Chilling Tunes (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lo-Fi>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sweetadelic  -  Figures Of Repetition  5:51
-02.  PNP  -  Falling  4:00
-03.  Alberto Margheriti  -  Blue Away  3:49
-04.  Oliver Russ  -  Galaxy (Relex Version)  7:00(   Читать дальше...   )Жанр: Downtempo, Chillout, Lo-FiПродолжительность: 03:00:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:955E519F0DA1AD116561592B5DEC9EA3044A6C8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198530   (806368) от 12.01.2018
-
-Chronos - Inner Darkness (2017) [MP3|320 Kbps] <Ambient, Psychill, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inner Darkness
-02. I’m Not Pretty
-03. NESK (Mother Healing Version)
-04. Anatomy Of The Fear(   Читать дальше...   )Жанр: Ambient, Psychill, DowntempoПродолжительность: 01:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D749510C75C9A3AEA164F30210122C04A38AE19
 ```
 
 https://mybot314.ru/tekegram_catalog/

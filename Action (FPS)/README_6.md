@@ -1,3 +1,55 @@
+###  Публикация: 1104073   (882788) от 13.02.2017
+
+Tom Clancy's Ghost Recon (2001) [En/Ge] (1.4.0.0) License GOG
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восточная Европа, 2008 год. На границах с Россией бушует война, от ее исхода зависит судьба всего мира. Пора вызывать на подмогу элитное спецподразделение армии США – отряд «Призраков», до зубов вооруженных новейшими технологиям и в совершенстве владеющих искусством убивать. Задача этих бойцов – расчистить путь для миротворцев НАТО и предотвратить глобальный конфликт, (   Читать дальше...   )Тип издания: LicenseРазработчик: Red StormЖанр: Action (Tactical, Shooter), 3D, 1st Person, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB7A076A093F731166A160E4F870509A0A58A802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103975   (882675) от 13.02.2017
+
+Dark Shores (2017) [En] (1.0) License CODEX
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dark Shores – хоррор на выживание с перманентной смертью и запутанными сюжетными линиями. Роскошный круизный лайнер с пятью юными туристами на борту терпит катастрофу на отдаленном острове, находящемся где-то в глубине южной части Тихого океана. Спустя некоторое время выжившие начинают понимать, что обеспечение себя пропитанием и забота о крыше над головой, это наименьшее (   Читать дальше...   )Тип издания: LicenseРазработчик: LABS GamesЖанр: Adventure (Survival), 1st Person, IndieЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4F0340583BB7F356777871818370D99ED859FA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1301486   (881329) от 05.04.2020
 
 SiN (1998) [En] (1.13b/dlc) License GOG [Gold]
@@ -6,7 +58,7 @@ SiN (1998) [En] (1.13b/dlc) License GOG [Gold]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881329.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880282.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Thief (2014) [Ru/En] (1.7 u8/dlc) Repack R.G. Games [Master Thief Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876864.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Unknown Battle (2016) [Ru/En] (1.0) License FANiSO
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_876581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_876581.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ Borderlands 2 (2013) [Ru/En] (1.8.4/dlc) Repack R.G. Механики [Game of t
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872400.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ DOOM VFR (2017) [Ru/Multi] (6.1.1.1930) Repack xatab [VR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872165.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ ANNIE: Last Hope (2020) [Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872161.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ Obscuritas (2016) [En/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870988.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ Medal of Honor: Pacific Assault (2004) [Multi] (1.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870229.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ Star Trek: Elite Force II (2003) [En] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869370.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ Star Trek: Voyager Elite Force (2000) [Multi] (1.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869368.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ Shadow Warrior: Anthology (1997-2016) [Ru/Multi] (1.1.6/1.5.0/1.1.2/1.1.9.0/dlc)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869140.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ NecroVisioN: Lost Company / NecrovisioN Проклятая Рота (2010) [Ru] 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869125.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ NecroVision (2009) [Ru] (1.2) SteamRip Let'sPlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867219.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ Beyond Enemy Lines (2017) [En] (30120) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867212.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ The Town of Light (2016) [Ru/Multi] (2.2/dlc) Repack Other s [Limited Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865912.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ NecroVision (2009) [Ru] (1.2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865475.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ Burn / Пекло (2007) [Ru] (1.0) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861963.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ Absent Mind (2017) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861903.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ Soldier of Fortune: Payback (2007) [En] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860902.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ Among the Innocent: A Stricken Tale (2017) [En] (1.004) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860111.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ Far Cry Franchise [Ru/En/Multi] (Steam-Rip) 2004-2012 | R.G. Игроманы
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857708.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ DESYNC (2017) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851389.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ Quake: Enhanced (2021) [Ru/Multi] (7211438/dlc) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850670.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ Quake - революционный шутер от первого лица в с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9BA42256A90D879FDCBF3F8789DEDD7368A38C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111365   (847764) от 05.03.2017
-
-Rogue Warrior (2009) [Ru] (1.0) License
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный персонаж игры - знаменитый Дик Марсинко, основатель Шестой группы «морских котиков» (SEAL Team Six), лучший профессиональный солдат, прославившийся непримиримостью к врагам. В ходе проведения секретной операции за железным занавесом погибли все бойцы его диверсионной группы. Марсинко остался один. Но миссия должна быть выполнена любой ценой!Тип издания: LicenseРазработчик: Rebellion DevelopmentsЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E799057CD029924D6A2165C78CFCF607B0B32600
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499537   (847280) от 02.10.2021
-
-In Sound Mind (2021) [Ru/Multi] (1.01.0916) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы просыпаетесь в коридорах странного здания, где окружающая обстановка живёт своей жизнью и приводит вас к нескольким жертвам, каждая из которых пережила одну и ту же экспериментальную терапию. Пока вы пытаетесь разобраться в происходящем, вам являются жуткие видения, леденящие душу кошмары... и кошка Tonia. Создатели культовой классической игры Nightmare House (   Читать дальше...   )Тип издания: RepackРазработчик: We Create StuffЖанр: Action (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60977E824796647679A03CCF2DBF41DE6486AA97
 ```
 
 https://mybot314.ru/tekegram_catalog/

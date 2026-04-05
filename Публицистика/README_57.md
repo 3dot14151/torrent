@@ -1,3 +1,29 @@
+###  Публикация: 1252874   (387573) от 07.10.2018
+
+Надия Мурад | Последняя девушка. История моего плена и моё сражение с «Исламским государством» (2018) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387573.jpg" />
+</div>
+
+
+###  Подробнее
+
+15 августа 2014 года жизнь Надии Мурад закончилась. Боевики «Исламского государства» разрушили ее деревню и казнили ее жителей – мужчин, отказавшихся принять ислам, и женщин, слишком старых, чтобы стать сексуальными рабынями. Мать, отец и шестеро братьев Надии были убиты. А ее саму вместе с тысячами других езидских девушек продали в сексуальное рабство. Надию удерживали (   Читать дальше...   )Жанр: Биографии и Мемуары; ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C50124B594631F0F3CDB30274DC117F09CFB4255
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1174318   (387532) от 14.10.2017
 
 Зоран Аврамович | Демократия и бомбардировки. Есть ли будущее у демократии? (2017) [FB2, EPUB]
@@ -6,7 +32,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387532.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387522.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387459.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387371.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387357.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387321.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387248.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387236.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387147.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386804.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385332.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385294.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383628.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383625.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383534.jpg" />
 </div>
 
 
@@ -406,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383520.jpg" />
 </div>
 
 
@@ -432,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383423.jpg" />
 </div>
 
 
@@ -460,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383034.jpg" />
 </div>
 
 
@@ -486,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382840.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382456.jpg" />
 </div>
 
 
@@ -539,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381321.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ A. Л. Нарочницкий (отв. ред.) | СССР в борьбе за 
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381091.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381090.jpg" />
 </div>
 
 
@@ -619,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380934.jpg" />
 </div>
 
 
@@ -645,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380759.jpg" />
 </div>
 
 
@@ -656,32 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90C41D4647872EBCE2870E26FA6506321A3C7747
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949001   (379474) от 22.10.2015
-
-Алексей Навальный, Адам Михник | Диалоги (2015) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379474.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из лидеров польской Солидарности, одержавшей в конце 1980-х победу над коммунистическим режимом, и лидер российской оппозиции, чья историческая победа еще впереди, – им есть о чем поговорить. Методы политической борьбы, неизбежные реформы, люстрация, оценка постсоветского транзита в России и странах Восточной Европы и ситуация сегодняшнего дня – в диалоге двух (   Читать дальше...   )Жанр: Публицистика, обществоФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE2008B6FC9687118D3DB88702371E2722091092
 ```
 
 https://mybot314.ru/tekegram_catalog/

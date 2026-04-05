@@ -1,3 +1,86 @@
+###  Публикация: 1317621   (500354) от 01.08.2019
+
+Яцек Пекара | Прикосновение зла (2015) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это он, инквизитор и Слуга Божий, человек глубокой веры.
+Это две мини-повести, героем которых является Мордимер Маддердин, полный веры и энтузиазма молодой инквизитор.
+Почему богатый купец хочет утопить в кипящей смоле обожаемого сына? Почему честный патриций жестоким образом убивает свою возлюбленную жену? Мордимер Маддердин должен выяснить, какая сила толкает людей (   Читать дальше...   )Жанр: Фантастика, Фэнтези, МистикаПеревод: seregaistorikФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EDEE5AB6F71C04743F4643A4F4A4239C4B85599
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317617   (500352) от 01.08.2019
+
+Яцек Пекара | Башни до неба (2015) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500352.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Девушки Мясника»
+Красивые девушки погибают от рук жестокого серийного убийцы. Разгадать тайны убийств берётся мастер Кнотте. Старому и многоопытному инквизитору помогает искренне его ненавидящий Мордимер Маддердин.
+
+«Башни до неба»(   Читать дальше...   )Жанр: Фантастика, Фэнтези, МистикаПеревод: seregaistorikФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5B4AC85D11270D65507CD85FD4D8EA2B5A0081B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317623   (500350) от 01.08.2019
+
+Яцек Пекара | Ловцы душ (2012) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет разворачивается в альтернативной реальности раннего возрождения. В истории этой вселенной, в 33 году Христос не умер на кресте, а истребил своих врагов и взял власть над миром. Царство Иисуса в изменённом виде длится до современности героя, возглавляемое фанатичным духовенством и Инквизиториумом – организацией, уничтожающей любые проявления ереси. Но это также (   Читать дальше...   )Жанр: Фантастика, Фэнтези, МистикаПеревод: seregaistorikФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90DAEEBC7202313F66106E4C108D02DD1462718F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1317624   (500347) от 01.08.2019
 
 Яцек Пекара | Пламя и крест [Том 1] (2012) [FB2]
@@ -6,7 +89,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500347.jpg" />
 </div>
 
 
@@ -34,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499651.jpg" />
 </div>
 
 
@@ -60,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499237.jpg" />
 </div>
 
 
@@ -86,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498625.jpg" />
 </div>
 
 
@@ -112,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498496.jpg" />
 </div>
 
 
@@ -138,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497215.jpg" />
 </div>
 
 
@@ -164,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497203.jpg" />
 </div>
 
 
@@ -193,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497091.jpg" />
 </div>
 
 
@@ -219,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496062.jpg" />
 </div>
 
 
@@ -245,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495941.jpg" />
 </div>
 
 
@@ -271,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495539.jpg" />
 </div>
 
 
@@ -297,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495535.jpg" />
 </div>
 
 
@@ -323,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495264.jpg" />
 </div>
 
 
@@ -352,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494982.jpg" />
 </div>
 
 
@@ -378,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493799.jpg" />
 </div>
 
 
@@ -404,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493559.jpg" />
 </div>
 
 
@@ -431,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493112.jpg" />
 </div>
 
 
@@ -457,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493038.jpg" />
 </div>
 
 
@@ -483,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492873.jpg" />
 </div>
 
 
@@ -511,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491842.jpg" />
 </div>
 
 
@@ -539,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491633.jpg" />
 </div>
 
 
@@ -567,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491012.jpg" />
 </div>
 
 
@@ -593,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490293.jpg" />
 </div>
 
 
@@ -607,85 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:922DB27BF91439C00A7B575F62D1DD75AD6244C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055081   (490287) от 21.09.2016
-
-Инна Тронина | Четвёртая четверть (2016) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весной 1996 года в Москве погибли брат и сестра Колчановы – Родион и Ксения. Они явно стали жертвами жестокого маньяка. Некоторое время спустя обнаружились и другие погибшие – предположительно, от рук того же убийцы. Среди них оказались как взрослые, так и дети, причём обоего пола. Никто не мог понять, по какому признаку убийца выбирал себе очередную жертву. По просьбе (   Читать дальше...   )Жанр: Криминальные боевики, Крутой детектив, Современные детективыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88F80C61BD9419664B225F0F4EB69522FF0279ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243695   (490098) от 28.08.2018
-
-Оксана Чекменёва | Спаситель под личиной, или Неправильный орк (2018) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он был предан самым близким другом, лишён магии и обречён на страшную смерть. В последнюю минуту его спасает очень странный, какой-то «неправильный» орк, в итоге оказавшийся совсем не орком. Заботится, лечит, несёт к тем, кто сможет помочь. И скрывает что-то ещё, помимо своей настоящей расы и удивительных способностей.
-Она может превращаться в любое живое существо (   Читать дальше...   )Жанр: Любовное фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77A4DE022E6670B32A27727170D3D1C231B1F689
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937395   (490067) от 14.09.2015
-
-Ольга Кай | Невеста императора (2015) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совершенное средь бела дня убийство, странный желтоглазый незнакомец, безликие преследователи, похожие на черные тени — все это внезапно обрушивается на самую обыкновенную девушку, жизнь которой меняется в одночасье. Под влиянием шантажа Александра соглашается на роль приманки и попадает в другой мир, в котором ей еще предстоит пройти «и огонь, и воду».Жанр: ФэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C2B4306AC4F2D1904053C63AE917B7A8CA73D65
 ```
 
 https://mybot314.ru/tekegram_catalog/

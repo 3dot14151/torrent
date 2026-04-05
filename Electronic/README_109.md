@@ -1,3 +1,61 @@
+###  Публикация: 1379445   (839557) от 29.04.2020
+
+VA - Touched By Silence (The Compilation) (2019) Touched Music [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apertures – Missing Skies (05:32)
+02. James Bernard – Repose (04:20)
+03. The Orb – Don't Let It Go To Your Head (The Orb's Smellosound Mix) (04:51)
+04. David Morley – Vertical System (04:29)(   Читать дальше...   )Жанр: Ambient, IDM, ExperimentalПродолжительность: 02:19:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE9BD7A2AAF9C0A4691DBE002B1B6FCA68966BBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379605   (839556) от 29.04.2020
+
+Above & Beyond - Anjunabeats Essentials (2020) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond – Is It Love? (1001) (Grum Remix) (05:18)
+02. Boom Jinx – Phoenix From The Flames feat. Justine Suissa (Maor Levi Remix) (05:52)
+03. Gabriel & Dresden – Something Bigger (feat. Sub Teal) (04:45)
+04. Grum – Running (feat. Jinadu) (05:15)(   Читать дальше...   )Жанр: Progressive House, Tech TranceПродолжительность: 01:08:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0FD354E677374363BAD9F6C7C7C86566B7C28FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1379580   (839450) от 29.04.2020
 
 VA - Extreme Sports Music Vol 2 (2020) [MP3|320 Kbps] <Electro House>
@@ -6,7 +64,7 @@ VA - Extreme Sports Music Vol 2 (2020) [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839450.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Extreme Sports Music Vol 3 (2020) [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839440.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Extreme Sports Music Vol 1 (2020) [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839333.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Silvis Silentii - The Sounds of Nature (2016-2020) (2020) [FLAC 2.0|44.1/24|trac
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839200.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Wanderwelle - Discography 7 Releases (2015-2020) Silent Season [FLAC|Lossless|WE
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838922.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - HeavensGate vol.3 Aluminium Edition (Mixed by Alex M.O.R.P.H B2B Woody Van 
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838713.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ Marbert Rocel - In The Beginning: Remixes (2017) [FLAC|Lossless|WEB-DL|tracks] <
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838641.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ VA - Dumbbell Training Overcome Your Weakness (2017) [MP3|320 Kbps] <Deep House,
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838548.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ V.A. - House Del Mar (2016) [FLAC|Lossless|WEB-DL|tracks] <House, Electro>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838543.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ B-Movie - Climate of Fear (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic Pop R
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838319.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ Motorcitysoul - Technique (2008) [FLAC|Lossless|tracks + .cue] <Deep House, Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838183.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ Munich Syndrome - 4 Albums (2006-2012) [MP3|320 кб/с] <Electronic, Synth-pop,
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838177.jpg" />
 </div>
 
 
@@ -352,7 +410,7 @@ Microsha 89 - Микшер русской кибернетики #206 (2021) [MP
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838124.jpg" />
 </div>
 
 
@@ -381,7 +439,7 @@ VA - Spacedance, Vol. 1-3 (2021) [MP3|320 Kbps] <Spacedance, Synthwave, Retrowav
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838115.jpg" />
 </div>
 
 
@@ -410,7 +468,7 @@ Lemna - The Five Elements (2019) Horo [FLAC|Lossless|WEB-DL|tracks] <Techno, Exp
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837709.jpg" />
 </div>
 
 
@@ -437,7 +495,7 @@ Juta Takahashi - Collection 7 Releases (2007-2019) Lunisolar Records [FLAC|Lossl
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837701.jpg" />
 </div>
 
 
@@ -466,7 +524,7 @@ VA - WMC Miami Pool Beats 2017 (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836820.jpg" />
 </div>
 
 
@@ -495,7 +553,7 @@ VA - Serenity Sexy Lounge & Chill out Pearls Vol 4 (2016) [MP3|320 кб/с] <Dow
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836785.jpg" />
 </div>
 
 
@@ -524,7 +582,7 @@ VA - Dont Worry Be Sexy Vol.1: 20 Deep-House Flavors (2017) [MP3|320 Kbps] <Funk
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836716.jpg" />
 </div>
 
 
@@ -553,7 +611,7 @@ VA - Yoga Love 100 Ambient And Chillout Tracks (2016) [MP3|320 Kbps] <Downtempo,
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836704.jpg" />
 </div>
 
 
@@ -582,7 +640,7 @@ Markus Schulz - Global DJ Broadcast (Global DJ Broadcast World Tour, District At
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836674.jpg" />
 </div>
 
 
@@ -611,7 +669,7 @@ VA - Spacedance, Vol. 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Spacedance, Spaces
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836565.jpg" />
 </div>
 
 
@@ -640,7 +698,7 @@ Super8 & Tab - Empire 10 (Part 2) (2021) Remixes [FLAC|Lossless|WEB-DL|tracks] <
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836562.jpg" />
 </div>
 
 
@@ -669,7 +727,7 @@ VA - Spacedance, Vol. 3 (2021) [FLAC|Lossless|WEB-DL|tracks] <Spacedance, Spaces
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836553.jpg" />
 </div>
 
 
@@ -683,64 +741,6 @@ VA - Spacedance, Vol. 3 (2021) [FLAC|Lossless|WEB-DL|tracks] <Spacedance, Spaces
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DDAA02A4ECA3A8750AECA06E0C46CD1DC1940D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501389   (836548) от 09.10.2021
-
-Korolova - Live @ Guaba Beach Bar Limassol, Cyprus (2021-09-10) [MP3|320 Kbps] <Progressive House, Deep House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fugees - Ready Or Not (Franky Wah Edit)
-02. Two Are - Rover
-03. Farruko ft. Victor Cardenas - Pepas (GORDO & Shaun Frank Remix)
-04. Maceo Plex & Faithless - Insomnia 2021 (Epic Mix)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 01:04:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFFEB8CE8F6BA6A58EE0800DE39CDF5E4C32DA01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113579   (836470) от 12.03.2017
-
-VA - Sexy Sax and Chill: Sensual Smooth Jazz Bar Lounge for Intimate Romantic Erotic Moments (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delectable – Woman in Love – Extended Mix
-02. Guru Sax – People Can’t Stop Chillin – Relax Mix
-03. Dial J for Jazz – The Smooth Soul of Life – Guitar del Mar Mix
-04. Sax Lounger – Mousetrap – Sax My Brass Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:17:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51EECB4D43A1167C507BAC07B6B63DC5FD334A62
 ```
 
 https://mybot314.ru/tekegram_catalog/

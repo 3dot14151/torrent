@@ -1,3 +1,29 @@
+###  Публикация: 942636   (453243) от 01.10.2015
+
+Картинки - Авиация в картинках. Часть 2. Воздушная техника СССР. 7680x4320 - 73 шт [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453243.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая часть сборника арт-обоев формата 8К с изображениями "железных птиц" и "стрекоз" военного, транспортного и многоцелевого назначения. Посвящена советской воздушной технике - от учебно-тренировочной до космической.Формат: JPGРазрешение файлов: 7680х4320
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C19EF3C2F2D2688B52D8187866B48264DA0216E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 548015   (452925) от 12.08.2022
 
 Современная фотография - Русский флот. Часть 6: Сторожевые и пограничные корабли и катера [JPG]
@@ -6,7 +32,7 @@
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452925.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451306.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451146.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Geoffroy Thoorens [Графика]
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451095.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Artworks by Digital Artists (23.09.12) [Графика]
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450738.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450689.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450507.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ Metropolitan Museum Of Art - European Paintings p.1 [Графика]
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450435.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450393.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450392.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450377.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Metropolitan Museum Of Art - European Paintings p.2 [Графика]
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450278.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449287.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448749.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448296.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448292.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ Digital Art (26.09.2012) [Графика]
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448160.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448042.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447818.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447809.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447567.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447212.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447206.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447113.jpg" />
 </div>
 
 
@@ -644,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446923.jpg" />
 </div>
 
 
@@ -655,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FC0A7A43F3F49F03519CA9B8AFDB394F4B2D959
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943743   (446800) от 04.10.2015
-
-Картинки - Старинные карты [JPG, PNG, GIF]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник старинных карт мира.Формат: JPG, PNG, GIFРазрешение файлов: 275х183 - 21657х930
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C65B59140D1EC9813BE6F3E10138290E3C8CC7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

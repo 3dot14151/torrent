@@ -6,7 +6,7 @@ Saxtribution - Magical Christmas Saxophone (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125021.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Saxtribution - A Very Special Jazzy Christmas (2023) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125020.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Santa Swings... The Windup: 27 Christmas Stockings Full Of Shellac Dust (19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125018.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Jackie McLean & Mal Waldron - Original Quartet Complete Recordings (1956 - 1960)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125000.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - A Concord Jazz Christmas (1994) Concord Jazz [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124996.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124994.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Pharoah Sanders & Bill Laswell - With a Heartbeat (2003) [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124643.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Martha High - Jazz and Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Blues>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124511.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Olaf Hoeks & Ruud de Vries - Swang Thang (2024) [FLAC|Lossless|WEB-DL|tracks] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124506.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Tom Reaves Jr - Soulful Strut (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124341.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Romantic Moods Academy, Night's Music Zone - Bed Erotica: Sexy Background Music 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124218.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Wild Bill Davison - The Commodore Master Takes (1943 - 1946) 1997, Commodore [AP
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124173.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Isoo Fukui Quartet Featuring Kazuhiro Matsuishi - Sunrise / Sunset (1976) 2013, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124050.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Ethel Waters - Cocktail Hour (1920-e - 1940-e) 2CD, 2001, Allegro [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123919.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ The Jazz Kings - Blue Jazz (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Blues>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123910.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Kay Starr - Cocktail Hour (1940-e - 1950-e) 2CD, 2000, Allegro [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123792.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Bessie Smith - BD Jazz (1923 - 1933) 2CD, 2006, Nocturne [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123690.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Brian Simpson - Soul Connection (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123635.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Gerald Wilson Orchestra - Monterey Moods (2007) Mack Avenue [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123513.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Sensual Frequencies: Sexiest Saxx Lounge Jazz (2024) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123412.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Louis Bellson & Walfredo De Los Reyes - Ecue Ritmos Cubanos (1977) 1991, Origina
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123400.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ McCoy Tyner - Passion Dance (1978) 2005, Original Jazz Classics [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123240.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Alan Zimmerman - Standards - Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123057.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Henry "Red" Allen - 1933 - 1935 (1990) Classics [FLAC|Lossless|tracks + .cue] <D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123049.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Stan Getz - 1951 (2003) Classics [FLAC|Lossless|tracks + .cue] <West Coast Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122876.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Caro Emerald - Live In Glasgow (2015) Japan Edition [FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122742.jpg" />
 </div>
 
 

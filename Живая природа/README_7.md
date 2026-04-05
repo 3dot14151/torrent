@@ -1,3 +1,29 @@
+###  Публикация: 1371710   (881796) от 05.04.2020
+
+Великие океаны / Great Blue Wild (2015) IPTV [H.264/1080p-LQ] (серии 1-15)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Познакомьтесь поближе с китовыми акулами, дельфинами, гигантскими скатами мантой и захватывающими рыбными стаями. GREAT BLUE WILD - это ваша экскурсия по подводному миру, в сочетании с увлекательными историями от профессионалов подводного плавания.Производство: США, Канада, Blue Ant MediaЖанр: Документальный, природа, флора, фаунаРежиссер: Дэн ХьюзПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC3C535D753C35943572C0CBF7B167626A6034F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 642257   (881120) от 10.04.2013
 
 NGW: Дунай. Европейская Амазонка / Danube. Europe's Amazon (2012) IPTVRip (серии 1-2 из 2)
@@ -6,7 +32,7 @@ NGW: Дунай. Европейская Амазонка / Danube. Europe's Amaz
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881120.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_880696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_880696.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ BBC. Дикая Аравия / Wild Arabia (2013) BDRip [H.264/1080p] [1-3 се�
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880554.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877365.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876464.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876216.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875042.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874434.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874194.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ NG. Ядовитый остров / Venom Islands (2012) HDTVRip [H.264/720p]
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873682.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873555.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871400.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870913.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870831.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870056.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869961.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866855.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864349.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863746.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863448.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863057.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861915.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858979.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857797.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857500.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD8F842B01DAFD1AFCBA12F36170FAF78A272BAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997767   (855586) от 27.03.2016
-
-Азиатские цунами: Смертельная волна / Asian Tsunami: The Deadliest Wave (2014) DVB
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это самое смертельное цунами в 21 веке, которое унесло 230000 жизней и нанесла ущерб в $ 15 млрд. Вызванное массивным подводным землетрясением у берегов Индонезии, в 2004 году цунами в Азии перемололи индийскую береговую линию океана волнами до 100 футов в высоту, застав врасплох своих жертв и ведущих мировых ученых. Должны ли мы лучше подготовиться к следующей большой (   Читать дальше...   )Телекомпания: США, ITN ProductionsЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:50:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93243F979CB7C50EF08A064B49ECA159FB6919F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

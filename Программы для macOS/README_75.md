@@ -1,3 +1,59 @@
+###  Публикация: 907007   (640964) от 10.06.2015
+
+VSCO Film 01-07 in LUTs (cube, 3dl) for AE, PP and FCPX [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640964.jpg" />
+</div>
+
+
+###  Подробнее
+
+3D Luts представляет собой набор высокоточных эмуляций кинопленки для Premiere Pro, Final Cut Pro X, After Effects. 3D Luts  в .cube и .3dl - для использования в большинстве приложений, поддерживающих 3dluts.
+FCPX понадобится  загрузчик LUT  или LUT утилита. Adobe Premiere понадобится lumetri, который встроен в текущем СС Premiere. В Photoshop CC вы можете загрузить (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2015Разработчик: n/aПоддерживаемая ОС: OS X 10.7  +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56FAF0622D4169740DF9662913FF101BE971D083
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518632   (640481) от 04.07.2012
+
+Maple 16.01 MacOS
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_640481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Канадская компания Maplesoft представила очередную версию своего флагманского пакета технических вычислений Maple 16. Одним из самых заметных отличий новой версии стала высочайшая скорость решения дифференциальных уравнений. Столь же значительные улучшение внесены и во все остальные математические функции, включая базовые операции и сложные алгоритмы обработки данных. Дополнительно в состав пакета включено более 100 совершенно новых математических функций и типов графиков.
+
+По заверениям производителя, пакет Maple 16 является лидером по масштабируемости и производительности (благодаря поддержке многоядерных процессоров). У пакета Maple 15 есть уникальное свойство – он поддерживает символьное решение дифференциальных уравнений – таких возможностей нет ни у одного конкурирующего продукта. Новая версия Maple демонстрирует рекордный показатель, решая 96% из эталонного набора дифференциальных уравнений.
+С помощью пакета Maple 16 пользователи могут обрабатывать очень крупные массивы данных и создавать еще более мощные (   Читать дальше...   )Название программы: Maplesoft MapleЯзык интерфейса: English
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033242   (640207) от 10.07.2016
 
 TextLab 1.2.3 [En]
@@ -6,7 +62,7 @@ TextLab 1.2.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640207.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ NetSpot Wi-Fi Reporter 2.1.472 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639763.jpg" />
 </div>
 
 
@@ -61,7 +117,7 @@ Tonality Pro 1.2.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639312.jpg" />
 </div>
 
 
@@ -89,7 +145,7 @@ TunesMedic 2.2.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638153.jpg" />
 </div>
 
 
@@ -118,7 +174,7 @@ MesaExif 2.4.14 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637515.jpg" />
 </div>
 
 
@@ -144,7 +200,7 @@ Stock + Pro 3.7.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637337.jpg" />
 </div>
 
 
@@ -171,7 +227,7 @@ Duplicate Finder and Remover 2.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637262.jpg" />
 </div>
 
 
@@ -197,7 +253,7 @@ CSV Converter Pro 2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637122.jpg" />
 </div>
 
 
@@ -223,7 +279,7 @@ RE:Vision Effects Pluguins for Adobe PP&AE Май 2018 г. [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637087.jpg" />
 </div>
 
 
@@ -249,7 +305,7 @@ VNC Connect Enterprise for Mac 6.9.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636952.jpg" />
 </div>
 
 
@@ -275,7 +331,7 @@ iShowU Instant (Advanced) 1.4.10 (beta version) [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635447.jpg" />
 </div>
 
 
@@ -302,7 +358,7 @@ PwGenerator 1.11.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635335.jpg" />
 </div>
 
 
@@ -331,7 +387,7 @@ Tower 2.6.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634985.jpg" />
 </div>
 
 
@@ -358,7 +414,7 @@ iZotope Ozone 9 Advanced 9.12.0 intel+M1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634915.jpg" />
 </div>
 
 
@@ -384,7 +440,7 @@ Chatty for Facebook 2.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634303.jpg" />
 </div>
 
 
@@ -413,7 +469,7 @@ WidsMob Montage 1.20 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633684.jpg" />
 </div>
 
 
@@ -440,7 +496,7 @@ PhotoLine v. 19.01 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633608.jpg" />
 </div>
 
 
@@ -466,7 +522,7 @@ hr - Task timer as simple as it's name 1.2.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633264.jpg" />
 </div>
 
 
@@ -494,7 +550,7 @@ Outline 3.2203.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631836.jpg" />
 </div>
 
 
@@ -521,7 +577,7 @@ Adobe Dreamweaver CC 2018.2 v18.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629707.jpg" />
 </div>
 
 
@@ -548,7 +604,7 @@ WiFi Explorer 2.3.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629237.jpg" />
 </div>
 
 
@@ -577,7 +633,7 @@ Polarr Photo Editor 4.0.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629230.jpg" />
 </div>
 
 
@@ -606,7 +662,7 @@ VMware Fusion Professional 7.1.2 (2779224) [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629221.jpg" />
 </div>
 
 
@@ -634,7 +690,7 @@ Day One 2 Journal + Notes 2.0.9 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628424.jpg" />
 </div>
 
 
@@ -646,58 +702,6 @@ Day One 2: новый журнал-дневник
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D480E3193E7C5FF52DB44C6E73FB1CE5CEFD56A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543671   (627905) от 12.04.2022
-
-PopDo 2021.2.8 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утилита PopDo - это удобный список задач для строки меню Mac, отображающий все ваши дела в одном окне. Он поддерживает поиск, фильтрацию и сортировку для быстрого перехода к нужной задаче.Тип издания: macOS SoftwareРелиз состоялся: 11.04.2022Разработчик: © 2020-2021 DS9 Software LtdПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7373B87078378FD9E54FA273B17FF08E5C2D8F9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909484   (627154) от 17.06.2015
-
-Red Giant Shooter Suite 12.7.1 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Red Giant Shooter Suite -  комплект инструментов подготовки и выдачи видеоматериалов для съемки и синхронизации на временной шкале. В состав комплекса Red Giant Shooter Suite входит приложение Red Giant BulletProof, предназначенное для упрощения ежедневных процессов по обработке отснятых видеоматериалов: сортировки, просмотра, ведения каталога, редактирования метаданных, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 июня 2015Разработчик: Red Giant LLCПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B37576655ADA23A4E10AFEDF122905AEAEB2B92
 ```
 
 https://mybot314.ru/tekegram_catalog/

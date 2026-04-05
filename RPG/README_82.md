@@ -1,3 +1,55 @@
+###  Публикация: 1815121   (8592) от 30.09.2025
+
+Chip ‘n Clawz vs. The Brainioids (2025) [Ru/Multi] (1.0.23477) Repack Let'sРlay
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8592.jpg" />
+</div>
+
+
+###  Подробнее
+
+От создателя X-COM, Джулиана Голлопа (Julian Gollop), приходит Chip ‘n Clawz vs. The Brainioids - уникальное сочетание экшена от третьего лица и стратегии в реальном времени. Строй базу, командуй ботами, победи Brains-in-Jars! Играй за Chip или Clawz один или в кооперативе. Осторожно: мозги врагов можно раздавить!Тип издания: RepackРазработчик: Snapshot Games Inc.Жанр: Экшены, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09314050D2321E7A468C944ACF782D6F461232D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799857   (8334) от 12.08.2025
+
+Elden Ring Nightreign (2025) [Ru/Multi] (1.02.1/dlc) Repack Let'sРlay [Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8334.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Elden Ring Nightreign, игроки переносятся в параллельную версию мира, известную как Лимвельд, где история Elden Ring пошла другим путем после Раскола - войны, которая разрушила баланс сил в этом мрачном фэнтезийном мире. Игра не связана напрямую с основной сюжетной линией Elden Ring, но сохраняет тот же уровень глубины и сложности, который сделал серию так популярной.Тип издания: RepackРазработчик: FromSoftwareЖанр: Экшены, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D861DF7630967B5293D70B3ED3B968309ED1622
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1794629   (8179) от 13.08.2025
 
 Age of Reforging: The Freelands (2023) [Ru/Multi] (1.06b) Repack Let'sРlay
@@ -6,7 +58,7 @@ Age of Reforging: The Freelands (2023) [Ru/Multi] (1.06b) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8179.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ CyberCorp (2024) [Ru/Multi] (1.03) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8161.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Warhammer 40,000: Space Marine (2025) [Multi] (4326/dlc) License GOG [Master Cra
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7960.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Lost in Random: The Eternal Die (2025) [Ru/Multi] (29915/dlc) Repack Let'sРlay 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7916.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ The Slormancer (2021) [Multi] (1.0.2c) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7828.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Avowed (2025) [Ru/Multi] (1.5.1.0/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7820.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Chained Echoes (2022) [Multi] (1.344/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7819.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Darkest Dungeon (2016) [Ru/Multi] (26186a/dlc) License GOG [Soundtrack Editon]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7817.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Vagrus: The Riven Realms (2021) [En] (1.2100730/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7816.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ The Last Spell (2023) [Ru/Multi] (1.2.20.2/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7814.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Ys: The Oath in Felghana (2012) [En] (2020.03.11) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7801.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Ys X (10): Nordics (2024) [Multi] (1.0.9/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7776.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Scrapnaut (2021) [Ru/Multi] (1.6.17) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7736.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Barony (2015) [En] (4.3.2-150625-hf2/dlc) License GOG [Blessed Addition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7604.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ The Edge of Allegoria (2024) [Multi] (1.0.1.22) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7589.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Dragon Ruins II (2) (2025) [En] (250701) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7586.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ False Skies (2022) [En] (1.12aa) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7583.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Everafter Falls (2024) [Multi] (2.1.4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7579.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Tales and Tactics / Tales & Tactics (2023) [Multi] (1.2 Build 19453510) Scene Te
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7352.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Survive the Fall (2025) [Ru/Multi] (1.1.4.2506/dlc) License GOG [Ultimate Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7166.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Starfield (2023) [Ru/Multi] (1.15.222.0/dlc) Repack Wanterlude [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7165.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Slayer: The Demon Haunted World (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6988.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Warsim: The Realm of Aslona (2022) [En] (1.3.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6718.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Soulstone Survivors (2022) [Ru/Multi] (1.2.3.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6699.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Soulstone Survivors - это динамичный экшен-рогалик, г�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E13999EDFB8324F1FB33DF42AC1A37A401BC6AC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804018   (6574) от 22.08.2025
-
-System Shock 2: 25th Anniversary Remaster (2025) [Multi] (1.2.4546) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как победить бессмертную совершенную машину? System Shock 2: 25th Anniversary Remaster от Nightdive Studios представляет собой обновленную версию классического ролевого шутера от первого лица, в которой доступен кроссплатформенный мультиплеер, поддержка пользовательских модов и многое другое. Действие происходит в 2114 году. Вы выходите из анабиоза на борту звездолета (   Читать дальше...   )Тип издания: LicenseРазработчик: Nightdive Studios, Looking Glass Studios, Irrational GamesЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, Итальянский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55FD758215AA19D80FE7C03023A4888E0353E26B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805486   (6546) от 22.08.2025
-
-System Shock 2 (2025) [Ru/Multi] (1.2.4244.0) Repack Let'sРlay [25th Anniversary Remaster]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как победить бессмертную совершенную машину? Действие происходит в 2114 году. Вы выходите из анабиоза на борту звездолета Von Braun и не можете вспомнить ни кто вы, ни где находитесь, а вокруг очевидно произошло что-то ужасное. Гибридные мутанты и смертоносные роботы бродят по пустым залам, а крики выживших членов команды эхом отдаются в холодных коридорах корабля.Тип издания: RepackРазработчик: Nightdive Studios, Looking Glass Studios, Irrational GamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

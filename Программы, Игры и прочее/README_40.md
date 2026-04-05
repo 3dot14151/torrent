@@ -1,3 +1,107 @@
+###  Публикация: 1366158   (925722) от 10.03.2020
+
+Time Calculator Cardamon v1.0.9 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вам необходимо рассчитать время работы, выполнить операции с числами или определиться с окончанием эксперимента в лаборатории, то приложение Time Calculator Cardamon вам подойдет по всем критериям.Тип издания: Mod (С вырезанной проверкой лицензии)Релиз состоялся: 25.12.2019Разработчик: CardamonПоддерживаемая ОС: Android 4.1+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:834401410EF993FB9DC27802DA02F1630725FA34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366161   (925523) от 10.03.2020
+
+NotifyBuddy - AMOLED Notification Light v1.50 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если на вашем устройстве светодиодный индикатор отсутствует, то можно использовать его копию - приложение NotifyBuddy с большим количеством настроек.Тип издания: PremiumРелиз состоялся: 21.12.2019Разработчик: XanderAppsПоддерживаемая ОС: Android 8.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F678B571A005197AE97EDEA95A22C673D48A8B75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366169   (925513) от 10.03.2020
+
+Five Hundred English Words v0.2.1 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Five hundred english words - Уникальное приложение, для изучение английского языка. Приложение устроено очень просто, в начале вам предстоит просмотреть все 500 слов. Из них вы будете выбирать, которые вы знаете, а какие будете изучать. Выбрав все слова, вы перейдете прямиком к изучению.Тип издания: ModРелиз состоялся: 20 сентября 2018 г.Разработчик: Google Commerce LtdПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:109370CE8F4E7461B1FA08231C5B6D2D2F5441AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366225   (925417) от 10.03.2020
+
+Backup Apk - Extract Apk v1.2.9 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иногда случается так, что по ошибке удалилось нужное приложение или файл и его срочно надо восстановить. В этом вам поможет приложение Backup Apk - Extract Apk. Удобный и простой интерфейс и быстрое создание резервных копий.Тип издания: Mod (С вырезанной проверкой лицензии)Релиз состоялся: 26.02.2020Разработчик: HD-TeamПоддерживаемая ОС: Android 4.4+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97C7BDA3E19EC363611A14B656680AF51DED7803
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366020   (925388) от 10.03.2020
 
 Equalizer Music Player Pro v2.9.22 [Ru/En]
@@ -6,7 +110,7 @@ Equalizer Music Player Pro v2.9.22 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925388.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ AiScan: All QR Code Scanner & Barcode Reader v1.0.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925384.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ File Manager Pro v1.40 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925330.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Speed Test & WiFi Analyzer v9.0.27615 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925212.jpg" />
 </div>
 
 
@@ -113,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923992.jpg" />
 </div>
 
 
@@ -140,7 +244,7 @@ Lingua Book Reader 1.2.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923964.jpg" />
 </div>
 
 
@@ -169,7 +273,7 @@ Randomizer+ Random Pick Generator - Decision Maker v4.4 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923903.jpg" />
 </div>
 
 
@@ -195,7 +299,7 @@ Fast Charge Pro v1.0 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923867.jpg" />
 </div>
 
 
@@ -221,7 +325,7 @@ HERETIC GODS - Ragnarok vV.1.10.35 [Ru/Multi] (Original + Mod)
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923575.jpg" />
 </div>
 
 
@@ -247,7 +351,7 @@ Fallout File Manager v1.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923567.jpg" />
 </div>
 
 
@@ -273,7 +377,7 @@ WiFi Overview 360 Pro 3.40.01 - Универсальный инструмент 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923201.jpg" />
 </div>
 
 
@@ -301,7 +405,7 @@ Cuticon Drop - Icon Pack v1.2 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922129.jpg" />
 </div>
 
 
@@ -327,7 +431,7 @@ Regex Finder v0.9 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922115.jpg" />
 </div>
 
 
@@ -353,7 +457,7 @@ MyScript Calculator II 2.1.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922026.jpg" />
 </div>
 
 
@@ -381,7 +485,7 @@ Magic DosBox v1.0.79 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922011.jpg" />
 </div>
 
 
@@ -407,7 +511,7 @@ Ghost Commander File Manager + All Plugins v1.56.2B2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921986.jpg" />
 </div>
 
 
@@ -433,7 +537,7 @@ Happy Color – Color by Number v2.2.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920574.jpg" />
 </div>
 
 
@@ -459,7 +563,7 @@ Progressbar95 v0.500 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920569.jpg" />
 </div>
 
 
@@ -485,7 +589,7 @@ LEGO Star Wars Microfighters v1.0.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920298.jpg" />
 </div>
 
 
@@ -511,7 +615,7 @@ Star Wars: Rivals v6.0.2 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920141.jpg" />
 </div>
 
 
@@ -537,7 +641,7 @@ PC Creator - PC Building Simulator v1.0.57 + Mod [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920137.jpg" />
 </div>
 
 
@@ -563,7 +667,7 @@ WiFi Analyzer Premium v1.3 build 8 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920134.jpg" />
 </div>
 
 
@@ -574,110 +678,6 @@ WiFi Analyzer Premium - премиум версия многофункциона
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C07BF16DF529FFE85F69497B9A4EF0EF713C1BEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366903   (920133) от 13.03.2020
-
-Pro QR & Barcode Scanner PDF417 Scanner, Reader v2.1.0.7 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сканер Pro QR code & Barcode PDF417 обладает высоким уровнем мощности и мгновенно способен считывать информацию со штрих-кодов и QR-кодов. Он поддерживает все возможные форматы (EAN-13, EAN-8, UPC-A, UPC-E, Code-39 и др.) и подходит абсолютно для любой ОС Андроид. Просмотр кода осуществляется при помощи камеры устройства после включения этого приложения. Сканер (   Читать дальше...   )Тип издания: Mod (Отвязан от сервисов Google Play)Релиз состоялся: 13.03.2020Разработчик: Grato Apps lnc.Поддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90F9E73A7ECD27EEB06C2F8BD06DAD13E8966CAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351128   (920082) от 13.03.2020
-
-XRecorder Pro 1.2.2.3 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Захват фото и видео изображения с экрана смартфона.Тип издания: ПираткаРелиз состоялся: 13.03.20Разработчик: InShot Inc.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF56D8C03076E5C3FC1D79FBD26822F07C7D7061
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366693   (919785) от 13.03.2020
-
-Star Wars: Knights of the Old Republic (KOTOR) + Mod v1.0.7 [Ru/En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919785.jpg" />
-</div>
-
-
-###  Подробнее
-
-Star Wars: KOTOR – вот уже четыре тысячи лет идет война в Галактической империи и сотни Рыцарей Джедаев погибли в этой безжалостной войне против ситхов. Только на вас вся надежда! Сможете ли вы освоить удивительную Силу, чтобы спасти Всю Империю? Или вы пойдете по пути Темного рыцаря? Станете вы героем или злодеем, спасителем или завоевателем… только вы сможете выбрать (   Читать дальше...   )Тип издания: Premium+Релиз состоялся: 17.09.2019Разработчик: Aspyr Media, Inc.Поддерживаемая ОС: Android 4.1+Жанр: Приключения, RPG, РолевыеЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23BBCA35362EA5A25578E61EF441196B1A14EEA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367133   (919126) от 14.03.2020
-
-GameKeyboard + v6.1.1 [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919126.jpg" />
-</div>
-
-
-###  Подробнее
-
-GameKeyboard – это простое и надежное приложение если вы собрались поиграть в игры что требуют наличия джойстика а у вас при этом его нету. Его будет очень легко настроить да и к тому же все клавиши можно перемещать в нужные вам места. Однако будьте внимательны ведь некоторые функции доступны только при наличии root прав, хотя для большинства из них они не требуется, (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 22.08.2017Разработчик: LocnetПоддерживаемая ОС: Android 2.2+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72E2762724DF09106A4C6FD18DDE0255D5E879B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

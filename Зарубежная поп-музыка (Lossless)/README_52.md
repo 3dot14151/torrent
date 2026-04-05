@@ -6,7 +6,7 @@ Levina - Perfect Life (2017) CDS, Single [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513986.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Duran Duran - Unleashed (2014) [FLAC|tracks + .cue]<New Wave, Pop-Rock, Synthpop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513875.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Barbra Streisand - Rose Of New York City: Barbra, 1961-1962 Live Recordings (202
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513530.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ F.R. David - The Best Of (2002) [FLAC|Lossless|image + .cue] <Electronic, Italo-
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510898.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Bee Gees - 10 альбомов (1976 - 2001) /Studio Albums/ [FLAC|Lossless]<Dis
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510065.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ VA - 300 Hits - Love Songs (2012) 15CD [FLAC|track+.cue]<Pop, R&B, Soul, Rock, C
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508809.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Mylene Farmer & Sting - Stolen Car (2015) Single [FLAC|Lossless|WEB-DL]<Pop, Ele
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507874.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ K.Flay - Solutions (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507758.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Of Monsters And Men - FEVER DREAM (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507711.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Elton John - Regimental Sgt. Zippo (2022) Stereo Mix [FLAC|Lossless|WEB-DL|track
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507119.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Cliff Richard - Dynamite (2007) Compilation, Japanese Edition [WavPack|Lossless|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506214.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ VA - BRAVO Hits 106 (2019) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Pop, Danc
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504045.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ a-ha - Cast In Steel (Deluxe Edition) (2015) 2CD [FLAC|Lossless|WEB-DL]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503272.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VA - The Greatest Hits / Singer-Songwriter (2015) 2CD[FLAC|image + .cue]<Pop, Ro
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502316.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ A-Ha - Cast In Steel (2015) 2CD [FLAC|tracks+.cue]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502056.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ George Michael - White Light (CD Single) (2012) [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500966.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ VA - Compact Disc Club - Dreams (1997) 4CD BoxSet[FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500084.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Adriano Celentano - World Name (2003) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498501.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Adele - Greatest Hits (2012) [FLAC|image + .cue]<Soul, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498192.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497750.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Marie Claire D'Ubaldo - 2 Альбома (1990, 1994) [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497302.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Bananarama - Masquerade (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496710.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Mylene Farmer - Anamorphosee (1995) France [FLAC|Lossless|image + .cue] <Rock, F
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495733.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ VA - 100 Hits Boogie Nights (2017) Box Set, 5CD [FLAC|Lossless|tracks + .cue] <P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495412.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ Billie Eilish - Guitar Songs (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Indie Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494771.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Bananarama - Masquerade (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Pop, Disco>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494672.jpg" />
 </div>
 
 

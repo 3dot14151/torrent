@@ -6,7 +6,7 @@ VA - Finest NY House 2021, Pt. 2 (2021) [AAC|~325 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147355.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - The Purr Best Of Winter 2021 (2021) [AAC|~335 Kbps] <Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147344.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Music That Moves You 2022 (2021) [AAC|~317 Kbps] <House, Dance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147334.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Selador Selected Works 2021 (2021) [AAC|~325 Kbps] <Progressive House, Deep
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147322.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147321.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ VA - Best Of 2021: The Selection Safe Music (2021) [AAC|~313 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147312.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VA - Sweet Morning (Chill out and Lounge Collection), Vol. 1 (2021) [AAC|~319 Kb
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147294.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147173.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147107.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146875.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146734.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146634.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146525.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146459.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146349.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146320.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146316.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146214.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146138.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146113.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ VA - Sofa King Sick, Chapter 2 (2020) [AAC|~321 Kbps] <Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145929.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145928.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ VA - Sofa King Sick, Chapter 3 (2021) [AAC|~315 Kbps] <Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145917.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ VA - Suprematic 2021 (2021) [AAC|~334 Kbps] <Deep House, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145908.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145902.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ VA - Nye Bash Downtempo 2021 (2021) [AAC|~300 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145893.jpg" />
 </div>
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1000315   (858617) от 25.03.2016
+
+Звёздные войны: Пробуждение силы / Star Wars: Episode VII - The Force Awakens (2015) BDRip [H.264/720p] [Line]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Через тридцать лет после гибели Дарта Вейдера и Императора галактика по-прежнему в опасности. Государственное образование Первый Орден во главе с их таинственным верховным лидером Сноуком и его правой рукой Кайло Реном идёт по стопам Империи, пытаясь захватить всю власть. В это нелёгкое время судьба сводит юную девушку Рей и бывшего штурмовика Первого Ордена Финна (   Читать дальше...   )Производство: США / Bad Robot, Lucasfilm Ltd., Truenorth ProductionsЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Джей Джей АбрамсАктеры: Джон Бойега, Дэйзи Ридли, Оскар Айзек, Адам Драйвер, Донал Глисон, Харрисон Форд, Марк Хэмилл, Кэрри Фишер, Макс фон Сюдов, Энди СеркисПеревод: Дублированный (чистый звук)Язык субтитров: АнглийскийПродолжительность: 02:18:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99ADA17FDFAABE671A97860DD9932B8A662D24FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000304   (858614) от 25.03.2016
 
 Звёздные войны: Пробуждение силы / Star Wars: Episode VII - The Force Awakens (2015) BDRemux [H.264/1080p] [Line]
@@ -6,7 +32,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858614.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Trackmania® Turbo (2016) [Ru/Multi] (1.0) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858613.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858609.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Cent Browser 2.4.2.19 + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858538.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858418.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Sid Meier's Civilization V / Sid Meier's Civilization 5 (2014) [Ru/En] (1.0.3.27
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858412.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ JetBrains PyCharm Professional 2020.1 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857979.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857974.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Batman: Arkham Knight (2015) [Ru/Multi] (1.7/dlc) Repack R.G. Catalyst [Game of 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857973.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Windows 10 Enterprise LTSC (x64) Elgujakviso Edition (v.25.09.21) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857405.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857400.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857313.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Adobe Muse CC 2015.1.2.44 RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856947.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856811.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ Malwarebytes Anti-Malware Premium 2.2.1.1043 Final Portable by PortableAppZ [Mul
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856803.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856801.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ Sherlock Holmes: The Devil's Daughter (2016) [Ru/Multi] (1.0.8767.0) License CPY
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856688.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ Mad Max (2015) [Ru/Multi] (1.0.3.0/dlc) License CPY
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856687.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ Just Cause 3 (2015) [Ru/Multi] (1.05/dlc) License CPY
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856686.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856685.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856682.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ MInstAll v.17.04.2020 By Andreyonohov & Leha342 (ISO) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856195.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ JetBrains PhpStorm 2020.1 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856193.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856189.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.1
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856187.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ Office 2019 — новый офисный пакет от корпорации M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08C6FE491B3D2103F386F5E6D979BD261E566248
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376783   (856186) от 19.04.2020
-
-Jetbrains IntelliJ IDEA Ultimate 2020.1 [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856186.jpg" />
-</div>
-
-
-###  Подробнее
-
-IntelliJ IDEA — самая умная среда разработки для Java и других языков, включающая поддержку всех последних технологий и фреймворков, идеально подходящая для создания коммерческих, веб- и мобильных приложений.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC851B0045734551F73179CE4472C3169CCD4860
 ```
 
 https://mybot314.ru/tekegram_catalog/

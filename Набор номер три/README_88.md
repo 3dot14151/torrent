@@ -1,3 +1,162 @@
+###  Публикация: 978313   (937931) от 09.02.2016
+
+Painkiller Anthology (2004-2012) [Ru/En] (1.64/1.084/1.044/1.05f/1.0/20140415.3933/dlc) Repack R.G. Механики
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра со страшным названием Painkiller: Hell & Damnation, что на русском обозначает «Ад и Проклятье» - это ремейк оригинального Painkiller, появившегося на рынке в 2004 году. Начнём с того, что уровень графики совсем не опустился - благодаря движку Unreal Engine 3 локации по-прежнему выглядят превосходно. Уровни не подверглись практически никаким изменениям (разве (   Читать дальше...   )Тип издания: RepackРазработчик: The Farm 51Жанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4172B34325EBD69CDECF068635DAAF6F3E178B90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 781115   (937924) от 09.02.2016
+
+Борис Акунин | Собрание сочинений [99 книг] (1993-2015) [FB2]  (обновлено 25.04.2015)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полное собрание сочинений Бориса Акунина (Григория Чхартишвили), существующее на сегодняшний день. Японское слово «акунин» не имеет адекватного перевода на русский язык. Приблизительно его можно перевести как «злой человек», «разбойник», «человек, не соблюдающий законов».Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E723A5EF6AA79018FD31311210AE62284DD3E20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960990   (937923) от 09.02.2016
+
+Пространство / Экспансия / The Expanse (2015) WEB-DLRip (сезон 1, серии 1-10 из 10) LostFilm
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937923.jpg" />
+</div>
+
+
+###  Подробнее
+
+Через двести лет от дня сегодняшнего некий сыщик, привыкший всё доводить до конца при любых обстоятельствах, в рамках расследования дела об исчезновении молодой женщины оказывается на борту звездолета, капитан которого решает помочь детективу в его непростом деле. Величайший заговор в истории человечества гарантируется, как и его непременное раскрытие.Производство: США, Канада / Alcon Entertainment, Sean Daniel CompanyЖанр: фантастика, детективРежиссер: Роберт Либерман, Терри МакДонафАктеры: Шоре Агдашлу, Кэс Анвар, Уэс Чэтэм, Томас Джейн, Стивен Стрейт, Илайс Туфексис, Джейн Моффат, Сара Митич, Майкл Мюррей, Джо Делфин и др.Перевод: Многоголосый закадровый, профессиональный - LostFilmПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:110862829C1CAE06474E15A314F2DCD99C22F35E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984269   (937922) от 09.02.2016
+
+Лес призраков / The Forest (2016) WEBRip
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юная американка Сара отправляется на поиски сестры-близняшки, которая таинственным образом исчезла на японском острове Хонсю. Поиски приводят к подножью горы Фудзи, в таинственный лес, который пользуется дурной славой. Сара не подозревала, что она вступает в мрачный мир призраков, злых и измученных душ, которые охотятся на любого, кто блуждает по их мрачному лесу…Производство: США, AI-Film, Lava Bear FilmsЖанр: УжасыРежиссер: Джейсон ЗадаАктеры: Натали Дормер, Оуэн Мэкен, Стефани Вогт, Осаму Танпопо, Ясуо Тобисима, Ибуки Канеда, Акико Ивасе, Кикуо Ичикава, Норико Сакура, Йозеф АокиПеревод: Дублированный (Чистый звук)Продолжительность: 01:29:06Реклама: Возможно присутствуют голосовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C04E0C4A4FAEC4491AFD4CCB073A6C5E6470675
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959796   (937921) от 09.02.2016
+
+Пространство / Экспансия / The Expanse (2015) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-10 из 10) BaibaKo
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937921.jpg" />
+</div>
+
+
+###  Подробнее
+
+Через двести лет от дня сегодняшнего некий сыщик, привыкший всё доводить до конца при любых обстоятельствах, в рамках расследования дела об исчезновении молодой женщины оказывается на борту звездолета, капитан которого решает помочь детективу в его непростом деле. Величайший заговор в истории человечества гарантируется, как и его непременное раскрытие.Производство: США, Канада / Alcon Entertainment, Sean Daniel CompanyЖанр: фантастика, детективРежиссер: Роберт Либерман, Терри МакДонафАктеры: Шоре Агдашлу, Кэс Анвар, Уэс Чэтэм, Томас Джейн, Стивен Стрейт, Илайс Туфексис, Джейн Моффат, Сара Митич, Майкл Мюррей, Джо Делфин и др.Перевод: Многоголосый закадровый, профессиональный - BaibaKoОзвучка: Юлия Котурбаш, Андрей Корзаченко, Виталий Ткаченко и Олекса МельникПродолжительность: ~ 00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C7497F4F44B7C3DD7D218C63F109A3EED104831
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 513777   (937920) от 09.02.2016
+
+3D-инструктор + Учебный автосимулятор 2 + Дополнение 100 машин [Ru] (L/Mod) 2011 | gacl
+
+>>3
+>>18
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937920.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучший способ понять основные принципы вождения автомобиля и не разбить этот самый автомобиль – воспользоваться реалистичным автосимулятором!
+Неофициальное дополнение "100+ дополнительных машин" значительно расширяет автопарк – теперь можно покататься на более чем ста автомобилях.
+
+Теория, знание правил дорожного движения и умение выбрать правильный поворот (   Читать дальше...   )Тип издания: Лицензия + Неофициальное дополнение (мод)Разработчик: МультисофтЖанр: Симулятор (Авто / Дорожное движение / Правила)Язык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 628077   (937795) от 09.03.2013
 
 To The Moon [Ru/En/Multi7] (L) 2011 | PROPHET
@@ -6,7 +165,7 @@ To The Moon [Ru/En/Multi7] (L) 2011 | PROPHET
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937795.jpg" />
 </div>
 
 
@@ -34,7 +193,7 @@ God of War: Ascension [PS3] [EUR] [RUSSOUND] [4.31 CFW] (2013)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937787.jpg" />
 </div>
 
 
@@ -61,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937784.jpg" />
 </div>
 
 
@@ -87,7 +246,7 @@ God of War: Ascension [PS3] [EUR] [RIP] [RUSSOUND] [3.40/3.55/4.20/4.30/4.31 CFW
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937761.jpg" />
 </div>
 
 
@@ -114,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937757.jpg" />
 </div>
 
 
@@ -140,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937653.jpg" />
 </div>
 
 
@@ -166,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937635.jpg" />
 </div>
 
 
@@ -192,7 +351,7 @@ S.T.A.L.K.E.R. Trilogy / S.T.A.L.K.E.R. Трилогия (2007-2009) [Ru/Multi] 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937618.jpg" />
 </div>
 
 
@@ -218,7 +377,7 @@ Check Internet Browser Component 1.0.1.56 [Ru]
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937612.jpg" />
 </div>
 
 
@@ -245,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937597.jpg" />
 </div>
 
 
@@ -271,7 +430,7 @@ GoodbyeDPI.0.1.6. Launcher-3.4 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937552.jpg" />
 </div>
 
 
@@ -300,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937546.jpg" />
 </div>
 
 
@@ -326,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937543.jpg" />
 </div>
 
 
@@ -352,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936782.jpg" />
 </div>
 
 
@@ -378,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936735.jpg" />
 </div>
 
 
@@ -404,7 +563,7 @@ The Bat! 4.2.42 Pro [Multi/rus]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936621.jpg" />
 </div>
 
 
@@ -430,7 +589,7 @@ Nicefon 1.0.0 Portable (Обои на рабочий стол) [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936612.jpg" />
 </div>
 
 
@@ -456,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936611.jpg" />
 </div>
 
 
@@ -483,7 +642,7 @@ Opera Neon 1.0.2459.0 Dev [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936598.jpg" />
 </div>
 
 
@@ -509,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936591.jpg" />
 </div>
 
 
@@ -520,164 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:148DA10E8494994AABF2CA1D2331BFA0D33A3FDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093031   (936578) от 13.01.2017
-
-Ubuntu GamePack 16.04 [i386/amd64] 2xDVD
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект UALinux выпустил сборку Ubuntu GamePack 16.04, предоставляющую средства для запуска более 22 381 игр, как оригинальных, разработанных специально для платформы GNU/Linux, так и игр для Windows, запускаемых при помощи PlayOnLinux, CrossOver и Wine, а также старых игр для MS-DOS.
-Дистрибутив собран на базе Ubuntu 16.04 и включает в себя все обновления, по состоянию (   Читать дальше...   )Разработчик: UALinux
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46A7F630821B3A66EE75F682865B383D4135E7C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092780   (936572) от 13.01.2017
-
-Need for Speed Most Wanted (2012) [Ru/En] (1.5.0.0/dlc) Repack =nemos=
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Need for Speed: Most Wanted – безумные гонки по огромному открытому городу, полному как уличных гонщиков, так и полицейских. При этом обновленный Autolog позволяет легко отслеживать все действия (заезды, прыжки на трамплинах, проезды на огромных скоростях мимо камер и т.д.) ваших друзей и сравнивать их со своими достижениями.Тип издания: RepackРазработчик: Criterion GamesЖанр: Arcade, Racing (Cars), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD44BBAAA10DF875801C0AD336E49D323CD4B5FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 261119   (936570) от 13.01.2017
-
-Коллекция фильмов 12 стульев и Золотой телёнок (Ильф и Петров) [1933 - 2006] DVDRip
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936570.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал Золотой теленок это попытка экранизации культового романа Ильи Ильфа и Евгения Петрова с включением фрагментов, ранее не публиковавшихся по цензурным соображениям.Жанр: Русский сериал, комедияРежиссер: Ульяна Шилкина.Перевод: ОригинальныйСубтитры: русские (вшитые)Формат: AVIПродолжительность: 8 серий x 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7C6C8F36FF74E4BE856C43C8BA6BA513F78EEEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092781   (936564) от 13.01.2017
-
-Windows 7 SP1 (x86/x64) 13in1 +/- Office 2016 by SmokieBlahBlah 12.01.17 [Ru/En]
-
->>3
->>15
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936564.jpg" />
-</div>
-
-
-###  Подробнее
-
-13 редакций Windows 7 (русские и английские) с IE 11, важными и рекомендуемыми обновлениями по январь 2017 (кроме нерекомендуемых) и интегрированными системными библиотеками +13 таких же редакций со встроенным MS Office 2016 Pro Plus VL х86 (можно выбрать, ставить ли Office. Галочка перед началом установки, см. 1-й скриншот). Язык офиса зависит от выбранного языка (   Читать дальше...   )Язык интерфейса: Русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23FE81E7EB06B3ABC8E2F8B5B64347904B5230B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984612   (936371) от 10.02.2016
-
-Доступ в интернет может стать бесплатным для отдельных групп населения в ближайшее время, считают в ГД
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интернет для россиян может стать бесплатным
-Бесплатный доступ в интернет для отдельных слоев населения России может быть введен в ближайшее время. Об этом заявил на международном форуме по кибербезопасности Cyber Security Forum председатель комитета Госдумы по информационной политике, информационным технологиям и связи Леонид Левин."Возможно, бесплатный доступ (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984976   (936369) от 10.02.2016
-
-Adobe Muse CC 2015.1.0 Multilingual Update 3
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936369.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Muse CC 2015 – визуальный конструктор сайтов, функционирующий по принципу «отображение внесённых изменений в реальном времени». Таким образом, разработчику не требуется открывать HTML-код сайта - панель редактирования позволяет работать с веб-страницей, как с изображением. Очевидно, что такой подход ориентирован на создание среды разработки, доступной пользователю (   Читать дальше...   )Язык интерфейса: Английский / Голландский / Датский / Испанский / Итальянский / Китайский (традиционный) / Корейский / Немецкий / Норвежский / Польский / Португальский / Русский / Турецкий /  Финский / Французский / Чешский / Шведский / Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E172735875BE5CDC7C087651649CFBF788A02533
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Dirty Bad Unit ft. Mangu - Everyday We Lovin (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453317.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Booba - Caramel (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453120.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Polina Griffith - Ain`t Givin Up (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451422.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ C.C.Catch - Catch The Hits - Ultimate video collection (2005) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451413.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Federico Scavo - Ride Like The Wind (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451408.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ VA - Official UK Top 40 Video Chart (02-10-2015) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451364.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Cinnamon Chasers (2009-2011) [720p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448413.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448163.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Selena Gomez and The Scene - Love You Like A Love Song / Селена Гомес
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446661.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Barillo - Dust (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446413.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ KooFee feat. Manu Blanco - El Culito (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446222.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Sandra Afrika - Neko ce mi nocas napraviti sina (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446087.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Lindsey Stirling - Elements  (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445770.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445677.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ VA - Осенний марафон № 195 / Видеоклипы (Зарубе�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444752.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444038.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443628.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Uriah Heep - More Of Classic Heep Live (Video Сollection1972-1978) (2012) VHSRi
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443354.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439728.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438399.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Mr Saik - Lights Out (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437113.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Cabin Crew - Star To Fall (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437096.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Basshunter - Dream on the Dancefloor (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436815.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Ben Gold feat. The Glass Child - Fall With Me (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436672.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ David Guetta feat. Sia - She Wolf (Falling to Pieces) (2012) [H.264/1080p] WEBRi
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436437.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Smokie  Greatest Hits 1975-1979 (2011) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435838.jpg" />
 </div>
 
 

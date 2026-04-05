@@ -1,3 +1,30 @@
+###  Публикация: 1530642   (727522) от 12.02.2022
+
+Udemy, Too Much Sugar Productions, Emilio Padulo | The Psychology of Color in Game Design & Development (2019) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727522.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс охватывает не только основы теории цвета. Он также демонстрирует, как разные цвета могут влиять на игроков разными способами.
+Этот курс расскажет о том, что такое психология определенных цветов, как они влияют на нас, что они представляют и что означают различия оттенков цветов. Понимание этого имеет решающее значение при разработке уровней, персонажей, (   Читать дальше...   )Производство: Udemy, Too Much Sugar ProductionsЖанр: Создание окруженияЯзык озвучки: Русский (отдельным файлом)Продолжительность: 02:17:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F0D36241264ABDDF2E51850AF770A118266B0F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1530640   (727515) от 12.02.2022
 
 Levelup.Digital, Pauline Boiteux | Advanced Pattern & Fabric Creation in Substance Designer (2019) PCRec [EN, RU]
@@ -6,7 +33,7 @@ Levelup.Digital, Pauline Boiteux | Advanced Pattern & Fabric Creation in Substan
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727515.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727513.jpg" />
 </div>
 
 
@@ -62,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727292.jpg" />
 </div>
 
 
@@ -89,7 +116,7 @@ kts.studio, Александр Опрышко | Асинхронное прог�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727158.jpg" />
 </div>
 
 
@@ -116,7 +143,7 @@ Udemy, Dzianis Matveyenka | JDBC (2022) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727152.jpg" />
 </div>
 
 
@@ -142,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727150.jpg" />
 </div>
 
 
@@ -170,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726935.jpg" />
 </div>
 
 
@@ -199,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726288.jpg" />
 </div>
 
 
@@ -227,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726247.jpg" />
 </div>
 
 
@@ -256,7 +283,7 @@ OTUS | React.js разработчик (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726118.jpg" />
 </div>
 
 
@@ -285,7 +312,7 @@ OTUS | Архитектура и шаблоны проектирования [Ч
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726117.jpg" />
 </div>
 
 
@@ -313,7 +340,7 @@ OTUS | Product Manager IT-проектов (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726116.jpg" />
 </div>
 
 
@@ -339,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726110.jpg" />
 </div>
 
 
@@ -366,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726107.jpg" />
 </div>
 
 
@@ -392,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726076.jpg" />
 </div>
 
 
@@ -418,7 +445,7 @@ Vlad Palagin | Palagin on the course (2022) WEB-DL [Тариф "Proдвинут�
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725955.jpg" />
 </div>
 
 
@@ -447,7 +474,7 @@ Slurm (Слёрм), Всеволод Севостьянов, Тигран Хан
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725847.jpg" />
 </div>
 
 
@@ -474,7 +501,7 @@ Allan McKay | FX Technical Director Transformation Module 13 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724992.jpg" />
 </div>
 
 
@@ -502,7 +529,7 @@ Allan McKay | FX Technical Director Transformation Module 14 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724984.jpg" />
 </div>
 
 
@@ -530,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724707.jpg" />
 </div>
 
 
@@ -556,7 +583,7 @@ IAMAG Master Classes, Jorge Barrero | Creating Cinematic Frames (2020) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724262.jpg" />
 </div>
 
 
@@ -582,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724184.jpg" />
 </div>
 
 
@@ -608,7 +635,7 @@ Gumroad, Jorge Barrero | Storyboarding in Blender 2.9 (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724130.jpg" />
 </div>
 
 
@@ -635,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723821.jpg" />
 </div>
 
 
@@ -663,7 +690,7 @@ Vladimir Chopine | Изучение цифрового композитинга 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723817.jpg" />
 </div>
 
 
@@ -675,35 +702,6 @@ Vladimir Chopine | Изучение цифрового композитинга 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74E56D700683CD79F14E82464EE964B980FF1530
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022643   (723350) от 05.06.2016
-
-Николай Угольник | Проектирование внутренних электрических сетей в Autocad (комплект золотой) (2016) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Понятное видео-руководство от А до Я
-+ быстрые расчеты эл. схем, щитов и кабелей
-+ ВСЕ чертежи-заготовки элементов, схем и спецификаций
-(   Читать дальше...   )Жанр: Проектирование, внутренних электрических сетей,  дизайн, уроки, autocaПродолжительность: 09:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:629CEF28AB3E25C4871239C31C588B9F4E5D3D90
 ```
 
 https://mybot314.ru/tekegram_catalog/

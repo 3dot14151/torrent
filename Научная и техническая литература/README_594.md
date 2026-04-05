@@ -1,134 +1,3 @@
-###  Публикация: 714458   (117753) от 14.02.2024
-
-Е. Ф. Макаров, В. В. Дрозд | Справочник по электрическим сетям 0,4-35 кВ и 110-1150 кВ. 16 томов (1999 - 2015) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Справочник предназначен для работников предприятий энергосистем, обслуживающих электросети 0,4-35 кВ, энергетиков промышленных предприятий и предприятий коммунальной энергетики, энергетиков сельскохозяйственного производства, студентов университетов и колледжей электротехнических специальностей, учащихся производственно-технических училищ электротехнического профиля, (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: Энергия, АльвисФормат: DJVUКачество: Хороший скан, с ч/б илл.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84D5BAC0391F82A97C7E54C7B126F24256BC0664
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699661   (117745) от 14.02.2024
-
-Самудзи Фудзибаяси | Бансэнсюкай. Настольная книга ниндзя (2023) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бансэнсюкай – древнейшее из сохранившихся пособий по ниндзюцу, составленное в XVII веке выдающимся ниндзя Самудзи Фудзибаяси. Вскоре после публикации книга стала главным учебным пособием для большинства кланов ниндзя и оставалась им вплоть до конца XIX века. Эта книга и поныне используется для подготовки бойцов японского спецназа.
-В книге подробно описаны философия (   Читать дальше...   )Жанр: Историческая прозаИздательство: РодинаФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A30E90CF93DDC70370F377F82A31DDA3732CAE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699591   (117694) от 14.02.2024
-
-А.Т. Блажкин (ред.) | Общая электротехника (1986) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117694.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для студентов вузов неэлектротехнических специальностей. Излагаются основы теории электрических и магнитных цепей, электромагнитных устройств, электрических измерений, электрических машин и понятия о физическом, аналоговом и цифровом моделировании. Приводятся сведения об электроприводах, управлении электроприводами, некоторых системах автоматики и их элементах.Жанр: ЭлектротехникаИздательство: ЭнергоатомиздатФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8F5E08AED98E28F626911FA6A3F6477117611A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699963   (117500) от 15.02.2024
-
-А.В. Белов | Микроконтроллеры AVR: от азов программирования до создания практических устройств (2-е изд.) (2020) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117500.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная книга — это практический самоучитель по микроэлектронике и микроконтроллерам для начинающих конструкторов, а также для широкого круга инженеров, мастеров по ремонту электроники и всех желающих расширить свои знания в этой области. За шесть шагов читатель пройдет путь от «чайника», изучающего азы цифровой техники, до вполне готового специалиста, умеющего самостоятельно (   Читать дальше...   )Жанр: Компьютерная литература, электроникаИздательство: Наука и ТехникаФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42F3B012B3BB737933B3662BC533502467171999
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552924   (117496) от 15.02.2024
-
-С.М.Беков и др. | 15 бригада Спецназ. Люди и судьбы. Афганистан глазами очевидцев [2009] [DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117496.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге рассказывается об истории 15-й отдельной ордена Красного Знамени Республики Афганистан бригады специального назначения ГРУ ГШ ВС СССР, солдатах и сержантах, прапорщиках, офицерах и генералах, связавших свою судьбу со Спецназом. Глазами участников боевых действий в Афганистане раскрывается роль Спецназа ГРУ ГШ в афганской войне 1979-1989 гг., боевые будни (   Читать дальше...   )Издательство: М.: Русская панорамаФормат: DJVUКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25617008F6381AEC4E9A6B06A6FD4B2C3D782986
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700113   (117445) от 15.02.2024
 
 Н.В. Хрусталева | Особенности 3D-печати и фотограмметрии (2023) [PDF]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117445.jpg" />
 </div>
 
 
@@ -164,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117431.jpg" />
 </div>
 
 
@@ -190,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117429.jpg" />
 </div>
 
 
@@ -216,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117422.jpg" />
 </div>
 
 
@@ -242,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117311.jpg" />
 </div>
 
 
@@ -269,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117296.jpg" />
 </div>
 
 
@@ -295,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117252.jpg" />
 </div>
 
 
@@ -322,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117242.jpg" />
 </div>
 
 
@@ -349,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117092.jpg" />
 </div>
 
 
@@ -376,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117081.jpg" />
 </div>
 
 
@@ -402,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117068.jpg" />
 </div>
 
 
@@ -428,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116987.jpg" />
 </div>
 
 
@@ -454,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116927.jpg" />
 </div>
 
 
@@ -480,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116916.jpg" />
 </div>
 
 
@@ -507,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116903.jpg" />
 </div>
 
 
@@ -533,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116770.jpg" />
 </div>
 
 
@@ -559,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116751.jpg" />
 </div>
 
 
@@ -587,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116747.jpg" />
 </div>
 
 
@@ -615,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116737.jpg" />
 </div>
 
 
@@ -642,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116730.jpg" />
 </div>
 
 
@@ -670,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116713.jpg" />
 </div>
 
 
@@ -681,6 +550,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8437AD17764E18BE7A2AE3FE28B370180765D6DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701112   (116705) от 19.02.2024
+
+Я.П. Понарин | Алгебра комплексных чисел в геометрических задачах (2004) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116705.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге в научно-популярной форме излагаются основы метода комплексных чисел в геометрии. Отдельные главы посвящены многоугольникам, прямой и окружности, линейным и круговым преобразованиям. Метод комплексных чисел иллюстрируется на решениях более 60 задач элементарного характера. Для самостоятельного решения предлагается более 200 задач, снабжённых ответами или (   Читать дальше...   )Жанр: МатематикаИздательство: МЦНМОФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A10DCFB308F4EC5B2C61748E15B21723F8F7029
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701107   (116702) от 19.02.2024
+
+Л.И. Байда и др. | Электрические измерения (1980) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116702.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге излагаются основы электрических измерений. Рассматриваются средства и методы измерений электрических, магнитных и неэлектрических величин.Жанр: ЭлектротехникаИздательство: ЭнергияФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DC2E54AABCB391C94089C9F11C5AA1442C239F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701120   (116700) от 19.02.2024
+
+В.В. Прасолов | Геометрия Лобачевского (2014) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга написана на основе курса лекций, читавшегося автором студентам первого курса Математического колледжа НМУ в осенних семестрах 1994/95, 1995/96, 1996/97 и 2002/03 учебных годов. Она содержит множество задач, предлагавшихся на семинарских занятиях.
+В книгу также включены полные тексты письменных экзаменов по этим курсам, а также по курсам О. В. Шварцмана (осенние (   Читать дальше...   )Жанр: МатематикаИздательство: МЦНМОФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A2C63C0B72C7C49ED9C5FE7C1073DF41751CF98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701162   (116576) от 20.02.2024
+
+Я.Г. Дорфман | Всемирная история физики (1974 - 1979) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116576.jpg" />
+</div>
+
+
+###  Подробнее
+
+В первом томе монографии рассматривается развитие мировой физики с ее истоков - возникновения физических представлений в странах Древнего Востока - до эпохи начала промышленного переворота в Европе.
+Помимо изложения последовательной смены теоретических представлений и опытных результатов значительное влияние уделяется анализу положенных в их основу методов и принципов. (   Читать дальше...   )Жанр: ФизикаИздательство: НаукаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E54382025235D558AD99F6F044A4FB12D66EEB11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701293   (116567) от 20.02.2024
+
+Дэвид Дэй / David Day | Герои Толкина / The Heroes of Tolkien (2020) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вымышленный мир Дж. Р. Толкина населен большим количеством великих героев. Превозмогая трудности и ненастья, каждый из них может сохранить достоинство и найти в себе смелость победить противников. Но знаете ли вы их всех поименно?
+Эта книга расскажет вам о противостоянии добра и зла вселенной Толкина и о тех, кто находится по обе стороны борьбы. Люди, эльфы, гномы (   Читать дальше...   )Жанр: ЛитературоведениеПеревод: Н. НекрасоваЯзык: РусскийИздательство: ЭКСМОФормат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:020434018F9A4402A07B84BF19F56DEC863809B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

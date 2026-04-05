@@ -6,7 +6,7 @@
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333993.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333950.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333266.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Roxette - Bag Of Trix Vol. 1 (Music From The Roxette Vaults) (2020) [AAC|~322 Kb
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333251.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333099.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332924.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332872.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332860.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332814.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Tairrie B. - Feminenergy (2020) [AAC|~299 Kbps] <Hip-Hop, Rap>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332642.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Depeche Mode - Remixes For The Masses (2020) [AAC|~341 Kbps] <Synthpop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332429.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332320.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332225.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332095.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Draconian - Under a Godless Veil (2020) [AAC|~315 Kbps] <Gothic Metal, Doom Meta
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331412.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331409.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331360.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331284.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331278.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331277.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331269.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331201.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ One Direction - Made In The A.M. (2015) Deluxe Edition [AAC|256 кб/с]<Pop, Da
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331145.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331058.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330967.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330905.jpg" />
 </div>
 
 

@@ -1,3 +1,81 @@
+###  Публикация: 1164905   (436390) от 11.09.2017
+
+Late Shift (2017) [Ru/Multi] (1.0) Repack R.G. Механики
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Late Shift - это криминальный FMV-триллер, ставки в котором как никогда высоки. После того, как студента-математика Мэтта силой втягивают в ограбление рентабельного аукционного дома, ему не остаётся ничего иного, кроме как попытаться доказать свою невиновность в этом жестоком лондонском ограблении. Ваши выборы будут иметь последствия с самого начала и до самого конца.Тип издания: RepackРазработчик: CtrlMovieЖанр: Movie, Action, Adventure, QuestЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E1AED34FBB62AA1190A71D46FE0212BC9AA5D59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063177   (436370) от 15.10.2016
+
+Stay Close (2016) [En] (1.04) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Достаточно стандартный вечер обернется циклом мистических приключений. Темный город заставит вас играть по своим правилам и делать это можно как одному, так и в кооперативеТип издания: RepackРазработчик: Blind BirdЖанр: Adventure (Horror), 1st Person, IndieЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0013E9FE259A5EE1CE4FBD1934233760EB7CC82E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410493   (435787) от 21.09.2020
+
+Beatbuddy: Tale of the Guardians (2013) [Ru/Multi] (1.2.9) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очнувшись от забытья, Ритмобрат путешествует по пышным нарисованным от руки окружениям в квесте, целями которого являются спасение его товарищей и собственное бессмертие. Ритмобрат взаимодействует с живым дышащим окружением под ритмы оригинальной звуковой дорожки, помогающей ему по мере того, как он разблокирует новые пути и решает головоломки.Тип издания: RepackРазработчик: ThreaksЖанр: Adventure, Action, Puzzle, CasualЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B06EA4DFAAC96D7DFD40F01BA0FDF97D995ED934
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410546   (435656) от 21.09.2020
 
 Wind Peaks (2020) [Ru/Multi] (2019.3.15.5898046) Repack Other s
@@ -6,7 +84,7 @@ Wind Peaks (2020) [Ru/Multi] (2019.3.15.5898046) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435656.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ A Tale of Paper: Refolded (2022) [Ru/Multi] (1.0) License GOG [Digital Deluxe Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431288.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Still Life 2 (2009) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430054.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Minecraft: Story Mode - A Telltale Games Series (2015) [Ru/Multi] (1.0.0.1) Repa
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429676.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ Okaeri (2019) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429221.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ Still Life 1, 2 (2005-2009) [Ru] (1.00) Repack R.G. Механики [Dilogy / �
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_428732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_428732.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ Toren (2015) [Ru/Multi] (1.0) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428627.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426681.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ Path to Mnemosyne (2018) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424118.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ Batman - The Telltale Series (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst [Episo
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423431.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ Overclocked: A History of Violence / Overclocked. Оправданная жес�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422944.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ The Descendant (2016) [En] (3.2/dlc) Repack Other s [Episode 1-4]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422817.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ The Walking Dead: The Telltale Definitive Series (2019) [Ru/Multi] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422780.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ The Vanishing of Ethan Carter (2014) [Multi] (1.04) License GOG [Redux]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420073.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ Panzer Dragoon: Remake (2020) [Ru/Multi] (0.8.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420067.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ Trollhunters: Defenders of Arcadia / Охотники на троллей: За�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420021.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ Octave (2016) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418029.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0) Repack CoolGames [Epi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416643.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ Best Month Ever! (2022) [Ru/Multi] (1.0.0_020) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416064.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ Jotun (2015) [Ru/Multi] (11-09-2019) License GOG [Valhalla Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415901.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ Don't Starve (2013) [Ru/En] (429404/dlc) License GOG [Alone Pack]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415293.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ Gabriel Knight: Sins of the Fathers (2014) [Multi] (1.0) License [20th Anniversa
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414111.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ Projection: First Light (2020) [Ru/Multi] (2.0.1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413151.jpg" />
 </div>
 
 
@@ -592,84 +670,6 @@ Projection: First Light рассказывает о приключениях д�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78D382E2B8016248D9B498904BEE48071C8B7381
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325556   (412098) от 15.09.2019
-
-Sea of Solitude (2019) [Multi] (1.0.0.0) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412098.jpg" />
-</div>
-
-
-###  Подробнее
-
-В игре Sea of Solitude вы поможете юной девушке бросить вызов одиночеству. Отправляйтесь в плавание по завораживающему и развивающемуся миру, где вас повсюду поджидает обман. Познакомьтесь с фантастическими существами и монстрами, узнайте их истории и решите головоломки. Исследуйте затопленный город, перемещаясь на лодке, пешком или прямо по воде. Осмельтесь взглянуть (   Читать дальше...   )Тип издания: LicenseРазработчик: Jo-Mei GamesЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F340015E3801AC3C6BBE9C4CE954B8F8BCA5EFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325651   (411941) от 15.09.2019
-
-Sea of Solitude (2019) [Multi] (1.0.0.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411941.jpg" />
-</div>
-
-
-###  Подробнее
-
-В игре Sea of Solitude вы поможете юной девушке бросить вызов одиночеству. Отправляйтесь в плавание по завораживающему и развивающемуся миру, где вас повсюду поджидает обман. Познакомьтесь с фантастическими существами и монстрами, узнайте их истории и решите головоломки. Исследуйте затопленный город, перемещаясь на лодке, пешком или прямо по воде. Осмельтесь взглянуть (   Читать дальше...   )Тип издания: RepackРазработчик: Jo-Mei GamesЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CAF9DF5DF198BC834A5C0EABEE1E4A4FBEFFAFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573209   (411755) от 31.08.2022
-
-The Bridge Curse Road to Salvation (2022) [Multi] (1.5.6) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411755.jpg" />
-</div>
-
-
-###  Подробнее
-
-Страх, тревога и смех являются символами молодости. Испытайте настоящие паранормальные явления вместе с друзьями от первого лица и оставайтесь в живых. The Bridge Curse Road to Salvation — это экранизация фильма ужасов, включающая в себя тайваньскую городскую легенду и интригующую предысторию.Тип издания: RepackРазработчик: SOFTSTAR ENTERTAINMENTЖанр: Adventure (Horror), Stealth, 1st Person, 3DЯзык озвучки: КитайскийЯзык субтитров: Английский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC860DAAB58D6346A7F0384151BE607341E691FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

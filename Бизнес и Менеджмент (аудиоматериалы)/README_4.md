@@ -1,3 +1,84 @@
+###  Публикация: 1006094   (828609) от 11.04.2016
+
+Самвел Кочои | Уголовное право. Общая и Особенная части. Курс лекций (2010) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аудиокурс соответствует программе курса "Уголовное право". В предлагаемом аудиокурсе содержатся основные положения Общей и Особенной частей Уголовного кодекса Российской Федерации.
+
+Для студентов, аспирантов и преподавателей юридических вузов и факультетов, работников суда и других правоохранительных органов.Жанр: Бизнес аудиокниги, АудиокурсыПродолжительность: 19:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DBF6BB0D261C95393832EA78B17DCB80F0196D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006084   (828390) от 11.04.2016
+
+Олег Ласков | Не стань Ходорковским! Налоговые схемы, за которые не посадят (2007) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скандал вокруг дела М.Ходорковского не утихает до сих пор. Что же было сделано командой олигарха неправильно, почему умнейшие люди все-таки угодили за решетку?
+Аудиокнига рассказывает о том, что закон позволяет, а за что можно сесть в тюрьму, что на самом деле легально, а что просто невозможно доказать. Вы узнаете о существующих технологиях сокрытия доходов от налогообложения, (   Читать дальше...   )Жанр: Бизнес, ФинансыПродолжительность: 05:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAEB537ED9ED598005B8FEFEE528E1306A10B913
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006304   (826889) от 12.04.2016
+
+В.Б. Алексеев | Финансовое право Российской Федерации. Курс лекций (2010) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Бизнес аудиокниги, АудиокурсыПродолжительность: 11:21:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A250626646CE54AE402B3D9A1E3FF204E523F0DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006647   (826527) от 12.04.2016
 
 Роберт Кийосаки | Школа бизнеса (2010) [MP3]
@@ -6,7 +87,7 @@
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826527.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826525.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800812.jpg" />
 </div>
 
 
@@ -85,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798975.jpg" />
 </div>
 
 
@@ -112,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795528.jpg" />
 </div>
 
 
@@ -139,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793869.jpg" />
 </div>
 
 
@@ -165,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793775.jpg" />
 </div>
 
 
@@ -191,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792115.jpg" />
 </div>
 
 
@@ -217,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792067.jpg" />
 </div>
 
 
@@ -245,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792063.jpg" />
 </div>
 
 
@@ -273,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790919.jpg" />
 </div>
 
 
@@ -301,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790828.jpg" />
 </div>
 
 
@@ -327,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788062.jpg" />
 </div>
 
 
@@ -353,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788033.jpg" />
 </div>
 
 
@@ -381,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788021.jpg" />
 </div>
 
 
@@ -407,7 +488,7 @@ Harvard Business Review | Лидерство (2018) [MP3]
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787944.jpg" />
 </div>
 
 
@@ -434,7 +515,7 @@ Harvard Business Review | Методы принятия решений (2018) [M
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787938.jpg" />
 </div>
 
 
@@ -462,7 +543,7 @@ Harvard Business Review | Эмоциональный интеллект (2018) [
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787933.jpg" />
 </div>
 
 
@@ -489,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787880.jpg" />
 </div>
 
 
@@ -515,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779590.jpg" />
 </div>
 
 
@@ -541,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775594.jpg" />
 </div>
 
 
@@ -567,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764336.jpg" />
 </div>
 
 
@@ -593,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753004.jpg" />
 </div>
 
 
@@ -604,90 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1980712AE596BA6A82621C34B3CC438BC3B2498
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 780674   (752994) от 07.02.2019
-
-Издательство Манн, Иванов и Фербер | Ключевые книги о бизнесе [17 аудиокниг] (2006-2012) [MP3, M4B]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы - необычное издательство деловой литературы. В чем наша необычность? Начнем с того, что издательство создано тремя маркетологами-практиками, которые сами являются авторами книг.
-Будучи ещё только авторами, мы работали с разными издательствами
-и пришли к мысли, что нет ничего такого, что мы не смогли бы сделать сами, при этом сделать лучше. Поэтому, создав издательство, (   Читать дальше...   )Жанр: Бизнес, Психология
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:343C336C798B500AAD96200DB72143F37AB60084
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523861   (748084) от 13.01.2022
-
-Алексей Иванов | Как придумать идею, если вы не Огилви (2020) [MP3, Юрий Катарманов]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Идеи – твёрдая валюта рекламной индустрии. Каждый день креативные агентства занимаются тем, что придумывают множество концепций для заказчиков. На практике основным способом поиска новых идей остаётся крайне неэффективный метод проб и ошибок.
-
-В книге предлагается альтернативный подход к поиску нестандартных идей в рекламе. Возможно, впервые в рекламном деле подробно (   Читать дальше...   )Жанр: Креатив / идеи, Привлечение клиентов, РекламаПродолжительность: 02:39:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4A36781DEE67D844628E59D4BFE4059D57D6117
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523831   (748082) от 13.01.2022
-
-Майкл Вилкинсон | Секреты фасилитации. SMART-руководство по работе с группами (2020) [MP3, Артем Пахомов]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аудиоверсия книги №1 по фасилитации. Здесь вы найдёте всё, что нужно знать для проведения успешных фасилитационных сессий. Вы узнаете, как сформулировать цель, какие вопросы задавать, как наглядно отражать полученные идеи на флипчартах и парковочных досках.
-
-Руководство будет полезно и начинающим фасилитаторам, и специалистам с опытом, а также руководителям. Фасилитация (   Читать дальше...   )Жанр: Зарубежная деловая литература, Организационный менеджмент, Управление бизнесом, Управление персоналомПеревод: Ирина Окунькова, Павел МироновПродолжительность: 16:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22FA38621948A5DB443905DE3893AF29680DC379
 ```
 
 https://mybot314.ru/tekegram_catalog/

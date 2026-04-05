@@ -1,134 +1,3 @@
-###  Публикация: 910382   (618325) от 22.06.2015
-
-М. Н. Ровенский (сост.) | Чекисты Дона. Очерки (1980) [DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618325.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чекисты Дона... Люди разной судьбы, разных поколений, они самоотверженно, не жалея сил, а зачастую и жизни, вступали в схватку с врагами Родины. Об их замечательных делах рассказывает эта книга.Жанр: Военная документалистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6046CE6D6994C2307A620D8C0288409085C934FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911238   (618315) от 22.06.2015
-
-Р. В. Кинжалов | Культура древних майя (1971) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618315.jpg" />
-</div>
-
-
-###  Подробнее
-
-Задача настоящей работы - дать (впервые на русском языке) общую характеристику древней культуры народов майя за все ее более чем двухтысячелетнее развитие, начиная с самых ранних этапов и кончая трагической гибелью от меча испанских конкистадоров.Жанр: история, религиоведение, культурология, искусствФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0055342C523D3C0528139CF841B1FACF49B6FFE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544530   (618291) от 17.04.2022
-
-Эдуард Иванян | Белый дом. Президенты и политика (1976) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618291.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главой исполнительной власти в США является президент. От его имени проводится внешняя и внутренняя политика крупнейшего капиталистического государства. Какое место отвела история тому или иному американскому президенту, благодаря каким силам и обстоятельствам занимали они Белый дом в различные годы текущего столетия, в чьих интересах действовали? Рисуя политические (   Читать дальше...   )Жанр: История, экономика, политологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86AAC83088029ED148647FD56009DA780292DC81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544968   (618289) от 17.04.2022
-
-О.А. Шилова (ред.) | Золь-гель технология микро- и нанокомпозитов (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618289.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное учебное пособие призвано помочь учащимся и специалистам разобраться в особенностях золь-гель синтеза и освоить основные технологические приемы. Оно соответствует ФГОС ВПО третьего поколения и может быть рекомендовано для обучения бакалавров и магистров по направлениям «Электроника и наноэлектроника» и «Нанотехнологии и микросистемная техника».
-Пособие может (   Читать дальше...   )Жанр: Электроника, наноэлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD5901ED73F525F90100D82A92A824FF65CD3F17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145898   (618236) от 27.06.2017
-
-Л. А. Березный | Критика методологии американской буржуазной историографии Китая (1968) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618236.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассматриваются методологические принципы исследования буржуазными учеными исторического процесса в Китае. В ней показаны социальные и гносеологические основы новейших буржуазных концепций, подробно рассмотрено, как буржуазная историография истолковывает проблему «ответа» Китая на «воздействие извне» и освещает влияние империализма на социальное развитие (   Читать дальше...   )Жанр: История, политологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22ADDB1D0A91646E42BD80F233DBF36C83D7E7E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1145906   (618234) от 27.06.2017
 
 Л. А. Леонтьев | Энгельс и экономическое учение марксизма (1965) [DJVU]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618234.jpg" />
 </div>
 
 
@@ -163,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618136.jpg" />
 </div>
 
 
@@ -189,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618132.jpg" />
 </div>
 
 
@@ -215,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618109.jpg" />
 </div>
 
 
@@ -242,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618096.jpg" />
 </div>
 
 
@@ -268,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618030.jpg" />
 </div>
 
 
@@ -294,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617985.jpg" />
 </div>
 
 
@@ -320,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617984.jpg" />
 </div>
 
 
@@ -346,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617915.jpg" />
 </div>
 
 
@@ -372,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617908.jpg" />
 </div>
 
 
@@ -398,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617818.jpg" />
 </div>
 
 
@@ -425,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617807.jpg" />
 </div>
 
 
@@ -453,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617681.jpg" />
 </div>
 
 
@@ -479,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617630.jpg" />
 </div>
 
 
@@ -505,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617515.jpg" />
 </div>
 
 
@@ -531,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617403.jpg" />
 </div>
 
 
@@ -557,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617304.jpg" />
 </div>
 
 
@@ -583,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617281.jpg" />
 </div>
 
 
@@ -609,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617264.jpg" />
 </div>
 
 
@@ -637,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616958.jpg" />
 </div>
 
 
@@ -663,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616863.jpg" />
 </div>
 
 
@@ -674,6 +543,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B7C6156D19E09E053AC572A2E20BFF87B33E05F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295846   (616832) от 14.04.2019
+
+В.Г. Давыдов, В.Н. Хохловский | Система супервизорного управления Citect SCADA. Базовый курс и язык Cicode (2017) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие предназначено для использования студентами при изучении дисциплин "Проектирование компьютерных систем управления" и «Компьютерные системы управления». Изложение материала в учебном пособии соответствует программе базового курса по системе супервизорного управления Citect SCADA и курса по языку программирования Cicode, изучаемых в центрах (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3E5A97F9385C0EA910CD3DF96B63467DE6800E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523863   (616615) от 16.07.2012
+
+А.А.Ионина, А.С.Саакаян | How Articles Work in English. Как же все-таки употреблять артикли? [2002] [DJVU]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта полезная книга поможет сформировать, развить и закрепить навыки правильного употребления английских артиклей с самыми различными разрядами существительных. Материал книги поможет как учителю английского языка - проводить интенсивное обучение при индивидуальном подходе, так и всем тем, кто самостоятельно изучает английский язык - издание содержит ответы к упражнениям и тестам для самоконтроля.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26A673ED7C3CB953BBEBA704D58C3699E86CCDC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146141   (616482) от 28.06.2017
+
+Г. В. Плеханов | Воинствующий материализм (1931) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616482.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге «Воинствующий материализм» Плеханов собрал свои открытые письма к Богданову.
+
+Два из них были помещены в 1908 году в «Голосе социал-демократа», а последнее, третье написано специально для сборника «От обороны к нападению», вышедшего в 1910 г.
+(   Читать дальше...   )Жанр: История, политология, философия, науковедениеФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFFD9CECA52BD9BC6C683D0C7088FED07D8DE979
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911594   (616439) от 23.06.2015
+
+Андрей Тарасов | Что есть истина? Праведники Льва Толстого (2001) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616439.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данной книге представлено монографическое исследование, посвященное духовно-религиозным аспектам художественного творчества Л. Н. Толстого. Большое значение придается практически не исследованным «малым» произведениям и наброскам писателя, имеющим принципиальное значение при изучении представлений Толстого о высшей жизненной правде. В отечественном сознании сложился (   Читать дальше...   )Жанр: Культурология, Языкознание, Биографии писателей и поэтовФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52D804EB2A4266A8EA9D01770B00BC8113C51FCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911067   (616434) от 23.06.2015
+
+М. И. Панова | «Народный капитализм» сегодня (1970) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616434.jpg" />
+</div>
+
+
+###  Подробнее
+
+В экономическом «фольклоре», созданном буржуазными идеологами, сказка о «народном капитализме» занимает далеко не последнее место. В ней говорится о том, что капитализм в ходе своего развития потерял присущую ему эксплуататорскую сущность. В буржуазном обществе якобы произошли три «революции» — в собственности, управлении и доходах,— результатами которых явились (   Читать дальше...   )Жанр: история, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2A9049744A736023A424ED78393DEE307C8043F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 919925   (581757) от 20.07.2015
+
+Clean Bandit - New Eyes (2014) Deluxe Version [FLAC|tracks|Web-DL] <UK Garage, Deep House, House>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mozart's House (feat. Love Ssega) (3:51)
+02. Extraordinary (feat. Sharna Bass) (4:17)
+03. Dust Clears (feat. Noonie Bao) (4:27)
+04. Rather Be (feat. Jess Glynne) (3:48)(   Читать дальше...   )Производство: Atlantic – 825646323487Жанр: UK Garage, Deep House, HouseПродолжительность: 01:10:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29E8F4C6438399221F76837B57F3D1DD4BD76AA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041574   (581573) от 10.08.2016
+
+VA - Chill Out Sunset Vol.2 (2016) [MP3|320 Kbps] <Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Puch - Kiss My Brass
+02. Svendaq - Sunrise Coming
+03. Weathertunes - Finding Neverland
+04. DJ MNX - Elements For Love(   Читать дальше...   )Жанр: LoungeПродолжительность: 01:35:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32AC0FC68011ED16603A6199F88014CA40F15A06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041814   (581572) от 10.08.2016
+
+VA - IBIZA - Hot Summer (2016) [MP3|320 Kbps] <House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jake Terra  -  Climax (Original Mix)  4:36
+02. Karen Garrett  -  Turn It Up (Original Mix)  4:34
+03. Mike Guad  -  Only You (Original Mix)  5:05
+04. SPRiTO  -  All I Want (Original Mix)  4:02(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 01:41:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE283DC90FBA1583A7BACD2E0086A9750FCBBE39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041864   (581564) от 10.08.2016
+
+VA - Weekend Workout Hits (2016) [MP3|320 Kbps] <House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fais & Afrojack  -  Hey  3:35
+02. Matt Simons  -  Catch & Release (Deepend Remix)  3:16
+03. MOWE & Daniel Nitt  -  Lovers Friends  3:45
+04. Jebroer  -  Me Gabber  2:57(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 01:26:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97C973C87334F1375177C591E2E58FB79B503079
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041505   (581520) от 10.08.2016
 
 VA - Atmosfera Records -  Uplifting Trance Vol.1 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -6,7 +122,7 @@ VA - Atmosfera Records -  Uplifting Trance Vol.1 (2016) [MP3|320 Kbps] <Trance, 
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581520.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Talk Talk - 7 Albums (1982-1998) [MP3|320 Kbps] <Synthpop, New Wave, PopRock, Am
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581349.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Rexob.B - Mega Cheeseburger (2019) Kosmos Solo [FLAC|Lossless|WEB-DL|tracks] <El
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581316.jpg" />
 </div>
 
 
@@ -92,7 +208,7 @@ VA - Vintage Deep House '19 (2019) [MP3|320 Kbps] <House, DeepHouse>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581308.jpg" />
 </div>
 
 
@@ -121,7 +237,7 @@ Red Soda - Decades to Midnight (2019) [FLAC|Lossless|tracks + .cue] <Synthwave, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581256.jpg" />
 </div>
 
 
@@ -150,7 +266,7 @@ VA - Italian Chillout Cafe (2022) [FLAC|Lossless|WEB-DL|tracks] <Lo-Fi, Lounge, 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581011.jpg" />
 </div>
 
 
@@ -179,7 +295,7 @@ Le Youth - Reminders (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techn
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581008.jpg" />
 </div>
 
 
@@ -208,7 +324,7 @@ Solar Fields - Unreleased (2001-2009) [MP3|192-320 kbps]<Psybient, Ambient>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580953.jpg" />
 </div>
 
 
@@ -234,7 +350,7 @@ VA - Sensation Innerspace (02.07.2011) [FLAC|Lossless]<House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580827.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - La Nuit (Delicious Chill House Lounge Vol 2) (2016) [MP3|320 Kbps] <Deep Ho
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580592.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Most Wanted Chill & Lounge (2016) [MP3|320 Kbps] <Easy Listening, Soulful, 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580591.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Poolside Ibiza (Mixed by Ghassemi & Televisor) (2016) [MP3|320 Kbps] <Elect
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580587.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Split Mirrors - 3 Albums (1993-2011) [MP3|320 Kbps] <Electro, Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580458.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - Armada Ibiza 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <House, Nu Disco>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580429.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ V.A. - Cafe del Mar XXII (Volumen Vientidos) (2016) 2CD [FLAC|Lossless|tracks + 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580423.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Caim - Preta (2019) Caim Records [FLAC|Lossless|Vinyl|tracks] <Breaks, Electro, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580373.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Tipper - Jettison Mind Hatch (2019) Tippermusic [FLAC 2.0|44.1/24|tracks|WEB-DL]
 >>Experimental, Industrial (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580252.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Tipper - Jettison Mind Hatch (2019) [FLAC|Lossless|WEB-DL|tracks] <Psydub, Glitc
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580251.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ VA - Anjunadeep In Ibiza 2016 (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579594.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Lotus - Eat the Light (2016) [FLAC|Lossless|tracks + .cue] <Synthpop, Nu Disco, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579476.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ MTRL - Territories (2019) IO [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579379.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Lars Leonhard - Stella Nova (2015) Ultimae Records [FLAC 2.0|44.1/24|tracks|WEB-
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579147.jpg" />
 </div>
 
 
@@ -628,119 +744,6 @@ Lars Leonhard - Stella Nova (2015) Ultimae Records [FLAC 2.0|44.1/24|tracks|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E30F7A3F98B0C1A66251EDA9D6AB73A2FDC7A999
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 852939   (579146) от 17.05.2019
-
-VA - Enfold 01 (2014) Ultimae Records [FLAC 2.0|44.1/24|tracks|WEB-DL]<Psybient, Downtempo, Ambient>
-
->>Electronic
->>Downtempo, Ambient (Hi-Res)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scann-Tec - Rewind (06:56)
-02. Fingers In The Noise - Sensitive Mind (06:38)
-03. I Awake - Winter Shell (05:31)
-04. Martin Nonstatic - Oak Branches (06:04)(   Читать дальше...   )Жанр: Psybient, Downtempo, AmbientПродолжительность: 01:05:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:487A13C6AA18BC99CE92550CD2A0C32359B684E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 759241   (579134) от 17.05.2019
-
-Lars Leonhard - Burning Clouds (2015) Ultimae Records [FLAC 2.0|44.1/24|tracks|WEB-DL]<Ambient, Dub Techno, Downtempo>
-
->>Electronic
->>Downtempo, Ambient (Hi-Res)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burning Clouds (5:38)
- 02. Halos (5:42)
- 03. Northern Lights (7:03)Жанр: Ambient, Dub Techno, DowntempoПродолжительность: 00:18:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B008220C5A2E99D06AE364A5EE8FD9FB4494018D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 176513   (579050) от 12.08.2016
-
-Hammock - Discography 29 Releases (2005-2016) [MP3|320 kbps]<Ambient, Post-Rock>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Union (03:45)
- 02. Groundless (05:39)
- 03. Reconciliation (04:15)
- 04. Melt (05:29)Жанр: Post Rock, Ambient •Продолжительность: 00:19:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95C08C5A6330B4740EA54D549866FB590EF6A655
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554044   (579031) от 29.05.2022
-
-Two Friends - Big Bootie Mix Volume 021 (2022-05-23) [MP3|320 Kbps] <Dance, Electro Pop, Pop>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Galantis & David Guetta & Little Mix - Heartbreak Anthem w/Dan + Shay - I Should Probably Go To Bed w/The Anxiety & Willow & Tyler Cole - Meet Me At Our Spot w/M83 - Midnight City (Rave Republic Remix) w/The Killers - Somebody Told Me
-02. SM1LO & twoDB ft. Lena Leon - In My Head w/Kelly Clarkson - Because Of You w/Daft Punk - Harder Better (   Читать дальше...   )Жанр: Dance, Electro Pop, PopПродолжительность: 01:03:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4CBD87ECDCC7608026087594B9058769D2A34EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

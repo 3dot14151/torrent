@@ -6,7 +6,7 @@ Jhene Aiko - Souled Out (2014) 10th Anniversary Edition, 2024, Def Jam Recording
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104270.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Nelly Furtado - 7 (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104180.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Michael Buble - The Best of Buble (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104018.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Army Of Lovers - Massive Luxury Overdose  (1991) [FLAC|Lossless|tracks + .cue] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103841.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Alison Moyet (Ex. Yazoo) - Key (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, SynthP
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103833.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Shakira - She Wolf (2009) Expanded Edition, 2009, Epic [FLAC|Lossless|WEB-DL|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103758.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Olivia Newton-John - Olivia Newton-John's Greatest Hits (1982) Deluxe Edition, R
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103695.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Olivia Newton-John - If Not For You (1971) Deluxe Edition, Remastered, 2022, Pri
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103689.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Zucchero - DISCOVER II (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103251.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Darwin (Влад Дарвин) - Путь открыт (2010) [FLAC|Lossless|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103213.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Geoff Moore - A Beautiful Sound (2002) [FLAC|Lossless|tracks + .cue] <Acoustic, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102809.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ VA - Amazing New Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101433.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ David Hasselhoff - You Are Everything (1993) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101414.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Jessica Simpson - Sweet Kisses (1999) CD, Album [FLAC|Lossless|tracks + .cue] <P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101410.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Luther Vandross - Never Too Much: Greatest Hits (2024) [FLAC|Lossless|WEB-DL|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101356.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ The LA Cowboys - Endless Summer (1993) Reissue, Remastered, 2024, Pride & Joy Mu
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101301.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Teach In - See The Sun (1977) Remastered 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100617.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Mireille Mathieu - Mon credo (Best Of) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91219.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Eros Ramazzotti - Eros Best Love Songs (2012) [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90517.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Chris de Burgh - Greatest Hits (2012) 2CD [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86568.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ VA - Love Songs Top 100 Box Set 5CD (1995) [FLAC|Lossless]<Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86326.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Madonna - MDNA (2012) Deluxe Edition [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83950.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Lionel Richie - 2 альбома (2003, 2012) [FLAC|Lossless]<Pop, Soul, R&B>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82711.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ Billy Ocean - Suddenly (1984) [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81386.jpg" />
 </div>
 
 
@@ -717,7 +717,7 @@ George Michael - 5 Студийных альбомов (1987 - 2004) /Japan/ [FL
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79641.jpg" />
 </div>
 
 
@@ -752,7 +752,7 @@ Lady GaGa - The Singles (2011) [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78217.jpg" />
 </div>
 
 

@@ -1,32 +1,3 @@
-###  Публикация: 1770553   (71959) от 02.01.2025
-
-Subway To Sally - Post Mortem (2024) (Deluxe Version) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Folk Metal, Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sorrow Child (feat. League of Distortion) [4:05]
-02 - Phoenix (feat. Melissa Bonny) [3:35]
-03 - Under The Banner (feat. Dominum) [3:49]
-04 - Atlas (feat. Tanzwut) [3:47](   Читать дальше...   )Жанр: Folk Metal, MetalПродолжительность: 01:14:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FA56B7027A406B41CE0E80F396803F75C243D53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1770700   (71955) от 03.01.2025
 
 Lord Spikeheart - 2 Albums (2023-2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Noise, Death Industrial, Trap Metal>
@@ -35,7 +6,7 @@ Lord Spikeheart - 2 Albums (2023-2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71955.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Canaan - Some last echo (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dark Doom 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71954.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Paleface Swiss - Cursed (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu Metalco
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71953.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Code Cowboy - Bootleg Ballads (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71949.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Nenei - Sunset Grooves (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71937.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Pink Floyd - Live at Palace Theatre (Manchester, UK, 9 Dec 1974) (2024) Live [FL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71936.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Pink Floyd - Live At Palais De Sports (Paris, France, 24 June 1974) (2024) Live 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71933.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Pink Floyd - Live At The Empire Theatre (Liverpool, UK, 29 November 1974) (2024)
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71932.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Mariah - Mystic Lady (1975) 2025 [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71931.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Pink Floyd - Live at Empire Pool (Wembley, London, UK, 16 November 1974) (2024) 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71926.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Gustav Lundgren Trio - Sofo Session (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71923.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Catlvish - Jazzthematics (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71922.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Unusual Suspects - At The Australian Jazz Museum Vol. 9 (Live) (2025) [FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71920.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Ari Karason - Melodies for us (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71918.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ The Blue Moods - Force & Grace (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71913.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Pink Floyd - Live At Odeon (Newcastle-upon-Tyne, UK, 9 November 1974) (2024) Liv
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71909.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Pink Floyd - Live at Empire Pool (Wembley, London, UK, 17 November 1974) (2024) 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71908.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Deblon jackson - FLUTOPIA (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71906.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Sound Dinosaur - BREWING HARMONY (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71814.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Tamara Bodie - Just Have Something to Say (2025) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71812.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Lustre Jazz - Bangkok Twilight (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71811.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ John Skelley - Dusk 'Til Dawn (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71806.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Jamaican Jazz Orchestra - All For A Reason (2025) [FLAC 24/96|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71804.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ Tobin Mueller - Fragments (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71799.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ Too Close for Comfort - I'm Not Alone Anymore (2024) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71798.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ Too Close for Comfort - I'm Not Alone Anymore (2024) [FLAC 24/44.1|Lossless|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:614AE5328749B97C2DD4D4666384BE32623EC250
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771897   (71796) от 08.01.2025
+
+Guy Verlinde & Tom Eylenbosch - Promised Land Blues (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Heaven Inside My Head (3:08)
+02.  Tears over Gaza (3:10)
+03.  A Worried Man Blues (3:41)
+04.  I've Got You (2:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06DF7F31E36478F196DA04A01E6093805372D78C
 ```
 
 https://mybot314.ru/tekegram_catalog/

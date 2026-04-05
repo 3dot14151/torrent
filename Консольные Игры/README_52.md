@@ -6,7 +6,7 @@ TNA Impact! (2008) [PS3] [EUR] 2.41 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274445.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273220.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ Happy Feet Two: The Videogame (2011) [PS3] [USA] 3.70 [Cobra ODE / E3 ODE PRO IS
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272356.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Score International Baja 1000: World Championship Off Road Racing (2008) [PS3] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272354.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Trauma Team [Wii] [NTSC] [Eng] (2010)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272262.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Tomb Raider: Anniversary [Wii] [PAL] [Multi 5] (2007)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272178.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Lucha Libre AAA: Heroes del Ring (2010) [PS3] [EUR] 3.42 [Cobra ODE / E3 ODE PRO
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271338.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271271.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Just Dance 2020 (2019) [Wii] [USA] [License] [En]
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271169.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS2
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271077.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Battalion Wars 2 [Wii] [PAL] [Multi 5] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270611.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ The Legend of Zelda: Breath of the Wild (2017) [Switch] [Region Free] 4.1.0 [XCI
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269751.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Dante's Inferno (2010) [PS3] [EUR] 3.01 [Cobra ODE / E3 ODE PRO ISO] [License / 
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269212.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ The Legend of Zelda: Link's Awakening (2019) [Switch] [EUR] 9.0.1 [License / 1.0
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268600.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Meow Motors (2019) [Switch] [EUR] 8.1.0 [NSZ] [License / 1.0.1] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267882.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Spyro Reignited Trilogy (2019) [Switch] [EUR] 8.1.0 [NSP] [Unofficial / 1.01] [R
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267787.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ MUD: FIM Motocross World Championship (2012) [PS3] [EUR] 3.40 [Cobra ODE / E3 OD
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266871.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Dead Cells (2018) [Switch] [USA] 8.1.0 [NSP] [License / DLC / 1.5.0] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266796.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Final Fantasy Fables: Chocobo's Dungeon [Wii] [PAL] [ENG] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266708.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Monster Boy and the Cursed Kingdom (2018) [Switch] [USA] 9.0.1 [NSZ / 1.0.5] [Li
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265297.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Blade Arcus from Shining EX (2015) [PS3] [ASIA] 3.40 [CFW / HEN / Cobra ODE ISO]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265260.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Nintendo 3DS ROMPack (2011-2017) [3DS] [ALL] [Decrypted] [Unofficial] [Multi] (1
 >>Ромы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264905.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Narcos Rise of the Cartels (2019) [Switch] [USA] 9.0.1 [NSP] [License / 1.0.3] [
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264559.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Valkyria Chronicles (2018) [Switch] [USA] 8.1.0 [NSZ] [Unofficial] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263862.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ South Park: The Stick of Truth (2018) [Switch] [USA] 8.1.0 [NSZ] [License / 1.0.
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263796.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ South Park: The Fractured But Whole (2018) [Switch] [USA] 8.1.0 [NSZ] [License /
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263790.jpg" />
 </div>
 
 

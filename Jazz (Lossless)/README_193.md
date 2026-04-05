@@ -6,7 +6,7 @@ The Four Freshmen - Greatest Hits (1993) Curb Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409436.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ John Scofield - Bar Talk (1980) 2016, Sony Music [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409431.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Scott Bradlee's Postmodern Jukebox - Blue Mirror (2018) [FLAC|Lossless|WEB-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409088.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Dave Brubeck - Time Was (2005) 4CD, Proper Box [FLAC|Lossless|tracks + .cue] <Ma
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408945.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Harry James - 1941 (1999) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Ban
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408867.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Ella Fitzgerald - Ella At The Hollywood Bowl: The Irving Berlin Songbook (2022) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408815.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Enrico Pieranunzi - Originals (2012) Jazzit Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408770.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Jackie McLean - Four Classic Albums (1957 - 1960) 2CD, 2011, Avid Jazz [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408711.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Nicki Parrott - Papa Loves Mambo (2019) [FLAC|Lossless|image + .cue] <Vocal Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408699.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Mal Waldron - Soul Eyes (1997) BMG [FLAC|Lossless|tracks + .cue] <Hard Bop, Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408544.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Oscar "Papa" Celestin & Sam Morgan - Recorded In New Orleans (1925 - 1928) 1995,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408541.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Nancy Wilson - Spotlight on Nancy Wilson (1959 - 1968) 1995, Capitol Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408535.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Eric Alexander - Second Impression (2016) HighNote Records[FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408480.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Harvie Swartz - In A Different Light (1990) [WavPack|Lossless|image + .cue] <Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408478.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Mike LeDonne & The Groover Quartet - That Feelin' (2016) Savant Records[FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408476.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Dean Martin - Singles (1949-1962) 2001, EMI[FLAC|Lossless|tracks + .cue] <Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408468.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Louis Armstrong & King Oliver With Bessie Smith - High Society (1923 - 1926) 199
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408434.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Grant Green - Visions (1971) /2009, EMI Music/[FLAC|tracks+.cue]<Hard Bop, Soul 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408398.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Nat King Cole - Top Pops (1963) 2007, Collectors' Choice Music[FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408394.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Art Blakey and His Jazz Messengers - Art's Break! (1972) /2014, Studio Songs/[FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408272.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Willie Lewis - 1936 - 1938 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408167.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Sainkho Namtchylak - Cyberia - Suite For The Voice A Cappella (2011) [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_408116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_408116.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Essence Featuring Jaco Pastorius - Last Flight (1984) 1989 DIW Records, Disk Uni
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_408010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_408010.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Katie Melua - Ultimate Collection (2018) 2CD [FLAC|Lossless|WEB-DL|tracks] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407805.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ David Rogers Sextet - The World Is Not Your Home (2007) Jumbie Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407633.jpg" />
 </div>
 
 
@@ -733,7 +733,7 @@ Pee Wee Russell - Weary Blues (1933 - 1963) 4CD, 2005, Membran Music [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407548.jpg" />
 </div>
 
 

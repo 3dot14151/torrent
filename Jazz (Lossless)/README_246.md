@@ -6,7 +6,7 @@ Phil Woods & Bill Mays - Woods & Mays (2011) Palmetto [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241815.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Brandee Younger - Brand New Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Contempor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241813.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Harry Allen - I Can See Forever (2002) BMG [FLAC|Lossless|image + .cue] <Mainstr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241810.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ McCoy Tyner - Sahara (1972) 1987, Original Jazz Classics [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241783.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Billy Taylor - Dr. T (1993) GRP Records [FLAC|Lossless|tracks + .cue] <Bop, Main
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241755.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Dinah Washington - In The Land Of Hi-Fi (1956) 1988, EmArcy [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241754.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Birds & Monks (1978) 1995, Galaxy [FLAC|Lossless|tracks + .cue] <Bop, Hard 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241750.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Billy Taylor Trio - Urban Griot (2001) Soundpost [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241743.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Lee Konitz & Frank Wunsch - Insight (1989 - 1995) 2011, Jazzwerkstatt [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241742.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Eddie "Lockjaw" Davis & Shirley Scott - Cookbook, Vol.3 (1958) 1992, Original Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241735.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Eddie "Lockjaw" Davis & Shirley Scott - Jaws (1958) 1994, Original Jazz Classics
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241728.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Thad Jones - The Magnificent Thad Jones (1956) 1987, Blue Note [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241722.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Dave Douglas - Meaning And Mystery (2006) Greenleaf Music [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241718.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Von Freeman And Frank Catalano - You Talkin' To Me?! (2000) Delmark Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241713.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Andrew Hill - Time Lines (2006) Blue Note [FLAC|Lossless|tracks + .cue] <Avant-G
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241708.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ The Eddie "Lockjaw" Davis - Cookbook, Vol.1 (1958) 1991, Original Jazz Classics 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241698.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Dave Lambert & Jon Hendricks - Sing & Swing Along / Evolution of the Blues Song 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241685.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Andrew Cyrille Quartet - The Declaration of Musical Independence (2016) ECM [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241680.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Bill Reichenbach & Rodger Fox - Something Juicy (1984) 1992, Circular Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241558.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Harry Allen - Blue Bossa (2013) Swingbros Co. [FLAC|Lossless|image + .cue] <Main
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241510.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Nicholas Payton - Dear Louis (2001) Verve Music Group [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241474.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Woody Herman - 1940 (2002) Classics [FLAC|Lossless|image + .cue] <Swing, Big Ban
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241429.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Fred Astaire - The Astaire Story (1952) 2CD, 1988, Verve [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241420.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Graham Collier - British Conversations (2021) [FLAC|Lossless|tracks + .cue] <Con
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241386.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Dave Brubeck - Les Incontournables (1996) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241333.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Bireli Lagrene - Routes To Django (1980) 1987, Antilles [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241332.jpg" />
 </div>
 
 

@@ -1,3 +1,61 @@
+###  Публикация: 1839454   (1046667) от 29.11.2025
+
+VA - Trance Fusion, Vol. 15 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Dolphin - Dreams (Original Mix) [6:17]
+02. DJ Prozac - Beautiful Stranger (Original Mix) [7:17]
+03. Matt Pincer - Wave Of Emotion (Original Mix) [9:29]
+04. ATA - Blue Skies (Original Mix) [6:48](   Читать дальше...   )Жанр: TranceПродолжительность: 03:11:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:331F855DF26D2EBFD8E3A4A130EE2C5F3E7EDF2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839363   (1046478) от 28.11.2025
+
+VA - Nocturnal Knights Best Of 2025 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angelus - Take Us Home (Extended Mix) [7:57]
+02. Dan Cooper - Recuperation 303 (Extended Mix) [6:23]
+03. Mark Wilks - Rave Culture (Extended Mix) [6:37]
+04. Roger Shah & RAM and Natalie Gioia vs. Allen Watts - For The One You Love 2025 (Extended Mix) [7:02](   Читать дальше...   )Жанр: TranceПродолжительность: 02:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F37A03B205800C8386B5C0DCB515E20DF380D598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1839345   (1046476) от 28.11.2025
 
 VA - Elliptical Sun Recordings 2025 (2025) [MP3|320 Kbps] <Trance>
@@ -6,7 +64,7 @@ VA - Elliptical Sun Recordings 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046476.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - The Best Of Suanda Music 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046475.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Trance: The Vocal Session 2026 (2025) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046474.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Uplifting Trance 2023 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045082.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Black Hole Trance Music 01-23 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044160.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Trance Party 2023 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043959.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Activa - Origins (2023) Expanded Edition [MP3|320 Kbps] <Trance, Progressive, El
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043940.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Alveda Trance Hits 2023 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043755.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Subculture (Mixed by John O'Callaghan) (2020) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043087.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Victor Special Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042792.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - High Voltage 2022 Year Mix (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042191.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Top 10 January 2023 Emotional and Uplifting Trance (2023) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042187.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - HTE200 (Mixed by Lab4 & Nick The Kid) (2023) [MP3|320 Kbps] <Trance, Uplift
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041883.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Markus Schulz - Global DJ Broadcast: Top 20 December (2020) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041194.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Menno De Jong - Collected Works (2021) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041189.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - NaHiM Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, Uplifting
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041178.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - The Sound Of 2023 Mix 2: Seoul (2023) [MP3|320 Kbps] <Trance, Progressive, 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041173.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - A State of Trance: Year Mix (Mixed by Armin van Buuren) (2020) [MP3|320 Kbp
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041107.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Han Beukers Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, Upl
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040947.jpg" />
 </div>
 
 
@@ -555,7 +613,7 @@ VA - Kiyoi & Eky Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, Upl
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040945.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ VA - DreamLife Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, Uplif
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040944.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ VA - Best Of FSOE Fables (2020) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040943.jpg" />
 </div>
 
 
@@ -642,7 +700,7 @@ VA - Best Of FSOE Parallels (2020) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040936.jpg" />
 </div>
 
 
@@ -671,7 +729,7 @@ VA - Henry Moe Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, Uplif
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040935.jpg" />
 </div>
 
 
@@ -685,64 +743,6 @@ VA - Henry Moe Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, Uplif
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48AA5DBC67F42A61B9882D860DFA4963F9549369
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438542   (1040932) от 09.01.2021
-
-VA - Danny Oh Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sothzanne String - Lost Memories (Alex Shevchenko Emotional Remix)
-02. Gayax - New Life (Milosh K Remix)
-03. Grande Piano - Stay With Me (Norex & Adwell Remix)
-04. Shane Infinity & Adam Morris - Mayaguana (Alex Nomak Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:22:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51A99DEDF279092FD70B7ABBE3A11809782FB721
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438669   (1040930) от 09.01.2021
-
-VA - Best Of FSOE (2020) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aly & Fila with Plumb - Somebody Loves You (Extended Mix)
-02. Bryan Kearney - From The Inside (Original Mix)
-03. Craig Connelly & Factor B - Tranceatlantic (Extended Mix)
-04. Hÿdra - After The Rain (Extended Club Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:28:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:034E25F8B588C7AC42BAB627447FBEC0D669208E
 ```
 
 https://mybot314.ru/tekegram_catalog/

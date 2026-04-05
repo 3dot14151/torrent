@@ -1,3 +1,55 @@
+###  Публикация: 900741   (666159) от 23.05.2015
+
+Фото на документы Профи 8.0 RePack by KaktusTV [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фото на документы Профи - это удобная программа для быстрой подготовки и печати фото на документы. Включает готовые форматы документов всех необходимых форматов: внутренний и заграничный паспорт, визы различных стран, удостоверения и пропуска. Она позволяет всего за несколько минут получить фотографию на документ профессионального качества. Программа имеет простой (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3325BBCDAC1C66AC56A01DA6B42B17A6EE09F79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 511782   (665806) от 17.06.2012
+
+Футбол. Чемпионат Европы – 2012. 3-й тур. Группа А. Греция - Россия (2012.06.16) SATRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_665806.jpg" />
+</div>
+
+
+###  Подробнее
+
+16.06.2012, Суббота, 22:45 мск. Варшава, стадион Национальный стадион. Чемпионат Европы 3 тур, Группа А "Греция" - "Россия". Главный судья: Эриксон(Швеция)Жанр: СпортФормат: XviDПродолжительность: ~ 00:51:47
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 508511   (665537) от 17.06.2012
 
 Друзья / Friends (1994-2004) DVDRip (сезоны 1-10, серии 1-263 из 236 + бонусы)
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_665537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_665537.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_665048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_665048.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ MAGIX Samplitude Pro X2 Suite 13.1.3.176 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664992.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ The Incredible Adventures of Van Helsing III (2015) [Multi] (1.0.0.1) License CO
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664985.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Microsoft сотрет границы между ПК с Windows 10 и смар�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_664659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_664659.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664412.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_664050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_664050.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664044.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664031.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ VK cmd 1.0.5 [Ru] (Авторская раздача)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663949.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ Geekbrains | Программист-карьерист (2015) PCRec [H.264]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663879.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662977.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662974.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_662943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_662943.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ Alawar Universal Crack / Активатор игр Alawar (2017) (1.81) Crack Co
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662929.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ CyberLink PowerDirector 13 Ultimate 13.0.2907.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662850.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662629.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662148.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662145.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ Two Point Hospital (2018) [Ru/Multi] (1.29.36/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661894.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661836.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_661095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_661095.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661066.jpg" />
 </div>
 
 
@@ -611,66 +663,13 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_661055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_661055.jpg" />
 </div>
 
 
 ###  Подробнее
 
 DiRT 3 - гоночный автосимулятор от студии Codemasters. Colin McRae: DiRT 3 похвастается более, чем пятью десятками автомобилей разных лет, охватывающих пятьдесят последних лет автоспорта. В игре будут присутствовать знаменитые модели прошлых лет и настоящего времени. В DiRT 3 представлено больше машин, территорий, трасс и соревнований, чем в предыдущих играх серии. Более пяти десятков лучших раллийных автомобилей, участвовавших в гонках за последние пятьдесят лет; вдвое больше треков, чем в проекте 2009 года; соревнования на любой вкус; рейтинги, награды и достижения — в DiRT 3 каждый может стать настоящим профессионалом виртуального ралли и сделать блестящую карьеру гонщика.(   Читать дальше...)Тип издания: RepackЖанр: Racing (Cars) / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 341467   (661032) от 25.05.2011
-
-DiRT 3 [Multi5\-] 2011 | SKIDROW
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_661032.jpg" />
-</div>
-
-
-###  Подробнее
-
-DiRT 3 - гоночный автосимулятор от студии Codemasters. Colin McRae: DiRT 3 похвастается более, чем пятью десятками автомобилей разных лет, охватывающих пятьдесят последних лет автоспорта. В игре будут присутствовать знаменитые модели прошлых лет и настоящего времени. В DiRT 3 представлено больше машин, территорий, трасс и соревнований, чем в предыдущих играх серии. Более пяти десятков лучших раллийных автомобилей, участвовавших в гонках за последние пятьдесят лет; вдвое больше треков, чем в проекте 2009 года; соревнования на любой вкус; рейтинги, награды и достижения — в DiRT 3 каждый может стать настоящим профессионалом виртуального ралли и сделать блестящую карьеру гонщика.Тип издания: ЛицензияЖанр: Racing (Cars) / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Немецкий, Француский, Испанский, Итальянский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483271   (660924) от 21.06.2012
-
-Борджиа / The Borgias (2012) HDTVRip [720p] (сезон 2, серии 1-10 из 10) LostFilm
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_660924.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре повествования - знаменитое семейство Борджиа, достигшее вершин власти в Италии эпохи Возрождения.
-Слоган сериала: «Секс. Власть. Убийство. Аминь.» - полностью характеризует безжалостную политику и сексуальную распущенность, которыми заполнились в истории папа римский Александр VI, в миру Родриго Борджиа, и члены его семьи.Жанр: драма, криминал, историяРежиссер: Нил Джордан, Кари Скогланд, Джон Мэйбери и др.Актеры: Джереми Айронс, Франсуа Арно, Холлидей Грейнджер, Питер Салливан, Шон Харрис, Джоэнн Уэлли, Лотте Вербеек, Колм Фиор, Вернон Добчефф, Дэвид Оукс и др.Перевод: Многоголосый закадровый, профессиональныйПродолжительность: 10 ~ 00:50:00.
 
 ## Скачать торент
 ```bash

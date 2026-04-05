@@ -1,3 +1,56 @@
+###  Публикация: 1138964   (661845) от 31.05.2017
+
+Джованни Чиварди | Рисование фигуры человека. Полное руководство (2017) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Изобразительное искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661845.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Рисование фигуры человека» – это подробное руководство известного итальянского художника Джованни Чиварди. Книга состоит из нескольких разделов, изучать которые можно в любой последовательности: анатомия, наброски человека, обнаженная натура, голова и лицо, кисти и стопы, одежда.
+ Чиварди щедро делится информацией об инструментах и техниках рисования, а также собственными (   Читать дальше...   )Жанр: РисованиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86BCAFF81D43FEA6C84A5871B3CCE32F6225961B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538832   (661378) от 22.03.2022
+
+Софи Плауден | Джек Дэш и летняя вьюга (2021) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джеку Дэшу, обычному мальчишке, недавно окончившему начальную школу, везёт на приключения! Однажды он нашёл волшебное перо – тут-то и началась весёлая жизнь. Всё, что Джек рисовал, становилось настоящим… и проблемы это доставляло тоже вполне реальные. Ведь художник из мальчика оказался никудышный. Может быть, в новой школе удастся это исправить? Только вот как сохранить (   Читать дальше...   )Жанр: Детская литература, ПриключенияПеревод: М.А. МельниченкоФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE2356FB761D627C75353DBDBF062B45D4A59806
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1538822   (661375) от 22.03.2022
 
 Луиджи Баллерини | Синьорина Корица. Сюрприз для Синьорины Корицы. Книга 3 (2021) [FB2, EPUB, MOBI]
@@ -6,7 +59,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661375.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661283.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661093.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661081.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660915.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660913.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660906.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660809.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660336.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660257.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660255.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660215.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660168.jpg" />
 </div>
 
 
@@ -351,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660129.jpg" />
 </div>
 
 
@@ -377,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660117.jpg" />
 </div>
 
 
@@ -403,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660116.jpg" />
 </div>
 
 
@@ -432,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660111.jpg" />
 </div>
 
 
@@ -459,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660084.jpg" />
 </div>
 
 
@@ -486,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660066.jpg" />
 </div>
 
 
@@ -515,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660014.jpg" />
 </div>
 
 
@@ -541,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660013.jpg" />
 </div>
 
 
@@ -569,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659954.jpg" />
 </div>
 
 
@@ -595,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659922.jpg" />
 </div>
 
 
@@ -621,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659918.jpg" />
 </div>
 
 
@@ -632,58 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D7FC7CF228661F0ACBE02E1EF73699D9C0F8A0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139461   (659906) от 02.06.2017
-
-Е.В. Савинкина | Химия: новый полный справочник для подготовки к ЕГЭ (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Справочник содержит весь теоретический материал по курсу химии, необходимый для сдачи ЕГЭ. Он включает все элементы содержания, проверяемые на ЕГЭ по химии, и помогает обобщить и систематизировать знания и умения за курс средней (полной) школы.Теоретический материал изложен в краткой, доступной форме. Каждый раздел сопровождается примерами тестовых заданий, позволяющими (   Читать дальше...   )Жанр: ХимияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8A1A6D6AF4900A8EEC0FBCF119C2600C6EB9703
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902738   (659600) от 29.05.2015
-
-Михаил Литвак | 5 методов воспитания детей (2015) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659600.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Хочу объяснить почему, я, Литвак Михаил Ефимович, врач психиатр высшей категории, психотерапевт Европейского реестра, член-корреспондент РАЕН, кандидат медицинских наук, автор более 30 книг, посвященных проблеме общения и различным аспектам психиатрии и психологии, решил вдруг заняться проблемами воспитания детей», – так начинает свой очередной психологический бестселлер (   Читать дальше...   )Жанр: Воспитание, педагогика, психологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:371C031347BF62F70B0CF97AD0346EBD4FFD4B2D
 ```
 
 https://mybot314.ru/tekegram_catalog/

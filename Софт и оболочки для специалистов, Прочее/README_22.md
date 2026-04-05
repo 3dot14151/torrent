@@ -1,3 +1,107 @@
+###  Публикация: 1593695   (179569) от 28.11.2022
+
+WimBuilder2 Full x86-x64 v2022.02.02 Portable [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179569.jpg" />
+</div>
+
+
+###  Подробнее
+
+WimBuilder2 Full — это легкий редактор wim-файлов с открытым исходным кодом, мощный, полностью настраиваемый и простой в использовании. Основанный на технологии сценариев GUI, удобный для пользователя и бесконечно расширяемый. Может работать на вашем рабочем столе в Windows, WinPE (среда предустановки Windows). Он будет использовать команду Dism для автоматического (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B0769BE4567B95EC63499E6B9463370F5C2C179
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667244   (177346) от 07.10.2023
+
+App Builder 2023.61 (x64) [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177346.jpg" />
+</div>
+
+
+###  Подробнее
+
+App Builder позволяет создавать приложения для смартфонов и гибридные приложения на HTML5 даже без знания языков программирования. И все это благодаря визуальной среде, которая позволяет простым перемещением и добавлением элементов создавать настоящие шедевры. Несмотря на то, что главная идея App Builder – позволить создавать приложения даже тем пользователям, которые (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0E12F8897445FE6AAED58FB115A363A7FCFE2F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667607   (176552) от 08.10.2023
+
+App Builder 2023.61 (x64) Portable by FC Portables [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176552.jpg" />
+</div>
+
+
+###  Подробнее
+
+App Builder позволяет создавать приложения для смартфонов и гибридные приложения на HTML5 даже без знания языков программирования. И все это благодаря визуальной среде, которая позволяет простым перемещением и добавлением элементов создавать настоящие шедевры. Несмотря на то, что главная идея App Builder – позволить создавать приложения даже тем пользователям, которые (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88497EBC1F2F4E287E90F3CE102EC22BA88CFD15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430162   (174291) от 09.12.2020
+
+MapleSoft MapleSim 2020.1 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174291.jpg" />
+</div>
+
+
+###  Подробнее
+
+MapleSim – моделирование физических систем с помощью открытого языка Modelica от канадской компании Maplesoft. MapleSim применяется для имитационного моделирования реальных систем и имеет большие возможности для симуляции, анализа и связывания систем между собой.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92E2809BF0E9C8770CDD5DF239B8CB8C17F0037B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595840   (174258) от 07.12.2022
 
 Aura (Аура леса) 2.8.10m.216 RePack (& Portable) by elchupacabra + MP3 звуковые наборы [Multi/Ru]
@@ -6,7 +110,7 @@ Aura (Аура леса) 2.8.10m.216 RePack (& Portable) by elchupacabra + MP3 �
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174258.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Open Server Panel 6.4.6 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173411.jpg" />
 </div>
 
 
@@ -60,7 +164,7 @@ Keysight WaferPro Express 2016.04 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172639.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ Keysight Model Builder Program 2019 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172631.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ Keysight Model Quality Assurance 2019 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172627.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ Keysight IC-CAP 2018 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172622.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ ADB AppControl 1.8.2 Extended portable by GPFault [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172171.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ WinToHDD 6.2 Technician Portable by FC Portables [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171150.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ Oracle 10g Enterprise Edition 10.2.0 [Английский]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168032.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ WPI x86-x64 by OVGorskiy® 10.2023 mini [Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167423.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ Software Collection 2020.12 [Multi/Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166345.jpg" />
 </div>
 
 
@@ -296,7 +400,7 @@ CSoft PlanTracer Техплан Pro 8.0.3016.1703.825 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165743.jpg" />
 </div>
 
 
@@ -322,7 +426,7 @@ ESRI ArcGIS Desktop 10.8 [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165630.jpg" />
 </div>
 
 
@@ -348,7 +452,7 @@ Wolfram SystemModeler 13.0.0 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163313.jpg" />
 </div>
 
 
@@ -374,7 +478,7 @@ Tenorshare 4uKey for Android 2.2.2.4 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163099.jpg" />
 </div>
 
 
@@ -401,7 +505,7 @@ COMSOL Multiphysics 6.3 Build 290 [Multi]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161966.jpg" />
 </div>
 
 
@@ -427,7 +531,7 @@ LEX LIVE 10 Preview v.26.0.3 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161915.jpg" />
 </div>
 
 
@@ -455,7 +559,7 @@ RAM cube 3.21.0 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160540.jpg" />
 </div>
 
 
@@ -482,7 +586,7 @@ HeavenTools Resource Tuner 2.04 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157999.jpg" />
 </div>
 
 
@@ -509,7 +613,7 @@ COMSS Boot USB 2021-12 [Ru/En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156576.jpg" />
 </div>
 
 
@@ -537,7 +641,7 @@ InstallShield 2019 R3 Premier Edition 25.0.764.0 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154895.jpg" />
 </div>
 
 
@@ -563,7 +667,7 @@ QuarkXPress 2024 20.0.57094 (x64) Portable by 7997 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153912.jpg" />
 </div>
 
 
@@ -574,110 +678,6 @@ QuarkXPress 2024 20.0.57094 (x64) Portable by 7997 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0B47AD16191B5CB2FA708CDE297E43B93679E65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601299   (151738) от 30.12.2022
-
-SMath Studio Desktop 1.0.8348 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151738.jpg" />
-</div>
-
-
-###  Подробнее
-
-SMath Studio — абсолютно бесплатная программа для математиков, обладающая невероятным количеством возможностей. Приложение имеет простой пользовательский интерфейс с огромным количеством функций. Также данное средство имеет встроенный редактор графики с замечательной поддержкой единиц измерения. Несмотря на свой сравнительно маленький размер, программа удивляет своей (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FE8628EF54DA0D397C226D737C6D7905287B1BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825946   (150677) от 19.10.2025
-
-Microsoft Visual C++ 2026 Redistributable 14.50.35710.0 [Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Visual C++ Redistributable — это набор системных библиотек (runtime components), необходимых для запуска программ и игр, разработанных в среде Microsoft Visual Studio с использованием языков C и C++. Многие современные приложения не содержат этих библиотек в составе установочного пакета и требуют их наличия в системе отдельно.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01121AEB095138B145E8F2103AAF1A4485B35DD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434667   (148806) от 25.12.2020
-
-Simple Bootable Flash Drive by StartSoft Presentation 27-2020 [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>LiveCD/DVD/Flash
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузочная флешка созданная на базе образа ISO предназначена для настройки компьютеров и установки операционных систем  Windows 7 sp1 и Windows 10 c русским, либо с английским языковыми интерфейсами, а так же поддерживает установку Windows на разметки жесткого диска стандартов GPT или MBR.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C99E9D646F4E5DB69AD076E69722820F2FD4804C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969186   (148101) от 26.12.2015
-
-SDL Passolo 2015 15.1.418.0 Collaboration Edition Portable by Evgenii724 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148101.jpg" />
-</div>
-
-
-###  Подробнее
-
-SDL Passolo - это шаблонный редактор ресурсов любого формата, с расширенными возможностями, тонкими настройками и встроенной проверкой орфографии. Это — мощная утилита для локализации программного обеспечения. Passolo поддерживает непосредственную обработку большого числа специальных форматов файлов, включая исполняемые программы, файлы ресурсов и файлы на основе (   Читать дальше...   )Язык интерфейса: Русский, Английский, Немецкий.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B5234C4B4106C780A043020B202FF11C59DC884
 ```
 
 https://mybot314.ru/tekegram_catalog/

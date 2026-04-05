@@ -1,3 +1,119 @@
+###  Публикация: 1672076   (169818) от 27.10.2023
+
+VA - Return of the Ade Edition (2023) CD, Compilation [MP3|320 Kbps] <Techno, Progressive, Melodic House, Electronica>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Lowell Smith - Karma Posse
+02. Ega - Forgotten
+03. Fabian Larries - Out After Midnight
+04. Greg Siokos - Traveling to Greece(   Читать дальше...   )Жанр: Techno, Progressive, Melodic House, ElectronicaПродолжительность: 01:32:49 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4590B0BA6520841EEB1637E57C6992B8ACC2C826
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344496   (169810) от 11.12.2019
+
+VA - Muscular Well-Being (EDM Music For Workout) (2019) [MP3|320 Kbps] <Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169810.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Andy Well - Take Me Back (5:39)
+2.Stan Kinley - The Pain (8:22)
+3.Andy Well - Organ Nights (4:55)
+4.Supernocs - Covery (6:00)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 02:07:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A4D3DF0ACED5CE25C3003457D97A5D3020EDADB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344695   (169805) от 11.12.2019
+
+VA - EDM Anthems 2020: Top 40 Club Beats For DJs (2019) [MP3|320 Kbps] <Progressive House, Big Room, Future House, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turbotronic – On & On (3:58)
+02. Teknova – Daddy DJ 2K20 (Melbourne Bounce Mix)(3:16)
+03. Rene Rodrigezz, MC Yankoo & Marcus Cito – OK (Pull Up) (2:12)
+04. MaxRiven – Freeloader (3:27)(   Читать дальше...   )Жанр: Progressive House, Big Room, Future House, Electro HouseПродолжительность: 02:23:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B5BCDA1783E7B12AA9279C4D9B03FEC7A56164F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344680   (169774) от 11.12.2019
+
+VA - Good Morning Lounge (Chillout Your Mind) (2019) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Silver Drops (Original Mix)
+02. Michael e - It's Your Time (Original Mix)
+03. Charlie North - Early Morning Call (Original Mix)
+04. Finland & Aaskoven - Melzi (Original Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:22:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AB51E857973064489587521950903A747EA5B8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1190237   (169744) от 11.12.2019
 
 A.M. Architect - Discography 6 Releases (2009-2019) 79Ancestors, Exponential [FLAC|Lossless|tracks+.cue, tracks] <Downtempo, IDM, Ambient, Experimental, Broken Beat, Abstract>
@@ -6,7 +122,7 @@ A.M. Architect - Discography 6 Releases (2009-2019) 79Ancestors, Exponential [FL
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169744.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Terekke - Discography 7 Releases (2011-2019) L.I.E.S. [FLAC|Lossless|tracks] <Am
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169711.jpg" />
 </div>
 
 
@@ -62,7 +178,7 @@ VA - Andrew Bayer Presents: 20 Years Of Anjunabeats (2020) DJ Mix [FLAC|Lossless
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169694.jpg" />
 </div>
 
 
@@ -91,7 +207,7 @@ VA - Super8 & Tab Presents: 20 Years Of Anjunabeats (2020) DJ Mix [FLAC|Lossless
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169612.jpg" />
 </div>
 
 
@@ -117,7 +233,7 @@ Scooter - Music For A Big Night Out (2012) [FLAC|Lossless|image + .cue] <House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169467.jpg" />
 </div>
 
 
@@ -146,7 +262,7 @@ VA - Infrasonic Autumn Selection (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169461.jpg" />
 </div>
 
 
@@ -175,7 +291,7 @@ VA - Nothing But... Trancetopia, Vol. 09 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169405.jpg" />
 </div>
 
 
@@ -204,7 +320,7 @@ Markus Schulz - Global DJ Broadcast Afterdark (Euphoric Techno Mix) (2023-10-26)
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169354.jpg" />
 </div>
 
 
@@ -233,7 +349,7 @@ VA - Uplifting Only Top 15: October 2023 (Extended Mixes) (2023) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169350.jpg" />
 </div>
 
 
@@ -262,7 +378,7 @@ VA - Amsterdam Dance Essentials 2023 Trance (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169342.jpg" />
 </div>
 
 
@@ -291,7 +407,7 @@ AXMO - Live @ Future Heroes of Bigroom Stage, Rave Culture, Q-Factory, ADE (2023
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169337.jpg" />
 </div>
 
 
@@ -320,7 +436,7 @@ Yotam Avni - Summer of Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169242.jpg" />
 </div>
 
 
@@ -349,7 +465,7 @@ VA - Techno Club Vol. 70 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169238.jpg" />
 </div>
 
 
@@ -378,7 +494,7 @@ Cocooma - The Best Of Cocooma (2019) [FLAC|Lossless|WEB-DL|tracks] <Hard Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169226.jpg" />
 </div>
 
 
@@ -407,7 +523,7 @@ VA - Deep Christmas Vibes (2022) [MP3|320 Kbps] <Deep-House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169222.jpg" />
 </div>
 
 
@@ -436,7 +552,7 @@ VA - Best of We Are Trance 2022 Mixed by DJ GOOSE [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169203.jpg" />
 </div>
 
 
@@ -465,7 +581,7 @@ VA - This is Ablazing 2022 (Mixed & Selected by Rene Ablaze) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169202.jpg" />
 </div>
 
 
@@ -494,7 +610,7 @@ Cyber Space - Magic Never Ends (2020) [OGG Vorbis|480 Kbps] <Electronic, Italo-D
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169169.jpg" />
 </div>
 
 
@@ -523,7 +639,7 @@ VA - House 2023 (2022) [MP3|320 Kbps] <Deep-House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169113.jpg" />
 </div>
 
 
@@ -552,7 +668,7 @@ BT - Everything You’re Searching For Is On The Other Side Of Fear (2019) Black
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169079.jpg" />
 </div>
 
 
@@ -581,7 +697,7 @@ VA - Goa Psy Trance - The Hits 2024 (2023) [MP3|320 Kbps] <Psy, Goa Trance>
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169027.jpg" />
 </div>
 
 
@@ -610,7 +726,7 @@ Knobs - Discography 14 Releases (2009-2016) Nachtstrom Schallplatten [FLAC|Lossl
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169017.jpg" />
 </div>
 
 
@@ -624,122 +740,6 @@ Knobs - Discography 14 Releases (2009-2016) Nachtstrom Schallplatten [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:896F3DBE8902AF467AB60BEA8F6D0DF4844F48BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596714   (169010) от 11.12.2022
-
-VA - Lounge & Chill Out Moods, Vol. 1 (2022) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guenter Haas - Without You (Remastered) (5:20)
-02. Sunset Boulevard Project - Guitarra y Sol (4:30)
-03. Project Blue Sun - Dame Tu Amor (6:18)
-04. Smooth Deluxe & Josephine Sinclar - My People (5:27)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:15:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C65A5BEA5E555140585A8E933E17EB9563EF716
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596726   (169009) от 11.12.2022
-
-VA - Lofi & Chillout Xmas Wishes (2022) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jano De Rhodos - Monte del Sol (4:26)
-02. The Sura Quintet - Nice Living (4:20)
-03. Duenec - Sending Sunshine (4:27)
-04. Almohnke - Abat-Jour (4:36)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:49:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FAFB68228DFA6144369891B65CFB635138F7B35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596457   (168957) от 11.12.2022
-
-VA - Vocal Trance 2023 (2022) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168957.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Susana - Dark Side of The Moon (RYDEX Remix) (3:23)
-02. Stargazers - Stand Me Up Alive (3:47)
-03. Cold Blue - Broken Things (4:18)
-04. Arctic Moon - Like The Sun (XiJaro & Pitch Remix) (3:45)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:33:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24DD3AAE3E2ABD2D3B02BF65B29CFAFB280EAFFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596718   (168922) от 11.12.2022
-
-VA - The Perfect X-Mas Chillout Playlist 2022 (2022) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sura Quintet - Nice Living (4:20)
-02. Duenec - Sending Sunshine (4:27)
-03. Basics On Lounge - Delicate Diffusion (4:31)
-04. Jano De Rhodos - Monte del Sol (4:26)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:50:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D6B1CA0C86CE431BB0613A42F04F45A78DBB6A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

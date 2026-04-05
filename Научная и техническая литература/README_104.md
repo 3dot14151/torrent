@@ -1,140 +1,3 @@
-###  Публикация: 990494   (911501) от 25.02.2016
-
-Роман Айзман, Ирина Омельченко | Основы медицинских знаний (2013) [FB2]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приведены правила оказания первой помощи в различных ситуациях, основы микробиологии, иммунологии, профилактики и лечения инфекционных заболеваний, принципы формирования здоровья (гигиена, рациональный режим дня и питания, самоконтроль при физических нагрузках и др.). Содержит вопросы и тестовые задания для контроля знаний, словарь понятий и терминов.
-Соответствует (   Читать дальше...   )Жанр: Учебная литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40776150CA2A0929EE804BE03291EB2618A64CC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989423   (911499) от 25.02.2016
-
-Джордж А. Акерлоф, Роберт Дж. Шиллер | Spiritus Аnimalis, или Как человеческая психология управляет экономикой и почему это важно для мирового капитализма (2014) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911499.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге нобелевского лауреата по экономике Джорджа Акерлофа и профессора Йельского университета Роберта Шиллера рассказывается об особенностях человеческого поведения, которые влияют на макроэкономические процессы. Эти особенности до сих пор недостаточно учитывались теми, кто определяет экономическую политику государств, в результате чего периодически происходят (   Читать дальше...   )Жанр: ЭкономикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:053D613A222E4B6C62594E478EF7CECDF6D406FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989638   (911431) от 25.02.2016
-
-В. Б. Мириманов и др. | Малая история искусств [10 книг] (1972-1991) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911431.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Малая история искусств» — совместная работа издательств Советского Союза «Искусство» (Москва) и Германской Демократической республики — «Ферлаг дер кунст» (Дрезден).
-
-Издательства поставили перед собой задачу выпустить серию книг, рассказывающих кратко и вместе с тем популярно об истории искусств от древнейших времен до наших дней.
-(   Читать дальше...   )Жанр: История, культурология, искусство, археологияФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84C018259E455DEE8DB794654BAF15D27BD4A1D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989473   (911429) от 25.02.2016
-
-К.М. Поливанов | Задачник по теоретическим основам электротехники (1973) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Задачник охватывает все разделы теории линейных и нелинейных цепей курса теоретических основ электротехники. Кроме задач, схемы и параметры которых выбраны авторами произвольно с целью подчеркнуть тот или иной метод расчета, приведено много задач, возникающих при исследовании процессов в реальных электротехнических устройствах. Для всех задач приведены ответы, многие (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A412D08401184BC786B2400C83226832EC62F00B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989464   (911423) от 25.02.2016
-
-Уитни Филлипс | Трололо. Нельзя просто так взять и выпустить книгу про троллинг (2016) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911423.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Вами управляет тот, кто вас злит."
-Лао-цзы
-
-"Многим троллинг кажется мерзким, отвратительным занятием, а сами тролли - недекватными, злыми и обделенными интеллектом персонажами. На самом деле это не всегда так: смысл троллинга заключается не в том, чтобы вывести из себя конкретного человека, смысл кроется гораздо глубже - показать проблемы современного (   Читать дальше...   )Жанр: Риторика, Ораторское искусство, ТроллингФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1E6BAF9C89C75C61246D908D36617AFF4710F75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989993   (911421) от 25.02.2016
 
 Эрик Шлоссер | Нация фастфуда (2016) [EPUB]
@@ -143,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911421.jpg" />
 </div>
 
 
@@ -171,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911365.jpg" />
 </div>
 
 
@@ -197,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911364.jpg" />
 </div>
 
 
@@ -223,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911355.jpg" />
 </div>
 
 
@@ -249,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911047.jpg" />
 </div>
 
 
@@ -275,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911037.jpg" />
 </div>
 
 
@@ -301,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910786.jpg" />
 </div>
 
 
@@ -329,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910759.jpg" />
 </div>
 
 
@@ -357,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910749.jpg" />
 </div>
 
 
@@ -383,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910668.jpg" />
 </div>
 
 
@@ -410,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910618.jpg" />
 </div>
 
 
@@ -436,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910577.jpg" />
 </div>
 
 
@@ -462,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910545.jpg" />
 </div>
 
 
@@ -488,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910531.jpg" />
 </div>
 
 
@@ -514,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910492.jpg" />
 </div>
 
 
@@ -542,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910460.jpg" />
 </div>
 
 
@@ -570,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910437.jpg" />
 </div>
 
 
@@ -597,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910436.jpg" />
 </div>
 
 
@@ -623,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910432.jpg" />
 </div>
 
 
@@ -651,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910370.jpg" />
 </div>
 
 
@@ -677,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910363.jpg" />
 </div>
 
 
@@ -688,6 +551,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD46A8F911D1EC2316D04920330A712FA1459C84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098217   (910248) от 29.01.2017
+
+О.В. Зимина и др. | Решебник. Высшая математика (2005) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга содержит примеры решения почти всех типовых задач по высшей математике. Каждой задаче отведен отдельный раздел, содержащий общую постановку задачи, план ее решения с необходимыми теоретическими пояснениями и решение конкретного примера. Кроме того, в раздел включены десять задач для самостоятельного решения и ответы к ним.
+Для студентов и преподавателей технических, (   Читать дальше...   )Жанр: МатематикаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C76879FB0932A2809327F45413F401D60307D953
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097144   (910224) от 29.01.2017
+
+Б.С. Покровский | Слесарно-сборочные работы (2014) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены конструкции и технологические процессы сборки типовых узлов и механизмов, методы и технические средства механизации сборочных процессов, основные направления автоматизации процесса сборки. Освещены материалы по использованию роботов и вычислительной техники в сборочном производство, а также вопросы организации сборочного производства. Учебник может быть (   Читать дальше...   )Жанр: МашиностроениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B5C2CC3319464F18774F25AC0B766DDDE398954
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097877   (910116) от 29.01.2017
+
+Ю.Д. Сибикин | Техническое обслуживание, ремонт электрооборудования и сетей промышленных предприятий. [книга 2] (2014) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник состоит из двух книг. В книге 2 даны технические характеристики основных видов обслуживаемого оборудования, воздушных и кабельных линий, электроосветительных установок и цеховых электросетей. Рассмотрены вопросы технического обслуживания и ремонта электроустановок.
+Учебник может быть использован при освоении профессионального модуля ПМ.01 «Сборка, монтаж, (   Читать дальше...   )Жанр: Электротехника, энергетикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F7C348B504B03A29F20394942D867CCC7902680
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097007   (910111) от 29.01.2017
+
+Г.А. Максимов | Отопление и вентиляция [Часть II. Вентиляция] (1949) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910111.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая книга представляет собой часть II учебника „Отопление и вентиляция". В ней даются общие сведения по вопросам вентиляции общественных зданий и промышленных предприятий. Учебник предназначается для студентов факультетов „Теплоснабжение и вентиляция" строительных вузов.Жанр: Строительство, Учебная литератураФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5E2EA79EF416AA780698FF3912AEE1178A53522
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097005   (910080) от 29.01.2017
+
+Б.М. Аше | Отопление и вентиляция [Том II] (1936) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910080.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящим вторым томом заканчивается систематический курс отопления и вентиляции, являющийся капитальной переработкой ранее написанного автором трёхтомного учебника в вопросах и ответах, задачах и решениях. Составляющий его обширный материал изложен в последовательности и концепции, отличающихся от обычно применяемых в курсах отопления и вентиляции. Одно из существенных (   Читать дальше...   )Жанр: Строительство, Учебная литератураФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFB53CECB2048F04ECAAB67FF3169BB87798FCA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

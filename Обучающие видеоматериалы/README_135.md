@@ -1,3 +1,29 @@
+###  Публикация: 796754   (557453) от 21.08.2014
+
+Lynda.com | WordPress (2010-2014) [PCRec] [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это сборник видеуроков от Lynda.com по CMS WordPress за 2010 - 2014 года. Сюда вошли 40 из 45 курсов от Lynda.com на сегодняшний день. Отличие от подобных раздач - нумерация и имена файлов полностью совпадают с оригинальными, файлы примеров вынесены в отдельный архив. По мере появления новых курсов раздача будет оперативно обновлятьсяЖанр: WebПродолжительность: 90:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1818DD97B37D26EC574073EE72B3FDAD767499FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924786   (557218) от 04.08.2015
 
 Geekbrains | PHP. Быстрый старт Личный блог на PHP с нуля (2015) PCRec [H.264/720p-LQ]
@@ -6,7 +32,7 @@ Geekbrains | PHP. Быстрый старт Личный блог на PHP с н
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557218.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556866.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Motion Design School, Ihor Karas | Logo Animation in After Effects (2020) WEB-DL
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556859.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ XYZ School, Тамара Бахлычева | Hand-Paint (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556852.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Pluralsight.com | Python - Beyond the Basics (2014) PCRec [H.264] [RU/EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556816.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ Lynda.com | Working with Data on the Web (2013) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556555.jpg" />
 </div>
 
 
@@ -170,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556537.jpg" />
 </div>
 
 
@@ -198,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556333.jpg" />
 </div>
 
 
@@ -226,7 +252,7 @@ JavaBegin | Hibernate (2017) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556211.jpg" />
 </div>
 
 
@@ -252,7 +278,7 @@ OTUS | Подготовительный курс «Разработчик Java»
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556164.jpg" />
 </div>
 
 
@@ -278,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556159.jpg" />
 </div>
 
 
@@ -306,7 +332,7 @@ GeekUniversity | Третья четверть. Социальная сеть и
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554292.jpg" />
 </div>
 
 
@@ -332,7 +358,7 @@ GeekUniversity | Четвертая четверть. Разработка Highl
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554291.jpg" />
 </div>
 
 
@@ -358,7 +384,7 @@ BeMax Fitness | BodyMax (2017) DVDRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554002.jpg" />
 </div>
 
 
@@ -384,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553376.jpg" />
 </div>
 
 
@@ -410,7 +436,7 @@ ProfIT | Redis - основы и практическое использован
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552697.jpg" />
 </div>
 
 
@@ -436,7 +462,7 @@ Skillbox | Excel c 0 до PRO (2015-2016) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552676.jpg" />
 </div>
 
 
@@ -462,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552569.jpg" />
 </div>
 
 
@@ -490,7 +516,7 @@ Hollywood Camera Work | Visual Effects for Directors [2009] DVDRip [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551948.jpg" />
 </div>
 
 
@@ -518,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550851.jpg" />
 </div>
 
 
@@ -545,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550780.jpg" />
 </div>
 
 
@@ -573,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550732.jpg" />
 </div>
 
 
@@ -602,7 +628,7 @@ Front-end Science | БЭМ-платформа (2016) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550713.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549813.jpg" />
 </div>
 
 
@@ -659,7 +685,7 @@ ProfIT | ReactPHP (2018) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549564.jpg" />
 </div>
 
 
@@ -670,34 +696,6 @@ ProfIT | ReactPHP (2018) PCRec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9B202980D86530ECC50B2B315CFCA7F18949512
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 816149   (549203) от 26.08.2014
-
-Евгений Попов | Все технические моменты онлайн-бизнеса в видеоформате, 2-е издание (2011) Screener
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549203.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это диск для тех, кто испытывает сложности в технической части. Если Вы постоянно задаете себе вопросы по поводу создания сайтов, работы в Фотошопе и т.д., то этот диск способен стать для Вас волшебной палочкой-выручалочкой.
-Причем этот сложный технический материал удалось подать настолько простым языком, что его понимают не только уже опытные интернетчики, но и те, кто раньше был очень далек от этих знаний.
-Данный курс — это самый простой и быстрый путь разобраться со всеми техническими моментами инфобизнеса (   Читать дальше...   )Жанр: веб, инфобизнесПродолжительность: 48:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B740794687BFDEABEDAC113470E1535E8B470FA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

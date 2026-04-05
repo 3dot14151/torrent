@@ -1,3 +1,107 @@
+###  Публикация: 1343290   (219515) от 05.12.2019
+
+Fitness Point Pro v2.8.3 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219515.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fitness Point - это простое приложение, чтобы следить за своим прогрессом в тренажёрном зале. Нет запутанных меню или перегруженных информацией экранов. Только все, что вам нужно! Составьте индивидуальный тренировочный план внутри приложения или выберите из множества готовых!Тип издания: Pro с Маркета (Paid)Релиз состоялся: 27.10.2019Разработчик: Zero One GmbHПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF22620AE28951396ABDC796D62A6654F24E3719
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586026   (218772) от 24.10.2022
+
+Исторический календарь v5.8.10 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите узнать об исторических событиях в любой день года? События, люди, праздники и памятные даты, народные традиции и приметы. Приложение "Today in history" на платформе Android! Информация структурирована таким образом, что вы легко найдете интересующие вас события.Тип издания: PremiumРелиз состоялся: 20.10.2022Разработчик: Alexandru C. EneПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4F71D814338296FFA9916B15F1DB47DD0E26B9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981255   (218559) от 24.10.2022
+
+Дневник артериального давления v3.2.3 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дневник артериального давления Pro — это продвинутый инструмент для регулярной записи и анализа измерений артериального давления. Это приложение окажется полезным для людей, страдающих заболеваниями кровеносной системы (например, гипертонией или гипотонией), а также имеющих предрасположенность к таким заболеваниям. Приложение может быть использовано как во время (   Читать дальше...   )Тип издания: ProРелиз состоялся: 14.07.2022Разработчик: FRUCTПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30E70270C78F7528D9D6ECDB1682B1363185909B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514096   (218200) от 02.12.2021
+
+Sygic navigation GPS offline 20.9.4 Premium (Ru/Multi)
+
+>>Программы, Игры и прочее
+>>Навигация для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sygic GPS Navigation & Maps - это самое продвинутое приложение для GPS-навигации TomTom для Android с автономными 3D-картами, точными подробными голосовыми подсказками и бесплатными обновлениями карт. Sygic GPS Navigation & Maps предлагает современную навигацию с новыми функциями для вашего удобства и безопасности. Предупреждения о дорожной обстановке и измерения (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 26.11.2021Разработчик: Sygic.Поддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: RU, CZ, SK, ENG, Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1AC23E774DB83137AA4690A5BB06FA2D2CC4DA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1426223   (216030) от 23.11.2020
 
 Swamp Attack 2 v1.0.0.125 [Ru]
@@ -6,7 +110,7 @@ Swamp Attack 2 v1.0.0.125 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216030.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Don't Starve: Shipwrecked v1.28 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215850.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215397.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ GymRun 10.0.1 Premium Mod [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215018.jpg" />
 </div>
 
 
@@ -115,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214739.jpg" />
 </div>
 
 
@@ -141,7 +245,7 @@ Luminous - Poweramp Skin 8.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214637.jpg" />
 </div>
 
 
@@ -167,7 +271,7 @@ Photomath Plus 8.27.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214355.jpg" />
 </div>
 
 
@@ -193,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_214253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_214253.jpg" />
 </div>
 
 
@@ -222,7 +326,7 @@ Dolby ATMOS For Android (D4A) - Большой сборник
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213569.jpg" />
 </div>
 
 
@@ -248,7 +352,7 @@ Computer Launcher Win 10 Prime v4.7 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213411.jpg" />
 </div>
 
 
@@ -274,7 +378,7 @@ TapScanner v2.7.47 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213401.jpg" />
 </div>
 
 
@@ -303,7 +407,7 @@ F-Secure FREEDOME VPN v2.7.4.9292 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213395.jpg" />
 </div>
 
 
@@ -330,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213361.jpg" />
 </div>
 
 
@@ -358,7 +462,7 @@ Voice Translator. Translate v1.5.7 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213358.jpg" />
 </div>
 
 
@@ -384,7 +488,7 @@ Lockscreen Widgets 1.18.1 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213040.jpg" />
 </div>
 
 
@@ -410,7 +514,7 @@ NashStore 0.0.6 + Lite-Mod by Алексей МОДНЫЙ + ATV [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213033.jpg" />
 </div>
 
 
@@ -439,7 +543,7 @@ IP Webcam Pro 1.15.0r.768 Mod by Android+ [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212966.jpg" />
 </div>
 
 
@@ -465,7 +569,7 @@ Quasar IN-8: Виджет часов v1.5.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212914.jpg" />
 </div>
 
 
@@ -492,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212892.jpg" />
 </div>
 
 
@@ -518,7 +622,7 @@ Nova Launcher Prime 7.0.57 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212857.jpg" />
 </div>
 
 
@@ -544,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212717.jpg" />
 </div>
 
 
@@ -570,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212690.jpg" />
 </div>
 
 
@@ -581,113 +685,6 @@ Auto Clicker - это невероятно простой в применени�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6956773887BD83C50A227CA69201265B2F9B79AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438140   (212679) от 11.07.2022
-
-Звук. Музыка и подкасты v4.14 Premium [Ru] (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212679.jpg" />
-</div>
-
-
-###  Подробнее
-
-Звук всегда на одной волне с вами. Скачивание музыки еще никогда не было таким доступным. Отдыхайте, учитесь, работайте, медитируйте и путешествуйте под подходящее музыкальное сопровождение, развлекательные или познавательные подкасты от аудиосервиса. Скачать Звук — это значит установить музыкальный плеер на свой телефон.Тип издания: Пиратка (Premium)Релиз состоялся: 24 июн. 2022 г.Разработчик: ZvukDevЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC980F01794E26BAF8C61C8B746AFD036E9134BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562900   (212659) от 12.07.2022
-
-MLUSB Mounter: Менеджер файлов 1.64.001 Mod by ~Timozhai~ [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212659.jpg" />
-</div>
-
-
-###  Подробнее
-
-MLUSB Mounter - это разработанный в Японии файловый менеджер для управления и организации файлов на смартфоне или планшете. Вы можете легко создать резервную копию и просто копировать важные фотографии, видео и музыку со смартфона или планшета на USB-диски и USB-флеш-накопители, а также SD-карты через USB-картридер (далее называемые USB-устройствами). Также вы можете (   Читать дальше...   )Тип издания: Pro (Unlocked)Релиз состоялся: 12.07.2022Разработчик: メディアロジック (Media Logic, corp.)Поддерживаемая ОС: Android 2.2+Язык интерфейса: Русский, Английский, Японский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52E5A4E1E5F6310ABC380DF42BA9722EDB791C9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388303   (212644) от 12.07.2022
-
-AndroPods  v1.5.19 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отображение заряда Apple AirPods, BeatsX, Beats Solo 3, PowerBeats 3, Beats Studio 3, активация Голосового Ассистента, автоматическое определение нахождения в ушах. Поддерживаемые модели:
-➤ AirPod 1
-➤ AirPod 2
-➤ AirPod Pro (теперь можно выбрать AirPod Pro или 1/2 поколение в настройках, соответствующие анимация и изображения будут отображаться)(   Читать дальше...   )Тип издания: Пиратка (открыт Pro)Релиз состоялся: 22.01.2022Разработчик: Parkhomenko VitaliiПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDD11F9F8C350D91AB9A792E55A0C8FD04F10C4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563532   (212591) от 14.07.2022
-
-Plus Messenger - Улучшенный Телеграм 8.8.5.1 Mod by Taver Andrey [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212591.jpg" />
-</div>
-
-
-###  Подробнее
-
-Plus Messenger - это сторонний клиент для Telegram с расширенным функционалом. Он позволит вам всегда оставаться на связи со своими друзьями, а также быть в курсе самых последних новостей. За последнее время становится все больше и больше приложений, с помощью которых мы можем поддерживать связь со своими друзьями и родными, но не все они могут считаться надежными (   Читать дальше...   )Тип издания: Light + TaverРелиз состоялся: 14.07.2022Разработчик: rafalenseЯзык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1C8C5B61CD9CA6998B892E59A29A33A26CDA419
 ```
 
 https://mybot314.ru/tekegram_catalog/

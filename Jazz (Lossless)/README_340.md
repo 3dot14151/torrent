@@ -6,7 +6,7 @@ Lorraine Feather - Tales of the Unusual (2012) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_100206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_100206.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_100036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_100036.jpg" />
 </div>
 
 
@@ -76,7 +76,7 @@ Chano Dominguez - Flamenco Sketches (2012) [FLAC|Lossless]<Latin Jazz, Piano Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_99799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_99799.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Ben Azar - Organized Memories (2011) [FLAC|Lossless]<Jazz-Rock, Contemporary Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_99769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_99769.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_99624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_99624.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Najee - My Point of View (2005) [FLAC|Lossless]<Jazz, Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_98524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98524.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Excess Luggage - Hand Luggage Only (2011) [FLAC|Lossless]<Bop, Post-bop, Soul-ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_98153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98153.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Janice Finlay - Anywhere But Here (2011) [FLAC|Lossless]<Jazz, Mainstream Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_97453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_97453.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ David "Fathead" Newman - Davey Blue (2001) [FLAC|Lossless]<Hard Bop, Mainstream 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_96686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96686.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ VA - Electro Swing IV mixed by Bart & Baker (2011) [FLAC|Lossless]<Nu Jazz, Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_96646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96646.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Carol Welsman - Memories Of You: Carol Welsman sings Benny Goodman and Peggy Lee
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_96569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96569.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Alex Skolnick Trio - Veritas (2011) [FLAC|Lossless]<Modern Jazz, Fusion, Guitar 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_96543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96543.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Thelonious Monk - The Essential (2003) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_96531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96531.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Arild Andersen Quintet - Auditorio RSI, Lugano, Switzerland, 09. 11. 2011 (2011)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_96512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96512.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Annie Ross - Gypsy (1995) [FLAC|Lossless]<Vocal Jazz, Big Band>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_96425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96425.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Al Hirt - Swingin' Dixie! (2010) [APE|Lossless]<Dixieland, New Orleans Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_96409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96409.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Mina Agossi - Red Eyes (2012) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_96348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96348.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Steve Weingart & Renee Jones - Dialogue (2011) [FLAC|Lossless]<Jazz, Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_95613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_95613.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Alice Coltrane - Universal Consciousness & Lord Of Lords (2011) [FLAC|Lossless]<
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_95603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_95603.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Hot Club Zagreb - Hot Club Zagreb (2003) [FLAC|Lossless]<Swing, Gypsy>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_95588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_95588.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ VA - Fresh, Sharp & Sweet (1996) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_95580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_95580.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ VA - Mellow & Warm (1996) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_95560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_95560.jpg" />
 </div>
 
 
@@ -764,7 +764,7 @@ Miles Davis - Aura (1989) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_95245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_95245.jpg" />
 </div>
 
 
@@ -799,7 +799,7 @@ Max Schultz - Plays Coltrane (2007) [FLAC|Lossless]<Contemporary Jazz, Guitar>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_95177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_95177.jpg" />
 </div>
 
 
@@ -834,7 +834,7 @@ Ranee Lee - Lives Upstairs (2009) [FLAC|Lossless]<Jazz, Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_95086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_95086.jpg" />
 </div>
 
 
@@ -869,7 +869,7 @@ Carles Benavent - Un, Dos, Tres... (2011) [FLAC|Lossless]<Latin Jazz, Fusion, Fl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_94950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_94950.jpg" />
 </div>
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 924691   (557349) от 04.08.2015
+
+Джордж Фридман | Следующие 100 лет: Прогноз событий XXI века (2010) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта провокационная книга мгновенно вошла в список бестселлеров газеты The New York Times. Ее автор, американский политолог Джордж Фридман, директор частной разведывательно-аналитической организации Stratfor, предлагает читателям прогноз изменений, которых можно ожидать в мире в XXI веке.
+Нынешнее кажущееся ослабление США, согласно Фридману, - иллюзия. Американская (   Читать дальше...   )Жанр: Публицистика, ОбществоФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:961F7AFB841AF2A4A6C6A98254CC11AAF1B6F741
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924817   (557223) от 04.08.2015
 
 Джон Перкинс | Исповедь экономического убийцы (2005) [FB2]
@@ -6,7 +33,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557223.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557013.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556740.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556573.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556554.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556215.jpg" />
 </div>
 
 
@@ -167,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556118.jpg" />
 </div>
 
 
@@ -194,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555825.jpg" />
 </div>
 
 
@@ -222,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555805.jpg" />
 </div>
 
 
@@ -249,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555446.jpg" />
 </div>
 
 
@@ -276,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555248.jpg" />
 </div>
 
 
@@ -305,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555242.jpg" />
 </div>
 
 
@@ -334,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555159.jpg" />
 </div>
 
 
@@ -360,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554811.jpg" />
 </div>
 
 
@@ -386,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554632.jpg" />
 </div>
 
 
@@ -412,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554469.jpg" />
 </div>
 
 
@@ -439,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554205.jpg" />
 </div>
 
 
@@ -467,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554179.jpg" />
 </div>
 
 
@@ -493,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554150.jpg" />
 </div>
 
 
@@ -521,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554113.jpg" />
 </div>
 
 
@@ -547,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553811.jpg" />
 </div>
 
 
@@ -576,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553742.jpg" />
 </div>
 
 
@@ -604,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553726.jpg" />
 </div>
 
 
@@ -630,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553522.jpg" />
 </div>
 
 
@@ -656,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553496.jpg" />
 </div>
 
 
@@ -669,32 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4E5AF28D2DB1BE52A0CEE88ADB90338972F6770
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308976   (552926) от 17.06.2019
-
-А. В. Сахно | Кризисные явления в медицине капиталистических стран (1986) [DJVU]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552926.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге на основании анализа зарубежной и отечественной литературы охарактеризованы тенденции, присущие государственному здравоохранению и социальному обеспечению развитых капиталистических стран: сокращение финансирования, увеличение ассигнований на военные нужды; неуклонное повышение стоимости медицинских услуг и цен на лекарственные средства; вскрыты причины ухудшения (   Читать дальше...   )Жанр: История, экономика, политология, социология, медицина, публицистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7143A9FA0012ED02C22F868D5E09EEE90AA45386
 ```
 
 https://mybot314.ru/tekegram_catalog/

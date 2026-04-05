@@ -1,3 +1,55 @@
+###  Публикация: 532817   (534117) от 09.08.2012
+
+В пустыне и джунглях / W pustyni i w puszczy (1973) DVD9
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма происходит в 80-х годах девятнадцатого столетия. 8-летняя англичанка Нэль Роуписсон и 14-летний поляк Стась Тарковский должны отправиться из Порт-Сайда в Эль-Фоном к своим отцам в сопровождении гувернантки. Но волею обстоятельств юные герои оказываются втянутыми в водоворот событий, связанных с борьбой африканских народов против колонизаторов. Детей похищают, чтобы выкупить у английского губернатора заложников. По дороге Стасю удастся избавиться от похитителей, и дети остаются к глубине Африки с двумя неграми. Единственное спасение для них - выход к Индийскому океану. Но на их пути непроходимые джунгли, дикие звери, тропические ливни, малярия и ... работорговцы. Встреча со старым географом Линде, смелость и находчивость Стася помогают детям выйти победителями из всех злоключений.Жанр: ПриключенияРежиссер: Владислав ШлесицкийАктеры: Моника Роска, Томаз Менджак, Эдмунд Феттинг, Станислав ЯсукевичПеревод: ДублированныйЯзык субтитров: ПольскийПродолжительность: 03:05:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F3222715230C0BAC59AE21A332B06949EA30F2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312689   (530543) от 05.07.2019
+
+Шазам! / Shazam! (2019) DVD5 [Custom]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530543.jpg" />
+</div>
+
+
+###  Подробнее
+
+В каждом из нас живет супергерой, нужна лишь толика магии, чтобы он проявил себя. Билли Бэтсон должен прокричать всего лишь одно слово — ШАЗАМ! — чтобы из сообразительного четырнадцатилетнего мальчишки превратиться во вполне себе взрослого супергероя Шазама, а все благодаря древнему волшебнику. В душе он остается ребенком, пусть и во взрослом могучем теле, поэтому (   Читать дальше...   )Производство: США / Warner Bros., DC Entertainment, DC ComicsЖанр: фэнтези, боевик, комедия, приключенияРежиссер: Дэвид Ф. СандбергАктеры: Закари Ливай, Мишель Борт, Джимон Хонсу, Марк Стронг, Джек Дилан Грейзер, Эшер Энджел, Марта Миланс, Миган Гуд, Грэйс Фултон, Адам БродиПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 02:06:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E89796EAF9A57DA9CAC793499DF3553137A616D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 711580   (530156) от 09.09.2014
 
 Похищенный дирижабль / Ukradena vzducholod (1966) DVDRip
@@ -6,7 +58,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530156.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526994.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525903.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524938.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524697.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523369.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516601.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511174.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509025.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505195.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501485.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501465.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497184.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494502.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493678.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492520.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492124.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491375.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491115.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486328.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484319.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483072.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482723.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480374.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B559257F76CC0A032739480AE71D303ADEF0225
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058270   (468431) от 01.10.2016
-
-В поисках потерпевших кораблекрушение / Дети капитана Гранта / In Search of the Castaways (1962) DVDRip [H.264] [VO]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Землетрясение, наводнение, вулкан, аллигаторы, ягуар и кровожадные людоеды-маори. Все это могло стать непреодолимым препятствием для кого угодно, но только не для профессора Паганеля, который вместе с двумя детьми капитана Гранта, лордом Гленарваном и его сыном рыщет по всему Южному полушарию в поисках пропавшего без вести капитана Гранта и его судна…Производство: США / Walt Disney ProductionsЖанр: Приключения, Семейный, ФэнтезиРежиссер: Роберт СтивенсонАктеры: Морис Шевалье, Хейли Миллз, Джордж Сэндерс, Уилфрид Хайд-Уайт, Майкл Андерсон мл., Антонио Чифарелло, Кит Хэмшир, Уилфрид Брэмбелл, Джек Гвиллим, Рональд ФрайзерПеревод: Любительский одноголосый (dimadima)Субтитры: ОтсутствуютПродолжительность: 01:34:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4C02C89B37889EB507C17CE9B7C2ED3B52EA483
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568508   (462092) от 08.08.2022
-
-Решение с арахисовым маслом / The Peanut Butter Solution (1985) BDRip [H.264] [VO]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462092.jpg" />
-</div>
-
-
-###  Подробнее
-
-11-летний Майкл отправляется в переполненный призраками дом, а там от страха теряет сознание. И у него выпадают все волосы! Привидения рассказывают ему о чудодейственном рецепте для восстановления волос, но когда он смешивает все ингредиенты, происходит то, чего Майкл совсем не ожидал...Производство: Канада, Les Productions La Fête Inc., Téléfilm Canada, Société Générale du Cinéma du QuébecЖанр: фэнтези, комедия, приключения, семейныйРежиссер: Майкл РуббоВ ролях: Мэтью Маккэй, Силак Сейсенеси, Элисон Дарси, Майкл Хоган, Хелен Хьюз, Гриффит Брюэр, Гарри Хилл, Эдгар Фруатье, Пэт ТомпсонПеревод: любительский одноголосый (Семён Ващенко)Субтитры: русские (Северный), английскиеПродолжительность: 01:30:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2140A1ABD4D55042A8EC957C171A429BDF084DDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

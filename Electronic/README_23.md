@@ -1,3 +1,61 @@
+###  Публикация: 1443144   (1035722) от 28.01.2021
+
+VA - MixCult Selected: Lola Palmer (2020) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Deep Tech, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. R.Hz – City Space (07:23)
+02. Brickman – Meditation (07:29)
+03. Daniel Gorziza – Mountain Goat (07:15)
+04. Ini – Iceberg (07:37)(   Читать дальше...   )Жанр: Tech House, Deep House, Deep Tech, MinimalПродолжительность: 01:27:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BCD267FD7583DDDEED658D5EF7B7DF758646618
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443175   (1035705) от 28.01.2021
+
+VA - The Best of Vocal Deep House Music Mix 2021 [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Semmy Satch - Feel Alive (3:44)
+02. Ray Abegg - Surrender (4:34)
+03. PINKY - Lary Challenge (4:13)
+04. Nos Rider, Nat - When the Day Is Done (4:01)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:07:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A723A79608F9D1BA282230CF945835D4F43EAB72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 882692   (1035693) от 28.01.2021
 
 Fix8:Sed8 (Fïx8:Sëd8) - Discography 6 Releases (2005-2009) Dependent [FLAC|Lossless|WEB|tracks]<EBM, Electro, IDM, Industrial>
@@ -6,7 +64,7 @@ Fix8:Sed8 (Fïx8:Sëd8) - Discography 6 Releases (2005-2009) Dependent [FLAC|Los
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035693.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ SNTS - Discography 17 Releases (2012-2020) [FLAC|Lossless|tracks] <Techno, Indus
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035659.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Alternative EDM Party 2023 (2023) [MP3|320 Kbps] <Dance, Electronic, Club, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035610.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Empusae - Discography 19 Releases (2002-2020) Ant-Zen, Hands [FLAC|Lossless|trac
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035601.jpg" />
 </div>
 
 
@@ -120,7 +178,7 @@ VA - By the Way...Sounds Good, Size Two (2023) [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035583.jpg" />
 </div>
 
 
@@ -149,7 +207,7 @@ VA - The Sound of 2023 Mix 5: Dubai (2023) [MP3|320 Kbps] <Trance, Progressive, 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035578.jpg" />
 </div>
 
 
@@ -178,7 +236,7 @@ VA - Deep House Summer Hits (2023) [MP3|320 Kbps] <House, Deep House, Dance, Clu
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035570.jpg" />
 </div>
 
 
@@ -207,7 +265,7 @@ Kim & Buran - Tramplin (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Space dis
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035545.jpg" />
 </div>
 
 
@@ -236,7 +294,7 @@ VA - By the Way...Sounds Good, Size One (2023) [MP3|320 Kbps] <Minimal, Tech Hou
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035543.jpg" />
 </div>
 
 
@@ -265,7 +323,7 @@ Kim & Buran - Tramplin (2022) Limited Edition [MP3|320 Kbps] <Synthpop, Space di
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035526.jpg" />
 </div>
 
 
@@ -294,7 +352,7 @@ VA - Best Of Last State (2021) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035483.jpg" />
 </div>
 
 
@@ -323,7 +381,7 @@ Giuseppe Falivene - Discography 14 Releases (2017-2021) Annulled, Oslated [FLAC|
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035474.jpg" />
 </div>
 
 
@@ -352,7 +410,7 @@ VA - Armin van Buuren - A State Of Trance 1001 (Celebration Mix) (2021) [MP3|320
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035471.jpg" />
 </div>
 
 
@@ -381,7 +439,7 @@ VA - Fitness Mix 2021 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035470.jpg" />
 </div>
 
 
@@ -410,7 +468,7 @@ VA - Summer Melody: Best Of 2020 (Mixed Version With Full Compilation DJ Mix) (2
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035455.jpg" />
 </div>
 
 
@@ -439,7 +497,7 @@ In The Branches | The Adaptive - Discography 27 Releases (2014-2020) [FLAC|Lossl
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035415.jpg" />
 </div>
 
 
@@ -468,7 +526,7 @@ Magnavolt - Nexus (2023) [FLAC|Lossless|WEB-DL|tracks] <Darksynth, Synthwave>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035364.jpg" />
 </div>
 
 
@@ -497,7 +555,7 @@ VA - The Sound of 2023 Mix 5: Dubai (2023) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035321.jpg" />
 </div>
 
 
@@ -526,7 +584,7 @@ VA - Markus Schulz - Global DJ Broadcast - Escape to Fisher Towers (2021) [MP3|3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035205.jpg" />
 </div>
 
 
@@ -555,7 +613,7 @@ VA - Azura Trance Selections (2021) [MP3|320 Kbps] <Uplifting-Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035191.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ VA - Talla 2XLC - Carpe Diem (2021) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035190.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ VA - Pure Synthwave Vol. 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035183.jpg" />
 </div>
 
 
@@ -642,7 +700,7 @@ Martin Gore (from Depeche Mode) - The Third Chimpanzee E.P. (2021) [FLAC|Lossles
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035148.jpg" />
 </div>
 
 
@@ -671,7 +729,7 @@ VA - A State Of Trance 1000 - Celebration Mix (Mixed by Armin van Buuren) (2021)
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035128.jpg" />
 </div>
 
 
@@ -685,61 +743,6 @@ VA - A State Of Trance 1000 - Celebration Mix (Mixed by Armin van Buuren) (2021)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0ABBA4F92061CE9BA9254A9AEEEBB436684AA693
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239854   (1035122) от 30.01.2021
-
-Syndromeda - Discography 34 Releases (1997-2020) SynGate, Luna [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Berlin-School, Dark Ambient, Space>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sparkle (07:00)Тип издания: CD, WebЖанр: Ambient/New AgeПродолжительность: 01:09:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8C52A36318CD46B47740DA7D88DFA966BDBE485
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252375   (1035106) от 30.01.2021
-
-VA - Steyoyoke Perception, Vol. 1-8 (2017-2021) Steyoyoke Recordings [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Techno, Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adam Husa & Mustafa Ismaeel - Young, Wild And Free (08:08)
- 02. Reboq - Aftermath (07:09)
- 03. Monarke - Magenta (06:43)
- 04. Dominik Gehringer - Natural Way (06:20)(   Читать дальше...   )Жанр: Tech House/Deep House/Progressive HouseПродолжительность: 02:04:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1BE7F79C22080C3C09352961E4A8149AFBF3A78
 ```
 
 https://mybot314.ru/tekegram_catalog/

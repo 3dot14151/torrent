@@ -1,3 +1,133 @@
+###  Публикация: 1294540   (627570) от 08.04.2019
+
+Астерикс и тайное зелье / Asterix: Le secret de la potion magique (2018) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Могучие галлы издревле черпали силу в секретном напитке, который готовил великий старец. Но пришла беда, откуда не ждали — почтенный друид свалился с дерева и сломал обе ноги. Теперь Астериксу и Обеликсу предстоит отправиться в опасное путешествие, чтобы отыскать нового друида, достойного постичь рецепт тайного зелья.Производство: Франция / M6 Studio, M6 Films, Les Editions Albert RenéЖанр: Мультфильм, фэнтезиРежиссер: Александр Астье, Луи КлишиАктеры: Кристиан Клавье, Гийом Бриа, Алекс Лутс, Александр Астье, Эли Семун, Даниэль Месгиш, Бернар Алан, Франсуа Морель, Лионель Астье, Флоренс ФорестиПеревод: Дублированный (iTunes)Субтитры: РусскиеПродолжительность: 01:24:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF91AE62B678740B2020B4131F46880B9A5CE473
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294604   (627560) от 08.04.2019
+
+Как приручить дракона 3 / How to Train Your Dragon: The Hidden World (2019) BDRemux [H.264/1080p] [EN]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда-то викинги жили в гармонии с драконами. В те времена они делили радость, горе… и последние штаны. Казалось, что так будет всегда, но появление загадочной Дневной Фурии изменило жизнь острова. И теперь Иккинг и Беззубик столкнутся с безжалостным охотником на драконов, жаждущим уничтожить все, что им дорого.Производство: США / DreamWorks Animation, Mad Hatter EntertainmentЖанр: фентези, приключения, комедияРежиссер: Дин ДеБлуаПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английские (SDH, с комментариями)Продолжительность: 01:44:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A18C59FB78F50AEC637DE738657FD63AAD46BF70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 350685   (627202) от 14.06.2011
+
+Фильмы Юрия Норштейна (1971-1979) DVDRip (Реставрация КП)
+
+>>Мультфильмы
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Рисованая анимацияПродолжительность: 01:08:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:069E813D535BC768A3685AC4817A216D83BA4ED3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 350702   (627088) от 14.06.2011
+
+Фильмы Юрия Норштейна (1971-1979) DVD5 (Реставрация КП)
+
+>>Мультфильмы
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627088.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Рисованая анимацияСубтитры: НетПродолжительность: 01:08:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:819F1279334FD145AE9C8E0DFD6896F3C1D3DC36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 350371   (626877) от 14.06.2011
+
+Клуб Винкс, Школа волшебниц / WinX Club (2009) DVDRip (сезон 4, серии 1-26 из 26)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Свершилось, шестерка фей-волшебниц закончили курс учебы в Алфее, теперь они могут преподавать и учить вновь прибывших фей. Однако слава и популярность винкс не всем так приятна. К тому же, слава имеет дурную сторону. На пути у Винкс новые испытания, четыре злых мага из клана "Черный Круг" узнают о сильной стороне Блум, ее силе Огня Дракона. Они прибывают в Алфею, чтобы показать свою власть. Винкс ждет полное поражение, их силы Энчантикса слишком малы для борьбы со столь свирепой черной магией. Теперь у Винкс новая задача, найти последнюю фею, Рокси, чтобы пробудить в ней силы феи, для этого они летят на Землю, где Винкс получат новые силы и трансформацию - БелИвикс.Жанр: Рисованая анимация, Приключения, ДетскийРежиссер: Иджинио Страффи (Iginio Straffi)Персонажи: Лиза Ортиз (Lisa Ortiz), Лиза Жаклин (Liza Jacqueline), Кристина Родригез (Christina Rodriguez), Дэн Грин (Dan Green)Перевод: ДублированныйФормат: AVIПродолжительность: 26 x ~00:21:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FACDDB31DEB6A28BA07E746FAC0F10D88D5D173
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 521747   (626631) от 11.07.2012
 
 Леонардо Да Винчи / Leonardo da Vinci (1996) DVDRip
@@ -6,7 +136,7 @@
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626631.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626484.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626213.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625874.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625722.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625465.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625464.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625433.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625293.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625179.jpg" />
 </div>
 
 
@@ -268,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625017.jpg" />
 </div>
 
 
@@ -294,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624945.jpg" />
 </div>
 
 
@@ -320,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624826.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624598.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624589.jpg" />
 </div>
 
 
@@ -402,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624510.jpg" />
 </div>
 
 
@@ -432,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624497.jpg" />
 </div>
 
 
@@ -459,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624397.jpg" />
 </div>
 
 
@@ -485,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624276.jpg" />
 </div>
 
 
@@ -511,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624275.jpg" />
 </div>
 
 
@@ -537,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624186.jpg" />
 </div>
 
 
@@ -549,136 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:003A4F9488BD8ADDFB9A502E0340904A180E1491
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 800575   (624141) от 07.07.2014
-
-Робокар Поли и его друзья / Robocar Poli (2011) WEBRip [1080p] (Серии 01-27 из 27)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624141.jpg" />
-</div>
-
-
-###  Подробнее
-
-В каждой серии Робокар Поли и его дружная команда спешит на помошь всем, кто попал в беду. С помощью этого сериала маленькие зрители смогут изучить правила поведения в городе, общения с друзьями и посторонними, научатся совершать добрые и правильные поступки, а так же смогут обезопасить себя и своих близких в повседневной жизни. Образовательный мультсериал "Робокар (   Читать дальше...   )Производство: Южная Корея / RoiVisual, Educational Broadcasting System, Hyundai Motors, Benex Investment, Korea Creative Content AgencyЖанр: МультфильмРежиссер: Ем Джун ЯнгПерсонажи: Ан Джи Минг, Сон Джан Хук, Ем Джун Янг, Ли Янг Во, Джо Хье Джин, Ко Си Ян, Чо Джи Хун, Ким Хо ПакПеревод: ДублированныйПродолжительность: Серия по ~00:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A0D25F4E3AA396E2528C0F691ADF89BD943B7D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 683902   (623726) от 26.07.2013
-
-Ослепительный Барри и червяки диско / Sunshine Barry & the Disco Worms / Disco ormene (2008) [H.264/720p-LQ] BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о земляном червяке по имени Барри, который сыт по горло тем, что он червяк (звено в пищевой цепи). Тоска его продолжается до тех пор, пока он случайно не находит старую запись с музыкой диско. Так у Барри начинается новая, захватывающая и наполненная смыслом жизнь. Теперь его миссия - создать самую великую диско группу в мире. Он называет ее «Сияющий Барри (   Читать дальше...   )Жанр: мультфильм, комедия, семейныйРежиссер: Томас Борч НилсенПеревод: ДублированныйЯзык субтитров: Русские, английские, португальскиеПродолжительность: 01:15:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:373F32A2BAA89BE296B2E96C3FA1303E4F666F87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 683316   (623458) от 26.07.2013
-
-Мой Маленький Пони: Эквестрийские Девчонки / My Little Pony: Equestria Girls (2013) BDRip [H.264/1080p-LQ] [EN, / RU, EN Sub]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623458.jpg" />
-</div>
-
-
-###  Подробнее
-
-Следуя за похитившим корону Кристальной Империи вором, Твайлайт Cпаркл попадает в альтернативный мир, в котором она превращается в девочку-подростка и сталкивается с самым серьёзным испытанием в своей жизни — старшей школой! При помощи своих новых друзей, которые напоминают ей оставшихся в Понивилле Эпплджек, Рэрити, Рэйнбоу Дэш, Пинки Пай и Флаттершай, она начинает (   Читать дальше...   )Жанр: Компьютерная анимация, Приключения, КомедияРежиссер: Джэйсон Тиссен / Jason ThiessenПерсонажи: Twilight Sparkle, Rainbow Dash, Fluttershy, Pinkie Pie, Rarity,ApplejackПеревод: ОтсутствуетЯзык субтитров: Русские, АнглийскиеПродолжительность: 01:12:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F12BF3C8DFCDA7D7AF859674725570E4E749C821
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 684003   (623356) от 26.07.2013
-
-Железяки / Yak (2012) DVDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623356.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вернувшись к жизни после долгих лет сна, роботы Здоровяк и Микро с удивлением обнаруживают, что их тела прочно соединены крепкой цепью. Увы, время стерло им память, и теперь они вынуждены вдвоем отправиться в трудное и опасное путешествие, чтобы вновь обрести свободу. Долгие странствия, наполненные удивительными приключениями, трудными испытаниями и великими подвигами, (   Читать дальше...   )Производство: Таиланд / Work Point EntertainmentЖанр: Мультфильм, ПриключенияРежиссер: Прапас ЧолсаранонтПерсонажи: Антон Савенков, Александр Ревва, Владимир Рыбальченко, Михаил ГалустянПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:33:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5180240FC52BFA079B096F7C7AD398ACC8CE462C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144953   (623068) от 24.06.2017
-
-Хранители снов / Rise of the Guardians (2012) BDRip [H.265/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда злой дух Кромешник посягает на самое дорогое — детские мечты, Северянин, Ледяной Джек, Кролик, Зубная Фея и Песочный Человек впервые объединяются, чтобы создать команду Хранителей снов…Производство: СШАЖанр: Мультфильм, фэнтези, приключения, семейныйРежиссер: Питер РэмсиПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CEF9B691D08D062121F8BFBAA263E5F878FBBBD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1415658   (374296) от 13.10.2020
+
+Spirit Adrift - Enlightened In Eternity (2020) [MP3|320 Kbps] <Doom Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ride Into The Light [00:04:42]
+02. Astral Levitation [00:06:12]
+03. Cosmic Conquest [00:05:32]
+04. Screaming From Beyond [00:06:21](   Читать дальше...   )Жанр: Doom Metal, Heavy MetalПродолжительность: 00:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA5A14AF6764EAE4304619982C305658D49A49A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1415619   (374193) от 13.10.2020
 
 XIII - 3 Albums: Sick; Impure; The Blood on the Wall (2018-2020) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
@@ -6,7 +35,7 @@ XIII - 3 Albums: Sick; Impure; The Blood on the Wall (2018-2020) [FLAC|Lossless|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374193.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374074.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Antony Kalugin - Marshmallow Moondust (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Pro
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374050.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Seven - Freedom Call (2011) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373990.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Flash the Readies - Kayos (2016) [MP3|320 Kbps] <Progressive Rock, Post-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373958.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373928.jpg" />
 </div>
 
 
@@ -179,7 +208,7 @@ Slade - Cum On Feel The Hitz - The Best Of Slade (2020) 2xCD [FLAC|Lossless|imag
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373902.jpg" />
 </div>
 
 
@@ -208,7 +237,7 @@ Kamboja - Ate o Freio Estourar (2016) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373876.jpg" />
 </div>
 
 
@@ -237,7 +266,7 @@ Superheist - Ghosts of the Social Dead (2016) Deluxe Edition [MP3|320 Kbps] <Nu 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373865.jpg" />
 </div>
 
 
@@ -266,7 +295,7 @@ Vader - The Empire (2016) [MP3|320 Kbps] <Death, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373859.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373811.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373810.jpg" />
 </div>
 
 
@@ -353,7 +382,7 @@ Hollywood Undead - Five (2017) [MP3|320 Kbps] <Rapcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373809.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ Mad Max - 13 Albums, 14CD (1982-2020) [FLAC|Lossless|image + .cue | tracks + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373783.jpg" />
 </div>
 
 
@@ -411,7 +440,7 @@ FireLake - Radioactive (2014) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373770.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ Kidneythieves - The Mend (2016) [FLAC|Lossless|tracks + .cue] <Alternative Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373684.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ Queen - On Air (2016) Live [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373544.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ Mordor - Nothing... (Demo) (1992) Reissue, 2016, Witching Hour Productions [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373373.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ Apnea - Sea Sound (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Grun
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373372.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ Ghozer - 2 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373371.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ Steel Engraved - Steel Engraved (2019) [FLAC|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373370.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ Crosson - 5 Albums (2016-2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Glam Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373365.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ Stratovarius - Twilight Time (1992) Remastered, 1993, Victor [OGG Vorbis|485 Kbp
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373364.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ Queen - Rare Cuts (2011)(6 CD Bootleg) [FLAC|Lossless|image + .cue] <Classic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373353.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ Darkness - First Class Violence (2018) [FLAC|Lossless|WEB-DL|tracks] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373336.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ Darkness - First Class Violence (2018) [FLAC|Lossless|WEB-DL|tracks] <Thrash Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B82CFC915CFAB6115393DAE40FCD11FCB629D7FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254384   (373330) от 14.10.2018
-
-Bonniwell Music Machine - Ignition (2000) [FLAC|Lossless|tracks + .cue] <Psychedelic Rock, Garage Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373330.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Everything Is Everything 1:52 (1968)
-2. Two Much 2:03 (1965)
-3. Advise and Consent 2:59 (1967)
-4. This Should Make You Happy 1:53 (1968)(   Читать дальше...   )Жанр: Psychedelic Rock, Garage RockПродолжительность: 00:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25603C0DF4E193553EE7C466542707ACE40FDD39
 ```
 
 https://mybot314.ru/tekegram_catalog/

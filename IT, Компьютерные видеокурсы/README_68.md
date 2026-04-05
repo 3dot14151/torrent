@@ -1,32 +1,3 @@
-###  Публикация: 1579580   (335956) от 27.09.2022
-
-Innopolis University, Олег Игонин | Введение в разработку корпоративных приложений на Java (2022) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335956.jpg" />
-</div>
-
-
-###  Подробнее
-
-На онлайн-курсе Java Junior освоите современный стек для работы (SQL, Maven, JUnit, JDB) и познакомитесь с фреймворком Spring. Получите новую цифровую профессию и работайте на «удаленке» всего через три месяца.
-Чему вы научитесь на курсе?
-Понимать объектно-ориентированное программирование
-Писать код на Java, разбираться в синтаксисе языка программирования(   Читать дальше...   )Производство: Innopolis UniversityЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 89:14:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B6A4E95953D88D02155B4BB9DB11B6211F8AC8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579575   (335952) от 27.09.2022
 
 Innopolis University, Иван Кривов | Основы Frontend-разработки (2022) WEB-DL [RU]
@@ -35,7 +6,7 @@ Innopolis University, Иван Кривов | Основы Frontend-разраб
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335952.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335950.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ itgid | Интернет магазин на node.js (2019) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334295.jpg" />
 </div>
 
 
@@ -121,7 +92,7 @@ lynda.com | Visual Studio 2010 Essential Training [2010] [EN] PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334248.jpg" />
 </div>
 
 
@@ -148,7 +119,7 @@ Stepik, Михаил Непомнящий | TypeScript для современн
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334093.jpg" />
 </div>
 
 
@@ -175,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333574.jpg" />
 </div>
 
 
@@ -201,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333564.jpg" />
 </div>
 
 
@@ -228,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333561.jpg" />
 </div>
 
 
@@ -254,7 +225,7 @@ Duckademy | Освоение SQL-инъекций / Mastering SQL injection (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333406.jpg" />
 </div>
 
 
@@ -282,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333373.jpg" />
 </div>
 
 
@@ -308,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333269.jpg" />
 </div>
 
 
@@ -336,7 +307,7 @@ AutoIt Guide RUS | Основы программирования на AutoIT (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331948.jpg" />
 </div>
 
 
@@ -365,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331801.jpg" />
 </div>
 
 
@@ -391,7 +362,7 @@ Udemy, in28Minutes Official, Ranga Karanam | Java Programming for Complete Begin
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331655.jpg" />
 </div>
 
 
@@ -419,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331518.jpg" />
 </div>
 
 
@@ -446,7 +417,7 @@ Laracon Online | Laracon Online 2020. The official Laravel online conference (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331130.jpg" />
 </div>
 
 
@@ -473,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331118.jpg" />
 </div>
 
 
@@ -500,7 +471,7 @@ Udemy | Java для начинающих: с нуля до сертификат�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329533.jpg" />
 </div>
 
 
@@ -526,7 +497,7 @@ Udemy, Mammoth Interactive, John Bura | The Complete Course To Advance Your Codi
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328715.jpg" />
 </div>
 
 
@@ -552,7 +523,7 @@ Udemy, Elshad Karimov | Java Data Structures and Algorithms Masterclass (2022) W
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328573.jpg" />
 </div>
 
 
@@ -580,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326550.jpg" />
 </div>
 
 
@@ -606,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325166.jpg" />
 </div>
 
 
@@ -633,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323816.jpg" />
 </div>
 
 
@@ -660,7 +631,7 @@ Mr-Grey/NZTCoder | Богатый Python разработчик (2022) WEB-DL [�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322544.jpg" />
 </div>
 
 
@@ -689,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319858.jpg" />
 </div>
 
 
@@ -700,6 +671,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72CB4E8947F28ECF0F0D84014EFC739B021CA31A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421314   (319441) от 04.11.2020
+
+[Udemy] Stephen Grider | ES6 Javascript - Полный туториал / ES6 Javascript: The Complete Developer's Guide (2020) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319441.jpg" />
+</div>
+
+
+###  Подробнее
+
+ES6 Javascript с нуля. Ознакомьтесь с практическими примерами в реальном времени и узнайте где именно нужно применять функции ES6. Это пособие именно то, которое вы искали для овладения ES6 Javascript. Генераторы? Конечно. Стрелочные функции? Ага. Оператор Rest/Spread? Есть! И все новое в ES6 уже в этом курсе.
+Понимания синтаксиса ES6 может помочь вам найти место (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 06:14:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:657755E67952DE6461C5DCBD209A73F2BD34A041
 ```
 
 https://mybot314.ru/tekegram_catalog/

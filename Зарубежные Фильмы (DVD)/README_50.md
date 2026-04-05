@@ -1,81 +1,3 @@
-###  Публикация: 1333827   (301041) от 26.10.2019
-
-Две королевы / Mary Queen of Scots (2018) DVD5 [Custom]
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301041.jpg" />
-</div>
-
-
-###  Подробнее
-
-1561 год, после смерти молодого мужа Франциска 18-летняя Мария Стюарт возвращается в Шотландию. Она католичка и по крови имеет право претендовать на престол Англии, чем изрядно нервирует нынешнюю протестантскую королеву Елизавету I. Прислушавшись к советникам, королева отправляет к Марии делегацию, в состав которой входит фаворит Елизаветы граф Роберт Дадли, по мнению (   Читать дальше...   )Производство: Великобритания, США / Universal Pictures, Focus Features, Perfect World Pictures, Working Title FilmsЖанр: Драма, биография, историяРежиссер: Джози РуркАктеры: Сирша Ронан, Марго Робби, Джек Лауден, Джо Элвин, Дэвид Теннант, Гай Пирс, Анджела Бэйн, Ричард Кэнт, Гай Риз, Том ПеттиПеревод: Дублированный (лицензия)Субтитры: Русские, английские, чешские, венгерские, польские, греческие, болгарские, хорватские, эстонские, латышские, литовские, румынские, словенскиеПродолжительность: 01:59:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:386D3BF5A1BEFCADEBB144A2022EA1EB9B25EB9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333835   (300943) от 26.10.2019
-
-Последствия / The Aftermath (2019) DVD5 [Custom]
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Германия после Второй мировой войны. В стране беспорядок, разруха, голод. Главный герой — британский военный Льюис Морган, который назначен временным мэром Гамбурга. Ему предстоит восстанавливать город почти с нуля. Вместе с женой Льюис селится в роскошный особняк, где живет немецкий архитектор с эмоционально нестабильной дочерью. Смогут ли бывшие враги ужиться под (   Читать дальше...   )Производство: Германия, Великобритания, США / Fox Searchlight Pictures, Amusement Park Films, Scott Free ProductionsЖанр: Драма, мелодрама, военныйРежиссер: Джеймс КентАктеры: Кира Найтли, Александр Скарсгард, Джейсон Кларк, Фионн О’Ши, Кейт Филлипс, Мартин Компстон, Александр Шеер, Анна Катарина Шримригк, Нед Виллс, Пандора КолинПеревод: Дублированный (лицензия)Субтитры: Русские, английские, датские, финские, норвежские, шведские, эстонские, хинди, латышские, литовские, украинскиеПродолжительность: 01:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63D58CD66593D3B197B6D71D7C82512AE9BA464A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333862   (300811) от 26.10.2019
-
-Дом, который построил Джек / The House That Jack Built (2018) DVD5 [Custom]
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300811.jpg" />
-</div>
-
-
-###  Подробнее
-
-История серийного убийцы по имени Джек разворачивается в Америке 70-х. За 12 лет блестящей «карьеры» Джеку встретятся назойливая попутчица, наивная подружка и другие очаровательные в своей глупости жертвы. Пять невероятных, до жути изобретательных и порой до смеха абсурдных убийств, к каждому из которых Джек относится как к настоящему произведению искусства.Производство: Дания, Франция, Швеция, Германия, Бельгия / Zentropa Entertainments, Centre National du Cinéma et de l'Image, Copenhagen Film FundЖанр: Ужасы, драма, криминалРежиссер: Ларс фон ТриерАктеры: Мэтт Диллон, Бруно Ганц, Ума Турман, Шиван Фэллон, Софи Гробёль, Райли Кио, Джереми Дэвис, Джек МакКензи, Эдвард Спелирс, Дэвид БэйлиПеревод: Дублированный (лицензия)Субтитры: РусскиеПродолжительность: 02:26:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0085FFF1DC7F5F123ADCA35B3FC8BD6A3C10C695
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1333859   (300796) от 26.10.2019
 
 Алита: Боевой ангел / Alita: Battle Angel (2019) DVD5 [Custom]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300796.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300434.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300422.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_300193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_300193.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299674.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299426.jpg" />
 </div>
 
 
@@ -240,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298998.jpg" />
 </div>
 
 
@@ -266,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298880.jpg" />
 </div>
 
 
@@ -292,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295379.jpg" />
 </div>
 
 
@@ -318,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295241.jpg" />
 </div>
 
 
@@ -344,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294646.jpg" />
 </div>
 
 
@@ -370,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292876.jpg" />
 </div>
 
 
@@ -396,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292868.jpg" />
 </div>
 
 
@@ -422,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292835.jpg" />
 </div>
 
 
@@ -448,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292824.jpg" />
 </div>
 
 
@@ -474,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292735.jpg" />
 </div>
 
 
@@ -500,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292709.jpg" />
 </div>
 
 
@@ -526,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292584.jpg" />
 </div>
 
 
@@ -552,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291767.jpg" />
 </div>
 
 
@@ -578,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291303.jpg" />
 </div>
 
 
@@ -604,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290639.jpg" />
 </div>
 
 
@@ -630,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290574.jpg" />
 </div>
 
 
@@ -656,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290564.jpg" />
 </div>
 
 
@@ -667,6 +589,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5CDA4D52A6654C6B074EA9DB402A4DCCE5A4E4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961334   (290478) от 06.12.2015
+
+Терминатор: Генезис / Terminator: Genisys (2015) DVD9 [BD -> DVD]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда Джон Коннор, лидер сопротивления, посылает сержанта Кайла Риза назад в 1984 год, чтобы защитить Сару Коннор и спасти будущее, неожиданный поворот событий создает разлом во времени. Сержант Риз оказывается в новой, незнакомой версии прошлого, где он встречает неожиданных союзников, в том числе Терминатора, новых опасных врагов, и новую миссию: изменить будущее…Производство: США / Paramount Pictures, Skydance ProductionsЖанр: Фантастика, боевик, триллерРежиссер: Алан ТейлорАктеры: Арнольд Шварценеггер, Джейсон Кларк, Эмилия Кларк, Джай Кортни, Дж.К. Симмонс, Дайо Окенийи, Мэтт Смит, Кортни Б. Вэнс, Ли Бён Хон, Майкл ГлэдиПеревод: Профессиональный (полное дублирование) + Профессиональный (многоголосый, закадровый) «Омикрон» + Авторский (одноголосый, закадровый) (А. Гаврилов)Субтитры: Вшитые отключаемыеЯзык субтитров: Английский, русскийПродолжительность: 02:05:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:004694F8D64076B6B702D73718F00B87C5E7A755
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 848475   (289677) от 08.12.2014
+
+Геракл / Hercules (2014) DVD5
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Более тысячи лет назад измученная душа скиталась по Земле, полубог, получеловек — Геракл — могучий сын царя богов Зевса, совершив все 12 подвигов, потерял семью и теперь находит утешение только в кровавых битвах.
+
+За эти годы он собирает вокруг себя шестерых таких же потерянных воинов, единственным смыслом жизни для которых стали сражения и присутствие смертельной (   Читать дальше...   )Производство: США / Paramount Pictures, Metro-Goldwyn-Mayer (MGM), Flynn Picture Company, Radical StudiosЖанр: Боевик, приключенияРежиссер: Бретт РэтнерАктеры: Дуэйн Джонсон, Иэн МакШейн, Джон Хёрт, Руфус Сьюэлл, Аксель Хенни, Ингрид Больсё Бердаль, Рис Ричи, Джозеф Файнс, Тобиас Зантельман, Питер МулланПеревод: Дублированный (лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Арабский, греческий, эстонский, английский, хинди, исландский, латышский, литовский, русский, украинскийПродолжительность: 01:34:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C3A7F1627F33D6F95F2EEBC292A50FB7FF2355E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 848435   (289340) от 08.12.2014
+
+Дальше живите сами / This Is Where I Leave You (2014) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еврейская семья, которая не особо привыкла соблюдать традиции своей веры, вынуждена выполнить последнее желание своего отца — им нужно будет провести вместе период траура, целую неделю, и решить свои проблемы.Производство: США, 21 Laps Entertainment, Spring Creek Productions, Warner Bros. PicturesЖанр: Драма, мелодрама, комедияРежиссер: Шон ЛевиАктеры: Джейсон Бейтмен, Тина Фей, Адам Драйвер, Роуз Бирн, Кори Столл, Кэтрин Хан, Конни Бриттон, Тимоти Олифант, Дэкс Шепард, Джейн Фонда...Перевод: Профессиональный многоголосыйСубтитры: Встроенные, отключаемыеЯзык субтитров: Русские, английские, хорватские, эстонские, латышские, литовские, польские, словенские, турецкие, украинскиеПродолжительность: 01:45:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C492574EB5854A725B0F34DD42978BBE5B2A8D59
 ```
 
 https://mybot314.ru/tekegram_catalog/

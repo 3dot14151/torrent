@@ -1,3 +1,56 @@
+###  Публикация: 930512   (515255) от 23.08.2015
+
+Н.В. Пеньшин и др. | Организация автомобильных перевозок (2014) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрен процесс организации грузовых и пассажирских автомобильных перевозок, даны основные термины и определения. Приведены методики расчёта технико-эксплуатационных показателей работы подвижного состава.Жанр: ТранспортФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E17B5851E8561209652139F91497E02858F23E86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930280   (515082) от 23.08.2015
+
+Подборка книг | Курсовое и дипломное проектирование по технологии машиностроения [6 книг] (2007-2012) [PDF, DJVU, DOC]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515082.jpg" />
+</div>
+
+
+###  Подробнее
+
+В подборке учебных пособий представлены основные методические материалы для дипломного и курсового проектирования по технологии машиностроения.
+Рассматриваются вопросы анализа конструкции детали, отработки ее конструкции на технологичность, выбора технологических баз, определения видов обработки, формирования маршрута обработки детали. Содержатся основные справочные (   Читать дальше...   )Жанр: МашиностроениеФормат: PDF, DJVU, DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A81E8E3C72E10A801C2FFD1E0F2954DF4AE47C7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1315106   (515014) от 18.07.2019
 
 В.И. Гужов | Компьютерная голография (2019) [PDF]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515014.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514915.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514902.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513738.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513309.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512795.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512711.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512316.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511789.jpg" />
 </div>
 
 
@@ -246,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509354.jpg" />
 </div>
 
 
@@ -273,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509278.jpg" />
 </div>
 
 
@@ -299,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509272.jpg" />
 </div>
 
 
@@ -325,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509161.jpg" />
 </div>
 
 
@@ -351,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509017.jpg" />
 </div>
 
 
@@ -377,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507175.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507041.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506943.jpg" />
 </div>
 
 
@@ -459,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506942.jpg" />
 </div>
 
 
@@ -485,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502484.jpg" />
 </div>
 
 
@@ -511,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502297.jpg" />
 </div>
 
 
@@ -538,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501445.jpg" />
 </div>
 
 
@@ -565,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501299.jpg" />
 </div>
 
 
@@ -591,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500964.jpg" />
 </div>
 
 
@@ -618,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500439.jpg" />
 </div>
 
 
@@ -630,58 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8170258A06C3E5A59D961E7AB297F1967993784B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934460   (500428) от 07.09.2015
-
-В.А. Андреев (ред.) | Направляющие системы электросвязи [2 тома] (2009,2010) [DJVU, PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500428.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1-м томе рассматриваются состояние, принципы построения и перспективы развития сетей электросвязи Российской федерации. Излагается теория передачи по различным типам направляющих систем электросвязи (коаксиальным, симметричным, волоконно-оптическим, сверхпроводящим, волноводным), приводятся их конструкции и характеристики. Рассматриваются также электрические влияния (   Читать дальше...   )Жанр: СвязьФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:254968CEB34A7113EF6B32ACCC0AAF5D15477839
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934486   (500371) от 07.09.2015
-
-В.Ю. Шишмарёв | Электротехнические измерения (2013) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приведены основные понятия о физических величинах, их единицах, эталонах, системах единиц. Представлены методы электро-технических измерений и классификация средств измерений. Рассмотрены метрологические показатели и погрешности измерений и измерительных приборов. Показаны схемы и рассмотрены принципы работы механизмов и измерительных цепей электроизмерительных приборов. (   Читать дальше...   )Жанр: МетрологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F61591B85C2A4ACF2ABFCD51163EEB157D557C91
 ```
 
 https://mybot314.ru/tekegram_catalog/

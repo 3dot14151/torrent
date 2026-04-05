@@ -1,3 +1,29 @@
+###  Публикация: 1636750   (231351) от 31.05.2023
+
+Уголовное дело Солженицына. Родословная лжи. #1 (2022) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231351.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2022-м году впервые российский журналист получил доступ к архивному уголовному делу Солженицына. Юрий Панков - автор книги "Родословная лжи Солженицына" делится со зрителями канала Плохой сигнал полученными материалами и своими соображениями по теме, которые мы планируем представить в серии выпусков.Производство: Россия, Авторский блог ПЛОХОЙ СИГНАЛЖанр: пропагандаЯзык озвучки: РусскийПродолжительность: 00:29:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA269165B213690A77E2F618E61BA1801276453B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1636877   (231319) от 01.06.2023
 
 LTI / Контролируемый кризис и подвижная оборона. 01  (2023) WEBRip [H.264/1080p-LQ]
@@ -6,7 +32,7 @@ LTI / Контролируемый кризис и подвижная оборо
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231319.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231246.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231204.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230228.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228909.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228683.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228678.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228601.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227844.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223848.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223813.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222472.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221202.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220697.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219986.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219811.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219056.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218619.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218399.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216559.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216117.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214606.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213869.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_212010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_212010.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211634.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:389DAAA641C1C12091CA441F53CBB66541313746
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570044   (210435) от 15.08.2022
-
-Парни «с Квартала» (2022) IPTVRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210435.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2018 году Владимир Зеленский объявил — он идет в президенты Украины. Этот простой парень из студии «Квартал 95» обещал мир Донбассу, русский язык — украинцам, уважение — ветеранам Великой Отечественной войны. И люди ему поверили. Так кто же он, «простой парень» Владимир Зеленский? Константин Затулин: "Они ведь на самом деле с бору по сосенке оказались у этой (   Читать дальше...   )Телекомпания: Россия / Первый каналЖанр: Документальный, Политика, ПропагандаРежиссер: Антон ПономаревУчастники: Депутат Госдумы Константин Затулин,  писатель и публицист Николай Стариков,  академик РАН, д.м.н. Геннадий Онищенко,  музыкант, композитор Алексей Поддубный (Джанго),  декан факультета медиакоммуникаций МГИК Юрий Кот,  депутат Верховной Рады Украины V-VI созывов Алексей Журавко,  доцент департамента политологии Финансового университета при Правительстве РФ Геворг МирзаянСубтитры: отсутствуютПродолжительность: 00:55:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12C14DFF9E013EA186440715031544B3DCF01635
 ```
 
 https://mybot314.ru/tekegram_catalog/

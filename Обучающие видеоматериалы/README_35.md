@@ -1,3 +1,30 @@
+###  Публикация: 1453022   (1027171) от 09.03.2021
+
+Udemy, Maher Haddad | MikroTik CAPsMAN with LABS (2019) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многих из вас, как сетевых инженеров, попросили установить полную беспроводную сеть в отеле, торговом центре или на выставках, чтобы Wi-Fi покрыл всю территорию, чтобы пользователи могли пользоваться беспроводным доступом в Интернет. В такой сложной сети вам требуются десятки, а иногда и сотни точек беспроводного доступа (AP) для обеспечения полного покрытия.
+Эти (   Читать дальше...   )Производство: UdemyЖанр: АдминистрированиеЯзык озвучки: АнглийскийПродолжительность: 02:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:845A72784ADD417AE661FEC830CE255685F7BB15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453021   (1027170) от 09.03.2021
 
 Udemy, Maher Haddad |  MikroTik Traffic Control with LABS  (2019) PCRec [En]
@@ -6,7 +33,7 @@ Udemy, Maher Haddad |  MikroTik Traffic Control with LABS  (2019) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027170.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ Stephen Silver | Advanced Character Design (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027159.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ SkillUP, Евгений Макаренко |  Вводный курс Тести
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027127.jpg" />
 </div>
 
 
@@ -89,7 +116,7 @@ Udemy, Maximilian Schwarzmüller | Python - The Practical Guide (2020) PCRec [En
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027020.jpg" />
 </div>
 
 
@@ -118,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027002.jpg" />
 </div>
 
 
@@ -144,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026996.jpg" />
 </div>
 
 
@@ -173,7 +200,7 @@ Udemy, Renat Lotfullin | Excel VBA – Программирование макр
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026989.jpg" />
 </div>
 
 
@@ -202,7 +229,7 @@ Udemy, Lazaro Diaz | The Only IP Course you Will Ever Need!  (2020) PCRec [En / 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026905.jpg" />
 </div>
 
 
@@ -230,7 +257,7 @@ Udemy, TCM Security  | Windows Privilege Escalation for Beginners (2020) PCRec [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026902.jpg" />
 </div>
 
 
@@ -259,7 +286,7 @@ Udemy, TCM Security  | Linux Privilege Escalation for Beginners  (2020) PCRec [E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026895.jpg" />
 </div>
 
 
@@ -288,7 +315,7 @@ Udemy, Maher Haddad | MikroTik Monitoring with LABS  (2020) PCRec [En / En Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026878.jpg" />
 </div>
 
 
@@ -314,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026844.jpg" />
 </div>
 
 
@@ -343,7 +370,7 @@ Udemy, Anton Golosnichenko |  React Native с нуля на практике [20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026829.jpg" />
 </div>
 
 
@@ -371,7 +398,7 @@ Udemy, Tomislav Fedek | MikroTik configuration as failover and firewall setup (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026723.jpg" />
 </div>
 
 
@@ -399,7 +426,7 @@ Udemy, E-Preceptor Online Training | MikroTik Basic - Module 1 based on the MTCN
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026721.jpg" />
 </div>
 
 
@@ -427,7 +454,7 @@ Udemy, Maher Haddad | MikroTik Advanced BGP with LABS  (2020) PCRec [En / En Sub
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026718.jpg" />
 </div>
 
 
@@ -454,7 +481,7 @@ Udemy, Maher Haddad | MikroTik Hotspot with User Manager (2018) PCRec [En / En S
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026704.jpg" />
 </div>
 
 
@@ -481,7 +508,7 @@ Udemy, Maher Haddad | Learn MikroTik ROUTE with Hands-on LABS from scratch (2018
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026703.jpg" />
 </div>
 
 
@@ -508,7 +535,7 @@ Udemy, Maher Haddad | MikroTik IPv6 Engineer with LABS (2020) PCRec [En / En Sub
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026700.jpg" />
 </div>
 
 
@@ -536,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026694.jpg" />
 </div>
 
 
@@ -562,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026693.jpg" />
 </div>
 
 
@@ -591,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026663.jpg" />
 </div>
 
 
@@ -620,7 +647,7 @@ Udemy, Сергей Голяков и др. | Базовый курс по ин�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026656.jpg" />
 </div>
 
 
@@ -648,7 +675,7 @@ Skillbox, Виталий Устименко и др. | Финансовый ан
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026639.jpg" />
 </div>
 
 
@@ -674,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026566.jpg" />
 </div>
 
 
@@ -688,33 +715,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E285F648CB8365F1A092D3D82361105A169A387
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454184   (1026548) от 13.03.2021
-
-Udemy, Maher Haddad | MikroTik Switching - Spanning Tree Protocol  (2019) PCRec [En]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это первый курс на рынке, где обсуждают переключение в MikroTik. Начиная с версии RouterOS 6.41 и выше, MikroTik имеет очень надежные функции коммутации, от которых вы можете получить прибыль: Одной из функций является протокол связующего дерева.
-Протокол связующего дерева (STP) помогает вашим избыточным коммутирующим сетям избежать петель и эффективно работать. (   Читать дальше...   )Производство: UdemyЖанр: АдминистрированиеЯзык озвучки: АнглийскийПродолжительность: 02:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02546FC1CE14E5760358D242B3DCC9FDA57D101A
 ```
 
 https://mybot314.ru/tekegram_catalog/

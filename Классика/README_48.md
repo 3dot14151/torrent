@@ -1,3 +1,32 @@
+###  Публикация: 1824385   (136805) от 16.10.2025
+
+PALLADIUM Electric Band - Taboo (2012) [MP3|256 Kbps] <Instrumental, Classical Crossover, Pop>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vicious (3:58)
+02. Arabic Dance (3:33)
+03. Dudu (3:08)
+04. Don_t Try to Stop Me (3:48)(   Читать дальше...   )Жанр: Instrumental, Classical Crossover, PopПродолжительность: 00:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3C32F92353C3EA94CC09CFAF70AAEFC416AF471
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1824167   (136803) от 16.10.2025
 
 PALLADIUM Electric Band - Energy (2011) [MP3|256 Kbps] <Instrumental, Classical Crossover, Pop>
@@ -6,7 +35,7 @@ PALLADIUM Electric Band - Energy (2011) [MP3|256 Kbps] <Instrumental, Classical 
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136803.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Jose Carreras, Luciano Pavarotti, Mario Lanza, Placido Domingo - Opera Favourite
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136376.jpg" />
 </div>
 
 
@@ -70,7 +99,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вокал
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136351.jpg" />
 </div>
 
 
@@ -106,7 +135,7 @@ Yoko Fujita & Keiko Ogura - Stradivarius On Gold CD (2010) [FLAC|Lossless]<Violi
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135632.jpg" />
 </div>
 
 
@@ -141,7 +170,7 @@ Sviatoslav Richter in Prague [FLAC|Lossless]<Classical, Sonata, Fantasy, Variati
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_135570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135570.jpg" />
 </div>
 
 
@@ -176,7 +205,7 @@ Gergely Boganyi - Frederic Chopin: The Complete Nocturnes (2008) [DST 2.0 1bit/2
 >>Классика (HD Audio)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135191.jpg" />
 </div>
 
 
@@ -211,7 +240,7 @@ Mendelssohn - Piano Concertos 1 & 2, Songs without words: Schiff, Dutoit - SOBR 
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134657.jpg" />
 </div>
 
 
@@ -240,7 +269,7 @@ Lindsey Stirling - Best Of Christmas Classics (2023) [FLAC|Lossless|WEB-DL|track
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134495.jpg" />
 </div>
 
 
@@ -269,7 +298,7 @@ Il Divo - The Greatest Hits (2012) 2CD Deluxe Edition [FLAC|Lossless]<Neo-Classi
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134386.jpg" />
 </div>
 
 
@@ -304,7 +333,7 @@ Serj Tankian - Invocations (2023) Live [MP3|320 Kbps] <Classical, Modern>
 >>Концерты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134237.jpg" />
 </div>
 
 
@@ -333,7 +362,7 @@ Wolfgang Amadeus Mozart - Piano Concertos K.453 & 482 (Kristian Bezuidenhout, Pe
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133429.jpg" />
 </div>
 
 
@@ -363,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133120.jpg" />
 </div>
 
 
@@ -393,7 +422,7 @@ VA- Wien, 1850 Dances - Strauss, Diabelli, Lanner: Michael Dittrich (1993) [FLAC
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133043.jpg" />
 </div>
 
 
@@ -419,7 +448,7 @@ The Three Tenors - The Three Tenors Christmas ( L Album di Natale ) (2000) [FLAC
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132546.jpg" />
 </div>
 
 
@@ -454,7 +483,7 @@ Placido Domingo - Christmas With Placido Domingo (1981) [FLAC|Lossless]<Classica
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132534.jpg" />
 </div>
 
 
@@ -489,7 +518,7 @@ Carl Philipp Emanuel Bach, Keith Jarrett - Carl Philipp Emanuel Bach (2023) [FLA
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131821.jpg" />
 </div>
 
 
@@ -518,7 +547,7 @@ Sviatoslav Richter - Tchaikovsky Recital (1993) [FLAC|Lossless]<Classical, Roman
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131408.jpg" />
 </div>
 
 
@@ -544,7 +573,7 @@ Vladimir Horowitz - Horowitz Plays Clementi, Piano Sonatas (1989) [FLAC|Lossless
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131303.jpg" />
 </div>
 
 
@@ -570,7 +599,7 @@ Elisabeth Schwarzkopf - Opera Arias (1990) [FLAC|Lossless]<Classical, Opera>
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131220.jpg" />
 </div>
 
 
@@ -605,7 +634,7 @@ VA - The Rapsody Overture: Hip Hop Meets Classic (1997) [FLAC|Lossless|image + .
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123960.jpg" />
 </div>
 
 
@@ -634,7 +663,7 @@ Robin Meloy Goldsby - Dearest Things - The Piano Room Collection (2023) [FLAC|Lo
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123814.jpg" />
 </div>
 
 
@@ -663,7 +692,7 @@ Agnes Obel - Riverside (2010) EP [FLAC|Lossless|tracks + .cue] <Pop, Classical, 
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123812.jpg" />
 </div>
 
 
@@ -691,7 +720,7 @@ VA - Beautiful Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123798.jpg" />
 </div>
 
 
@@ -720,7 +749,7 @@ Gregorio Allegri - Miserere (The Sixteen, Christophers; et al) (2008) Compilatio
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123776.jpg" />
 </div>
 
 
@@ -749,7 +778,7 @@ Symphonic Landscapes - Works By Mozart, Brahms, Schubert & Mendelssohn (2023) [F
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123693.jpg" />
 </div>
 
 
@@ -763,35 +792,6 @@ Wolfgang Amadeus Mozart
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAB27734A62AABE5A4FC3C1D91E715D675FDFD72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691646   (123101) от 13.01.2024
-
-VA - Calming Classical Piano (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sergey Bryukhno - Sonnet in C Major (1:25)
-02. Katya Kramer-Lapin - The Well-Tempered Clavier Book 1, BWV 846-869 I. Prelude in C Major, BWV 846 (2:05)
-03. Katya Kramer-Lapin - Gnossienne No. 1 (2:46)
-04. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:40:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EC577976F0F7C320CDA0C05A1F3844DD5632AB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

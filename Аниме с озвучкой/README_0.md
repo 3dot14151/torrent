@@ -1,3 +1,136 @@
+###  Публикация: 1850481   (1054562) от 28.01.2026
+
+Seikai no Monshou Tokubetsu Hen | Crest of the Stars Movie | Звёздный герб (компиляция) [2000, Special] DVDRip 480p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обобщение первого сезона - Seikai no Monshou с некоторыми дополнительными сценами и диалогами.Производство: Япония, SunriseЖанр: фантастика, экшен, романтика, военноеРежиссер: Нагаока ЯсутикаЯзык озвучки: Русский закадровый (SHIZA Project - Мистас & NesTea)Продолжительность: 1 час 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7636B994C9BB9A8E4C6D4A45783ABB296DB7775
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850484   (1054560) от 28.01.2026
+
+Seikai no Senki II | Banner of the Stars II | Звёздный флаг 2 [2001, TV, 10 эп.] DVDRip 720p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Благодаря сокрушительному успеху флота Abh под командованием братьев Бибос Империя за короткий промежуток времени захватывает множество обитаемых миров и сталкивается с проблемой нехватки наместников для новых территорий. Лафиль назначают на должность Наместника Планеты Лобнасс II.Прибыв на планету, Лафиль с Дзинто обнаруживают, что Объединенное человечество использовало (   Читать дальше...   )Производство: Япония, SunriseЖанр: фантастика, экшен, романтика, военноеРежиссер: Нагаока ЯсутикаЯзык озвучки: Русский закадровый (SHIZA Project - Мистас & NesTea)Субтитры: ASS (Русский, Надписи)Продолжительность: ТВ, 10 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AAC2A03D3CD559B5E918AD0A7FCE6DEACCCAB02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850485   (1054559) от 28.01.2026
+
+Seikai no Senki III | Banner of the Stars III | Звёздный флаг 3 [2005, OVA, 2 эп.] DVDRip 720p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Завершают сагу Seikai no Monshou две серии о возвращении Дзинто в родные владения, в звездную систему Хайд. Там все еще сильны сепаратистские настроения и неприязнь к Империи. Одновременно с поездкой Дзинто и Лафиль Abh отправляют на учения в Хайд только что сформированный "Первый флот разрушения", укомплектованный новейшими боевыми кораблями Империи...Производство: Япония, SunriseЖанр: фантастика, экшен, романтика, военноеРежиссер: Нагаока ЯсутикаЯзык озвучки: Русский закадровый (SHIZA Project - Мистас & NesTea)Субтитры: ASS (Русский, Надписи)Продолжительность: OVA, 2 серии по 30 и 45 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0056AF078AEA31D2526E28EB6C42A75FA342F6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849897   (1054118) от 25.01.2026
+
+Nanatsu no Taizai OVA | The Seven Deadly Sins OVA | Семь смертных грехов OVA [2015, OVA, 2 эп.] DVDRip 576p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054118.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два дополнительных эпизода, вышедшие вместе с пятнадцатым и шестнадцатым томами оригинальной манги.
+
+Бан — главный герой первой истории — отправился в Лес фей ради того, чтобы завладеть Фонтаном молодости, но столкнулся с Элейн, защитницей леса и самого источника бессмертия. Но как же теперь поступит Бан?
+(   Читать дальше...   )Производство: Япония, A-1 PicturesЖанр: приключения, фэнтези, сверхъестественное, сёнен, экшенЯзык озвучки: Русский закадровый (AniLibria - Cleo-chan, Kari, Kona_chan, Nuts)Продолжительность: OVA, 2 серии по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ED072FEC92F44D7236608C7A6A73CBFFB5D893D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849895   (1054116) от 25.01.2026
+
+Nanatsu no Taizai | The Seven Deadly Sins | Семь смертных грехов [2014, TV, 24 эп.] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054116.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире, подобному европейскому средневековью, почитаемые, но вселяющие страх Священные Рыцари Британии своими могущественными силами защищают Британию и её королевства. Но некоторые рыцари предали свою родину и пошли с оружием против своих товарищей в попытке устроить государственный переворот. Предатели были повержены Священными Рыцарями, но слухи о том, что те (   Читать дальше...   )Производство: Япония, A-1 PicturesЖанр: приключения, фэнтези, сверхъестественное, сёнен, экшенРежиссер: Окамура ТэнсайЯзык озвучки: Русский закадровый (AniLibria - Kari, Lamia)Продолжительность: ТВ, 24 серии по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C90AA9DEC3DF911C7A956AFD5B35F905BD2AD92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849899   (1054115) от 25.01.2026
 
 Nanatsu no Taizai: Seisen no Shirushi | The Seven Deadly Sins: Signs of Holy War | Семь смертных грехов: Знамение священной войны [2016, TV, 4 эп.] BDRip 1080p raw+rus
@@ -6,7 +139,7 @@ Nanatsu no Taizai: Seisen no Shirushi | The Seven Deadly Sins: Signs of Holy War
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054115.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ Nanatsu no Taizai: Imashime no Fukkatsu | The Seven Deadly Sins: Revival of the 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054114.jpg" />
 </div>
 
 
@@ -58,7 +191,7 @@ Gekijouban Nanatsu no Taizai: Tenkuu no Torawarebito | The Seven Deadly Sins the
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054113.jpg" />
 </div>
 
 
@@ -84,7 +217,7 @@ Nanatsu no Taizai: Kamigami no Gekirin | The Seven Deadly Sins: Wrath of the God
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054112.jpg" />
 </div>
 
 
@@ -110,7 +243,7 @@ Nanatsu no Taizai: Fundo no Shinpan | The Seven Deadly Sins: Dragon's Judgement 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054111.jpg" />
 </div>
 
 
@@ -136,7 +269,7 @@ Gekijouban Nanatsu no Taizai: Hikari ni Norowareshi Mono-tachi | The Seven Deadl
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054110.jpg" />
 </div>
 
 
@@ -162,7 +295,7 @@ Nanatsu no Taizai: Ensa no Edinburgh | The Seven Deadly Sins: Grudge of Edinburg
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054109.jpg" />
 </div>
 
 
@@ -188,7 +321,7 @@ Sousou no Frieren TV-2 | Фрирен, провожающая в последн�
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053854.jpg" />
 </div>
 
 
@@ -215,7 +348,7 @@ Haite Kudasai, Takamine-san | Please Put Them On, Takamine-san | Пожалуй�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053425.jpg" />
 </div>
 
 
@@ -241,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053178.jpg" />
 </div>
 
 
@@ -269,7 +402,7 @@ Sasaki to Miyano | Sasaki and Miyano | Сасаки и Мияно [2022, TV, 12 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053032.jpg" />
 </div>
 
 
@@ -295,7 +428,7 @@ Eiga Sasaki to Miyano: Sotsugyou Hen | Sasaki and Miyano: Graduation | Саса�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053007.jpg" />
 </div>
 
 
@@ -321,7 +454,7 @@ Slayers Revolution | Рубаки: Революция [2008, TV, 13 эп.] BDRip
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052970.jpg" />
 </div>
 
 
@@ -347,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052911.jpg" />
 </div>
 
 
@@ -374,7 +507,7 @@ Sasaki to Miyano: Koi ni Kizuku Mae no Chotto Shita Hanashi | Sasaki and Miyano:
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052909.jpg" />
 </div>
 
 
@@ -400,7 +533,7 @@ Hime-sama "Goumon" no Jikan Desu TV-2 | Время пытки, принцесс�
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052898.jpg" />
 </div>
 
 
@@ -427,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052760.jpg" />
 </div>
 
 
@@ -453,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052625.jpg" />
 </div>
 
 
@@ -479,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052568.jpg" />
 </div>
 
 
@@ -505,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052490.jpg" />
 </div>
 
 
@@ -531,7 +664,7 @@ Papa no Iukoto o Kikinasai! | Listen to Me, Girls. I Am Your Father! | Слуш�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052435.jpg" />
 </div>
 
 
@@ -542,137 +675,6 @@ Papa no Iukoto o Kikinasai! | Listen to Me, Girls. I Am Your Father! | Слуш�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAE56A5B0C18C245B72D38026C492D8FAC758AE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847893   (1052434) от 15.01.2026
-
-Papa no Iukoto o Kikinasai! OVA-1 | Слушайтесь папу! OVA-1 [2013, OVA] DVDRip 720p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052434.jpg" />
-</div>
-
-
-###  Подробнее
-
-В результате определенных обстоятельств Сора и Райка оказываются запертыми в шкафу и, пытаясь выбраться, оказываются в еще более обнаженном состоянии. Тем временем Миу дает несколько советов по моде своей подруге и соседке, Сиори Китахара. Позже Хина уходит одна к колесу обозрения, вызывая панику среди Юты и остальных. После того, как Сиори удается найти Хину и воссоединить (   Читать дальше...   )Производство: Япония, FeelЖанр: комедия, драма, повседневностьРежиссер: Кавасаки ИцуроЯзык озвучки: Русский закадровый (AniLibria - Eladiel & Zendos)Продолжительность: OVA, 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E8691B1B4EF13957C8CA8ACCF9DDD5008BF9A4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847731   (1052320) от 14.01.2026
-
-Tonari no Kyuuketsuki-san | Ms. Vampire Who Lives in My Neighborhood. | Госпожа Вампир по соседству [2018, TV, 12 эп.] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любовь нечаянно нагрянет, когда её совсем не ждёшь! Акари Амано с первого взгляда влюбляется в девушку-вампира Софи Твайлайт, которая спасает её из беды. Вскоре это слепое увлечение перетекает в совместное проживание: Софи приходится принять свою новую соседку. А Софи и сама не является типичным представителем расы вампиров — людей она не трогает, ведь ей привычнее (   Читать дальше...   )Производство: Япония, Studio GokumiЖанр: комедия, повседневность, вампиры, паранормальноеРежиссер: Акитая НориакиЯзык озвучки: Русский закадровый (KANSAI Studio)Субтитры: ASS (Русский, Crunchyroll)Продолжительность: ТВ, 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D44493D4FDB47DB24A4C0C2CDB3D94A9C3D48EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847577   (1052288) от 14.01.2026
-
-Given: Uragawa no Sonzai | Given: On the Other Hand | Дарованный OVA [2021, OVA] WEBRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052288.jpg" />
-</div>
-
-
-###  Подробнее
-
-С момента первого живого выступления "Given" отношения между Мафую Сато и Рицукой Уэноямой складывались гладко. Их общая любовь к музыке укрепляет их связь, и каждая минута, проведенная вместе, делает их еще более неразлучными. Тем не менее, наступят времена, когда они столкнутся с трудностями, будучи поглощенными внутренними переживаниями.Производство: LercheЖанр: сёнэн-aй, романтикa, драмaРежиссер: Оохаси АкиёЯзык озвучки: Японский и РусскийСубтитры: Английские и Русские ASS(int) by CrunchyRoll (Полные и Надписи)Продолжительность: 22 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CDFA483B566D2446DA34F1387F76F08C458E5FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847543   (1052178) от 20.01.2026
-
-Kaya-chan wa Kowakunai | Kaya-chan isn't Scary | Кае не страшно [2026, TV, 01 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Онгоинги с озвучкой
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кая-чан известна в детском саду как проблемная девочка. Но мисс Чиэ, которой поручено присматривать за ней, вскоре обнаруживает скрытые способности Каи. Приготовьтесь к увлекательному приключению в стиле хоррор-экшен, действие которого разворачивается в детском саду!Производство: Япония, студия East Fish StudioЖанр: приключенияРежиссер: Икэхата ХиросиЯзык озвучки: Русский закадровый (Dream Cast), (AniLibria.TV)Субтитры: Русские надписи, русские (софтсаб), Multi-8Продолжительность: 11 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD09DA885F588C9F71524DAFAFE1F9F175569CD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847196   (1052065) от 12.01.2026
-
-Slayers Evolution-R | Рубаки: Эволюция-Эр [2009, TV, 13 эп.] HDTV 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052065.jpg" />
-</div>
-
-
-###  Подробнее
-
-У славной команды рубак новое задание! Для того, чтобы помочь принцу Покоте спасти жителей затерянного города Тафорасии, неугомонной Лине и её друзьям предстоит найти Сосуд Переселения Душ, в который заключил свою душу Красный Священник Резо.
-Зелгадис имеет дополнительный стимул для нахождения сосуда — тот может вернуть его телу первоначальный облик. Однако за артефактом (   Читать дальше...   )Производство: Япония, J.C.StaffЖанр: приключения, комедия, фэнтезиРежиссер: Ватанабэ ТакасиЯзык озвучки: Русский закадровый (Amazing Dubbing - Numinel, KUBISVAN)Продолжительность: ТВ, 13 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A582EAD9C36C8D8C5F1F31F869908C91F8A4115
 ```
 
 https://mybot314.ru/tekegram_catalog/

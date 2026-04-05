@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94506.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Pretenders - Loose in L.A. (2003/2012) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91070.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89736.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89683.jpg" />
 </div>
 
 
@@ -125,7 +125,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88265.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86673.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Red Hot Chili Peppers: Live at Rock in Rio (2011) [1080i] HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86196.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Red Hot Chili Peppers: I'm With You (Live in Cologne) (2011) [1080i] HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86175.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ B.B. King: Live (2006) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85969.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Rammstein - Live Aus Moskau 2012-02-11 (2012)[1080p] HDCamRip (Ver. 1)
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85784.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Armin van Buuren / Ultra Music Festival (2012)[1080p] HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85765.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Rammstein - Live Aus Moskau 2012-02-11 (2012) HDCamRip[1080p] (Ver. 2)
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85761.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Lady GaGa Presents: The Monster Ball Tour at Madison Square Garden (2011) [1080p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85018.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Iron Maiden: En Vivo! (2012) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84954.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Iron Maiden: En Vivo! (2012) [1080p] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84631.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Iron Maiden: En Vivo! (2011/2012) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84613.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Yanni - Live At El Morro, Puerto Rico (2011) HDTV [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81105.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ ZZ Top - Live From Texas  (2008) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80643.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Ringo Starr and the Roundheads - Live (2005) BDRip[720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79558.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Lee Ritenour & Dave Grusin - Jazzfestival Montreux 2011 (2011) HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77580.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Adele: Live at the Royal Albert Hall (2011) [1080i] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77221.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Foreigner: Greatest Hits/Soundstage (2008)[720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77184.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76800.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Pink: Funhouse Tour - Live in Australia (2009) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76767.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Meat Loaf - 3 Bats Live (2007) (BDRip-720p)
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76762.jpg" />
 </div>
 
 
@@ -755,7 +755,7 @@ Paul Rodgers  - Live in Glasgow (2006) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76266.jpg" />
 </div>
 
 

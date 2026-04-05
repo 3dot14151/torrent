@@ -1,135 +1,3 @@
-###  Публикация: 902871   (659152) от 30.05.2015
-
-В. А. Часникова (сост.) | Легенды и мифы о животных (2014) [FB2, EPUB]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый народ, каждая страна, каждая цивилизация слагала свои мифы и легенды на самые разные темы: о могущественных богах и о всесильных правителях, о храбрых героях и конечно же о животных. Всю долгую историю человечества звери и птицы жили рядом с людьми, были помощниками, друзьями, давали пищу и шкуры, были источниками поклонений, а порой и опасности… В этой книге (   Читать дальше...   )Жанр: Мифы. Легенды. ЭпосФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48E595DCF357186040402B0D0C035D6305405996
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514536   (659021) от 23.06.2012
-
-Андрей Кузин | IT-storii: Записки айтишника [2008] [FB2, RTF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Андрей Кузин – культовая фигура российского Интернета. Десять лет назад он, начав с нуля, создал популярнейший сайт 3DNews. А теперь он большую часть своего рабочего времени проводит в деловых поездках по США, Европе и Юго-Восточной Азии. Вы мечтали заглянуть на компьютерные фабрики Тайваня или Малайзии? Эта книга дает вам такой шанс!2008Формат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9442EBDC7DBF4C45B1E7124F9CF90D811819B49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139880   (659005) от 03.06.2017
-
-В.А. Галкин | Цифровая мобильная радиосвязь. 2-е издание (2012) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659005.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящее время мобильные системы радиосвязи являются наиболее быстро развивающимся сегментом рынка радиосредств. Микроминиатюризация аналоговых СВЧ микросхем и внедрение микропроцессоров качественно изменили аппаратуру радиосвязи, она стала не только средством специального и профессионального назначения, но и средством коммуникаций массового потребителя.
-
- Мобильные (   Читать дальше...   )Жанр: РадиоэлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77CA41588FC0390A2889980C69900A71B4ED40AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139767   (658993) от 03.06.2017
-
-Джон Кавана | Конор Макгрегор. Жизнь без правил (2017) [FB2, RTF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658993.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя: Джон Кавана тот самый человек, который из тренера в маленьком сарае превратился в ТОГО САМОГО тренера, который привел Конора Макгрегора к победе в Ирландии и во всем мире.Эта книга – откровение Джона о Коноре. Как дерзкий парень без навыков, денег и дисциплины смог стать одним из лучших бойцов всех времен? Сколько часов они провели в зале, и сколько (   Читать дальше...   )Жанр: Биографии. Мемуары. Биографии спортсменовФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB10C12037E81B07A0717CDA933B5F05457C5C63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902719   (658963) от 30.05.2015
-
-Ольга Кузьменко и др. | Знаменитые загадки истории (2014) [FB2, EPUB]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многовековая история человечества хранит множество загадок. Эта книга поможет читателю приоткрыть завесу над тайнами исторических событий и явлений различных эпох – от древнейших до наших дней, расскажет о судьбах многих легендарных личностях прошлого: короля Макбета, Жанны д’Арк, Екатерины Медичи, Александра I и Наполеона. Здесь вы найдете новые интересные версии (   Читать дальше...   )Жанр: ИсторияФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D10BA9806ECDAB03C63EEDF34EFA0E3F159B2B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 903217   (658894) от 30.05.2015
 
 Томас Лоуренс | Семь столпов мудрости (2015) [FB2]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658894.jpg" />
 </div>
 
 
@@ -164,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658877.jpg" />
 </div>
 
 
@@ -190,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658672.jpg" />
 </div>
 
 
@@ -216,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658606.jpg" />
 </div>
 
 
@@ -244,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658601.jpg" />
 </div>
 
 
@@ -271,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658495.jpg" />
 </div>
 
 
@@ -299,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658474.jpg" />
 </div>
 
 
@@ -325,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658471.jpg" />
 </div>
 
 
@@ -351,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658433.jpg" />
 </div>
 
 
@@ -377,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658270.jpg" />
 </div>
 
 
@@ -403,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658227.jpg" />
 </div>
 
 
@@ -431,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658226.jpg" />
 </div>
 
 
@@ -457,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658223.jpg" />
 </div>
 
 
@@ -485,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658218.jpg" />
 </div>
 
 
@@ -511,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658191.jpg" />
 </div>
 
 
@@ -537,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658115.jpg" />
 </div>
 
 
@@ -564,7 +432,7 @@ OECD iLibrary | The Nature of Problem Solving. Using Research to Inspire 21st Ce
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658032.jpg" />
 </div>
 
 
@@ -590,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657937.jpg" />
 </div>
 
 
@@ -616,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657935.jpg" />
 </div>
 
 
@@ -642,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657914.jpg" />
 </div>
 
 
@@ -668,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657908.jpg" />
 </div>
 
 
@@ -680,6 +548,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:079D3D7B66815F6180D2DD6ACF7431C9D6C416BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903664   (657862) от 31.05.2015
+
+Сергей Дмитриевич Артамонов | Сорок веков мировой литературы [IV Тома] (1997) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доктор филологических наук, профессор Литературного института Сергей Дмитриевич Артамонов посвятил четыре книги под общим названием "Сорок веков мировой литературы" шедеврам мировой классики, раскрывая глубину и художественную прелесть произведений, покоривших поколения прошлых веков и покоряющих нас в наши дни. Книга первая из этой серии - "Литература (   Читать дальше...   )Жанр: Литературоведение, учебникФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4019C0A1D03CC253B1452272AC944EED08DFE817
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514938   (657841) от 24.06.2012
+
+Наталья Судьина | Акупунктура [2009] [FB2]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акупунктура, или иглоукалывание, – одна из древних оздоровительных методик китайской медицины. Эта целительная практика дает людям возможность прожить здоровую, долгую жизнь. Она признана во всем мире, и можно смело утверждать, что акупунктура – панацея от очень многих заболеваний.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9639523E465AC757E035393E2FD0F48FF4E59E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225948   (657830) от 18.05.2018
+
+Ю.М. Зубарев | Методы получения заготовок в машиностроении и расчет припусков на их обработку (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657830.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии рассматриваются современные материалы для производства заготовок деталей машин, их физико-механические свойства и методы их термообработки. Приведены используемые в
+настоящее время и перспективные способы получения заготовок, дается анализ по качеству и точности получаемых заготовок и их эффективность.
+Приведены методики расчета припуска на механическую (   Читать дальше...   )Жанр: Металлургия, металлообработкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87017225EB7E6C60E3E83F9E1957DD187A118ED4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139940   (657816) от 04.06.2017
+
+Г. Е. Глезерман | Ликвидация эксплуататорских классов и преодоление классовых различий в СССР (1949) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая работа посвящена одному из важных разделов марксистско-ленинского учения о классах и классовой борьбе; в ней освещается опыт рабочего класса СССР, осуществившего под руководством большевистской партии великую историческую задачу - ликвидацию всех эксплуататорских классов и эксплуатации человека человеком в нашей стране а также характеризуются пути полного (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB6D43369C617AD63DD92481601454B2AF94B641
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139870   (657807) от 04.06.2017
+
+Александр Альбов | От Абака до Кубита. История математических символов (2015) [PDF]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Математика, историяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BCCACB1D1A9E3EDA0E49940EC0F039A0DC0AAE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

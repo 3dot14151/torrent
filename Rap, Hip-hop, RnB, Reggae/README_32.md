@@ -1,38 +1,3 @@
-###  Публикация: 594691   (133420) от 26.12.2012
-
-Rita Ora - Ora (2012) [FLAC (tracks+.cue)|Lossless]<R&B, Dance>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Facemelt
-02. Roc The Life
-03. How We Do (Party)
-04. R.I.P. (ft. Tinie Tempah)
-05. Radioactive
-06. Shine Ya Light
-07. Love & War (ft. J. Cole)
-08. Uneasy
-09. Fall in Love (ft. Will.I.Am)
-10. Been Lyin(   Читать дальше...   )Жанр: R&B, DanceПродолжительность: 00:42:32
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681123   (132979) от 02.12.2023
 
 Гио ПиКа, Кравц - 60 секунд до зимы (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip Hop>
@@ -41,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132979.jpg" />
 </div>
 
 
@@ -70,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132947.jpg" />
 </div>
 
 
@@ -99,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131442.jpg" />
 </div>
 
 
@@ -128,7 +93,7 @@ VA - Chillhop Essentials Winter (2023) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131076.jpg" />
 </div>
 
 
@@ -157,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128112.jpg" />
 </div>
 
 
@@ -186,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127112.jpg" />
 </div>
 
 
@@ -215,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124780.jpg" />
 </div>
 
 
@@ -244,7 +209,7 @@ Alai Oli - Снег и пепел, Volume 2: ТТП (2023) [MP3|320 Kbps] <Regga
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124032.jpg" />
 </div>
 
 
@@ -273,7 +238,7 @@ Blacko - Kaf lion (2010) [MP3|160-193 kbps]<Reggae>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122463.jpg" />
 </div>
 
 
@@ -302,7 +267,7 @@ Usher - Coming Home (2024) [FLAC|Lossless|WEB-DL|tracks] <Funk, R&B, Soul>
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118143.jpg" />
 </div>
 
 
@@ -331,7 +296,7 @@ Bob Marley & The Wailers - One Love (Original Motion Picture Soundtrack) (2024) 
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117711.jpg" />
 </div>
 
 
@@ -360,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117637.jpg" />
 </div>
 
 
@@ -389,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117633.jpg" />
 </div>
 
 
@@ -418,7 +383,7 @@ VA - Chillhop Essentials Spring (2024) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113521.jpg" />
 </div>
 
 
@@ -447,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111575.jpg" />
 </div>
 
 
@@ -476,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110877.jpg" />
 </div>
 
 
@@ -505,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110782.jpg" />
 </div>
 
 
@@ -534,7 +499,7 @@ UB40 - UB45 (2024) Ultimate Edition [FLAC|Lossless|WEB-DL|tracks] <Reggae, Ska>
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110596.jpg" />
 </div>
 
 
@@ -563,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109799.jpg" />
 </div>
 
 
@@ -592,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109793.jpg" />
 </div>
 
 
@@ -621,7 +586,7 @@ Dino MC47 - Вне Номинаций (2008) [WavPack|Lossless|image + .cue] <Ja
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109402.jpg" />
 </div>
 
 
@@ -650,7 +615,7 @@ Rapsody - Please Don't Cry (2024) [MP3|320 Kbps] <Hip-Hop, Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109287.jpg" />
 </div>
 
 
@@ -679,7 +644,7 @@ VA - Infiniti Night Club R&B Collection No. 1 (2006) [WavPack|Lossless|image + .
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108720.jpg" />
 </div>
 
 
@@ -708,7 +673,7 @@ Negativ Nein - Negativ Nein (1996) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Hip-H
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107294.jpg" />
 </div>
 
 
@@ -737,7 +702,7 @@ Chernovik - Космос во мне (2014) [WavPack|Lossless|image + .cue] <Rap
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106925.jpg" />
 </div>
 
 
@@ -751,6 +716,35 @@ Chernovik - Космос во мне (2014) [WavPack|Lossless|image + .cue] <Rap
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A5AA3BCFE4646DC8145308442E73EF5976E2F4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739030   (106226) от 25.07.2024
+
+Geegun - The Best Of (2008) [WavPack|Lossless|image + .cue] <Thug Rap, Gangsta, Pop Rap, Hardcore Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Только Тебе
+ 02. Мы Завели
+ 03. На Первом
+ 04. Skit(   Читать дальше...   )Жанр: Thug Rap, Gangsta, Pop Rap, Hardcore Hip-HopПродолжительность: 00:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7426D7BE9DFAC58C45BF390DAF2C60C8091A6462
 ```
 
 https://mybot314.ru/tekegram_catalog/

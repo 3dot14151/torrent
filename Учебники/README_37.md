@@ -1,3 +1,55 @@
+###  Публикация: 1288687   (693797) от 12.03.2019
+
+Б.Я. Рябко, А.Н. Фионов | Криптография в информационном мире (2018) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изложены основные подходы и методы современной криптографии и стеганографии для решения задач, возникающих при обработке, хранении и передаче информации. Рассмотрены основные шифры с открытыми ключами, методы цифровой подписи, криптографические протоколы, блоковые и потоковые шифры, хеш-функции, а также редко встречающиеся в литературе вопросы о конструкции доказуемо (   Читать дальше...   )Жанр: КриптографияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DABA921E30AD960B1E1E72B1313A22824E28EF37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288682   (693637) от 12.03.2019
+
+Л.Г. Гагарина, А.И. Кононова | Архитектура вычислительных систем и Ассемблер (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693637.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии представлен систематизированный курс одной из основной дисциплин специализированной подготовки бакалавров по направлениям 09.03.04 "Программная инженерия" и 01.03.04 "Прикладная математика" с точки зрения прикладного программирования и парадигмы кроссплатформенности. Рассмотрены основы архитектуры вычислительных систем как системной (   Читать дальше...   )Жанр: Вычислительные системыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE3C28F0A0DF2B1354B3D0205E6488F903F2759C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133680   (693146) от 13.05.2017
 
 Л.Г. Лишин, О.Б. Попов | Запись цифровых аудио- и видеосигналов (2013) [PDF]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693146.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693134.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693133.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693132.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693024.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692845.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691294.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691179.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691178.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691169.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690988.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690983.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690880.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689426.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689304.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689166.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688957.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688272.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687081.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686954.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686790.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686151.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686016.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684804.jpg" />
 </div>
 
 
@@ -625,59 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99E62D872DF65403F757572F0ECDE9241015AA88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134909   (684714) от 17.05.2017
-
-О.А. Кастрица и др. | Математический анализ. Ряды и несобственные интегралы (2015) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Даны необходимые теоретические сведения, которые сопровождаются большим количеством примеров, поясняющих введенные понятия и теоремы. Приведены образцы контрольных работ с решениями и упражнения для самостоятельного выполнения, снабженные ответами.Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FCAF7042F55BB716DE3F7C474DAE0F7BBC5F61C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535612   (684112) от 07.03.2022
-
-М.А. Федотова и др. | Оценка стоимости активов и бизнеса (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Описаны сущность и содержание оценочной деятельности, ее законодательная база, дается характеристика методических подходов и методов оценки стоимости активов и бизнеса, раскрывается специфика оценки стоимости различных видов активов, предприятия как имущественного комплекса и средства бизнеса.
-Основное отличие от других учебников по оценке стоимости — в учете последних (   Читать дальше...   )Жанр: БизнесФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D19884D37AA78DE6494F0867803B5500A4126AC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

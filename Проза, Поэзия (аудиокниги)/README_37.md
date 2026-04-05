@@ -1,55 +1,3 @@
-###  Публикация: 1283947   (730009) от 20.02.2019
-
-Сергей Михеенков | Пуля калибра 7,92 (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда израсходованы последние резервы, в бой бросают штрафную роту. И тогда начинается схватка, от которой земля гудит гудом, а ручьи текут кровью... В июле 1943 года на стыке 11-й гвардейской и 50-й армий в первый же день наступления на северном фасе Курской дуги в атаку пошла отдельная штрафная рота, в которой командовал взводом лейтенант Воронцов. Огнём, штыками (   Читать дальше...   )Жанр: Военная прозаПродолжительность: 08:14:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E21D7407F85DEA5592F002F0E90085A7FF48EEF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284048   (730008) от 20.02.2019
-
-Сергей Михеенков | Высота смертников (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не думал бывший курсант подольского пехотно-пулемётного училища Воронцов, что его фронтовая судьба сделает резкий поворот: ему присвоят звание младший лейтенант и назначат командиром взвода в штрафной роте. И командовать ему придётся недавними власовцами - теми, от кого он ещё вчера уходил под огнём по лесным дорогам под Вязьмой. Но первый же бой, первая же рукопашная (   Читать дальше...   )Жанр: Военная прозаПродолжительность: 09:29:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABC8EF1AF78C06FA67E5B8FE8B7A737338209A7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021952   (729994) от 01.06.2016
 
 Владимир Маканин | Долог наш путь (2010) [MP3]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729994.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729860.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729177.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728794.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727840.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727834.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727832.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727587.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727561.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726731.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726711.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726673.jpg" />
 </div>
 
 
@@ -374,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726577.jpg" />
 </div>
 
 
@@ -400,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726573.jpg" />
 </div>
 
 
@@ -426,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726568.jpg" />
 </div>
 
 
@@ -452,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726567.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725200.jpg" />
 </div>
 
 
@@ -505,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725195.jpg" />
 </div>
 
 
@@ -531,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724669.jpg" />
 </div>
 
 
@@ -557,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724372.jpg" />
 </div>
 
 
@@ -583,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723649.jpg" />
 </div>
 
 
@@ -609,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723400.jpg" />
 </div>
 
 
@@ -635,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723152.jpg" />
 </div>
 
 
@@ -662,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722703.jpg" />
 </div>
 
 
@@ -674,6 +622,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DF1075A3D1316E0871652BA8F3A57B859100367
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023462   (722361) от 06.06.2016
+
+Владимир Маканин | Отставший (2011) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сон мучит старика — моего отца (мама умерла, отец одинок, и когда я приезжаю его проведать, он с подробностями рассказывает мне мучающий его сон. Если я не приезжаю, он звонит и рассказывает мне сон по телефону. То жалобно, то гневно).
+Помочь ему в его снах я не могу — это ясно. Но ведь могу слушать.
+Отец рассказывает, как он выбегает за ворота, натягивая на голову (   Читать дальше...   )Жанр: ПовестьПродолжительность: 04:11:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D38F99FEE511F93E20EDFB5721A8B4D5D01C4F78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023594   (721916) от 06.06.2016
+
+Халед Хоссейни | Бегущий за ветром (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ошеломляющий дебютный роман, который уже называют главным романом нового века, а его автора – живым классиком. «Бегущий за ветром» – проникновенная, пробирающая до самого нутра, история о дружбе и верности, о хрупких отношениях, связывающих отцов и детей, богов и людей, мужчин и их страны. Роман стал одним из самых ярких явлений в американской и мировой литературе (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 13:47:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B56CF772828158A8B64BC687E303F32826C59A26
 ```
 
 https://mybot314.ru/tekegram_catalog/

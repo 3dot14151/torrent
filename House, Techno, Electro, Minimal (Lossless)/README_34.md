@@ -1,3 +1,61 @@
+###  Публикация: 1144376   (625930) от 23.06.2017
+
+VA - Sonar 2017/Take Your Way 01 (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625930.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Daniel Meister - It's Possible (07:30)
+2. Da Rua - Step Two (06:31)
+3. David Zor - Field In Brooklyn (06:16)
+4. Eugeneos - Gender Wav (08:30)(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 02:01:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DC1BACB773C296C4A1A3E02357CB01C6E57ADD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543831   (623685) от 14.04.2022
+
+VA - FGVIII (Mixed by Miss Monique) (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Melodic Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miss Monique - FG VIII (Continuous DJ Mix) (57:06)
+02. Kamilo Sanclemente - From The Sky (Original Mix) (8:55)
+03. Kamilo Sanclemente - Venus (Original Mix) (7:51)
+04. Juan Deminicis - Aldebaran (Original Mix) (8:19)(   Читать дальше...   )Жанр: Progressive House, Melodic TechnoПродолжительность: 02:05:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:482AC2E464B8CECFA15547436BDA8BF2DB88F902
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035975   (622819) от 19.07.2016
 
 VA - Bella Mar 03 (Compiled by Einmusik) (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Electronica>
@@ -6,7 +64,7 @@ VA - Bella Mar 03 (Compiled by Einmusik) (2016) [FLAC|Lossless|WEB-DL|tracks] <D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622819.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Above & Beyond - Common Ground Companion (2019) EP [FLAC|Lossless|WEB-DL|tracks]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622486.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ GROUND a.k.a Gr◯un土 - WAKUSEI -惑星- (2018) Chill Mountain Rec [FLAC|Lossl
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622264.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Luttrell - Into Clouds (2019) 2CD, Anjunadeep [FLAC|Lossless|WEB-DL|tracks] <Dee
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620764.jpg" />
 </div>
 
 
@@ -121,7 +179,7 @@ VA - Be Free 5 Years (2018) Be Free Recordings [FLAC|Lossless|WEB-DL|tracks] <De
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618694.jpg" />
 </div>
 
 
@@ -150,7 +208,7 @@ DJ Smash - Twenty Three (Special Burger King Edition) (2011) Special Edition [FL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618603.jpg" />
 </div>
 
 
@@ -179,7 +237,7 @@ Swedish House Mafia - Paradise Again (2022) [FLAC|Lossless|WEB-DL|tracks] <EDM, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618388.jpg" />
 </div>
 
 
@@ -208,7 +266,7 @@ Way Out West - Tuesday Maybe (2017) [FLAC|Lossless|tracks + .cue] <Progressive H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616089.jpg" />
 </div>
 
 
@@ -237,7 +295,7 @@ Pitch Black - Filtered Senses (2016) [FLAC|Lossless|tracks + .cue] <Techno, Dub,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614656.jpg" />
 </div>
 
 
@@ -266,7 +324,7 @@ Gesaffelstein - Hyperion (2019) [FLAC|Lossless|WEB-DL|tracks] <Techno, Downtempo
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613366.jpg" />
 </div>
 
 
@@ -295,7 +353,7 @@ DJ Antoine - Provocateur (Limited Edition) 2CD (2016)[FLAC|Lossless|tracks] <Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613349.jpg" />
 </div>
 
 
@@ -324,7 +382,7 @@ Dinka - Hotel Summerville (2010) [FLAC|Lossless|WEB-DL|tracks] <Progressive Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612136.jpg" />
 </div>
 
 
@@ -353,7 +411,7 @@ VA - AWRY003 (2018) AWRY [FLAC|Lossless|WEB-DL|tracks] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611941.jpg" />
 </div>
 
 
@@ -382,7 +440,7 @@ Headstrong feat. Tiff Lacey - The Truth: 2019 Remake (2019) [FLAC|Lossless|track
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610323.jpg" />
 </div>
 
 
@@ -411,7 +469,7 @@ VA - Re:Commended - Deep House Edition, Vol.7 (2016) [FLAC|Lossless|WEB-DL|track
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610311.jpg" />
 </div>
 
 
@@ -440,7 +498,7 @@ VA - 538 Dance Smash 2016 Festival Edition (2016)2CD [FLAC|Lossless|image + .cue
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610108.jpg" />
 </div>
 
 
@@ -469,7 +527,7 @@ VA - InFine Pres: Tomorrow Sounds Better With You (2017) [FLAC|Lossless|WEB-DL|t
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609720.jpg" />
 </div>
 
 
@@ -495,7 +553,7 @@ Zen - Live. Love. Create (2019) Altar Techno [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608650.jpg" />
 </div>
 
 
@@ -523,7 +581,7 @@ VA - Blue Marlin Ibiza Vol. 09 (Mixed by UNER & Dosem) (2015) [FLAC|Lossless]<Te
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607090.jpg" />
 </div>
 
 
@@ -552,7 +610,7 @@ Mollono.Bass & Ava Asante - Birds Flying High, Pt.1 (2016) [FLAC|Lossless|WEB-DL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606730.jpg" />
 </div>
 
 
@@ -581,7 +639,7 @@ VA - Sudbeat Showcrates 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Prog
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605746.jpg" />
 </div>
 
 
@@ -610,7 +668,7 @@ VA - Ministry Of Sound - Chilled II 1991-2009 (2009) 3CD [FLAC|Lossless]<Deep Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_605525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_605525.jpg" />
 </div>
 
 
@@ -645,7 +703,7 @@ Goldfish - Caught In The Loop (2005) [FLAC|Lossless]<Afrobeat, Future Jazz, Deep
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_605523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_605523.jpg" />
 </div>
 
 
@@ -680,7 +738,7 @@ Pom Pom - 35 (2018) [FLAC|Lossless|tracks|Vinyl] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605242.jpg" />
 </div>
 
 
@@ -694,70 +752,6 @@ Pom Pom - 35 (2018) [FLAC|Lossless|tracks|Vinyl] <Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64FB64D39AF17189052BE1DBEA2C18F4177B7792
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525946   (605222) от 22.07.2012
-
-VA - Ministry Of Sound - Addicted To Bass (2012) 3CD [FLAC|Lossless]<Progressive House, Dubstep, Tech House, Breakbeat, Hip-House, Electro, Drum n Bass>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_605222.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Ministry of Sound» - название одного из крупнейших лондонских ночных клубов, а также связанной с ним звукозаписывающей компании. Девиз компании - «To create the moments people live for» («Создавать моменты, ради которых живут люди»). Addicted To Bass - мощнейший сборник различной басс-музыки в трех частях. В состав сборника вошли хиты таких музыкальных стилей, как: дабстеп, драм энд бейс, електро хаус. Addicted To Bass - рецепт заряда отличным настроением!01. Dj Fresh Feat. Rita Ora - Hot Right Now  :: 02:34
-02. Utah Saints - What Can You Do For Me (Drumsound & Bassline Smith Original Mix) :: 02:44
-03. Example - Midnight Run (Flux Pavilion Mix) :: 04:04
-04. Calvin Harris - Feel So Close (Nero Remix) :: 04:40
-05. Foreign Beggars Feat. Skrillex - Still Getting It :: 03:12
-06. Joker Feat. William Cartright - On My Mind :: 03:30
-07. Porter Robinson - Unison (Knife Party Remix) :: 04:13
-08. High Contrast Feat. Tiesto & Underworld - The First Note Is Silent :: 04:04
-09. Camo & Krooked Feat. Ayah Marar - Cross The Line :: 03:41
-10. Friction Feat. McLean - Someone :: 03:41(   Читать дальше...   )Жанр: Progressive House, Dubstep, Tech House, Breakbeat, Hip-House, Electro, Drum n BassФормат: 3xCD, Compilation, MixedПродолжительность: 03:52:34
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297190   (604829) от 21.04.2019
-
-Roger Gerressen - Monoaware (2017) Sushitech Records [FLAC|Lossless|Vinyl-24Bit|tracks] <Techno, Deep Techno, Dub Techno, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Untitled 1 (06:06)
- 02. Untitled 2 (07:10)
- 03. Untitled 3 (06:04)
- 04. Untitled 4 (08:10)(   Читать дальше...   )Жанр: Techno, Deep Techno, Dub Techno, Tech HouseПродолжительность: 00:39:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37FB668F049F17CA0450E4B9AED04B234D11C689
 ```
 
 https://mybot314.ru/tekegram_catalog/

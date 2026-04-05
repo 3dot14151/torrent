@@ -1,3 +1,133 @@
+###  Публикация: 1651036   (223918) от 04.08.2023
+
+Альберт Поделл | Паспорт человека мира. Путешествие сквозь 196 стран (2019) [MP3, Пожилой Ксеноморф]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альберт Поделл – это как Марко Поло наших дней, но если честно, он намного круче. У нашего героя было совсем немного денег, а вместо собственного корабля – трещащие по швам самолёты где-то в странах третьего мира. Он раскладывал спальник у границ с вооружёнными солдатами, в кемпингах среди сумасшедших туристов, на обочинах безлюдных дорог, в опасных тропических джунглях, (   Читать дальше...   )Жанр: зарубежные приключения, истории из жизни, книги о путешествиях, отдых / туризмПеревод: Екатерина ТортуноваИздательство: ЭксмоПродолжительность: 11:15:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90DD13FCB91E1A2335735ECE7271CB8E727C8F52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425189   (221976) от 20.11.2020
+
+Дарелл Хафф | Как лгать при помощи статистики (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221976.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой всемирно известной книге Дарелл Хафф рассказывает о различных способах злоупотребления статистикой в целях обмана аудитории и манипулирования ее мнением. Каждый день на вас пытаются повлиять, чтобы сподвигнуть на покупку какого-то «нужного» продукта или на выбор «правильного» кандидата: «Благодаря пасте “Чистые зубы” образование кариеса снижается на 23 %!»; (   Читать дальше...   )Жанр: Публицистика, Познавательная литератураПродолжительность: 04:04:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09103B98616B9FF755CC209815DE4B2AB40EA2C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512114   (219580) от 02.12.2021
+
+Сергей Михеев | Традиции (2019-2021) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы много говорим о политике, деньгах, конфликтах. А на самом деле человек живет более простыми и глубокими вещами. Возвращаемся к традиционным ценностям в радиопередаче «Традиция»!Жанр: ПублицистикаПродолжительность: 34:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49C94223B04420ACBB8AB0405E622346B82F8ED2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641779   (210727) от 24.06.2023
+
+Стивен Пинкер | Рациональность (2023) [MP3, Стефан Барковский]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прямо сейчас человечество достигает новых высот научного понимания — и в тоже время, кажется, постепенно сходит с ума. Почему вид, меньше чем за год разработавший вакцины против ковида, погряз в фальшивых новостях, медицинском шарлатанстве и теориях заговора? Пинкер сразу отказывается от циничного клише, гласящего, что человек попросту нерационален — что это вечный (   Читать дальше...   )Жанр: ПублицистикаПродолжительность: 13:22:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65DE168CA5F02CC4BF5B0290405741B4A1C93C16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644685   (209615) от 06.07.2023
+
+Уолтер Айзексон | Альберт Эйнштейн (2023) [MP3, Пожилой Ксеноморф]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уолтер Айзексон, автор знаменитой биографии Стивена Джобса, написал книгу об одном из самых известных ученых XX века, Альберте Эйнштейне. Он не только подробно и доступно изложил суть научных концепций и открытий автора теории относительности, но и увлекательно рассказал об Эйнштейне-человеке. В книге приводится множество документальных материалов – письма, воспоминания, (   Читать дальше...   )Жанр: ПублицистикаИздательство: CorpusПродолжительность: 21:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:952029FD45BD3E49EC94C655A0A45A5FA9E26404
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1646877   (208792) от 16.07.2023
 
 Петр Вайль, Александр Генис | 60-е. Мир советского человека (2021) [MP3, Игорь Князев]
@@ -6,7 +136,7 @@
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208792.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208033.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208032.jpg" />
 </div>
 
 
@@ -86,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206743.jpg" />
 </div>
 
 
@@ -112,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206176.jpg" />
 </div>
 
 
@@ -138,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205771.jpg" />
 </div>
 
 
@@ -165,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203887.jpg" />
 </div>
 
 
@@ -192,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203639.jpg" />
 </div>
 
 
@@ -218,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202338.jpg" />
 </div>
 
 
@@ -244,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198859.jpg" />
 </div>
 
 
@@ -270,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192589.jpg" />
 </div>
 
 
@@ -297,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192413.jpg" />
 </div>
 
 
@@ -323,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191593.jpg" />
 </div>
 
 
@@ -350,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_189919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189919.jpg" />
 </div>
 
 
@@ -376,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189609.jpg" />
 </div>
 
 
@@ -402,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188463.jpg" />
 </div>
 
 
@@ -429,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187997.jpg" />
 </div>
 
 
@@ -456,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187986.jpg" />
 </div>
 
 
@@ -482,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187749.jpg" />
 </div>
 
 
@@ -509,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185853.jpg" />
 </div>
 
 
@@ -535,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183062.jpg" />
 </div>
 
 
@@ -546,140 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7C3097DEE3E6863E6B8E4686B90A35E76DA25A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665607   (181373) от 01.10.2023
-
-Сергей Нечаев | Полная история эпох, Нюрнбергский процесс (2023) [MP3, Антон Алисин]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_181373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Торжество закона над жестокостью и бесчеловечностью…
-Узнайте все подробности и тайны первого, самого громкого международного судебного процесса в истории человечества! Сегодня, когда прошло уже почти 80 лет со дня начала Нюрнбергского процесса, отчетливо видно, какую колоссальную роль он сыграл в историческом, юридическом и общественно-политическом планах. Нюрнбергский (   Читать дальше...   )Жанр: Общая история, ПублицистикаИздательство: Аудиокнига АСТПродолжительность: 06:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE537DC26E904B648AED7395B316E1E3BA8A8F13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665873   (180604) от 02.10.2023
-
-Карло Чиполла | Фундаментальные законы человеческой глупости (2023) [MP3, Геннадий Смирнов]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_180604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интеллектуальные упражнения, в которых едкий сатирический дух сочетается с оптимистичным добродушием!
-Впервые остроумно и изящно сформулированы законы человеческой глупости – феномена мощного и извечного, как явления природы. Есть ли глупцы среди нобелевских лауреатов, чем отличается глупец от бандита, каков ущерб, который глупец наносит общему делу, много ли глупцов (   Читать дальше...   )Жанр: ПублицистикаИздательство: CorpusПродолжительность: 01:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2908DF40B4E03E17571ACD9E8CE2AB30719FCF1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667379   (176835) от 08.10.2023
-
-Игорь Рабинер | Месси (2023) [MP3, Алексей Ерохин]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176835.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы готовы узнать о жизни одного из самых великих футболистов в истории? Узнать о том, как Лео Месси достиг своих высот и стал бессменным лидером «Барселоны» и сборной Аргентины? Мы расскажем вам обо всем, начиная с его жизни в Аргентине и заканчивая самыми невероятными матчами на мировых футбольных полях. В этой книге вы найдете занимательные факты о жизни Месси, (   Читать дальше...   )Жанр: ПублицистикаИздательство: ЭксмоПродолжительность: 03:04:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D993AF1DE4BD684ECC72EA6E35C406F6729464E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429722   (175714) от 07.12.2020
-
-Майкл Бут | Почти идеальные люди. Вся правда о жизни в «Скандинавском раю» (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весь мир сходит с ума по «Хюгге», но так ли идеальна скандинавская философия? Читайте честную книгу о настоящих скандинавах: вы узнаете правду об их жизни и поймете, почему Скандинавские страны стали такими успешными в экономическом и социальном отношении.
-
-Английский журналист Майкл Бут прожил в скандинавских странах более 10 лет и пришел к выводу, что в мире слишком (   Читать дальше...   )Жанр: Зарубежная публицистикаПродолжительность: 13:32:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B9C587E5D98673972D2610E7875D04DE4275575
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345032   (167793) от 13.12.2019
-
-Юваль Ной Харари | 21 урок для XXI века (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167793.jpg" />
-</div>
-
-
-###  Подробнее
-
-«21 урок для XXI века» – третья книга Юваля Харари, автора всемирных бестселлеров «Sapiens. Краткая история человечества» и «Homo Deus. Краткая история будущего». Один из самых оригинальных мыслителей современности размышляет о том, что значит быть человеком в эпоху потери ориентиров. Опираясь на идеи своих предыдущих книг, профессор Харари старается распутать для (   Читать дальше...   )Жанр: Зарубежная публицистика, Научно-популярная литератураПродолжительность: 13:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:985C0DFC982306DF83C4B9EE7494C828B8EEC1A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1605766   (232894) от 19.01.2023
+
+Andadarius - Urbi Et Orbi (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232894.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Urbi Et Orbi
+2. Fire Dance
+3. Akeronte
+4. Double Edge(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C2A18AD87EEAF2280BD2A5D53C095CBD5C80EF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1636773   (232891) от 01.06.2023
 
 A Pretext to Human Suffering - Endless Cycle of Suffering (2023) [FLAC|Lossless|WEB-DL|tracks] <Technical, Brutal Death Metal>
@@ -6,7 +35,7 @@ A Pretext to Human Suffering - Endless Cycle of Suffering (2023) [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232891.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Disconnected - We Are Disconnected (2022) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232890.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Oak Pantheon - The Absence (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232884.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Ancestry - Revelations (2011) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232879.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Protz - In Dog We Trust (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232871.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Avalanch - El Dilema De Los Dioses (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232866.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ The Ducks - High Flyin' (Live) (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232861.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ National Nightmare - High Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232853.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Speedwhore - The Future Is Now (2015) [FLAC|Lossless|image + .cue] <Black, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232847.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Hellwitch - Annihilational Intercention (2023) [FLAC|Lossless|WEB-DL|tracks] <Te
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232843.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Anguish Force - Atzwang (2012) [FLAC|Lossless|image + .cue] <Heavy, Power, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232840.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Collapsed Minds - Dead End Theory (2017) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232837.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Rusty Bonez - Brainworm (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232832.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Speedwhore - Visions of a Parallel World (2023) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232827.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Ancestry - Transitions (2017) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232826.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Spiritus Mortis - The Great Seal (2022) [FLAC|Lossless|WEB-DL|tracks] <Tradition
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232821.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ King Weird - 2 Albums (2021-2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Sludge, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232815.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ Thunderforge - Vanquish The Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232811.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ The Acacia Strain - Death Is The Only Mortal (2012) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232809.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ Collapsed Minds - Abyss (2023) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232805.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ Idle Ruin - The Fell Tyrant (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232804.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ The Acacia Strain - It Comes in Waves (2019) [FLAC|Lossless|image + .cue] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232799.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ The Acacia Strain - Continent (2008) [FLAC|Lossless|image + .cue] <Deathcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232792.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ A Life Divided - Down The Spiral Of A Soul (2023) [FLAC|24/44.1|tracks|WEB-DL] <
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232785.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ Slanderus - Absorbing Infinity (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232784.jpg" />
 </div>
 
 
@@ -714,35 +743,6 @@ Slanderus - Absorbing Infinity (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Pro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32213E78C3B7A3638EC4C8E377BFD7A069A5CBD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639515   (232783) от 13.06.2023
-
-Voodoo Trees - Ego Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Garage, Bluesy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Are You Dead? [00:05:41]
-02. The Woods [00:05:54]
-03. Tick Tock [00:04:49]
-04. Egolude [00:03:37](   Читать дальше...   )Жанр: Heavy Rock, Stoner, Garage, BluesyПродолжительность: 00:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2982CBB9A20B253A51CCC1EACC524EC2550437C
 ```
 
 https://mybot314.ru/tekegram_catalog/

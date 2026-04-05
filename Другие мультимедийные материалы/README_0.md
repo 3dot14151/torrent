@@ -6,7 +6,7 @@
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856641.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848107.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837739.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_834001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_834001.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833695.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816974.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807568.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799788.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796615.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762877.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742001.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739545.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718179.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717566.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ TradeLikeaPro | Бинарные опционы для «Чайников» (201
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713264.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700313.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_652889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_652889.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_652885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_652885.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651498.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630666.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629131.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603516.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ TradeLikeaPro | ExcelTrader Pro - продвинутый курс по рабо�
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568339.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566231.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530040.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525814.jpg" />
 </div>
 
 

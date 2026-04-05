@@ -1,3 +1,56 @@
+###  Публикация: 1203732   (787573) от 03.02.2018
+
+Г.В. Куликов | Бытовая аудиоаппаратура. Ремонт и обслуживание (2017) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787573.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге излагаются принципы построения основных функциональных узлов современной бытовой аудиоаппаратуры отечественного и зарубежного производства: тюнеров, магнитофонов, проигрывателей компакт-дисков, низкочастотных трактов, систем управления и источников питания.
+Рассматриваются основные параметры, характеризующие качество функционирования бытовой аудиоаппаратуры, (   Читать дальше...   )Жанр: АудиотехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB45971D0709C5B53F1670E565F7149EE0B850C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512441   (787357) от 24.11.2021
+
+Ю.М. Баженов и др. | Системный анализ в строительном материаловедении (2012) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787357.jpg" />
+</div>
+
+
+###  Подробнее
+
+С позиций системного анализа рассмотрены методы и алгоритмы структурно-параметрического систеза, идентификации и управления в сложных системах. Предложены методы оптимизации, основанные на скаляризации глобального критерия и построении множеств Парето. Применительно к синтезу строительных композиционных материалов функционального назначения сформулированы принципы (   Читать дальше...   )Жанр: СтроительствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCA0001A84AE664411706555D433763361AF0556
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1512207   (787342) от 24.11.2021
 
 А.И. Врублевский | Тренажер по химии. Вся химия в задачах и упражнениях с примерами решений (2009) [DJVU]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787342.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787332.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787199.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787198.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787185.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786966.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786683.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786357.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786310.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785924.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785768.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785759.jpg" />
 </div>
 
 
@@ -325,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785322.jpg" />
 </div>
 
 
@@ -351,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784334.jpg" />
 </div>
 
 
@@ -379,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784188.jpg" />
 </div>
 
 
@@ -406,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783462.jpg" />
 </div>
 
 
@@ -433,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783443.jpg" />
 </div>
 
 
@@ -459,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783186.jpg" />
 </div>
 
 
@@ -486,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783177.jpg" />
 </div>
 
 
@@ -513,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783045.jpg" />
 </div>
 
 
@@ -539,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782519.jpg" />
 </div>
 
 
@@ -565,7 +618,7 @@ A.B. Сычев | Web-технологии (2016) [PDF]
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782496.jpg" />
 </div>
 
 
@@ -591,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782117.jpg" />
 </div>
 
 
@@ -618,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782110.jpg" />
 </div>
 
 
@@ -629,60 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0205E85627DB43858878E6D34500D906D21ABFF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206573   (781714) от 15.02.2018
-
-А.Г. Стрелков | Конструкция быстроходных гусеничных машин (2005) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781714.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии рассмотрены основные понятия, определения, требования, классификации, технические характеристики, конструкции, режимы работы составных частей шасси-трансмиссии и ходовой системы быстроходных гусеничных машин отечественного и зарубежного производства различного назначения. Проведен анализ режимов работы агрегатов одно и двухпоточных трансмиссий, (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29BB7092A7132FD7674547AEE0A30E181B10B893
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206847   (781253) от 16.02.2018
-
-Н.И. Овчаренко | Автоматика энергосистем (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание учебника обусловлено бурным внедрением в автоматику электроэнергетических систем способов и технических средств обработки информации и формирования управляющих воздействий на электроэнергетические объекты микропроцессорной вычислительной техники, а также вводом в учебный процесс высших учебных заведений бакалавриата и магистратуры.
-
-Изложение материала в (   Читать дальше...   )Жанр: Электротехника, энергетика, автоматикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2524F27FD5AAF7C4515DA63E9AC96BC81DC6FD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

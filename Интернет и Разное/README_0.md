@@ -6,7 +6,7 @@
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_783579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_783579.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_768860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_768860.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ COVID-19: Специальное предложение для Windows и Office
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_765850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_765850.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_746141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_746141.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_738621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_738621.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_735784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_735784.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_735511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_735511.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Microsoft Windows 10 Professional до 14 долларов США!
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_720392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_720392.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_702902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_702902.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_587504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_587504.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_470145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_470145.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_424789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_424789.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_355209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_355209.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азартные игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_345010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_345010.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207427.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_202795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_202795.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Реквием
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_194555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_194555.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182714.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161286.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156342.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150271.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142857.jpg" />
 </div>
 
 

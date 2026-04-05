@@ -1,32 +1,3 @@
-###  Публикация: 1378719   (842801) от 27.04.2020
-
-VA - NOW Reggae Classics (2020) [MP3|320 Kbps] <Reggae>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842801.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Bob Marley & The Wailers - One Love / People Get Ready (Medley) 02:53
-2. Steel Pulse - Reggae Fever 03:26
-3. Toots & The Maytals - Reggae Got Soul 03:09
-4. Jimmy Cliff - You Can Get It If You Really Want 02:41(   Читать дальше...   )Жанр: ReggaeПродолжительность: 01:46:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C35FDA9DFF7F432C6C8C7B3DA45303C7D8BCC9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1379232   (840841) от 28.04.2020
 
 2Pac - The Best Of 2Pac. Part 2: Life (2007) Compilation [FLAC|Lossless|tracks + .cue] <Hip-Hop, Gangsta Rap, Thug Rap>
@@ -35,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840841.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840836.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Krec - Обелиск16 (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839526.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839458.jpg" />
 </div>
 
 
@@ -149,7 +120,7 @@ Lord - Перемены (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836392.jpg" />
 </div>
 
 
@@ -178,7 +149,7 @@ Xzibit - Greatest Hits (2009) Compilation [FLAC|Lossless|tracks + .cue] <Hip-Hop
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836096.jpg" />
 </div>
 
 
@@ -207,7 +178,7 @@ Drake - Dark Lane Demo Tapes (2020) Mixtapes [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835900.jpg" />
 </div>
 
 
@@ -236,7 +207,7 @@ Jahmal TGK - Неваляшка (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834988.jpg" />
 </div>
 
 
@@ -265,7 +236,7 @@ Brick Bazuka - Я и Мой Демон (2016) [MP3|320 кб/с] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834436.jpg" />
 </div>
 
 
@@ -294,7 +265,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833863.jpg" />
 </div>
 
 
@@ -323,7 +294,7 @@ VA - NOW Reggae Classics (2020) [FLAC|Lossless|WEB-DL|tracks] <Reggae, R&B>
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832942.jpg" />
 </div>
 
 
@@ -352,7 +323,7 @@ Jillzay - Open Season (2017) EP [MP3|320 Kbps] <Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829871.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Guf & Murovei - Дом, который построил Алик (2020) [MP3|320
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829296.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826895.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821070.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Drake - More Life (2017) [MP3|320 Kbps] <Hip-Hop, Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820441.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Atmosphere - WORD? (2021) [FLAC|Lossless|tracks + .cue] <Hip-Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819489.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Lil Nas X - Montero (2021) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Pop Rap, Trap
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819399.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ ATL - Лимб (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818551.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ L'One - Концерт с симфоническим оркестром (2018) [
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811772.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ NIGXNIZ - INFRA (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810244.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810240.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Archi - Не спасти не сохранить (2020) [MP3|320 Kbps] <Rap, Hi
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810239.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810114.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ Tanir & Tyomcha - До мурашек (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810110.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ Tanir & Tyomcha - До мурашек (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6610B2403266435C2A9EECDF0E43BBC34D13042F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383719   (809962) от 16.05.2020
+
+eto - The Beauty of It (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Beauty of It [01:19]
+02. No (feat. Flee Lord & Grafh) [03:33]
+03. Nothin' Like You (feat. Nyticka Hemingway) [03:07]
+04. The Pot [02:21](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:40:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1499B8EA012628E9171A2FB888B261603C0831AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

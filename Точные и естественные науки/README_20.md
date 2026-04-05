@@ -1,3 +1,81 @@
+###  Публикация: 204858   (508655) от 23.07.2019
+
+Николай Селиванов | Справочная книга криминалиста (2000) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508655.jpg" />
+</div>
+
+
+###  Подробнее
+
+В предлагаемом вниманию читателей справочнике, подготовленном коллективом ученых НИИ проблем укрепления законности и правопорядка Генеральной прокуратуры РФ, отражено современное состояние криминалистики, показаны возможности применения ее достижений в следственной практике. Описаны современные технико - криминалистические средства и тактические приемы предварительного (   Читать дальше...   )Жанр: Справочная литература, КриминалистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CA03B6D1565B39F48AA98B553E8F5F89DC95FBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538914   (507400) от 25.08.2012
+
+Р. Курант, Д. Гильберт | Методы математической физики (в двух томах) [1933-1945] [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507400.jpg" />
+</div>
+
+
+###  Подробнее
+
+В первом томе (1933 г.) содержатся прекрасные образы применения алгебраических, геометрических и вариационных методов к разрешению фундаментальных проблем анализа. Второй том (1945 г.) содержит систематическую теорию дифференциальных уравнений с частными производными, рассматриваемую с точки зрения математической физики. Перевод с немецкого З. Либина, Б. Лившица, Ю. Рабиновича.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6E821852402F9BBD23FD0256770C41D3A72F8F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538915   (507280) от 25.08.2012
+
+Р. Курант, Д. Гильберт | Курс дифференциального и интегрального исчисления (в двух томах) [1968-1970] [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой мастерски написанный крупным математиком курс математического анализа, адресуемый автором «будущим учителям и научным работникам в области математики, физики и других естественных наук, а также инженерам». Первый том был впервые издан на русском языке в 1931 г. Настоящий перевод первого тома содержит: дифференциальное и интегральное исчисление функций одного переменного, очерк теории функций нескольких переменных, дифференциальные уравнения простейших типов колебаний. В него включены многочисленные добавления автора, появившиеся в последующих изданиях на немецком и английском языках, в частности тщательно подобранные и систематизированные упражнения и задачи. Второй том посвящен главным образом дифференциальному и интегральному исчислению функций многих переменных. По сравнению с первым русским изданием, вышедшим в 1931 г., настоящий перевод содержит многочисленные добавления автора , появившиеся в последних изданиях на немецком и английском языках. Книга может служить учебным пособием (   Читать дальше...   )Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E7962C73856B941DB34F047B071FBD6813AD28B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 933005   (505274) от 02.09.2015
 
 О. Скалдина, Е. Слиж | Красная книга Земли (2013) [PDF]
@@ -6,7 +84,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505274.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500976.jpg" />
 </div>
 
 
@@ -62,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500358.jpg" />
 </div>
 
 
@@ -88,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498435.jpg" />
 </div>
 
 
@@ -115,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497673.jpg" />
 </div>
 
 
@@ -141,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497496.jpg" />
 </div>
 
 
@@ -167,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497431.jpg" />
 </div>
 
 
@@ -193,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496140.jpg" />
 </div>
 
 
@@ -219,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492893.jpg" />
 </div>
 
 
@@ -245,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489540.jpg" />
 </div>
 
 
@@ -272,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489239.jpg" />
 </div>
 
 
@@ -298,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488546.jpg" />
 </div>
 
 
@@ -324,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488407.jpg" />
 </div>
 
 
@@ -352,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488362.jpg" />
 </div>
 
 
@@ -378,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488354.jpg" />
 </div>
 
 
@@ -404,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488276.jpg" />
 </div>
 
 
@@ -430,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488164.jpg" />
 </div>
 
 
@@ -458,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488035.jpg" />
 </div>
 
 
@@ -485,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486043.jpg" />
 </div>
 
 
@@ -511,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483879.jpg" />
 </div>
 
 
@@ -537,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483782.jpg" />
 </div>
 
 
@@ -563,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480490.jpg" />
 </div>
 
 
@@ -589,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478669.jpg" />
 </div>
 
 
@@ -601,86 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87D31461D44B3582D8054A2924009E474944F2A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056945   (477222) от 27.09.2016
-
-Р. Декарт | Геометрия (1938) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роль Декарта как философа общепризнанна. Как математик, Декарт в своей книге "Геометрия" усовершенствовал алгебраические обозначения и создал аналитическую геометрию. Также он произвел революцию в математике, создал нечто несравненно большее, чем аналитическая геометрия (понимаемая как теория кривых на плоскости), а именно: новый подход к описанию явлений (   Читать дальше...   )Жанр: История, науковедение, естествознание, геометрия, математикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2088CA2649044F685752C9244058127A19E65288
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056944   (477090) от 27.09.2016
-
-Ч. Дарвин | Изменение животных и растений в домашнем состоянии (1941) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящий труд "Изменение животных и растений в домашнем состоянии" появился в начале 1868 года как дополнительный к "Происхождению видов". В этом трактате находятся как все собственные наблюдения Дарвина, так и громадное количество фактов, почерпнутых из самых разнообразных источников.Жанр: История, науковедение, естествознание, биологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCC0D51A0F2FD9ABED17213435E39837A7DF78FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160560   (471660) от 26.08.2017
-
-Л.С. Фрейман | Что такое высшая математика (1965) [DJVU, PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга — не учебник. Она не научит читателя высшей математике. Правила, которые он здесь усвоит, не носят обобщающего характера, поэтому их нельзя применять к решению любого примера или задачи, в том числе и практических. Не адресована книга и студенту. Она имеет другую цель: ответить на вопросы, поставленные в заглавии.
-
-И читатель ее совсем другой. Есть учащиеся (   Читать дальше...   )Жанр: История, науковедение, математикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B71ED7E3955AED39D0FF8ACDF20504BE701D33EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

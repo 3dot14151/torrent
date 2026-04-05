@@ -1,3 +1,58 @@
+###  Публикация: 955512   (333907) от 11.11.2015
+
+Николай Ютанов | Оборотень (1990) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оборотень
+Приключения маленькой фехтовальщицы Лены в сказочном Королевстве Тридцати Близнецов и его окрестностях.
+
+Фея красного карлика(   Читать дальше...   )Жанр: Детская фантастика, ФэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F858969DDEE200B299E2F1D011DE22CD81E1EB2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955492   (333889) от 11.11.2015
+
+Дмитрий Нагишкин | Таёжные сказки (2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Много чудес таит в себе амурская тайга. Летает над ней железная птица Кори, прячется в её чаще Скрипучая старушка, а за живущими среди лесов людьми приглядывает хранитель домашнего очага Дюлен. В трудную минуту на помощь смельчакам приходят мапа-медведь, амба-тигр или царица-рыба калуга, а в ближайшую избушку запросто, по-соседски, может заглянуть хитрая лисица. (   Читать дальше...   )Жанр: Сказки, Народные сказкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65B40D0FF8B81BEA07B6497A0E3A232ECD1DFB9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 955479   (333837) от 11.11.2015
 
 Лаймен Фрэнк Баум | Великий Чародей страны Оз (2003) [PDF]
@@ -6,7 +61,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333837.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333790.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333154.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333150.jpg" />
 </div>
 
 
@@ -110,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332605.jpg" />
 </div>
 
 
@@ -136,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332478.jpg" />
 </div>
 
 
@@ -162,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332415.jpg" />
 </div>
 
 
@@ -188,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332406.jpg" />
 </div>
 
 
@@ -215,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332401.jpg" />
 </div>
 
 
@@ -241,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332366.jpg" />
 </div>
 
 
@@ -268,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332327.jpg" />
 </div>
 
 
@@ -294,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332323.jpg" />
 </div>
 
 
@@ -321,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332212.jpg" />
 </div>
 
 
@@ -350,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332093.jpg" />
 </div>
 
 
@@ -376,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332087.jpg" />
 </div>
 
 
@@ -403,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные материалы для родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332051.jpg" />
 </div>
 
 
@@ -430,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331684.jpg" />
 </div>
 
 
@@ -456,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331484.jpg" />
 </div>
 
 
@@ -482,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331366.jpg" />
 </div>
 
 
@@ -508,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331358.jpg" />
 </div>
 
 
@@ -534,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331355.jpg" />
 </div>
 
 
@@ -562,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331353.jpg" />
 </div>
 
 
@@ -588,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331352.jpg" />
 </div>
 
 
@@ -616,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331348.jpg" />
 </div>
 
 
@@ -629,60 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F133FCF07CE6793276C6B454D9BB1F82E17DC62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 413263   (331334) от 20.11.2011
-
-Н.Эзрин, Р.Фокс | Приучение к горшку за 1 день (2010) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331334.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторы этой книги придумали невероятную методику, с помощью которой каждого ребенка можно приучить к горшку даже за 4 часа. И он сразу же сможет сам ходить в туалет без всякой помощи и напоминаний.
-Последуйте примеру миллионов родителей и оцените все преимущества этой замечательной методики.
-Пособие написано легко и доступно и снабжено подробными указаниями и иллюстрациями (   Читать дальше...   )Жанр: Воспитание ребенка, Для родителейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5C33EA7907E23B2F4E6BBA1A767773363AB0F4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420921   (331286) от 02.11.2020
-
-Петр Волцит | Почемучкины опыты и эксперименты. Погода (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331286.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге П. Волцита «Погода» ты найдешь несколько любопытных рассказов об атмосферных явлениях: что такое ветер, откуда берутся гром и молния, град и снег, дождь, туман и роса, а также 9 интереснейших экспериментов с погодой: например, ты сможешь сделать сам настоящее облако и даже молнию! Все эксперименты разработаны с использованием предметов, которые легко найти (   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:317B185E73E7ACC0C2BAE5F691CE245108A6526F
 ```
 
 https://mybot314.ru/tekegram_catalog/

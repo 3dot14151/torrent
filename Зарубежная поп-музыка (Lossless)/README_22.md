@@ -6,7 +6,7 @@ VA - Party Hits (Unknown) [FLAC|Lossless|image + .cue] <Rock & Roll, Rockabilly,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829753.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Supermax -  Fly With Me (1979) Remastered, 2005, CD-Maximum [FLAC|Lossless|image
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829704.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Mega Dance Mix - 1 (Unknown) [FLAC|Lossless|image + .cue] <Medley, Cover, I
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829668.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Pure... america (2011) Box Set, 4 CD [FLAC|Lossless]<Pop, Dance, Rock, R&B,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829011.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - 100 Hits: 70s (2007) [FLAC|Lossless]<Top 40, Pop, Rock, Disco, Funk & Soul,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827145.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Camp Claude - Swimming Lessons (2016) [FLAC|Lossless|tracks] <Indie Pop, Electro
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825482.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Fleur East - Love, Sax & Flashbacks (2015) Deluxe Edition [FLAC|Lossless|WEB-DL|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825180.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Alexandra Stan - Cliche (Hush Hush) (2013) Japanese Limited Edition [FLAC|Lossle
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825176.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ I Break Horses - Warnings (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824809.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - 12 Inch Dance: 80s Remix (2017) [FLAC|Lossless|WEB|tracks] <Pop, Synthpop, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824429.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Pure... Love (2011) Box Set, 4 CD [FLAC|Lossless]<Pop, Dance, Rock, R&B, Ot
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823617.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Kiley Dean - Scream (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, R&B>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823490.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Wild Belle - Dreamland (2016) [FLAC|Lossless|tracks] <Indie Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821411.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Hit Connection 2011.3 (2011) [FLAC|Lossless|tracks + .cue] <Pop, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821344.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Calming Acoustic Covers: 14 Chilled and Relaxing Acoustic Songs (2021) [FLA
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821241.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Coeur de Pirate - Roses (2015) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821052.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Kylie Minogue - DISCO (2020) [FLAC|Lossless|tracks + .cue] <Dance-pop, Disco>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819693.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Gentle and Calm Instrumental Covers: 14 Beautifully Relaxing Instrumental T
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819495.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Kylie Minogue - DISCO (2020) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Dance
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819487.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Vera Lynn - Vera Lynn 100 (2017) Compilation [FLAC|Lossless|WEB-DL|tracks] <Voca
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819100.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Betsy - BETSY (2017) [FLAC|Lossless|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819051.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Acoustic: The Collection (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818930.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Maroon 5 - Red Pill Blues (2017) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818873.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Paul Handyside - Tide, Timber & Grain (2016) [FLAC|Lossless|tracks] <Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818093.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Nostalgie - The Summer Feeling (2015) 5CD [FLAC|Lossless|tracks] <Pop, Danc
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817590.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - Pure... Summer (2011) Box Set, 4CD [FLAC|Lossless]<Pop, Dance, Eurodance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817222.jpg" />
 </div>
 
 

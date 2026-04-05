@@ -1,3 +1,108 @@
+###  Публикация: 1454018   (1026565) от 13.03.2021
+
+Пульс по лицу – пульсометр FaceBeat v1.0.58 [Ru/Multi] (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение измеряет пульс с помощью фотографии. Конечно, присутствует и стандартный режим в виде прикладывания пальца к объективу, но вариант со снимком не уступает классическому. Нужно расположить лицо так, чтобы оно уместилось в овал.
+Приятно, что в программе установлена наглядная полоса состояния сердцебиения. Другими словами, можно разобраться, в порядке ли все (   Читать дальше...   )Тип издания: Free с Маркета  + Пиратка (разблокирован Premium)Релиз состоялся: 08.07.2020Разработчик: Heart Rate LabsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99E0E2E0E2F48982A38AA04F8DED10691981D2C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453969   (1026563) от 13.03.2021
+
+Easy Text Scanner - Распознавание текста (OCR) v1.1.2 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Easy Text Scanner - это приложение для распознавания текста: извлекает текст из картинок, конвертирует изображение в текст,  быстро и точно конвертирует документы с помощью камеры в текст за считанные секунды. Функция распознавания бесплатная.Тип издания: Пиратка (Мод) Premium версияРелиз состоялся: 5 марта 2021 г.Разработчик: WECR TECHПоддерживаемая ОС: Android 4.2 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1124CA51CAF1DB3E0E7110B8444BA9A6D7455287
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453999   (1026538) от 13.03.2021
+
+ToonApp v1.0.29 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026538.jpg" />
+</div>
+
+
+###  Подробнее
+
+ToonApp - карикатура фоторедактор лучшее приложение для превращения вашей картинки в мультфильм. Создатель мультфильмов предлагает удивительные фильтры AI для изображений, чтобы превратить фотографию в мультфильм.Тип издания: Пиратка (Мод) Premium версияРелиз состоялся: 2 марта 2021 г.Разработчик: Lyrebird StudiosПоддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Русский есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1353EFBBC03B316108145A9F40D90AEAAFE0ADF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453978   (1026530) от 13.03.2021
+
+First Strike: Classic v3.0.0 [Ru/En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026530.jpg" />
+</div>
+
+
+###  Подробнее
+
+FIRST STRIKE – Первый удар - это захватывающий стратегический симулятор ядерной войны. Интерфейс интуитивный, а геймплей быстрый, так что сбросить несколько мегатонн - как два пальца об асфальт. Но не стоит забываться. Ты - глава государства, и самое важное - это безопасность твоих сограждан.Тип издания: Paid  (Куплена)Релиз состоялся: 8 марта 2021 г.Разработчик: Blindflug Studios AGПоддерживаемая ОС: Android 5.0 и вышеЖанр: СтратегияЯзык интерфейса: Русский есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13C4673E33B577E5F44F4AAE091C3725E76BFCB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446528   (1026495) от 13.03.2021
 
 AVG Cleaner v5.5.0 Pro [Ru/Multi] - Ускорение телефона, Очистка бесплатно
@@ -6,7 +111,7 @@ AVG Cleaner v5.5.0 Pro [Ru/Multi] - Ускорение телефона, Очи�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026495.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ Avast Cleanup v5.5.0 Premium [Ru] - очистка, ускорение и опт
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026476.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ Into The Badlands Champions v1.5.123 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026349.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ Legend of Solgard v2.17.4 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026336.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ Vanced YouTube Music v4.18.50 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026302.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ Perfect Player IPTV v1.5.9.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025887.jpg" />
 </div>
 
 
@@ -165,7 +270,7 @@ WiFi Analyzer Pro v3.2.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025721.jpg" />
 </div>
 
 
@@ -191,7 +296,7 @@ Piano Ear Training Pro ver.Improved UI (118) [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025612.jpg" />
 </div>
 
 
@@ -220,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025537.jpg" />
 </div>
 
 
@@ -248,7 +353,7 @@ Map Marker v2.19.1 [Ru/Multi] - создание собственных мето
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025444.jpg" />
 </div>
 
 
@@ -274,7 +379,7 @@ First Coloring book \ Первая книжка-раскраска v3.0.2 [Ru/Mu
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025398.jpg" />
 </div>
 
 
@@ -300,7 +405,7 @@ Radardroid Pro v3.73 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025204.jpg" />
 </div>
 
 
@@ -326,7 +431,7 @@ Cinema HD TV v2.3.6.1 Mod [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025156.jpg" />
 </div>
 
 
@@ -352,7 +457,7 @@ BackCountry Navigator TOPO GPS v7.1.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025150.jpg" />
 </div>
 
 
@@ -378,7 +483,7 @@ VOA Learning English v4.9.1 [En] - Practice listening everyday
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025065.jpg" />
 </div>
 
 
@@ -406,7 +511,7 @@ Atlas Напоминания v1.8.1 Pro [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024982.jpg" />
 </div>
 
 
@@ -432,7 +537,7 @@ Rock Identifier v1.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024903.jpg" />
 </div>
 
 
@@ -458,7 +563,7 @@ Picture Bird v2.1 [Ru/Multi] - Bird Identifier
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024893.jpg" />
 </div>
 
 
@@ -485,7 +590,7 @@ Picture Mushroom v2.0 [Ru/Multi] - Mushroom ID
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024871.jpg" />
 </div>
 
 
@@ -512,7 +617,7 @@ Tingles ASMR v3.4.1 [Ru/En] - звуки для сна и расслаблени
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024835.jpg" />
 </div>
 
 
@@ -538,7 +643,7 @@ Car Radio v1.1.3 [En] - for Android Stereo Head Units
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024550.jpg" />
 </div>
 
 
@@ -566,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024529.jpg" />
 </div>
 
 
@@ -577,110 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C254A8962EFE5EF7392F8F5887D70313E356F57F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457720   (1024393) от 26.03.2021
-
-YAATA SMS 1.44.10.21936 Mod by papasha55, unz1p, solokot, Uksus17, Mare12 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024393.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это SMS / MMS приложение, которое имеет много функций. Вы можете персонализировать и настроить это приложение станет вашим идеальным приложением. YAATA СМС является очень мощным, надежным и быстрым приложением которое находится на другом уровне. Даже с учетом всех захватывающих особенностей это приложение размером всего 3 МБ. Это приложение SMS очень удобное и удовлетворяет (   Читать дальше...   )Тип издания: Premium + ModsРелиз состоялся: 22.03.2021Разработчик: Kajo AndroDevПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF510E55C022A865BBF8C8BDC92F634C609A7526
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458123   (1024061) от 28.03.2021
-
-Церковные службы и молитвослов v7.0.3 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молитвослов — очень удобное подспорье для всех православных, желающих познать свою Веру. В этом приложении собрано огромное число различных молитв, служб и прочих религиозных канонических материалов.Тип издания: Mod (Premium версия)Релиз состоялся: 23 марта 2021 г.Разработчик: Алексей ГусевПоддерживаемая ОС: Android 4.0 и вышеЯзык интерфейса: Русский есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADC3D0758BE272324321E7D3779BB52221DFE70C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458215   (1024049) от 28.03.2021
-
-AutoResponder for WA / Автоответчик для WhatsApp v1.9.9 [Ru/Multi] (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024049.jpg" />
-</div>
-
-
-###  Подробнее
-
-При помощи этого бота вы сможете автоматически отвечать на индивидуальные полученные сообщения WhatsApp или WA Business. Вам предлагается множество возможностей настройки автоматических ответов в соответствии с потребностями. Установите обновление прямо сейчас бесплатно!Тип издания: Пиратка (Mod: получен PREMIUM, удалена реклама и аналитика)Релиз состоялся: 04.03.2021Разработчик: TK StudioПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D72A2B2CCA871D37152B1AA1A5874FBF8395EBB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458110   (1023997) от 28.03.2021
-
-Shadow of Death: Dark Knight - Stickman Fighting v1.100.0.0 [Ru/En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shadow of Death: Dark Knight - Stickman Fighting - стильный слэшер, в котором игроку нужно управлять рыцарем и убивать всякую нечисть. Вместе с главным героем пользователь отправится в мир, полный мрака и опасностей на каждом шагу.Тип издания: Пиратка (Mod)Релиз состоялся: 23 марта 2021 г.Разработчик: Bravestars GamesПоддерживаемая ОС: Android 5.0 и вышеЖанр: ЭкшенЯзык интерфейса: Русский есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:688017625F72B09A42C45F6B2DD082565D40234F
 ```
 
 https://mybot314.ru/tekegram_catalog/

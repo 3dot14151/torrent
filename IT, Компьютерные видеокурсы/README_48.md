@@ -1,29 +1,3 @@
-###  Публикация: 1226131   (656350) от 19.05.2018
-
-Marlin | Самый понятный курс по php для начинающих (2018) PCRec [H.264]
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс особенно будет полезен каждому начинающему. А также застрявшим где-то на пути синтаксиса, утонувшим в океане под названием фреймворк (Laravel, Yii2 и т.д.). И тем кто потерялся в глухом городе под названием «Не вижу и не понимаю куда двигаться?». Всем тем, которые задаются вопросом А как это работает? Я же так повторить не смогу! И наконец тем, которые еще ни (   Читать дальше...   )Жанр: Программирование, PHPПродолжительность: 22:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DB77C83244EE49AA9C82F2F44138C60CA81CC7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1226392   (655359) от 20.05.2018
 
 GeekUniversity | Вторая четверть. Разработка Backend-а интернет-магазина (2018) PCRec [H.264]
@@ -32,7 +6,7 @@ GeekUniversity | Вторая четверть. Разработка Backend-а 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655359.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ GeekBrains | HTML/CSS Основы создания сайтов (2015) PCRec [H
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655072.jpg" />
 </div>
 
 
@@ -86,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_654155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_654155.jpg" />
 </div>
 
 
@@ -119,7 +93,7 @@ foreven.ru | Конференция: Взгляд через объектив 2.
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653059.jpg" />
 </div>
 
 
@@ -145,7 +119,7 @@ Geekbrains | SEO. Оптимизация и продвижение сайтов 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652959.jpg" />
 </div>
 
 
@@ -171,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652855.jpg" />
 </div>
 
 
@@ -201,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652843.jpg" />
 </div>
 
 
@@ -229,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_652841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_652841.jpg" />
 </div>
 
 
@@ -256,7 +230,7 @@ IТVDN | АngulаrJS Еssеntiаl (2015) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652777.jpg" />
 </div>
 
 
@@ -282,7 +256,7 @@ ITVDN | Entity Framework 6 (2015) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652755.jpg" />
 </div>
 
 
@@ -308,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650660.jpg" />
 </div>
 
 
@@ -334,7 +308,7 @@ GeekBrains | nginx Создание веб-серверов (2015) PCRec [H.264/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650648.jpg" />
 </div>
 
 
@@ -360,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649609.jpg" />
 </div>
 
 
@@ -386,7 +360,7 @@ HighLoad | Профессиональная конференция разраб�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645052.jpg" />
 </div>
 
 
@@ -415,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644802.jpg" />
 </div>
 
 
@@ -441,7 +415,7 @@ CyberMarketing | Онлайн-конференция по SEO и веб-анал
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644257.jpg" />
 </div>
 
 
@@ -467,7 +441,7 @@ ITVDN | Unity3D Создание Clicker (2016) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643262.jpg" />
 </div>
 
 
@@ -493,7 +467,7 @@ ITVDN | Разработка пользовательского граф. инт
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643257.jpg" />
 </div>
 
 
@@ -519,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643250.jpg" />
 </div>
 
 
@@ -547,7 +521,7 @@ Tony Hillerson | Developing Android Applications with Java. Part 1. [2010] PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643208.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ Lynda.com | Foundation (2014) [PCRec] [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640046.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ Lynda.com | HTML (2010-2014) [PCRec] [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639919.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ ITVDN | Unity3D Написание игрового сервера и созда
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639367.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639350.jpg" />
 </div>
 
 
@@ -684,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639031.jpg" />
 </div>
 
 
@@ -698,6 +672,32 @@ Python Intermediate - 03:36:36(   Читать дальше...   )Жанр: Ра
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24645654BD6D53F568799856090736B4DCC49D06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 800846   (638061) от 30.06.2014
+
+Lynda.com | CSS (2009-2013) [PCRec] [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это сборник видеуроков от Lynda.com по CSS за 2009 - 2013 года. Сюда вошли 15 курсов от Lynda.com. Отличие от подобных раздач - нумерация и имена файлов полностью совпадают с оригинальными, файлы примеров вынесены в отдельный архив. По мере появления новых курсов раздача будет оперативно обновлятьсяЖанр: WebПродолжительность: 55:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB78659193B728857725CED1F437EC3185EA2EB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

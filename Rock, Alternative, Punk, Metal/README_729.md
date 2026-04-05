@@ -1,3 +1,32 @@
+###  Публикация: 796021   (331757) от 15.10.2019
+
+Machine Head - 2 Studio Albums, 2 Live Albums, 3 Singles (2012-2019) [MP3|320 кб/с] <Groove Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331757.jpg" />
+</div>
+
+
+###  Подробнее
+
+2012 - Machine F**king Head Live (2CD, Live)
+2014 - Killers & Kings (Single, RSD 10-inch)
+2014 - Bloodstone & Diamonds (Limited Edition Mediabook)
+2016 - Is There Anybody Out There? (Single)(   Читать дальше...   )Жанр: Groove Metal, Thrash MetalПродолжительность: 06:37:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58990DF4F03FA01904503772A57ACB3E88C17526
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 93996   (331747) от 15.10.2019
 
 Soulfly - 8albums + 2EPs + 3singles (1998-2012) [MP3|320kbps] <Groove/Thrash Metal>
@@ -6,7 +35,7 @@ Soulfly - 8albums + 2EPs + 3singles (1998-2012) [MP3|320kbps] <Groove/Thrash Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331747.jpg" />
 </div>
 
 
@@ -36,7 +65,7 @@ The Hu - Rumble Of Thunder (2022) [MP3|320 Kbps] <Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331701.jpg" />
 </div>
 
 
@@ -65,7 +94,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331611.jpg" />
 </div>
 
 
@@ -100,7 +129,7 @@ Forgotten Tomb - Nihilistic Estrangement (2020) [FLAC|Lossless|image + .cue] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331410.jpg" />
 </div>
 
 
@@ -129,7 +158,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331367.jpg" />
 </div>
 
 
@@ -158,7 +187,7 @@ Ancillotti - Hell On Earth (2020) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331356.jpg" />
 </div>
 
 
@@ -187,7 +216,7 @@ Scardust - Strangers (2020) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331354.jpg" />
 </div>
 
 
@@ -216,7 +245,7 @@ Big Bad Bubba - Unleashed (2003) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331290.jpg" />
 </div>
 
 
@@ -245,7 +274,7 @@ Perfect Plan - Time For A Miracle (2020) Jараnеsе Еditiоn [FLAC|Lossless|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331287.jpg" />
 </div>
 
 
@@ -274,7 +303,7 @@ Celtic Frost - Morbid Tales / Emperor's Return (1985) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331285.jpg" />
 </div>
 
 
@@ -303,7 +332,7 @@ Draconian - Under A Godless Veil (2020) [FLAC|Lossless|image + .cue] <Gothic Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331280.jpg" />
 </div>
 
 
@@ -332,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331279.jpg" />
 </div>
 
 
@@ -361,7 +390,7 @@ Bruce Springsteen - Letter To You (2020) [FLAC|Lossless|tracks + .cue] <Rock, Fo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331199.jpg" />
 </div>
 
 
@@ -390,7 +419,7 @@ Nickelback - No Fixed Address (2014) [FLAC|Lossless|WEB-DL]<Rock, Alternative Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330997.jpg" />
 </div>
 
 
@@ -419,7 +448,7 @@ Jeff Lynne’s ELO (Electric Light Orchestra) - Alone In The Universe (2015) Del
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330985.jpg" />
 </div>
 
 
@@ -448,7 +477,7 @@ Uriah Heep - Totally Driven (2015) 2CD [MP3|320 кб/с]<Hard Rock, Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330978.jpg" />
 </div>
 
 
@@ -477,7 +506,7 @@ Imaginaerium - The Rise Of Medici (2022) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330890.jpg" />
 </div>
 
 
@@ -506,7 +535,7 @@ Roadhouse - Roadhouse (1991) [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330889.jpg" />
 </div>
 
 
@@ -535,7 +564,7 @@ Autopsy - Morbidity Triumphant (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330888.jpg" />
 </div>
 
 
@@ -564,7 +593,7 @@ Robot God - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Sto
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330887.jpg" />
 </div>
 
 
@@ -591,7 +620,7 @@ Lord of Confusion - Evil Mystery (2022) [FLAC|Lossless|WEB-DL|tracks] <Psych Sto
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330885.jpg" />
 </div>
 
 
@@ -620,7 +649,7 @@ Marenna - Voyager (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330882.jpg" />
 </div>
 
 
@@ -649,7 +678,7 @@ Quantum Twilight - Hypersonic Demolition (2022) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330881.jpg" />
 </div>
 
 
@@ -678,7 +707,7 @@ The Dead Daisies - Radiance (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330880.jpg" />
 </div>
 
 
@@ -707,7 +736,7 @@ Infidel Rising - A Complex Divinity (2022) [FLAC|Lossless|WEB-DL|tracks] <Power,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330879.jpg" />
 </div>
 
 
@@ -721,35 +750,6 @@ Infidel Rising - A Complex Divinity (2022) [FLAC|Lossless|WEB-DL|tracks] <Power,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0906BDA2C73C62349A7178E41909AF56C87E2363
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580303   (330878) от 01.10.2022
-
-Vanilla Fudge - Vanilla Zeppelin (2005) Remastered, 2022, Golden Robot Records [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330878.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Rock and Roll
-2.Immigrant Song
-3.Ramble On
-4.Dancing Days?(   Читать дальше...   )Жанр: Psychedelic Rock, Stoner RockПродолжительность: 01:02:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:216D30ACCB88F1E9683556A509C13598E2B802A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,164 +1,3 @@
-###  Публикация: 1443985   (1035098) от 30.01.2021
-
-Марк Молнар | За пикселями: от эскизов до финального концепт дизайна / Behind the Pixels: From Sketches to Polished Concept Design (2015) [PDF] [En]
-
->>Компьютерная литература
->>2D графика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полноцветный 288-страничный учебник артбук с 32+ углубленными уроками от эскизов до детального концепт дизайна. Книга включает в себя более 300 работ более чем 30 профессионалов отрасли, работающих в настоящее время в области высококлассных фильмов, анимации и игр.Жанр: 2D графика, Концепт дизайнФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5984FC7985614430A1822EB640735D7C952E13D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443936   (1035072) от 30.01.2021
-
-ImagineFX | Как рисовать анатомию / How to Draw and Paint Anatomy [2 книги] (2010-2014) [PDF]
-
->>Компьютерная литература
->>2D графика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это специальная подборка уроков, представляющая собой полное руководство по анатомии человека и животных, выпущенного в формате журнала. Понимание анатомии - основа великолепных художественных работ и эта подборка от лучших мировых художников-профессионалов позволит художникам любого уровня воплотить своё искусство в жизнь.Жанр: 2D графикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8A2D9D444A621D1F95A9043F21AC5FAEB496F29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444414   (1034605) от 01.02.2021
-
-Владимир Силва | Разработка с использованием квантовых компьютеров (2020) [PDF, EPUB]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Квантовые вычисления не просто меняют реальность! Совершенно новая отрасль рождается на наших глазах, чтобы создать немыслимое ранее и обесценить некоторые достижения прошлого.
-В этой книге рассмотрены наиболее важные компоненты квантового компьютера: кубиты, логические вентили и квантовые схемы, а также объясняется отличие квантовой архитектуры от традиционной. (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BBA400C872580E011DC7B6E599F4482B69E6A08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442807   (1034508) от 01.02.2021
-
-Кэй С. Хорстман | Современный JavaScript для нетерпеливых (2021) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Язык JavaScript изначально был предназначен для написания небольших объемов кода внутри браузера, но современный JavaScript радикально отличается от своего прародителя. В наши дни программисты на JavaScript активно
-осваивают функциональный, объектно-ориентированный и асинхронный стили программирования, оставляя в прошлом архаичные конструкции, чреватые ошибками. (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACB29B59CB3F26900AB5DA84589507279A3D17D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617953   (1034496) от 09.03.2023
-
-М.Г. Радченко, Е.Ю. Хрусталева | 1С:Предприятие 8.3: Практическое пособие разработчика. Примеры и типовые приемы (2023) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034496.jpg" />
-</div>
-
-
-###  Подробнее
-
-Особенности нового 3-е издания:
-Все иллюстрации в режиме работы "1С:Предприятие" соответствуют актуальному интерфейсу платформы версии 8.3.22;
-В примерах и демонстрационных базах даты изменены на 2022 год;
-Пример с диаграммой Ганта адаптирован к новым возможностям диаграммы, которые появились в последних версиях платформы;(   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF7B312B6409490BB2346D50EEDA33F8B31C9EB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444700   (1034329) от 02.02.2021
-
-Керниган Брайан | Время UNIX. A History and a Memoir (2021) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Операционная система Unix завоевала мир, чего совсем не могли представить ее создатели, творя историю на последнем этаже Bell Labs в 1969 году. Идея этой ОС оказала колоссальное влияние на разработку программного обеспечения и развитие операционных систем. Вы узнаете о том, как зарождалась система Unix, чем она примечательна и почему занимает столь важное место в (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C69423EDE6B3BD590167C1D863F5D975A96FA1E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1444626   (1034310) от 02.02.2021
 
 Владимир Хориков | Принципы юнит-тестирования (2021) [PDF]
@@ -167,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034310.jpg" />
 </div>
 
 
@@ -193,7 +32,7 @@ John Paul Mueller | Beginning Programming with Python For Dummies, 3rd Edition (
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034305.jpg" />
 </div>
 
 
@@ -219,7 +58,7 @@ Alan Alickovic | React Application Architecture for Production (2023) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034297.jpg" />
 </div>
 
 
@@ -245,7 +84,7 @@ Daniel Chen | Pandas for Everyone: Python Data Analysis, 2nd Edition (2023) [PDF
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033810.jpg" />
 </div>
 
 
@@ -271,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033644.jpg" />
 </div>
 
 
@@ -297,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033598.jpg" />
 </div>
 
 
@@ -323,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033378.jpg" />
 </div>
 
 
@@ -349,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032431.jpg" />
 </div>
 
 
@@ -375,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032160.jpg" />
 </div>
 
 
@@ -403,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031698.jpg" />
 </div>
 
 
@@ -431,7 +270,7 @@ Larry L. Peterson, Bruce S. Davie | Computer Networks: A Systems Approach / Ко
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031286.jpg" />
 </div>
 
 
@@ -457,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031261.jpg" />
 </div>
 
 
@@ -483,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030843.jpg" />
 </div>
 
 
@@ -509,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030816.jpg" />
 </div>
 
 
@@ -535,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030600.jpg" />
 </div>
 
 
@@ -561,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030370.jpg" />
 </div>
 
 
@@ -588,7 +427,7 @@ S. Basu | Java Programming For Kids ages 12 – 18 : Simple, Concise & Easy guid
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029493.jpg" />
 </div>
 
 
@@ -614,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029293.jpg" />
 </div>
 
 
@@ -640,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028806.jpg" />
 </div>
 
 
@@ -666,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028672.jpg" />
 </div>
 
 
@@ -677,6 +516,164 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2B4AA2960226672887C96E9EEF429D7A5A69B7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451155   (1028633) от 28.02.2021
+
+Аскон | Обучающие материалы [6 книг] (2020) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028633.jpg" />
+</div>
+
+
+###  Подробнее
+
+КОМПАС — лучшая система автоматизированного проектирования, позволяющая в оперативном режиме выпускать чертежи изделий, схемы, спецификации, таблицы, инструкции, расчетно-пояснительные записки, технические условия, текстовые и прочие документы. Изначально система ориентирована на оформления документации в соответствии с ЕСКД, ЕСТД, СПДС и международными стандартами, (   Читать дальше...   )Жанр: Системы проектированияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E236AAE688FD14309B1D0FEEFA56D6852EE11C55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451058   (1028622) от 28.02.2021
+
+А.И. Белоус, В.А.Солодуха | Кибероружие и кибербезопасность. О сложных вещах простыми словами (2020) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга по широте охвата проблемы, новизне и практической значимости является фактически энциклопедией по кибербезопасности. Здесь вы найдете многочисленные примеры применения информационных атак, а также наиболее эффективные методы защиты от их воздействия. В доступной форме изложены теоретические основы информационной безопасности и базовые технологии защиты информации. (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EB68669E413764CD22D4230FE7EA4DE9D56F53D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451109   (1028607) от 28.02.2021
+
+Марко Фаэлла | Стильный Java. Код, который работает всегда и везде (2021) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028607.jpg" />
+</div>
+
+
+###  Подробнее
+
+В современном мире разработки успешность приложения уже не определяется параметром "просто работает". Хороший программист должен знать возможности языка, практические приемы проектирования и платформенные средства для достижения максимальной производительности и жизнеспособности программ. Эта книга написана для разработчиков, которые хотят создавать качественный (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7070CC1133CFF508A238CC231CA3AF7D72614A4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451848   (1027984) от 04.03.2021
+
+Андрей Столяров | Программирование введение в профессию. В 3-х томах. 2- издание (2021) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027984.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник «Программирование: введение в профессию» ориентирован на самостоятельное изучение и предполагает использование систем семейства Unix (в т. ч. Linux) в роли сквозной среды для обучения.
+Книга в 3-х томах все части которого объединены использованием Unix-систем в качестве единой учебной операционной среды. Учебник ориентирован в основном на самостоятельное (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23CB883C64969E5DFE330574B12D8667C5440F87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454602   (1026180) от 15.03.2021
+
+В.Б. Иванов | Программирование микроконтроллеров для начинающих. Визуальное проектирование, язык С, ассемблер (2016) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор книги подробно освещает все основные вопросы изучения программирования микроконтроллеров, постепенно - от простого к сложному. В книге дается описание архитектуры и систем команд микроконтроллеров PIC
+ Детально рассматривается визуальное проектирование в среде Flowcode. Это дает возможность получать выполняемый код без специальных навыков программирования на (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F90BB990892023227DACAF521FBE92DA22D99681
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454542   (1026176) от 15.03.2021
+
+Пьер-Ив Симон | Волшебство Kotlin (2020) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026176.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kotlin - один из самых новых языков в экосистеме Java, устраняющий многие ограничения Java и гораздо более универсальный. Среди его преимуществ: полная совместимость с Java и возможность интеграции на уровне исходного кода, широкая поддержка парадигмы функционального программирования, помогающая писать надежный и безопасный код, лаконичность синтаксиса, а также, (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:279BDDC28ACCE198303E9596D6231F706EA3D2EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

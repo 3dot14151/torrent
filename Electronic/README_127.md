@@ -1,3 +1,61 @@
+###  Публикация: 1506270   (799132) от 02.11.2021
+
+Tiësto - Musical Freedom Radio October (2021-10-16) [MP3|320 Kbps] <Electro House, Big Room>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiesto & Karol G - Don't Be Shy
+02. Kiko Franco & Bruno Be - Friday Night (It's Not Right)
+03. Mr. Belt & Wezol ft. Yasmin Jane - Broken Moonlight
+04. KREAM & Millean. ft. Bemende - What You've Done To Me(   Читать дальше...   )Жанр: Electro House, Big RoomПродолжительность: 00:59:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08FEBD48A557495DA48C3DF79955608130343C1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506967   (799101) от 02.11.2021
+
+VA - A Day to Chill: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Apres Sun (Original Mix) (4:06)
+02. Chris le Blanc - Melville Sings the Blues (Album Mix) (3:34)
+03. Living Room - A Cup of Jazz (Original Mix) (3:42)
+04. Pier-O - Cocktail Tune (4:46)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:53:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7655D6EBA24E057F8F188AA17E29E9C13FA942DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506964   (799093) от 02.11.2021
 
 Charlotte de Witte - DJ Mag Alternative Top 100 DJs Winner Set (2021-10-27) [MP3|320 Kbps] <Techno>
@@ -6,7 +64,7 @@ Charlotte de Witte - DJ Mag Alternative Top 100 DJs Winner Set (2021-10-27) [MP3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799093.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Qrion - I Hope It Lasts Forever (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799091.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Fatboy Slim - Everybody Loves A Mixtape Podcast (2021) [MP3|192 Kbps] <house, te
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799087.jpg" />
 </div>
 
 
@@ -90,7 +148,7 @@ Ummet Ozcan - Tomorrowland Friendship Mix (2021-10-28) [MP3|320 Kbps] <Big Room>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799049.jpg" />
 </div>
 
 
@@ -119,7 +177,7 @@ Foretaste - 8 Albums (2005-2021) [MP3|320 кб/с] <Electronic, Synthpop, Electr
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798945.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ Mehdi Saleh aka: Alphaxone, Inner Place, Monolith Cycle, Spuntic - Discography 5
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798934.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ VA - Spring Collection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798886.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ VA - Quiet Zone Just Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798885.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ VA - Spring Times Vol 1 (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798881.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ Third Party - Hope (2017) [MP3|320 Kbps] <Big Room, Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798875.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ VA - Summer Chillout, The Best of Buddha Ambient Experience and Chill Zone (2017
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798873.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ Michael E - Autumn (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798871.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ VA - Deep House April 2017 Top 10 Best of Collections (2017) [MP3|320 Kbps] <Dee
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798863.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ Jade 4U - Jade's Dream (1988) LP [MP3|320 Kbps] <Electronic, New Beat>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798847.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ VA - Acoustic Pop Covers Volume 1 (2017) [MP3|320 Kbps] <Downtempo, Acoustic, In
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798846.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ VA - Ibiza Session 2017: For DJs Only (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798829.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ VA - Jazz Mood Cocktail 25 Instrumental Jazz Music Soundtrack for Bar Restaurant
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798810.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ Pet Shop Boys - Undertow (2017) Single [FLAC|Lossless|tracks + .cue] <House, Tec
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798796.jpg" />
 </div>
 
 
@@ -524,7 +582,7 @@ VA - Tribe Vibe 2018 (2018) [MP3|320 Kbps] <Soulful House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798780.jpg" />
 </div>
 
 
@@ -553,7 +611,7 @@ Kritical Audio - Krupp EP (2006) Chillosophy Music [FLAC|Lossless|WEB-DL|tracks]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798777.jpg" />
 </div>
 
 
@@ -581,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798776.jpg" />
 </div>
 
 
@@ -610,7 +668,7 @@ Kritical Audio - Katacomb (2011) Detroit Underground [FLAC|Lossless|WEB-DL|track
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798774.jpg" />
 </div>
 
 
@@ -639,7 +697,7 @@ Oren Ambarchi - Grapes From The Estate (2004) Touch [FLAC|Lossless|tracks+.cue] 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798772.jpg" />
 </div>
 
 
@@ -668,7 +726,7 @@ Dead Or Alive - Fan the Flame (Pt. 1) (1990) Invincible Edition, 2021,  Demon Mu
 >>Synthpop, New Wave, Retro (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798437.jpg" />
 </div>
 
 
@@ -682,64 +740,6 @@ Dead Or Alive - Fan the Flame (Pt. 1) (1990) Invincible Edition, 2021,  Demon Mu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6C71BD8AF03E8CB0B3AA2008FDCFDE18D730302
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507603   (798294) от 05.11.2021
-
-Josh Le Tissier - Ministry of Sound - HD Life presents Fresher Land (2021-10-07) [MP3|320 Kbps] <Electro House, Big Room, Bass House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiësto - The Business (SWACQ Remix)
-02. FETISH - The Door
-03. Kriss Reeve & Repiet - Anybody
-04. Keanu Silva - King Of My Castle (Don Diablo Edit)(   Читать дальше...   )Жанр: Electro House, Big Room, Bass HouseПродолжительность: 00:59:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE7AFA582364609C7E41CE282E9CC88444FB7A9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507500   (798293) от 05.11.2021
-
-VA - Live @ ABGT 450, (The Drumsheds London, United Kingdom) (2021-09-04) [MP3|320 Kbps] <Progressive House, Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Above & Beyond @ ABGT 450 (Deep Warm Up Set), River Lea London, United Kingdom:
-01. Ben Bohmer feat. lau.ra - Erase
-02. Powel - Chapek 9
-03. Fehrplay - ID(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 09:55:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:607FC8BD3F0B493C485619A1407ACC949A947BE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

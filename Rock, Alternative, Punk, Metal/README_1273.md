@@ -1,3 +1,32 @@
+###  Публикация: 1802637   (14216) от 18.06.2025
+
+Машина Времени - Пой со мной! (2025) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Откуда этот свет
+02. Здесь не жила любовь
+03. Мне снится серое море
+04. Назови хоть одну причину(   Читать дальше...   )Жанр: RockПродолжительность: 00:21:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23C0646F5220D308EC54722A8FD96ADD582EB0A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1803000   (13923) от 21.06.2025
 
 Black Sabbath - Greatest Hits Broadcast Collection: Black Sabbath (2025) [MP3|320 Kbps] <Hard-Rock, Heavy-Metal>
@@ -6,7 +35,7 @@ Black Sabbath - Greatest Hits Broadcast Collection: Black Sabbath (2025) [MP3|32
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13923.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Queen - Heavy (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive-Rock, Glam
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13799.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Sinphonia - The Divine Disharmony (2002) [FLAC|Lossless|image + .cue] <Prog Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13683.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Orianthi - Some Kind of Feeling (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13285.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Bruce Springsteen - Tracks II: The Lost Albums (2025) [MP3|320 Kbps] <Rock, Folk
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13282.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Late Night Savior - Rebirth (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Me
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13262.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Crystal Viper - The Live Quest (2025) Live [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13261.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Jakko Jakszyk - Son Of Glen (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13258.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Defenders of the Faith - Odes To The Gods (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13248.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Motorhead - The Manticore Tapes (1977) Reissue, Remastered, 2025, Sanctuary Reco
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13244.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Queen - Riffs (Remastered 2011) (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13141.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Circus Of Rock - Hellfire (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12968.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Nightingale - Invisible (2004) Reissue, Remastered, 2024, InsideOutMusic [FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12949.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Transcendence - Nothing Etched in Stone, Part. I (2025) [FLAC|Lossless|WEB-DL|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12948.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Wilco - Being There (1996) Reissue, Remastered, Deluxe Edition, Box Set, 2017, R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12945.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Sleep Paralysis - Sleep Paralysis (2025) [FLAC|Lossless|WEB-DL|tracks] <Avant-Ga
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12753.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Burnt By Hatred - Myth Or Mortal (2025) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12752.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Voracite - White Phosphorus (2025) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12751.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ MYR - Helvegen (2025) [MP3|320 Kbps] <Black Metal, Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12750.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Warfield - With the Old Breed (2025) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12749.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Versatile - Les Litanies du Vide (2025) [MP3|320 Kbps] <Black, Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12748.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Ulvarg - Ulvarg (2025) [MP3|320 Kbps] <Symphonic Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12745.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Skracken - Echoes From The Void (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12744.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Venator - Psychodrome (2025) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12743.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ UFO(Unidentified Flying Objects) - Champions Of Rock (1996) Compilation [FLAC|Lo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12730.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ UFO(Unidentified Flying Objects) - Champions Of Rock (1996) Compilation [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB7BC74C435130EC5B65AE0AB7330E6DEBF12FCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804911   (12646) от 03.07.2025
-
-Bruce Springsteen - Lost And Found (Selections From The Lost Albums) (2025) Compilation [FLAC|Lossless|tracks + .cue] <Folk Rock, Pop Rock, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12646.jpg" />
-</div>
-
-
-###  Подробнее
-
-from LA Garage Sessions '83:
-01 - Follow That Dream [3:54]
-02 - Seven Tears [1:52]
-03 - Unsatisfied Heart [5:46](   Читать дальше...   )Жанр: Folk Rock, Pop Rock, RockПродолжительность: 01:19:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDD9B35366E30B8E7B7C2F9FB509451F71575718
 ```
 
 https://mybot314.ru/tekegram_catalog/

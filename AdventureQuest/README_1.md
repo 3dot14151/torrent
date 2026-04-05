@@ -1,3 +1,81 @@
+###  Публикация: 1848969   (1053188) от 20.01.2026
+
+Emerald Valley (2025) [Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Emerald Valley - это постепенное составление целостной картины из разрозненных фрагментов истины, сокрытой в знакомых, но тревожных пейзажах. Атмосферу гнетущей неопределенности усиливают доносящиеся издалека странные звуки, а также разбросанные по укромным местам записки и камни необычной формы. Протагонист прибывает в долину в качестве туриста, рассчитывая на спокойный (   Читать дальше...   )Тип издания: SceneРазработчик: JIMIJMI19Жанр: Приключенческие игры, Казуальные игры, Инди, Ролевые игры, СтратегииЯзык субтитров: Английский, Китайский (упрощенный)Язык интерфейса: Английский, Китайский (упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E4F53EB3FF88ABE5A2A38493F35E8060BE0D5C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848962   (1053187) от 20.01.2026
+
+1000 Deaths / Thousand Deaths (2025) [Ru/Multi] (1.0.5.20250809) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053187.jpg" />
+</div>
+
+
+###  Подробнее
+
+1000 Deaths представляет собой 3D-платформер, в котором гравитация переориентируется на поверхность, к которой прикасается персонаж. Проект отслеживает развитие 4 разных игровых персонажей, прослеживая их жизненный путь от зарождения до финала. Принятые решения влекут за собой ощутимые последствия, в свою очередь формирующие платформенные испытания и доступные сюжетные (   Читать дальше...   )Тип издания: RepackРазработчик: Pariah Interactive, Inc.Жанр: Приключенческие игры, Казуальные игры, ИндиЯзык субтитров: Русский, Английский, Японский, Французский и другиеЯзык интерфейса: Русский, Английский, Японский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94D00142D30FC471C447F5D7E16C1362CCBCD500
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848807   (1053067) от 24.01.2026
+
+Mai: Child of Ages (2025) [Ru/Multi] (1.13) Repack Let'sРlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Следуй за Май в её путешествии по разрушенному миру в поисках своей личности и происхождения таинственных существ, угрожающих равновесию вселенной. Путешествуй вместе с ней сквозь прошлое и будущее и открой связь между ней и загадочной фигурой, которая станет её проводником в приключении. Исследуй подземелья в стиле Zelda и обучай её управлять таинственным Камнем (   Читать дальше...   )Тип издания: RepackРазработчик: Chubby PixelЖанр: Экшены, Приключенческие игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6E5FFA585FB8E101815D05447852A5E6950D011
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1848500   (1052659) от 17.01.2026
 
 Письма войны / Letters of War (2025) [Ru/Multi] (1.3.5) Repack Let'sРlay
@@ -6,7 +84,7 @@
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052659.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Call of Cthulhu: Prisoner of Ice (1995) [En] (1.01 v2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052280.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Keeper (2025) [Ru/Multi] (1218000) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052072.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Moons of Madness (2019) [Ru/Multi] (1.02) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052054.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Not an Aim Trainer (2025) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051989.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Island Notes (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051976.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Flushed (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051935.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Chiral (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051934.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Onirism (2025) [Ru/Multi] (Build 21313783) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051624.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Emissary Zero (2025) [Ru/Multi] (1.2.3) Scene Tenoke [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051618.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Isopod: A Webbed Spin-off (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051456.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ DREAMOUT (2025) [Ru/Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051356.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Scarred (2025) [Multi] (1.25) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050982.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Temple of the Green Moon / Храм Зеленой Луны (2025) [Ru/En] (1.0)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050795.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Temple of the Green Moon / Храм Зеленой Луны (2025) [Ru/En] (1.0)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050794.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (Build 21053667) Repack Hardw
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050525.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Bendy and the Dark Revival (2022) [Ru/Multi] (1.0.4.0332) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050496.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Mai: Child of Ages (2025) [Ru/Multi] (1.09) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050366.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ As Dusk Falls (2022) [Ru/Multi] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050210.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ The House in Fata Morgana (2016) [Ru/Multi] (1.3it) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049861.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Fuzz Dungeon (2021) [En] (1.3c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049848.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ JEF (2020) [En] (1.1c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049833.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Rue Valley (2025) [Ru/Multi] (1.1.0v11/dlc) Repack Necros [Digital Deluxe Editio
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049797.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Rue Valley (2025) [Ru/Multi] (1.1.0v11/dlc) Repack Necros [Digital Deluxe Editio
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17F80EB144760A739C0A5F223EDA93205FE5A316
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843989   (1049641) от 23.12.2025
-
-Heroes of Loot 2 (2016) [En] (1.5.2b) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Heroes of Loot 2 - продолжение пиксельного рогалика о приключениях отважной команды героев, которые вознамерились добыть кучу сокровищ из случайно генерируемых и смертельно опасных подземелий! После того как герои возобновили баланс в подземельях в игре Heroes of Loot, им требуется новая работа. В Heroes of Loot 2 они отправляются в замок спасать заточенную в нем (   Читать дальше...   )Тип издания: LicenseРазработчик: OrangepixelЖанр: Приключенческие игрыЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3CD6DF6AABBCE2511C8B3B25B7498948BE0AF7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843403   (1049438) от 20.12.2025
-
-Panicore (2024) [Ru/Multi] (1.3) Repack FitGirl [Supporter Pack]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Panicore бросает вас в кошмар в роли городских исследователей. Вы и ваши друзья, любители острых ощущений, которых привлекают жуткие заброшенные места, игнорируете предупреждения и отправляетесь в жуткое место. Но исследование принимает крутой оборот, когда вы обнаруживаете, что оказались в ловушке. Невидимая сила блокирует выход, а в тенях таятся ужасные существа. (   Читать дальше...   )Тип издания: RepackРазработчик: ZTEK StudioЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DD2005D26611B03C5B5E52D925F8DE5F6E8F804
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843402   (1049437) от 20.12.2025
-
-Panicore (2024) [Ru/Multi] (1.3) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049437.jpg" />
-</div>
-
-
-###  Подробнее
-
-Panicore бросает вас в кошмар в роли городских исследователей. Вы и ваши друзья, любители острых ощущений, которых привлекают жуткие заброшенные места, игнорируете предупреждения и отправляетесь в жуткое место. Но исследование принимает крутой оборот, когда вы обнаруживаете, что оказались в ловушке. Невидимая сила блокирует выход, а в тенях таятся ужасные существа. (   Читать дальше...   )Тип издания: SceneРазработчик: ZTEK StudioЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0734C74EAA6B7342BE208ABCC59D00E4C1007FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

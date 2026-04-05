@@ -1,32 +1,3 @@
-###  Публикация: 1027961   (692964) от 21.06.2016
-
-Power Glove - Trials Of The Blood Dragon (Original Game Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vietnam War IV (01:41)
-02. Trials of the Blood Dragon (03:37)
-03. Bullet Proof (01:51)
-04. Punch! (02:59)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4154764632BE58EDD4AF5ABACB35180B625C5C00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 332190   (691821) от 08.05.2011
 
 OST Лара Крофт: Расхитительница гробниц 2 - Колыбель жизни / Lara Croft Tomb Raider: The Cradle of Life  [MP3|320 Кбит/сек]<Soundtrack>
@@ -35,7 +6,7 @@ OST Лара Крофт: Расхитительница гробниц 2 - Ко�
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691821.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Andrew Lockington, VA - The Space Between Us / Космос между нами 
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691486.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Really Slow Motion - Of Mist and Magic (2014) [MP3|320 Kbps CBR] <Soundtrack, In
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691411.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Really Slow Motion - Charged (2015) [MP3|320 Kbps CBR] <Soundtrack, Instrumental
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691181.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Really Slow Motion - Elevation (2014) [MP3|320 Kbps CBR] <Soundtrack, Instrument
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691074.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Paul Leonard-Morgan - Warhammer 40,000: Dawn of War III (Official Game Soundtrac
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691073.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Audiomachine - Worlds of Wonder (2017) [MP3|320 Kbps CBR] <Soundtrack, Instrumen
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690879.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Daniel Pemberton - Mal De Pierres / From The Land Of The Moon / Иллюзия �
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689378.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Mandy Hoffman - The Lovers / Любовники (Original Motion Picture Soundtr
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689374.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Really Slow Motion - Battle Angel (2016) [MP3|320 Kbps] <Soundtrack, Instrumenta
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689244.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Audiomachine - Magnus & Magnus: B-Sides (2015) 2 CD [MP3|320 Kbps|CBR] <Soundtra
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689213.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Hans Zimmer, Lorne Balfe - Genius / Гений (National Geographic Original Ser
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689207.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Danny Elfman - The Circle / Сфера (Original Motion Picture Soundtrack) (201
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689099.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Danny Bensi & Saunder Jurriaans - LA 92 / Лос-Анджелес 92 (Original N
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687429.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Ramin Djawadi - Game of Thrones / Игра престолов (Music from the HB
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686101.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Bear McCreary - God of War (2018) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684816.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Martin Iveson - Fighting Force 2 (1999) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684545.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Daniel Pemberton - The Counselor / Советник (Original Motion Picture Sou
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682911.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Alan Silvestri - Мстители: Война бесконечности / Aveng
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682610.jpg" />
 </div>
 
 
@@ -589,7 +560,7 @@ Theodore Shapiro and Ludwig Goransson - Central Intelligence / Полтора ш
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682464.jpg" />
 </div>
 
 
@@ -618,7 +589,7 @@ Rupert Gregson-Williams - The Legend of Tarzan / Тарзан. Легенда (O
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682461.jpg" />
 </div>
 
 
@@ -647,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676055.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ VA - Baywatch / Спасатели Малибу (Music From The Motion Picture) 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672537.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ VA - The Witcher (Collection Original Soundtrack) (2008-2016) [MP3|320 кб/с]<
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671839.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ Kitchen - Кухня (2008) [MP3|256 кб/с]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_670316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_670316.jpg" />
 </div>
 
 
@@ -751,6 +722,35 @@ Kitchen - Кухня (2008) [MP3|256 кб/с]<Soundtrack>
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031143   (668594) от 03.07.2016
+
+John Williams - The BFG / Большой и добрый великан (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture (01:19)
+02. The Witching Hour (04:41)
+03. To Giant Country (02:34)
+04. Dream Country (10:11)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:04:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFD8BC4782AA459629EF123978629C92D171BF0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 1192821   (262729) от 18.12.2017
+
+Татьяна Попова | Волшебный банкомат. Детям об экономике (2017) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262729.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга познакомит ребёнка с занимательным миром денег, труда и хозяйства. В компании с главными героями читатель отправится на экзотический остров, чтобы постичь основы экономического мышления. Сказочный сюжет, исторические справки и игровые задания помогут малышу найти ответ на вопрос "Для чего нужны деньги?". Перед каждой главой размещены рекомендации, (   Читать дальше...   )Жанр: Познвательная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DAEFD052D678817D6A8AD770EE5D1891115D69B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341384   (262598) от 27.11.2019
+
+Лариса Суркова | Ребенок от 3 до 7 лет. Интенсивное воспитание (2015) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Суркова Лариса - мама 4 детей, а также кандидат психологических наук и практикующий психолог, ведущая в Instagram. Занимается вопросами детской и семейной психологии.
+Ваш ребенок подрос, он уже говорит, читает, активно познает мир, и вам кажется, что он уже большой и самостоятельный? Поверьте, это не так! Ему по-прежнему нужна ваша помощь, поддержка и защита. В это (   Читать дальше...   )Жанр: Детская психология, воспитание детейФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A17E1CE572CCFF25A56177D043FE24C9DBEA7E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1341183   (262592) от 27.11.2019
 
 И.В. Ященко (ред.) | ЕГЭ 2020. Математика. Профильный уровень. 10 вариантов. Типовые тестовые задания от разработчиков ЕГЭ (2020) [PDF]
@@ -6,7 +59,7 @@
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262592.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262577.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262445.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262444.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262417.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262378.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262342.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262192.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262168.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262115.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261902.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261869.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261748.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261689.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261688.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261685.jpg" />
 </div>
 
 
@@ -429,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261610.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261286.jpg" />
 </div>
 
 
@@ -483,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261258.jpg" />
 </div>
 
 
@@ -510,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261142.jpg" />
 </div>
 
 
@@ -537,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261119.jpg" />
 </div>
 
 
@@ -563,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261022.jpg" />
 </div>
 
 
@@ -589,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260945.jpg" />
 </div>
 
 
@@ -615,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260927.jpg" />
 </div>
 
 
@@ -626,59 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC74A4FFAD34A983A8DF38EFC43B101122768480
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 505200   (260919) от 03.06.2012
-
-И.В.Мальцева  | Раннее развитие: лучшие методики и игры [2008] [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260919.jpg" />
-</div>
-
-
-###  Подробнее
-
-И. В. Мальцева, известный методист и педагог, много лет занимается разработкой развивающих пособий и игр, помогая малышам от 0 до 3 лет успешно осваивать навыки письма, чтения и счета. В своей новой книге она рассказывает о лучших методиках раннего развития. Опыт трех замечательных ученых, педагогов-практиков разных времен — М. Монтессори, Г.Домана и Н.А.Зайцева — представлен на страницах книги не только в виде идей и суждений, но, главное, в виде конкретных способов обучения, легко применимых в домашних условиях. Используя эти методики и игры, каждая-мама сможет самостоятельно организовать процесс обучения, развить интеллект малыша и укрепить здоровье своего ребенкаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3EBA060D850E5D7C21E4DAFE5FAA53ADBC21961
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838509   (260916) от 23.11.2025
-
-К.Д. Арон (ред.) | Охотник и Змея (1983) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260916.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга содержит удмуртскую народную сказку, которая является фольклорным произведением. Она рассказывает об охотнике, который проявляет милосердие к змее, несмотря на сомнения (он знает, что змеи опасны).
-Мораль - не стоит ждать благодарности от того, кто по своей природе зол или неблагодарен, а доброта может быть наказана.Жанр: СказкаИздательство: Детская литератураФормат: PDF, DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:156609BC8D9FFF645BC6FA56FB8C594D817EFCD8
 ```
 
 https://mybot314.ru/tekegram_catalog/

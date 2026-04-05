@@ -1,3 +1,32 @@
+###  Публикация: 950630   (367750) от 27.10.2015
+
+Бригадный Подряд - Новый сезон (2015) [MP3|320 кб/с]<Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Телефон
+02. Бубен
+03. Новый сезон
+04. Пёс(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:27:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D248AD6E91F83F09EAD983A8A1F8F9FDA699B4EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416469   (367665) от 16.10.2020
 
 Kataklysm - Unconquered (2020) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
@@ -6,7 +35,7 @@ Kataklysm - Unconquered (2020) [FLAC|Lossless|image + .cue] <Melodic Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367665.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Different Image Project - Where Do You Want Ghosts To Reside (2020) [MP3|320 Kbp
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367657.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Alice Cooper - Alice Cooper FM Broadcast May 1978 (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367655.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Nutz - Nutz Too... (1975) LP, First Press, A&M Records [MP3|320 Kbps] <Rock, Har
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367639.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ John Mellencamp - Cuttin' Heads (2001) [FLAC|Lossless|tracks + .cue] <Classic Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367638.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ ZZ Top - ZZ Top FM Broadcast June 1980 (2020) [MP3|320 Kbps] <Blues Rock, Southe
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367501.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Fever 333 - Wrong Generation (2020) EP [MP3|320 Kbps] <Rapcore, Hardcore Punk, P
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367496.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Cheap Trick - Christmas Christmas (2017) [FLAC|Lossless|WEB-DL|tracks] <Christma
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367477.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ David Gilmour - Rattle That Lock (2015) [FLAC 2.0 24/96|tracks (WEB-DL)] <Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367400.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - Hard Rock Anthems (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367348.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Dire Straits - Dire Straits FM Broadcast April 1979 (2020) [MP3|320 Kbps] <Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367337.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Uriah Heep - Uriah Heep FM Broadcast February 1974 (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367333.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ David Bowie - Five Years 1969-1973 (2015) [FLAC 2.0 24/96|tracks (WEB-DL)] <Rock
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367284.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367268.jpg" />
 </div>
 
 
@@ -406,7 +435,7 @@ VA - Карнавала.Нет XX лет (2020) [MP3|320 Kbps] <Indie Rock, Pop>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367267.jpg" />
 </div>
 
 
@@ -435,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367180.jpg" />
 </div>
 
 
@@ -464,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367171.jpg" />
 </div>
 
 
@@ -493,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367072.jpg" />
 </div>
 
 
@@ -522,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367064.jpg" />
 </div>
 
 
@@ -551,7 +580,7 @@ Pagandom - Hurt as a Shadow (2016) [MP3|320 Kbps] <Technical Thrash, Progressive
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367005.jpg" />
 </div>
 
 
@@ -580,7 +609,7 @@ Painted In Exile - The Ordeal (2016) [MP3|320 Kbps] <Progressive Death Metal, Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367004.jpg" />
 </div>
 
 
@@ -609,7 +638,7 @@ Pighead - Until All Flesh Decays (2016) [MP3|320 Kbps] <Brutal Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367002.jpg" />
 </div>
 
 
@@ -638,7 +667,7 @@ Scarecrow Avenue - Medusa (2016) [MP3|320 Kbps] <Alt.Metal, Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366999.jpg" />
 </div>
 
 
@@ -667,7 +696,7 @@ Starkill - Shadow Sleep (2016) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366885.jpg" />
 </div>
 
 
@@ -696,7 +725,7 @@ Blindead - Ascension (2016) [MP3|320 Kbps] <Post-Metal, Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366884.jpg" />
 </div>
 
 
@@ -710,35 +739,6 @@ Blindead - Ascension (2016) [MP3|320 Kbps] <Post-Metal, Progressive Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16D77B84EA6DC0D94C11B35AC3608E1C9CC163A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070023   (366872) от 07.11.2016
-
-The Quireboys - Homewreckers & Heartbreakers (2008) [FLAC|Lossless|image + .cue] <Hard rock, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Love This Dirty Town
-02. Mona Lisa Smiled
-03. Louder
-04. Fear Within The Lie(   Читать дальше...   )Жанр: Hard rock, GlamПродолжительность: 00:51:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76BE474B82F71957FC4AA8CC7FEF3790F2F90C0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

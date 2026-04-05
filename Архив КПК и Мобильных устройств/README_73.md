@@ -6,7 +6,7 @@ Landlord 2.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396349.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_396112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_396112.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395651.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Hyperlight  1.2.3-1.3.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395111.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Afterlight 1.0.6 [EN]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393937.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Formula Racing: Ultimate Drive (1.3) [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_392205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_392205.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ City Navigator Europe NT 2014.30 + City Navigator Europe NTU 2014.30 (Unicode) [
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391485.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ FIFA 14 by EA SPORTS v1.2.9-1.3.0 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391471.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Blackberry playbook [1024х600]  Универсальный солдат 4 / Uni
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_390020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_390020.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_389883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_389883.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_389873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_389873.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_389831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_389831.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_389829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_389829.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_389738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_389738.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_389736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_389736.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_389734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_389734.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_389724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_389724.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_389672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_389672.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Learn Languages: Rosetta Stone v5.1.0 Unlocked [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386898.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ VPN TRUE v0.0.6.6 [Ru/Multi] - доступ к ресурсам Интернет
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386474.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384780.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384778.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Relax Rain ~ Nature sounds Premium v6.1.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384726.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ CamToPlan AR v3.6.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383152.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Burn The City 1.6 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_382098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_382098.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Paper Glider Crazy Copter 3D 1.4 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_381967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_381967.jpg" />
 </div>
 
 

@@ -1,81 +1,3 @@
-###  Публикация: 1651632   (221242) от 07.08.2023
-
-Летняя книга / Tatil Kitabi / Summer Book (2008) DVD9 [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Много событий произошло в семье Силифке в течение одного лета. Школьник Али возлагает большие надежды на предстоящие каникулы. Его старший брат хочет уйти из военной академии. Дядя, оставивший городскую жизнь, работает мясником в деревне. Мать постоянно подозревает отца в измене, но тот больше занят торговлей цитрусовыми, чем проблемами семьи…Производство: Турция, Нидерланды / Bulut Film и др.Жанр: драмаРежиссер: Сейфи ТеоманАктеры: Танер Бирсел, Тайфун Гунай, Harun Ozuag, Ayten Tokun, Осман Инан, Рыза Акын, Онурджан Элави, Зафер Инан, Экрем Сенель, Махир ОзелПеревод: многоголосый профессиональный (Культура)Язык озвучки: русский, турецкийСубтитры: английские, немецкие, французскиеПродолжительность: 01:28:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:420DBF304EB73F1486A8A5DFFFEA9FA7A9F99CF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513973   (220872) от 01.12.2021
-
-Мстители: Война бесконечности / Avengers: Infinity War (2018) DVD5 [Custom]
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пока Мстители и их союзники продолжают защищать мир от различных опасностей, с которыми не смог бы справиться один супергерой, новая угроза возникает из космоса: Танос. Межгалактический тиран преследует цель собрать все шесть Камней Бесконечности — артефакты невероятной силы, с помощью которых можно менять реальность по своему желанию. Всё, с чем Мстители сталкивались (   Читать дальше...   )Производство: США / Marvel Studios Inc., Indochina Productions, Jason Roberts Productions, South Pictures, Truenorth ProductionsЖанр: Фантастика, фэнтези, боевик, приключенияРежиссер: Энтони Руссо, Джо РуссоАктеры: Роберт Дауни мл., Крис Хемсворт, Марк Руффало, Крис Эванс, Скарлетт Йоханссон, Дон Чидл, Бенедикт Камбербэтч, Том Холланд, Чедвик Боузман, Зои СалданаПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 02:23:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A85BEF491F3A2849BAB2520E1B360F035763CD60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 850779   (220783) от 22.12.2014
-
-Бегущий в лабиринте / The Maze Runner (2014) DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_220783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой — подросток Томас, который просыпается в лифте, но ничего не помнит, кроме своего имени. Он оказывается среди 60 подростков, научившихся выживать в замкнутом пространстве. Раз в 30 дней прибывает новый мальчик. Группа ребят проживает в «Приюте» уже три года. Они кормятся тем, что удается вырастить на земле, и пытаются найти выход из лабиринта, окружающего (   Читать дальше...   )Производство: США, Великобритания, Канада / 20th Century Fox, Ingenious Media, TSG EntertainmentЖанр: Фантастика, триллер, приключенияРежиссер: Уэс БоллАктеры: Дилан О’Брайен, Томас Сэнгстер, Кая Скоделарио, Уилл Поултер, Ки Хонг Ли, Блейк Купер, Амл Амин, Алекс Дж. Флорес, Джейкоб Латимор, Патришия КларксонПеревод: Дублированный (лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Английский, испанский, датский, финский, норвежский, русский, шведский, эстонский, хинди, латышский, литовский, украинскийПродолжительность: 01:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C4524CA345C9A74B57983B7F0EAC3AD83C47D7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269333   (220571) от 14.12.2018
 
 Хан Соло: Звёздные войны. Истории / Solo: A Star Wars Story (2018) DVD5 [Custom]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220571.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220474.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220352.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220003.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219122.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219052.jpg" />
 </div>
 
 
@@ -240,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218842.jpg" />
 </div>
 
 
@@ -266,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216654.jpg" />
 </div>
 
 
@@ -292,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216163.jpg" />
 </div>
 
 
@@ -318,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215728.jpg" />
 </div>
 
 
@@ -344,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215577.jpg" />
 </div>
 
 
@@ -370,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215344.jpg" />
 </div>
 
 
@@ -396,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214408.jpg" />
 </div>
 
 
@@ -422,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214274.jpg" />
 </div>
 
 
@@ -448,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214270.jpg" />
 </div>
 
 
@@ -474,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213624.jpg" />
 </div>
 
 
@@ -500,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213611.jpg" />
 </div>
 
 
@@ -526,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213371.jpg" />
 </div>
 
 
@@ -552,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213262.jpg" />
 </div>
 
 
@@ -578,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212856.jpg" />
 </div>
 
 
@@ -604,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206464.jpg" />
 </div>
 
 
@@ -630,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206150.jpg" />
 </div>
 
 
@@ -656,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205600.jpg" />
 </div>
 
 
@@ -667,6 +589,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F450BEE4862D1F2BA2B0CE9063C8A8DD043FC0C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654644   (205022) от 22.08.2023
+
+Джонни и бомба / Johnny and the Bomb (2006) (3 серии из 3) DVD9 [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205022.jpg" />
+</div>
+
+
+###  Подробнее
+
+13-летний Джонни Максвелл и его друзья помогают эксцентричной бездомной старухе. Оказывается, что её тележка с черными мешками на самом деле - машина времени. Совершив путешествие в 1941 год, Джонни нарушает исторический ход событий, в результате чего германская бомба убивает его бабушку. Теперь Джонни должен вернуться в прошлое, чтобы исправить ход истории и спасти (   Читать дальше...   )Производство: Великобритания / BBC Television Centre, Childsplay ProductionsЖанр: фантастика, драма, комедия, приключения, семейныйРежиссер: Дермот БойдАктеры: Джордж Маккэй, Люсьен Лависконт, Джазмин Фрэнкс, Кайл Херберт, Энтони Бауэрс, Скотт Кэй, Саманта Сигер, Холлидей Грейнджер, Рой Брэндон, Фрэнк ФинлейПеревод: одноголосый любительский (innokent33)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 01:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CFECC616A0AF722EA43FE1CA66871B8C0250D73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654677   (205001) от 22.08.2023
+
+Сальваторе - это и есть жизнь / Salvatore - Questa e la vita / Salvatore, This Is Life (2006) DVD5 [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это рассказ о дружбе мальчика, потерявшего родителей, и его учителя, недавно приехавшего из Северной Италии на Сицилию, где — несмотря на все новшества современной «глобализованной» жизни — сильны старые обычаи. Учитель поражен стойкостью, с которой малыш переносит свое горе, а тот видит в новом учителе своего отца…Производство: Италия / Globe FilmsЖанр: драмаРежиссер: Джан Паоло КуньоАктеры: Энрико Ло Версо, Галатеа Ранци, Люсия Сардо, Маурицио Николози, Алессандро Маллиа, Кончетта д’Амико, Claudia Gennarino, Габриэле Лавиа, Эрнесто Махье, Джанкарло ДжанниниПеревод: авторский (Сергей Кузнецов)Язык озвучки: русский, итальянскийСубтитры: итальянские, английскиеПродолжительность: 01:25:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D708101614AF7CFF73FFFAA359F9DB805F49F07C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654894   (204804) от 23.08.2023
+
+Луна Понтиак / Pontiac Moon (1994) DVD5 [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие комедии происходит в Америке во время первого полета человека на Луну. Школьный учитель, большой чудак, хочет одновременно с высадкой астронавтов на Луну оказаться на месте падения метеорита «Спирали Луны». Он отправляется туда со своим сыном на понтиаке модели «Старый вождь».
+Жена учителя страдает от психического расстройства. Она боится выходить из дома (   Читать дальше...   )Производство: США / Paramount PicturesЖанр: драмаРежиссер: Питер МедакАктеры: Тед Дэнсон, Мэри Стинберген, Райан Тодд, Эрик Швейг, Кэти Мориарти, Макс Гэйл, Лиза Джейн Перски, Дж. К. Куин, Джон Шак, Дон СуэйзиПеревод: авторский (Михаил Иванов)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:46:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A3FD2060B59DA357C8B4A5A2C25609EBEA40A77
 ```
 
 https://mybot314.ru/tekegram_catalog/

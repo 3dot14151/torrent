@@ -1,3 +1,57 @@
+###  Публикация: 1697199   (119100) от 05.02.2024
+
+А. П. Джулай и др. | Культура риса на Кубани (1980) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119100.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге обобщены достижения науки и передовой практики в возделывании риса на Кубани, изложены биологические особенности риса, отношение его к природным факторам, научные основы агротехники, возможности систематического повышения урожаев.
+Книга рассчитана на специалистов производства, руководителей колхозов, совхозов и студентов агрономических факультетов.Жанр: Учебное пособиеИздательство: КраснодарФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89673A5D1EFE17CEBECDA8FC993F43D52DB841AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697260   (119090) от 05.02.2024
+
+Коллектив  авторов | Основные морфологические и апробационные признаки сортов и гибридов зерновых, зернобобовых, крупяных и масличных растений (2000) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119090.jpg" />
+</div>
+
+
+###  Подробнее
+
+В научно обоснованной технологической системе возделывания сельскохозяйственных растений селекция и семеноводство занимают ведущее место как наиболее мощные, экономически дешевые и экологически безвредные рычаги в повышении урожайности и качества растениеводческой продукции.
+Правовую основу развития семеноводческого комплекса России определяют основные положения (   Читать дальше...   )Жанр: Учебно-методическое пособиеИздательство: Советская КубаньФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A47165E1831C78179CDAF20CC973A8781AE786C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697489   (118961) от 06.02.2024
 
 С. Н. Хробостов | Эксплуатация машинно-тракторного парка (1973) [PDF]
@@ -6,7 +60,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118961.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118959.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118954.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118828.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118827.jpg" />
 </div>
 
 
@@ -137,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118814.jpg" />
 </div>
 
 
@@ -163,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118788.jpg" />
 </div>
 
 
@@ -189,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118783.jpg" />
 </div>
 
 
@@ -215,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118778.jpg" />
 </div>
 
 
@@ -242,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118753.jpg" />
 </div>
 
 
@@ -269,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118743.jpg" />
 </div>
 
 
@@ -296,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118477.jpg" />
 </div>
 
 
@@ -322,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118430.jpg" />
 </div>
 
 
@@ -348,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118144.jpg" />
 </div>
 
 
@@ -375,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118137.jpg" />
 </div>
 
 
@@ -401,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118134.jpg" />
 </div>
 
 
@@ -428,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118131.jpg" />
 </div>
 
 
@@ -454,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118128.jpg" />
 </div>
 
 
@@ -480,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118121.jpg" />
 </div>
 
 
@@ -506,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118117.jpg" />
 </div>
 
 
@@ -533,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117866.jpg" />
 </div>
 
 
@@ -559,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117830.jpg" />
 </div>
 
 
@@ -585,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117694.jpg" />
 </div>
 
 
@@ -611,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117445.jpg" />
 </div>
 
 
@@ -623,59 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEAD3CC95610E387369419E1B002384EAB17B3CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700134   (117429) от 15.02.2024
-
-В.С. Кузнецов | Железобетонные и каменные конструкции. Теоретический курс. Практические занятия. Курсовое проектирование (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117429.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебнике рассмотрены вопросы проектирования железобетонных и каменных конструкций, включены в программу дисциплины "Железобетонные и каменные конструкции" для студентов-бакалавров, обучающихся по направлению "Строительство". Приведены базовые сведения сопротивление железобетона при различных видах деформации. Дополнительно включен материал по (   Читать дальше...   )Жанр: СтроительствоИздательство: АСВФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E3B76CB4758E10AC11854C162CD3EC669373CCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700436   (117252) от 16.02.2024
-
-Д.А. Королева, В.В. Шайдаков, В.А. Целищев | Солнечная энергетика (2023) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены истоки зарождения солнечной энергетики, первые солнечные батареи и их совершенствование. Дана оценка коэффициента полезного действия каждому подтипу солнечных батарей. Изложена информация о технологии изготовления. Приведена классификация и описаны крупнейшие солнечные электростанции.
-Представлены результаты статистического анализа научно-технической (   Читать дальше...   )Жанр: ЭнергетикаИздательство: Инфра-инженерияФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A0F926D84D32E22BA9DD52C06E957652DD14936
 ```
 
 https://mybot314.ru/tekegram_catalog/

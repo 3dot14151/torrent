@@ -1,56 +1,3 @@
-###  Публикация: 1122339   (794314) от 05.04.2017
-
-Новая попытка Кейт МакКолл / The Trials of Cate McCall (2013) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший опытный адвокат должна вновь вернуться к старой работе и доказать невиновность женщины, обвиненной в убийстве, чтобы вернуть опекунство над дочерью и свою работу.Производство: СШАЖанр: ДрамаРежиссер: Карен МонкриффАктеры: Кейт Бекинсейл, Дэвид Лайонс, Клэнси Браун, Марк Пеллегрино, Тэй Диггз, Ник Нолти, Джеймс Кромуэлл, Дейл Дикки, Исайя Вашингтон, Брендан Секстон III ...Перевод: Профессиональный двуголосыйСубтитры: Русские, английскиеПродолжительность: 01:32:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41F8963BC21976D3BD91D1A3EB6C834C1D150947
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122546   (794313) от 05.04.2017
-
-Последняя война / To End All Wars (2001) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время Второй мировой войны шотландский Аргайлский полк почти в полном составе, включая подполковника Маклина, майора Кэмпбелла, капитана Гордона и прикомандированного лейтенанта американской армии Риардона, оказался в японском плену и был отправлен в концлагерь, расположенный посреди непроходимых джунглей.
-Японцы, считающие военнопленных недостойными жизни трусами, (   Читать дальше...   )Производство: СШАЖанр: Военный, драма, боевик, экранизацияРежиссер: Дэвид Л. КаннингэмАктеры: Роберт Карлайл, Кифер Сазерленд, Киран МакМенамин, Джеймс Космо, Масаюки Йуи, Джон Грегг, Шу Накаджима, Грег Эллис, Пип Торренс, Брендан Коуэлл ...Перевод: Профессиональный многоголосыйСубтитры: РусскиеПродолжительность: 01:52:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C83C3C6AA906A2BDE8883212355D88693FD393AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1122575   (794309) от 05.04.2017
 
 Сумасшедший на воле / Crazy on the Outside (2010) HDRip
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794309.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794307.jpg" />
 </div>
 
 
@@ -112,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794300.jpg" />
 </div>
 
 
@@ -138,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794288.jpg" />
 </div>
 
 
@@ -164,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794282.jpg" />
 </div>
 
 
@@ -190,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794270.jpg" />
 </div>
 
 
@@ -216,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794256.jpg" />
 </div>
 
 
@@ -242,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794252.jpg" />
 </div>
 
 
@@ -268,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794250.jpg" />
 </div>
 
 
@@ -295,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794240.jpg" />
 </div>
 
 
@@ -321,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794231.jpg" />
 </div>
 
 
@@ -347,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794206.jpg" />
 </div>
 
 
@@ -374,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794187.jpg" />
 </div>
 
 
@@ -401,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794150.jpg" />
 </div>
 
 
@@ -427,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793943.jpg" />
 </div>
 
 
@@ -454,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793933.jpg" />
 </div>
 
 
@@ -482,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793903.jpg" />
 </div>
 
 
@@ -508,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793847.jpg" />
 </div>
 
 
@@ -534,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793818.jpg" />
 </div>
 
 
@@ -560,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793741.jpg" />
 </div>
 
 
@@ -586,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793597.jpg" />
 </div>
 
 
@@ -612,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793541.jpg" />
 </div>
 
 
@@ -638,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793533.jpg" />
 </div>
 
 
@@ -664,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793491.jpg" />
 </div>
 
 
@@ -675,6 +622,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38D56029B2C6DC7A0A7CF2BBF9131C601E5B9456
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200844   (793483) от 23.01.2018
+
+Мой любимый динозавр / My Pet Dinosaur (2017) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793483.jpg" />
+</div>
+
+
+###  Подробнее
+
+В результате неудачного военного биологического эксперимента рождается удивительное создание. Это существо находит подросток и прячет у себя дома. Новый друг начинает стремительно расти и распространять хаос по всему городу. Это, конечно, сразу же вызывает недовольство людей в форме. Но они еще не знают, что на защиту животного выйдет команда местных подростков.Производство: Австралия / Hive Studios InternationalЖанр: Боевик, приключения, семейныйРежиссер: Мэтт ДраммондАктеры: Джоэнн Сэмюэл, Дэвид Робертс, Тириел Мора, Дариус Уильямс, Кристофер Габарди, Бет Чемпион ...Перевод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:33:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81FBEE72918595E3A5BC7D664181653B8783DF70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012533   (793332) от 01.05.2016
+
+Король Джек / King Jack (2015) WEB-DLRip [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь 15-летнего Джека в провинциальном американском городке далека от безоблачной. Удастся ли ему, несмотря на унижения окружающих, вернуть корону, которой наградил его отец?Производство: США / Buffalo Picture House, Dominic Buchanan Productions, Stink FilmsЖанр: ПриключенияРежиссер: Феликс ТомпсонАктеры: Чарли Пламмер, Кори Николс, Кристиан Мэдсен, Дэн Флаэрти, Дави Эрин, Хлоя Ливайн, Кит Скотт, ЛеонардПеревод: Одноголосый закадровый, любительскийСубтитры: ОтсутствуютПродолжительность: 01:20:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A786F8D466D35CB09F00D6408CCD583EC7332A2B
 ```
 
 https://mybot314.ru/tekegram_catalog/

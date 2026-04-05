@@ -1,3 +1,55 @@
+###  Публикация: 1375941   (58533) от 26.04.2024
+
+Хроника эпидемии / Эпидемия / Epidemie (2020) WEBRip [H.264/1080p] (сезон 1, серии 1-10 из 10) Greb&Creative
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда вирус, поражающий органы дыхания, начинает распространяться среди населения города Монреаль, инфекционист Анн-Мари Леклерк пытается сделать все возможное, чтобы остановить распространение болезни и не допустить пандемию. У всех заболевших одинаковые симптомы: потемнение в глазах, потеря вкуса, повышенная температура и сильнейший кашель. Сначала жители относятся (   Читать дальше...   )Производство: Канада / Sphère Média PlusЖанр: триллерРежиссер: Ян Лануетт ТургеонАктеры: Жюли Лебретон, Гийом Кир, Мелисса Дезормо-Полен, Эдуар Би Ларок, Мани Солейманлу, Феликс-Антуан Трембле, Бруно Марсиль, Алиса Паскаль, Лоран Лемер, Эва Ландри, Катрин Берюбе, Габриэль Сабурен и др.Перевод: Дублированный (Greb&Creative)Продолжительность: ~00:42:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C55D1D32B4ACFB0294F37F4EC5AC6994F7A6002
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537795   (58525) от 26.04.2024
+
+Обоюдное согласие (2022) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 6)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая учительница русского языка и литературы Анна Федорова приезжает на вечеринку к старым друзьям на яхту. Под утро Анна прыгает в море, в то время как остальные еще спят. В мокром платье, босиком, с синяками и ссадинами на теле девушка добирается до отделения полиции и пишет заявление об изнасиловании. В преступлении она обвиняет своих друзей, влиятельных людей (   Читать дальше...   )Производство: Россия / МТС Медиа, МедиасловоЖанр: триллер, детектив, драма, криминалРежиссер: Валерия Гай ГерманикаАктеры: Светлана Иванова, Шамиль Хаматов, Анна Снаткина, Алла Михеева, Мария Голубкина, Федор Лавров, Тарас Кузьмин, Роман Евдокимов, Глеб Бочков, Андрей КозловПродолжительность: ~00:51:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85B74F50E2AD8F489838A6A4CD89B7DC1894082B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1130832   (58523) от 26.04.2024
 
 Американские боги / American Gods (2017) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8) Студия «Нота», LostFilm, AlexFilm, NewStudio
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58523.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ Adobe Photoshop 2024 25.7.0.504 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58422.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ F-Secure VPN 19.4 (online installation) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58328.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ Navitel / Навител: Официальные карты релиза Q2 2024
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58316.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58314.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58310.jpg" />
 </div>
 
 
@@ -168,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58210.jpg" />
 </div>
 
 
@@ -196,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58206.jpg" />
 </div>
 
 
@@ -222,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57995.jpg" />
 </div>
 
 
@@ -248,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57891.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57859.jpg" />
 </div>
 
 
@@ -304,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57803.jpg" />
 </div>
 
 
@@ -330,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57769.jpg" />
 </div>
 
 
@@ -356,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57681.jpg" />
 </div>
 
 
@@ -382,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57679.jpg" />
 </div>
 
 
@@ -408,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57677.jpg" />
 </div>
 
 
@@ -434,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57574.jpg" />
 </div>
 
 
@@ -460,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57478.jpg" />
 </div>
 
 
@@ -489,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57378.jpg" />
 </div>
 
 
@@ -515,7 +567,7 @@ Kaspersky 21.17.7.539 Standard | Plus | Premium [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57368.jpg" />
 </div>
 
 
@@ -541,7 +593,7 @@ Outline Client VPN 1.13.1 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57366.jpg" />
 </div>
 
 
@@ -567,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57350.jpg" />
 </div>
 
 
@@ -593,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57278.jpg" />
 </div>
 
 
@@ -620,7 +672,7 @@ Windows 10 Enterprise LTSC (x64) Elgujakviso Edition (v.08.05.24) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57266.jpg" />
 </div>
 
 
@@ -634,58 +686,6 @@ Windows 10 Enterprise LTSC (x64) Elgujakviso Edition (v.08.05.24) [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D1B0118B43E99DB996BC9CE1C6B976599D0434D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952881   (57259) от 08.05.2024
-
-Гримм / Grimm (2015) WEB-DLRip (сезон 5, серии 1-22 из 22) LostFilm
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57259.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре повествования мрачной и фэнтезийной полицейской драмы от канала NBC - детектив Ник Буркхардт, который думал, что готов к суровой действительности, работая в отделе убийств. Но это было до того, как он начал видеть вещи, которые он не мог объяснить: привлекательная женщина на его глазах превращалась в ведьму, а заурядный Джо в опасного тролля. От единственного (   Читать дальше...   )Производство: США / GK Productions, Hazy Mills Productions, Universal TelevisionЖанр: фэнтези, ужасы, драма, детективРежиссер: Норберто Барба, Терренс О’Хара, Эрик ЛанёвилльАктеры: Дэвид Джинтоли, Битси Таллок, Сайлас Уэйр Митчелл, Расселл Хорнсби, Саша Ройз, Регги Ли, Клэр Коффи, Бри Тёрнер, Роберт Бланш, Дэнни Бруно и др.Перевод: Многоголосый профессиональный - LostFilmЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:543AFF3B8B0AC6B25D98249830E300A9C68F637C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722308   (57050) от 10.05.2024
-
-Red Dead Redemption II (2) (2019) [Ru/Multi] (1491.50/dlc) Repack FitGirl [Ultimate Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57050.jpg" />
-</div>
-
-
-###  Подробнее
-
-RRed Dead Redemption 2 – приключенческий шутер от третьего лица, сюжет которого разворачивается в 1899 году на Диком Западе. Действия затрагивают банду Датча Ван Дер Линде, которую преследуют законники после неудачного ограбления парома. Игрок возьмет управление над Артуром Морганом, одним из участников банды.Тип издания: RepackРазработчик: Rockstar GamesЖанр: 3rd Person, Action, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4C2EF26B2447D832E74592B1A9C3E22C90A8342
 ```
 
 https://mybot314.ru/tekegram_catalog/

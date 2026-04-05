@@ -1,29 +1,3 @@
-###  Публикация: 1198538   (806052) от 12.01.2018
-
-Наталья Щерба | Чародол [3 книги] (2015) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Персональная серия Натальи Щербы, в которой издаётся переработанная писательницей подростковая трилогия «Быть ведьмой» под новым названием — «Чародол». Новые названия также получили и составляющие трилогию романы. Оформление серии выполнено художником Ольгой Закис в стиле популярной серии автора — «Часодеи».Жанр: ФэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1FFCE8AAFE8820CE7461F0C97280A38038231AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010081   (805856) от 23.04.2016
 
 Михаил Юрьевич Лермонтов | Парус (1981) [PDF]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805856.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805727.jpg" />
 </div>
 
 
@@ -86,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804847.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804122.jpg" />
 </div>
 
 
@@ -140,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803708.jpg" />
 </div>
 
 
@@ -167,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803386.jpg" />
 </div>
 
 
@@ -193,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802825.jpg" />
 </div>
 
 
@@ -222,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802054.jpg" />
 </div>
 
 
@@ -248,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802041.jpg" />
 </div>
 
 
@@ -274,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801829.jpg" />
 </div>
 
 
@@ -300,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801828.jpg" />
 </div>
 
 
@@ -326,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801765.jpg" />
 </div>
 
 
@@ -352,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801764.jpg" />
 </div>
 
 
@@ -378,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801762.jpg" />
 </div>
 
 
@@ -405,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801759.jpg" />
 </div>
 
 
@@ -431,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801758.jpg" />
 </div>
 
 
@@ -458,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801756.jpg" />
 </div>
 
 
@@ -484,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801755.jpg" />
 </div>
 
 
@@ -511,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801751.jpg" />
 </div>
 
 
@@ -537,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801750.jpg" />
 </div>
 
 
@@ -563,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801686.jpg" />
 </div>
 
 
@@ -589,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801674.jpg" />
 </div>
 
 
@@ -618,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801317.jpg" />
 </div>
 
 
@@ -647,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801261.jpg" />
 </div>
 
 
@@ -673,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801252.jpg" />
 </div>
 
 
@@ -684,6 +658,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6ACBD39E656ABAE837B89DDD716088EAE6E480D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120789   (801244) от 01.04.2017
+
+Е. Тараховская | Метро (1938) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник стихов для детей о чуде Москвы 1930 годов - МетрополитенеЖанр: Детская проза, СтихиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A63F67ED68D52946779FC1FB396A67416E51B64D
 ```
 
 https://mybot314.ru/tekegram_catalog/

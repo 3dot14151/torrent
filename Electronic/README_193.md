@@ -1,3 +1,61 @@
+###  Публикация: 147117   (709253) от 12.06.2010
+
+The Chemical Brothers - Discography - 66 Releases (1994-2010)|320]<Electro/Big Beat>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Electro/Big BeatПродолжительность: 00:59:09
+01. Setting Sun & Chemical Beats (San Fransico '96) (14:56)
+02. The Sunshine Underground (Woodstock '99) (9:15)
+03. The Private Psychedelic Reel (Open Air Field Festival '02) (17:36)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 329403   (709213) от 29.04.2011
+
+London Elektricity - Yikes (2011) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elektricity Will Keep Me Warm
+02. Meteorites (ft. Elsa Esmeralda)
+03. Had a Little Fight
+04. The Plan That Cannot Fail(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:01:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286875   (709092) от 04.03.2019
 
 Desolate Horizons - Every Dream Is a Lifetime (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone>
@@ -6,7 +64,7 @@ Desolate Horizons - Every Dream Is a Lifetime (2019) [FLAC|Lossless|WEB-DL|track
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709092.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ ILUITEQ - Soundtracks For Winter Departures (2019) ...txt [FLAC|Lossless|WEB-DL|
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709087.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Moebius - Lux Fiat (2019) Mystic Sound Records [FLAC|Lossless|WEB-DL|tracks] <Ps
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709084.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Beefcake - Discography 6 Releases (1998-2004) Hymen Records [FLAC|Lossless|track
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708851.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Retouch - Light Years (2017) [MP3|320 Kbps] <Synthwave, Retrowave, Electronic Ro
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708775.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Fresh Big Room (2018) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708242.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Mees Salome - Ya Amar (2018) EP [MP3|320 Kbps] <Electronic, House, Techno>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708241.jpg" />
 </div>
 
 
@@ -207,7 +265,7 @@ VA - The Best Of JamX & De Leon (Edits & Album Specials) (2018) [MP3|320 Kbps] <
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708239.jpg" />
 </div>
 
 
@@ -236,7 +294,7 @@ Jerome Froese - Far Side of the Face (2012) [MP3|320 кб/с] <Electronic, Ambie
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708216.jpg" />
 </div>
 
 
@@ -263,7 +321,7 @@ VA - Island Moods Nu-Disco Chill (2016) [MP3|320 кб/с] <Deep House, Nu-Disco,
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708206.jpg" />
 </div>
 
 
@@ -292,7 +350,7 @@ VA - Deep Tribal House 2k18 Vol. 1 (2018) [MP3|320 Kbps] <Minimal, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708159.jpg" />
 </div>
 
 
@@ -321,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707429.jpg" />
 </div>
 
 
@@ -350,7 +408,7 @@ Planetary Assault Systems - Straight Shooting (2019) Mote-Evolver [FLAC|Lossless
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707314.jpg" />
 </div>
 
 
@@ -379,7 +437,7 @@ VA - Balearic Lounge Beats (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707311.jpg" />
 </div>
 
 
@@ -408,7 +466,7 @@ VA - From euphonic to Russia (mixed by Kyau vs. Albert) (2006) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707305.jpg" />
 </div>
 
 
@@ -437,7 +495,7 @@ VA - Paris Rooftop Chill Vol.1: Finest Chill Out Selection (2017) [MP3|320 Kbps]
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707128.jpg" />
 </div>
 
 
@@ -466,7 +524,7 @@ VA - Ori Uplift - Uplifting Only 221 (2017) [MP3|320 Kbps] <Trance,Uplifting Tra
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707096.jpg" />
 </div>
 
 
@@ -495,7 +553,7 @@ Actress - AZD (2017) Ninja Tune [FLAC|Lossless|WEB-DL|tracks] <Experimental, Tec
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707091.jpg" />
 </div>
 
 
@@ -524,7 +582,7 @@ VA - Best Of Deephouse 2017 Vol.2 (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706942.jpg" />
 </div>
 
 
@@ -553,7 +611,7 @@ LCD Soundsystem - Call the Police / American Dream (2017) Single [FLAC|Lossless|
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706616.jpg" />
 </div>
 
 
@@ -580,7 +638,7 @@ Forest Swords - Compassion (2017) Ninja Tune [FLAC|Lossless|WEB-DL|tracks] <Expe
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706606.jpg" />
 </div>
 
 
@@ -609,7 +667,7 @@ Moskva-Kassiopeya - 3 Albums (2015-2017) [MP3|320 Kbps] <Synthpop, Electro, Retr
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706476.jpg" />
 </div>
 
 
@@ -638,7 +696,7 @@ Mr. Cloudy - IRIT (2018) Limited Edition [FLAC|Lossless|WEB-DL|tracks] <Dub Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706194.jpg" />
 </div>
 
 
@@ -667,7 +725,7 @@ VA - Trance Spring Essentials (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706193.jpg" />
 </div>
 
 
@@ -681,64 +739,6 @@ VA - Trance Spring Essentials (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:545D7AD83E6875F69B5FAA47EF8E1AB4D2BBB326
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220357   (706192) от 18.04.2018
-
-VA - Nothing But... The Future of Trance Vol. 06 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Exo - Skybouncer (Original Mix)
-02. Ultimate - Enru (Original Mix)
-03. Tau-Rine - New Life (Radio Edit)
-04. Paul Arcane - Transcend (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:30:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B67109D5EFDF9BB5E9B10FD20BF8BD8831AD0EE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220196   (706189) от 18.04.2018
-
-VA - Essential House Spring 2018 [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tzesar - Spring Break (Original Mix) [00:05:15]
-02. Chris Kaufman - Burning My Socks [00:05:30]
-03. Tzesar - April Lady (Original Mix) [00:05:18]
-04. Renee - Music Heals All Wounds (Ice Cream edit) [00:05:35](   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1905EDCF5AE35FECE4ADA04D4AD28E443CA0343
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1116091   (822144) от 20.03.2017
+
+Создан новый тип памяти, способной обеспечить сохранность данных на протяжении тысячи лет
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_822144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследовательская группа из университета Кобэ (Kobe University), Япония, разработала технологию, позволяющую создавать устройства хранения информации, способные обеспечить сохранность записанных в них данных на протяжении одной тысячи лет. Кроме этого, чипы такой памяти имеют показатель плотности записи информации, сопоставимые с аналогичным показателем современных жестких дисков.(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143124   (821993) от 03.01.2018
 
 Bulletstorm (2017) [Ru/Multi] (1.1.12212.0/upd2/dlc) Repack =nemos= [Full Clip Edition]
@@ -6,7 +32,7 @@ Bulletstorm (2017) [Ru/Multi] (1.1.12212.0/upd2/dlc) Repack =nemos= [Full Clip E
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821993.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821945.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Kaspersky Internet Security 2017 17.0.0.611 (without Secure Connection) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821942.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_821292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_821292.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820942.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820635.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820626.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820485.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ Opera 50.0.2762.45 Portable by Cento8 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820406.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820302.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820132.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ Nero Burning ROM & Nero Express 2017 18.0.19000 RePack by MKN [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820128.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_819319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_819319.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818907.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818905.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818712.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ Black Gold Online (2014) [Ru] (0.0.1.032) License
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818699.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ Acronis Backup Advanced Workstation / Server 11.7.44421 + BootCD [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818696.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ Mozilla Firefox Quantum 57.0.4 Portable by PortableApps [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818648.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ Adobe Acrobat X Professional v.10.0.2 DVD [RUS / ENG]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_818605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_818605.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818599.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ Wolfenstein: The Old Blood (2015) [Ru/En] (1.0) Repack R.G. Механики (о
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818472.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4498.1000
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818308.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817653.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817649.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2B712B63F88793F1EB0C14CD806159B38FD5F6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503340   (817362) от 20.10.2021
-
-Facebook наймет 10 000 инженеров для создания метавселенной
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_817362.jpg" />
-</div>
-
-
-###  Подробнее
-
-Facebook планирует нанять 10 000 специалистов в Евросоюзе в течение пяти лет для строительства так называемой метавселенной. Их будут искать в первую очередь в Германии, Франции, Италии, Испании, Польше, Нидерландах и Ирландии, сообщила компания в своем корпоративном блоге. Специалисты потребуются компании для создания метавселенной, о которой основатель и гендиректор (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

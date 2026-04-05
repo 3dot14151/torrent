@@ -1,3 +1,55 @@
+###  Публикация: 1076831   (297279) от 02.12.2016
+
+Трава зеленее / The Grass Is Greener (1960) BDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297279.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в старой доброй Англии. Любовный треугольник вырисовывается между графом, его женой и жутко романтичным американским миллионером, который забредает в запретную зону — в комнату миледи — во время осмотра замка графа. Как поражённый громом, он моментально и непоправимо влюбляется в неё, а она в него…Производство: Великобритания / Grandon Productions Ltd.Жанр: КомедияРежиссер: Стенли ДоненАктеры: Кэри Грант, Дебора Керр, Роберт Митчум, Джин Симмонс, Морэй Уотсон, Джоан Бенхэм, Элизабет Орион, Гвен УотфордПеревод: Авторский (С.Кузнецов)Язык субтитров: АнглийскийПродолжительность: 01:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AF8A326A4DF38355F80CD6B4CFE41C74E3FB952
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421024   (297194) от 14.11.2020
+
+Лунный гонщик / Moonraker (1979) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297194.jpg" />
+</div>
+
+
+###  Подробнее
+
+За маской добропорядочного американского миллиардера Дракса скрывается сумасшедший учёный. Он вынашивает безумный план: устроить на Земле апокалипсис, и когда на планете не останется ни одной живой души, населить её выращенными на космической станции суперлюдьми. Чтобы помешать планам Дракса, Бонду приходится побывать в Калифорнии, Бразилии, джунглях Амазонки и, (   Читать дальше...   )Производство: Великобритания, Франция /  Les Productions Artistes Associés, Eon ProductionsЖанр: фантастика, боевик, триллер, приключенияРежиссер: Льюис ГилбертАктеры: Роджер Мур, Лоис Чайлз, Микаэль Лонсдаль, Ричард Кил, Коринн Клери, Бернард Ли, Джеффри Кин, Десмонд Ллевелин, Лоис Максуэлл, Тоширо СугаПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 02:06:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07234AA9945BE5D17DA3D50B3F21CE4D7B2643A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 268240   (297078) от 09.12.2010
 
 Крестный отец / The Godfather (1972) BDRip
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297078.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296718.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295317.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295298.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295278.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294824.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294817.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294428.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292791.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292712.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292686.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292471.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291702.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290654.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290615.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290559.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289841.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289325.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288828.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288729.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288156.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288136.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287808.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287792.jpg" />
 </div>
 
 
@@ -619,59 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36D384B8D223C177B48FF24D383B08428A5DFB00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262699   (287404) от 19.11.2018
-
-Неукротимый / Untamed (1955) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во времена Ирландского картофельного голода в 1845-1849 годах из страны эмигрировали тысячи семей. Среди них была и Кэти О'Нилл с мужем, которые выбрали Южную Африку в качестве "земли обетованной". Оказавшись там, они испытывают все тяготы жизни переселенцев, а для Кэти судьбоносной становится встреча с Полом Ван Рибеком, любовью всей ее жизни…Производство: США / 20th Century Fox Film CorporationЖанр: Драма, Мелодрама, ПриключенияРежиссер: Генри КингАктеры: Тайрон Пауэр, Сьюзен Хэйуорд, Ричард Иган, Джон Джастин, Агнес Мурхед, Рита Морено, Хоуп Эмерсон, Брэд Декстер, Генри О’Нилл, Пол ТомпсонПеревод: Многоголосый закадровый (РенТВ)Субтитры: ОтсутствуютПродолжительность: 01:46:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B58EAEEC91E865FD8D5BF2E18AB00C397DFEC897
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962618   (287139) от 08.12.2015
-
-55 дней в Пекине / 55 Days at Peking (1963) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287139.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о мужестве и борьбе за жизнь военных и дипломатов, в 1900 г. попавших в западню в закрытой зоне Пекина. С молчаливой поддержки императрицы Китая, их осадили тысячи восставших против иностранцев китайских фанатиков.
- Разногласия забыты перед лицом опасности, забыта и борьба за сердце прекрасной русской графини. Все вовлечены в ужасные события…Производство: США / Samuel Bronston ProductionsЖанр: Боевик, Драма, Военный, ИсторияРежиссер: Николас Рэй, Гай ГринАктеры: Чарлтон Хестон, Ава Гарднер, Дэвид Нивен, Флора Робсон, Джон Айрленд, Гарри Эндрюс, Лео Генн, Роберт Хелпманн, Курт Казнар, Филипп ЛеруаПеревод: Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 02:35:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65C291D3F0AAF7FCD3F873733D8D5A0CB9F72A63
 ```
 
 https://mybot314.ru/tekegram_catalog/

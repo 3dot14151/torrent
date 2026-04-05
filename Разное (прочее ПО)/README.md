@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1862463   (1063113) от 
+
+FontViewOK 9.23 + Portable [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед Вами крошечная программа, которая после запуска отобразит пользователю все установленные в его операционной системе шрифты и, конечно, Вы сможете с ними работать. Особенность программы - она позволяет вводить любой текст в специальное отведенное поле и сразу просматривать результат, то есть сразу будет видно, как набранное слово будет смотреться в том или ином (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7271D80AAAE1BEC9DADD978B7BE5970B105F6D2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861343   (1062550) от 
 
 Lively Wallpaper 2.2.1.0 [Multi/Ru]
@@ -7,7 +33,7 @@ Lively Wallpaper 2.2.1.0 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062550.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ AI Text To Image Generator Pro 1.2.2 RePack [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062485.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ EarthView 7.15.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062003.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ EarthView 7.15.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060250.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ EarthView 7.14.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058169.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ ADB AppControl 1.8.6 Extended + portable by GPFault [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055656.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ FontViewOK 9.21 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053855.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ FontViewOK 9.19 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047738.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ VanDyke SecureCRT 9.3.1 build 2929 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046380.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ Visual C++ Runtimes AIO 2023 v1.0 x86-x64 RePack by ivandubskoj [Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040240.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Game WideScreener 2.0.1 + Portable [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014618.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Active PKiller 1.6 + Portable [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010097.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Advanced Find and Replace 7.8.1 [Multi/Русский]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997350.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ PlayMemories Home 2.0 [Русский / Английский]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996553.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ DesktopEarth 3.2.42 [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982804.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ ArtMoney SE 7.40.4 [Мульти / Русский]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980458.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ Brocade FabricOS (версии с v5.1.0 по v8.2.1a)[En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977447.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ Uloader 8.0.0.0 [ENG]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953350.jpg" />
 </div>
 
 
@@ -491,7 +517,7 @@ Sim Aquarium 3.8 Build 63 Platinum RePack by Trovel [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949374.jpg" />
 </div>
 
 
@@ -517,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946820.jpg" />
 </div>
 
 
@@ -543,7 +569,7 @@ Detwinner 2.04.002 (& Portable) [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946433.jpg" />
 </div>
 
 
@@ -569,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945491.jpg" />
 </div>
 
 
@@ -595,7 +621,7 @@ Design Pack By Leha342 & Stason v.01.2016 [Ru] (Авторская раздач�
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944647.jpg" />
 </div>
 
 
@@ -622,7 +648,7 @@ Alternate Calculator 3.480 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942061.jpg" />
 </div>
 
 
@@ -648,7 +674,7 @@ RuntimePack Lite 20.3.3 by jameszero (x86-x64) [Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889803.jpg" />
 </div>
 
 
@@ -659,35 +685,6 @@ RuntimePack Lite 20.3.3 by jameszero (x86-x64) [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD469C86966A15D556F77833495E624B8A959479
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 187290   (876505) от 28.03.2010
-
-Stitch Art Easy 4.0 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Разное (прочее ПО)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stitch Art Easy! - вышивка- это просто!
-С этой программой вы сможете:
-Открыть любую фотографию или картинку, сделать и напечатать по ней схему для вышивания, и вышить ваш следующий шедевр!
-Изменить картинку по размеру, цветам и многое другое.(   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,110 @@
+###  Публикация: 1097782   (911508) от 28.01.2017
+
+WinTariff 2.9.9 [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911508.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinTariff - это программа для учета телефонных разговоров. Программа получает из станции данные о каждом звонке (набранный номер, длительность, время т.д.) и по ним определяет направление (для межгорода) и стоимость разговора. Пользователями программы стали тысячи государственных и коммерческих организации, как в России, так и в СНГ и дальнем зарубежье.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FBA95079E4BC58B1F876DBC408E9381D4ED45ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368341   (910550) от 19.03.2020
+
+Absoft Fortran 2016 + Gino Graphics 8.0 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Absoft Fortran Compilers - это набор компиляторов Fortran для Microsoft Windows, Apple Macintosh и Linux, выпускаемый Absoft Corporation.
+
+Absoft Pro Fortran на 64-битных платформах поддерживает как 32-битные, так и 64-битные исполняемые файлы; пользователь выбирает, какой формат будет генерировать компилятор.
+Также включены графический отладчик и интегрированная (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4AF49AF4F87D75A63AA383D600EE359E32233CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368439   (910403) от 19.03.2020
+
+PowerSim Professional 9.0.3.464 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910403.jpg" />
+</div>
+
+
+###  Подробнее
+
+PowerSIM это мощное программное обеспечение для проектирования, анализа и моделирования электронных схем. С помощью этой программы инженеры-электронщики могут выбирать из огромной библиотеки электронных компонентов и схем. PowerSIM - это электронная лаборатория, в которой виртуальные устройства такие как различные датчики и измерительные устройства, анализаторы сигналов, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E9EC6A9AB0A1FFF1FF117B6A8F59A75316F2DCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368588   (908720) от 20.03.2020
+
+Simply Fortran 3.2.2976 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Среда разработки для компилятора GNU Fortran. Поддерживается подсветка синтаксиса, отладка, автодополнение и др.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8C22555920E820252B71BA03B30BFDBD9610619
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100653   (898779) от 04.02.2017
 
 VMProtect Ultimate 3.0.9 Build 695 Retail + Web License Manager [Multi/Ru]
@@ -6,7 +113,7 @@ VMProtect Ultimate 3.0.9 Build 695 Retail + Web License Manager [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898779.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ Logiware go1984 Ultimate 6.3.0.1 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897234.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ Abacom Electronics Software 31.01.2017 RePack (& Portable) by Robby [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897129.jpg" />
 </div>
 
 
@@ -84,7 +191,7 @@ Stop SMS Uni Boot x64 (UEFI) (Win 8.1) v.6.03.03 [Ru/En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896830.jpg" />
 </div>
 
 
@@ -110,7 +217,7 @@ CodeLobster PHP Edition Pro 5.11.4 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895458.jpg" />
 </div>
 
 
@@ -136,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893156.jpg" />
 </div>
 
 
@@ -162,7 +269,7 @@ RuntimePack Lite 20.3.3 by jameszero (x86-x64) [Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889803.jpg" />
 </div>
 
 
@@ -188,7 +295,7 @@ IAR Embedded Workbench for MSP430 6.40.1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887612.jpg" />
 </div>
 
 
@@ -214,7 +321,7 @@ Acme CAD Converter 2021 8.10.1.1530 (DC 10.09.2021) RePack (& Portable) by elchu
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884136.jpg" />
 </div>
 
 
@@ -240,7 +347,7 @@ Tangible Software Source Code Converters portable by _Sef 14.02.2017 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879511.jpg" />
 </div>
 
 
@@ -266,7 +373,7 @@ Autodesk AutoCAD Map 3D 2021 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878066.jpg" />
 </div>
 
 
@@ -292,7 +399,7 @@ Autodesk AutoCAD MEP 2021 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878061.jpg" />
 </div>
 
 
@@ -318,7 +425,7 @@ Autodesk AutoCAD Plant 3D 2021 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877969.jpg" />
 </div>
 
 
@@ -346,7 +453,7 @@ Autodesk AutoCAD Electrical 2021 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877942.jpg" />
 </div>
 
 
@@ -372,7 +479,7 @@ Stitch Art Easy 4.0 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876505.jpg" />
 </div>
 
 
@@ -401,7 +508,7 @@ VerseQ 2011.02.23.226 Multiuser [Rus] RePack by elchupacabra
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_875386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_875386.jpg" />
 </div>
 
 
@@ -427,7 +534,7 @@ IPTV Checker v 2.5 Portable [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867577.jpg" />
 </div>
 
 
@@ -453,7 +560,7 @@ Windows USB-DVD Download Tool 1.0.30 (Portable) [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865907.jpg" />
 </div>
 
 
@@ -479,7 +586,7 @@ RuntimePack 21.7.30 Full [Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862513.jpg" />
 </div>
 
 
@@ -505,7 +612,7 @@ Bootstrap Studio 5.0.3 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861611.jpg" />
 </div>
 
 
@@ -531,7 +638,7 @@ Axure RP Pro, Team, Enterprise 9.0.0.3693 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861534.jpg" />
 </div>
 
 
@@ -557,7 +664,7 @@ Enterprise Architect 12.1.1229 Corporate Edition [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860197.jpg" />
 </div>
 
 
@@ -568,110 +675,6 @@ Enterprise Architect —всесторонний набор UML-инструме
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2358A954E5A778BFBDEFEFC6C1DBBA4DAC5A28E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376450   (860173) от 17.04.2020
-
-SQLite Expert Professional 5.3.5.475 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860173.jpg" />
-</div>
-
-
-###  Подробнее
-
-SQLite Expert Professional – мощный визуальный инструмент для удобного управления БД SQLite3. Программа совмещает управление базами данных и их обслуживание в единой интегрированной среде с четким и интуитивно понятным пользователю графическим интерфейсом. С помощью этого приложения пользователь может редактировать и просматривать таблицы, перестраивать поля, проставлять (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1CBDE18CE7CEF6198AF450B75C6C82B90BE1244
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109924   (854968) от 01.03.2017
-
-Security Eye 3.5 [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Security Eye - бесплатная программа для наблюдения с помощью камер, поддерживает работу с Веб и IP камерами, записывает видео и имеет встроенный детектор движения. Это программное обеспечение позволяет организовать систему видеонаблюдения и в реальном времени мониторить обстановку дома, в офисе, на автостоянке и в других местах где установлены ваши камеры. Интерфейс (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45673F77EC8EBCDACBC4428C20F5DA2C3F664009
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002049   (850033) от 30.03.2016
-
-SPTD 2.11 (x86/x64) [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Драйверы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850033.jpg" />
-</div>
-
-
-###  Подробнее
-
-CSI Pass Through Direct (SPTD, имя файла «sptd.sys») — драйвер устройства, разработанный Duplex Secure Ltd., который обеспечивает новый метод доступа к запоминающим устройствам. SPTD API не является публично открытым (ASPI от компании Adaptec и SPTI (SCSI Pass-Through Interface) от Microsoft являются документированными альтернативами). SPTD используется в программах (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:644B3785341E371A270FB02DBF5CADEC2D2FC1F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002130   (848108) от 31.03.2016
-
-Autodesk Inventor Professional 2017 Build 142 (x64) [Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Autodesk Inventor Professional - 3D-САПР для машиностроительного проектирования. В состав 3D-САПР Autodesk® Inventor® входит простой в использовании комплект инструментов для машиностроительного 3D-проектирования, выпуска рабочей документации, проведения расчетов и анализа. Технология цифровых прототипов, реализованная в Inventor, помогает испытывать продукцию в (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDF5386F0B0D588F1EB240214861C8674D66CBA5
 ```
 
 https://mybot314.ru/tekegram_catalog/

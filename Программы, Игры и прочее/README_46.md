@@ -1,3 +1,108 @@
+###  Публикация: 1002840   (846839) от 01.04.2016
+
+Диетические рецепты v1.46 Ad-Free [Ru/Multi] - более 350 рецептов для диетического меню к празднику
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846839.jpg" />
+</div>
+
+
+###  Подробнее
+
+В приложении Вы найдете более 350 рецептов для диетического меню к празднику!  Все рецепты завтраков представлены в приложении с пошаговой инструкцией приготовления!  Вы сможете выбирать понравившиеся блюда и сохранять рецепты в Избранное. Приложение не требует обязательного подключения к интернету и любимые рецепты всегда буду с Вами!  Все диетические рецепты разделены (   Читать дальше...   )Тип издания: Ad-Free (удалена реклама)Релиз состоялся: 25.03.2016Разработчик: DLIПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский /  Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6BFA312FB3BC92A24B1B1F868FDDD558CC60209
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002869   (846582) от 01.04.2016
+
+ROEHSOFT PARTITION TOOL SD-USB 1.37 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создание и форматирование разделов exFAT FAT32 EXT2 EXT3 EXT4 Linux Swap NTFS and ReiserFS. Partition Manager и Filesystem Utility в Android для SD карт и жестких дисков. Это больше чем просто менеджер разделов. Здесь также можно создать образ раздела (бэкап).
+Всё, что необходимо - это наличие ROOT прав! Для автомонтирования ntfs, reiserfs и ext2-4 разделов необходимо (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 01.04.16Разработчик: ROEHSOFTПоддерживаемая ОС: Android 2.2  +Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F424515F8596B1E8B0D9470594623224ACF3EBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110792   (846402) от 06.03.2017
+
+Garmin: City Navigator Southern Africa NT 2017.30 [En]
+
+>>Программы, Игры и прочее
+>>Карты для навигационного ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Передвигайтесь по улицам Южной Африки с уверенностью. Этот продукт содержит подробные карты дорог и достопримечательностей для вашего совместимого устройства, так что вы можете перемещаться с точными подсказками, от поворота к повороту на любой адрес или перекресток. Маршрут в рестораны, автозаправочные станции, жилье, достопримечательности и многое другое.Тип издания: карты заблокированы (таблетки есть в комплекте)Релиз состоялся: январь 2017Разработчик: Garmin / HereПоддерживаемая ОС: GarminЯзык интерфейса: АнглийскийФормат: .IMG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00D47DE4AE597FB43E1F5CA172287AE4764F09DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378446   (846391) от 25.04.2020
+
+Dino Puzzle v2.7.3 [Ru/En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846391.jpg" />
+</div>
+
+
+###  Подробнее
+
+У вас есть ребенок, очарованный динозаврами? Потрясающие! Ну, это лучшая игра для них - новая игра-головоломка для детей, в которой представлены 30 и более динозавров. Станьте специалистом-динозавром и познакомьтесь с нашими милыми динозаврами. Вдохните креативность и воображение своего ребенка с этой деревянной головоломкой. У вас будет уникальный опыт обучения, (   Читать дальше...   )Тип издания: Пиратка (AdFree - без рекламы)Релиз состоялся: 08.07.2019Разработчик: AbuzzПоддерживаемая ОС: Android 4.2+Жанр: ГоловоломкаЯзык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC9674512B81D5E67399018A5CDCBCE9581F4346
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378442   (846383) от 25.04.2020
 
 Om Nom Run / Ам Ням Погоня v1.07 [Ru/En]
@@ -6,7 +111,7 @@ Om Nom Run / Ам Ням Погоня v1.07 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846383.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ Pose Tool 3D 6.8.79 [En] - Инструмент постановки поз дл
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846341.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ Ultimate Mortal Kombat 3 1.0.0 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846329.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845100.jpg" />
 </div>
 
 
@@ -111,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844903.jpg" />
 </div>
 
 
@@ -140,7 +245,7 @@ Guitar Tuna v3.5.4 [Ru/Multi] - универсальный тюнер для н�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844652.jpg" />
 </div>
 
 
@@ -166,7 +271,7 @@ APK Permission Remover Pro v1.3.8 [Ru/Multi] - Удаление разрешен
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844355.jpg" />
 </div>
 
 
@@ -192,7 +297,7 @@ QuickPic 4.7.2.2404 [Ru] - Просмотрщик изображений с му
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844349.jpg" />
 </div>
 
 
@@ -218,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842992.jpg" />
 </div>
 
 
@@ -244,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842944.jpg" />
 </div>
 
 
@@ -270,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842924.jpg" />
 </div>
 
 
@@ -299,7 +404,7 @@ Garmin: City Navigator South America NT 2017.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842728.jpg" />
 </div>
 
 
@@ -327,7 +432,7 @@ Garmin: City Navigator North Africa NT 2016.20 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841505.jpg" />
 </div>
 
 
@@ -353,7 +458,7 @@ Sonic 3D Blast, Sonic And Knuckles, Sonic The Hedgehog, Sonic The Hedgehog 2, So
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840409.jpg" />
 </div>
 
 
@@ -380,7 +485,7 @@ Odin 3.10.6 - Прошивальщик устройств Samsung [En]
 >>Прочее для мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840249.jpg" />
 </div>
 
 
@@ -406,7 +511,7 @@ ROEHSOFT DRIVE-EXPERT 1.21 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839632.jpg" />
 </div>
 
 
@@ -433,7 +538,7 @@ Contra - Hard Corps 1.0.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837614.jpg" />
 </div>
 
 
@@ -459,7 +564,7 @@ Mind Games Pro / Игры ума v2.5.4 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837600.jpg" />
 </div>
 
 
@@ -485,7 +590,7 @@ Ebook Converter v1.13.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837404.jpg" />
 </div>
 
 
@@ -511,7 +616,7 @@ Turbo Grannies  1.1.3 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837296.jpg" />
 </div>
 
 
@@ -537,7 +642,7 @@ Garmin: Azerbaijan Map 2015 V01 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836329.jpg" />
 </div>
 
 
@@ -563,7 +668,7 @@ Garmin: Moldova Road Atlas & Topo 3D 2015.2 [Ru]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836325.jpg" />
 </div>
 
 
@@ -574,111 +679,6 @@ Garmin: Moldova Road Atlas & Topo 3D 2015.2 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30460EFE5D984209975B9AB0ECF7B303BF174F0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422368   (835860) от 09.10.2021
-
-Advanced Download Manager and Torrent downloader v12.6.1 Pro Mod  [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продвинутый менеджер загрузок. Позволит удобно скачивать файлы на Android устройстве. Программа позволит планировать закачки на определенное время, докачивать файлы после обрыва связи, параллельно скачивать файлы, ускорено скачивать файлы в несколько потоков, сохранять различные типы в файлов в разные папки в зависимости от формата. Для удобства предусмотрена функция (   Читать дальше...   )Тип издания: Пиратка (открыт Pro)Релиз состоялся: 08.10.2021Разработчик: AdvancedAppПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D34332981432B7F07F83B6A7FEA510D44AE7A0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500393   (835850) от 09.10.2021
-
-Карты для iGo 2021.Q2 HERE (NQ, NavTeq) Европа [18.07.2021]
-
->>Программы, Игры и прочее
->>Карты для навигационного ПО
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835850.jpg" />
-</div>
-
-
-###  Подробнее
-
-iGO R3 Here (NavTeq) Европа 2020.Q2 (.fbl, .fda, .fjw, .fjv (Russia), .fpa, .fsp, .ftr, .hnr, .poi, .3dl, .3dc, .ph, .dem, .spc)Релиз состоялся: 18.07.2021Разработчик: HEREПоддерживаемая ОС: iGO8/Primo/MyWay/Amigo (Android, WinCE, WM)Язык интерфейса: Мультиязычный (русский присутствует)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5B668962E1324764C34B154B50B01E795B52A68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378432   (835807) от 01.05.2020
-
-Battery Widget Plus v2.43 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835807.jpg" />
-</div>
-
-
-###  Подробнее
-
-BatteryWidget показывает точный уровень заряда батареи в строке состояния, здоровья, температуры, напряжения процессора. Нажав после установки виджета, виджет показывает температуру и напряжение.
-Дважды щелкните Появится экран установки.Тип издания: Plus Paid c МаркетаРелиз состоялся: 30.04.2020Разработчик: JINASYSПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D831A983E8C3EA2FAD1D771B524A0982E18B0B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004907   (834013) от 08.04.2016
-
-Garmin: Road Map of Latvia LM and Road Map of Latvia TOPO LM v2.7 [Lv]
-
->>Программы, Игры и прочее
->>Карты для навигационного ПО
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_834013.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дорожная и топографическая карты Латвии для навигаторов Гармин.Тип издания: карты заблокированы (таблетки есть в комплекте)Релиз состоялся: март 2016Разработчик: KurTuEsiПоддерживаемая ОС: GarminЯзык интерфейса: ЛатышскийФормат: .IMG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EA042DC02F587EE47EAA6AF147063AF93059B1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

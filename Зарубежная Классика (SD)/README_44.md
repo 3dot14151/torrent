@@ -1,3 +1,55 @@
+###  Публикация: 1286401   (708959) от 04.03.2019
+
+В укрытии / Run for Cover (1955) BDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пятидесятилетний Мэтт Доу и двадцатилетний Дэйви Бишоп едва успевают познакомиться друг с другом, как жители города Мэдисон, недавно пострадавшие от налета на поезд, принимают их за бандитов.Производство: США / Paramount Pictures Corporation, Pine-Thomas ProductionsЖанр: ВестернРежиссер: Николас РэйАктеры: Джеймс Кэгни, Вивека Линдфорс, Джон Дерек, Джин Хершолт, Грант Виттерс, Джек Ламберт, Эрнест Боргнайн, Рэй Тил, Ирвинг Бэйкон, Тревор БардеттПеревод: Одноголосый закадровый (Евгений Гаевский)Субтитры: Русские (Forced), английскиеПродолжительность: 01:32:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32A447E800E98615E0A8A38801E3352A32A66886
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218220   (708012) от 17.04.2018
+
+Уик-энд в Гаване / Week-End in Havana (1941) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джей Уильямс — сотрудник корабельной компании, которая получает известие о судне, налетевшем на риф во Флориде. Все пассажиры отказываются от круиза, за исключением Нэн Спенсер, продавщицы универмага, которая хочет провести свой «отпуск» сейчас, а не потом. Джей берется за ее досуг и развлечения, и вскоре влюбляется.Производство: США / 20th Century Fox Film CorporationЖанр: Мюзикл, Мелодрама, КомедияРежиссер: Уолтер ЛэнгАктеры: Элис Фэй, Кармен Миранда, Джон Пейн, Сесар Ромеро, Собина Райт, Джордж Барбье, Шелдон Леонард, Леонид Кински, Крис-Пин Мартин, Билли ГилбертПеревод: Одноголосый закадровый (Д. Есарев)Субтитры: Русские, английскиеПродолжительность: 01:20:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B523E0C5B1B23B9EE5CDD23AA82C5A752AA482BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217938   (708001) от 17.04.2018
 
 Барабаны долины Махонке / Drums Along the Mohawk (1939) DVDRip [H.264]
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708001.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707727.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707508.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707500.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706847.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706788.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706263.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705786.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705780.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705583.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705299.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705296.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705172.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704924.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704308.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703579.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703264.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703224.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702922.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_702757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_702757.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702662.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702543.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702178.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701934.jpg" />
 </div>
 
 
@@ -621,59 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DB542FD48591FB37B190C56CF691ABDE8F18A4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023177   (701815) от 16.06.2016
-
-Не надо принимать божьих детей за диких уток / Faut pas prendre les enfants du bon Dieu pour des canards sauvages (1968) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мелкий жулик Фред украл золота на миллиард у удачливого налетчика. Красавица Рита подговорила дружка Шарля украсть добычу у Фреда. Шарль кинул Риту. А Рита срочно вызвала с Лазурного берега 70-летнюю тетушку Леонтину, которая показала всему парижскому гангстерскому подполью, где раки зимуют.Производство: Франция / Gaumont InternationalЖанр: Комедия, КриминалРежиссер: Мишель ОдиарАктеры: Франсуаза Розе, Бернар Блие, Марлен Жобер, Андре Пусс, Робер Берри, Жеральд Бруно, Мишель Шаррель, Марио Давид, Мишель Джордан, Сильвен ЛевиньякПеревод: Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:17:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B86B91AAE2BDEA8EA44B796A2C568E60D86ECC82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397076   (701178) от 14.08.2020
-
-Барьер / Barierata (1979) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по роману Павла Вежинова.
-Успешный композитор Антоний Манев добился известности и окружил себя комфортом. Преуспев и став благополучным, он перестал удивляться миру, стал черствым душой и сердцем. В его жизни неожиданно появилась юная Доротея и как бы бросила ему вызов. Несмотря на то, что у нее нелегкая жизнь, ей удалось остаться необыкновенно сильной (   Читать дальше...   )Производство: Болгария/киностудия "Бояна"Жанр: Драма, фантастикаРежиссер: Христо ХристовАктеры: Иннокентий Смоктуновский, Ваня Цветкова, Мария Димчева, Евгения Баракова, Иван Кондов, Румиания Парванова, Панайот Янев, Димитар Георгиев, Георгий Стоянов, Любомир БачваровПеревод: ДублированныйСубтитры: РусскиеПродолжительность: 01:45:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FB9E576D2C3209A303DDFEBA98FD031C85A534A
 ```
 
 https://mybot314.ru/tekegram_catalog/

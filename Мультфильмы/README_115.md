@@ -1,3 +1,134 @@
+###  Публикация: 203538   (763792) от 24.05.2010
+
+Симпсоны 20 сезон / The Simpsons Season 20  (2008-2009) SATRip [ENG]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763792.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Симпсоны» — самый долгоживущий сериал. Представляем вам 20-й сезон.
+Симпсоны живут в вымышленном городе Спрингфилд, со своим обществом и историей. Гомер - отец, который дает плохие советы и работает инспектором безопасности на атомной электростанции; Мардж - любящая мать и жена, старается сохранить спокойствие в семье; Барт - 10 летний хулиган; Лиза - философский (   Читать дальше...   )Жанр: МультсериалРежиссер: Мэтт Гроунинг / Matt GroeningПеревод: Оригинальный (Английский + Русские субтитры)Продолжительность: 00:21:23 мин.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393984   (763733) от 05.07.2020
+
+Гриффины / Family Guy (2017) WEB-DL [H.264/720p-LQ] (сезон 16, серии 1-20 из 20) 2x2
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763733.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Гриффины" (Family Guy) - анимационное ТВ-Шоу, созданное Сетом МакФарлейном (Seth MacFarlane) для телеканала FOX. Как нетрудно догадаться, главными героями шоу является семейка Гриффинов: тупой, но полный сумашедших идей, составляющих львиную долю шуток сериала, отец семейства Питер; его любящая и терпеливая жена Лоис, всеми силами пытающаяся превратить (   Читать дальше...   )Производство: США / Twentieth Century Fox Film CorporationЖанр: КомедияРежиссер: Сет МакФарлейнАктеры: Сет МакФарлейн, Алекс Борштейн, Сет Грин, Мила Кунис, Майк Генри, Джон Винер, Дэнни Смит, Патрик Варбертон, Ральф Гармен, Алек СалкинПеревод: Многоголосый профессиональный (2x2)Субтитры: русские (forced) английские (SDH)Продолжительность: ~00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EF37734BDBE214EF6BBFC7D994579B59967B281
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393992   (763720) от 05.07.2020
+
+Гриффины / Family Guy (2017) WEB-DLRip (сезон 16, серии 1-20 из 20) 2x2
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763720.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Гриффины" (Family Guy) - анимационное ТВ-Шоу, созданное Сетом МакФарлейном (Seth MacFarlane) для телеканала FOX. Как нетрудно догадаться, главными героями шоу является семейка Гриффинов: тупой, но полный сумашедших идей, составляющих львиную долю шуток сериала, отец семейства Питер; его любящая и терпеливая жена Лоис, всеми силами пытающаяся превратить (   Читать дальше...   )Производство: США / Twentieth Century Fox Film CorporationЖанр: КомедияРежиссер: Сет МакФарлейнАктеры: Сет МакФарлейн, Алекс Борштейн, Сет Грин, Мила Кунис, Майк Генри, Джон Винер, Дэнни Смит, Патрик Варбертон, Ральф Гармен, Алек СалкинПеревод: Многоголосый профессиональный (2x2)Субтитры: русские (forced) английские (SDH) - отдельными файламиПродолжительность: ~00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:394C11E0EC5AB36E30070B4FC59F8FF7212D9BD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394476   (763712) от 05.07.2020
+
+Каникулы Бонифация (1965) WEBRip [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763712.jpg" />
+</div>
+
+
+###  Подробнее
+
+О добром цирковом льве, который поехал на каникулы в Африку к бабушке и все время, вместо отдыха, развлекал малышей, показывая им цирковые представления.Производство: СССР / СоюзмультфильмЖанр: Короткометражный, рисованная анимация, семейныйРежиссер: Фёдор ХитрукСубтитры: ОтсутствуютПродолжительность: 00:20:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:561DE706F72EF7FAC360C7F4617FA4495E3124A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394441   (763709) от 05.07.2020
+
+Три мушкетера (1938) DVDRip [H.264] [hand made colored]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Об утенке, читавшем Дюма и во сне ставшим мушкетером. Цветной.Производство: СССР, СоюзмультфильмЖанр: Детский, Рисованная анимация, ПриключенияРежиссер: Иван Иванов-ВаноСубтитры: отсутствуютПродолжительность: 00:11:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE8AF96DA23A08938E143D8FA6350BCACD7B327A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 528550   (763509) от 05.07.2020
 
 От двух до пяти (1983) DVDRip [H.264] [Реставрация]
@@ -6,7 +137,7 @@
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763509.jpg" />
 </div>
 
 
@@ -33,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763402.jpg" />
 </div>
 
 
@@ -59,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763328.jpg" />
 </div>
 
 
@@ -85,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762783.jpg" />
 </div>
 
 
@@ -111,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762463.jpg" />
 </div>
 
 
@@ -137,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762408.jpg" />
 </div>
 
 
@@ -163,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762384.jpg" />
 </div>
 
 
@@ -189,7 +320,7 @@ Lego: Рыцари Нексо /  Lego: Nexo Knights (2015) WEBRip (сезон 1,
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762321.jpg" />
 </div>
 
 
@@ -215,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762288.jpg" />
 </div>
 
 
@@ -241,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762208.jpg" />
 </div>
 
 
@@ -267,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762206.jpg" />
 </div>
 
 
@@ -293,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762105.jpg" />
 </div>
 
 
@@ -319,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761980.jpg" />
 </div>
 
 
@@ -347,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761968.jpg" />
 </div>
 
 
@@ -373,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761931.jpg" />
 </div>
 
 
@@ -399,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761928.jpg" />
 </div>
 
 
@@ -425,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761914.jpg" />
 </div>
 
 
@@ -451,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761866.jpg" />
 </div>
 
 
@@ -477,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761821.jpg" />
 </div>
 
 
@@ -503,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761645.jpg" />
 </div>
 
 
@@ -529,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761643.jpg" />
 </div>
 
 
@@ -540,136 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3DB36EACAF3FA3FD220A6DD6D912CFB5EF3BD39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521985   (761642) от 05.01.2022
-
-Что, если...? / What If...? (2021) WEB-DL [H.265/2160p] [4K, HDR10, 10-bit] (сезон 1, серии 1-9 из 9) Flarrow Films
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создатели сериала представляют, что будет, если изменить некоторые важные моменты из жизни персонажей Marvel.Производство: США / Flying Bark Productions, Marvel Studios Inc.Жанр: Мультфильм, фэнтези, боевик, приключенияРежиссер: Брайан ЭндрюсАктеры: Джеффри Райт, Хейли Этвелл, Джош Бролин, Доминик Купер, Давид Дастмалчян, Майкл Дуглас, Карен Гиллан, Джефф Голдблюм, Фрэнк Грилло, Шон ГаннПеревод: Дублированный любительский (Flarrow Films)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (Full)Продолжительность: ~00:31:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AED39B53FE9A78AEFD64C8BE173780E70066CC65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 661550   (761628) от 27.05.2013
-
-Как приручить дракона / How to Train Your Dragon (2010) BDRip [UKR]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761628.jpg" />
-</div>
-
-
-###  Подробнее
-
-У викинга Хиккупа Хоррендуса Хэддока III, наследника трона королевства викингов, есть заветная мечта - он хочет стать героем, так как в силу своих личных качеств им не является. Чтобы заслужить уважение соплеменников он отправляется в опаснейшее путешествие, чтобы найти самого страшного, ужасного и громадного дракона, но находит маленькое и практически безобидное (   Читать дальше...   )Производство: DreamWorks Animation, Mad Hatter Entertainment, Mad Hatter Films, Vertigo EntertainmentЖанр: мультфильм, фэнтези, семейныйРежиссер: Дин ДеБлуа, Крис СандерсПеревод: дублированный (Продолжительность: 01:37:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:113AB552446859D2C4200318A931E665EE08DB91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522037   (761517) от 05.01.2022
-
-Щелкунчик (1973) DVDRip [H.264/1080p-LQ] [handmade remastered upscale AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая девушка, убираясь под елкой, находит игрушку в виде Щелкунчика для орехов. Щелкунчик оживает и рассказывает ей грустную историю о своём проклятии и коварной королеве мышиного царства. Вдруг откуда-то из угла комнаты слышится странный звук. По стене пробегают трещины, и из пролома появляется мышиный царь. Он стал большим и страшным, но и сам Щелкунчик возмужал (   Читать дальше...   )Производство: СССР / СоюзмультфильмЖанр: мультфильм, фэнтези, короткометражка, семейныйРежиссер: Борис СтепанцевСубтитры: отсутствуютПродолжительность: 00:25:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:128918B7D8BFBDCF3545226A759BC04801FAC173
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522042   (761513) от 05.01.2022
-
-Лига монстров / Rumble (2021) WEB-DLRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761513.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире, где монстрический реслинг – обожаемый вид спорта, а монстры-спортсмены – настоящие звезды, девушка Винни мечтает пойти по стопам отца и начинает тренировать монстра-аутсайдера. Милашке-неудачнику предстоит пройти непростой путь под руководством юной, но суровой наставницы, чтобы стать чемпионом.Производство: США, Австралия, Канада / Paramount Animation, Paramount Pictures, Reel FX Creative Studios, Walden Media, WWE StudiosЖанр: Мультфильм, фэнтези, комедия, семейный, спортРежиссер: Хамиш ГривАктеры: Уилл Арнетт, Терри Крюс, Джеральдин Вишванатан, Джо Аноаи, Тони Данза, Стефен А. Смит, Джимми Татро, Тони Шэлуб, Сьюзэн Келечи Уотсон, Бриджет ЭвереттПеревод: Дублированный (IVI)Язык озвучки: Русский, английскийСубтитры: Русские (full) - отдельноПродолжительность: 01:34:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D04C1D1EB1DF3D65812187D8CF5FCC98D5252D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522026   (761422) от 05.01.2022
-
-Лига монстров / Rumble (2021) WEB-DL [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761422.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире, где монстрический реслинг – обожаемый вид спорта, а монстры-спортсмены – настоящие звезды, девушка Винни мечтает пойти по стопам отца и начинает тренировать монстра-аутсайдера. Милашке-неудачнику предстоит пройти непростой путь под руководством юной, но суровой наставницы, чтобы стать чемпионом.Производство: США, Австралия, Канада / Paramount Pictures, Reel FX Creative StudiosЖанр: мультфильм, фэнтези, комедия, приключения, семейный, спортРежиссер: Хамиш ГривПеревод: дублированный, двухголосый любительский (Pazl Voice)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:34:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A2A96437FE08974E1363780CB10AE585B12BCDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

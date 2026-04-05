@@ -6,7 +6,7 @@ Akai Koudan Zillion: Utahime Yakyoku | Red Photon Zillion: Burning Night | Кр�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462195.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Gekijouban Hibike! Euphonium | Sound! Euphonium The Movie | Играй, эуфо
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461628.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Princess Tutu | Принцесса Тютю [2002, TV, 38 + 3] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459963.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Neppu Kairiku Bushi Road | Neppuu Kairiku Bushi Road | Burning Wind Ocean Earth 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455446.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Plunderer | Грабитель [2020, TV, 24 из 24] BDRip 1080p HEVC 10-bit ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455421.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Log Horizon | Лог Горизонтa [TV-1][2013, TV, 25 эп.] BDrip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455214.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Seisenshi Dunbine: New Story of Aura Battler Dunbine | Aura Battle Dunbine: The 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453602.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Okusama ga Seito Kaichou! / My Wife Is the Student Council President! / Моя �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453099.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Isekai Quartet 2 | Четвёрка попаданцев 2 [2020, TV, 12 из 12
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451465.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Koi wa Sekai Seifuku no Ato de | Love After World Domination | Любовь по
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449561.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Shinmai Maou no Testament | The Testament of Sister New Devil | Завет Дь�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448627.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Fate/Stay Night Unlimited Blade Works / Судьба: Ночь Схватки (�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447430.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Toaru Hikuushi e no Koiuta | The Pilot's Love Song | Песня любви од�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447106.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Shashinkan | Фотоателье [2013, Movie] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447025.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Robot Girls Z | Девочки-роботы Зет [2014, TV, 3 эп.] BDRip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444750.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Servamp | Сервамп [2016, TV] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443140.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Pop in Q | Поп и Кью [2016, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440729.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Kakushigoto | Kakushigoto: My Dad's Secret Ambition | Скрытые вещи [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440593.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ BPS: Battle Programmer Shirase | Боевой программер Сирасэ 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440587.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Dragon's Dogma | Догма дракона [2020, Web, 7 эп.] WEB-DL 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439984.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Gekijouban Fate/Stay Night: Heaven's Feel - Lost Butterfly | Судьба: Но�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437349.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Hakugei Densetsu | Hakugei: Legend of the Moby Dick | Legend of the White Whale 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435967.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ The Idolmaster Movie: Kagayaki no Mukougawa e! | The Idolmaster Movie: Beyond th
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434487.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Joukamachi no Dandelion / Castle Town Dandelion / Одуванчик из при
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434388.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Listeners | Слушатели [2020, TV, 12 из 12] BDRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433968.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Recorder to Randsell Mi / Флейта в рюкзаке Ми [2013, TV, 12 + 1 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433744.jpg" />
 </div>
 
 

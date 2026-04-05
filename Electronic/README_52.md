@@ -1,3 +1,59 @@
+###  Публикация: 1349552   (1004219) от 02.01.2020
+
+Нейромонах Феофан - Я готов (2019) Single [MP3|320 Kbps] <Drum & Bass, Electronic>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004219.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Я готов
+2. МирЖанр: Drum & Bass, ElectronicПродолжительность: 00:07:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31E4CB72C436BAF06CAB7F78115B589678F8508B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487163   (1004147) от 03.08.2021
+
+Nils Hoffmann - Once in a Blue Moon (Remixes) (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1.16699016 x 10^-8 hertz (Niklas Paschburg Remix) (4:12)
+ 02. Wherever You Are (Tinlicker Remix) (5:48)
+ 03. The Clouds Silver Lining (Joachim Pastor Remix) (6:50)
+ 04. Once in a Blue Moon (Eightfold Remix) (5:56)(   Читать дальше...   )Жанр: Deep Progressive House, Tech HouseПродолжительность: 01:05:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85FB16C9E8FBE4D553EC66DE693996CB368F12F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1486929   (1004130) от 03.08.2021
 
 VA - Bonfire on the Beach: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -6,7 +62,7 @@ VA - Bonfire on the Beach: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004130.jpg" />
 </div>
 
 
@@ -35,7 +91,7 @@ Disco Deejays - Stayin' Alive / Night Fever (2006) [FLAC|Lossless|image + .cue] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004109.jpg" />
 </div>
 
 
@@ -64,7 +120,7 @@ V.A. - Cafe Del Mar Essentials (Vol. 1) (2019) [FLAC|Lossless|WEB-DL|tracks] <Lo
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004068.jpg" />
 </div>
 
 
@@ -93,7 +149,7 @@ VA - Trance Dance - Back to the 90s (2019) 2CD [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004066.jpg" />
 </div>
 
 
@@ -122,7 +178,7 @@ VA - Best Vocal Chill Out Remixes for 2019 [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004064.jpg" />
 </div>
 
 
@@ -151,7 +207,7 @@ VA - Train with Us, Vol. 1 (2020) [MP3|320 Kbps] <Drum'n'Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004063.jpg" />
 </div>
 
 
@@ -180,7 +236,7 @@ Na-Hag - Discography 7 Releases (2011-2020) [FLAC|Lossless|WEB-DL|tracks] <Dark 
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003921.jpg" />
 </div>
 
 
@@ -209,7 +265,7 @@ Midub - The Story Dub (2017) [FLAC|Lossless|tracks] <Dub Techno, Deep Techno, Am
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003882.jpg" />
 </div>
 
 
@@ -237,7 +293,7 @@ W O L F C L U B (Wolfclub) - Just Drive - Part 2 (2021) [FLAC|Lossless|WEB-DL|tr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003857.jpg" />
 </div>
 
 
@@ -266,7 +322,7 @@ VA - The Aperitif Party (House Grooves Only) (2020) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003810.jpg" />
 </div>
 
 
@@ -295,7 +351,7 @@ VA - Best Of Ibiza 2020 [MP3|320 Kbps] <Minimal, Tech House, Funky>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003797.jpg" />
 </div>
 
 
@@ -324,7 +380,7 @@ The Sweet Life Society - Antique Beats (2018) [MP3|320 Kbps] <Trip-Hop>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003773.jpg" />
 </div>
 
 
@@ -353,7 +409,7 @@ Flume - Hi This Is Flume (2019) Mixtape [FLAC|Lossless|Web-DL|tracks] <Experimen
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003756.jpg" />
 </div>
 
 
@@ -382,7 +438,7 @@ Eskmo | Welder - Discography 30 Releases (1999-2019) [FLAC|Lossless|tracks+.cue,
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003744.jpg" />
 </div>
 
 
@@ -411,7 +467,7 @@ York - Islanders (2012) Planet Love Records #ARDI3244 [FLAC|Lossless|WEB-DL|trac
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003678.jpg" />
 </div>
 
 
@@ -440,7 +496,7 @@ Troekurovo Recordings | Toki Fuko, Vadim Basov, Evgeny Vorontsov - Discography 3
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003625.jpg" />
 </div>
 
 
@@ -469,7 +525,7 @@ VA - Secret Room: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balea
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003624.jpg" />
 </div>
 
 
@@ -498,7 +554,7 @@ VA - Amberdelic Space (1996) Dressed To Kill [FLAC|Lossless|tracks+.cue] <Downte
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003618.jpg" />
 </div>
 
 
@@ -527,7 +583,7 @@ VA - Lavender in Summer: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003617.jpg" />
 </div>
 
 
@@ -556,7 +612,7 @@ Si Matthews (Confluent Phase, Cryostasis) - Discography (2015-2019) Carpe Sonum,
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003548.jpg" />
 </div>
 
 
@@ -583,7 +639,7 @@ Nuron | Fugue - Discography 8 Releases (1993-2021) Likemind, De:tuned [FLAC|Loss
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003304.jpg" />
 </div>
 
 
@@ -612,7 +668,7 @@ Dronarivm - Label-Pack 85 Releases (2012-2021) [FLAC|Lossless|tracks+.cue, track
 >>Label-Packs
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003245.jpg" />
 </div>
 
 
@@ -641,7 +697,7 @@ Tangent - Discography 8 Releases (2012-2021) Mindtrick Records, Tympanik Audio, 
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003222.jpg" />
 </div>
 
 
@@ -670,7 +726,7 @@ Doyeq - Discography 43 Releases (2009-2021) [FLAC|Lossless|WEB-DL|tracks] <Dub T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003220.jpg" />
 </div>
 
 
@@ -684,61 +740,6 @@ Doyeq - Discography 43 Releases (2009-2021) [FLAC|Lossless|WEB-DL|tracks] <Dub T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2261EB0DEB2C65ECA9D9986A2D7861D992753B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180192   (1003217) от 06.08.2021
-
-Holon - Discography 11 Releases (2013-2021) Subatomic Audio [FLAC|Lossless|WEB-DL|tracks] <IDM, Industrial, Breaks, Psybient, Downtempo, Electro, Synthwave>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On The Outside Looking In (05:02)
- 02. Have Things Gone Too Far (05:25)
- 03. This Is The Only Way (04:26)
- 04. A Glimpse Into Infinity (05:31)(   Читать дальше...   )Тип издания: WebЖанр: IDM, Industrial, Experimental, Breaks, Psybient, Downtempo, Electro, Synthwave •Продолжительность: 10:53:03 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:465C69681FB4B5DF8BE135B937FB0130DB2EA346
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487832   (1003071) от 07.08.2021
-
-Fidem Community - Discography 20 Singles (2020-2021) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Two One (06:31)Тип издания: Web •Жанр: Deep House •Продолжительность: 02:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DCC8AF15E025B26226CCADE3833172CE9228C2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

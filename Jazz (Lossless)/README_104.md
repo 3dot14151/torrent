@@ -6,7 +6,7 @@ Seby Burgio - Bounce (2015) [FLAC|Lossless|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704165.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Tete Montoliu Trio - Secret Love (1977) Remaster, 2015, Solid Records[FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704163.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Rein de Graaff Trio - Tenor Conclave (1992) Remaster, 2015, Solid Records[FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704162.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Hampton Hawes - Three Classic Albums Plus (1955 - 1956) 2013, 2CD, Avid Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703947.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Frances Madden - Beautiful World (2020) [FLAC|Lossless|image + .cue] <Vocal Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703931.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ John Zorn - Baphomet (2020) [FLAC|Lossless|image + .cue] <Jazz-Rock>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703928.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Dave Frishberg - Lookin Good (1977, 1989) 2CD, 2001, Concord Jazz [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703200.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Eric Alexander - Nightlife In Tokyo (2003) Milestone [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703197.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ The Three Sounds - Here We Come (1960) Remaster, 2015, Universal[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702528.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Johnny Griffin & Matthew Gee - Soul Groove (1963) Remaster, 2012, Warner[FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702520.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Joe Lovano & Dave Douglas - Sound Prints (2015) Blue Note[FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702518.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Rosemary Clooney - Eight Classic Albums (1955 - 1961) 4CD, 2013, Real Gone Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702457.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Brian Melvin featuring Jaco Pastorius - Night Food (1985) Remaster, 2015, Solid 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702439.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Renee Rosnes - Art & Soul (1999) Blue Note [FLAC|Lossless|tracks + .cue] <Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701975.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ KAVver. - Antonio (2016) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Post Jazz, Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701974.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Renee Rosnes - Life On Earth (2001) Blue Note [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701973.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Renee Rosnes - Ancestors (1996) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701972.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Renee Rosnes - Without Words (1992) Blue Note [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701971.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Ella Fitzgerald - The Harold Arlen Songbook (1961) 1988, 2CD, Verve [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701967.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Jackie Gleason - Jackie Gleason Presents Riff Jazz and Lazy Lively Love (2020) [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701961.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ KAVver. - Hollow/In (2018) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Noir Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701887.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Paul Williams - Colours of Joy (2020) [FLAC|Lossless|tracks + .cue] <Jazz, Smoot
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701836.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Louis Armstrong - The Ultimate Collection (1994) Remastered [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701773.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Louis Armstrong - Hello Louis! (1990) 2CD [FLAC|Lossless|image + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701772.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ VA - Sentimental Midnight Jazz (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701766.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Lionel Hampton - Reunion At Newport 1967 (1993) Bluebird [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701282.jpg" />
 </div>
 
 

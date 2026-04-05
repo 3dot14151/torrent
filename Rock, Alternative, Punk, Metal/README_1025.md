@@ -1,3 +1,32 @@
+###  Публикация: 1595433   (175182) от 06.12.2022
+
+The Thanatonauts - Зов (2022) [FLAC|Lossless|WEB-DL|tracks] <Post Metal, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Искупление [00:05:09]
+02. Gone [00:04:30]
+03. Эшафот [00:04:10]
+04. Зов [00:05:11](   Читать дальше...   )Жанр: Post Metal, Alternative MetalПродолжительность: 00:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45221A878D397C8C192B4F2089F8756B4D60B3A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595436   (175180) от 06.12.2022
 
 Pale King - We Are but Memories (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
@@ -6,7 +35,7 @@ Pale King - We Are but Memories (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175180.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Bark - Rambler of Aeons (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175179.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Moon Shepherd - Between The Circles (2022) [Mp3|320kbps] <Heavy, Stoner Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175177.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Meteora - Our Paradise (2017) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175166.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Mephistopheles - Songs Of The Desolate Ones (1999) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175161.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Oceans Of Slumber - Oceans Of Slumber (2020) [FLAC|Lossless|image + .cue] <Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175158.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Rain - Singularity (2020) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175155.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Paramore - Re: This Is Why (2023) [MP3|320 Kbps] <Alt. Rock, Pop Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175148.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Jinjer - Cloud Factory (2014) Reissue, 2018, Napalm Records [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175142.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Meteora - Tragedy of Delusion (2020) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175140.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Mythika - Unholy Glory (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175136.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Motorhead - Blitzkrieg On Birmingham '77 (1989) [WavPack|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175127.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Antropofagus - Origin (2022) [FLAC|Lossless|image + .cue] <Brutal Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175122.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Les Big Byrd - Eternal Light Brigade (2022) [FLAC|Lossless|WEB-DL|tracks] <Psych
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175111.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Cyan Kicks - Someone Like You (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175107.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ The Hong Kong Sleepover - 4 Albums (2009-2019) [MP3|320 Kbps] <Hard Rock,  Heavy
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175105.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Lamb Of God - Omens (2022) [FLAC|Lossless|image + .cue] <Thrash, Metalcore, Groo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175086.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Disturbed - Ten Thousand Fists (2005) [FLAC|Lossless|tracks + .cue] <Nu Metal, A
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175064.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ VA - Slow Rock (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175045.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Xandria - The Wonders Still Awaiting (2022) [FLAC|Lossless|WEB-DL|tracks] <Symph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175034.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Dopelord - Songs for Satan (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174773.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174772.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ XTC - The Big Express (1984) Remaster, 2001, Virgin Records [FLAC|Lossless|WEB-D
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174740.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Samsara Blues Experiment - Rock Hard in Concert - Live (2023) [FLAC|Lossless|WEB
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174730.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Mortifer Rage - Murderous Ritual (2008) [FLAC|Lossless|image + .cue] <Brutal Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174704.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Mortifer Rage - Murderous Ritual (2008) [FLAC|Lossless|image + .cue] <Brutal Dea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22A7D2D192DB0C06821AB1952DBC3005AB312C97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595812   (174638) от 07.12.2022
-
-Aeon Zen - Ephemera (2014) [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Entity (6:07)
-02. Soul Machine (5:29)
-03. Life? (6:44)
-04. Unite (5:11)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:45:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96BBB6E51554B539CD3595257C4E93DA3C5756BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

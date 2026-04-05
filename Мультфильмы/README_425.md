@@ -1,3 +1,133 @@
+###  Публикация: 1805413   (12430) от 05.07.2025
+
+Аленький цветочек (1952) DVDRip  [H.264]  [Крупный план, реставрация]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Было у купца три дочери. Отправляясь в заморское странствие, пообещал он им привезти подарки, какие они пожелают. Две старшие попросили себе тканей и красивых безделушек. И лишь меньшая, любимая Настенька, заказала отцу чудо диковенное, невиданное - аленький цветочек, который видела она во сне.Производство: СССР / СоюзмультфильмЖанр: сказка, мультфильм, детский, короткометражка, фэнтезиРежиссер: Лев АтамановАктеры: Николай Боголюбов, Владимир Грибков, Ольга Чепурова, Мария Барабанова, Нина Крачковская, Алексей Консовский, Юльен Балмусов, Ирина Маликова, Юлия Парнес, Владимир Конкин и другиеСубтитры: отсутствуютПродолжительность: 00:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85DDDDD722F31933D707E28C47747B097DA6F422
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805520   (12331) от 06.07.2025
+
+Все псы попадают в рай / All Dogs Go to Heaven (1989) BDRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пес по имени Чарли Баркин, занимавшийся азартными играми, погибает от лап питбуля Тупорыла и оказывается в раю — просто потому, что все псы обязательно попадают в рай. Однако Чарли так хочет рассчитаться со своим убийцей, что возвращается в мир живых.Производство: Ирландия, Великобритания, США, Франция / Goldcrest Films International, Don Bluth Productions, Sullivan Bluth StudiosЖанр: мультфильм, мюзикл, фэнтези, драма, комедия, приключения, семейныйРежиссер: Дон Блут, Гари Голдман, Дэн КюнстерПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:24:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:246D503B800F4853B7D551FCABD95DD9C840C817
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805555   (12278) от 07.07.2025
+
+Джунгли Юрского периода / Jungle Beat 2: The Past (2025) WEB-DLRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12278.jpg" />
+</div>
+
+
+###  Подробнее
+
+Звери из африканских джунглей проваливаются во временной портал, который забыли закрыть за собой инопланетяне. Чтобы вернуться в будущее, друзьям потребуется помощь динозавров. Вот только древним ящерам своих проблем хватает. Ведь их мир вот-вот захватят вооруженные дубинками пещерные пришельцы.Производство: Маврикий, ЮАР / Sandcastle Studios, Sunrise ProductionsЖанр: рисованная анимацияРежиссер: Сэм УилсонАктеры: Дэвид Ринтул, Люси Монтгомери, Сандра Дикинсон, Дэвид Менкин, Флорри Уилкинсон, Эд Кейр, Ина Мари Смит, Дженни Стэд, Ричард Дж.В. Фёрт, Роб ван Вуурен и другиеПеревод: Дублированный (Пифагор)Язык озвучки: русскийСубтитры: русскиеПродолжительность: 01:30:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA8A1F7CF17E9D323E40E180E430F8EA62F6C99E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805275   (12255) от 07.07.2025
+
+Моана 2 / Moana 2 (2024) WEB-DLRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Получив вызов от предков-искателей, Моана и Мауи отправляются в далёкие и опасные воды Океании.Производство: США, Канада / Walt Disney Animation StudiosЖанр: мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Дэвид Деррик мл., Джейсон Хэнд, Дэна Леду МиллерАктеры: Аулии Кравальо, Дуэйн Джонсон, Хуалалай Чун, Роуз Матафео, Дэвид Фейн, Авимаи Фрейзер, Калиси Ламберт-Цуда, Темуэра Моррисон, Николь Шерзингер, Рэйчел ХаусПеревод: Дублированный, МногоголосыйЯзык озвучки: Русский, АнглийскийСубтитры: русские (Forced, 2xFull), английские (Full, SDH), украинские (Full, SDH) и др.Продолжительность: 01:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB71C0C474A07924F02502717C61179A7609AD9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805643   (12178) от 08.07.2025
+
+Дандадан / Dandadan / Dan Da Dan / Dan Dadan (2024) BDRip [AV1/2160p] [4K, SDR, 10-bit] (сезон 1, серии 1-12 из 12) Studio Band, Flarrow Films [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старшеклассница Момо Аясэ верит в привидений. Однажды она знакомится с парнем Кэном Такакурой, который убеждён в существовании инопланетян. Они начинают спорить, пытаясь навязать друг другу свою точку зрения, и решают посетить оккультные места. Выясняется, что оба были правы.Производство: Япония / Science SaruЖанр: аниме, мультфильм, фантастика, фэнтези, комедия, боевикРежиссер: Фуга ЯмасироАктеры: Сион Вакаяма, Нацуки Ханаэ, Маюми Танака, Нана Мидзуки, Аянэ Сакура, Каори Маэда, Мию Томита, Кодзи Сэки, Ая Яманэ, Юкико МотоёсиПеревод: Дублированный (Studio Band, Flarrow Films)Язык озвучки: Русский, ЯпонскийСубтитры: русские (forced, full)Продолжительность: ~00:24:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F628451CD922C53C64E25FE46D00512C6F81E117
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805830   (12049) от 09.07.2025
 
 Пиф-паф, ой-ой-ой! (1980) DVDRip
@@ -6,7 +136,7 @@
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12049.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12022.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12013.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11960.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11930.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11926.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11838.jpg" />
 </div>
 
 
@@ -190,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11808.jpg" />
 </div>
 
 
@@ -216,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11796.jpg" />
 </div>
 
 
@@ -242,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11795.jpg" />
 </div>
 
 
@@ -268,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11755.jpg" />
 </div>
 
 
@@ -294,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11746.jpg" />
 </div>
 
 
@@ -320,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11743.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11707.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11700.jpg" />
 </div>
 
 
@@ -401,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11556.jpg" />
 </div>
 
 
@@ -427,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11548.jpg" />
 </div>
 
 
@@ -453,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11528.jpg" />
 </div>
 
 
@@ -479,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11525.jpg" />
 </div>
 
 
@@ -505,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11509.jpg" />
 </div>
 
 
@@ -531,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11487.jpg" />
 </div>
 
 
@@ -542,138 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:329275F52CDD69A996DB0584B384643317A36600
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806789   (11383) от 15.07.2025
-
-Самый, самый, самый, самый (1966) WEB-DL [H.264/1080p]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11383.jpg" />
-</div>
-
-
-###  Подробнее
-
-О маленьком Львенке, который вообразил себя самым умным, сильным, храбрым, красивым, но вскоре понял, что хвастовство до добра не доводит.Производство: СССР / СоюзмультфильмЖанр: рисованная анимация, мультфильм, детский, короткометражкаРежиссер: Василий ЛивановАктеры: Владимир Корецкий, Рина Зелёная, Валентина Сперантова, Иван Тарханов, Елена Понсова, Клара Румянова, Владимир Балашов, Валентина Туманова, Василий Ливанов, Александр Баранов и другиеСубтитры: отсутствуютПродолжительность: 00:18:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92E70D18693FE2D9BF37161406F783785A60AC67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807014   (11318) от 16.07.2025
-
-Фильм, фильм, фильм (Сборник мультфильмов) (1967-1995) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто в этот мир попал — навеки счастлив стал! Гениальный мульт об изнанке кинопроизводства! Шикарный мультфильм на все времена! Фильм, которому не нужны слова. Все и без них ясно и понятно, и главное – удивительно смешно. И ещё ВАС ожидает в этом сборнике целых 6 таких же хороших мультиков!Производство: СССР, Россия  / Союзмультфильм, 	ТО «Экран»Жанр: рисованная анимация, мультфильм, комедия, короткометражкаРежиссер: Фёдор Хитрук, Ефим Гамбург, Михаил Зайцев, Розалия ЗельмаАктеры: Алексей Полевой, Георгий Вицин, Игорь Верник, Всеволод Абдулов, Александр Пожаров, Рогволд Суховерко, леб Морозов, Всеволод Ларионов, Александр БарановСубтитры: отсутствуютПродолжительность: 01:29:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50FECD961EA5BAC2EB34ACF697FC4199AB3E674F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807354   (11134) от 18.07.2025
-
-Кунг-фу кот / Kung fu cat / Jin Ling Yu Mao (2024) WEBRip [H.264/1080p] | Локализованная версия
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда-то в глубокой древности у великого и непобедимого генерала был говорящий кот, сражавшийся с хозяином бок о бок. Однажды им встретился жестокий и могущественный воин, который используя нечестные приемы выиграл бой. С тех пор генерал пропал, а боевой кот превратился в изгоя, скрывающегося среди бродячих котов. Спустя много лет, когда опасность начала грозить (   Читать дальше...   )Производство: Китай / Cinerenta Medienbeteiligungs KGЖанр: Мультфильм, боевик, фэнтезиРежиссер: Цао ЛянАктеры: Чжан Цзе, Лю Цун, Лю Сяоюй, Ма Чжэнъян, Чжу ИПеревод: Дублированный (КиноПоиск HD)Субтитры: РусскиеПродолжительность: 01:33:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C13E13BC0AA4E757BA74A42E5012FE784C6E8A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807221   (11091) от 18.07.2025
-
-Крутой учитель Онидзука / Gureeto Tiichaa Onizuka / Great Teacher Onizuka / GTO (1999-2000) DVDRip [AV1/2160p] [4K, SDR, 10-bit] (серии 1-43 из 43) MC Entertainment [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эйкити Онидзука – это ужас на колесах, мотоциклист, которого ужасаются все горожане. Он любит представлять себя так: «22 года, холост». Онидзука решает переквалифицироваться в учителя, так как в учебных заведениях очень много красивых старшеклассниц в коротких юбочках.
-
-Учитель школы, который уже успел примерить на себе роль ужасающего хулигана, на месте работы пытается (   Читать дальше...   )Производство: Япония / Studio PierrotЖанр: аниме, мультфильм, комедия, мелодрамаРежиссер: Нориюки Абэ, Наоясу Ханъю, Хаято ДатэАктеры: Ватару Такаги, Фумико Орикаса, Тё, Дзюнъити Сувабэ, Томокадзу Сэки, Мэгуми Огата, Тору Фуруя, Котоно Мицуиси, Косукэ Окано, Тэссё ГэндаПеревод: Многоголосый профессиональный (MC Entertainment)Язык озвучки: Русский, ЯпонскийСубтитры: русскиеПродолжительность: ~00:25:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A211D124B87807572824CF81DDB64FDB6E5906FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807633   (10914) от 20.07.2025
-
-Клеймор / Kureimoa / Claymore (2007) BDRip [AV1/2160p] [4K, SDR, 10-bit] (серии 1-26 из 26) KANSAI [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альтернативное средневековье, где люди сосуществуют с оборотнями - ёма, питающимися человеческим мясом. Принимая облик своих жертв, ёма могут скрываться среди людей. Кроме того, съев мозг человека, чудовище может завладеть его воспоминаниями. С целью борьбы с ёма безымянная тайная Организация создала орден могучих воинов, получивших прозвище клеймор. Процесс создания (   Читать дальше...   )Производство: Япония / Avex Entertainment, D.N. Dream Partners, Madhouse, Nihon Television Network, VAPЖанр: аниме, мультфильм, фэнтези, драма, приключенияРежиссер: Хироюки ТанакаАктеры: Хоко Кувасима, Мотоки Такаги, Тору Нара, Ёити Нисидзима, Юити Накамура, Хана Такэда, Кикуко Иноуэ, Мики Нагасава, Котоно Мицуиси, Кунихиро КавамотоПеревод: Многоголосый любительский (KANSAI)Язык озвучки: Русский, ЯпонскийСубтитры: русскиеПродолжительность: ~00:23:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BC9BC071FE6A58A962C575A0F11857EDA4EF2AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

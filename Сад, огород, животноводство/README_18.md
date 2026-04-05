@@ -1,29 +1,3 @@
-###  Публикация: 467230   (81861) от 13.03.2012
-
-А.А. Барташевич, С.А.Титов | Садовый участок: архитектура, интерьер, оборудование [1990] [pdf]
-
->>Разное (категория книг)
->>Сад, огород, животноводство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Садоводы-любители, индивидуальные застройщики узнают из этой книги, как спланировать и оформить садовый участок, какому проекту дома отдать предпочтение, как сложить печь, какие строительные и отделочные материалы использовать и как придать всему красоту и уют.1990Формат: pdf
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA0AE1AAA6E4775614BA7D31902D25C15D821640
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 465323   (81036) от 09.03.2012
 
 Л.И.Бучкина | 600 суперсоветов для суперурожая [2012] [Pdf]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81036.jpg" />
 </div>
 
 
@@ -59,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_73295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73295.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61133.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56955.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56583.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50194.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ B. Синельников | Энциклопедия бывалого дачни
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50186.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48321.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40701.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40512.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40486.jpg" />
 </div>
 
 
@@ -321,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39765.jpg" />
 </div>
 
 
@@ -348,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38814.jpg" />
 </div>
 
 
@@ -377,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38812.jpg" />
 </div>
 
 
@@ -403,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38422.jpg" />
 </div>
 
 
@@ -429,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35348.jpg" />
 </div>
 
 
@@ -457,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34088.jpg" />
 </div>
 
 
@@ -485,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32953.jpg" />
 </div>
 
 
@@ -511,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32505.jpg" />
 </div>
 
 
@@ -540,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29152.jpg" />
 </div>
 
 
@@ -567,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29140.jpg" />
 </div>
 
 
@@ -593,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28584.jpg" />
 </div>
 
 
@@ -619,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27427.jpg" />
 </div>
 
 
@@ -646,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27342.jpg" />
 </div>
 
 
@@ -672,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27287.jpg" />
 </div>
 
 
@@ -683,6 +657,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:904F9019EBF5247B74BF1E5B3E845D334F25044F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780496   (27199) от 18.02.2025
+
+Р.А. Карписонова | Цветник в тени (2024) [PDF]
+
+>>Разное (категория книг)
+>>Сад, огород, животноводство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27199.jpg" />
+</div>
+
+
+###  Подробнее
+
+На участок не попадает ни единого лучика солнца? А может, хотите украсить самые темные уголки вашего сада и думаете, что в тени не приживется ни один красивый цветок? Римма Карписонова — доктор биологических наук, главный научный сотрудник Главного ботанического сада РАН и автор крупнейшей в Европе коллекции «Сад в тени» — не только докажет, что можно создать прекрасную (   Читать дальше...   )Жанр: растениеводство, ландшафтный дизайнИздательство: АСТ, КладезьФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62AC8E6707621D6BEF32175B6B81AFF494319D98
 ```
 
 https://mybot314.ru/tekegram_catalog/

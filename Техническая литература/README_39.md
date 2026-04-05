@@ -1,3 +1,55 @@
+###  Публикация: 1793105   (20572) от 22.04.2025
+
+Н. Калдер | Руководство по механическим и электрическим системам яхты [2 книги] (2016, 2017) [PDF, DJVU] [RU, EN]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Руководство содержит всю необходимую информацию для обслуживания и самостоятельного ремонта основных судовых систем. Изложенные просто и доступно для понимания материалы помогут яхтсмену, не являющемуся специалистом, справиться с проблемами, которые могут возникнуть во время плавания. Независимо от уровня вашей подготовленности, данное руководство сделает техническое (   Читать дальше...   )Жанр: Руководство. Учебное пособиеЯзык: Русский, английскийИздательство: Adlard Coles Nautical, Моя планетаФормат: PDF, DJVUКачество: Изначально электронное (ebook), Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7805BD1C371081A60B7EF1642C88FB0D8856251C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793235   (20548) от 23.04.2025
+
+Патрик Д. Келли | Практическое руководство по устройствам свободной энергии (2020) [PDF]
+
+>>След.
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель этого документа состоит в том, чтобы дать вводный курс по теме "Свободной энергии" или "Энергии нулевой точки" (энергия, которая обнаруживается, даже в температуре абсолютного нуля). Данное описание ни в коем случае не является полным, а предназначено, для того чтобы объяснить просто и ясно, основные сферы очень большой темы. Взгляды выражены (   Читать дальше...   )Жанр: Техническая литература, СправочникИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CC7BE4F365B1C0688DDBA68B16AECCF40125A08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802037   (14641) от 14.06.2025
 
 Ю.Г. Драгунов, А.С. Зубченко, М.М. Колосков и др. | Марочник сталей и сплавов. Четвертое издание (2014) [PDF]
@@ -6,7 +58,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14641.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14214.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10887.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9408.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8910.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5077.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2875.jpg" />
 </div>
 
 

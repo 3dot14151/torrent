@@ -1,3 +1,163 @@
+###  Публикация: 1279218   (764984) от 30.01.2019
+
+Windows 10 April 2019 Update: 7 новых функций и улучшений следующего крупного обновления
+
+>>3
+>>9
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_764984.jpg" />
+</div>
+
+
+###  Подробнее
+
+Следующее крупное обновление функций до Windows 10, версия 1903 – April 2019 Update или 19H1 – на данный момент находится на завершающей стадии разработки, поэтому мы хотим ознакомить вас с ключевыми нововведениями будущей версии Windows 10Весеннее обновление Windows 10 April 2019 Update (версия 1903), известное под кодовым названием 19H1, получит не только улучшения (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220303   (764983) от 30.01.2019
+
+S.T.A.L.K.E.R.: Shadow of Chernobyl - Darkest Time: Extended (2007/2016) [Ru] (1.0006/1.0.56) Repack/Mod West4it
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полгода прошло с того момента, как Меченый отключил Выжигатель... Многое изменилось. Группировки распались из-за внутренних разногласий, армия не справляется со своими полномочиями, мутанты распространяются по всей территории ЧЗО... В Зоне хаос.Тип издания: Repack/ModЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A6AECC67105FC776AD085EBB6CCF43A04D0E532
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963467   (764982) от 30.01.2019
+
+Дмитрий Зурков, Игорь Черепнев | Бешеный прапорщик [21 часть] (2017-2019) [FB2] [Обновляемая]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764982.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто-то, сидя за книжками, с детства грезил о сражениях и подвигах… Кто-то бессонными ночами хотел сделать великое открытие и стать Нобелевским лауреатом… Кто-то, лежа на солдатской койке после отбоя, мечтал стать генералом… Если ты долго смотришь в бездну, бездна тоже смотрит в тебя, — так говорил Ницше. И если шутить со Временем, то и Время может подшутить над тобой… (   Читать дальше...   )Жанр: Боевая фантастика, Альтернативная историяФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C57E1D55F647A27D3D09DEF4EDA2283719AF357
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 28557   (764981) от 30.01.2019
+
+Звездные Войны / Star Wars (1977-2005) 12xDVD-9 + 2xDVD-5
+
+>>3
+>>11
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_764981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальное 14-дисковое коллекционное издание всемирно известной космической саги
+"Звездные войны".
+РЕЖИССЕРСКИЕ ВЕРСИИ!Жанр: Фантастика, приключенияВ ролях: Харрисон Форд, Билли Ди Уильямс, Марк Хэмилл, Фрэнк Оз, Джеймс Эрл Джонс, Уорвик Дэвис, Алек Гиннесс, Кэрри Фишер, Энтони Дэниелс, Кенни Бейкер, Питер Мэйхью, Себастьян Шоу, Иэн Макдайармид, Дэвид Проуз, Денис Лоусон, Джереми Баллох, Майкл Пеннингтон, Майкл Картер, Тим Роуз, Дермот Краули, Кэролайн Блэкистон, Тейлор Феми, Дэйвенпорт Клер, Эдмондс Майк, Басби Джейн, (   Читать дальше...   )Перевод: Профессиональный (многоголосый, закадровый от Tycoon studio), Профессиональный одноголосый (Гаврилов)
+Что бы не возникали вопросы с переводом вотПродолжительность: Эпизод 1 - 02:16:04 Эпизод 2 - 02:22:20 Эпизод 3 - 02:19:58  Эпизод 4 - 02:04:38 Эпизод 5 - 02:07:15 Эпизод 6 - 02:14:40 + бонусы
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521364   (764951) от 02.01.2022
+
+Что построено в России за 2021 год
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_764951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляю вашему вниманию краткую подборку научно-производственных новостей за 2021 год.В ней показано, что нового построено в России за этот период, запущено в производство, разработано, спущено на воду, запущено в космос, опробовано в воздухе и т.д.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521065   (764945) от 02.01.2022
+
+Выпуск программы для обхода систем глубокого анализа трафика GoodbyeDPI 0.2.1
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_764945.jpg" />
+</div>
+
+
+###  Подробнее
+
+После двух лет простоя разработки вышла новая версия GoodbyeDPI, программы под ОС Windows для обхода блокировок интернет-ресурсов, осуществляемых с помощью систем глубокого анализа трафика (Deep Packet Inspection) на стороне интернет-провайдеров. Программа позволяет получить доступ к веб-сайтам и сервисам, заблокированным на государственном уровне, без использования (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1521402   (764944) от 02.01.2022
 
 Естественный свет / Termeszetes feny / Natural Light (2021) WEB-DLRip
@@ -6,7 +166,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764944.jpg" />
 </div>
 
 
@@ -32,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764939.jpg" />
 </div>
 
 
@@ -58,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_764774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_764774.jpg" />
 </div>
 
 
@@ -86,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764673.jpg" />
 </div>
 
 
@@ -117,7 +277,7 @@ Windows 7 Loader eXtreme Edition 3.503 Stable [Русский(ML)]
 >>23
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764664.jpg" />
 </div>
 
 
@@ -143,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764188.jpg" />
 </div>
 
 
@@ -169,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_764160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_764160.jpg" />
 </div>
 
 
@@ -195,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_764121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_764121.jpg" />
 </div>
 
 
@@ -221,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_764111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_764111.jpg" />
 </div>
 
 
@@ -248,7 +408,7 @@ Adguard 6.2.346.1819 Beta [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764094.jpg" />
 </div>
 
 
@@ -274,7 +434,7 @@ TechSmith Camtasia Studio 9.0.4 Build 1948 RePack by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764090.jpg" />
 </div>
 
 
@@ -300,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_764087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_764087.jpg" />
 </div>
 
 
@@ -326,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764082.jpg" />
 </div>
 
 
@@ -352,7 +512,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2017.04.11 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764079.jpg" />
 </div>
 
 
@@ -378,7 +538,7 @@ BELOFF 2017.4 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764078.jpg" />
 </div>
 
 
@@ -404,7 +564,7 @@ Zorin OS 12 Ultimate [x64] (1xDVD)
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764077.jpg" />
 </div>
 
 
@@ -433,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_764039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_764039.jpg" />
 </div>
 
 
@@ -459,7 +619,7 @@ ESET Endpoint Security 5.0.2272.7 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764034.jpg" />
 </div>
 
 
@@ -487,7 +647,7 @@ Resident Evil 7: Biohazard (2017) [Ru/Multi] (1.03/upd5/dlc) Repack Other s [Gol
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764031.jpg" />
 </div>
 
 
@@ -513,7 +673,7 @@ ELEX (2017) [Ru/En] (1.0.2981.0) Repack xatab
 >>10
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764030.jpg" />
 </div>
 
 
@@ -524,165 +684,6 @@ ELEX — тщательно проработанная динамическая 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D29743B78CE839A3D96E5F0BA16B2A140F26AF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521035   (764011) от 03.01.2022
-
-С Новым 2022 Годом!!!
-
->>3
->>15
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_764011.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дорогие друзья! Наступает Новый 2022 год. Хочу всем  пожелать, чтобы Новый год принес  огромное счастье, крепкое здоровье (ведь это главное). Пусть все ваши мечты сбудутся в новом году, а все плохое останется в прошлом. Под бой курантов обязательно загадайте самое заветное желание и верьте, что оно сбудется. Пусть этот светлый праздник станет прекрасным стартом для (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121581   (764010) от 03.01.2022
-
-Prana Breath / Праническое дыхание (Пранаяма) v9.4.2_3 Guru [Ru/Multi]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Необходимо собраться с мыслями? Быстро и безопасно снять стресс? Вечерний приступ аппетита? Вам поможет Prana Breath - бесплатное приложение для удобных занятий дыхательною гимнастикой! Подойдет для практикующих йогу, а также для тех, кто старается вести здоровый образ жизни.Тип издания: Пиратка (Guru)Релиз состоялся: 21.11.2021Разработчик: Oleksandr AlbulПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63E7953714A4A0C8507CC38DBF48CF1E6D39BCC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521283   (764007) от 03.01.2022
-
-Гарри Поттер 20 лет спустя: Возвращение в Хогвартс / Harry Potter 20th Anniversary: Return to Hogwarts (2022) WEB-DL [H.264/1080p] [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэниэл Рэдклифф, Руперт Гринт и Эмма Уотсон встретятся со своими коллегами и впервые за долгие годы окажутся в стенах Хогвартса.Производство: США, Великобритания / Casey Patterson Entertainment, Pulse, Pulse Films, Warner Bros. Television, Warner Horizon Television, Warner Horizon Uned TelevisionЖанр: документальный, семейныйРежиссер: Эрен Криви, Джо Перлман, Джорджо ТестиАктеры: Дэниэл Рэдклифф, Руперт Гринт, Эмма Уотсон, Джейсон Айзекс, Рэйф Файнс, Хелена Бонем Картер, Гари Олдман, Альфред Энок, Бонни Райт, Эванна Линч, Робби Колтрейн, Том Фелтон, Крис Коламбус, Мэттью Льюис, Имелда СтонтонПеревод: Профессиональный, многоголосый (Amedia)Субтитры: АнглийскиеПродолжительность: 01:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BE9BD910DFEF1FBB2C1F252F04953FB4A5BD3F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315778   (764005) от 03.01.2022
-
-Graph Messenger (ex. Telegraph) T8.4.2-P9.6-2527x Mod [Ru/Multi] - неофициальный клиент Telegram (обновляемая)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неофициальное приложение для обмена сообщениями, которое использует API Telegram. На сегодня наверное самый функциональный клиент Telegram из всех. Кастомизация всего и вся. Поддержка https прокси. Изменение голоса. Теперь и все фишки от Telegram 5.x. В модификации от Alex.Strannik полностью удалена реклама,  заблокирована аналитика, встроено два актуальных перевода (   Читать дальше...   )Тип издания: Mod (перевод, нет рекламы и т.п.)Релиз состоялся: 24.12.2021Разработчик: ILMILIПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03848BC58830335813618461C86FE376868A54DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214329   (763861) от 22.03.2018
-
-IBM разработала компьютер размером с крупицу соли
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_763861.jpg" />
-</div>
-
-
-###  Подробнее
-
-В перспективе нескольких лет такие нанокомпьютеры станут вполне обыденными, их начнут встраивать в различные бытовые приборы и вещи.IBM сообщила о разработке сверхминиатюрного компьютера, сравнимого по размерам с крупицей соли. Площадь устройства не превышает 1 х 1 мм.Несмотря на габариты, это полноценный ПК с производительностью уровня компьютеров девяностых годов (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213996   (763852) от 22.03.2018
-
-Windows 10 Pro 1709 x86/x64 by kuloymin v12.4 (esd) [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на официальных образах от MSDN: ru_windows_10_multi-edition_version_1709_updated_dec_2017.
-Удалены некоторые APPX, стандартные темы, отключено несколько компонентов, активирован протокол Samba.
-Очищена папка WinSxS\Backup.
-Очищена папка WinSxS\ManifestCache.(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D3561161044B974B962169E7338A2E41599C87F
 ```
 
 https://mybot314.ru/tekegram_catalog/

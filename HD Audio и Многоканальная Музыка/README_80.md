@@ -1,32 +1,3 @@
-###  Публикация: 1682358   (131508) от 07.12.2023
-
-Pyramaze - Studio Albums (7 releases) (2004-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pyramaze — датская пауэр-метал группа, образованная в 2001 году.2004 - Melancholy Beast
-2006 - Legend Of The Bone Carver
-2008 - Immortal
-2015 - Disciples Of The SunЖанр: Progressive Power MetalПродолжительность: 06:18:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4FD17833A6834C9759E877803F36D54D69A5A7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682547   (131499) от 07.12.2023
 
 Porcupine Tree - Closure / Continuation.Live (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Rock, Heavy Prog>
@@ -35,7 +6,7 @@ Porcupine Tree - Closure / Continuation.Live (2023) [FLAC 24/96|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131499.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ The London Suede - Autofiction (2022) Expanded, 2023, BMG Rights Management (UK)
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131195.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Atreyu - The Beautiful Dark of Life (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131190.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ The Chronicles of Father Robin - The Songs & Tales of Airoea - Book II (2023) [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131188.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Ayreon - Universal Migrator Part 1 - The Dream Sequencer (2000) [FLAC|24/192|ima
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131186.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Cassidy Paris - New Sensation (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131177.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Arjen Anthony Lucassen - Lost in the New Real (2012) [FLAC|24/96|tracks|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131167.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Ayreon - Into the Electric Castle (A Space Opera) (1998) [FLAC|24/192|image + .c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131165.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Fifth Note - Here We Are (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131161.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Neil Young - Before and After (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131091.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ The Killers - Rebel Diamonds (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alterna
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131078.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130690.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Devin Townsend - Empath (2019) 2020 [DTS 5.1 CD-Audio|44.1/16|image+.cue|BD-Audi
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130132.jpg" />
 </div>
 
 
@@ -413,7 +384,7 @@ Kylie Minogue - Extension (2023) The Extended Mixes [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129887.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Cher - Cher's Greatest Hits 1965-1992. Volume 1 (1993) Compilation, Unofficial R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129862.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Everdawn - Venera (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Metal,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129831.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ The Beatles - Abbey Road (1969) remix 2019 remaster [DTS-ES Discrete 6.1 CD-Audi
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129751.jpg" />
 </div>
 
 
@@ -529,7 +500,7 @@ Chamelion - Legends & Lores (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129721.jpg" />
 </div>
 
 
@@ -558,7 +529,7 @@ Suburban Tribe - Дискография (10 Albums) (1994 - 2011) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129209.jpg" />
 </div>
 
 
@@ -588,7 +559,7 @@ Creedence Clearwater Revival - Gold (1972) 1975 [DTS 4.1 CD-Audio|44.1/16|image+
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129013.jpg" />
 </div>
 
 
@@ -619,7 +590,7 @@ VA - Балкантон – Танцова Музика (1965) [FLAC|Lossless|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128872.jpg" />
 </div>
 
 
@@ -648,7 +619,7 @@ Ihsahn - Studio Albums (11 releases) (2006-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128871.jpg" />
 </div>
 
 
@@ -677,7 +648,7 @@ Bloodywood - Studio Albums (2 releases) (2022-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128870.jpg" />
 </div>
 
 
@@ -704,7 +675,7 @@ The Hu - Studio Albums (2 releases) (2020-2022) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128807.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ Easy Rider - Maniphesto (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128599.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ Easy Rider - Maniphesto (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC691BE2D78780C73F280404D32B9F135ED8820A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577393   (128583) от 14.10.2025
+
+Trivium (& Ibaraki) - Studio Albums (12 releases) (2003-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore, Thrash/Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Trivium — американская метал-группа из Орландо, Флорида, образованная в 1999 году.2003 - Ember To Inferno
+2006 - Ascendancy
+2006 - The Crusade
+2008 - ShogunЖанр: Metalcore, Thrash/Heavy MetalПродолжительность: 14:01:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D819840B377D25E8AE4BEE79E81291FAF4DDEE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

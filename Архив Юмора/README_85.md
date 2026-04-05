@@ -6,7 +6,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267864.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267860.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267859.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Stand Up (2017.12.10) SATRip (сезон 7, выпуск 11: Дайджест)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266910.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266507.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Stand Up (2017.12.10) WEB-DLRip (сезон 7, выпуск 11: Дайджест
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265971.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265630.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265239.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264951.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264947.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264755.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264467.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264404.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264138.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264122.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263852.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Comedy Woman (2017.12.15) SATRip (Дайджест)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263818.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263777.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263690.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Comedy Woman (22.11.2019) WEB-DLRip (сезон 9, выпуск 10)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263546.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263497.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263473.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263451.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Comedy Woman (2017.12.15) WEB-DLRip
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263450.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263448.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263445.jpg" />
 </div>
 
 

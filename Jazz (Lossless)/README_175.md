@@ -6,7 +6,7 @@ Susan Wong - 8 Альбомов (2002-2011) [FLAC/APE|Lossless]<Jazz, Vocal, Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466455.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ Johnny Smith Trio - Easy Listening (1958) Remaster, 2016, Warner[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466445.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ Jean-Luc Ponty - Fables (1985) [WavPack|Lossless|image + .cue] <Jazz Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466432.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Slim Gaillard & Slam Stewart - Slim & Slam: The Groove Juice Special (1938 - 194
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466104.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ V.A. - So Amazing and Beautiful Moments Relaxing Tunes for Two of Us (2022) [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466018.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Ike Quebec - 1944 - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465750.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ John Surman - Flashpoint: NDR Jazz Workshop, April 1969 (2011) Cuneiform [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465705.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Peter Bernstein - Solo Guitar - Live At Smalls (2013) [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465686.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Pat Martino - Mission Accomplished: Interchange / Nightwings (1994) 2CD, 1999, 3
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465520.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ VA - Ladies First (2012) [FLAC|Lossless]<Jazz Vocal, Jazz-Pop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465183.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Chanticleer - Lost in the Stars (1996) /Teldec/[FLAC|tracks+.cue]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465064.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Sara Gazarek - 2 альбома (2007 & 2012) [FLAC|Lossless]<Jazz Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465021.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Ike Quebec - Bossa Nova Soul Samba (1962) /1996, Ars Nova/[FLAC|tracks+.cue]<Har
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464906.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Jasper van 't Hof - Eyeball (1974) Remaster, 2015, Solid Records[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464476.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Milt Jackson - At The Museum Of Modern Art (1965) 2008, Universal[FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464475.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Benny Goodman - 16 Top Tracks (1962) 1988 [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464286.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Lena Horne - Four Classic Albums Plus (1958, 1959) 2CD, 2010, Avid Jazz [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464221.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Scott Henderson (Tribal Tech, Vital Tech Tones, HBC) - 20 альбомов (1985
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463876.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Carmen Lundy - Code Noir (2016) Afrasia Productions [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463703.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Inés Estévez (Ines Estevez) - Nude (En Vivo) (2018) [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463618.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Fapy Lafertin & Le Jazz - 94-96 The Recordings (1994 - 1996) 2CD, 2012, Lejazzet
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463389.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ ILL CONSIDERED - ILL CONSIDERED 8 (2019) [FLAC|Lossless|Web-DL|tracks] <Free Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463278.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Jack Jeffer's New York Classics Big Band - New York Dances (1996) /MapleShade/[F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463127.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ Rosemary Clooney - Dedicated To Nelson Riddle (1956-1957) /1996, ООО "Гал�
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463121.jpg" />
 </div>
 
 
@@ -721,7 +721,7 @@ Dusko Goykovich - Balkan Blue (1996) 2CD /Enja/[FLAC|image+.cue]<Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463120.jpg" />
 </div>
 
 
@@ -750,7 +750,7 @@ Eden Atwood - 3 альбома (1993-2002) [FLAC|Lossless]<Jazz Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463035.jpg" />
 </div>
 
 

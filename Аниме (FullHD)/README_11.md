@@ -6,7 +6,7 @@ Hataraku Maou-sama! | The Devil is a Part-Timer! | Повелитель Тьмы
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901204.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kyoukai no Kanata | Beyond the Boundary | За гранью [2013, TV, 12 из 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900772.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Bikini Warriors / Воительницы в бикини [2015, TV, 13] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898802.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Alps no Shoujo Heidi / Heidi: Girl of the Alps / Хайди - девочка А�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898752.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ To Love-Ru: Trouble - Darkness 2nd / Любовные неприятности: 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896872.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Kono Subarashii Sekai ni Shukufuku o! Kurenai Densetsu | KonoSuba Movie | Это
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896373.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Wasteful Days of High School Girl | Бездельные дни старшекл
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893554.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Mix: Meisei Story | Микс: История Мейсей [2019, TV, 24] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892036.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Musekinin Kanchou Tylor | The Irresponsible Captain Tylor | Безответст
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891911.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Iya na Kao Sarenagara Opantsu Misete Moraitai 2 | Изобрази отвращ�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891769.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Golden Time / Золотая пора [2013, TV, 24 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890752.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Higurashi no Naku Koro ni: Gou | Higurashi: When They Cry - Gou | Когда п�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890536.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Denpa Onna to Seishun Otoko | Радиосигнал от чудачки, Юно
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_890514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_890514.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Gekijouban Kimetsu no Yaiba: Mugen Ressha Hen | Demon Slayer the Movie: Mugen Tr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890419.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Ijiranaide, Nagatoro-san | Don't Toy With Me, Miss Nagatoro | Не издева�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890411.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Josee to Tora to Sakana-tachi | Josee, the Tiger and the Fish | Её завет�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890406.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Aria the Avvenire | Ария: Будущее [2015, OVA, 3 эп.] BDrip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890194.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Kud Wafter | Куд Вафтер [2020, OVA] BDRip 1080p HEVC 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889178.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Uchuu Senkan Yamato 2199 | Star Blazers 2199 | Space Battleship Yamato 2199 | К
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889135.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Aria the Crepuscolo | Ария: Сумерки [2021, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889013.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Null Peta | Null & Peta | Нуль и Пета [2019, Web, 13 эп.] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888586.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Jashin-chan Dropkick | Dropkick on My Devil! | Пинок с наскока Дз
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888427.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Batman Ninja | Бэтмен-ниндзя [2018, Movie] BDRip 1080p raw+eng
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888377.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Girly Air Force | Девичьи воздушные силы [2019, TV, 12 эп.
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888329.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Seto no Hanayome / My Bride is a Mermaid / Морская Невеста [2007, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887853.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Flying Witch / Полет ведьмы [2016, TV, 12 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887534.jpg" />
 </div>
 
 

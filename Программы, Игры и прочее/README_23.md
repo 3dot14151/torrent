@@ -1,3 +1,107 @@
+###  Публикация: 1443091   (1035962) от 27.01.2021
+
+FRACTER v1.1.1 [Ru/En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035962.jpg" />
+</div>
+
+
+###  Подробнее
+
+FRACTER - оригинальная логическая игра для Андроид с мрачной атмосферой, постепенно развивающимся сюжетом и чёрно-белой стилистикой графики. В процессе прохождения пользователь узнает, почему в мире исчезло множество источников света, и сможет вернуть их обратно. Для этого ему предстоит пройти множество уровней, которые предложат для решения не один десяток головоломок.Тип издания: Пиратка (Мод) Куплена!Релиз состоялся: 13 января 2020 гРазработчик: 4L GAMES LTD.Поддерживаемая ОС: Android 6.0 и вышеЖанр: ГоловоломкаЯзык интерфейса: Русский есть (меняется в настройках)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:222A287517AA3D62DE4BC9167BFC0330C179AABA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443171   (1035954) от 27.01.2021
+
+Galaxy Genome v11.0.7 [Ru/En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Galaxy Genome - нападения с космоса на Землю начали происходить регулярно, и тогда большинство решило узнать что под ними кроется и отправиться в бесконечную галактику, вы тоже следовали этим примерам. Но на космический корабль нужны большие деньги, поэтому в начале пути контрабанда - единственный выход. Однажды вас словила власть, но вы заключили с ними сделку на (   Читать дальше...   )Тип издания: Пиратка (Мод) Куплена!Релиз состоялся: 20 января 2021 г.Разработчик: SKVGamesПоддерживаемая ОС: Android 4.0 и вышеЖанр: Симулятор, стратегияЯзык интерфейса: Русский есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F668196F93D939F9559D7D9BA19C693099203DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442879   (1035929) от 27.01.2021
+
+Mindustry v6-official-122.1 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mindustry – захватывающая игра на андроид, где вы будете создавать свой неповторимый мир. В этой игре вы откроете для себя многочисленные карты, на которых вам предстоит строить свои базы и защищаться от врагов. Добывайте различные материалы и ресурсы, которые вы сможете использовать в строительстве.Тип издания: Пиратка (Мод)Релиз состоялся: 21 января 2021 г.Разработчик: AnukenПоддерживаемая ОС: Android 4.0 и вышеЖанр: ЭкшенЯзык интерфейса: Русский есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:661A2AE7621519890E3B47864AEE9FD110DD3229
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616976   (1035834) от 04.03.2023
+
+DailyArt - Daily Dose of Art v2.9.1 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальное приложение для изучения творчества и биографии художников. Выполнено в виде ленты работ для ознакомления. Каждый день вдохновляйтесь прекрасными произведениями классического, модерн и современного искусства и читайте о них короткие истории. Присоединяйтесь к сообществу более 1.000.000 любителей искусства, для которых DailyArt - это то, что скрасит ваш (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 21.02.2023Разработчик: MoiseumПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9933FC393240613CD76AF66D93794D67429373BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443176   (1035713) от 28.01.2021
 
 Звуки для сна v5.0.0.RC-GP(86) [Ru/Multi] (обновляемая)
@@ -6,7 +110,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035713.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ Selena v0.2.18 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035704.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ Voice Training / Голосовая тренировка ver.Autoscroll Fix (120
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035672.jpg" />
 </div>
 
 
@@ -88,7 +192,7 @@ Solid Explorer File Manager v2.8.8 Full [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035654.jpg" />
 </div>
 
 
@@ -117,7 +221,7 @@ Brain Test 2: Хитрые рассказы v0.155 [Ru/Multi] (обновляе�
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035627.jpg" />
 </div>
 
 
@@ -146,7 +250,7 @@ Cut Paste Photos v9.10.3 Pro [Ru/En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035604.jpg" />
 </div>
 
 
@@ -172,7 +276,7 @@ Hockey All Stars v1.5.4.365 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035395.jpg" />
 </div>
 
 
@@ -198,7 +302,7 @@ Family Island v202101.1.10636 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035392.jpg" />
 </div>
 
 
@@ -224,7 +328,7 @@ Plague M.D. v3.0.7 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035131.jpg" />
 </div>
 
 
@@ -250,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035124.jpg" />
 </div>
 
 
@@ -276,7 +380,7 @@ Photo Grid - Collage Maker Premium v7.90 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035058.jpg" />
 </div>
 
 
@@ -302,7 +406,7 @@ Point Blur v7.1.7 [En/Ru] - Обработка размытия фотограф
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034912.jpg" />
 </div>
 
 
@@ -328,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034889.jpg" />
 </div>
 
 
@@ -357,7 +461,7 @@ LibriVox AudioBooks v2.7.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034854.jpg" />
 </div>
 
 
@@ -383,7 +487,7 @@ PortraitAI - Аватар эпохи Ренессанса v1.3.11 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034823.jpg" />
 </div>
 
 
@@ -409,7 +513,7 @@ Fake GPS Joystick & Routes Go v1.6.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034626.jpg" />
 </div>
 
 
@@ -435,7 +539,7 @@ WEATHER NOW v0.3.40 Premium [Ru] - прогноз погоды, метео-ра�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034546.jpg" />
 </div>
 
 
@@ -462,7 +566,7 @@ Drops Learning Languages v35.47 [Ru/Multi] - Изучение иностранн
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034513.jpg" />
 </div>
 
 
@@ -488,7 +592,7 @@ Fuelio: топливо и расходы v7.8.2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034414.jpg" />
 </div>
 
 
@@ -514,7 +618,7 @@ Film Maker v2.9.1.5 Pro [En] – Видеоредактор, фото и Эфф�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034409.jpg" />
 </div>
 
 
@@ -542,7 +646,7 @@ Paranoia: Родительский контроль v1.0.7.1 Premium [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034371.jpg" />
 </div>
 
 
@@ -568,7 +672,7 @@ Engineering Tools : Mechanical v206 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034191.jpg" />
 </div>
 
 
@@ -581,116 +685,6 @@ Engineering Tools : Mechanical v206 [Ru/En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84FE0419DA9D2AD0D913CC1DC961177BEFDD4128
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444937   (1034142) от 03.02.2021
-
-PC Remote v7.4.2 Vip [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Monect PC Remote - это бесплатное приложение, которое позволяет вам управлять ПК через Wi-Fi или Bluetooth локально или удаленно.
-
-Ключевая особенность:
-- Играйте во все виды компьютерных игр с встроенными датчиками и специально разработанными макетами кнопок, и вы можете редактировать их по своему желанию(   Читать дальше...   )Тип издания: Пиратка (Vip)Релиз состоялся: 3 февраля 2021 г.Разработчик: MonectПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA839F0A89E711A8EB047C5320310234FBCA4131
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618382   (1034069) от 11.03.2023
-
-Floor Plan Creator v3.6.2 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавайте подробные и точные планы этажей. Смотрите их в 3D. Добавьте мебель для оформления интерьера вашего дома. Возьмите с собой план этажа во время покупок, чтобы проверить, достаточно ли места для новой мебели.Тип издания: ModРелиз состоялся: 28.02.2023Разработчик: Marcin LewandowskiПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5AC32E72186846914FC374B9B33597B208BA136
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444846   (1034065) от 03.02.2021
-
-Kingdom Rush Vengeance v1.9.10 [Ru/En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034065.jpg" />
-</div>
-
-
-###  Подробнее
-
-Королевская Лихорадка (Kingdom Rush Vengeance) - Игра начинается с того момента, как могущественный маг Везнан вернулся! Вам предстоит отправится вместе с магом в опасное приключение, по ходу игры вы должны будите собрать могущественную армию и воплотить все коварные планы Везнана!Тип издания: Пиратка (Мод)Релиз состоялся: 17 июля 2020 г.Разработчик: Ironhide GamesПоддерживаемая ОС: Android 4.4+Жанр: СтратегияЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8650A1143B0C4E0A9D682F64C235E29B11A03499
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238007   (1034043) от 03.02.2021
-
-AudioBooks. Аудиокниги бесплатно v4.0.8 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Более 15000 аудиокниг и радиоспектаклей  зарубежных и отечественных авторов Бесплатно. Без подписки или регистрации:
-— Фантастика,
-— Романы,
-— Детективы,(   Читать дальше...   )Тип издания: Mod  (удалена реклама)Релиз состоялся: 01.02.2021Разработчик: Sergey FomichevПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A53A5015AD4C666B8F3984FD1A989EB38364BD50
 ```
 
 https://mybot314.ru/tekegram_catalog/

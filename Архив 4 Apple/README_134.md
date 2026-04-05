@@ -6,7 +6,7 @@ Luminar Neo 1.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867870.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CrossOver 21.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867869.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ PhoneClean Pro 4.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867795.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ MovieSherlock 6.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867295.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Valentina Studio Pro 10.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867291.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867281.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ iCollections 6 v6.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867279.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ A Better Finder Attributes 6.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867277.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Movist Pro 2.2.16 (build 139) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867269.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Money Pro - Personal Finance 2.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867267.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Logic Pro X 10.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867245.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ IP Scanner Pro 3.96 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867182.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Easy Data Transform 1.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867035.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Keep It 1.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866726.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Cardhop 2.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866725.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ wordCount 2.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866724.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Dropshare 5.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866679.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Performance Index 64 Pro 4.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866677.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Posterino 3 v3.10.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866676.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ GraphicConverter 11 v11.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866675.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ GoodNotes 5 v5.7.31 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866674.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ XCap 1.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866670.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ WinX HD Video Converter for Mac 6.5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866667.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Flexi Player Turntable 1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866666.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ XCOrganizer 1.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866665.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Tipard Blu-ray Converter for Mac 10.0.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866597.jpg" />
 </div>
 
 

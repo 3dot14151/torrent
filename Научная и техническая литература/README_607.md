@@ -1,133 +1,3 @@
-###  Публикация: 1774008   (71642) от 18.01.2025
-
-Г.М. Баренбойм, А.Г. Маленков | Биологически активные вещества. Новые принципы поиска (1986) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Впервые излагаются научные и технологические основы, необходимые для создания высокопроизводительных систем определения основных видов биологической активности больших массивов химических соединений. В оригинальных теоретических разработках и экспериментальных исследованиях авторы широко использовали методологию и достижения биофизики, молекулярной биологии, кибернетики, (   Читать дальше...   )Жанр: БиохимияИздательство: НаукаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41AFB25042C0F10ACECB00F8A045CEC7A73C1F31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775183   (71494) от 25.01.2025
-
-В.С. Шипачев | Задачник по высшей математике (1998) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие написано в соответствии с программой по высшей математике для вузов. Содержит задачи и примеры по следующим важнейшим разделам: теория пределов, аналитическая геометрия на плоскости и в пространстве, дифференциальное и интегральное исчисления функций одной и нескольких переменных, высшая алгебра, ряды и дифференциальные уравнения. Приведены основные теоретические (   Читать дальше...   )Жанр: МатематикаИздательство: Высшая школаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6815DB72FE8316F1C340FEEBA3AD16D81E7FBB82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775292   (71453) от 26.01.2025
-
-С.И. Новоселов | Специальный курс тригонометрии (1967) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая книга предназначается в качестве учебного пособия для физико-математических факультетов педагогических институтов по разделу «Тригонометрия» специального курса элементарной математики. ее следует рассматривать как продолжение книги «Специальный курс элементарной алгебры», поэтому вопросы (например, общие положения теории уравнений и неравенств), содержащиеся (   Читать дальше...   )Жанр: МатематикаИздательство: Высшая школаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1236BDBF6A8B1E3417F2A9DE25D7F8AD3A0D3D92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775291   (71448) от 26.01.2025
-
-С.И. Новоселов | Специальный курс элементарной алгебры (1965) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая книга предназначается в качестве учебника для физико-математических факультетов педагогических институтов по разделу «Алгебра» специального курса элементарной математики. Книга содержит весь учебный материал, предусмотренный программой указанного раздела.Жанр: МатематикаИздательство: Высшая школаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D0838DF3C0F60EFB81D4D8493FCFD2B37964DD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776140   (71357) от 30.01.2025
-
-C.П. Костычев | О брожениях (1914) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сергей Павлович Костычев - российский и советский физиолог, биохимик и анатом растений, микробиолог, академик Российской Академии наук. В книге описаны виды брожения: молочнокислого, уксусного, спиртового, маслянокислого.Жанр: БиологияЯзык: Русский (дореформенный)Издательство: издательство А. С. ПанафидинойФормат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C26D470C724F77DEB655D48614A8C73E3F1D52F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776592   (71266) от 01.02.2025
 
 У.М. Уонэм | Линейные многомерные системы управления (1980) [PDF]
@@ -136,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71266.jpg" />
 </div>
 
 
@@ -162,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70477.jpg" />
 </div>
 
 
@@ -188,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70128.jpg" />
 </div>
 
 
@@ -214,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70123.jpg" />
 </div>
 
 
@@ -240,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69776.jpg" />
 </div>
 
 
@@ -267,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69729.jpg" />
 </div>
 
 
@@ -293,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69703.jpg" />
 </div>
 
 
@@ -319,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69700.jpg" />
 </div>
 
 
@@ -345,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69458.jpg" />
 </div>
 
 
@@ -371,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69378.jpg" />
 </div>
 
 
@@ -397,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69199.jpg" />
 </div>
 
 
@@ -423,7 +293,7 @@ Capital Press | Коломенский завод. 160 лет труда, тал
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69175.jpg" />
 </div>
 
 
@@ -449,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68889.jpg" />
 </div>
 
 
@@ -476,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68886.jpg" />
 </div>
 
 
@@ -502,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68127.jpg" />
 </div>
 
 
@@ -528,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68124.jpg" />
 </div>
 
 
@@ -554,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67355.jpg" />
 </div>
 
 
@@ -580,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67352.jpg" />
 </div>
 
 
@@ -606,7 +476,7 @@ O.C. Zienkiewicz, L.R. Taylor | The Finite Element Method [3 книги] (2000) 
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66450.jpg" />
 </div>
 
 
@@ -633,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66436.jpg" />
 </div>
 
 
@@ -659,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65675.jpg" />
 </div>
 
 
@@ -670,6 +540,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5AC88B71C1553CFE97BF200844FB72DAC9E6E4ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804339   (65647) от 29.06.2025
+
+М.А. Тамаров | Неорганическая химия (1974) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65647.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебнике последовательно даны основные понятия и законы общей химии, сведения о химэлементах и их главных соединениях. Содержит новые данные по строению атома, электронно-ионные уравнения и усложненные задачи. Учебник для учащихся фармучилищ.Жанр: ХимияИздательство: МедицинаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:810DC4AD1025D021AC91F7540E81FE6D6CBC8B52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807484   (65259) от 19.07.2025
+
+И. Пигулевская | Боль. Всё, что вы не знали (2012) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мало кто согласен терпеть боль, и сразу торопятся принять обезболивающее. А надо ли? Как ни странно это может показаться на первый взгляд — не надо! Потому что сначала нужно выяснить источник и причину боли, попытаться удалить эту причину, а уже потом можно изводить и саму боль, если она еще не прошла в результате лечения.
+Что такое боль с точки зрения физиологии (   Читать дальше...   )Жанр: здоровье, лечение без лекарствИздательство: ЦентрполиграфФормат: FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F6FE902D68AB29F27CE7A1794FFBC4C05249220
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807537   (65233) от 19.07.2025
+
+Ева Меркачева | Подвиг разведчиков. Беседы с легендами (2025) [FB2, DOCX, EPUB, MOBI]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Их имена навсегда вошли в историю отечественной разведки. Некоторые из этих специалистов своего дела стали легендами и оказывали влияние на мировую политику. Однако широкая общественность о них мало что знает, ведь далеко не вся информация рассекречена.
+Ева Меркачева – известная российская писательница и журналист – сумела приоткрыть завесу тайны, побеседовав с этими (   Читать дальше...   )Жанр: военная история, военное дело / спецслужбыИздательство: ВечеФормат: FB2, DOCX, EPUB, MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31E85870AD191E53F3E2713E78B62F2CA0BA2176
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808855   (64852) от 27.07.2025
+
+М.М. Кацнельсон | Приготовление синтетических химико-фармацевтических препаратов (1933) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64852.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Приготовление синтетических химико-фармацевтических препаратов» М. Кацнельсона – книга известного ученого, содержащая практические работы для химиков, медиков и фармацевтов.Жанр: ХимияИздательство: ГосхимтехиздатФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DA471CFDBC217909DE56BE182B84A88F706423C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809007   (64848) от 27.07.2025
+
+Юрий Фролов | Отступники от власти [2 книги] (1999) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64848.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разведчиков-предателей, оказывается, не только на много лет сажают в тюрьмы, расстреливают, но и... сжигают живьем, как бывшего офицера Главного разведуправления СССР Пеньковского... Неужели член знаменитой семьи банкиров Виктор Ротшильд, имевший миллионное состояние и «отец» первой атомной бомбы Оппенгеймер, работали на советскую разведку?
+Почему и как золото разгромленных (   Читать дальше...   )Жанр: ИсторияИздательство: ДонеччинаФормат: PDF, DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9318679336178DAFC3C08859B15F3AFDA6E571C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

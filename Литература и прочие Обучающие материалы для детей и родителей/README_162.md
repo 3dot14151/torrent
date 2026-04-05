@@ -1,3 +1,29 @@
+###  Публикация: 1022783   (727771) от 03.06.2016
+
+Саша Черный и др. | Сказки про собак (антология) (2016) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727771.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник «Сказки про собак» вошли как авторские, так и народные сказки. Многим из нас эти сказки знакомы еще с детства. Их юмор, фантазия и мудрость не оставит равнодушными ни взрослого, ни ребенка. Чтение этой книги отправит вас в замечательное путешествие по удивительному миру, созданному братьями Гримм, Редьярдом Киплингом, Сашей Черным и др. Герои этих захватывающих (   Читать дальше...   )Жанр: Детская проза, сказкаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C52F6ED174D10437DCAB5257C34281B0939BEC4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022777   (727691) от 03.06.2016
 
 Шарль Перро и др. | Сказки о принцах и принцессах (антология) (2016) [FB2]
@@ -6,7 +32,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727691.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727546.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727536.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727535.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727474.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727117.jpg" />
 </div>
 
 
@@ -169,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727101.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726817.jpg" />
 </div>
 
 
@@ -224,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726692.jpg" />
 </div>
 
 
@@ -250,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726691.jpg" />
 </div>
 
 
@@ -276,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726669.jpg" />
 </div>
 
 
@@ -302,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726660.jpg" />
 </div>
 
 
@@ -328,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726497.jpg" />
 </div>
 
 
@@ -354,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726437.jpg" />
 </div>
 
 
@@ -380,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726086.jpg" />
 </div>
 
 
@@ -408,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726002.jpg" />
 </div>
 
 
@@ -434,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725999.jpg" />
 </div>
 
 
@@ -461,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725963.jpg" />
 </div>
 
 
@@ -488,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725726.jpg" />
 </div>
 
 
@@ -517,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725291.jpg" />
 </div>
 
 
@@ -543,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725290.jpg" />
 </div>
 
 
@@ -569,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725039.jpg" />
 </div>
 
 
@@ -595,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724925.jpg" />
 </div>
 
 
@@ -621,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724921.jpg" />
 </div>
 
 
@@ -650,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724911.jpg" />
 </div>
 
 
@@ -661,34 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24ABECE890AEA9885CA7707B8BD39E8B0C29D022
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284920   (724909) от 24.02.2019
-
-Сакариас Топелиус | Зимняя сказка (2015) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724909.jpg" />
-</div>
-
-
-###  Подробнее
-
-Замечательный финский сказочник Захариас Топелиус в детстве верил в то, что в природе все живет, чувствует и умеет говорить. Наверное, поэтому в его сказках сосны поют детям песни, волки говорят на человечьем языке, эльфы плачут, слушая грустную колыбельную, а злобные тролли никак не могут наесться.
-
-И все же главные герои сказок Топелиуса — обыкновенные мальчики (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92E21C6C8C312D0A14B5F584801DD155A233AD47
 ```
 
 https://mybot314.ru/tekegram_catalog/

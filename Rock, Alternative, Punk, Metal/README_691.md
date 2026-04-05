@@ -1,3 +1,32 @@
+###  Публикация: 1070023   (366872) от 07.11.2016
+
+The Quireboys - Homewreckers & Heartbreakers (2008) [FLAC|Lossless|image + .cue] <Hard rock, Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Love This Dirty Town
+02. Mona Lisa Smiled
+03. Louder
+04. Fear Within The Lie(   Читать дальше...   )Жанр: Hard rock, GlamПродолжительность: 00:51:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76BE474B82F71957FC4AA8CC7FEF3790F2F90C0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070600   (366775) от 07.11.2016
 
 Joe Walsh - So What (1974) remaster, 2015, Audio Fidelity [WavPack|Lossless|image + .cue] <Classic Rock>
@@ -6,7 +35,7 @@ Joe Walsh - So What (1974) remaster, 2015, Audio Fidelity [WavPack|Lossless|imag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366775.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Memphis May Fire - This Light I Hold (2016) [MP3|320 Kbps] <Post-Hardcore, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366756.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Landmine Marathon - Sovereign Descent (2010) [FLAC|Lossless]<Death Metal, Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_366681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_366681.jpg" />
 </div>
 
 
@@ -98,7 +127,7 @@ Smokie - Strangers In Paradise (1982) Reissue, 2016, Sony [FLAC|Lossless|image +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366649.jpg" />
 </div>
 
 
@@ -127,7 +156,7 @@ Thrashold of Pain - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366635.jpg" />
 </div>
 
 
@@ -156,7 +185,7 @@ Ritual Kannabis - Ritual Kannabis II (2022) [FLAC|Lossless|WEB-DL|tracks] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366634.jpg" />
 </div>
 
 
@@ -185,7 +214,7 @@ Retador - Retador (2022) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366629.jpg" />
 </div>
 
 
@@ -214,7 +243,7 @@ Impending Doom - 6 Albums (2007-2021) [FLAC|Lossless|WEB-DL|tracks] <Brutal Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366628.jpg" />
 </div>
 
 
@@ -243,7 +272,7 @@ Francesco Marras - It's Me! (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366627.jpg" />
 </div>
 
 
@@ -272,7 +301,7 @@ Leah - Ancient Winter (2019) [FLAC|Lossless|image + .cue] <Symphonic Metal, Goth
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366626.jpg" />
 </div>
 
 
@@ -301,7 +330,7 @@ Neil Diamond - Love Songs (2002) [FLAC|Lossless|tracks + .cue] <Rock, Pop>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366620.jpg" />
 </div>
 
 
@@ -330,7 +359,7 @@ SNEW - What’s It to Ya (2012) [FLAC|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_366452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_366452.jpg" />
 </div>
 
 
@@ -365,7 +394,7 @@ Smokie - Greatest Hits (1999) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366417.jpg" />
 </div>
 
 
@@ -394,7 +423,7 @@ Baroness - Gold & Grey (2019) [FLAC|Lossless|tracks + .cue] <Stoner Rock, Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366381.jpg" />
 </div>
 
 
@@ -423,7 +452,7 @@ Saor - Origins (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black, Folk Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366357.jpg" />
 </div>
 
 
@@ -452,7 +481,7 @@ Great Lake Swimmers - New Wild Everywhere (2012) [FLAC|Lossless|tracks + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366257.jpg" />
 </div>
 
 
@@ -481,7 +510,7 @@ Boris - Secrets (2018) Limited Edition [FLAC|Lossless|tracks + .cue] <Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366250.jpg" />
 </div>
 
 
@@ -510,7 +539,7 @@ Collective Soul - Collective Soul (2009) [FLAC|Lossless|tracks + .cue] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366246.jpg" />
 </div>
 
 
@@ -539,7 +568,7 @@ Therion - Sirius B (2004) [FLAC|Lossless|tracks + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366240.jpg" />
 </div>
 
 
@@ -568,7 +597,7 @@ Devoted Madness - Devoted Madness (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366174.jpg" />
 </div>
 
 
@@ -597,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366099.jpg" />
 </div>
 
 
@@ -626,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366036.jpg" />
 </div>
 
 
@@ -655,7 +684,7 @@ Opeth - In Cauda Venenum (2019) 2CD [FLAC|Lossless|tracks+ .cue] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366012.jpg" />
 </div>
 
 
@@ -684,7 +713,7 @@ Born Of Osiris - Soul Sphere (2015) [FLAC|Lossless]<Progressive Metalcore,Electr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365983.jpg" />
 </div>
 
 
@@ -713,7 +742,7 @@ Korn/KoЯn - The Nothing (2019) [FLAC|Lossless|tracks + .cue] <Nu-Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365879.jpg" />
 </div>
 
 
@@ -727,35 +756,6 @@ Korn/KoЯn - The Nothing (2019) [FLAC|Lossless|tracks + .cue] <Nu-Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C67EB01E3B6195F53B4CB5F82FD67BEF965F863
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328230   (365877) от 29.09.2019
-
-Volbeat - Rewind Replay Rebound (Japanese Edition) (2019) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Last Day Under The Sun (4:48)
-02. Pelvis On Fire (3:05)
-03. Rewind The Exit (4:15)
-04. Die To Live (3:02)(   Читать дальше...   )Жанр: Heavy Metal, Hard Rock, Psychobilly, Rockabilly, Groove Metal, Rock and RollПродолжительность: 01:10:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D2177645E569EE0ED0B5A7B6C81DD652FE25362
 ```
 
 https://mybot314.ru/tekegram_catalog/

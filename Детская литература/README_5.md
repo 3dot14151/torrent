@@ -1,31 +1,3 @@
-###  Публикация: 1459941   (1022996) от 03.04.2021
-
-Виктор Драгунский, Эдуард Успенский, Михаил Зощенко | Читаем сами без мамы. Смешные истории (2018) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга «Смешные истории» прекрасно подходит для первого самостоятельного чтения. Ведь в этом сборнике удобного формата весёлые истории для детей самых известных детских писателей - В. Драгунского, Э. Успенского, В. Голявкина и других.
-
-В книге большие буквы, слова с ударениями и цветные иллюстрации. Книжки серии «Читаем сами без мамы» можно взять с собой в дорогу, (   Читать дальше...   )Жанр: Детская литература/СказкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C2433D37CB06A3D2C7A8CC9711FD492601C3C0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 746926   (1022797) от 04.04.2021
 
 А. Кононов | Рассказы о Чапаеве (1939) [PDF]
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022797.jpg" />
 </div>
 
 
@@ -62,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022601.jpg" />
 </div>
 
 
@@ -90,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022455.jpg" />
 </div>
 
 
@@ -118,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022443.jpg" />
 </div>
 
 
@@ -146,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022288.jpg" />
 </div>
 
 
@@ -175,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022116.jpg" />
 </div>
 
 
@@ -201,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022114.jpg" />
 </div>
 
 
@@ -228,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022109.jpg" />
 </div>
 
 
@@ -255,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022100.jpg" />
 </div>
 
 
@@ -281,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022090.jpg" />
 </div>
 
 
@@ -308,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021954.jpg" />
 </div>
 
 
@@ -335,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021823.jpg" />
 </div>
 
 
@@ -361,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021807.jpg" />
 </div>
 
 
@@ -390,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021802.jpg" />
 </div>
 
 
@@ -416,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021799.jpg" />
 </div>
 
 
@@ -445,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021796.jpg" />
 </div>
 
 
@@ -471,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021636.jpg" />
 </div>
 
 
@@ -499,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021633.jpg" />
 </div>
 
 
@@ -527,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021606.jpg" />
 </div>
 
 
@@ -556,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021460.jpg" />
 </div>
 
 
@@ -582,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021458.jpg" />
 </div>
 
 
@@ -610,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021330.jpg" />
 </div>
 
 
@@ -636,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021035.jpg" />
 </div>
 
 
@@ -662,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021028.jpg" />
 </div>
 
 
@@ -690,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020986.jpg" />
 </div>
 
 
@@ -702,6 +674,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F13023DEC22C9D64F14947321CE42CDAB6ECC2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462987   (1020875) от 16.04.2021
+
+Сергей Михалков | Я читаю сам! Три поросёнка и другие сказки (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга «Три поросёнка и другие сказки» С. Михалкова — это отличный способ привить ребёнку любовь к чтению. Впервые знаменитые герои помогут детям научиться бегло читать, ведь в этой книжке большие буквы и слова с ударениями для удобства восприятия текста. А ещё очень много больших цветных иллюстраций.
+Книги из серии «Я читаю сам!» — отличный подарок детям, которые (   Читать дальше...   )Жанр: Детская литература/СказкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:804507E603F409755A9DC60C7D1A36FC7F879EE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

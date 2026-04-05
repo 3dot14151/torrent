@@ -1,32 +1,3 @@
-###  Публикация: 973463   (980256) от 08.01.2016
-
-Yuki Kajiura - Akiresu to kame (Ахиллес и черепаха) (2008) [OGG|Lossless] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Omoide no e (1:41)
-02. Tora no e (1:19)
-03. Hirame no e (0:47)
-04. Shuumatsu no e (1:58)(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:45:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97F2A4EE14DABE5E199082D5A488F2A779D3CD63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356324   (979122) от 30.01.2020
 
 Marco Beltrami & Brandon Roberts - Underwater / Под водой (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
@@ -35,7 +6,7 @@ Marco Beltrami & Brandon Roberts - Underwater / Под водой (Original Moti
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979122.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Ennio Morricone - The Good, the Bad and the Ugly (1966) / Хороший, пло
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978790.jpg" />
 </div>
 
 
@@ -99,7 +70,7 @@ Lorne Balfe - Mission Impossible: Fallout / Миссия невыполнима 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978608.jpg" />
 </div>
 
 
@@ -128,7 +99,7 @@ Lorne Balfe - Bad Boys for Life / Плохие парни навсегда (Orig
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978539.jpg" />
 </div>
 
 
@@ -157,7 +128,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978291.jpg" />
 </div>
 
 
@@ -189,7 +160,7 @@ Rob - Gretel & Hansel / Гретель и Гензель (Original Motion Pictur
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978002.jpg" />
 </div>
 
 
@@ -218,7 +189,7 @@ Thomas Newman - 1917 (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/�
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976765.jpg" />
 </div>
 
 
@@ -247,7 +218,7 @@ Marco Beltrami & Buck Sanders, VA - Ford V Ferrari / Ford против Ferrari (
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975610.jpg" />
 </div>
 
 
@@ -276,7 +247,7 @@ VA - Песни нашего кино. Коллекция от Ридерз Да
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973413.jpg" />
 </div>
 
 
@@ -311,7 +282,7 @@ Nicholas Britell - The King / Король (Original Score from the Netflix Film
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973159.jpg" />
 </div>
 
 
@@ -340,7 +311,7 @@ Simon Viklund and VA - Payday: The Game Soundtrack, Payday 2: Official Soundtrac
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973131.jpg" />
 </div>
 
 
@@ -366,7 +337,7 @@ Brian Tyler - Ready or Not / Я иду искать (Original Motion Picture Sou
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973091.jpg" />
 </div>
 
 
@@ -395,7 +366,7 @@ Ennio Morricone - Correspondence (La Corrispondenza) Original Soundtrack (2016) 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970803.jpg" />
 </div>
 
 
@@ -424,7 +395,7 @@ VA - Quentin Tarantino's The Hateful Eight / Омерзительная вось
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970471.jpg" />
 </div>
 
 
@@ -453,7 +424,7 @@ Bear McCreary - See / Видеть: Season 1 (Apple TV+ Original Series Soundtra
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969705.jpg" />
 </div>
 
 
@@ -482,7 +453,7 @@ VA - Birds of Prey / Хищные птицы: Потрясающая истор�
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969641.jpg" />
 </div>
 
 
@@ -511,7 +482,7 @@ VA - Крид: Наследие Рокки  / Creed (Original Motion Picture Sou
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968650.jpg" />
 </div>
 
 
@@ -540,7 +511,7 @@ Alexandre Desplat - Little Women / Маленькие женщины (Original M
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967311.jpg" />
 </div>
 
 
@@ -569,7 +540,7 @@ VA - Death Stranding (Songs from the Video Game) (2020) [MP3|320 кб/с]<Soundt
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966978.jpg" />
 </div>
 
 
@@ -598,7 +569,7 @@ VA - Bombshell: The New Marilyn Musical From SMASH (Deluxe Edition) (2013) [MP3|
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966675.jpg" />
 </div>
 
 
@@ -633,7 +604,7 @@ Randy Newman - Marriage Story / Брачная история (Original Music fr
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966202.jpg" />
 </div>
 
 
@@ -662,7 +633,7 @@ Henry Jackman - The 5th Wave / 5-я Волна  (Original Motion Picture Soundtr
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965539.jpg" />
 </div>
 
 
@@ -691,7 +662,7 @@ Crispin Merrell - Машина смерти / Death Machine (1994) 2015 [MP3|320
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963273.jpg" />
 </div>
 
 
@@ -720,7 +691,7 @@ Huey Lewis & The News - The Power of Love / Back to the future (1985) [MP3|320 �
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962293.jpg" />
 </div>
 
 
@@ -748,7 +719,7 @@ Daniel Pemberton - Birds of Prey / Хищные птицы: Потрясающа
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961889.jpg" />
 </div>
 
 
@@ -762,6 +733,35 @@ Daniel Pemberton - Birds of Prey / Хищные птицы: Потрясающа
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27F40433441F3009E5E9644611739FCDECD7A0A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360238   (961887) от 14.02.2020
+
+Steve Jablonsky - Bloodshot / Бладшот (Original Motion Picture Score) (2020) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961887.jpg" />
+</div>
+
+
+###  Подробнее
+
+|06:41| 01. Mombasa Mission
+|02:36| 02. Martin Axe
+|02:02| 03. Wake Up
+|02:37| 04. Second Chance(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:10:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07C0918D3102684527877FAE0559CB626A2BAF27
 ```
 
 https://mybot314.ru/tekegram_catalog/

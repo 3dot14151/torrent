@@ -1,3 +1,55 @@
+###  Публикация: 1567481   (471829) от 03.08.2022
+
+Zero Tolerance (1994) [En] (1.0) License GOG
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если эта 3D-игра не поднимет ваш уровень адреналина, то ничего не даст. В Zero Tolerance вы убиваете инопланетных террористов, которые хотят уничтожить вашу защитную колонию. Но не волнуйтесь, у вас есть арсенал оружия, чтобы выследить их через лабиринт проходов, потайных дверей и стрельбы.Тип издания: LicenseРазработчик: TechnopopЖанр: Экшны, Сражения, ВыживаниеЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEA8C272C3780674DFE725C5CEB7FEFC30642FC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245477   (471578) от 06.09.2018
+
+Overhead (2018) [En] (1.0) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из бункера фармацевтической компании Hexagon экстренно эвакуировали персонал, вы были заморожены и забыты... Аварийная система сработала только спустя 162 года, и вы теперь один в подземной зоне в которой когда-то добровольно проверяли, что-то конфиденциальное. Но один ли? Среди коридоров, комнат, лабораторий сложно обнаружить выход на поверхность, если он все еще (   Читать дальше...   )Тип издания: RepackРазработчик: CicleЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE341B94D3B23B592C7BB350F88179BEF6B9C8EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1245587   (471412) от 06.09.2018
 
 Ocean Nomad: Survival on Raft (2018) [Ru/Multi] (1.0) Repack Other s
@@ -6,7 +58,7 @@ Ocean Nomad: Survival on Raft (2018) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471412.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Clive Barker's Undying [Ru/En] (Repack) 2001 | R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471093.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Kingpin: Life of Crime (1999) [Ru/En] (1.21) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469746.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ The Solus Project (2016) [Ru/Multi] (1.13) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467013.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Elea (2018) [Ru/Multi] (1.0) License HOODLUM
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467009.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Dying Light 2: Stay Human (2022) [Ru/Multi] (1.4.2/dlc) License EMPRESS [Ultimat
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465745.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Prey - Mooncrash (2018) [Ru/En] (1.10) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463040.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Project Remedium (2017) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462906.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Dark Deception (2018) [Ru/Multi] (1.6.0/dlc) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462676.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Dying Light 2: Stay Human (2022) [Ru/En] (1.4.2/dlc) Repack West4it
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461531.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Stairs (2015) [En] (1.0) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457079.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Rise of the Triad: Dark War (1994) [En] (1.3) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456874.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Turok 2: Seeds of Evil - Remastered (2017) [Multi] (1.5.9/upd6) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456394.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Nevermind (2015) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454953.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Syndrome (2016) [En] (1.03f) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454491.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Get Even (2017) [Ru/Multi] (1.0/u1) Repack R.G.Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454150.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Crysis 2 (2011) [Ru] (1.9/dlc) Repack =nemos= [Maximum Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452822.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Burden (2018) [Ru/En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452320.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Evil Park (2017) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452150.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Rage: Anarchy Edition [Multi3/+] (Steam-Rip/1.0.29.712) 2011 | R.G. Игрома
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452140.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ Crysis  Warhead (2008) [Ru] (1.1.1.711) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450008.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ Syndrome (2016) [Ru/Multi] (1.03f) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450000.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ Lumber Island - That Special Place (2015) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448443.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ Dead Island Dilogy (2016) [Ru/Multi] (1.1.2.0/1.1.2.0) SteamRip Let'sPlay [Defin
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447829.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ Dead Island Dilogy (2016) [Ru/Multi] (1.1.2.0/1.1.2.0) SteamRip Let'sPlay [Defin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:950F4B28FE3324B0D2A7F2B9A311DBBAA4DBBE26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163603   (447794) от 06.09.2017
-
-Don't Knock Twice / Не стучи дважды (2017) [Ru/Multi] (1.0) License PLAZA
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447794.jpg" />
-</div>
-
-
-###  Подробнее
-
-Don't Knock Twice (Не стучи дважды) — игра-хоррор от первого лица, основанная на городской легенде, от которой стынет кровь и цепенеет сознание. Чтобы спасти свою покинутую дочь, терзаемая чувством вины мать должна раскрыть чудовищную правду городской легенды о мстительной демонической ведьме.Тип издания: LicenseРазработчик: Wales InteractiveЖанр: Adventure, 1st Person, Indie (Horror)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BDC2FEFF10DE1F708CCDB9B88DA576EF173DF0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061430   (447741) от 10.10.2016
-
-Mirror's Edge Catalyst (2016) [Ru/Multi] (1.0.3.47248) Repack R.G. Catalyst
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Присоединитесь к Фейт, бесстрашной паркурщице, сражающейся за свободу в Городе Зеркал. За обманчивым обликом этого изящного техногенного мегаполиса скрываются ужасные тайны. Исследуйте каждый уголок огромного города - от залитых солнцем крыш небоскребов до темных и грязных подземных туннелей - для Фейт не существует недоступных мест.Тип издания: RepackРазработчик: EA DICEЖанр: Action, 3D, 1st PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DBFD2374E0649C5E0D0E43E867E3EC124BE4478
 ```
 
 https://mybot314.ru/tekegram_catalog/

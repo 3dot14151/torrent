@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840322.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840321.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840320.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840219.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840218.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840217.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840216.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840215.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840214.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840213.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840212.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840209.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840199.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Monster Energy NASCAR Cup Series 2017 / Этап 2 - Atlanta / Гонка / (201
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840117.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838890.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838624.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838530.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838512.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ NG: Паранормальное. Круги на полях / Paranormal. Crop 
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838494.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838400.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838202.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837845.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Virgin Australia Supercars Championship. Сезон 2017. Clipsal 500 Adelaide. 
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837844.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837704.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837550.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837540.jpg" />
 </div>
 
 

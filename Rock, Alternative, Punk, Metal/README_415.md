@@ -1,3 +1,148 @@
+###  Публикация: 1137850   (664263) от 29.05.2017
+
+Apocalypse Orchestra - The End Is Nigh (2017) [MP3|320 Kbps] <Doom Metal, Folk Metal, Medieval>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664263.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Garden Of Earthly Delights
+2. Pyre
+3. Flagellants' Song
+4. Exhale(   Читать дальше...   )Жанр: Doom Metal, Folk Metal, MedievalПродолжительность: 00:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72E6B1BA597030CB1B83A6ACF389DA88A3BFB47A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138329   (664256) от 29.05.2017
+
+Angel Vivaldi - Universal Language (2011) [FLAC|Lossless|tracks + .cue] <Progressive Metal, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Venutian Spring (3:50)
+02. A Mercurian Summer (4:35)
+03. An Erisian Autumn (4:55)
+04. A Martian Winter (3:43)Жанр: Progressive Metal, InstrumentalПродолжительность: 00:17:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0CD5F1A31BDD3F46B5213CBADDE2DCD1EF5FC26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137880   (664200) от 29.05.2017
+
+Dream Evil - Six (2017) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream Evil
+02. Antidote
+03. Sin City
+04. Creature of the Night(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A4ADECA0062B7495A8CDFB0C84DBE46C801DB5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138448   (664193) от 29.05.2017
+
+Barrows - Obsidion (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock, Post -Rock, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Telekin (1:43)
+02. Entrada (7:01)
+03. Obsidion (10:29)
+04. Cocoon (19:46)(   Читать дальше...   )Жанр: Progressive Rock, Post -Rock, InstrumentalПродолжительность: 00:55:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E7991C6805D1D6E1A863AD5719C0F896C303431
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138180   (664148) от 29.05.2017
+
+Solstafir (Sólstafir) - Berdreyminn (2017) Deluxe Edition [MP3|320 Kbps] <Post-Metal, Post-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664148.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Silfur-Refur
+2. Isafold
+3. Hula
+4. Naros(   Читать дальше...   )Жанр: Post-Metal, Post-RockПродолжительность: 01:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FE075BA98EBD9199A5B40D75EF256FA5F207310
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138394   (664112) от 29.05.2017
 
 The Police - Greatest Hits (1996) Remastered, Reissue [FLAC|Lossless|tracks + .cue] <Rock, Pop-Rock>
@@ -6,7 +151,7 @@ The Police - Greatest Hits (1996) Remastered, Reissue [FLAC|Lossless|tracks + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664112.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Jan & Dean - Greatest hits (1992) 1993 Compilation [FLAC|Lossless|image + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664088.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ The Beatles - Sgt. Pepper's Lonely Hearts Club Band (1967) 50th Anniversary, Sup
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664055.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Peace Days - Право на мир (2018) [MP3|320 Kbps] <Punk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664006.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Estate - Mirrorland (2018) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664001.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Tiger B. Smith - We're The Tiger Bunch (1974) Reissue, 1993, Bellaphon [MP3|320 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663765.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Quickstrike - None Of A Kind (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663443.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Ransom - Back To The Boozer (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663437.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Stone Axe - Stay Of Execution (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663429.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Dirty Sound Magnet - DSM III (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663374.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Robert Tepper - Better Than The Rest (2019) [FLAC|Lossless|image + .cue] <Melodi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663372.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ Vince DiCola - Only Time Will Tell (2021) Japanese Edition [FLAC|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663369.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ A Tribe of Horsman - On The Way (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedeli
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663365.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ The Creation - Making Time - The Best of the Creation (2022) [FLAC 2.0|44.1/24|W
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663361.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ Arjen Anthony Lucassen's Star One - Revel In Time (2022) [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663359.jpg" />
 </div>
 
 
@@ -442,7 +587,7 @@ Napalm Death - Resentment Is Always Seismic – A Final Throw Of Throes (2022) E
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663283.jpg" />
 </div>
 
 
@@ -472,7 +617,7 @@ All Them Witches - Live On The Internet (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <P
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663282.jpg" />
 </div>
 
 
@@ -501,7 +646,7 @@ Duke Robillard - They Called It Rhythm & Blues (2022) [FLAC 2.0|44.1/24|WEB-DL|t
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663281.jpg" />
 </div>
 
 
@@ -530,7 +675,7 @@ Knuckle Head - Holsters and Rituals (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663278.jpg" />
 </div>
 
 
@@ -559,7 +704,7 @@ VA - Soft Rock Love (2022) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663275.jpg" />
 </div>
 
 
@@ -588,7 +733,7 @@ Georgia Satellites - Georgia Satellites (1986) [MP3|320 Kbps] <Southern Rock, Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663169.jpg" />
 </div>
 
 
@@ -602,147 +747,6 @@ Georgia Satellites - Georgia Satellites (1986) [MP3|320 Kbps] <Southern Rock, Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D9B21A1B534C379FB78C1F97C402F31CFAF29A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 581475   (663139) от 20.03.2022
-
-The The  / TheThe (Matt Johnson) - 13 альбомов (1981-2002) [MP3|160-320 кб/с] <Post-Punk, Alternative, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Post-Punk, Alternative, New WaveПродолжительность: 00:10:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0852A064C6714408B270C8BB8EBD9119823ED967
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138168   (662994) от 30.05.2017
-
-AC/DC - Californication (Live) (2017) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662994.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Who Made Who (Live at Irvine Meadows Amphitheatre, California 1986) (4:53)
-2. Shot Down in Flames (Live at Irvine Meadows Amphitheatre, California 1986) (3:37)
-3. Back in Black (Live at Irvine Meadows Amphitheatre, California 1986) (3:47)
-4. Dirty Deeds Done Dirt Cheap (Live at Irvine Meadows Amphitheatre, California 1986) (4:23)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:23:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B9CC417FA28B64EF973271BCD9ABB311EB47832
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225061   (662883) от 13.05.2018
-
-Richie Sambora (Ричи Самбора) - Ballad Of Youth (1991) Single, Mercury [MP3|320 Kbps] <Rock, Blues Rock, Ambient>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарная американская рок–группа BON JOVI - это ни в коем случае не собственность ее фронтмена и человека, подарившего ей свою фамилию, - Джона Бонджови. Это сплоченная команда, в которой каждый имеет право голоса и старается сохранить индивидуальность, несмотря на то, что вот уже около 15 лет ребята делают общее дело. Объективно говоря, в группе два лидера - (   Читать дальше...   )01. Ballad Of Youth 3:56
-02. Wind Cries Mary 5:58
-03. Rest In Peace 3:46Жанр: Rock, Blues Rock, AmbientПродолжительность: 00:13:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:245B8F72A4B6650C6ED9F0B66A7464F44A71930A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225070   (662881) от 13.05.2018
-
-Angel - Sinful (1979) Reissue, 1992, Casablanca [MP3|320 Kbps] <Rock, Hard Rock, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662881.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Don't Take Your Love
-2. L.A. Lady
-3. Just Can't Take It
-4. You Can't Buy Love(   Читать дальше...   )Жанр: Rock, Hard Rock, GlamПродолжительность: 00:33:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46E299D6E9FE695E0D51B2CB42CD2E8E204A6585
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225094   (662827) от 13.05.2018
-
-ЕжеВикА - Оберег (2018) [MP3|320 Kbps] <Folk Rock, Art Folk, Neofolk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Весна
-02. Оберег
-03. Зимушка-зима
-04. Рябина(   Читать дальше...   )Жанр: Folk Rock, Art Folk, NeofolkПродолжительность: 00:34:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEEFA1F947C5AFAB1E095BF99E90E364010B0528
 ```
 
 https://mybot314.ru/tekegram_catalog/

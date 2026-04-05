@@ -6,7 +6,7 @@ DAY6 - The day (2015) [MP3|320 кб/с]<k-pop>
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498275.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - LIVIN'G Presents: Lovely Guitar & Natural Spa (Vol. 1-3) (2010) [MP3|320 к
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498085.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ KARASHIC RECORDS - 2 альбома (2010-2011) Touhou Instrumental /Doujin/ [FL
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496486.jpg" />
 </div>
 
 
@@ -98,7 +98,7 @@ JunKY-jaM - 5 альбомов (2009-2011) Touhou Instrumental /Doujin/ [FLAC|tr
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496483.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Karkan - 5 альбомов (2008-2011) Touhou Vocal, Instrumental /Doujin/ [FLA
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496400.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Klang-Gear - 3 альбома (2008-2010) Touhou Instrumental /Doujin/ [FLAC|tra
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496399.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ JF UNION — Day Dream (2012) Touhou Vocal, Instrumental /Doujin/ [FLAC|tracks] 
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496398.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ JUNCTION PROJECT - 3 альбома (2010-2012) Touhou Vocal, Instrumental /Douj
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496397.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ JOYH-TV — Triple Time Arranges (2012) Touhou Instrumental /Doujin/ [FLAC|track
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496396.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ KARMART - 9 альбомов (2008-2010) Touhou Instrumental /Doujin/ [FLAC|trac
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496395.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Iris Drop — HIMAWARI FIRE!! (2012) Touhou Vocal /Doujin/ [FLAC|tracks] <J-Rock
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496392.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ J&B - 11 альбомов (2007-2011) Touhou Vocal, Instrumental /Doujin/ [FLAC|
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496389.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Kota-rocK - 6 альбомов (2006-2009) Touhou Vocal, Instrumental /Doujin/ [
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496388.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Knights of Round - 4 альбома (2007-2010) Touhou Instrumental /Doujin/ [FL
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496386.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ KeyMusic - 1 альбом + 8 синглов (2005-2011) Touhou Vocal, Instrumen
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495491.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ kaon - 2 альбома (2010-2011) Touhou Vocal /Doujin/ [FLAC|tracks] <J-Metal
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495490.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ LAVO - 2 альбома (2009-2010) Touhou Instrumental /Doujin/ [FLAC|tracks] <
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494448.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ LiveLiqueur - 2 альбома (2011) Touhou Vocal, Instrumental /Doujin/ [FLAC|
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494445.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Liset - 2 альбома (2009-2010) Touhou Vocal /Doujin/ [FLAC|tracks] <J-Pop>
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494384.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Light ? Staff - 4 альбома (2005-2009) Touhou Vocal, Instrumental /Doujin/
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494380.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ krossway - aquaim (2011) Touhou Instrumental /Doujin/ [FLAC|tracks] <Electronic>
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494379.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Lobgesang - Haru, Gensoukyou nite piano o kakinarashite mireba (2011) Touhou Ins
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494378.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ rythmique - 10 альбомов (2009-2011) Touhou Vocal /Doujin/ [FLAC|tracks] 
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494371.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Liverne - 3 альбома (2006) Touhou Instrumental /Doujin/ [FLAC|tracks] <El
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494369.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ KSNT - 4 альбома (2010-2012) Touhou Instrumental /Doujin/ [FLAC|tracks] <
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494365.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ little white snow - 7 альбомов (2009-2012) Touhou Vocal /Doujin/ [FLAC|t
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494279.jpg" />
 </div>
 
 

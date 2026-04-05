@@ -6,7 +6,7 @@ BBC: Планета Земля 2. Мир чудес / Planet Earth II: A World o
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164093.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Discovery: Последние тайны долины Царей / Valley of the
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164084.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163837.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Discovery. Насекомые "Чужие" (Молящийся Богомол) /
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163599.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163448.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NG. Экстремальное путешествие: Вторая мирова
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163345.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ NG: Добро пожаловать на Землю / Welcome to Earth (2021) WE
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162504.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162385.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162132.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160009.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ BBC. Замёрзшая планета 2 / Frozen Planet II (2022) WEB-DLRip [H.
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159543.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158871.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158797.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158639.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Nat Geo Wild: Дикая Австралия / Wild Australia [серии 1-4 и�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158056.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ BBC: Чудеса Солнечной системы / Wonders of the Solar Syste
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158008.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ NG. Великолепные лошади / The Noble Horse (1999) DVDRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158006.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157813.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Discovery: Разрушители легенд / MythBusters (2015) SATRip  (с�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157675.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ NGW: Дикие места Африки. Величайшие архитекто
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157309.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ NGW: Дикая природа Великобритании / Wild Great Britain
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157140.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157110.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ BBC. Замёрзшая планета 2 / Frozen Planet II (2022) WEB-DLRip [H.
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157062.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157046.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ NGW: Море теней / Sea of Shadows (2019) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156835.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156138.jpg" />
 </div>
 
 

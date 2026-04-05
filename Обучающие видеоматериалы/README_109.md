@@ -1,3 +1,29 @@
+###  Публикация: 1526214   (738660) от 23.01.2022
+
+Wingfox Studio, Changming Wang | Ultimate Illustration Course Coloring and Lighting (2021) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738660.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом уроке вы узнаете, как создать иллюстрацию, похожую на плакат, на всем пути от эскиза до окончательных деталей. После этого урока вы сможете освоить новые и практические приемы изготовления плакатов, игровых карточек, скинов чемпионов, скетчей, доп. Это краткое руководство по иллюстрации того, как представить цвета и свет.Производство: Wingfox StudioЖанр: РисованиеЯзык озвучки: АнглийскийПродолжительность: 11:11:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3A32FC0365E38F5C6769D2A88A49F7337FABE22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526095   (738657) от 23.01.2022
 
 Тата Феодориди | Искусство психотерапии: Коммуникация (2021) WEB-DLRip
@@ -6,7 +32,7 @@
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738657.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ Wingfox Studio, Wingfox | Character Painting in Photoshop (2021) PCRec [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738651.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ Scott Eaton | Digital Figure Sculpture (2012) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738348.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ ART School, Marc Brunet | ART School for digital artists (2021) WEB-DL [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738301.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738039.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ FlippedNormals, Emiel Sleegers | Hero Prop Creation in Blender & Substance Paint
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738003.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ Udemy, Austin Batchelor | The Digital Painting MEGA Course Beginner to Advanced 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737767.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ Cubebrush, Marc Brunet | Faster Illustration Techniques (2017) PCRec [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737729.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ Udemy, Austin Batchelor, Stephen Sorensen | The Digital Painting Mega Course: Be
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737722.jpg" />
 </div>
 
 
@@ -251,7 +277,7 @@ Digital Tutors, Tanya Wiesner | Automating Tasks Using MAXScript in 3ds Max (201
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737297.jpg" />
 </div>
 
 
@@ -277,7 +303,7 @@ Digital Tutors, Eddie Russell | Map Baking Techniques for Games in Maya (2015) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737287.jpg" />
 </div>
 
 
@@ -304,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736797.jpg" />
 </div>
 
 
@@ -333,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736773.jpg" />
 </div>
 
 
@@ -361,7 +387,7 @@ Udemy, Nikolay Naydenov | Making a Cartoon Character in Zbrush (2021) PCRec [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736772.jpg" />
 </div>
 
 
@@ -390,7 +416,7 @@ Jillian Michaels | Hard Body (2013) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736543.jpg" />
 </div>
 
 
@@ -416,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736495.jpg" />
 </div>
 
 
@@ -442,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736325.jpg" />
 </div>
 
 
@@ -471,7 +497,7 @@ Udemy, Nikolay Naydenov | Super Human Anatomy for Artists Course (2021) PCRec [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736287.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Udemy, Nikolay Naydenov | Absolute Beginners ZBrush Course (2020) PCRec [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736263.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Skillbox, Татьяна Жукова | Управленческий учёт (2
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736260.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ Reso Coder, Matej Resetar | Flutter Developer Bootcamp (2022) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736258.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ Udemy, Nikolay Naydenov | Female Anatomy for Artists Course (2020) PCRec [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736254.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ Chris Maynard | Color Theory for CG and VFX Artists (2015) PCRec [En / Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736104.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736028.jpg" />
 </div>
 
 
@@ -663,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735988.jpg" />
 </div>
 
 
@@ -675,35 +701,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10201B21407771C50E0C1B8F2925EA3F2F92ADEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527807   (735829) от 30.01.2022
-
-Leanpub, Jason McCreary | BaseCode - A field guide to writing lasting code (2018-2019) WEB-DL [Course, ebook & audiobook] [En]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735829.jpg" />
-</div>
-
-
-###  Подробнее
-
-BaseCode сводит написание читабельного кода к 10 практикам и содержит более 40 примеров кода.
-Эти практики сосредоточены на:
-Написание кода, приоритетом которого является читаемость человеком, а не компьютером
-Избегание гниения кода с помощью анализа и автоматизации(   Читать дальше...   )Производство: LeanpubЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 04:17:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AC984A0FD2E33E52A3F403D0FB8ED107186D99A
 ```
 
 https://mybot314.ru/tekegram_catalog/

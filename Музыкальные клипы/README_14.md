@@ -6,7 +6,7 @@ Al Bano & Romina Power - Liberta! (2020) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771275.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ VA - Весенний марафон № 163 / Видеоклипы (Заруб�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770671.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769165.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Everest of Rock - 4 (1980) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762638.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Lindsey Stirling ft. Lzzy Hale - Shatter Me (2014) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759480.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Coldplay - Higher Power (2021) WEBRip [VP9/1440p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758536.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ VA - Official UK Top 40 Video Chart (Febr, 2019) WEB-DL [1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758347.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754658.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Lindsey Stirling - Beyond The Veil (2014) [H.264/1080p-LQ] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752390.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ The ВЙО - Карпаты (2013) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751321.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750690.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750682.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746871.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745685.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744439.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Lindsey Stirling - Child of Light (2014) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738913.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737011.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ ABBA - Gimme! Gimme! Gimme! (A Man After Midnight) (1979) WEBRip [H.264/2160p] [
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735329.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734727.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734690.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Nasty - Клипы (2013-2020) WEBRip [H.264/VP9/1080p/2160p] <Beatdown Hardcore
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734688.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730452.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729407.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725525.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724990.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721613.jpg" />
 </div>
 
 

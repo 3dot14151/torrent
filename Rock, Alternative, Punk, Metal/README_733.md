@@ -1,3 +1,32 @@
+###  Публикация: 1581050   (328131) от 04.10.2022
+
+Hexis - Aeternum (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Hardcore, Sludge>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Letum
+02. Divinitas
+03. Exhaurire
+04. Interitus(   Читать дальше...   )Жанр: Black Metal, Hardcore, SludgeПродолжительность: 00:45:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A840D43F60C87E74C7AE2D2443C37796E74C91F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1581048   (328063) от 04.10.2022
 
 Preterist - Blood Moon Rising (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
@@ -6,7 +35,7 @@ Preterist - Blood Moon Rising (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328063.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328061.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Deadly Vipers - 2 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Stoner
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328060.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Seething Akira - 3 Albums (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternatove Meta
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328059.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328058.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Ethel Cain - Preacher’s Daughter (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock,Go
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328052.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Def Leppard - CD Collection Volume 2 (2019) Box Set: 7 CD [OGG Vorbis|484 Kbps] 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328004.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Sound Of Memories - To Deliverance (2015) [MP3|320 кб/с]<MDM>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327663.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Days Of Jupiter - Secrets Brought To Life (2012) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327655.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Leather Heart - Comeback (2015) [MP3|320 кб/с]<Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327650.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Black Oak Arkansas - Original Album Series (2013) 5CD Box Set [MP3|320 кб/с]<
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327612.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327410.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327376.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327336.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Queen - Forever (2014) 2SHM-CD, Japanese Edition [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327304.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Cruz - Culto Abismal (2016) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327296.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Cruz - Confines de la cordura (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327295.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Tell You What Now - Tell You What Now (2022) [MP3|320 Kbps] <Progressive Metalco
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327294.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Archgoat - All Christianity Ends (2022) EP [FLAC|Lossless|tracks + .cue] <Death,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327292.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ SHALAVA boys - Ужасы современного поколения (2022) [MP
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327289.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Richard Marx - Limitless (2020) [OGG Vorbis|484 Kbps] <Rock, Soft Rock, Pop Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327288.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Queen - Forever (2014) 2SHM-CD, Japanese Edition [FLAC|image + .cue]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327233.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327223.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327215.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Five Finger Death Punch - AfterLife (2022) [FLAC|Lossless|image + .cue] <Groove 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327125.jpg" />
 </div>
 
 
@@ -719,41 +748,6 @@ Five Finger Death Punch - AfterLife (2022) [FLAC|Lossless|image + .cue] <Groove 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00FD606F817218A24A8FCE487C7B00EC0F7F268B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 413532   (326904) от 25.11.2011
-
-Ex.T.R.A. - Сткло и сталь (2010) [MP3|320 kbps]<Ska, Alco ska>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Que Paso Amigos
-02 - Один на миллион
-03 - Кабак
-04 - Ska Moscow
-05 - Mr. Beerman
-06 - Безобразный Алкоголик
-07 - Так Прохидят Годы
-08 - Коля
-09 - Стекло и Сталь
-10 - Алиса(   Читать дальше...   )2010Жанр: Ska, Alco skaПродолжительность: 00:37:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AEFF3F4277CEAC5327655C26316FA7195592B50
 ```
 
 https://mybot314.ru/tekegram_catalog/

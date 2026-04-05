@@ -1,3 +1,30 @@
+###  Публикация: 1043644   (570014) от 17.08.2016
+
+Сергей Пузанков | Онлайн курс Advanced front-end (2016) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Только продвинутые знания front-end, современные технологии, сложные задачи, серьезный кодинг — словом, не для «новичков». Более глубокие познания и владение технологиями, выход на новый профессиональный и карьерный уровень.
+Практика, практика, практика! Много практики! Захватывающая и интересная работа над реальным и нетривиальным проектом. Знания и опыт самых лучших (   Читать дальше...   )Производство: front-end scienceЖанр: Программирование, java script, front-endПродолжительность: 28:50:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A0294CF9FDFF4CF4BC842C45C964FC37ABF3E39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1151031   (570012) от 20.07.2017
 
 Foxford | Язык C++ (2016-2017) PCRec [H.264/1080p]
@@ -6,7 +33,7 @@ Foxford | Язык C++ (2016-2017) PCRec [H.264/1080p]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570012.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Udemy, Stephen Ulibarri | Unreal Engine 5 C++ Multiplayer Shooter (2022) PCRec [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569917.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ CG Boost, Zach Reinhardt | Master 3D Sculpting in Blender - Version 2.0 [Chapter
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569910.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ Profileschool | Маски. Практика применения (2014) [PCRec]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568469.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568457.jpg" />
 </div>
 
 
@@ -140,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568428.jpg" />
 </div>
 
 
@@ -166,7 +193,7 @@ TheTunes.Ru | Руководство по FL STUDIO 12 (2016) WEBRip [H.264/720p
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567217.jpg" />
 </div>
 
 
@@ -192,7 +219,7 @@ Gumroad.com | Sci-Fi Weapon Process (2017) PCRec [H.264/720p-LQ] [RU/EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566852.jpg" />
 </div>
 
 
@@ -221,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566240.jpg" />
 </div>
 
 
@@ -256,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564665.jpg" />
 </div>
 
 
@@ -285,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564652.jpg" />
 </div>
 
 
@@ -314,7 +341,7 @@ nastroika-pc.ru | Конфигурации компьютеров [2012] SATRip
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564449.jpg" />
 </div>
 
 
@@ -340,7 +367,7 @@ SLR Lounge | Photographing the Bride & Groom Bundle (2016) WEB-DL [AD] [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563083.jpg" />
 </div>
 
 
@@ -366,7 +393,7 @@ elf.etutorium | Конференция eLearning Forum in Russia 2017 (2017) DVB
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562896.jpg" />
 </div>
 
 
@@ -392,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562715.jpg" />
 </div>
 
 
@@ -420,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562301.jpg" />
 </div>
 
 
@@ -449,7 +476,7 @@ Geekbrains | PHP. Уровень 2 Профессиональная веб-ра�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562208.jpg" />
 </div>
 
 
@@ -476,7 +503,7 @@ Steve Cotter | Kettlebell University (2017) WEBRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560248.jpg" />
 </div>
 
 
@@ -502,7 +529,7 @@ Udemy, GameDev.tv Team, Stephen Ulibarri | Unreal Engine 5 Blueprints - First Pe
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559339.jpg" />
 </div>
 
 
@@ -531,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559002.jpg" />
 </div>
 
 
@@ -557,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558478.jpg" />
 </div>
 
 
@@ -585,7 +612,7 @@ JavaBegin | Spring (2014-2017) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558362.jpg" />
 </div>
 
 
@@ -611,7 +638,7 @@ Patreon, FlyCat | Semi realistic potrait modelling in Blender 3.1 (2022) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557882.jpg" />
 </div>
 
 
@@ -638,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557630.jpg" />
 </div>
 
 
@@ -666,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557484.jpg" />
 </div>
 
 
@@ -679,32 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7DE5C98CA6724A9EDAE900E63F5BA6E78F9FF6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 796754   (557453) от 21.08.2014
-
-Lynda.com | WordPress (2010-2014) [PCRec] [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это сборник видеуроков от Lynda.com по CMS WordPress за 2010 - 2014 года. Сюда вошли 40 из 45 курсов от Lynda.com на сегодняшний день. Отличие от подобных раздач - нумерация и имена файлов полностью совпадают с оригинальными, файлы примеров вынесены в отдельный архив. По мере появления новых курсов раздача будет оперативно обновлятьсяЖанр: WebПродолжительность: 90:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1818DD97B37D26EC574073EE72B3FDAD767499FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

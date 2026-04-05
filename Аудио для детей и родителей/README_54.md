@@ -1,3 +1,29 @@
+###  Публикация: 1569563   (451814) от 13.08.2022
+
+Лилиан Муур, Евгений Шварц и др. | Истории нашего детства - 2 (2022) [MP3, Сергей Бельчиков и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самое большое впечатление на любого человека оказывает литература, которую открывает для себя в свои самые юные годы. Тогда воображение настойчиво будоражат новые герои и новые сюжеты, с которым мы только начинаем знакомиться. Весёлые, героические, печальные, сказочные образы запоминаются однажды и остаются с нами на долгие годы. Потому что искусство должно волновать, (   Читать дальше...   )Жанр: Детская литература, СказкаПродолжительность: 04:36:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CBA00D5D20A8D35F172DE246FB943F9975FBFE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 588072   (450846) от 13.08.2022
 
 VA - Волшебная классика (2012) [MP3|320 кб/с]<Классическая музыка>
@@ -6,7 +32,7 @@ VA - Волшебная классика (2012) [MP3|320 кб/с]<Классич
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450846.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ VA - Колыбельные для малышей (2011) [MP3|320 kbps]<Classic>
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450845.jpg" />
 </div>
 
 
@@ -64,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450430.jpg" />
 </div>
 
 
@@ -92,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449329.jpg" />
 </div>
 
 
@@ -118,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447970.jpg" />
 </div>
 
 
@@ -144,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446187.jpg" />
 </div>
 
 
@@ -170,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445252.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443150.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442646.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ VA - 555 Детских Песен (2017) [MP3|320 Kbps] <Детская , По�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442366.jpg" />
 </div>
 
 
@@ -277,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440955.jpg" />
 </div>
 
 
@@ -306,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440884.jpg" />
 </div>
 
 
@@ -334,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440798.jpg" />
 </div>
 
 
@@ -360,7 +386,7 @@ VA - Александр Кудряшов. Озорные нотки (2007) [MP3|
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440476.jpg" />
 </div>
 
 
@@ -395,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438635.jpg" />
 </div>
 
 
@@ -421,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438554.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438541.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438471.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438467.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438278.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ VA - Лучшие песни из детского кино (2012) [MP3|320 кб
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438277.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ VA - Хиты планеты. Любимые песни из мультфиль�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438139.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434038.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ VA - Волшебные голоса природы: Малыш на лугу (2
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433296.jpg" />
 </div>
 
 
@@ -675,7 +701,7 @@ VA - Волшебные голоса природы: Малыш и птички 
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433292.jpg" />
 </div>
 
 
@@ -689,32 +715,6 @@ VA - Волшебные голоса природы: Малыш и птички 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C6688C33079B8B6DC73DDEB0C420A7D171878A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165078   (432342) от 13.09.2017
-
-Игорь Липсиц | Удивительные приключения в стране Экономика (2017) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга в увлекательной форме рассказывает юному читателю о таких сложных категориях экономики, как цена, заработная плата, торговля и валютные курсы, конкуренция и инфляция. Автор отправляет своих героев в страну Экономика. Книга не имеет аналогов, может быть использована как основа школьного курса по экономике для детей 10-13 лет.Жанр: Общая экономическая теория, Просто о бизнесе, Учебная литератураПродолжительность: 09:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C0500F19B08F8A6E44A1E4386A0BB41A1F724BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

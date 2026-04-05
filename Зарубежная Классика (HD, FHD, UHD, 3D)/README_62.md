@@ -1,3 +1,109 @@
+###  Публикация: 840880   (327152) от 19.11.2014
+
+Сука-любовь / Amores perros (2000) BDRip [H.264/720p-LQ] [10-bit]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мехико Сити, фатальная авария. Сталкиваются три жизни, раскрывая предательскую сторону человеческой природы. Будоражащая и волнующая история об искуплении и об уязвимости и сложности человеческой жизни.Жанр: Драма, ТриллерРежиссер: Алехандро Гонсалес ИньярритуАктеры: Эмилио Эчеваррия, Гаэль Гарсия Берналь, Гойя Толедо, Альваро Герреро, Ванесса Бауче, Хорхе Салинас, Марко Перес, Родриго Мюррэй, Умберто Бусто, Жерардо КэмпбеллПеревод: Многоголосый x2Язык субтитров: Русский , Английский, ИспанскийПродолжительность: 02:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37987A0BECE7EC156053629DBD8EB7F179CD4ABD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 773216   (326284) от 20.11.2014
+
+Выпускник / The Graduate (1967) BDRemux [1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326284.jpg" />
+</div>
+
+
+###  Подробнее
+
+После окончания колледжа в дом своих родителей в Лос-Анджелесе возвращается Бенджамен Брэддок. Начинается бесконечная череда дружеских визитов. Все хотят посмотреть на выпускника! На одном из приемов Бен знакомится с приятельницей своих родителей, элегантной дамой бальзаковского возраста миссис Робинсон.
+
+Влюбившись в юношу, она начинает преследовать его. Загнанный (   Читать дальше...   )Жанр: Драма, Мелодрама, КомедияРежиссер: Майк НиколсАктеры: Дастин Хоффман, Кэтрин Росс, Энн Бэнкрофт, Уильям Дэниелс, Мюррэй Хэмилтон, Элизабет Уилсон, Бак Генри, Брайан Эйври, Уолтер Брук, Норман ФеллПеревод: Профессиональный (двуголосый закадровый)Язык субтитров: Русский, АнглийскийПродолжительность: 01:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDD6425D21EFC0E5AAED091751A1D01F6AE160A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578984   (326031) от 06.10.2022
+
+Ад Каннибалов 2 / Съеденные заживо / Eaten Alive! / Mangiati vivi! (1980) BDRemux [H.264/1080p] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оказывается, людоеды встречаются не только в сказках. В недоступных джунглях Новой Гвинеи с давних времен существует таинственная секта, принимающая обряд очищения и единения с природой через человеческую плоть. В том, что это не выдумка, предстоит убедиться героине фильма, отправившейся на поиски пропавшей сестры. И это только начало ужасной истории…Производство: Италия / Dania Film, Medusa Distribuzione, National CinematograficaЖанр: ужасы, приключенияРежиссер: Умберто ЛенциАктеры: Роберт Керман, Джанет Агрен, Иван Рассимов, Мел Феррер, Паола Сенаторе, Ми Ми Лай, Фьямма Мальоне, Франко Фантазия, Франко Кодути, Альфред Джозеф БерриПеревод: Авторский (Сергей Визгунов)Язык озвучки: русский, английский, итальянскийСубтитры: английские (Full, SDH)Продолжительность: 01:32:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18A77E37FFB916B9D1BD38E40C35D8C5BBE61D90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416467   (323700) от 02.11.2020
+
+Назад в Будущее 2 / Back to the Future Part II (1989) UHD BDRip [H.265/2160p] [4K, SDR, 10-bit]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подросток Марти с помощью машины времени, сооружённой его другом-профессором доком Брауном, попадает из 80-х в далекие 50-е. Там он встречается со своими будущими родителями, ещё подростками, и другом-профессором, совсем молодым.Производство: США / Amblin Entertainment, U-Drive Productions, Universal PicturesЖанр: Фантастика, комедия, приключенияРежиссер: Роберт ЗемекисАктеры: Майкл Дж. Фокс, Кристофер Ллойд, Лиа Томпсон, Криспин Гловер, Томас Ф. Уилсон, Клаудия Уэллс, Марк МакКлюр, Уэнди Джо Спербер, Джордж Дицензо, Фрэнсис Ли МакКейнПеревод: Дублированный, Многоголосый профессиональный, Двуголосый профессиональный, АвторскийЯзык озвучки: Русский, украинский, английскийСубтитры: Русские, АнглийскиеПродолжительность: 01:48:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7232DCD9CC0752DA4E902E77E7E201D45A2C519D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1256547   (323083) от 02.11.2018
 
 Излучины Миссури / The Missouri Breaks (1976) BDRip [H.264/1080p]
@@ -6,7 +112,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323083.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323019.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321816.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320444.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320047.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319851.jpg" />
 </div>
 
 
@@ -162,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319744.jpg" />
 </div>
 
 
@@ -188,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319457.jpg" />
 </div>
 
 
@@ -214,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318121.jpg" />
 </div>
 
 
@@ -241,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318050.jpg" />
 </div>
 
 
@@ -267,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318038.jpg" />
 </div>
 
 
@@ -295,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316330.jpg" />
 </div>
 
 
@@ -321,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315956.jpg" />
 </div>
 
 
@@ -347,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315676.jpg" />
 </div>
 
 
@@ -373,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313470.jpg" />
 </div>
 
 
@@ -399,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313166.jpg" />
 </div>
 
 
@@ -425,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_312767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_312767.jpg" />
 </div>
 
 
@@ -451,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312727.jpg" />
 </div>
 
 
@@ -477,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311248.jpg" />
 </div>
 
 
@@ -503,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311066.jpg" />
 </div>
 
 
@@ -529,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309940.jpg" />
 </div>
 
 
@@ -555,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309896.jpg" />
 </div>
 
 
@@ -566,110 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5033CC6F25C25EEB2482D1C0DC973295D5A19A2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583992   (309885) от 03.12.2012
-
-Декамерон / The Decameron / Il Decameron  [The Criterion Collection] (1970) [1080p] BDRemux
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309885.jpg" />
-</div>
-
-
-###  Подробнее
-
-Художник Джотто странствует по дорогам Италии эпохи зарождающегося Ренессанса в поисках гармонии и истины. Джотто становится свидетелем самых разных жизненных историй и жадно вбирает в себя во впечатления от изменяющейся, многоликой реальности. Эта реальность — веселая или печальная, суровая или фривольная наполнена мощной стихией любви и жажды жизни, торжествующих (   Читать дальше...   )Жанр: Комедия, драмаРежиссер: Пьер Паоло ПазолиниВ ролях: Франко Читти, Нинетто Даволи, Йован Йованович, Винченцо Амато, Анжела Луче, Джузеппе Зигайна, Габриэлла Франкель, Винченцо Кристо, Пьер Паоло Пазолини, Патриция Каппарелли, Сильвана МанганоПеревод: Многоголосый закадровыйСубтитры: Английские, РусскиеПродолжительность: 01:51:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F69DE6E161EAC6F8A717128EF7431D73933BBDC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 418738   (308774) от 04.12.2011
-
-Бегущий по лезвию / Blade Runner (1982) BDRip [H.264/720p-LQ] [International Theatrical Cut]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Недалекое будущее. Декард - полицейский в отставке, бывший "бегущий по лезвию" - охотник на репликантов - андроидов, созданных корпорацией "Тайрелл". Репликанты были объявлены на Земле вне закона, но группа репликантов серии Nexus-6 завладела шаттлом и, перебив команду и пассажиров, вернулась на Землю из колонии. Декарда вызвали для того, чтобы (   Читать дальше...   )Жанр: Фантастика, Боевик, ТриллерРежиссер: Ридли Скотт / Ridley ScottАктеры: Харрисон Форд, Рутгер Хауэр, Шон Янг, Дэрил Ханна, Брайон Джеймс, Эдвард Джеймс Олмос, Джоанна КэссидиПеревод: Дубляж Варус-Видео, Многоголосый Киномания, Многоголосый Tycoon, Одноголосый А.Гаврилов , Одноголосый А.Гаврилов  VHS, Одноголосый Л.Володарский, Одноголосый В.ГорчаковаЯзык субтитров: Русские (3вида), АнглийскиеПродолжительность: 01:57:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE312EFAE50659FB08F846F57F143E07DFE58E61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 418020   (308531) от 04.12.2011
-
-Апокалипсис сегодня (Режиссерская версия) / Apocalypse Now (Redux version) (1979/2000) BDRemux [H.264/1080p]
-
->>След.
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время войны во Вьетнаме спецагент отправляется вверх по реке в Камбоджу с приказом найти и убить полусумасшедшего полковника, создавшего в отдаленном районе нечто вроде собственного королевства насилия. По пути мы видим почти сюрреалистический мир ужасов войны.Производство: СШАЖанр: Драма, ВоенныйРежиссер: Фрэнсис Форд КопполаАктеры: Марлон Брандо, Мартин Шин, Роберт Дювалл, Харрисон Форд, Деннис Хоппер, Лоренс Фишбёрн, Фредерик Форрест, Сэм Боттомс, Альберт Холл, Г.Д. СпрэдлинПеревод: Многоголосый закадровый, АвторскийСубтитры: Английские, Английские (SDH), Русские (СОЮЗ), Русские (Дмитрий Пучков)Продолжительность: 03:16:09
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416810   (307964) от 09.11.2020
-
-Индиана Джонс: В поисках утраченного ковчега / Raiders of the Lost Ark (1981) BDRip [H.265/1080p] [10-bit]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный археолог и специалист по оккультным наукам доктор Джонс получает опасное задание от правительства США. Он должен отправиться на поиски уникальной реликвии - священного Ковчега. Но Индиана и не подозревает, что аналогичный приказ уже получили тайные агенты Адольфа Гитлера.Производство: США / Lucasfilm Ltd., Paramount PicturesЖанр: Боевик, приключенияРежиссер: Стивен СпилбергАктеры: Харрисон Форд, Карен Аллен, Пол Фримен, Рональд Лейси, Джон Рис-Дэвис, Денхолм Эллиотт, Альфред Молина, Вольф Калер, Энтони Хиггинс, Вик ТэблианПеревод: Профессиональный многоголосый, профессиональный двухголосый, авторскийСубтитры: Русские, английскиеПродолжительность: 01:55:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C482FBCE9DA73FE4946CB818901D773ADC7FA3DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

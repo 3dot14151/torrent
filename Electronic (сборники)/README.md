@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1863461   (1063978) от 
+
+VA - 60 minutes. Old School Dance Music vol.35 (mixed by Dj V) (2025) [MP3|320 Kbps] <Disco House, Club House,  Tribal House,  Latino House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Francesco Diaz Feat. Benjamin Boyce - Across The Sea (Denis The Menace & Jerry Ropero Club Remix)
+02-Axwell Feat. Steve Edwards - Watch The Sunrise (Bob Sinclar Remix)
+03-Everything But The Girl - Corcovado (Knee Deep Classic Club Mix Ben Watt Vocal Re-edit)
+04-Full Intention Pres. Hustle Espanol - Do The Spanish Hustle (Gray & Pearn's Dtension Mix)(   Читать дальше...   )Жанр: Disco House, Club House,  Tribal House,  Latino House, DanceПродолжительность: 1:00:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1F4069DD94A18A9D8B6DC035B9AE604EAA62F09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862929   (1063875) от 
+
+Fancy best (1985-2023) [MP3|320 Kbps] <electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063875.jpg" />
+</div>
+
+
+###  Подробнее
+
+[5:06] . 001-Colder Than Ice
+[5:28] . 002-Slice Me Nice
+[5:41] . 003-In Shock
+[5:33] . 004-Get Your Kicks(   Читать дальше...   )Жанр: electronicПродолжительность: 06:57:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E3D985DBDD0A841087A6851F7504D9824730703
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861252   (1062605) от 
 
 Jumanov - Favorites Collection Part 3 (2026) [MP3|320 Kbps] <Electronic>
@@ -7,7 +65,7 @@ Jumanov - Favorites Collection Part 3 (2026) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062605.jpg" />
 </div>
 
 
@@ -36,7 +94,7 @@ VA - Record Super Chart 21.03.2026 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062128.jpg" />
 </div>
 
 
@@ -65,7 +123,7 @@ VA - 60 minutes. Old School Dance Music vol.34 (mixed by Dj V) (2025) [MP3|320 K
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061001.jpg" />
 </div>
 
 
@@ -94,7 +152,7 @@ VA - REDISCOVER Classic Trance (2026) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060960.jpg" />
 </div>
 
 
@@ -123,7 +181,7 @@ VA - Deep Night Deep House 8 (2026) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060421.jpg" />
 </div>
 
 
@@ -152,7 +210,7 @@ VA - Узоры (mixed by Dj V) (2026) [MP3|320 Kbps] <Organic House, Melodic Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1060043.jpg" />
 </div>
 
 
@@ -181,7 +239,7 @@ Reteox - Favorites Collection Part 4 (2026) [MP3|320 Kbps] <Electronic, Vocal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058041.jpg" />
 </div>
 
 
@@ -210,7 +268,7 @@ Secret Service best (1979-2025) [MP3|320 Kbps] <electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057920.jpg" />
 </div>
 
 
@@ -239,7 +297,7 @@ VA - DOWN LOW 9 (2026) [MP3|320 Kbps] <Bass House, Bass Progressive, Other>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057808.jpg" />
 </div>
 
 
@@ -268,7 +326,7 @@ VA - 60 minutes. Old School Dance Music vol.33 (mixed by Dj V) (2025) [MP3|320 K
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057659.jpg" />
 </div>
 
 
@@ -297,7 +355,7 @@ Sardø - Favorites Collection Part 10 (2026) [MP3|320 Kbps] <Electronic, Vocal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057094.jpg" />
 </div>
 
 
@@ -326,7 +384,7 @@ Sardø - Favorites Collection Part 9 (2025) [MP3|320 Kbps] <Electronic, Vocal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057038.jpg" />
 </div>
 
 
@@ -355,7 +413,7 @@ VA - Contact 4: People & Machines (2026) [MP3|320 Kbps] <Minimal, Tech House, Ot
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056981.jpg" />
 </div>
 
 
@@ -384,7 +442,7 @@ VA - Мелодии и ритмы (Russian Edition) (mixed by Dj V) (2026) [MP3|
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056158.jpg" />
 </div>
 
 
@@ -413,7 +471,7 @@ VA - Chill House. Terrace Mix (2024) [MP3|320 Kbps] <Chill-House, Deep-House, El
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055854.jpg" />
 </div>
 
 
@@ -442,7 +500,7 @@ VA - Ibiza Megamix (2025) [MP3|320 Kbps] <House, Electronic, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055680.jpg" />
 </div>
 
 
@@ -471,7 +529,7 @@ VA - Spacesynth Forever 6 (2025) [MP3|320 Kbps] <Spacesynth, Synth-Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055341.jpg" />
 </div>
 
 
@@ -500,7 +558,7 @@ VA - Vocal Trance NNM 7 (2026) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055011.jpg" />
 </div>
 
 
@@ -529,7 +587,7 @@ VA - Record Super Chart 31.01.2026 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054955.jpg" />
 </div>
 
 
@@ -558,7 +616,7 @@ VA - Yello & Dieter Meier & Boris Blank best (1980-2024) [MP3|320 Kbps] <electro
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054622.jpg" />
 </div>
 
 
@@ -587,7 +645,7 @@ Jupiter Panic - Collection [MP3|320 Kbps] <New Age, Ambient>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054052.jpg" />
 </div>
 
 
@@ -616,7 +674,7 @@ CosmoDance - Collection (2026) [MP3|320 Kbps] <Spacesynth, Synthdance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053747.jpg" />
 </div>
 
 
@@ -645,7 +703,7 @@ VA - Лучшие песни Радио Рекорд за 2025 год (2026) [MP
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051073.jpg" />
 </div>
 
 
@@ -674,7 +732,7 @@ VA - Beat, Bass, Melody vol.4 (mixed by Dj V) (2025) [MP3|320 Kbps] <Euro Trance
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1050657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050657.jpg" />
 </div>
 
 
@@ -688,64 +746,6 @@ VA - Beat, Bass, Melody vol.4 (mixed by Dj V) (2025) [MP3|320 Kbps] <Euro Trance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6013BF96D0AC57F5EDFBD9C95A20AA5069E16998
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844843   (1050416) от 28.12.2025
-
-VA - Party Time 2.0 (mixed by Dj V) (2025) [MP3|320 Kbps] <Club House, Nu Disco, Disco House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Sophie Ellis Bextor - Murder On The Dancefloor (Zillionaire Mix)
-02-Dua Lipa - Dance The Night (De Soffer Mix)
-03-Beyonce X Purple Disco Machine - Hypnotized By Texas Hold Em (Bass Cowboy Bootleg)
-04-De Soffer - Cry For You(   Читать дальше...   )Жанр: Club House, Nu Disco, Disco House, DanceПродолжительность: 1:00:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C5E3BF20F8AC70BA0990675613EB0050D6AF642
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844932   (1050403) от 28.12.2025
-
-VA - Record Super Chart 27.12.2025 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AY YOLA - Homay (4:04)
-02. David Guetta & Sia - Beautiful People (3:07)
-03. Calvin Harris & Clementine Douglas - Blessings (3:39)
-04. Rudimental & Khalid - All I Know (2:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:40:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DC67879830CC08C4CD5AA23E44010669D9F183C
 ```
 
 https://mybot314.ru/tekegram_catalog/

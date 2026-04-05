@@ -1,3 +1,61 @@
+###  Публикация: 1009832   (805994) от 23.04.2016
+
+Timothy Wenzel - Distant Horseman (2016) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Bend in the River (feat- Josie Quick)    04:23
+02. Distant Horseman (feat- Josie Quick)    05:05
+03. Turn and Walk Away    04:00
+04. A Night so Cold (feat- Josie Quick)    05:04(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF20CA73360F5BEA378156984F1DAFEA5AFF8467
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119771   (805742) от 29.03.2017
+
+Rupert Gregson-Williams - Hacksaw Ridge / По соображениям совести (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Okinawa Battlefield (03:59)
+02. I could Have Killed Him (02:20)
+03. A Calling (02:42)
+04. Pretty Corny (01:44)(   Читать дальше...   )Жанр: Soundtrack, Score
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB674F0985B71B19B2F3A7027149CC0311D92274
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119754   (805741) от 29.03.2017
 
 Sasha Merkulov - Absolutely Free Album (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, New Age>
@@ -6,7 +64,7 @@ Sasha Merkulov - Absolutely Free Album (2017) [FLAC|Lossless|WEB-DL|tracks] <Amb
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805741.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Leo Rojas - Spirit Of The Hawk (2012) [FLAC|Lossless|tracks + .cue] <Panflute, N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805670.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Tim Wheater - Whalesong (1991) [FLAC|Lossless|tracks + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805616.jpg" />
 </div>
 
 
@@ -92,7 +150,7 @@ Benjamin Wallfisch - Bitter Harvest / Урожай дьявола (Original Moti
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805611.jpg" />
 </div>
 
 
@@ -121,7 +179,7 @@ Jon Ekstrand - Life / Живое (Original Motion Picture Soundtrack) (2017) [MP
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805602.jpg" />
 </div>
 
 
@@ -150,7 +208,7 @@ Brian Tyler - Power Rangers / Могучие ренджеры (Original Motion P
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805601.jpg" />
 </div>
 
 
@@ -179,7 +237,7 @@ Brian Tyler - Power Rangers / Могучие ренджеры (Original Motion P
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805494.jpg" />
 </div>
 
 
@@ -208,7 +266,7 @@ Jeff Russo - Legion / Легион (Original Television Series Soundtrack) (2017
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805489.jpg" />
 </div>
 
 
@@ -237,7 +295,7 @@ Jon Ekstrand - Life / Живое (Original Motion Picture Soundtrack) (2017) [FL
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805375.jpg" />
 </div>
 
 
@@ -266,7 +324,7 @@ Alain Johannes - Tom Clancy's Ghost Recon Wildlands (Original Game Soundtrack) (
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805370.jpg" />
 </div>
 
 
@@ -295,7 +353,7 @@ Lele Marchitelli, VA - The Young Pope / Молодой Папа (Original Soundt
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805364.jpg" />
 </div>
 
 
@@ -324,7 +382,7 @@ VA - Acoustic Covers The Album (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instr
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805362.jpg" />
 </div>
 
 
@@ -353,7 +411,7 @@ Jeff Russo - Legion / Легион (Original Television Series Soundtrack) (2017
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805255.jpg" />
 </div>
 
 
@@ -382,7 +440,7 @@ Hans Zimmer & Steve Mazzaro - The Boss Baby / Босс-молокосос (Music
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805242.jpg" />
 </div>
 
 
@@ -411,7 +469,7 @@ Clinton Shorter - The Expanse / Пространство - Season One (Original 
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805123.jpg" />
 </div>
 
 
@@ -440,7 +498,7 @@ Hans Zimmer & Steve Mazzaro - The Boss Baby / Босс-молокосос (Music
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805015.jpg" />
 </div>
 
 
@@ -469,7 +527,7 @@ VA - Kong: Skull Island / Конг: Остров черепа (Unofficial Soundt
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805013.jpg" />
 </div>
 
 
@@ -498,7 +556,7 @@ Alain Johannes - Tom Clancy's Ghost Recon Wildlands (Original Game Soundtrack) (
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805006.jpg" />
 </div>
 
 
@@ -527,7 +585,7 @@ Brad Fiedel - Terminator 2: Judgment Day / Терминатор 2 Судный �
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805005.jpg" />
 </div>
 
 
@@ -556,7 +614,7 @@ Brad Fiedel - Terminator 2: Judgment Day / Терминатор 2 Судный �
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804999.jpg" />
 </div>
 
 
@@ -585,7 +643,7 @@ Lele Marchitelli, VA - The Young Pope / Молодой Папа (Original Soundt
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804922.jpg" />
 </div>
 
 
@@ -614,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803351.jpg" />
 </div>
 
 
@@ -643,7 +701,7 @@ Benjamin Wallfisch - Bitter Harvest / Урожай дьявола (Original Moti
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803281.jpg" />
 </div>
 
 
@@ -672,7 +730,7 @@ Rupert Gregson-Williams - Hacksaw Ridge / По соображениям сове
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803268.jpg" />
 </div>
 
 
@@ -686,64 +744,6 @@ Rupert Gregson-Williams - Hacksaw Ridge / По соображениям сове
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:546D0AD7B232BF85D77BF682CA8F9DEC572F56EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199039   (802813) от 14.01.2018
-
-David Arkenstone - Deep Sleep (2017) [MP3|320 Kbps] <New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Breathe (10:50)
-02.  Lightdancer (10:12)
-03.  Deep Blue (9:53)
-04.  Floating (10:08)(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 02:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05A861CF123BBA58EE8B00ECC252D42EBFDE8DB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199178   (802713) от 14.01.2018
-
-Padma Previ - Divine Visions (2007) [FLAC|Lossless|image + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sa Nah Piteva (6:48)
-02. Gayatri Mantra (6:45)
-03. Om Namah Shivaya (8:48)
-04. Mandu Samanavarcasa (6:53)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB44DDE609B07F66D0B50079EB6BC44FD0C759F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

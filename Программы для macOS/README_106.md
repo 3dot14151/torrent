@@ -1,3 +1,58 @@
+###  Публикация: 953231   (350842) от 03.11.2015
+
+AppCleaner 3.1 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перенести программу в Корзину недостаточно для того, чтобы удалить ее с компьютера. Разбросанные по разным папкам служебные данные, которые были нужны удаленному приложению, все равно останутся на месте. Убрать этот «мусор» позволит утилита AppCleaner.
+
+Конечно, это не единственное средство так называемой чистой деинсталляции программ. Как и другие аналогичные утилиты, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 ноября 2015Разработчик: FreeMacSoftПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD4542DBA75202CD603CDEAC910E019C8912B835
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577982   (350292) от 21.09.2022
+
+DxO ViewPoint 3 v.3.4.0 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350292.jpg" />
+</div>
+
+
+###  Подробнее
+
+DxO ViewPoint — окончательная победа над геометрическими искажениями.
+DxO ViewPoint — программное решение, посвященное исправлению искаженных элементов на краях фотоснимка, а также устранения трапецеидальных искажений и других проблем с перспективой. На основе разработанной DxO Labs технологии геометрической коррекции, DxO ViewPoint позволяет легко и эффективно восстановить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.09.2022Разработчик: © 2022 DxO LabsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский , Французский, Немецкий и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8148196C7B09CB3D21B2A62970497263C3E6402
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329040   (350283) от 06.10.2019
 
 MacCleanse 8 v8.0.2 [En]
@@ -6,7 +61,7 @@ MacCleanse 8 v8.0.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350283.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ Papers 3 v3.4.21 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350276.jpg" />
 </div>
 
 
@@ -60,7 +115,7 @@ MarginNote 3 Pro v3.4.5 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350274.jpg" />
 </div>
 
 
@@ -88,7 +143,7 @@ Quiver 3.2.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350158.jpg" />
 </div>
 
 
@@ -117,7 +172,7 @@ Canary Mail - Encrypted Email 2.14 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350031.jpg" />
 </div>
 
 
@@ -143,7 +198,7 @@ VideoSolo Video Converter Ultimate 2.2.16 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350021.jpg" />
 </div>
 
 
@@ -170,7 +225,7 @@ Fluid 1.8.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349828.jpg" />
 </div>
 
 
@@ -197,7 +252,7 @@ Colibri 1.8.11 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349769.jpg" />
 </div>
 
 
@@ -226,7 +281,7 @@ Space Drop 1.8.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349416.jpg" />
 </div>
 
 
@@ -252,7 +307,7 @@ iRingtone Pro 3.3.6 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348988.jpg" />
 </div>
 
 
@@ -280,7 +335,7 @@ Ample Sound Ample Guitar Stratocaster v3.2.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348969.jpg" />
 </div>
 
 
@@ -306,7 +361,7 @@ Adobe Bridge CC 2018 v8 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348484.jpg" />
 </div>
 
 
@@ -335,7 +390,7 @@ Mirror for Samsung TV 3.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347619.jpg" />
 </div>
 
 
@@ -364,7 +419,7 @@ Movavi Video Editor Plus 15.0.1 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347202.jpg" />
 </div>
 
 
@@ -390,7 +445,7 @@ Wondershare PDFelement Pro 7.6.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346545.jpg" />
 </div>
 
 
@@ -416,7 +471,7 @@ Hot Door CADtools 11 for Adobe Illustrator 11.1.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346328.jpg" />
 </div>
 
 
@@ -442,7 +497,7 @@ Tenorshare iCareFone 7.1.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346136.jpg" />
 </div>
 
 
@@ -470,7 +525,7 @@ SkyLab Studio 2.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345658.jpg" />
 </div>
 
 
@@ -499,7 +554,7 @@ Mac VideoRipper Pro 1.0.8 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345652.jpg" />
 </div>
 
 
@@ -527,7 +582,7 @@ Direct Message for Instagram Pro 4.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345482.jpg" />
 </div>
 
 
@@ -553,7 +608,7 @@ Drama 2.1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344705.jpg" />
 </div>
 
 
@@ -579,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344595.jpg" />
 </div>
 
 
@@ -605,7 +660,7 @@ Commander One PRO Pack 2 v2.5.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344418.jpg" />
 </div>
 
 
@@ -634,7 +689,7 @@ Hider 2 v2.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344331.jpg" />
 </div>
 
 
@@ -647,58 +702,6 @@ Hider 2 для OS X: Старый знакомый в новом обличье
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89C1A5991DC631A7E37294BB0B56C96990B290AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419133   (343711) от 26.10.2020
-
-CorelDRAW Graphics Suite 2020 v22.1.0.517 [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343711.jpg" />
-</div>
-
-
-###  Подробнее
-
-CorelDRAW Graphics Suite 2020 — новейшее и самое передовое программное обеспечение для графического дизайна. В состав пакета входят все признанные в индустрии инструменты, представленные в CorelDRAW Graphics Suite, а также множество других функций. Забудьте о набросках на бумаге и сканировании рисунков! Замечательный новый инструмент LiveSketch™ позволяет мгновенно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: октябрь 2020Разработчик: Corel CorporationПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Русский, английский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E95749CAA8E9FABCDB11673506EC5A18EA018BD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330284   (343277) от 09.10.2019
-
-Motion 5.4.4 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Motion - это мощный графический инструмент, который позволяет легко создавать кинематографические 2D, 3D и 360 ° титры, плавные переходы и реалистичные эффекты в режиме реального времени. А благодаря новому движку Metal, Motion позволяет создавать и воспроизводить эффекты с невероятной скоростью.Тип издания: macOS SoftwareРелиз состоялся: 07.10.2019Разработчик: Apple IncПоддерживаемая ОС: 10.14.6 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79F13572BFD8863456122CC6DDB54E81350103D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

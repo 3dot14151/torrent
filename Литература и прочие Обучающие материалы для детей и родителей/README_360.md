@@ -1,3 +1,55 @@
+###  Публикация: 1268067   (227939) от 10.12.2018
+
+В.В. Куманин | Регулировка и запуск летающих моделей (1959) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Прочие материалы для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227939.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящей брошюре обобщается имеющийся опыт по регулированию моделей чемпионатных классов, рассматриваются вопросы, связанные с балансировкой и устойчивостью летающих моделей, и вопросы обеспечения стабильных полетных результатов в условиях соревнований.Жанр: Учебная, методическая литература, умелые рукиФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58917211E9013AF92DAD4A686F6F108F21E8031F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424615   (227866) от 17.11.2020
+
+Анне-Катрине Вестли | Щепкин [4 книги] (2015-2016) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227866.jpg" />
+</div>
+
+
+###  Подробнее
+
+Есть книги, которые каждому необходимо прочитать в детстве. Среди них – книги известной норвежской писательницы АННЕ-КАТРИНЕ ВЕСТЛИ (1920–2008). На родине её имя известно каждому, а её популярность в Европе можно сравнить только с популярностью Астрид Линдгрен. Более чем за полвека литературного творчества Вестли написала 56 книг и получила почётное звание Бабушки (   Читать дальше...   )Жанр: Детская литература/ПриключенияПеревод: Ольга ДроботФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F75E7DCA8EE9AEB6C00009D041D3B9FAE0D9E3D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 965043   (227793) от 13.12.2015
 
 Анна Котенёва, Евгений Кащенко | Как говорить с детьми о сексе (2015) [FB2]
@@ -6,7 +58,7 @@
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227793.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227766.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227676.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227621.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227608.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227568.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227560.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227552.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227545.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227515.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227482.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227480.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227465.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227438.jpg" />
 </div>
 
 
@@ -379,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227407.jpg" />
 </div>
 
 
@@ -405,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227390.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227379.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227360.jpg" />
 </div>
 
 
@@ -485,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_227356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_227356.jpg" />
 </div>
 
 
@@ -512,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227339.jpg" />
 </div>
 
 
@@ -538,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227330.jpg" />
 </div>
 
 
@@ -565,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227301.jpg" />
 </div>
 
 
@@ -591,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227297.jpg" />
 </div>
 
 
@@ -617,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227278.jpg" />
 </div>
 
 
@@ -628,58 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1B8272A61A455B98FED754755616E7FA11FF9E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342038   (227236) от 30.11.2019
-
-Шеннон Мессенджер | Цикл «Хранитель забытых городов» [6 книг] (2018-2019) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227236.jpg" />
-</div>
-
-
-###  Подробнее
-
-У двенадцатилетней Софи Фостер есть секрет. Она Телепат - тот, кто умеет читать мысли. Это талант, который она никогда не знает, как объяснить. Все меняется в тот день, когда она встречает Фитца, таинственного (и очаровательного) мальчика, который появляется из ниоткуда и который также может читать мысли, как она. Она обнаруживает, что где-то ей принадлежит, и что (   Читать дальше...   )Жанр: Фантастика для детей, ФэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B7E7A59B50939C18C10C27875CBDBD67953EF72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 736159   (227229) от 19.12.2013
-
-Люси Фич-Перкинс | Дети великого океана (1927) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для детей среднего возраста, 9-14 лет.  Перевод с английского Л. и Ж. КараваевыхЖанр: Детская литератураФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CFA29E32E0FA05B2864ED7971A476DFE7C66247
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,60 @@
+###  Публикация: 1150072   (556796) от 28.07.2017
+
+Fantastical 2 - Calendar and Reminders 2.4.1 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fantastical 2 — продвинутый календарь-органайзер для Mac OS X
+Fantastical - приложение представляет собой календарь, располагающийся в строке меню, с возможностью добавления событий сопровождаемых звуками и сообщениями, без непосредственного доступа к приложению iCal, что несомненно удобно в процессе ежедневной работы. 
+
+Основным отличием от аналогичных программ (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23 июля 2017Разработчик: Flexibits Inc.Поддерживаемая ОС: macOS 10.11.5 +Язык интерфейса: Английский, Испанский, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B31B1BF1DA9C7E846F7E5AA70CCDA140127E1FF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153799   (556790) от 28.07.2017
+
+LRTimelapse Pro 4.7.7 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556790.jpg" />
+</div>
+
+
+###  Подробнее
+
+LRTimelapse — программа предназначена исключительно для профессионалов и опытных фото-любителей. Ее функции заключаются в обработке интервальных съемок (timelapse, цейтраферная съемка). Основная фишка программы, это автоматическая установка параметров: экспозиция, контраст и т д., для каждого файла, фото-изображения, по нескольким ключевым кадрам.
+
+Интервальная съемка (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 26 июля 2017Разработчик: Gunther WegnerПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0DD698A8510661822CF63B787AE3142B7D7A71D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045980   (556779) от 25.08.2016
 
 CloudMagic Email 8.6.51 [Multi/Ru]
@@ -6,7 +63,7 @@ CloudMagic Email 8.6.51 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556779.jpg" />
 </div>
 
 
@@ -33,7 +90,7 @@ Wi-Fi SpeedTest 2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556776.jpg" />
 </div>
 
 
@@ -61,7 +118,7 @@ WindowMizer 5 v5.0.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552151.jpg" />
 </div>
 
 
@@ -90,7 +147,7 @@ SmartMemoryCleaner 2.3.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552144.jpg" />
 </div>
 
 
@@ -116,7 +173,7 @@ VideoScan 1.0.0 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552136.jpg" />
 </div>
 
 
@@ -142,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551896.jpg" />
 </div>
 
 
@@ -170,7 +227,7 @@ Comburet 3.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551022.jpg" />
 </div>
 
 
@@ -199,7 +256,7 @@ uTorrent 1.8.7 (42515) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550751.jpg" />
 </div>
 
 
@@ -225,7 +282,7 @@ BookReader 5.13 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550470.jpg" />
 </div>
 
 
@@ -254,7 +311,7 @@ Architect 3D Professional 2017 Mac 19.0.8 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550224.jpg" />
 </div>
 
 
@@ -282,7 +339,7 @@ Business Mix for Pages 2.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549249.jpg" />
 </div>
 
 
@@ -311,7 +368,7 @@ Flyers Templates for Pages 1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549245.jpg" />
 </div>
 
 
@@ -338,7 +395,7 @@ Set for iWork 2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549175.jpg" />
 </div>
 
 
@@ -364,7 +421,7 @@ Aiseesoft PDF Converter 3.2.55 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549163.jpg" />
 </div>
 
 
@@ -391,7 +448,7 @@ Movavi Mac Cleaner 2 v2.4.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548920.jpg" />
 </div>
 
 
@@ -418,7 +475,7 @@ Caramba Switcher 2019.06.18 (beta) [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548485.jpg" />
 </div>
 
 
@@ -444,7 +501,7 @@ Spillo 1.8.6 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548419.jpg" />
 </div>
 
 
@@ -473,7 +530,7 @@ Letterspace — Taking notes made easy 1.7.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548258.jpg" />
 </div>
 
 
@@ -502,7 +559,7 @@ Cleaner Pro 1.14.451 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546337.jpg" />
 </div>
 
 
@@ -529,7 +586,7 @@ TinkerTool System 4.81 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545676.jpg" />
 </div>
 
 
@@ -556,7 +613,7 @@ Together 3.5.16 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544793.jpg" />
 </div>
 
 
@@ -585,7 +642,7 @@ ArchiCAD 18 (3006) [Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543951.jpg" />
 </div>
 
 
@@ -613,7 +670,7 @@ Highland 1.9.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543853.jpg" />
 </div>
 
 
@@ -642,7 +699,7 @@ Elements for iWork 2.9.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543813.jpg" />
 </div>
 
 
@@ -653,64 +710,6 @@ Elements for iWork — это премиум набор изображений �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13B69C8E93118C493B2638990EEE7463B01CBFDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049613   (543761) от 05.09.2016
-
-Megapack for iWork 2015 v2.3 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Megapack for iWork: Шаблоны для Pages, Numbers и Keynote можно использовать для дома и офиса. Пакет, содержит творческие проекты, темы и шаблоны для последних редакции Pages, Numbers и Keynote.
-
-• Pages. От простых писем и приглашений до бюллетеней, брошюр, и отчетов. Megapack for iWork поможет вам создать документы в полном объеме в течение нескольких минут.
-Таблицы (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 15 июля 2016Разработчик: Nick MaskillПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F4DD458CABD7A34FB73B8C868ACACC500BD0AAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049588   (543663) от 05.09.2016
-
-PDF Expert 2.0.1 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543663.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDF Expert - многофункциональная утилита для работы с PDF
-PDF Expert - это один из лучших инструментов для работы с PDF на iPhone и iPad, который позволяет на ходу просматривать, редактировать и подписывать документы. Теперь популярное приложение доступно и на Mac.
-
-Разработчики учли все пожелания пользователей и сделали PDF Expert для Mac простым, как и его мобильная (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 05 сентября 2016Разработчик: Readdle Inc.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:582A2B08C00F8045C6C0320029A1A113EDF4C57F
 ```
 
 https://mybot314.ru/tekegram_catalog/

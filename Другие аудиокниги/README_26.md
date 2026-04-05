@@ -1,3 +1,55 @@
+###  Публикация: 559990   (407704) от 13.10.2012
+
+Анатолий Вассерман | Скелеты в шкафу истории [2012] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Говорят, фраза, начинающаяся "Анатолий Вассерман не знает..." по определению ложна. Самый экстравагантный интеллектуал России рассматривает историю, как набор загадок и задач, которые при правильном решении помогают понять наше время. Автор собрал все самое вкусное, таинственное и увлекательное из далекого и недалекого прошлого. Главы этой книги своеобразные шарады на абсолютно разные темы - знаменитые люди, архитектура, живопись, мировые войны и даже кулинария. Анатолий Вассерман пишет только о том, что его самого потрясло, удивило, позабавило или поставило в тупик при знакомстве с историей.Жанр: Современная Проза
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DEB823151817E62E3D206E6845A83F499E7EDC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 565465   (399828) от 26.10.2012
+
+Платон | Государство [2008] 2CD [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Госуда́рство — диалог Платона, посвящённый проблеме идеального государства. Написан в 360 г. до н. э. С точки зрения Платона, государство является выражением идеи справедливости. В диалоге впервые отчётливо определяются философы как люди, способные постичь то, что вечно тождественно самому себе (идея). Именно философы должны управлять идеальным государством. Вторым сословием должны быть бессемейные стражи. Ниже их — простой народ.Жанр: Философия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A2452F09E4553230498FB82473C008F45DA1A14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 566043   (398981) от 27.10.2012
 
 Генри Райдер Хаггард | Она (2011) [MP3, Юрий Рудник]
@@ -6,7 +58,7 @@
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398981.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396621.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393968.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393951.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387242.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381498.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381439.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380868.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380734.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380731.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380729.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380585.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379521.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378186.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378161.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377347.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374742.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373763.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372888.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372424.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371399.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370232.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370046.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369545.jpg" />
 </div>
 
 
@@ -624,60 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:779783E84E65EBF9800A2C62CC43B049AFD813B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328021   (368018) от 28.09.2019
-
-Светлана Фалий | Новогодние чудеса из пятого измерения (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый год – волшебное время, когда у людей исполняются заветные желания и сбываются мечты. Но верно говорится, что мечты сбываются лишь у тех, у кого они есть. А если случилось так, что эту мечту кто-то похитил, и спасти ситуацию может только чудо? Тогда без Деда Мороза не обойтись. Ну, и, разумеется, без верных друзей.
-
-Новогодняя аудиопостановка для детей и взрослых.Жанр: Семейный, СказкаПродолжительность: 01:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:639391D9AA2FE85CC9F077F3B8993D236E87A07D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070634   (364139) от 08.11.2016
-
-Георгий Сытин | Здоровье мужчины (2008) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Георгий Николаевич Сытин является родоначальником новой духовной (воспитывающей) медицины, возможности которой практически безграничны. Духовная медицина универсальна и общедоступна. В ее основу положен метод оздоровления-омоложения творящими мыслями (исцеляющими настроями), усваивая которые, каждый человек способен победить любые недуги, противостоять возрастным (   Читать дальше...   )Жанр: ЭзотерикаПродолжительность: 00:45:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43090A4DA65406D990BBE54D0093079BDE76F06F
 ```
 
 https://mybot314.ru/tekegram_catalog/

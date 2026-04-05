@@ -1,3 +1,55 @@
+###  Публикация: 487957   (90655) от 25.04.2012
+
+Пол Элсам | Мастер-класс для начинающего актера [2008] [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90655.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга представляет собой вводный курс актерского мастерства для студентов и людей, мечтающих стать актерами. Книга помогает «совлечь покров тайны» с исполнительского процесса. Автор избрал приближенный к жизни подход, основанный на многолетнем личном опыте преподавания актерского мастерства на различных уровнях. Актерская профессия очень многого требует от работающего в ней человека, и если вы по какой-то причине ощущаете отсутствие вдохновения, нехватку энергии или времени для репетиций, предлагаемые Полом Элсамом 20 простых средств помогут вам обрести уверенность при создании нового образа.2008Формат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487288   (90487) от 24.04.2012
+
+Т. В. Анисимова, Е. Г. Гимпельсон | Современная деловая риторика [2002] [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Свобода общественной жизни требует от каждого члена общества активных речевых действий и умения говорить убедительно. Ведь речь — это основной инструмент деятельности не только преподавателя, политика, юриста, но и любого другого работника гуманитарной сферы, каждого активного гражданина страны...2002Формат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 486369   (90434) от 24.04.2012
 
 Сборник | Все ответы к Государственной Заключительной Аттестации (ДПА) 2012 г. 9 класс [UKR] [2012] [PDF]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90434.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90353.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89628.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88055.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87822.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87807.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87740.jpg" />
 </div>
 
 
@@ -197,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87710.jpg" />
 </div>
 
 
@@ -229,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87223.jpg" />
 </div>
 
 
@@ -255,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87208.jpg" />
 </div>
 
 
@@ -281,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87185.jpg" />
 </div>
 
 
@@ -311,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86965.jpg" />
 </div>
 
 
@@ -339,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86922.jpg" />
 </div>
 
 
@@ -369,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86641.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86623.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86587.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85496.jpg" />
 </div>
 
 
@@ -488,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84998.jpg" />
 </div>
 
 
@@ -514,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84962.jpg" />
 </div>
 
 
@@ -540,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83106.jpg" />
 </div>
 
 
@@ -568,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80052.jpg" />
 </div>
 
 
@@ -595,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80050.jpg" />
 </div>
 
 
@@ -621,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80048.jpg" />
 </div>
 
 
@@ -647,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80032.jpg" />
 </div>
 
 
@@ -658,58 +710,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65CD5D6041F7538DC36B571CC5A75AD6F3556B9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 460098   (80016) от 04.03.2012
-
-Подборка книг | Рынок ценных бумаг [1998-2010] [PDF, DjVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка изданий по теории и практике рынка ценных бумаг и биржевого дела2001-2011Жанр: Учебная литератураФормат: PDF, DjVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE8E34BD01E971B6EC4B401931F9ABD4BC6B6A88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 460144   (79980) от 04.03.2012
-
-Подборка книг | Налогообложение [2003-2010] [PDF, DjVU, Doc]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Литература по теоретическим,  правовым и практическим вопросам налогообложения в Российской Федерации.2002-2010Жанр: Учебная литератураФормат: PDF, DjVU, Doc
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94EC58C658928C5A1E0B22097E2E7470EF0EE896
 ```
 
 https://mybot314.ru/tekegram_catalog/

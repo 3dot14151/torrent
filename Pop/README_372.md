@@ -1,177 +1,3 @@
-###  Публикация: 1808131   (10575) от 23.07.2025
-
-Satin Jackets - Cruise Control (2025) [FLAC|Lossless|WEB-DL|tracks] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somewhere In Paradise [00:03:44]
-02. On My Own [00:04:30]
-03. Avalanche [00:03:50]
-04. Bring On Up Our Love [00:03:49](   Читать дальше...   )Жанр: DiscoПродолжительность: 00:56:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED743CC1E36ED939A3DB1262589CC3EB9C5B327B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808456   (10395) от 25.07.2025
-
-Sandra - Paintings In Yellow (1990) 1st German Press [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hiroshima (6:52)
-02. (Life may be) A Big Insanity (4:30)
-03. Johnny Wanna Live (4:29)
-04. Lovelight In Your Eyes (5:29)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:252FCCCD11799F220B45609DBC8D1C95DD9A991A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808454   (10364) от 25.07.2025
-
-Sade - Love Deluxe (1992) 1st Austrian Press [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Ordinary Love (07:21)
-02. Feel No Pain (05:09)
-03. I Couldn’t Love You More (03:50)
-04. Like a Tattoo (03:39)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E0FF61244B539F5DE91C5618F6753577604C7EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808451   (10362) от 25.07.2025
-
-Roxette - Joyride (1991) 1st UK Press [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joyride (4:24)
-02. Hotblooded (3:18)
-03. Fading Like a Flower (Every Time You Leave) (3:53)
-04. Knockin' On Every Door (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:215F28F22AF3FCB58E0BA0AC681B9B18D19542A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808455   (10357) от 25.07.2025
-
-Sandra - Into A Secret Land (1988) 1st German Press [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secret Land (04:46)
-02. We'll Be Together (04:11)
-03. Heaven Can Wait (04:04)
-04. Just Like Diamonds (05:41)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D2DA901E92908F87E5CF366D93AC974F604CFFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808818   (10284) от 26.07.2025
-
-C.C. Catch - Classics (1989) 1st German Press [APE|Lossless|image + .cue] <EuroDisco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back Seat Of You Cadillac (5:22)
-02. Are You Man Enougth (6:07)
-03. Good Guys Only Win In Movies (5:45)
-04. MidNight Gambler (3:34)(   Читать дальше...   )Жанр: EuroDiscoПродолжительность: 01:06:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD4F77E52713B6695D7EB6F1A02873F70BDF5F7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808797   (10186) от 27.07.2025
 
 Blue System - Album Collection 13CDs (1987-1997) 1st German Press [APE|Lossless|image + .cue] <EuroDisco>
@@ -180,7 +6,7 @@ Blue System - Album Collection 13CDs (1987-1997) 1st German Press [APE|Lossless|
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10186.jpg" />
 </div>
 
 
@@ -209,7 +35,7 @@ VA - Let's Talk About Sex (1992) [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10079.jpg" />
 </div>
 
 
@@ -238,7 +64,7 @@ A-HA - Album Collection 5CDs (1985-1993) 1st German Press [APE|Lossless|image + 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10073.jpg" />
 </div>
 
 
@@ -267,7 +93,7 @@ VA - Global Pop Fusion (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10060.jpg" />
 </div>
 
 
@@ -296,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9952.jpg" />
 </div>
 
 
@@ -325,7 +151,7 @@ VA - Песни на музыку Алексея Рыбникова 1-2 (2014,20
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9853.jpg" />
 </div>
 
 
@@ -354,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9838.jpg" />
 </div>
 
 
@@ -383,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9750.jpg" />
 </div>
 
 
@@ -412,7 +238,7 @@ Rick Astley - Whenever You Need Somebody (1987) 1st German Press [APE|Lossless|i
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9746.jpg" />
 </div>
 
 
@@ -441,7 +267,7 @@ Rick Astley - Hold Me In Your Arms (1988) 1st German Press [APE|Lossless|image +
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9739.jpg" />
 </div>
 
 
@@ -470,7 +296,7 @@ VA - Dirty Dancing (1987) 1st German Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9735.jpg" />
 </div>
 
 
@@ -499,7 +325,7 @@ VA - Eurobeat Stars Vol. 1-2 (2009) [FLAC|Lossless|WEB-DL|tracks] <Euro Dance/Po
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9221.jpg" />
 </div>
 
 
@@ -528,7 +354,7 @@ Thomas Anders - …Sings Modern Talking In the Middle of Nowhere (2025) [FLAC|Lo
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8936.jpg" />
 </div>
 
 
@@ -557,7 +383,7 @@ VA - wake me up to 80s music (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8680.jpg" />
 </div>
 
 
@@ -586,7 +412,7 @@ Mylene Farmer - 86/97 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7769.jpg" />
 </div>
 
 
@@ -615,7 +441,7 @@ Saragossa Band - Original Hits & Remixes (2025) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7715.jpg" />
 </div>
 
 
@@ -644,7 +470,7 @@ VA - LOVE - Love Songs - Classics (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6918.jpg" />
 </div>
 
 
@@ -673,7 +499,7 @@ VA - The Best of Ballads (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6012.jpg" />
 </div>
 
 
@@ -702,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5184.jpg" />
 </div>
 
 
@@ -731,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5145.jpg" />
 </div>
 
 
@@ -745,6 +571,178 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75AD9A2718469FEDD9BD3FD23CAC958A4769BC12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815536   (5142) от 30.08.2025
+
+ФРЕНДЗОНА - Флирт На Вписке (2018) [MP3|320 Kbps] <Pop-punk>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5142.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Новенькая
+2. Бойчик
+3. Девственница
+4. Молочные зубы(   Читать дальше...   )Жанр: Pop-punkПродолжительность: 00:28:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5952DA98F72D76F493F307C62811ED62E37A5FCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815685   (4969) от 31.08.2025
+
+V.A. - The Best Female Vocalists (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dasha – Austin
+02. Ella Henderson – Me & You
+03. Marshmello & Anne-Marie – FRIENDS
+04. Cher – Believe(   Читать дальше...   )Жанр: PopПродолжительность: 02:32:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CD226A6B1796186995F445C6B3F5659430D0E45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815662   (4966) от 31.08.2025
+
+МЭЙБИ БЭЙБИ - SO HOT, ON TOP (2024) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4966.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. SO HOT
+2. ON TOPЖанр: PopПродолжительность: 00:05:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98F0D5E486B609F1BB38F76D0AAA008BDE842FC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815940   (4824) от 01.09.2025
+
+Гелена Великанова - Золотая коллекция (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ландыши [00:03:14]
+02 - Эй, рулатэ [00:02:24]
+03 - До завтра [00:03:26]
+04 - Песенка молодых соседей [00:02:07](   Читать дальше...   )Жанр: PopПродолжительность: 01:08:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12C26B2D0A4907F233C3AA675A54A6ECEA20C277
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815997   (4697) от 02.09.2025
+
+VA - 80s Music - 150 Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4697.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fleetwood Mac - Little Lies (2018 Remaster) (3:39)
+002. Tina Turner - What's Love Got to Do with It (3:50)
+003. Roxette - The Look (3:57)
+004. Pet Shop Boys - West End Girls (4:45)(   Читать дальше...   )Жанр: PopПродолжительность: 10:11:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:334594C3C694708939AB8D62B79CA27110E473EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816022   (4681) от 02.09.2025
+
+V.A. - ZYX Italo Disco History 1983 Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. P. Lion - Happy Children (Vocal Version)
+02. Duke Lake - Do You (Vocal)
+03. Mike Cannon - Voices In The Dark (12" Version)
+04. Mauro Micheloni & F.M. Band - Looking For Love (Vocal)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 02:29:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A5F65D6D6EEDF0F093079863C1E0040E4EB26B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

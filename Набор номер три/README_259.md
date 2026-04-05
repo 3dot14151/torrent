@@ -1,3 +1,166 @@
+###  Публикация: 1220664   (700303) от 21.04.2018
+
+Команда МГУ впервые победила на студенческом чемпионате мира по программированию
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_700303.jpg" />
+</div>
+
+
+###  Подробнее
+
+В международном соревновании по программированию победила российская команда из МГУ.
+Призовые места также заняли еще три команды из России: МФТИ, Университет ИТМО и УрФУ
+Команда Московского государственного университета (МГУ) заняла первое место на чемпионате мира по спортивному программированию ACM ICPC (International Collegiate Programming Contest) в Пекине. Команде (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132610   (700232) от 09.05.2017
+
+BELite (x86/x64) v.08.05.17 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для работы с Windows 10 Version 1703 (x86/x64) в Offline-Режиме.
+Вашему вниманию представлена версия программы BELite v.08.05.17.
+Программа предназначена для обработки файла install.wim. Вам нужен оригинальный образ операционной системы Microsoft Windows 10 Version 1703 (x86/x64), из образа нужно скопировать файл install.wim в папку с установленной программой (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DFADAE7AF6D6CF917C5E054151A11CFC82711E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132429   (700212) от 09.05.2017
+
+CorelDRAW Graphics Suite 2017 19.0.0.328 HF1 Special Edition RePack by -{A.L.E.X.}- [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Непревзойденные возможности CorelDRAW Graphics Suite 2017 в сочетании с вашими творческими способностями — прекрасная основа для проектов по созданию макетов, разработке веб-сайтов и редактированию фотографий. Пакет оснащен расширенной поддержкой Windows 10, мультидисплейным режимом просмотра и поддержкой мониторов 4K. Продукт позволяет дизайнерам самых разных уровней (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1637DFC64A516A1F811EFC674BB94A149F84C93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132153   (700200) от 09.05.2017
+
+Семейное ограбление / Mes tresors (2017) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анжела и Анжелика — две абсолютно разные девушки, которые не имеют ничего общего. Кроме, разве что, отца, которого они никогда не видели. И вот однажды он появился в их жизни. Вор международного масштаба решил наверстать упущенное, создав с дочерьми безумную команду, чтобы совершить ограбление века. И все бы ничего, только гениальный план Патрика дает сбой, и все (   Читать дальше...   )Производство: Франция, Canal+, Forecast Pictures, Orange Cinema SeriesЖанр: КомедияРежиссер: Паскаль БурдьоАктеры: Жан Рено, Рем Кериси, Камиль Шаму, Бруно Санчес, Паскаль Демолон, Жан Ренес, Марион Брие, Юже Тьерри, Зина ЕсепчукПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:27:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9D174A6C1A6C3B4861EB2B53C31EB38716C4C83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220515   (700177) от 21.04.2018
+
+РАДИВА 2018.04.20 S18.8 Portable [Ru] (Авторская обновляемая раздача)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интернет радиоприёмник с аскетичным дизайном.
+Поддержка персональных станций 101.ru.
+Удобное редактирование списка. Поддержка до 7 адресов на одну радиостанцию.
+Три звуковых движка Bass, Winamp, Flash. DSP эффекты Winamp (Поддержка в Bass движке)Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:046F0F1089C622765E12A5F1BAF9638BA888B2ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220652   (700044) от 21.04.2018
+
+Утверждён объём хранения трафика по закону Яровой
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_700044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Правительство РФ приняло постановление № 445 «Об утверждении Правил хранения операторами связи текстовых сообщений пользователей услугами связи, голосовой информации, изображений, звуков, видео- и иных сообщений пользователей услугами связи», в котором наконец-то разъяснило технические детали, как именно операторы связаны выполнять пресловутый пакет законов Яровой-Озерова, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1168787   (700031) от 21.04.2018
 
 Бесстыдники (2017) SATRip [H.264] (серии 1-24 из 24)
@@ -6,7 +169,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700031.jpg" />
 </div>
 
 
@@ -32,7 +195,7 @@ Autodesk AutoCAD 2019.0.1 (P.61.0.0) [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700027.jpg" />
 </div>
 
 
@@ -58,7 +221,7 @@ Far Cry 5 (2018) [Ru/Multi] (1.4.0.0/dlc) Repack =nemos= [Gold Edition]
 >>34
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700026.jpg" />
 </div>
 
 
@@ -84,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_699951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_699951.jpg" />
 </div>
 
 
@@ -110,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_699668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_699668.jpg" />
 </div>
 
 
@@ -139,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_699593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_699593.jpg" />
 </div>
 
 
@@ -166,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_699590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_699590.jpg" />
 </div>
 
 
@@ -192,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699478.jpg" />
 </div>
 
 
@@ -218,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699477.jpg" />
 </div>
 
 
@@ -244,7 +407,7 @@ The Witcher 3: Wild Hunt (2016) [Ru/Multi] (1.22) Official GOG [patch]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699459.jpg" />
 </div>
 
 
@@ -270,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699454.jpg" />
 </div>
 
 
@@ -297,7 +460,7 @@ Total War: Attila (2015) [Ru] (1.6.0/dlc) Repack =nemos=
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699453.jpg" />
 </div>
 
 
@@ -323,7 +486,7 @@ Windows 10 Enterprise LTSB (x86/x64) +/- Office 2016 by SmokieBlahBlah 16.06.16 
 >>13
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699452.jpg" />
 </div>
 
 
@@ -352,7 +515,7 @@ Windows 7 SP1 (x86/x64) +/- Office 2016 26in1 by SmokieBlahBlah 16.06.16 [Ru]
 >>16
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699451.jpg" />
 </div>
 
 
@@ -381,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699119.jpg" />
 </div>
 
 
@@ -407,7 +570,7 @@ The Light Remake (2020) [Ru/En] (1.05) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699112.jpg" />
 </div>
 
 
@@ -433,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699110.jpg" />
 </div>
 
 
@@ -459,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>11
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699108.jpg" />
 </div>
 
 
@@ -485,7 +648,7 @@ Autodesk AutoCAD 2021 (+ offline help, SPDS) [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699107.jpg" />
 </div>
 
 
@@ -511,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699106.jpg" />
 </div>
 
 
@@ -522,164 +685,6 @@ Factorio это игра про добычу ресурсов, постройк�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AF9483ED7B13E25D2791705480274EF93FAECBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268154   (699105) от 15.08.2020
-
-Wink v1.23.2 / Wink TV v1.21.1  [Ru] (обновляемая)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699105.jpg" />
-</div>
-
-
-###  Подробнее
-
-WINK – это фильмы, сериалы, мультфильмы, телеканалы в приложении для смартфона, планшета и Smart TV. Установите Wink и смотрите кино и телепередачи онлайн или загружайте их и смотрите оффлайн, без интернета.Тип издания: Пиратка (Mod: открыты только ТВ каналы)Релиз состоялся: 13.08.2020Разработчик: PJSC "Rostelecom"Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEB45A145056814FA04805DC97EAFD44C4899C87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533758   (699033) от 27.02.2022
-
-Китайский луноход Юйту-2 обнаружил на темной стороне Луны прозрачные сферы
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_699033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Китайская миссия "Юйту-2" сделала еще одно интересное открытие на дальней стороне Луны. Среди сухой серой космической пыли панорамная камера ровера обнаружила две небольшие неповрежденные сферы из полупрозрачного вещества.Китайский луноход "Юйту-2", выполняющий миссию по изучению дальней стороны Луны, сделал новое удивительное открытие. Он обнаружил (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534014   (699026) от 27.02.2022
-
-Tom Clancy's Ghost Recon: Wildlands (2017) [Ru/Multi] (4792145/dlc) Repack Decepticon [Ultimate Edition]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699026.jpg" />
-</div>
-
-
-###  Подробнее
-
-В недалеком будущем живописный уголок Южной Америки, прекрасная Боливия, становится крупнейшим в мире производителем кокаина. Наркокартель Санта-Бланка подчинил себе правительство страны, в которой отныне процветает беззаконие, а жителей преследует постоянный страх. Влияние картеля в преступном сообществе огромно, и, возможно, очень скоро Санта-Бланка станет угрозой (   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft Paris, Ubisoft Annecy, Ubisoft Bucharest, Ubisoft Montpellier, Ubisoft Milan, Reflections, Ubisoft BelgradeЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0E09F89884BC2A9CF96086A8FBC9B9BB1470A99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288061   (698914) от 09.03.2019
-
-COMSS Boot USB 2019-03 Full [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузочная флэшка COMSS Boot USB содержит 11 антивирусных сканеров для проверки и лечения компьютеров и ноутбуков, а также утилиты для проверки оперативной памяти и для работы с HDD и SSD накопителями.
-
-Диск содержит только свободно распространяемое программное обеспечение.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21D8B315EF8B7F9591C3E66BD927B6B2C1DEA9D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287343   (698906) от 09.03.2019
-
-Почему HDD стали реже выходить из строя
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_698906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поломки жёстких дисков — одна из главных причин простоя серверов в дата-центрах. Но в последнее время число отказов HDD сокращается. Расскажем, почему так происходит.Немного ретроспективыДвадцать лет назад жесткий диск был одним из «слабых мест» компьютера или сервера. Известна история с накопителями IBM Deskstar, которые выходили из строя даже после непродолжительного (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287047   (698900) от 09.03.2019
-
-Мылодрама (2019) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-9 из 9) [Без цензуры]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы обрушить акции телеканала, совет директоров принимает решение посадить в кресло генерального директора автозаправщика-недотепу и доверить ему съемки сериала. В короткие сроки горе-начальнику удается создать хаос в эфире и установить свои порядки в медиабизнесе. Но неожиданно сериал, который по плану должен был стать величайшим провалом, начинает иметь грандиозный (   Читать дальше...   )Производство: РоссияЖанр: комедияРежиссер: Илья КуликовАктеры: Сергей Бурунов, Ростислав Бершауэр, Григорий Калинин, Юрий Грубник, Маруся Климова, Анна Котова-Дерябина, Кирилл Мелехов, Ольга Дибцева, Сергей Штатнов, Евгений Сармонт и др.Продолжительность: ~00:27:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ABA33C6B6F85ACAA66BCBD5F7900427CB7925F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

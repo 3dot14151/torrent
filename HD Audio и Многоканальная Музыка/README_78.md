@@ -1,32 +1,3 @@
-###  Публикация: 1679553   (137695) от 25.11.2023
-
-Rockets - Time Machine (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Space Rock, Synth-pop, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jammin' (Bob Marley) (3:18)
-02. Walk On The Wild Side (Lou Reed) (6:20)
-03. On The Road Again (Floyd Jones - Alan Wilson) (5:06)
-04. Piccola Katy (Roby Facchinetti - Valerio Negrini) (3:29)(   Читать дальше...   )Жанр: Space Rock, Synth-pop, Pop RockПродолжительность: 00:56:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE35F6F5CCB4DFC90BB0B4C2773A9886A2CCF7E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195922   (137613) от 31.12.2017
 
 Queen - The Miracle (1989) Remastered,  Reissue, 2015, Virgin [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
@@ -35,7 +6,7 @@ Queen - The Miracle (1989) Remastered,  Reissue, 2015, Virgin [FLAC 2.0|192/24|i
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137613.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Eagles - Eagles (1972) remastered 2021, Mobile Fidelity  [DSD64 2.0|1bit/2822,4k
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137592.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Imagination - Imagination (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Synth-Po
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137173.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Alien Weaponry - Studio Albums (3 releases) (2018-2025) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136850.jpg" />
 </div>
 
 
@@ -150,7 +121,7 @@ Arcturus - Studio Albums (6 releases) (1996-2015) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136750.jpg" />
 </div>
 
 
@@ -179,7 +150,7 @@ Opeth - Heritage (2011) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135329.jpg" />
 </div>
 
 
@@ -208,7 +179,7 @@ Myriad Lights - Lambda (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy, Powe
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135309.jpg" />
 </div>
 
 
@@ -237,7 +208,7 @@ Opeth - Ghost Reveries (2005) Reissue, 2013, 	Roadrunner Records, Cargo Records 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135301.jpg" />
 </div>
 
 
@@ -266,7 +237,7 @@ Blinker The Star - Animal Math (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Shoeg
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135271.jpg" />
 </div>
 
 
@@ -295,7 +266,7 @@ Chris Maragoth - Gatherer of Souls (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <G
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134999.jpg" />
 </div>
 
 
@@ -324,7 +295,7 @@ Don Broco - Live at The Royal Albert Hall (2023) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134987.jpg" />
 </div>
 
 
@@ -353,7 +324,7 @@ King Buffalo - Live At Burning Man (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134970.jpg" />
 </div>
 
 
@@ -382,7 +353,7 @@ Block of Flats - No Hope For The Hopeless (2023) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134965.jpg" />
 </div>
 
 
@@ -411,7 +382,7 @@ Michal David + The Paces - I'd Love To Live (1983) [FLAC 2.0|24/192|image + .cue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134951.jpg" />
 </div>
 
 
@@ -440,7 +411,7 @@ Fuel - Studio Albums (6 releases) (1998-2021) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134943.jpg" />
 </div>
 
 
@@ -469,7 +440,7 @@ Trapeze - Lost Tapes, Vol. 1 (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Classic
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134925.jpg" />
 </div>
 
 
@@ -498,7 +469,7 @@ Ghost Train Orchestra & Kronos Quartet - Songs & Symphoniques: The Music of Moon
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134912.jpg" />
 </div>
 
 
@@ -527,7 +498,7 @@ Chicago - Chicago at Carnegie Hall - Complete (2021) Live [FLAC 24/192|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134881.jpg" />
 </div>
 
 
@@ -556,7 +527,7 @@ Opeth - Pale Communion (2014) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134644.jpg" />
 </div>
 
 
@@ -585,7 +556,7 @@ White Heat UK - White Heat Perfect Storm (2023) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134642.jpg" />
 </div>
 
 
@@ -614,7 +585,7 @@ The Hedrons - Tired of Taking (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134611.jpg" />
 </div>
 
 
@@ -643,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134299.jpg" />
 </div>
 
 
@@ -672,7 +643,7 @@ Sorcerer - Studio Albums (5 releases) (1995-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134295.jpg" />
 </div>
 
 
@@ -701,7 +672,7 @@ Poison Dollys - Invasion (1985) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134207.jpg" />
 </div>
 
 
@@ -730,7 +701,7 @@ Opeth - Sorceress (2016) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133972.jpg" />
 </div>
 
 
@@ -744,6 +715,35 @@ A4. Will o the Wisp (05:05)(   Читать дальше...   )Жанр: Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38B5560B127628C874758422F72FA1DBD78DD10A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680841   (133965) от 30.11.2023
+
+Axenstar - Chapter VIII (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heavenly Symphony (4:35)
+02. Through the Fire and Brimstone (5:01)
+03. The Great Deceiver (4:23)
+04. Enchanted Lands (2:36)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:43:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00DA99D65701F722EAF90465C2C610CB89ED6E36
 ```
 
 https://mybot314.ru/tekegram_catalog/

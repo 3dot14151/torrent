@@ -1,3 +1,32 @@
+###  Публикация: 1561854   (512587) от 07.07.2022
+
+Zeremony - Survivin' Rock'n'Roll (2022) [MP3|320 Kbps] <Hard Rock Tradition>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 All Hell Breaks Loose [00:07:43]
+02 I Want You Tonight [00:03:56]
+03 Yeah [00:05:06]
+04 Vintage Boogie [00:04:09](   Читать дальше...   )Жанр: Hard Rock TraditionПродолжительность: 00:51:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11430BF00D833F57BB83199A542470AA99B71745
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1315737   (511792) от 21.07.2019
 
 Stranded - New Dawn (2019) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
@@ -6,7 +35,7 @@ Stranded - New Dawn (2019) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511792.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Backyard Babies - Four By Four (2015) [MP3|320 кб/с]<Hard Rock, Glam Punk>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510192.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Slik Toxik - Doin' The Nasty (1992) [MP3|320 кб/с]<Hard Rock, Glam>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509467.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Dreamtide - Drama Dust Dream (2022) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508952.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Rainbow - Heavy Portrait (2CD) (2012) [MP3|320 кб/с]<Classic Rock ,Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507454.jpg" />
 </div>
 
 
@@ -157,7 +186,7 @@ Warhorse - 2 albums (1970-1972) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506693.jpg" />
 </div>
 
 
@@ -192,7 +221,7 @@ Carousel - 2113 (2015) [OGG| 438-478 кб/с]<70's Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506259.jpg" />
 </div>
 
 
@@ -221,7 +250,7 @@ Full Scale Overload - Situation Sickness (2022) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502699.jpg" />
 </div>
 
 
@@ -250,7 +279,7 @@ Midnight Road - Ready For The Fight (2022) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501666.jpg" />
 </div>
 
 
@@ -279,7 +308,7 @@ Try-X - Rivers Turned Red (2022) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500585.jpg" />
 </div>
 
 
@@ -308,7 +337,7 @@ Slade - Get Yer Boots On (The Best Of Slade) (2004) [MP3|320 кб/с]<Hard Rock,
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498995.jpg" />
 </div>
 
 
@@ -343,7 +372,7 @@ Highway Sentinels - The Waiting Fire (2022) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497724.jpg" />
 </div>
 
 
@@ -372,7 +401,7 @@ Miss Crazy - Clones (2022) [MP3|320 Kbps] <Hard Glam Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497719.jpg" />
 </div>
 
 
@@ -401,7 +430,7 @@ The New Roses - Nothing But Wild (2019) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497679.jpg" />
 </div>
 
 
@@ -430,7 +459,7 @@ Lessmann/Voss - Rock Is Our Religion (2022) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497652.jpg" />
 </div>
 
 
@@ -459,7 +488,7 @@ Krokus - Favorites(2CD)(сборник) (2012) [MP3|320 кб/с]<Hard Rock, Heav
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497138.jpg" />
 </div>
 
 
@@ -494,7 +523,7 @@ Hollywood Vampires - Hollywood Vampires (2015) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496155.jpg" />
 </div>
 
 
@@ -523,7 +552,7 @@ ZZ Top - Rocking The Castle (1985) 2CD Live [MP3|320 Kbps] <Blues Rock, Hard Roc
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495580.jpg" />
 </div>
 
 
@@ -552,7 +581,7 @@ Hinder - The Reign (2017) [MP3|320 Kbps] <Hard Rock, Alternative Rock, Post-Grun
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495418.jpg" />
 </div>
 
 
@@ -581,7 +610,7 @@ Harlequin's Kiss - We've Been Expecting You (2022) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494908.jpg" />
 </div>
 
 
@@ -610,7 +639,7 @@ Balls Gone Wild - Stay Wild (2022) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494903.jpg" />
 </div>
 
 
@@ -639,7 +668,7 @@ The Bateleurs - The Sun in the Tenth House (2022) [MP3|320 Kbps] <Hard Blues Roc
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494897.jpg" />
 </div>
 
 
@@ -668,7 +697,7 @@ Great White - 41 Albums (1982-2012) Дискография [MP3|192 - 320 кб/�
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492989.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ Mad Max - Stormchild Rising (2020) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489399.jpg" />
 </div>
 
 
@@ -732,7 +761,7 @@ Niva - Magnitude (2013) [MP3|320 кб/с]<Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487825.jpg" />
 </div>
 
 
@@ -746,38 +775,6 @@ Niva - Magnitude (2013) [MP3|320 кб/с]<Melodic Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA39B14A587BC95C1AE3A697EC5DD1CC40C50DDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545399   (487553) от 09.09.2012
-
-Ian Gillan - Chercazoo & Other Stories (1972) [MP3|192 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Intro (1:15)
-02.  Cherkazoo (2:10)
-03.  Monster in Paradise (2:34)
-04.  The Bull of Birantis (4:08)
-05.  Intro (2:15)
-06.  Hogwash (2:43)
-07.  Driving Me WildЖанр: RockПродолжительность: 01:04:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:383A30560EE6D97E3EA4B1E766EED0BB14284FC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,83 +1,3 @@
-###  Публикация: 1684817   (127457) от 17.12.2023
-
-Colleen M. Farrelly, Yae Ulrich Gaba | The Shape of Data (2023) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга о машинном обучении освещает многие алгоритмы с геометрической точки зрения и знакомит с инструментами сетевой науки, метрической геометрии и топологического анализа данных на основе их практического применения.
-
-Обширная подборка примеров из разных сфер, а также мягкое объяснение математических основ десятков алгоритмов позволяют всесторонне и в то же (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: No Starch PressФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65DE10B342BDB7FE12A69865E433295B5C48425B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684940   (127449) от 17.12.2023
-
-Elizabeth Noble | Pro T-SQL 2022, 2nd Edition (2023) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это практическая книга, которая на примерах и с помощью понятных объяснений научит вас писать лучший T-SQL. Новым в этом издании является освещение оптимизации Parameter Sensitive Plan (PSP), Azure Synapse Link для аналитики в реальном времени, интеграции с S3-совместимым объектным хранилищем и таблиц SQL Ledger на основе блокчейна. Вы научитесь улучшать дизайн T-SQL, (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Apress BerkeleyФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E70C177BE6BC94D9CF5DBF9B181B49E266C3ED79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685601   (127135) от 19.12.2023
-
-Дэвид Хьеррумгор | Apache Pulsar в действии (2023) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127135.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга научит вас создавать масштабируемые системы потокового обмена сообщениями с использованием Pulsar. Вы начнете с быстрого ознакомления с корпоративными системами обмена сообщениями и откроете для себя уникальные преимущества Pulsar. Следуя четким описаниям и выполняя практические примеры, вы будете использовать фреймворк Pulsar Functions для разработки приложения (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: А.В. СнастинаИздательство: ДМК-ПрессФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F25390DEA1E02D3B431441F9266634E7BA045DBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686756   (126326) от 24.12.2023
 
 С.В. Глушаков, Т.В. Дуравкина | Программирование на C++ 2-е изд. (2008) [PDF]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126326.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125762.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124987.jpg" />
 </div>
 
 
@@ -164,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124739.jpg" />
 </div>
 
 
@@ -190,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124441.jpg" />
 </div>
 
 
@@ -217,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121501.jpg" />
 </div>
 
 
@@ -245,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120396.jpg" />
 </div>
 
 
@@ -272,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119045.jpg" />
 </div>
 
 
@@ -298,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118390.jpg" />
 </div>
 
 
@@ -325,7 +245,7 @@ August Lilleaas | Pro Kotlin Web Apps from Scratch (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118349.jpg" />
 </div>
 
 
@@ -351,7 +271,7 @@ Nanik Tolaram | Software Development with Go (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118331.jpg" />
 </div>
 
 
@@ -377,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118216.jpg" />
 </div>
 
 
@@ -403,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118057.jpg" />
 </div>
 
 
@@ -429,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117350.jpg" />
 </div>
 
 
@@ -456,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116611.jpg" />
 </div>
 
 
@@ -482,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115418.jpg" />
 </div>
 
 
@@ -508,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115145.jpg" />
 </div>
 
 
@@ -536,7 +456,7 @@ Python. Самое полное руководство по разработке
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115139.jpg" />
 </div>
 
 
@@ -562,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114779.jpg" />
 </div>
 
 
@@ -588,7 +508,7 @@ S. Haghsheno, G. Satzger | Kunstliche Intelligenz im Bauwesen (2024) [PDF] [DE]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106387.jpg" />
 </div>
 
 
@@ -615,7 +535,7 @@ E. Voigts, R.M. Auer et al (еditors) | Artificial Intelligence - Intelligent Ar
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106382.jpg" />
 </div>
 
 
@@ -641,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104410.jpg" />
 </div>
 
 
@@ -667,7 +587,7 @@ Chip Huyen | AI Engineering: Building Applications with Foundation Models (2025)
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100927.jpg" />
 </div>
 
 
@@ -679,6 +599,84 @@ The book starts with an overview of AI engineering, explaining how it differs fr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC119190AE9946E8957D5F6C7807A91844CE8A50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821884   (91188) от 04.10.2025
+
+Анхель Сола Орбайсета | Создание фронтенд-фреймворка с нуля (2025) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы используем фронтенд-фреймворки каждый день, но вряд ли действительно понимаем, что происходит там, под капотом. Создание своего фреймворка – отличный способ узнать, как он работает с DOM, генерирует представления страниц, передает данные между компонентами и взаимодействует с операционной системой. Шаг за шагом мы будем создавать собственный фреймворк на JavaScript (   Читать дальше...   )Жанр: ПрограммированиеПеревод: Е.А. МатвеевИздательство: ПитерФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA8EADFFF99D8A34E51C662981311A8857D063C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488480   (90932) от 26.04.2012
+
+А.С. Кудрявцев | Программирование в Delphi. Учебное пособие [2011] [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90932.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии рассматриваются общие характеристики и структура программной системы Delphi, графический интерфейс ее среды программирования, основные конструкции используемого языка программирования и технология программирования.2011Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F35E6AE9DB2FBD922C2665DE9479C8606BD537D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475217   (85141) от 29.03.2012
+
+Махер Али | Программирование для iPhone [2010] [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85141.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга предназначена для профессиональных программистов, желающих создавать приложения для2010Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53DFCC33B6FCB9B3F8B6DF3E83D65302F1648964
 ```
 
 https://mybot314.ru/tekegram_catalog/

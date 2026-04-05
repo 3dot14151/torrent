@@ -1,3 +1,32 @@
+###  Публикация: 1643316   (234251) от 04.07.2023
+
+Autonoesis - Autonoesis (2020) [MP3|320 Kbps] <Melodic Thrash, Black, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nightfall
+02. Ruins of Heaven
+03. Horrors of Nothing
+04. Visions(   Читать дальше...   )Жанр: Melodic Thrash, Black, Death MetalПродолжительность: 00:45:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F44F40FC4480393080D5C7CA52F85F6396D199E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640370   (234246) от 17.06.2023
 
 Hellscream - Made Immortal (2013) [WavPack|Lossless|image + .cue] <Power Metal>
@@ -6,7 +35,7 @@ Hellscream - Made Immortal (2013) [WavPack|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234246.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Kosmos Logia - Universality (2023) [FLAC|Lossless|WEB-DL|tracks] <Epic Symphonic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234244.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Alcotopia - It Hits the Spot (2019) [MP3|320 Kbps] <Speed, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234243.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ HateSphere - Hatred Reborn (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234237.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Arch Nemesis - Of Mind and Fantasy (2004) [WavPack|Lossless|image + .cue] <Dark 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234236.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Crypta - Echoes of the Soul (2021) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234235.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Manifestic - Anonymous Souls (2019) [FLAC|Lossless|image + .cue] <Progressive Sp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234228.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Iratus Vir - Under a Midnight Sun (2023) [MP3|320 Kbps] <Melodic Death, Black Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234227.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Reptilian War Machine - Merciless Addiction (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234219.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Death - Symbolic (1995) Canadian Edition [FLAC|Lossless|image + .cue] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234211.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Jag Panzer - The Hallowed (2023) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234209.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Levith - Around the Impulse (2023) [MP3|320 Kbps] <Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234202.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ They Grieve - To Which I Bore Witness (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234200.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ The Devil Wears Prada - Color Decay (2022) Deluxe, 2023, Solid State Records  [M
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234196.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Nonel - Empire (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234190.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Ray Temple - II (2023) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner, Garage, Bluesy
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234183.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Dead Shape Figure - The Sworn Book (2023) [MP3|320 Kbps] <Melodic Death, Thrash 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234182.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Snakes Don't Belong In Alaska - merch community Sounds Of A Forming Planet (2023
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234175.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ Yusuf / Cat Stevens - King Of A Land (2023) [FLAC|Lossless|tracks + .cue] <Folk 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234163.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ WyndRider - WyndRider (2023) [MP3|320 Kbps] <Psych Stoner Doom, Bluesy>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234160.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ Point Mort - Pointless... (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, C
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234153.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Lamentos - Entre a Vida e a Morte (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234151.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Mike Campbell & The Dirty Knobs - External Combustion (2022) [FLAC|Lossless|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234147.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ Laurie Anderson - Home Of The Brave /Soundtrack/ (1986) [FLAC|Lossless|tracks + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234143.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ Doi - Desideratum (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234142.jpg" />
 </div>
 
 
@@ -715,35 +744,6 @@ Doi - Desideratum (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E64D384BF17AF24D10FE6AB4FD1D449405C4236D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644092   (234140) от 04.07.2023
-
-Winger - Seven (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Proud Desperado (3:50)
-02. Heaven’s Falling (5:15)
-03. Tears of Blood (5:04)
-04. Resurrect Me (4:12)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D0DF5965B3E3A541559DB67A69C49887D215616
 ```
 
 https://mybot314.ru/tekegram_catalog/

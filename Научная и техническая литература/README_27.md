@@ -1,133 +1,3 @@
-###  Публикация: 1607558   (1043901) от 27.01.2023
-
-А.А. Гусак | Задачи и упражнения по высшей математике [2 книги] (1988) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Содержатся задачи и упражнения по следующим разделам: аналитическая геометрия на плоскости и в пространстве, основы векторной алгебры, введение в анализ, дифференциальное и интегральное исчисление, системы линейных алгебраических уравнений, приближенное решение уравнений, ряды, дифференциальные уравнения, элементы теории поля. Приводятся необходимые теоретические (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC57B3F7D500E64C4BA048228D16B2CF0DF01F66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607718   (1043895) от 27.01.2023
-
-Наполеон Бонапарт | Мысли узника святой Елены (2020) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великий французский император и полководец родился на острове Корсика, который принадлежал Генуэзской республике. В 1768 году Генуэзцы отдали Корсику Франции за долги, однако сами корсиканцы подняли восстание против этого и смирились с новым гражданством только после поражения от французской армии. Всего за несколько лет великому корсиканцу удалось покорить почти (   Читать дальше...   )Жанр: Биографии и МемуарыПеревод: Вениамин ГолантФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE6B927BC631E69274F50560DAC7C923F868F153
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607701   (1043891) от 27.01.2023
-
-А.А. Гусак, Е.А. Бричикова | Теория вероятностей. Справочное пособие к решению задач (1999) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043891.jpg" />
-</div>
-
-
-###  Подробнее
-
-Справочное пособие предназначено для обучения студентов по учебному курсу "Теория вероятностей". Оно поможет при подготовке к практическим занятиям, зачётам и экзаменам, а студентам заочных отделений - самостоятельно выполнить контрольные работы. В книгу включены разделы: события и вероятности; случайные величины, их распределения и числовые характеристики; (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7485E96EE1FBD37D1A6C2D7D7301714417A6AE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 166178   (1043877) от 27.01.2023
-
-Дэвид Гланц | Блокада Ленинграда 1941-1944 (2009) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэвид Гланц, крупнейший в мире специалист по истории Красной армии, подробно и убедительно рассказывает об одном из самых трагических событий Второй мировой войны - блокаде Ленинграда. Повествование основано на материалах секретных архивов бывших противников. Книга содержит подробный анализ боевых действий и схемы, на которых детально воспроизведено передвижение (   Читать дальше...   )Жанр: Документальная литература, ИсторияПеревод: Е. В. ЛамановаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5778B53FC3C6E633793F17B7840F8A94E416FC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607991   (1043842) от 28.01.2023
-
-В.А. Исидоров | Экологическая химия (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043842.jpg" />
-</div>
-
-
-###  Подробнее
-
-Посвящено проблемам глобальных и крупнорегиональных изменений, происходящих в результате антропогенного нарушения эволюционно сложившихся на нашей планете химических равновесий. Показана ведущая роль всей совокупности живых организмов (биоты Земли) в формировании циклов элементов и таких глобальных характеристик, как уровень достигающей земной поверхности солнечной (   Читать дальше...   )Жанр: Химия, экологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDE01AC0DBEDE9FB522401DB704EE8D4F3AD1533
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607890   (1043781) от 28.01.2023
 
 Ф.Г. Аминев, А.В. Чемерис (ред.) | ДНК-криминалистика (2022) [PDF]
@@ -136,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043781.jpg" />
 </div>
 
 
@@ -162,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043739.jpg" />
 </div>
 
 
@@ -189,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043688.jpg" />
 </div>
 
 
@@ -215,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043578.jpg" />
 </div>
 
 
@@ -241,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043502.jpg" />
 </div>
 
 
@@ -267,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043464.jpg" />
 </div>
 
 
@@ -293,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043452.jpg" />
 </div>
 
 
@@ -319,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043435.jpg" />
 </div>
 
 
@@ -346,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043418.jpg" />
 </div>
 
 
@@ -372,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043402.jpg" />
 </div>
 
 
@@ -398,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043333.jpg" />
 </div>
 
 
@@ -426,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043219.jpg" />
 </div>
 
 
@@ -452,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043191.jpg" />
 </div>
 
 
@@ -481,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043138.jpg" />
 </div>
 
 
@@ -507,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043126.jpg" />
 </div>
 
 
@@ -533,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043073.jpg" />
 </div>
 
 
@@ -559,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042896.jpg" />
 </div>
 
 
@@ -585,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042887.jpg" />
 </div>
 
 
@@ -611,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042882.jpg" />
 </div>
 
 
@@ -637,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042873.jpg" />
 </div>
 
 
@@ -663,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042858.jpg" />
 </div>
 
 
@@ -674,6 +544,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:426024181AACDF67E0A571804E79C69F8CDCFE23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436824   (1042747) от 02.01.2021
+
+Ксения Клименко | Почему болит ухо. Что делать при отитах, снижении слуха и звоне в ушах – правила доказательной медицины (2020) [FB2]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ксения Клименко – практикующий врач-отоларинголог, ЛОР-хирург, кандидат медицинских наук. Она постоянно совершенствует свои навыки, проходя стажировку в зарубежных клиниках, обучаясь у ведущих специалистов в данной области. Кроме того, она является автором книг, написанных для пациентов простым и понятным языком. Одно из таких изданий – «Почему болит ухо. Что делать (   Читать дальше...   )Жанр: Оториноларингология, Популярно о медицинеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AC8FA6A4CBAA51051124523A86074326EA07AE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436806   (1042739) от 02.01.2021
+
+Гарик Исраелян, Брайан Мэй (ред.) | Вселенная. Емкие ответы на непостижимые вопросы (2020) [FB2]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы знаем о вселенной несоизмеримо больше, чем еще пятьдесят лет назад, но это по прежнему всего лишь маленькая крупица информации о мире, в котором мы живем.
+Своего рода консистенцией интереса к истории вселенной стал фестиваль Starmus, который привлекает специалистов самых разных областей науки: астрономов, космонавтов, космологов, физиков, философов, биологов, (   Читать дальше...   )Жанр: Научно-популярная литератураПеревод: Андрей Бугайский, Полина ЯкушеваФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFDA899AD5E246BFBE55B34F5B408666C596C230
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 704132   (1042641) от 02.01.2021
+
+Книжная серия | История XX века [9 книг] (1921-2010) [FB2, DJVU, PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042641.jpg" />
+</div>
+
+
+###  Подробнее
+
+История XX века - серия книг о некоторых исторических событиях прошлого века, как их видят авторы исследований.Жанр: История, публицистикаФормат: FB2, PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:135CC4384BAC281BA414AB44E30934AAB0EE920A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610147   (1042619) от 06.02.2023
+
+Ю.Н. Старилов, Б.В. Россинский | Административное право (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042619.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебнике в соответствии с программой учебного курса проанализированы основные институты российского административного права. В пятом издании авторы учли масштабные изменения, произошедшие в последние годы в системе государственного управления, в сфере действия административного и административно-процессуального законодательства. Рассматриваются понятие административно-правовых (   Читать дальше...   )Жанр: ЮриспруденцияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C689B8D9D3FECCC0D492A2277966CEC3251F5745
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610138   (1042610) от 06.02.2023
+
+Н.А. Крашенинникова, О.А. Жидков | История государства и права зарубежных стран. В 2 томах (2020) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой третье (переработанное и дополненное) издание учебника "История государства и права зарубежных стран", выпущенного издательством "Норма" в 1997-1998 гг. и апробированного в учебном процессе в МГУ им. М.В.Ломоносова, РУДН и других ведущих вузах нашей страны и стран ближнего зарубежья.
+Учебник рассчитан на студентов, аспирантов, (   Читать дальше...   )Жанр: ЮриспруденцияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2E3AC7BF50E72073E7B59B70A314464B60E3BEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

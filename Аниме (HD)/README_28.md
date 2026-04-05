@@ -6,7 +6,7 @@ Hero Mask (2019) | Маска героя (2019) [2019, Web, 9] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414324.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ The God of High School | Царь горы [2020, TV, 13] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413152.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Overlord III | Повелитель [ТВ-3] [2018, TV, 13 эп.] WEB-DL 720p ra
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412819.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Joshi Kausei | Joshikausei | Беспечные старшеклассницы [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412560.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Keppeki Danshi! Aoyama-kun | Cleanliness Boy! Aoyama-kun | Чистюля! Ао�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412126.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Koi to Uso | Love and Lies | Любовь и ложь [2017, TV, 12 из 12] WEB
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411975.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Burn the Witch | Сжечь ведьму [2020, Movie] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411334.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Idolmaster: Cinderella Girls Second Series  / Идолмастер: Золушк
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410803.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Hanebado! | Бадминтон Ханэсаки [2018, TV, 13 эп.] WEB-DL 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410647.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Sirius the Jaeger | Сириус-егерь [2018, TV, 12 эп.] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410640.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Planet With | Планета Уит [2018, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408955.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Hulaing Babies | Flying Babies | Летающие крошки [2019, TV, 12] HD
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408697.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Circlet Princess | Диадема принцессы [2019, TV, 12 эп.] WEBRip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408694.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Tsurezure Children | Tsuredure Children | Малолетние бездельн�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408336.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Katsute Kami Datta Kemono-tachi e | To the Abandoned Sacred Beasts | К звер
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408316.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Katsugeki: Touken Ranbu | Дикая пляска мечей: Кацугеки [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408190.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Koi to Producer: Evol x Love | Mr Love: Queen's Choice | Продюсер и л�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407886.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Shokugeki no Souma: Gou no Sara | Food Wars! The Fifth Plate | Кулинарн�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407848.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Gibiate | Джибиэйт [2020, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407839.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Fugou Keiji Balance: Unlimited | The Millionaire Detective - Balance: Unlimited 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407748.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Dokyuu Hentai HxEros | Super HxEros | Горячий отряд Super HxEROS | �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407746.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Ahiru no Sora | Команда мечты [2019, TV, 50 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407743.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Angolmois: Genkou Kassenki | Анголмуа [2018, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407621.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Kakuriyo no Yadomeshi | Повар небесной гостиницы [ТВ-1] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407616.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Akkun to Kanojo | Аккун и его девушка [2018, TV, 25] WEBRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407583.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Nobunaga no Shinobi / Ниндзя Нобунаги [2016, TV, 78 + SP] WEBRip 7
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407581.jpg" />
 </div>
 
 

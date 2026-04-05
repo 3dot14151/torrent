@@ -1,3 +1,59 @@
+###  Публикация: 948395   (411104) от 20.10.2015
+
+И.В. Курукин, Ф.Г. Тараторкин | ОГЭ 2016. История. Основной государственный экзамен. Типовые тестовые задания (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие содержит 10 вариантов типовых тестовых заданий Основного государственного экзамена 2016 года.
+Назначение пособия — отработка практических навыков учащихся при подготовке к экзамену (в новой форме) в 9 классе по истории.
+В сборнике даны ответы на все варианты тестов. Приведена подробная инструкция по проверке и оценке работ учащихся.
+Сборник предназначен для (   Читать дальше...   )Жанр: Образовательная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99C166EA69723F9DEF95A22B7A049EDF4E367A07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252299   (410821) от 04.10.2018
+
+В.В. Сафонова и др. | ЕГЭ-2019. Английский язык. Сборник заданий. 400 заданий с ответами (2018) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга содержит задания разных типов и уровней сложности по темам, знание которых проверяется на ЕГЭ, а также краткие теоретические сведения. Ко всем заданиям приводятся ответы. Поможет потренироваться в выполнении заданий, повторить пройденный материал и эффективно подготовиться к сдаче ЕГЭ.
+Книга адресована учащимся старших классов для подготовки к ЕГЭ по английскому (   Читать дальше...   )Жанр: Учебная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E5075E231AC0ABC673FE2FA0799C4984A8A6F23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948444   (410706) от 20.10.2015
 
 С.С. Крылов, Т.Е. Чуркина | ОГЭ 2016. Информатика и ИКТ: типовые экзаменационные варианты: 10 вариантов (2016) [PDF]
@@ -6,7 +62,7 @@
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410706.jpg" />
 </div>
 
 
@@ -35,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410345.jpg" />
 </div>
 
 
@@ -61,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410331.jpg" />
 </div>
 
 
@@ -89,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410226.jpg" />
 </div>
 
 
@@ -115,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410217.jpg" />
 </div>
 
 
@@ -141,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410069.jpg" />
 </div>
 
 
@@ -167,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410065.jpg" />
 </div>
 
 
@@ -195,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410063.jpg" />
 </div>
 
 
@@ -221,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410061.jpg" />
 </div>
 
 
@@ -247,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409957.jpg" />
 </div>
 
 
@@ -273,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409804.jpg" />
 </div>
 
 
@@ -299,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409786.jpg" />
 </div>
 
 
@@ -327,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409727.jpg" />
 </div>
 
 
@@ -354,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409673.jpg" />
 </div>
 
 
@@ -382,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409650.jpg" />
 </div>
 
 
@@ -409,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409648.jpg" />
 </div>
 
 
@@ -437,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409647.jpg" />
 </div>
 
 
@@ -463,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409640.jpg" />
 </div>
 
 
@@ -490,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409546.jpg" />
 </div>
 
 
@@ -516,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409517.jpg" />
 </div>
 
 
@@ -542,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409509.jpg" />
 </div>
 
 
@@ -568,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409472.jpg" />
 </div>
 
 
@@ -594,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409459.jpg" />
 </div>
 
 
@@ -620,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409410.jpg" />
 </div>
 
 
@@ -631,58 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A973FBFEA1732BA6C14F71817C6F58F080456AA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252522   (409303) от 05.10.2018
-
-Генрих Лейтеман, Михаил Новорусский | Большая книга картин из мира животных (1908) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Животные. Знакомство с окружающим миром.Жанр: Образование, обучение и развитие детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:099EACF1643B93F15FC82A0D01C1D03C5B128C4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066860   (409273) от 27.10.2016
-
-Татьяна Комарда | Полный курс английской лексики. Как учить английские слова, чтобы их выучить (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это уникальное пособие незаменимо для тех, кто освоил английский язык на базовом уровне, но нуждается в значительном пополнении словарного запаса. В этом лексическом курсе слова и выражения сгруппированы по темам. Лексика разделена по основным темам, необходимым для ежедневного общения, работы, учебы и путешествий. Слова и выражения представлены в текстах и диалогах, (   Читать дальше...   )Жанр: Иностранный языкФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F68015A2DA3F76F3FC49E3733AF231C374FA3AB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

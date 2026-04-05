@@ -6,7 +6,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292689.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292572.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292396.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291465.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291051.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290958.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Angry Birds 2 в кино / The Angry Birds Movie 2 (2019) HDRip
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290522.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290475.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289045.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287204.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285597.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285007.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283255.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283234.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283219.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283204.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282651.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282154.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281800.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281626.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280329.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Angry Birds 2 в кино / The Angry Birds Movie 2 (2019) BDRip [H.265] [10-bit
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280056.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Angry Birds 2 в кино / The Angry Birds Movie 2 (2019) BDRip [H.264]
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279965.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279494.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278062.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276915.jpg" />
 </div>
 
 

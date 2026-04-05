@@ -1,3 +1,55 @@
+###  Публикация: 1566433   (482338) от 29.07.2022
+
+MarsEdit 4 v4.6 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первое, на что обычно обращаешь внимание, выбирая программу для написания в блог - это количество сервисов, которые она поддерживает, с этим параметром у MarsEdit все отлично. Клиент умеет работать с WordPress, Blogger, Tumblr, Squarespace, TypePad, Movable Type, LiveJournal, Drupal, Vox и еще с множеством менее популярных блог-платформ.Тип издания: macOS SoftwareРелиз состоялся: 28.07.2022Разработчик: © 2022 Red SweaterПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA49DEF02BD8E341157CD85CCF6595B3090DF357
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566452   (482333) от 29.07.2022
+
+Virtual Background Customizer 1.1 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482333.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстрый и простой инструмент для ключевых функций при настройках видео или фоновых изображений для видеоконференций.Тип издания: macOS SoftwareРелиз состоялся: 22.12.2020Разработчик: © 2022 MacmanusПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47D0461119EE4CB3CFA002E2BF71B96410B68D96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1159448   (482214) от 21.08.2017
 
 Nice Clipboard - a cloud synced clipboard manager 1.5.0 [En]
@@ -6,7 +58,7 @@ Nice Clipboard - a cloud synced clipboard manager 1.5.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482214.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ TinyAlarm 1.9.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482164.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ iRamDisk 3.6.12 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482158.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Document Writer Pro 1.6.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482083.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Disk Drill Enterprise 4.7.382 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482075.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ TunesKit iPhone Data Recovery 1.0.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482068.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ New Paint X 1.2.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482018.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ Trim Enabler Pro 4.0.5 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481853.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ Network Kit X 7.2.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481480.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ CodeKit 2.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481392.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ Movist 2.7.2 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480365.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ Rumpus PRO 8.1.16 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480174.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ Chronicle 8 8.5.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480160.jpg" />
 </div>
 
 
@@ -353,7 +405,7 @@ Social Media Lab - Templates 1.2.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480043.jpg" />
 </div>
 
 
@@ -380,7 +432,7 @@ SimpleMind 1.20.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479819.jpg" />
 </div>
 
 
@@ -408,7 +460,7 @@ Current for Facebook 1.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479497.jpg" />
 </div>
 
 
@@ -434,7 +486,7 @@ SQL Dynamite 2.1.4.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479237.jpg" />
 </div>
 
 
@@ -460,7 +512,7 @@ Xcode 6.0.1 (6A317) [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479204.jpg" />
 </div>
 
 
@@ -488,7 +540,7 @@ MKV2MP4 1.4.15 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477234.jpg" />
 </div>
 
 
@@ -514,7 +566,7 @@ CCleaner Pro 1.14.451 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476928.jpg" />
 </div>
 
 
@@ -540,7 +592,7 @@ Textbundle Editor 1.2.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476635.jpg" />
 </div>
 
 
@@ -566,7 +618,7 @@ Auto Highlight 4.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476512.jpg" />
 </div>
 
 
@@ -592,7 +644,7 @@ WidsMob ImageConvert - JPG/PNG 3.20 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476505.jpg" />
 </div>
 
 
@@ -618,7 +670,7 @@ Stats 2.7.28 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476502.jpg" />
 </div>
 
 
@@ -629,59 +681,6 @@ Stats - это приложение с открытым исходным код�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFB2687BA8EFA4FCC878A2F8A33578183B10421F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567174   (476496) от 01.08.2022
-
-WidsMob Panorama 4.25 [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476496.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сделайте высококачественную панораму в один клик
-WidsMob Panorama - это профессиональная программа для создания панорам, которая автоматически создает панораму. Это программное обеспечение для сшивания панорамных изображений может сшивать панораму и обычные фотографии с невероятной скоростью и простыми шагами.Тип издания: macOS SoftwareРелиз состоялся: 01.08.2022Разработчик: © 2022 WidsMobПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EB49D90A7742F3CB612C33757B51159D7C8F2FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567097   (476319) от 01.08.2022
-
-Digital Clock 3D 2.1.1 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отличная подборка цифровых часов, начиная от ретро и закачивая современным вариантом OLED. Подключить все это великолепие, можно, как в качестве обоев, так и в качестве заставки. Выберите стиль, который вам больше всего нравится или оставьте его на волю случая, смакуя ультра реалистичную 3D графику!Тип издания: macOS SoftwareРелиз состоялся: 31.07.2022Разработчик: 3PlanesoftПоддерживаемая ОС: OS X 10.9 или вышеЯзык интерфейса: Русский, Английский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A810B8678200D6806E7E0C546C971F897FFB563
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1447348   (1031850) от 13.02.2021
+
+VA - Markus Schulz - Global DJ Broadcast - Top 20 February (2021) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daxson - While We Wait (Extended Mix)
+02. DJ T.H., Jan Johnston - Stealing Time (Markus Schulz In Search Of Sunrise Extended Rework)
+03. Markus Schulz & HALIENE - Tidal Wave (KhoMha Extended Remix)
+04. Klur - Odysee (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:16:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03A5471FDE6F7D9CED7C5079BBF0AA509AD7BB7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447361   (1031844) от 13.02.2021
+
+VA - Sensual Lounge Soiree: Hottest Lounge Tunes to Make Love (2021) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Antonio Nasca - Walking to the Sound (04:57)
+02. Marga Sol - Tocca Me (04:27)
+03. Stefano Barzan - Than City (03:25)
+04. Koel - Emotions on the Keys (04:51)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:21:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6DF2146FE542FC627DADFE351F35694D7C84064
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 878524   (1031839) от 13.02.2021
 
 Field - Trespass (2003) Maxelect Records [FLAC|Lossless|WEB-DL]<Downtempo, IDM, Trip Hop>
@@ -6,7 +64,7 @@ Field - Trespass (2003) Maxelect Records [FLAC|Lossless|WEB-DL]<Downtempo, IDM, 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031839.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Haddaway - Best (1993) [FLAC|Lossless|tracks] <House, Europop, Euro House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031753.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Nicky Romero - Tomorrowland Friendship Mix (2021-02-11) [MP3|320 Kbps] <Progress
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031684.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Chris Wonderful - Music for Lovers, Vol. 2 (2017) Yoola, 2021 [FLAC|Lossless|WEB
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031661.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Magic Of Trance Vol 12 (Mixed by Vito Von Gert) (2021) [MP3|320 Kbps] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031657.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Luxury Chillout Lounge (2021) [MP3|320 Kbps] <Lounge, Vocal, Chillwave>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031627.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Coffee in Bed Lounge: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031375.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Mitote: The Dream Of Reality (Compiled by Agz) (2021) [FLAC|Lossless|tracks
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031348.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Techno Club Vol. 68 (Mixed by Talla 2XLC x Metta & Glyde) (2023) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031227.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Laibach - Sketches Of The Red Districts (2023) [FLAC|Lossless|WEB-DL|tracks] <In
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031220.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031193.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - The Unknown Collection Vol 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Drum & B
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031160.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Depeche Mode - Memento Mori (2023) [MP3|277-296 kbps VBR (V0)] <Electronic, Synt
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031077.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Trance Reserve Music 2022 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030993.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Delhi Trance Festival (2023) [MP3|320 Kbps] <Trance, Progressive, Electroni
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030988.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - VA Trance 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030986.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - 50 DJ Tracks 2023 Vol. 1 (2023) [MP3|320 Kbps] <Dance, Club, House, Electro
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030955.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Comment faire l'amour (2021) [FLAC|Lossless|WEB-DL] <Lounge>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030943.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Sweet Morning Lounge: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL] <Bal
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030942.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Michael Belletz (Mnemonic, The Last Gambit, Architrav, L.iet & Kurt Bogenholtz) 
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030871.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Aphex Twin (AFX, Caustic Window, GAK, Bradley Strider, Mike & Rich, Polygon Wind
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030789.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Blank & Jones - Get Down (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Lounge, Downte
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030734.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Remixes EP (2020) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030721.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Aly & Fila - FSOE Top 20: February (2021) [MP3|320 Kbps] <Trance, Uplifting
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030701.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Aly & Fila - FSOE Top 20: February (2021) [MP3|320 Kbps] <Trance, Uplifting
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEE81BEF205265F2D0D1D27B9158416280226AC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448650   (1030699) от 18.02.2021
-
-LAU - Believer (Deluxe Album) (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stunning (3:20)
-02. We Had Magic (3:21)
-03. True (4:02)
-04. Believer (3:19)(   Читать дальше...   )Жанр: Synthpop, Synthwave, RetrowaveПродолжительность: 01:06:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A134E499D61CA20DDFC49A18C5A571DB36C8B94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448899   (1030481) от 19.02.2021
-
-VA - The World Series Of Trance Vol.1 (2021) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John 00 Fleming - The 10th Life (Original Mix)
-02. Carlo Mathaye - Digitalize (Hiroki Nagamine Remix)
-03. Jens Lonnberg - Red Skies (Radio Edit)
-04. Chris Turner - Phat Giraffe (Radio Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:59:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B390EB7D3A9E365BE5068240001D66E2DF678A8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1047514   (549339) от 30.08.2016
+
+Неlstаr - Vаmрirо (2016) [FLAC|Lossless|image + .cue] <Power Metal, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awaken Into Darkness
+02. Blood Lust
+03. To Dust You Will Become
+04. Off With His Head(   Читать дальше...   )Жанр: Power Metal, Speed MetalПродолжительность: 00:57:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AB4853CC7B0EEF3B3CC2C3BDE8E44BE6677A17C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047528   (549338) от 30.08.2016
+
+Viсiоus Rumоrs - Соnсussiоn Рrоtосоl (2016) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Concussion Protocol
+02. Chemical Slaves
+03. Victims Of A Digital World
+04. Chasing The Priest(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:58:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2F28E724A1ED4973D9AB9FDB464368C435ADF2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047537   (549337) от 30.08.2016
+
+Каmbrium - Тhе Еldеrs' Rеаlm (2016) [FLAC|Lossless|image + .cue] <Symphonic Power Metal, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abyssal Streams
+02. Through Shades and Despair
+03. Conjure The Lost
+04. The Elders' Realm (   Читать дальше...   )Жанр: Symphonic Power Metal, Melodic Death MetalПродолжительность: 01:02:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C3072ECC1184CEA9E0612B2E9D951DF231480DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047654   (549326) от 30.08.2016
+
+Snаке Неаd Rituаl - Сеrеmоniаl Тhundеr (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mama
+02. These Blues
+03. Strange World
+04. Gone When I Get Home(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BF59EEA6B602028852E7D805B45A315975BA0B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047354   (549322) от 30.08.2016
 
 Erik Norlander - Surreal (2016) [FLAC|Lossless|image + .cue] <Neo-Prog>
@@ -6,7 +122,7 @@ Erik Norlander - Surreal (2016) [FLAC|Lossless|image + .cue] <Neo-Prog>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549322.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Enjoy the Greeks (2004) [FLAC|Lossless|tracks + .cue] <Garage Rock, Psychob
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549260.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Secret Rule - Machination (2016) [FLAC|Lossless|tracks + .cue] <Symphonic Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549252.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Andy Timmons - And-Thology I & II - The Lost Ear X-tacy Tapes (2001) [FLAC|Lossl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549243.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549188.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ The Screaming Jets - Do Ya (2008) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549174.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549172.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ King Company - One For The Road (2016) Jараnеsе Еditiоn [FLAC|Lossless|im
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549169.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ The Dead Daisies - Make Some Noise (2016) [FLAC|Lossless|image+.cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549166.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Smokie - Whose Are These Boots? (1990) [FLAC|Lossless|tracks + .cue] <Pop-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549158.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Tarja - The Shadow Self (2016) [FLAC|Lossless|image + .cue] <Symphonic Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549103.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Kiss - Kiss Rock Vegas (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549102.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549096.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Deep Purple - Live At Long Beach 1976 (2016) 2CD [MP3|320 Kbps] <Hard Rock, Clas
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549060.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ The Get Up Kids - Problems (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Emo
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548855.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Broken Bells - Broken Bells (2010) [FLAC|Lossless|tracks + .cue] <Alternative Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548852.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548648.jpg" />
 </div>
 
 
@@ -496,7 +612,7 @@ Freddie Mercury - Time Waits For No One (2019) Single [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548567.jpg" />
 </div>
 
 
@@ -522,7 +638,7 @@ My Regime - Dogmas (2016) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548354.jpg" />
 </div>
 
 
@@ -551,7 +667,7 @@ The Bai Bang - Are You Ready (2009) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548348.jpg" />
 </div>
 
 
@@ -580,7 +696,7 @@ Beyond the Fade - Welcome to the Pain (2016) [MP3|320 Kbps] <Alternative Rock, P
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548346.jpg" />
 </div>
 
 
@@ -609,7 +725,7 @@ The Jimi Hendrix Experience - Live At Winterland (1987) [WavPack|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548336.jpg" />
 </div>
 
 
@@ -623,122 +739,6 @@ The Jimi Hendrix Experience - Live At Winterland (1987) [WavPack|Lossless|image 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:839741881C68E128E5C86D23E0E1419F723390E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047725   (548267) от 31.08.2016
-
-Wonderworld - 2 альбома: Wonderworld, II (2014,2016) [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forever Is A Lie
-02. Remember My Words
-03. Elements
-04. It´s Not Over Yet(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:45:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:896D57C5524645FDD82BB666734C48A17E19DE01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044363   (548255) от 31.08.2016
-
-Blackfoot - Southern Native (2016) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Need My Ride
-02 Southern Native
-03 Everyman
-04 Call Of A Hero(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A1E31234940450FAD9C336E529094D1D8961868
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047818   (548250) от 31.08.2016
-
-Sick Puppies - Fury (2016) Best Buy Edition [FLAC|Lossless|tracks] <Alternative Metal, Hard Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black & Blue
-02. Stick To Your Guns
-03. Let Me Live
-04. Where Do I Begin(   Читать дальше...   )Жанр: Alternative Metal, Hard Rock, Post-GrungeПродолжительность: 00:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4233240DD13A4A6DA5480687B1A286C25A1FB25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047812   (548198) от 31.08.2016
-
-I See Stars - Treehouse (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronicore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calm Snow
-02. Break
-03. White Lies
-04. Everyone's Safe in the Treehouse(   Читать дальше...   )Жанр: ElectronicoreПродолжительность: 00:50:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A287D607866B2E8377720B6D6F7E4D81CD28DA52
 ```
 
 https://mybot314.ru/tekegram_catalog/

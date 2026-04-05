@@ -1,3 +1,85 @@
+###  Публикация: 1014430   (771155) от 13.05.2016
+
+Омбре: Отважный стрелок / Hombre (1967) HDTV [H.264/1080i-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_771155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда Джон Рассел, белый американец, воспитанный в Аризоне индейским племенем, продаёт небольшую гостиницу, доставшуюся от отца, он вынужден вступить в конфликт с обществом, которое сам презирает. Джон покидает город в дилижансе, и настроенные против него пассажиры заставляют его ехать вместе с кучером. Но на обоз нападают разбойники, бросают пассажиров в пустыне, (   Читать дальше...   )Производство: США, Twentieth Century Fox Film Corporation, Hombre ProductionsЖанр: ВестернРежиссер: Мартин РиттАктеры: Пол Ньюман, Фредрик Марч, Ричард Бун, Дайан Чиленто, Кэмерон Митчелл, Барбара Раш, Питер Лазер, Маргарет Блай, Мартин Болсам, Скип Уорд, Фрэнк Сильвера, Дэвид Канари, Вэл Эйвери, Ларри УордПеревод: Многоголосый закадровый, профессиональный (Первый канал)Субтитры: Teletext Sub Page 888 (Rus)Продолжительность: 01:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:375BBC976146997799D1AC83F47FA9AE7CFAA06C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015834   (770884) от 13.05.2016
+
+Молчание ягнят / The Silence of the Lambs (1991) BDRip [H.265/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770884.jpg" />
+</div>
+
+
+###  Подробнее
+
+Психопат похищает и убивает молодых женщин по всему Среднему Западу Америки. ФБР, уверенное в том, что все преступления совершены одним и тем же человеком, поручает агенту Клариссе Старлинг встретиться с заключенным-маньяком, который мог бы объяснить следствию психологические мотивы серийного убийцы и тем самым вывести на его след.
+
+Заключенный, доктор психиатрии (   Читать дальше...   )Производство: США / Orion Pictures Corporation, Strong Heart/Demme ProductionЖанр: Триллер, Криминал, Детектив, ДрамаРежиссер: Джонатан ДеммеАктеры: Джоди Фостер, Энтони Хопкинс, Скотт Гленн, Тед Левайн, Брук Смит, Энтони Хилд, Кейси Леммонс, Дайан Бэйкер, Фрэнки Фэйзон, Дэн БатлерПеревод: Многоголосый профессиональныйСубтитры: русские, итальянские, английские, французские, испанские, шведские, финские, датские, немецкиеПродолжительность: 01:58:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BE85E26A871F8E9871795700B3F5A0DA2146A34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013408   (769424) от 15.05.2016
+
+Охотники за привидениями / Ghost Busters (1984) BDRip [H.265/1080p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769424.jpg" />
+</div>
+
+
+###  Подробнее
+
+В конце двадцатого века оказывается, что в Нью — Йорке живут не только обычные граждане, но и… привидения. Многомиллионное население не может противостоять натиску сверхъестественного.
+
+В конце концов на пути бесчисленных монстров не остается никого — кроме троих ученых — парапсихологов, которым известно все о потустороннем мире, правда только в теории. И теперь (   Читать дальше...   )Производство: США / Black Rhino Productions, Columbia Pictures Corporation, DelphiЖанр: Комедия, Боевик, Фантастика, ФэнтезиРежиссер: Айвен РайтманАктеры: Билл Мюррэй, Дэн Эйкройд, Сигурни Уивер, Харольд Рэмис, Рик Моранис, Энни Поттс, Уильям Этертон, Эрни Хадсон, Дэвид Маргулис, Стивен ТэшПеревод: Многоголосый закадровыйЯзык субтитров: Итальянский, английский, русский, немецкий, французский, испанскийПродолжительность: 01:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5057305A364096A7BAE8A88AECB359EA8FDD1CCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1384421   (769283) от 25.06.2020
 
 Сияние / The Shining (1980) BDRip [H.265/1080p] [10-bit] [US Director's Cut]
@@ -6,7 +88,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769283.jpg" />
 </div>
 
 
@@ -32,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769151.jpg" />
 </div>
 
 
@@ -58,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768794.jpg" />
 </div>
 
 
@@ -84,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768682.jpg" />
 </div>
 
 
@@ -110,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768072.jpg" />
 </div>
 
 
@@ -136,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767931.jpg" />
 </div>
 
 
@@ -162,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767482.jpg" />
 </div>
 
 
@@ -188,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767472.jpg" />
 </div>
 
 
@@ -215,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767445.jpg" />
 </div>
 
 
@@ -241,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766659.jpg" />
 </div>
 
 
@@ -268,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765954.jpg" />
 </div>
 
 
@@ -297,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765681.jpg" />
 </div>
 
 
@@ -324,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765275.jpg" />
 </div>
 
 
@@ -350,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765211.jpg" />
 </div>
 
 
@@ -377,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765166.jpg" />
 </div>
 
 
@@ -403,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765133.jpg" />
 </div>
 
 
@@ -429,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764958.jpg" />
 </div>
 
 
@@ -455,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764815.jpg" />
 </div>
 
 
@@ -481,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763928.jpg" />
 </div>
 
 
@@ -508,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763415.jpg" />
 </div>
 
 
@@ -534,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762985.jpg" />
 </div>
 
 
@@ -561,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762886.jpg" />
 </div>
 
 
@@ -587,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762381.jpg" />
 </div>
 
 
@@ -598,84 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBA9622FB7F72A053BC88AB74DE55033FCF9B1F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214262   (761153) от 24.03.2018
-
-Скачущие издалека / The Long Riders (1980) Blu-ray [H.264/1080p] [Custom]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитая банда Малыша Джеймса — самая крутая шайка грабителей банков, поездов и дилижансов. Преисполненные отваги, они слывут в народе местными героями. Но поймать их клянется само всемогущее сыскное агентство Пинкертона, а это значит, что бандитам предстоит встреча со смертельным врагом. Выбор небогат: оказаться за решеткой или погибнуть. Только сила воли и кровное (   Читать дальше...   )Производство: США, Huka ProductionsЖанр: ВестернРежиссер: Уолтер ХиллАктеры: Дэвид Кэрредин, Кит Кэрредин, Роберт Кэрредин, Джеймс Кич, Стейси Кич, Деннис Куэйд, Рэнди Куэйд, Кевин Брофи, Гарри Кэри мл., Кристофер Гест, Николас Гест, Шелби Леверингтон, Феличе Орланди, Памела Рид, Джеймс Римар, Фран Райан, Саванна Смит Бучер, Эми Страйкер, Джеймс Уитмор мл., Джон Боттомс, Уэст Бьюкэнэн, Эдвард Банкер, Мартина Дэйнан, Аллан Граф, Крис МалкиПеревод: Многоголосый, Двухголосый х2, АвторскийСубтитры: Русские, английские, испанские, французские, итальянские, немецкие, датские, голандские, норвежские, шведские, японскиеПродолжительность: 01:39:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7EC59643A39673B245A496E0DB5DCA9B9CB02D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 886780   (760863) от 11.04.2015
-
-Венсан, Франсуа, Поль и другие / Vincent, Francois, Paul... et les autres (1974) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760863.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждое воскресенье старые приятели собираются вместе. Они очень разные люди, у каждого свои проблемы. Винсент разорен и должен кучу денег, Франсуа вынужден наблюдать, как его жена меняет мужчин, Поль — писатель без собственных книг. Проблемы приходят и уходят. С годами меняется все — счет в банке, любовь, карьера… Только не меняется старая мужская дружба.Производство: Франция, Италия / Lira Films, President ProduzioniЖанр: ДрамаРежиссер: Клод СотеАктеры: Ив Монтан, Мишель Пикколи, Серж Реджани, Жерар Депардье, Стефан Одран, Мари Дюбуа, Умберто Орсини, Людмила Микаэль, Антонелла Луальди, Катрин АллегреПеревод: Многоголосый закадровыйСубтитры: ФранцузскиеПродолжительность: 01:53:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80D1C8D73F11142CB7F63AF3076800EDC7871E20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571324   (759301) от 26.04.2014
-
-Пианист / The Pianist (2002) BDRemux [1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм повествует о судьбе Владислава Шпильмана — выдающегося польского пианиста, еврея по национальности. Вынужденный жить в Варшавском гетто во время Второй мировой войны, он сполна познает вкус унижений, страдания и борьбы. Один из офицеров отступающей немецкой армии обнаруживает его среди руин разрушенного бомбежками города и помогает ему выжить...Жанр: Драма, военныйРежиссер: Роман Полански / Roman PolanskiАктеры: Эдриан Броуди, Томас Кречманн, Фрэнк Финлэй, Морин Липман, Эмилия Фокс, Эд Стоппард, Джулия Рэйнер, Джессика Кейт Мейер, Михал Жебровский, Ваня МуесПеревод: Профессиональный (полное дублирование), профессиональный (многоголосый, закадровый)Язык субтитров: Русские (forced, только на непереведённые в дубляже немецкие фразы), русские (полные), английскиеПродолжительность: 02:28:44
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

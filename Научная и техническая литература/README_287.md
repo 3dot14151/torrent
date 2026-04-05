@@ -1,136 +1,3 @@
-###  Публикация: 1038302   (608697) от 27.07.2016
-
-М. М. Костров и др. | Помощник экологического инспектора (2009) [PDF, DJVU] [Uk]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608697.jpg" />
-</div>
-
-
-###  Подробнее
-
-В предлагаемом издании изложены основы природоохранного инспектирования как необходимого условия сохранения природных ресурсов и их экономного использования. Рассмотрены практические аспекты применения законодательных и нормативных актов в осуществлении природоохранного контроля .
-«Помощник экологического инспектора» предназначено для государственных и общественных (   Читать дальше...   )Жанр: УчебникФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDAF5DDF6ECAA0CC7A181F8E79F36C030632DDB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912830   (608696) от 27.06.2015
-
-Том Батлер-Боудон | Стать успешным никогда не поздно (2013) [FB2, EPUB]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Развенчивая миф об «однодневном» успехе, автор показывает, что, в отличие от распространенного стереотипа, людям, компаниям, товарам и идеям необходимо более длительное время для реализации своего наилучшего потенциала. Он подчеркивает важность «правила десяти лет», выдвинутого Малкольмом Гладуэллом, предполагающего, что важные жизненные достижения в большинстве (   Читать дальше...   )Жанр: Личностный рост, Зарубежная психологияПеревод: Н. В. КремкоФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1404E79E86E00C06EE1009C7A65D7890347C4291
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912861   (608695) от 27.06.2015
-
-Л. П. Маринович, Г. А. Кошеленко | Судьба Парфенона (2000) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Парфенон - замечательный древнегреческий храм, стоящий на вершине афинского Акрополя. "Здание имеет свою судьбу", - говорили древние римляне. Мы проследим историю этого здания-символа, которое было и древнегреческим храмом богини Афины-Девы, и православной церковью, и католическим собором, и мусульманской мечетью, и складом для снарядов и т.д и т.п.Жанр: История культуры зарубежных странФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9602FA6B749604F16CDDDE04D2352A546A949EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912891   (608682) от 27.06.2015
-
-Г. Д. Чернышев и др. (сост.) | Каталог деталей двигателей ЯМЗ-238Н, 238Л, 238ПМ, 238ФМ (1991) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каталог содержит краткие технические характеристики и развернутые спецификации с иллюстрациями всех узлов и деталей восьмицилиндровых двигателей ЯМ3-238Н, ЯМ3-238Л, ЯМ3-238ПМ, ЯМ3-238ФМ, устанавливаемых на автомобили МАЗ и КрАЗ, а также сведения об отличительных особенностях двигателей ЯМ3-238Б и ЯМ3-238Д (даны в приложении).
-
-Предназначен для инженерно-технических (   Читать дальше...   )Жанр: Техническая литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F8406FAE589BF3ED851A5FB97B94F4D7CF108AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038098   (608605) от 27.07.2016
-
-В.В. Муромцев | Усилительные устройства и электроакустика (1951) [PDF, DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608605.jpg" />
-</div>
-
-
-###  Подробнее
-
-В предложенной книге, являющейся учебным пособием, дается элементарное описание процессов, происходящих в выпрямительной, усилительной и электроакустической аппаратуре, применяемой в звуковых киноустановках.Жанр: Электроника, радиотехникаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6D5C54EBB5BC3848FD769A92B47BA2F02C54619
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037962   (608603) от 27.07.2016
 
 Д.Х. Шифман | Громкоговорители (1965) [DJVU]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608603.jpg" />
 </div>
 
 
@@ -165,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608602.jpg" />
 </div>
 
 
@@ -191,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608597.jpg" />
 </div>
 
 
@@ -217,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608586.jpg" />
 </div>
 
 
@@ -243,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608487.jpg" />
 </div>
 
 
@@ -269,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608485.jpg" />
 </div>
 
 
@@ -295,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608478.jpg" />
 </div>
 
 
@@ -321,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608450.jpg" />
 </div>
 
 
@@ -347,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608443.jpg" />
 </div>
 
 
@@ -374,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608400.jpg" />
 </div>
 
 
@@ -400,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608354.jpg" />
 </div>
 
 
@@ -426,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608281.jpg" />
 </div>
 
 
@@ -452,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608197.jpg" />
 </div>
 
 
@@ -480,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608189.jpg" />
 </div>
 
 
@@ -506,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608083.jpg" />
 </div>
 
 
@@ -532,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608081.jpg" />
 </div>
 
 
@@ -558,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607856.jpg" />
 </div>
 
 
@@ -584,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607734.jpg" />
 </div>
 
 
@@ -610,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607723.jpg" />
 </div>
 
 
@@ -636,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607714.jpg" />
 </div>
 
 
@@ -664,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607665.jpg" />
 </div>
 
 
@@ -675,6 +542,140 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEB7D4B4B17AB22DF393C3E1AFBF67AA096B2CF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912618   (607238) от 28.06.2015
+
+О. Л. Левинская | Античная Asinaria. История одного сюжета (2008) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607238.jpg" />
+</div>
+
+
+###  Подробнее
+
+История приключений молодого человека по имени Луций, превращенного колдуньей в осла, была использована античными авторами по крайней мере дважды: в греческой новелле Псевдо-Лукиана "Луций, или Осел" и в римском романе Апулея "Метаморфозы, или Золотой осел". Кроме того, патриарх Фотий сообщает о существовании еще одного произведения на этот сюжет, (   Читать дальше...   )Жанр: ЛитературоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77538D0B8330202A0D1D9EA9AB91391682A94989
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913113   (607145) от 28.06.2015
+
+Константин Шилов | Борисов-Мусатов (1985) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Творчество В.Э.Борисова-Мусатова, замечательного мастера живописи конца XIX - начала XX века, создателя новой в русском искусстве монументально-декоративной живописной системы, отличается тонким лиризмом и одухотворенностью, неустанными поисками гармонии в человеке и в окружающем его мире.
+Книга поможет читателю узнать Борисова-Мусатова не только как художника-поэта, (   Читать дальше...   )Жанр: Мемуары отечественных деятелейФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD693686E060E5920CB3F86CE180598751E95C05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913101   (607137) от 28.06.2015
+
+Н. Я. Эйдельман | Твой 18-й век. Прекрасен наш союз... (1991) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607137.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге соединены две работы известного советского писателя и историка, объединенные единым замыслом - поиском исторической истины, раскрытием исторических судеб людей России в переломные годы ее развития. В живой форме автор умело рисует целую галерею остропсихологических портретов.
+
+Для широких кругов читателей.Жанр: История РоссииФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAE1413C768F6A52D249AC9DE6ED4BCAF9502B8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912161   (607135) от 28.06.2015
+
+А. А. Спасский | Лекции по истории западно-европейского Средневековья (2009) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анатолий Алексеевич Спасский ( 1866-1916) — замечательный русский историк древней Церкви, профессор Московской Духовной академии, ученик и преемник по кафедре знаменитого А. П. Лебедева. «Лекции по истории западно-европейского Средневековья» тематически охватывают период истории Римской империи от начала IV в. до возникновения крупных городских центров в эпоху феодализма (   Читать дальше...   )Жанр: История средних вековФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BD1A5CA2CAF59F7EE1A986E290EC462085C7305
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912173   (607097) от 28.06.2015
+
+А. Г. Рагунштейн | За три моря за зипунами (2015) [DJVU]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607097.jpg" />
+</div>
+
+
+###  Подробнее
+
+С начала XVI и по XVIII столетие Черное, Азовское и Каспийское моря превратились в арену ожесточенного противостояния казаков с Турцией и Персией. Три столетия казаки держали в страхе купцов и жителей прибрежных поселков Османской империи. Их внезапные налеты на прибрежные селения имели одну цель - захват добычи.
+Русское и украинское казачество представляло собой (   Читать дальше...   )Жанр: Военное дело, Теория и история военного искусстваФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E52E23B3687F699B4CB4B612C6C39AE6D4AC5909
 ```
 
 https://mybot314.ru/tekegram_catalog/

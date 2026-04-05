@@ -6,7 +6,7 @@ Peter Hahn & Anna Maria Kaufmann - CD3 Pop (2010) [FLAC|Lossless|image + .cue] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269819.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Lenka - Attune (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Indie Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269484.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Juanes - Mis planes son amarte (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Ro
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269468.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Karizma Duo - Acoustically Covered (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269190.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Karizma Duo - Acoustic (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268425.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - 50 Hits Winter 2019 (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268373.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ The Christians - Colour (2019) (Deluxe Edition) [FLAC|Lossless|WEB-DL|tracks] <E
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268216.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Now That's What I Call Music! 104 (2019) 2CD, UK Series[FLAC|Lossless|WEB-D
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268066.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Mariah Carey - The Essential Mariah Carey (2019) 2CD, Compilation [FLAC|Lossless
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268052.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Top 40 Latino Caliente (The Ultimate Top 40 Collection) (2019) [FLAC|Lossle
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267055.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Dido - Still On My Mind (2019) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Ele
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265335.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Raf - Numeri (2011) Columbia Records [FLAC|Lossless|WEB-DL|tracks] <Italo Pop, P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264708.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Raf - Sono Io (2015) Universal Music [FLAC|Lossless|WEB-DL|tracks] <Italo Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264707.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Raf - Le Ragioni Del Cuore (2012) Columbia Records [FLAC|Lossless|WEB-DL|tracks]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264705.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ St. Vincent - Masseduction (2017) Japanese Edition [FLAC|Lossless|tracks + .cue]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264473.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - BBC Radio 2: The Piano Room (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Easy
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264472.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Robbie Williams - Under The Radar Vol. 2 (2017) Deluxe Edition [FLAC|Lossless|WE
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264449.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Bananarama - Megarama: The Mixes (2015) 3CD, Compilation [FLAC|Lossless|tracks +
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264377.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Celine Dion - Courage (2019) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264264.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - 100 Greatest 2019 Songs (Best Songs of the Year) (2019) [FLAC|Lossless|WEB-
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264242.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Francesca Michielin - 2640 (2018) RCA Records [FLAC|Lossless|WEB-DL|tracks] <Ita
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264012.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Micro együttes - Olasz slágerek – magyarul No.1 (2005) [FLAC|Lossless|image 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264010.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Alexandra Savior - Belladonna Of Sadness (2017) [FLAC|Lossless|tracks + .cue] <A
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263855.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Absolute Music 82 (2017) [FLAC|Lossless|tracks] <Pop, Pop-Rock, Dancepop, H
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263804.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Absolute Music 83 (2017) [FLAC|Lossless|tracks] <Pop, Dancepop, Pop-Rock, R
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263775.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Inna - Nirvana (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic, Dancepop, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263715.jpg" />
 </div>
 
 

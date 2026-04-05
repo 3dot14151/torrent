@@ -1,81 +1,3 @@
-###  Публикация: 498235   (254208) от 18.05.2012
-
-Потомки / The Descendants (2011) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254208.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой — богатый гавайский землевладелец. Он вместе с двумя дочерьми предпринимает попытку найти любовника жены, искренне веря, что таким образом спасет семейный очаг.Жанр: Драма, комедияРежиссер: Александр ПэйнПродюсер: Джим Бёрк, Александр Пэйн, Джим ТейлорАктеры: Джордж Клуни, Шейлин Вудли, Бо Бриджес, Джуди Грир, Роберт Форстер, Мэттью Лиллард, Амара Миллер, Ник Краузе, Патти Хасти, Грэйс А. КрузПеревод: ДублированныйЯзык субтитров: Русский, английский, немецкий, хорватский, чешский, эстонский,  латышский, литовский, словенский, турецкий, украинскийПродолжительность: 01:50:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497403   (253736) от 17.05.2012
-
-Глаза змеи / Snake Eyes (1998) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наступает кульминационный момент боксерского матча: трибуны встают, ожидая скорой развязки. Решающий удар - и на полу оказываются двое: побежденный чемпион на ринге и высокопоставленный правительственный чиновник в зрительном зале, сраженный снайперским выстрелом. Во всеобщей панике только один человек сохраняет хладнокровие - полицейский Рик Санторо, который в одиночку (   Читать дальше...   )Производство: СШАЖанр: Триллер, криминал, детективПеревод: ДублированныйСубтитры: Русские, английские, болгарские, греческие, иврит, португальские, турецкие, исландские, эстонскиеФормат: DVD9Продолжительность: 01:34:28
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496499   (252890) от 14.05.2012
-
-Последний кадр / The Last Shot (2004) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252890.jpg" />
-</div>
-
-
-###  Подробнее
-
-У агента ФБР Джо Дивайна есть заветная мечта - поймать легендарного мафиози Джона Готти. Но как выманить хитрого лиса, за версту чующего засаду? Тут в поле зрения федералов попадает незадачливый сценарист Стивен Шатс, безуспешно пытающийся стать режиссером, и Дивайна осеняет гениальная идея. Выдав себя за продюсера, он открывает проекту Шатса финансирование, надеясь (   Читать дальше...   )Производство: СШАЖанр: КомедияПеревод: Профессиональный (многоголосный, закадровый)Субтитры: Русские, английские, польские, чешские, венгерские, словенские, иврит, греческие, болгарские, румынские, латышские, литовские, эстонскиеФормат: DVD9Продолжительность: 01:29:35
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 496067   (252662) от 13.05.2012
 
 Оправданная жестокость / A History of Violence (2005) DVD9
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252662.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251507.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251441.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250055.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_249303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_249303.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_249247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_249247.jpg" />
 </div>
 
 
@@ -240,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247355.jpg" />
 </div>
 
 
@@ -268,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246209.jpg" />
 </div>
 
 
@@ -294,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243066.jpg" />
 </div>
 
 
@@ -320,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233066.jpg" />
 </div>
 
 
@@ -346,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233059.jpg" />
 </div>
 
 
@@ -372,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233016.jpg" />
 </div>
 
 
@@ -398,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230147.jpg" />
 </div>
 
 
@@ -425,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229031.jpg" />
 </div>
 
 
@@ -452,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228404.jpg" />
 </div>
 
 
@@ -478,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227290.jpg" />
 </div>
 
 
@@ -504,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227110.jpg" />
 </div>
 
 
@@ -530,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226936.jpg" />
 </div>
 
 
@@ -556,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226144.jpg" />
 </div>
 
 
@@ -582,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223641.jpg" />
 </div>
 
 
@@ -609,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223323.jpg" />
 </div>
 
 
@@ -635,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222039.jpg" />
 </div>
 
 
@@ -662,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221953.jpg" />
 </div>
 
 
@@ -673,6 +595,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FD198054B5A9F427D0656A763A280EB7D9CD504
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651632   (221242) от 07.08.2023
+
+Летняя книга / Tatil Kitabi / Summer Book (2008) DVD9 [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Много событий произошло в семье Силифке в течение одного лета. Школьник Али возлагает большие надежды на предстоящие каникулы. Его старший брат хочет уйти из военной академии. Дядя, оставивший городскую жизнь, работает мясником в деревне. Мать постоянно подозревает отца в измене, но тот больше занят торговлей цитрусовыми, чем проблемами семьи…Производство: Турция, Нидерланды / Bulut Film и др.Жанр: драмаРежиссер: Сейфи ТеоманАктеры: Танер Бирсел, Тайфун Гунай, Harun Ozuag, Ayten Tokun, Осман Инан, Рыза Акын, Онурджан Элави, Зафер Инан, Экрем Сенель, Махир ОзелПеревод: многоголосый профессиональный (Культура)Язык озвучки: русский, турецкийСубтитры: английские, немецкие, французскиеПродолжительность: 01:28:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:420DBF304EB73F1486A8A5DFFFEA9FA7A9F99CF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513973   (220872) от 01.12.2021
+
+Мстители: Война бесконечности / Avengers: Infinity War (2018) DVD5 [Custom]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пока Мстители и их союзники продолжают защищать мир от различных опасностей, с которыми не смог бы справиться один супергерой, новая угроза возникает из космоса: Танос. Межгалактический тиран преследует цель собрать все шесть Камней Бесконечности — артефакты невероятной силы, с помощью которых можно менять реальность по своему желанию. Всё, с чем Мстители сталкивались (   Читать дальше...   )Производство: США / Marvel Studios Inc., Indochina Productions, Jason Roberts Productions, South Pictures, Truenorth ProductionsЖанр: Фантастика, фэнтези, боевик, приключенияРежиссер: Энтони Руссо, Джо РуссоАктеры: Роберт Дауни мл., Крис Хемсворт, Марк Руффало, Крис Эванс, Скарлетт Йоханссон, Дон Чидл, Бенедикт Камбербэтч, Том Холланд, Чедвик Боузман, Зои СалданаПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 02:23:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A85BEF491F3A2849BAB2520E1B360F035763CD60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 850779   (220783) от 22.12.2014
+
+Бегущий в лабиринте / The Maze Runner (2014) DVD5
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_220783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой — подросток Томас, который просыпается в лифте, но ничего не помнит, кроме своего имени. Он оказывается среди 60 подростков, научившихся выживать в замкнутом пространстве. Раз в 30 дней прибывает новый мальчик. Группа ребят проживает в «Приюте» уже три года. Они кормятся тем, что удается вырастить на земле, и пытаются найти выход из лабиринта, окружающего (   Читать дальше...   )Производство: США, Великобритания, Канада / 20th Century Fox, Ingenious Media, TSG EntertainmentЖанр: Фантастика, триллер, приключенияРежиссер: Уэс БоллАктеры: Дилан О’Брайен, Томас Сэнгстер, Кая Скоделарио, Уилл Поултер, Ки Хонг Ли, Блейк Купер, Амл Амин, Алекс Дж. Флорес, Джейкоб Латимор, Патришия КларксонПеревод: Дублированный (лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Английский, испанский, датский, финский, норвежский, русский, шведский, эстонский, хинди, латышский, литовский, украинскийПродолжительность: 01:48:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C4524CA345C9A74B57983B7F0EAC3AD83C47D7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

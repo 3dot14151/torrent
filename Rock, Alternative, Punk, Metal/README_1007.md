@@ -1,3 +1,32 @@
+###  Публикация: 1593053   (181792) от 25.11.2022
+
+Candlemass - Sweet Evil Sun (2022) [FLAC|Lossless|image + .cue] <Epic Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wizard Of The Vortex 6:02
+02. Sweet Evil Sun 3:40
+03. Angel Battle 6:29
+04. Black Butterfly 5:46(   Читать дальше...   )Жанр: Epic Doom MetalПродолжительность: 00:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C26AD9950F5BF5FADBBB79ED51250102E42BF007
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1592776   (181767) от 25.11.2022
 
 Asia - Alpha (1983) Japanese Edition, Reissue, 2022, Universal [FLAC|Lossless|image + .cue] <Progressive Rock>
@@ -6,7 +35,7 @@ Asia - Alpha (1983) Japanese Edition, Reissue, 2022, Universal [FLAC|Lossless|im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181767.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Nickelback - Get Rollin' (2022) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181747.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ XYZ - XYZ (1989) Japanese Edition, Reissue, 1990, Enigma Records [FLAC|Lossless|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181723.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Daisy George - see me now (2022) [FLAC 2.0|44/24|tracks|WEB-DL] <Alternative & I
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181719.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Withering Surface - Meet Your Maker (2020) Japanese Edition [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181715.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181695.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Endseeker - Corrosive Revelation (2015) EP [FLAC|Lossless|image + .cue] <Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181643.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Bear - Vanta (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Groove Metal, Ma
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181637.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Create Illusions - Illusion I (2023) [FLAC|Lossless|WEB-DL|tracks] <Italy Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181631.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Ataraxie - Slow Transcending Agony (2005) [FLAC|Lossless|image + .cue] <Funeral 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181606.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Destabilizer - Violence Is The Answer! (2023) [FLAC|Lossless|WEB-DL|tracks] <Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181597.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Loudblast - Manifesto (2020) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181593.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Coal and Steel - Miners for Real (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181591.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ B.O.W - Chasing Shadows (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181560.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Giant Rev - Shine (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, Prog Relat
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181534.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ M-Opus - Origins (2020) 2xCD [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181523.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Nikki Stringfield - Apocrypha (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181517.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Mystery - Caught In The Whirlwind Of Time (2020) Live [FLAC|Lossless|WEB-DL|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181510.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Anthrax - Persistence Of Time (1990) Reissue, Remastered, 2CD , 2020, Island Rec
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181508.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Nomy - Stay (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Modern Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_181502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_181502.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Volbeat - Rewind, Replay, Rebound (2020) Live in Deutschland [FLAC|Lossless|WEB-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181501.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Dust - 2 albums, 3 CD (1971-2013) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181498.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Collapse Under The Empire - Recurring (2023) [FLAC|Lossless|WEB-DL|tracks] <Post
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181493.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ John Lennon - TRUTH. (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181490.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181456.jpg" />
 </div>
 
 
@@ -718,35 +747,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE22DD7751CC6640124F73356E18AC84C95C2876
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665441   (181453) от 01.10.2023
-
-The Jeffrey Lee Pierce Sessions Project - The Task Has Overwhelmed Us (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Neofolk, Post-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mother of Earth [00:03:25]
-02. La La Los Angeles [00:02:36]
-03. Yellow Eyes [00:05:55]
-04. Debbie by the Christmas Tree [00:02:15](   Читать дальше...   )Жанр: Psychedelic Rock, Neofolk, Post-PunkПродолжительность: 01:19:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDA85D47638BBDC140B8DCBBE0C1093C6646D706
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Stevie Wonder - World Ballads Collection (1999) [MP3|320 кб/с]<Pop, Soul, Jaz
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80156.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ Mylene Farmer - Du Temps Remixes (CDM) (2012) [MP3|320 кб/с]<Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78124.jpg" />
 </div>
 
 
@@ -71,7 +71,7 @@ VA - Nipper's Greatest Hits - The 60's Volume 2 (1988) [OGG Vorbis|480 Kbps] <Ro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71781.jpg" />
 </div>
 
 
@@ -100,7 +100,7 @@ VA - Dance Classics Gold 3 (1992) 2 CD [MP3|320 Kbps] <Electronic,  Hip Hop, Fun
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71502.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ VA - Dance Classics Gold 2 (1991) 2 CD [OGG Vorbis|480 Kbps] <Electronic,  Hip H
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71493.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ VA - Dance Classics Gold 3 (1992) 2 CD [OGG Vorbis|480 Kbps] <Electronic,  Hip H
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71487.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ VA - Dance Classics Gold 2 (1991) 2 CD [MP3|320 Kbps] <Electronic,  Hip Hop, Fun
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71476.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ VA - Dance Classics Gold 4 (1993) 2 CD [OGG Vorbis|480 Kbps] <Electronic,  Hip H
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71445.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ VA - Dance Classics Gold 4 (1993) 2 CD [MP3|320 Kbps] <Electronic,  Hip Hop, Fun
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71434.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ VA - Dance Classics Vol. 3 (1988) Reissue, 2000, Roadrunner Arcade Music [MP3|32
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71427.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Dance Classics Vol. 4 (1988) Reissue, 2000, Roadrunner Arcade Music [MP3|32
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71426.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ VA - Dance Classics Vol. 1 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71420.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ VA - Dance Classics Vol. 2 (1988) Reissue, 2000, Roadrunner Arcade Music [MP3|32
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71419.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ VA - Dance Classics Vol. 1 (1988) Reissue, 2000, Roadrunner Arcade Music [MP3|32
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71415.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ VA - Dance Classics Vol. 3 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71408.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ VA - Dance Classics Vol. 2 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71406.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ VA - Dance Classics Vol. 5 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71376.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ VA - Dance Classics Vol. 4 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71374.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ VA - Dance Classics Vol. 5 (1988) Reissue, 2000, Roadrunner Arcade Music [MP3|32
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71371.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ VA - Italo Strikes Back (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro Hous
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71225.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ VA - Italo Strikes Back (1997) [MP3|320 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71175.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ VA - Italo Strikes Back Vol. 2 (1998) 2 CD [MP3|320 Kbps] <Electronic, Pop, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71164.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ VA - Billboard Top Hits 1977 (1991) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Rock,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70567.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ VA - Billboard Top Hits 1978 (1991) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Rock,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70540.jpg" />
 </div>
 
 
@@ -709,7 +709,7 @@ VA - Modern 80's - The Best Of Discopop Vol.4 (1999) 2 CD [OGG Vorbis|480 Kbps] 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70111.jpg" />
 </div>
 
 
@@ -738,7 +738,7 @@ VA - Top Hits Only Vol. 9 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodan
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70033.jpg" />
 </div>
 
 

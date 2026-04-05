@@ -1,3 +1,57 @@
+###  Публикация: 928139   (523238) от 15.08.2015
+
+Подшивка журналов | Пионер [12 номеров] (1961) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Журналы для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523238.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Пионер» - ежемесячный литературно-художественный и общественно-политический журнал ЦК ВЛКСМ и Центрального совета Всесоюзной пионерской организации имени В. И. Ленина для пионеров и школьников.
+
+«Пионер» имел постоянные разделы школьной и пионерской жизни, публицистики, науки и техники, искусства, спорта, детского художественного творчества. Журнал организовывал (   Читать дальше...   )Жанр: Журналы для детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C215D55D2083EB25B1D35B0EA7DD2676DDDD31A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918974   (523049) от 15.08.2015
+
+В.В. Казаков | Наглядная геометрия. 8 класс (2012) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная книга является активным приложением к действующим учебным пособиям для 8 класса. Она позволяет быстро обобщить, систематизировать учебный материал и при желании изучить его с опережением программы. Материал глав сопровождается опорным конспектом с контрольными вопросами, ответами на них и набором задач на готовых чертежах, имеющих параллельную двухвариантную (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A49475A9B933911FD9D556F4E6144D19305E8976
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1313663   (522972) от 10.07.2019
 
 Олег Дрожжин | Разумные машины (1935) [PDF]
@@ -6,7 +60,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522972.jpg" />
 </div>
 
 
@@ -34,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522958.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522928.jpg" />
 </div>
 
 
@@ -88,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522909.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522867.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522552.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522543.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522401.jpg" />
 </div>
 
 
@@ -218,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522294.jpg" />
 </div>
 
 
@@ -244,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522268.jpg" />
 </div>
 
 
@@ -271,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522153.jpg" />
 </div>
 
 
@@ -297,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522077.jpg" />
 </div>
 
 
@@ -323,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521762.jpg" />
 </div>
 
 
@@ -349,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521698.jpg" />
 </div>
 
 
@@ -376,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521697.jpg" />
 </div>
 
 
@@ -404,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521559.jpg" />
 </div>
 
 
@@ -430,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521487.jpg" />
 </div>
 
 
@@ -456,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521481.jpg" />
 </div>
 
 
@@ -482,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521464.jpg" />
 </div>
 
 
@@ -508,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521421.jpg" />
 </div>
 
 
@@ -535,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521420.jpg" />
 </div>
 
 
@@ -561,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521381.jpg" />
 </div>
 
 
@@ -587,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521350.jpg" />
 </div>
 
 
@@ -613,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521325.jpg" />
 </div>
 
 
@@ -624,60 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E85BAF618AECC0380A5D03373D8D5A7A5E33C1A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314157   (521199) от 12.07.2019
-
-С. Маршак и др. | Детям. Сказки, стихи и рассказы (1937) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стихи. Сказки. Редкая книга. Сказки советских писателей.Жанр: Детская проза, Стихи, Сказки.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB54AF8EFDB88E293401AC416F6C2BC377B4F958
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928982   (520638) от 18.08.2015
-
-Гюс Кейер | Книга всех вещей (2015) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девятилетний Томас часто видит то, чего не видят другие – тропических рыбок в городских каналах, необыкновенную красоту Элизы, девушки с кожаной ногой. Доброту старушки-соседки, которую все считают ведьмой. И Иисуса, который частенько приходит к Томасу поболтать. Но кроме этого, он видит, как отец бьет мать, и даже Иисус здесь бессилен.
-
-И только благодаря друзьям (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:630F8EF772362DE228D8E78B456664BABC765E66
 ```
 
 https://mybot314.ru/tekegram_catalog/

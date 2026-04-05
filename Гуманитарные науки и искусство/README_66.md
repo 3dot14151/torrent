@@ -1,83 +1,3 @@
-###  Публикация: 1151939   (568858) от 21.07.2017
-
-Э. Я. Брегеля (ред.) | Критика буржуазных и реформистских экономических теорий (1969) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поскольку данная книга предназначена служить пособием по политической экономии, а не по истории экономических учений, в ней не ставилась задача подробно прослеживать историческое развитие каждой буржуазной теории. Поэтому, рассматривая ту или иную теорию, авторы ограничивались краткими указаниями на ее родоначальников, а затем сосредоточивали внимание на критике (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC77F419328FA7B0EA4D5ABB1BB57C31D7EFD8C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151938   (568836) от 21.07.2017
-
-М. С. Роговин (сост.) | Современная буржуазная военная психология (1964) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Статьи, представленные в сборнике, рассматривают задачи, формы и методы работы буржуазных военных психологов по подготовке личного состава вооруженных сил главных империалистических стран к агрессивным воинам. Они знакомят читателя с практикой отбора и изучения личного состава, основными способами применения положении военной психологии в процессе боевой подготовки (   Читать дальше...   )Жанр: История, политология, психологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2E3FC32FD076D90DAF5BF1C52D7A2067C137E6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151581   (568561) от 21.07.2017
-
-Светлана Филатова | Специальная методика чтения лиц и эмоций (2017) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568561.jpg" />
-</div>
-
-
-###  Подробнее
-
-В чем причина удачи? Откуда берутся везунчики, у которых и бизнес ладится, и в семье все отлично, и отношения с людьми на высоте? О таких людях принято говорить, что их не подводит чутье, что их ведет интуиция.
-
- Но есть беспроигрышный способ развить в себе интуицию и чутье прямо сейчас. Научиться основам физиогномики – науки чтения по лицам. Для тех, кто умеет обнаружить (   Читать дальше...   )Жанр: ПсиходиагностикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7F6F9F9C53CFC5032C61D4B7D29F2EBF165C74D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 922286   (568355) от 29.07.2015
 
 Л. А. Маркова | Наука. История и историография ХIХ-ХХ вв. (1987) [PDF]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568355.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568351.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568221.jpg" />
 </div>
 
 
@@ -166,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568116.jpg" />
 </div>
 
 
@@ -192,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567335.jpg" />
 </div>
 
 
@@ -220,7 +140,7 @@ J.A.S. Grenville | A History of the World: From the 20th to the 21st Century (20
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567281.jpg" />
 </div>
 
 
@@ -246,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567280.jpg" />
 </div>
 
 
@@ -272,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567260.jpg" />
 </div>
 
 
@@ -300,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566959.jpg" />
 </div>
 
 
@@ -326,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566617.jpg" />
 </div>
 
 
@@ -352,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565557.jpg" />
 </div>
 
 
@@ -380,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564196.jpg" />
 </div>
 
 
@@ -406,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564195.jpg" />
 </div>
 
 
@@ -434,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564188.jpg" />
 </div>
 
 
@@ -460,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564088.jpg" />
 </div>
 
 
@@ -486,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563982.jpg" />
 </div>
 
 
@@ -512,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563739.jpg" />
 </div>
 
 
@@ -538,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563732.jpg" />
 </div>
 
 
@@ -564,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562850.jpg" />
 </div>
 
 
@@ -590,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562848.jpg" />
 </div>
 
 
@@ -616,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562637.jpg" />
 </div>
 
 
@@ -642,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561314.jpg" />
 </div>
 
 
@@ -668,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561040.jpg" />
 </div>
 
 
@@ -679,6 +599,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9388446767E7055E9D5F6B3B65354108A1D0A66C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923973   (561038) от 02.08.2015
+
+В. П. Трофимов | «Технологический детерминизм» и общественный прогресс (1972) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561038.jpg" />
+</div>
+
+
+###  Подробнее
+
+В современной идеологической борьбе значительное место в стане убежденных противников марксизма-ленинизма и его философии занимает французский представитель западной философии и социологии Раймон Арон. В целом концепцию «технологического детерминизма» Р. Арона можно охарактеризовать как одно из проявлений пессимистических, антипрогрессивистских тенденций в современной (   Читать дальше...   )Жанр: История, политология, социология, философияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00631606A5D4C876A13C9F24D029A2C9E250EC44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045378   (559957) от 23.08.2016
+
+В. И. Гараджа | В. И. Ленин и критика современного фидеизма (1970) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559957.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Упразднение религии, как иллюзорного счастья народа, есть требование его действительного счастья. Требование отказа от иллюзий о своем положении есть требование отказа от такого положения, которое нуждается в иллюзиях. Критика религии есть, следовательно, в зародыше критика той юдоли плача, священным ореолом которой является религия. ...Критика неба превращается, (   Читать дальше...   )Жанр: История, философия, науковедениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92CE77F2404E8171E43DD8206D04F2B5911B90D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045377   (559680) от 23.08.2016
+
+А. Н. Чанышев | Эгейская предфилософия (1970) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кандидат философских наук Чанышев Арсений Николаевич в предлагаемой вниманию читателя работе показывает идеологические, научные, мировоззренческие и социальные предпосылки возникновения античной философии. По существу эта работа является введением в курс античной философии.
+
+Книгу с пользой для себя прочтут все, кто интересуется историей философии.Жанр: История, философия, мифология, науковедениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7372808A37059948128B697ACDAF4F395DB1913E
 ```
 
 https://mybot314.ru/tekegram_catalog/

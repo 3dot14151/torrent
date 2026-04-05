@@ -1,3 +1,59 @@
+###  Публикация: 1362740   (942647) от 28.02.2020
+
+VA - Dj Бинокль - Housemission II (PlayOff) (2004) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tooth-Paste Vol.2 - Play Off (4:02)
+02. D. Ramirez Feat. Pete Simpson - Freaque On (Seamus Haji Remix) (7:04)
+03. Candy Dulfer - Let Me Show You (G Men Investigate On The Dub) (6:17)
+04. Main Ingredients (2)	Lean On Me (Piano Dub) (4:35)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:17:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D60CB863EB2B83C4A2E8C1E0A45566EBF4897B98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362711   (942637) от 28.02.2020
+
+Dj Бинокль - Dnepro House (2001) [MP3|320 Kbps] <House, Euro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942637.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Play House Some More! (29:33)
+2. And Now It`s Time (30:04)Жанр: House, Euro HouseПродолжительность: 00:59:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E178781592486C9B50CC8CCD6913B91639E106A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362733   (942627) от 28.02.2020
 
 VA - Dj Бинокль - Love and Tears (2003) [MP3|320 Kbps] <House>
@@ -6,7 +62,7 @@ VA - Dj Бинокль - Love and Tears (2003) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942627.jpg" />
 </div>
 
 
@@ -35,7 +91,7 @@ Dj Бинокль - Housemission (2000) [MP3|320 Kbps] <House, Speed Garage, Pro
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942617.jpg" />
 </div>
 
 
@@ -62,7 +118,7 @@ Cold Blue - Live @ Crystal Forest Medellin, Colombia 2020-02-22 [MP3|256 Kbps] <
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942610.jpg" />
 </div>
 
 
@@ -91,7 +147,7 @@ Tim Dash - Afterlight 001 (2020) [FLAC|Lossless|image + .cue] <Deep Techno, Prog
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942601.jpg" />
 </div>
 
 
@@ -120,7 +176,7 @@ Omar S - You Want (2020) [FLAC|Lossless|tracks + .cue] <House, Deep House, Techn
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942597.jpg" />
 </div>
 
 
@@ -149,7 +205,7 @@ VA - Dj Бинокль - Fucking Society (2002) [MP3|320 Kbps] <House, Euro Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942542.jpg" />
 </div>
 
 
@@ -178,7 +234,7 @@ Aurosonic - Etyology Sessions 001-193(Обновляемая) (2007-2016) [MP3|3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942495.jpg" />
 </div>
 
 
@@ -207,7 +263,7 @@ Wrangler - A Situation (2020) [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942484.jpg" />
 </div>
 
 
@@ -236,7 +292,7 @@ VA - DJ Tapolsky - Lomka (2001) [MP3|192 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942416.jpg" />
 </div>
 
 
@@ -265,7 +321,7 @@ DJ Tapolsky - Free My Soul Mix (2009) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942412.jpg" />
 </div>
 
 
@@ -291,7 +347,7 @@ VA - DJ Tapolsky - Drama (2003) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942313.jpg" />
 </div>
 
 
@@ -320,7 +376,7 @@ Propellerheads - Star Profile (2000) [MP3|320 Kbps] <Techno, Big Beat, Acid Jazz
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942228.jpg" />
 </div>
 
 
@@ -349,7 +405,7 @@ Scooter - 24 Carat Gold (2002) [MP3|320 Kbps] <Happy Hardcore, Techno, Jampstyle
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942140.jpg" />
 </div>
 
 
@@ -378,7 +434,7 @@ Ultravox - Systems Of Romance (1978) [FLAC|Lossless|image + .cue] <Synthpop, New
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942122.jpg" />
 </div>
 
 
@@ -407,7 +463,7 @@ Ultravox - Vienna (1980) [FLAC|Lossless|image + .cue] <Synthpop, New Wave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942047.jpg" />
 </div>
 
 
@@ -436,7 +492,7 @@ cv313 (c v 3 1 3, CV313) - Discography 44 Releases (2007-2020) echospace [detroi
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941991.jpg" />
 </div>
 
 
@@ -465,7 +521,7 @@ VA - Best Remixes, Vol. 2 (2014) [FLAC|Lossless|WEB-DL|tracks] <Progressive Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941890.jpg" />
 </div>
 
 
@@ -494,7 +550,7 @@ VA - Best Remixes, Vol. 1 (2014) [FLAC|Lossless|WEB-DL|tracks] <Progressive Tran
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941888.jpg" />
 </div>
 
 
@@ -523,7 +579,7 @@ VA - Best Remixes, Vol. 3 (2014) [FLAC|Lossless|WEB-DL|tracks] <House, Deep Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941886.jpg" />
 </div>
 
 
@@ -552,7 +608,7 @@ Erasure - Hits! The Very Best of Erasure (2007) 2CD, DVD [FLAC|Lossless|tracks +
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941784.jpg" />
 </div>
 
 
@@ -581,7 +637,7 @@ VA - New Metropolitan Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941767.jpg" />
 </div>
 
 
@@ -610,7 +666,7 @@ VA - Freaky Lounge Vol. 1 (Cool Grooves & Relaxed Sounds) (2017) [MP3|320 Kbps] 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941764.jpg" />
 </div>
 
 
@@ -639,7 +695,7 @@ VA - Chillout Metropolitan Life (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtem
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941761.jpg" />
 </div>
 
 
@@ -668,7 +724,7 @@ VA - Lemongrassmusic In The Mix: Ethnosphere 2 (Mixed by Jasmon) (2017) [MP3|320
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941757.jpg" />
 </div>
 
 
@@ -682,64 +738,6 @@ VA - Lemongrassmusic In The Mix: Ethnosphere 2 (Mixed by Jasmon) (2017) [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:572C883340110C5F21AE99D61FFFFF33F80AEB70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091980   (941663) от 10.01.2017
-
-VA - Best Of Trancer 2016 (Mixed by Nick Turner) (2017) [FLAC|Lossless|WEB|tracks|image] <Uplifting Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Etasonic - Desire Of My Heart (8:59)
-02. Kir Tender - Always Alive (George Crusher Remix) (8:08)
-03. Alex Shevchenko & Blue Moon - Ivory Tower (Chronosapien Remix) (7:18)
-04. Syntouch & Alternate High - Hidden Loneliness (6:38)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:14:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:616A3C525F77841759CF974D48F91754C4CD8C71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091762   (941661) от 10.01.2017
-
-VA - The Snowboarders Syndicate Of Chillout (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dr. Mondial - Missing You (Chillout Extended Edit)  4:19
-02.  Susy Seven - Come With Me  7:00
-03.  Sternenton - Lift Into The Sky  5:34
-04.  Time Away - Mnemba Reef  5:54(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 03:08:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:484C65C20CFB4530D067062794CF1A4FC3EBCA27
 ```
 
 https://mybot314.ru/tekegram_catalog/

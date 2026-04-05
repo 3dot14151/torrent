@@ -1,3 +1,119 @@
+###  Публикация: 1179629   (346586) от 01.11.2017
+
+VA - Infusion Vol. 3 (2017) [MP3|320 Kbps] <bass, downtempo, dubstep>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dissolv - Redwood Rising (04:51)
+02. AHEE x Frank Royal - Lose My Mind feat. Ash Tree (04:27)
+03. Ian Stewart & Jackson Whalan - Rap City in Da Nile (feat. Mr. Lif) (04:08)
+04. Chamberlain - Desert Horizon (05:36)(   Читать дальше...   )Жанр: bass, downtempo, dubstepПродолжительность: 00:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DF0C07D7DAF6E2C31E7EBE2DC4B656AEEBF7530
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073400   (345861) от 16.11.2016
+
+VA - Drumma Society Vol.3 (2016) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexkid - Fifteen-O-Five (Original Mix) (6:42)
+02. Astelaguel (Manglus - Candombe Jaus (Original Mix) (7:46)
+03. Bendejo - Modi (Original Mix) (7:32)
+04. Bruno Schiavi - Stratit (Original Mix) (7:20)(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:23:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5443BBE8E03803AA24E1F15D4AD171F665A793EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073403   (345854) от 16.11.2016
+
+VA - Deep Escapades Vol.1 (2016) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boogeyman - Guitarliscious
+02. Mr. Groove - Mouraria
+03. Miguel Alcobia - Who Am I
+04. Gorillag - Last Night - Extended Mix(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:28:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:992CD172EDCDA751C436311FB0309071235A86CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578545   (345833) от 23.09.2022
+
+VA - Black Hole Trance Music 09-22 (2022) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emma Hewitt & Markus Schulz - INTO MY ARMS (Extended Mix) [6:12]
+02. BT - Paper Chairs (Alex Sonata & TheRio Extended Remix) [6:39]
+03. Richard Durand & Susana - I Matter to You (XiJaro & Pitch Extended Remix) [8:10]
+04. Dennis Sheperd & Brandon Le - Intouchable (Extended Mix) [7:22](   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:45:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69AC2DB5581D61342D47712EED86506F1530D1B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1256866   (345807) от 26.10.2018
 
 DJ Бинокль - Progressive Trance Vol.2 (2003) [MP3|256 Kbps] <Progressive Trance>
@@ -6,7 +122,7 @@ DJ Бинокль - Progressive Trance Vol.2 (2003) [MP3|256 Kbps] <Progressive 
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345807.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - After Summer (2018) [MP3|320 Kbps] <House, Deep House, Progressive>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345805.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Markus Schulz - Global DJ Broadcast - Afterdark (2018) [MP3|320 Kbps] <Tran
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345800.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Amsterdam After Disco Vol.2 (2018) [MP3|320 Kbps] <House, Funky, Groove, Cl
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345798.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Halloween 2018 (Best Of Dance, EDM, House & Electro) [MP3|320 Kbps] <Progre
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345794.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Ahmad - Under The Dust (2019) Tech Cycle [FLAC|Lossless|WEB-DL|tracks] <Techno, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345745.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Sion Rae - Everlast (2019) Single [FLAC|Lossless|WEB-DL|tracks] <Trance, Uplifti
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345744.jpg" />
 </div>
 
 
@@ -206,7 +322,7 @@ Hill & Wiltschinsky Guitar Duo - Lover's Guitar (1995) Compilation [FLAC|Lossles
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345743.jpg" />
 </div>
 
 
@@ -235,7 +351,7 @@ Sion Rae - Everlast (2019) Single [MP3|320 Kbps] <Trance, Uplifting>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345742.jpg" />
 </div>
 
 
@@ -261,7 +377,7 @@ Kattoo - Discography 5 Releases (2004-2013) Hymen Records, Jungle.clan.ag [FLAC|
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345701.jpg" />
 </div>
 
 
@@ -290,7 +406,7 @@ Blank & Jones - Relax Edition 14 (2022) [FLAC|Lossless|WEB-DL|tracks] <Electroni
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345687.jpg" />
 </div>
 
 
@@ -319,7 +435,7 @@ Koan - Insidious (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Downtempo, Am
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345647.jpg" />
 </div>
 
 
@@ -348,7 +464,7 @@ Scandroid - Scandroid (2016) FIXT Music [FLAC|Lossless|WEB-DL|tracks] <Electroni
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345641.jpg" />
 </div>
 
 
@@ -377,7 +493,7 @@ Scandroid - Dreams In Monochrome (2018) FIXT Music [FLAC|Lossless|WEB-DL|tracks]
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345492.jpg" />
 </div>
 
 
@@ -406,7 +522,7 @@ VA - Techno Club Vol.55 (Mixed By Talla 2xlc & Arctic Moon)(2CD) (2018) [MP3|320
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345178.jpg" />
 </div>
 
 
@@ -435,7 +551,7 @@ Lucky Sun - Olive Street (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344690.jpg" />
 </div>
 
 
@@ -464,7 +580,7 @@ Raphaelle Fanti - Insomniac (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344686.jpg" />
 </div>
 
 
@@ -493,7 +609,7 @@ VA - Best Of Trance (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344562.jpg" />
 </div>
 
 
@@ -522,7 +638,7 @@ VA - XXXd Generation (2000) Unit [FLAC|Lossless|WEB-DL|tracks] <Breakbeat, IDM, 
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344547.jpg" />
 </div>
 
 
@@ -551,7 +667,7 @@ VA - Workout Mix 2021 (2020) [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344427.jpg" />
 </div>
 
 
@@ -580,7 +696,7 @@ VA - Melodic Deep House Autumn '20 (2020) [MP3|320 Kbps] <Prorgessive-House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344423.jpg" />
 </div>
 
 
@@ -609,7 +725,7 @@ VA - Die 2010er Club Classics (2018) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343448.jpg" />
 </div>
 
 
@@ -623,122 +739,6 @@ VA - Die 2010er Club Classics (2018) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B85E5506FD582BFD7245566129A9A0107FA31D0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257669   (343434) от 27.10.2018
-
-Ametsub - Discography 7 Releases (2006-2017) [FLAC|Lossless|tracks+.cue, tracks] <Glitch, IDM, Downtempo, Future Jazz, Experimental, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mbr / Northbound (06:00)
- 02. Mbr / Mbirambient (05:45)
- 03. Mbr / Ajisai (05:39)
- 04. From The Mountain (06:34)(   Читать дальше...   )Жанр: IDM/Downtempo/AmbientПродолжительность: 00:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6E997E98D7E765D9E70824C34C81811C352A34B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257613   (343305) от 27.10.2018
-
-S:cage - Discography 2 Albums (2004-2006) Ant-Zen [FLAC|Lossless|tracks+.cue] <Rhythmic Noise, Industrial, Ambient>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Madness (13:38)
- 02. Vapour (06:05)
- 03. Collapsing Breath (06:10)
- 04. Gone (Undone) (05:37)(   Читать дальше...   )Тип издания: CD •Жанр: Rhythmic Noise, Industrial, Ambient •Продолжительность: 01:06:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D212C8BCF4DAF060BBB5D2AF80339B6704804908
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257623   (343299) от 27.10.2018
-
-end.user - Resurface (2018) Hands Productions [FLAC|Lossless|WEB-DL|tracks] <Drum n Bass, Breakcore>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Resurface (05:02)
- 02. A Bell In Hell (04:32)
- 03. A Familiar Face (03:57)
- 04. Rotation (feat. 2methyl) (04:27)(   Читать дальше...   )Жанр: Drum n Bass, BreakcoreПродолжительность: 00:30:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:916F958E5C1324EB65E80B37278E51D85A98706C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073432   (343221) от 17.11.2016
-
-VA - Deep House Edition #003 (2016) [MP3|320 Kbps] <Deep House, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Damon Grey (Aka Lucas Reyes) - Don't Stop
-02. Dario Leone - Waiting for Tonight
-03. Gray - Falling Deeper
-04. Jaques Le Noir - Conger(   Читать дальше...   )Жанр: Deep House, Club HouseПродолжительность: 01:32:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08A084415864BAE50A7AD5476C5A2253A3A4965D
 ```
 
 https://mybot314.ru/tekegram_catalog/

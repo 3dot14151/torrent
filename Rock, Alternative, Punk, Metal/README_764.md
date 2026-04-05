@@ -1,3 +1,32 @@
+###  Публикация: 1334226   (296746) от 28.10.2019
+
+Joe Bonamassa - Live At The Sydney Opera House (2019) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Train (08:25)
+02. Mountain Climbing (06:21)
+03. Drive (07:27)
+04. Love Ain't A Love Song (10:34)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:13:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10C21E38BFC2BB03A0A44F01562EFC3756B5AA67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1334228   (296737) от 28.10.2019
 
 Rockets - Wonderland (2019) [FLAC|Lossless|tracks + .cue] <Space Rock, Synth-pop>
@@ -6,7 +35,7 @@ Rockets - Wonderland (2019) [FLAC|Lossless|tracks + .cue] <Space Rock, Synth-pop
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296737.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296717.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296713.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296664.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296658.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296641.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Coldplay - A Head Full of Dreams (2015) [MP3|320 кб/с]<Pop Rock, Indie Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296550.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Neo Geo - Self-Titled (2011) [MP3|320 kbps]<Alternative, Electronic, Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296430.jpg" />
 </div>
 
 
@@ -244,7 +273,7 @@ Merryweather & Carey - Vacuum Cleaner (1971) 2016, Retro Disc International Reco
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296399.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ Crisix - From Blue To Black (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296398.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ D Sound - Balkan (2004) [FLAC|Lossless|image + .cue]<Progressive Rock, Space Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296244.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ Wayd - Ghostwalk (2007) [FLAC|Lossless|image + .cue] <Prog Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296172.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ World Of Silence - Window Of Heaven (1996) [FLAC|Lossless|image + .cue] <Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296168.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ Virgin Snatch - Act Of Grace (2008) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296163.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ Sara Lee - Queen Of Your Heart (2016) [MP3|320 Kbps] <Rockabilly>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296133.jpg" />
 </div>
 
 
@@ -447,7 +476,7 @@ Mike Sanchez & His Band Feat. Imelda May - Almost Grown (2012) [MP3|320 Kbps] <R
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296132.jpg" />
 </div>
 
 
@@ -476,7 +505,7 @@ VA - Панк рок версии детских песен (2003) [MP3|192-320 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296101.jpg" />
 </div>
 
 
@@ -511,7 +540,7 @@ Sombre Holiday - The Failed Sun (2020) [MP3|320 Kbps] <Progressive Metal, Heavy 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296029.jpg" />
 </div>
 
 
@@ -540,7 +569,7 @@ Cro-Mags - In The Beginning (2020) [FLAC|Lossless|image + .cue] <Hardcore, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296025.jpg" />
 </div>
 
 
@@ -569,7 +598,7 @@ Wolf Spider - Hue Of Evil (1991) (2009 remaster) [FLAC|Lossless|image + .cue] <T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296024.jpg" />
 </div>
 
 
@@ -598,7 +627,7 @@ Grumblewood - Stories of Strangers (2020) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296018.jpg" />
 </div>
 
 
@@ -627,7 +656,7 @@ Dark Sarah - The Puzzle (2016) [FLAC|Lossless|image + .cue] <Symphonic, Power, N
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295996.jpg" />
 </div>
 
 
@@ -656,7 +685,7 @@ Boneyard Dog - Bluesbound Train (2016) [FLAC|Lossless|WEB-DL|tracks] <Rock, Blue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295991.jpg" />
 </div>
 
 
@@ -685,7 +714,7 @@ Imelda May - Love Tattoo (2008) [MP3|320 Kbps] <Rockabilly, Jump Blues>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295989.jpg" />
 </div>
 
 
@@ -714,7 +743,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295940.jpg" />
 </div>
 
 
@@ -728,35 +757,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8E3B8F084D2388E97C8DD0F0D0A4A3A42B0492B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424114   (295928) от 15.11.2020
-
-Darwin - Darwin 2: A Frozen War (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nightmare of My Dreams
-02. Future History
-03. Eternal Life
-04. A Frozen War(   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalПродолжительность: 00:31:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DA68C450E4E78A5CA4641E60ED578E9E9CE4DC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

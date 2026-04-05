@@ -1,3 +1,162 @@
+###  Публикация: 103436   (187223) от 19.09.2023
+
+Долгий путь на юг / Long Way Down (2007) TVRip (серии 1-10 из 10)
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три месяца продолжался мотопробег героя "Звездных войн" и посла доброй воли ЮНИСЕФ актера Юэна Макгрегора.
+"Почетный джедай" Великобритании пытался привлечь внимание к проблемам детей, живущих на африканском континенте. Благотворительная акция со звучным названием Long Way Down ("Долгая дорога на юг") стартовала в Шотландии в мае 2007 (   Читать дальше...   )Производство: Великобритания, Big Earth, Elixir FilmsЖанр: документальный, реальное ТВ, приключенияРежиссер: Дэвид Алексаниан, Расс МалкинУчастники: Юэн Макгрегор, Чарли Бурмен, Дэвид Алексаниан, Расс Малкин, Джеймс Саймак, Ив Мавракис, Клаудио фон Планта, Даи Джонс, Джим Фостер, Нури ЛаминПеревод: ОдноголосыйЯзык озвучки: РусскийПродолжительность: ~00:47:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AE736DDFBE656A0BBA567A8A79F9AC5BC23F6B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591443   (187111) от 18.11.2022
+
+Азия взгляд с высоты / Aerial Asia (2017) WEB-DL [H.264/1080p] (сезон 1, серии 1-4 из 4)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187111.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот захватывающий сериал, снятый с воздуха, отправляет зрителя в невероятное путешествие по загадочной Азии. Вы увидите огромное разнообразие ландшафтов, древние города, огромные мегаполисы и будете поражены современными технологиями, изменившими жизнь этих стран. От красивой, пропитанной благоуханием цветов Индии, до коралловых садов и устрашающих вулканов Индонезии, (   Читать дальше...   )Производство: Сингапур, TVF International, Beach House Pictures, Media Development AuthorityЖанр: документальный, познавательный, природа, путешествияРежиссер: Донован ЧанПеревод: дублированный (Видео Продакшн XXI век)Субтитры: отсутствуютПродолжительность: серии x ~00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4130EE3737B1C1B8F4347E063C89CAFAB31B423C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663133   (187080) от 20.09.2023
+
+Тутанхамон: последняя выставка / Tutankhamun: The Last Exhibition (2022) HDTVRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187080.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм об истории открытия гробницы Тутанхамона в 1922 году и подготовке выставки Тутанхамона, открытой в Лос-Анджелесе в 2019 году.Производство: Италия / Laboratoriorosso, Nexo DigitalЖанр: документальный, историяРежиссер: Ernesto PaganoПеревод: Одноголосый профессиональный (Iyuno)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:17:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB9B3665703FFD3354585A045625C7860C46134E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591630   (186918) от 19.11.2022
+
+Пятеро на одного (19.11.2022) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:620DE065C91BDB7356674FC6CE51167B045828EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591723   (186912) от 19.11.2022
+
+Живая еда с Сергеем Малозёмовым (19.11.2022) SATRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идеальный завтрак – как приготовить его по науке? И что необычное едят по утрам в разных странах? Как регулярный отказ от завтрака влияет на вес и самочувствие? Что полезнее по утрам – яйца или каши? Стоит ли есть перед тренировкой? И как, не жертвуя сном, быстро приготовить что-то вкусное?
+
+Соевый соус – неприглядная правда о его производстве. На что в составе надо (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8A1F8F6CEE9A79222D6DFF5D63B74FD92DA721B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591620   (186903) от 19.11.2022
+
+Прямиком из Лос-Анджелеса / LA Originals (2020) WEBRip [H.264/1080p] [DVO]
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186903.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм поведает историю творческого тандема фотографа Эстевана Ориола и художника-татуировщика Мистера Картуна, которые внесли огромный вклад в культуру стрит-арта, чикано и хип-хопа.Производство: США, Аргентина, Underground Contenidos, NetflixЖанр: документальныйРежиссер: Эстеван ОриолПеревод: двуголосый любительский (Синема УС), двуголосый любительский (LakeFilms)Субтитры: русские (Исмаил Дибиров, Netflix), английские (forced + full)Продолжительность: 01:32:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DFB07341632F9D4084B7E2C854AD3B88879051D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1591722   (186899) от 19.11.2022
 
 Главная дорога (19.11.2022) SATRip [H.264]
@@ -6,7 +165,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186899.jpg" />
 </div>
 
 
@@ -35,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186898.jpg" />
 </div>
 
 
@@ -61,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186895.jpg" />
 </div>
 
 
@@ -87,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186882.jpg" />
 </div>
 
 
@@ -113,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186865.jpg" />
 </div>
 
 
@@ -139,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186841.jpg" />
 </div>
 
 
@@ -165,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186817.jpg" />
 </div>
 
 
@@ -191,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186722.jpg" />
 </div>
 
 
@@ -217,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186567.jpg" />
 </div>
 
 
@@ -243,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186488.jpg" />
 </div>
 
 
@@ -269,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186479.jpg" />
 </div>
 
 
@@ -295,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186466.jpg" />
 </div>
 
 
@@ -321,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186456.jpg" />
 </div>
 
 
@@ -350,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186449.jpg" />
 </div>
 
 
@@ -379,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186448.jpg" />
 </div>
 
 
@@ -405,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186438.jpg" />
 </div>
 
 
@@ -434,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186433.jpg" />
 </div>
 
 
@@ -460,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186424.jpg" />
 </div>
 
 
@@ -486,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186418.jpg" />
 </div>
 
 
@@ -513,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186392.jpg" />
 </div>
 
 
@@ -525,166 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC5194F142B4A0445646949F3C8D072A05432E88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664044   (186274) от 24.09.2023
-
-Первая передача на НТВ. Автомобильная передача (24.09.2023) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186274.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Санкт-Петербурге продолжается разбирательство по делу о резонансном происшествии с участием микроавтобуса.
-Трюк на «Ниве» на верхнем этаже недостроя.
-Особый навык вождения: покалеченная в ДТП девушка научилась водить машину без ноги.Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02BEF4556F968E77CEB98D81DF47B8DF7CB82BF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664102   (186272) от 24.09.2023
-
-Своя игра (24.09.2023) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186272.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F1B66C8294328B349BA384377E24B8B4C64EB5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664046   (186257) от 24.09.2023
-
-Чудо техники с Сергеем Малозёмовым (24.09.2023) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как нейросети помогают врачам ставить диагноз, не дают водителям заснуть за рулем и помогают создавать дизайнерам кафе, а поварам — необычные рецепты.
- О, дивный сад! Продавцы семян и саженцев обещают, что на дачном участке можно вырастить черную малину, голубую розу, белые грибы! Но какой обман во всем этом кроется? В этом выпуске «Чуда техники» команда программы (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75D3EE658FFD4582EB83EAC41A71EAEF6E7C6A66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664048   (186243) от 24.09.2023
-
-Поедем, поедим! Чечня: «Сердце матери», Кезеной-Ам и Хой, 5 видов хинкала и самая вкусная улица (23.09.2023) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Федерико Арнальди отправился в Чеченскую Республику, чтобы посмотреть и показать вам самую необычную мечеть в стиле хай-тек — «Сердце матери», побывать в старинном горном селе Хой на высоте 1800 метров над уровнем моря, совершить полет над красивейшим высокогорным озером Казеной и прогуляться по самой вкусной улице Грозного — Шашлычной, попробовать пять видов традиционного (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F99110C6DD4E289104ADBB3DA13079E56D7EC70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664009   (186235) от 24.09.2023
-
-Научные сенсации. Свет будущего (2023) HDTVRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Волшебное свечение животных и грибов называют люминесценцией. Это удивительно красивое явление миллионы лет назад изобрела её величество эволюция. А современный человек успешно приспособил люминесценцию для собственных нужд... Зачем медики охотятся за ферментами, излучающими свет? Как люминесценция помогает создавать суперсовременные экраны для смартфонов и телевизоров? (   Читать дальше...   )Производство: Россия / ООО "Единая Медиа Группа"Жанр: документальныйРежиссер: Олег ГладовЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:44:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C2A71F526516E10EC77973E300CFF98C2A072B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664010   (186232) от 24.09.2023
-
-Агитпроп. По-живому.Красный Косплей. Марина Бурик - о реакционном и революционном (18.09.2023) WEBRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186232.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что делать, если коммунистические символы приватизированы реакционерами? Пришло ли время создавать партии? В чем подвох с мирсистемным "анализом" и другими буржуазными теориями?
-Обо всем этом разговариваем с социологом, кандидатом философских наук Мариной Бурик.Производство: Россия, Авторский блог Константина Семина «Агитация и Пропаганда»Жанр: ПолитикаЯзык озвучки: РусскийСубтитры: ОтсутствуетПродолжительность: 01:30:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7975C20EB0919498E66C4267FE0EF6D0A98845D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

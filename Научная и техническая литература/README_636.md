@@ -1,133 +1,3 @@
-###  Публикация: 1775182   (29794) от 25.01.2025
-
-В.С. Шипачев | Высшая математика (1998) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29794.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изложены элементы теории множеств и вещественных чисел, числовые последовательности и теория пределов, аналитическая геометрия на плоскости и в пространстве, основы дифференциального и интегрального исчислений функций одной и нескольких переменных, элементы высшей алгебры, теория рядов и обыкновенные дифференциальные уравнения. Теоретический материал иллюстрируется (   Читать дальше...   )Жанр: МатематикаИздательство: Высшая школаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87123136295918A8EED3E48155113A5AD699F15F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775213   (29783) от 25.01.2025
-
-С.В. Тамакулова (ред.) | Инструкция по возведению землебитных фортификационных сооружений (1943) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29783.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии изложены вопросы устройства оборонительных рубежей, опорных пунктов и других укреплений. Инструкция составлена Штабом инженерных войск Красной Армии.Жанр: учебное пособиеИздательство: Управление военного издательства Народного Комиссариата ОбороныФормат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3BA701F3F46EC6F7A94654E5AE7FDC94E63F608
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775402   (29735) от 26.01.2025
-
-Дж. Хокинс, Э. Делаханти, Ф. Макдональд | Толковый словарь английского языка Oxford (2008) [PDF, DJVU] [RU, EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Словарь содержит 40 000 слов и выражений с подробной разработкой значений слов и примерами употребления в речи. Дано много полезной информации грамматического и лексического характера, много сведений из истории английского языка; знакомит словарь и с произношением трудных слов. Особое внимание уделено этимологии трудных слов, это углубляет знания изучающих английский (   Читать дальше...   )Жанр: словариЯзык: АнглийскийИздательство: Оксфорд Юниверсити Пресс, АСТ, АстрельФормат: PDF, DJVUКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC911D72461A9B6105B459033198110340AFC723
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775295   (29710) от 26.01.2025
-
-Р.А. Калнин | Курс алгебры для техникумов (1956) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая книга написана применительно к программе по математике для техникумов, утвержденной Министерством высшего образования СССР, и предназначена быть учебником для техникумов различных специальностей. Для социально-экономических техникумов включена специальная глава, посвященная элементам теории соединений. Для техникумов электротехнической и машиностроительной (   Читать дальше...   )Жанр: МатематикаИздательство: Государственное издательство технико-теоретической литературыФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30CDD09A7DF80190C26669D2637A2E2DA6D061B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775288   (29702) от 26.01.2025
-
-А.Б. Шкарин, А.М. Федянов, Б.Г. Сандлер | Алгебраические задачи в технике (1962) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящий сборник задач технического характера по отдельным вопросам алгебры, по нашему мнению, может оказать известную помощь учителям средней школы в преподавании математики. Часть задач сборника может быть использована для внеклассной и кружковой работы. При его составлении авторы стремились на конкретных примерах показать приложение элементарной математики к (   Читать дальше...   )Жанр: МатематикаИздательство: УчпедгизФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:256D0C00ABAE94024857185371283F227E0A21D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775294   (29686) от 26.01.2025
 
 Н.М. Бескин | Курс аналитической геометрии для втузов (1948) [PDF]
@@ -136,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29686.jpg" />
 </div>
 
 
@@ -162,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29681.jpg" />
 </div>
 
 
@@ -188,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29676.jpg" />
 </div>
 
 
@@ -214,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29675.jpg" />
 </div>
 
 
@@ -240,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29610.jpg" />
 </div>
 
 
@@ -266,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29580.jpg" />
 </div>
 
 
@@ -294,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29569.jpg" />
 </div>
 
 
@@ -320,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29545.jpg" />
 </div>
 
 
@@ -346,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29539.jpg" />
 </div>
 
 
@@ -372,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29527.jpg" />
 </div>
 
 
@@ -398,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29483.jpg" />
 </div>
 
 
@@ -424,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29264.jpg" />
 </div>
 
 
@@ -450,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29169.jpg" />
 </div>
 
 
@@ -476,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29114.jpg" />
 </div>
 
 
@@ -502,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29009.jpg" />
 </div>
 
 
@@ -529,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28974.jpg" />
 </div>
 
 
@@ -556,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28972.jpg" />
 </div>
 
 
@@ -582,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28905.jpg" />
 </div>
 
 
@@ -608,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28675.jpg" />
 </div>
 
 
@@ -634,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28559.jpg" />
 </div>
 
 
@@ -660,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28479.jpg" />
 </div>
 
 
@@ -671,6 +541,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A172D1A9918BF7C5A7DEECFA6EA057A67D14829D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777749   (28338) от 07.02.2025
+
+Ю.А. Урманцев (ред.) | Система. Симметрия. Гармония (1988) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28338.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге на базе ОТС Ю.А.Урманцева раскрывается практическое и теоретическое значение системного подхода для решения разнообразных философских и естественнонаучных проблем. Об этом рассказывают авторы - философы, биологи, геологи, химики, кристаллографы, физики, математики.
+Книга рассчитана на ученых - обществоведов, естествоиспытателей, аспирантов, студентов, а также (   Читать дальше...   )Жанр: Естественные наукиИздательство: МысльФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C84F7A8793B1B90ED63B7DCA973CE8DFA88F855
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778533   (28292) от 08.02.2025
+
+К. Саган | Космос (2024) [PDF]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Космос» – одна из самых продаваемых научно-популярных книг всех времен. В ней прослеживается почти четырнадцать миллиардов лет космической эволюции, превративших материю в сознание, и исследуются такие темы, как происхождение жизни, человеческий мозг, египетские иероглифы, миссии космических кораблей, смерть Солнца, эволюция галактик, а также обстоятельства и личности, (   Читать дальше...   )Жанр: История, науковедение, астрономия, астрофизика, астробиологияИздательство: Альпина нон-фикшнФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB21B267057502CCD7793521AE3F934328A691A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778537   (28253) от 08.02.2025
+
+Ю. Борхардт | Исторический материализм (1923) [DJVU] [Введение в материалистическое понимание истории]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемой популярной работой Юлиана Борхардта издательство „Буревестник“ открывает намеченную им серию популярной марксистской литературы.
+
+В конце брошюры приложены примечания и указатель литературы, по независящим обстоятельствам не просмотренные редактором перевода.Жанр: История, науковедение, политология, философияИздательство: БуревестникФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C35E1014F423B55BCBB6801AD7575B78EF4735B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779459   (27749) от 13.02.2025
+
+Ольга Москвина | Покупка квартиры на вторичном рынке (2024) [PDF, EPUB, FB2, FB3, RTF]
+
+>>Научная и техническая литература
+>>Нормативная документация
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27749.jpg" />
+</div>
+
+
+###  Подробнее
+
+После выбора квартиры и принятия решения о покупке, встает вопрос, что делать дальше. Обычно, от стадии “определился с квартирой” до стадии “подписание договора купли-продажи” проходит в среднем один месяц. И что мы делаем весь этот месяц? Знакомимся ближе с Собственником (продавцом) выбранной квартиры и конечно же проводим юридический анализ документов на квартиру, (   Читать дальше...   )Жанр: недвижимость, юриспруденция, учебное руководствоИздательство: LitresФормат: PDF, EPUB, FB2, FB3, RTFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28E0940DD1D95FE06EFBCCD0417A0434A76BA81C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779617   (27615) от 14.02.2025
+
+Гэри Шайнер | Протокол диабета. Методики, позволяющие взять заболевание под контроль (2024) [PDF, EPUB, FB2, FB3, RTF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Миллионы людей по всему миру страдают диабетом. Из смертельной болезни в прошлом он превратился в вялотекущее и планомерно разрушающее здоровье заболевание, с которым все-таки можно жить. Но, несмотря на все достижения современной медицины, врачи часто оказываются недостаточно чуткими или вовлеченными в процесс, чтобы оценить часто меняющиеся потребности в инсулине (   Читать дальше...   )Жанр: здоровье, диабетПеревод: А. УсачеваИздательство: БомбораФормат: PDF, EPUB, FB2, FB3, RTFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F067044736ADD9301C7562103C92B19F946206A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,102 @@
+###  Публикация: 162437   (504120) от 14.07.2022
+
+Brooklyn Bounce - 10 Albums + 39 Singles/Remixes (1996 - 2012) [MP3|320 kbps]<Progressive House, House, Progressive Trance>
+
+>>След.
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cold Rock A Party 2012 (Dirty Herz Radio Vocal Mix) (4:00)
+02. Cold Rock A Party 2012 (Ido Shoam Remix Edit) (3:48)
+03. Cold Rock A Party (Die Hoerer Remix Edit) (3:40)
+04. Cold Rock A Party 2012 (Diverson & Mixee Remix Edit) (3:33)(   Читать дальше...   )Жанр: Progressive House, House, Progressive TranceПродолжительность: 00:48:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E6B761E95BC6BB93AA88B35F6BB86DF4EEB5DF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541103   (501606) от 31.08.2012
+
+VA - London Chill House Night - Chilled Grooves Deluxe Selection (2012) [MP3|320 кб/с]<Deep House, Chill House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calvin Adam - True (Chill Night Instrumental)
+02. Mandalay - Infinity (Westwood Remix)
+03. Sundance - New Gold Dream (Instant Classic Remix)
+04. Benny Santiago - Give Me the Night (Soho Edit)
+05. Brett Sinclair - Sex On the Beach (UK Mix)
+06. Damon Everett - Soulful Night (Ritchie and Guy Dub)
+07. Neal Caffrey - Year of the Cat (Jody Negro Chill House Mix)
+08. Limelight - New Year's Day (Villalobos Deep Mix)
+09. Scott Simmons - Children (London Bar Grooves Remix)
+10. Clifton Jones - Could You Be Loved (TC Boulevard Dub)(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D23931980BEC2E6C4F37FDB9B4C0D94D5BBE4F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541096   (501599) от 31.08.2012
+
+VA - Messages Ibiza 2012 (compiled & mixed By Spiritchaser) (2012) [MP3|320 кб/с]<Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Osunlade - Same Thing (Spiritchaser Remix) (feat. Maiya James)
+02. Spiritchaser - Conch
+03. The Layabouts - Here With You (The Layabouts Vocal Mix) (feat. Terri Walker)
+04. Baunz - The Same Thing (Huxley Dub)
+05. Aki Bergen - Into My Soul (Spiritchaser Remix) (feat. Carmen Sherry)
+06. LD-10 - Earthworks (Main Mix)
+07. The Realm - When in Rome (Spiritchaser's Balearic Re-Touch)
+08. Imaani - Found My Light (Spiritchaser Re-Edit)
+09. Kyodai - Do You Wanna (Original Mix)
+10. Alison David - Dreams (Andre Lodemann Still Dreaming Remix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:02:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71B0280D48BCDF65630F285937483041527A23CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 541623   (500826) от 31.08.2012
 
 KDK Records - 72 Релиза (2003 - 2007) [MP3|320 кб/с]<Pumping House, Hard Bass, Speed Garage>
@@ -6,7 +105,7 @@ KDK Records - 72 Релиза (2003 - 2007) [MP3|320 кб/с]<Pumping House, Har
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500826.jpg" />
 </div>
 
 
@@ -39,7 +138,7 @@ VA - Erotic Summer Chill House Vol. 2 (2012) [MP3|320 кб/с]<Deep House, Chill
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500523.jpg" />
 </div>
 
 
@@ -74,7 +173,7 @@ VA - Summertour (2019) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500416.jpg" />
 </div>
 
 
@@ -103,7 +202,7 @@ VA - Berlin Chill House Night -  Chilled Grooves Deluxe Selection (2012) [MP3|32
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497628.jpg" />
 </div>
 
 
@@ -138,7 +237,7 @@ VA - Rome Chill House Night - Chilled Grooves Deluxe Selection (2012) [MP3|320 �
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497550.jpg" />
 </div>
 
 
@@ -173,7 +272,7 @@ Wolfgang Gartner - Back Story (2012) [MP3|320 кб/с]<House, Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496335.jpg" />
 </div>
 
 
@@ -206,7 +305,7 @@ VA - Progressive Daylight (2018) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496203.jpg" />
 </div>
 
 
@@ -235,7 +334,7 @@ VA - Progressive Cuts (2018) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496114.jpg" />
 </div>
 
 
@@ -264,7 +363,7 @@ VA - Deep-House Themes, Vol. 3 (2018) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496106.jpg" />
 </div>
 
 
@@ -293,7 +392,7 @@ VA - It's Disco House (2018) [MP3|320 Kbps] <House, Nu Disco, Disco House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496094.jpg" />
 </div>
 
 
@@ -322,7 +421,7 @@ VA - Progressive Creators (2018) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495572.jpg" />
 </div>
 
 
@@ -351,7 +450,7 @@ VA - Vocal House Essentials Vol.2 (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492096.jpg" />
 </div>
 
 
@@ -380,7 +479,7 @@ Remix Sport Workout - Hard Body Training 2019 [MP3|320 Kbps] <Funky, Club House,
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490888.jpg" />
 </div>
 
 
@@ -409,7 +508,7 @@ Remix Sport Workout - The Best Music for Workout, Training & Running 2019 (2018)
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486679.jpg" />
 </div>
 
 
@@ -438,7 +537,7 @@ VA - Funky Disco House Grooves, Vol. 12 (2018) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486176.jpg" />
 </div>
 
 
@@ -467,7 +566,7 @@ VA - To Get Her in the Mood Feed Her Music Workout Tracks (2018) [MP3|320 Kbps] 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486170.jpg" />
 </div>
 
 
@@ -496,7 +595,7 @@ L.S.G. - Double Vision (2017) [MP3|320 Kbps] <Progressive House, Downtempo, Elec
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486132.jpg" />
 </div>
 
 
@@ -525,7 +624,7 @@ VA - Body Pump #1 - Best of Workout (2016)  [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484007.jpg" />
 </div>
 
 
@@ -554,7 +653,7 @@ VA - EDM Bass Running (Workout Music) (2018) [MP3|320 Kbps] <House, Tech House, 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480045.jpg" />
 </div>
 
 
@@ -583,7 +682,7 @@ VA - Finest Selection Of Summer Anthems (2015) [MP3|320 кб/с]<Club, Progressi
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480004.jpg" />
 </div>
 
 
@@ -612,7 +711,7 @@ VA - Deep Dream (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478253.jpg" />
 </div>
 
 
@@ -641,7 +740,7 @@ VA - Balearic Deep-House Anthems Vol.1 (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478200.jpg" />
 </div>
 
 
@@ -670,7 +769,7 @@ VA - Workout Motivation 2020 (Ideal For Cardio, Gym, Running & Aerobics) [MP3|32
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477241.jpg" />
 </div>
 
 
@@ -684,99 +783,6 @@ VA - Workout Motivation 2020 (Ideal For Cardio, Gym, Running & Aerobics) [MP3|32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC6C84BCD2F26FF37B8D54BAD730CFE35CB3209F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547004   (474440) от 15.09.2012
-
-VA - Kiss FM Dance Radio Chart 3 (2005) [MP3|320 кб/с]<House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Morales with Lea Lorien - How Would U Feel (Rouhofer Radio Edit) [03:57]
-02. Stonebridge Vs. Ultra Nate - Freek On (Ferry Corsten Radio Edit) [03:26]
-03. Global Deejays - What A Feeling (Clubhouse Radio Version) [03:28]
-04. Sonique - Why (Radio Edit) [03:10]
-05. Dave Mcallen - Bitch (Radio Edit) [03:09]
-06. Tom Novy Feat. Lima - Take It (Video Edit) [03:31]
-07. DJ Sender - What You Need (Original Mix) [04:13]
-08. Bastian Bates - So Much Love (Short Club Mix) [03:27]
-09. Heiko & Meik(O) - Glucklich (French Cut) [03:05]
-10. Uniting Nations - You&Me (Radio Edit) [02:59](   Читать дальше...   )Жанр: HouseПродолжительность: 01:04:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65BA96458B3D23A678D0C2C094E105B23E8AE257
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160318   (474146) от 25.08.2017
-
-VA - Best Of Ibiza (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Melbourne Freaks - Deep Deep Down (Radio Mix)  3:09
-02.  Bahlzack & My Dirty House - Cocaine Sex Baby (Original Mix)  5:43
-03.  Michael Ruland - Dreamer (Extended Mix)  6:24
-04.  Vykvet - Simple Melodies (Original Mix)  6:30(   Читать дальше...   )Жанр: HouseПродолжительность: 05:11:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:442CD1576EE6BFD25BA4F9BA0B6AF890490DC313
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160512   (474029) от 25.08.2017
-
-Maya Jane Coles - Take Flight (Deluxe Edition) (2017) [MP3|320 Kbps] <Tech House, Deep House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474029.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
- 01. Weak (04:35)
- 02. Bo & Wing (04:48)
- 03. Old Jam (04:49)(   Читать дальше...   )Жанр: Tech House, Deep House, Electro HouseПродолжительность: 01:51:57 (00:51:55 + 01:00:02)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45E05CC0B755D917AC64AC1893A9A1C22FD204FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

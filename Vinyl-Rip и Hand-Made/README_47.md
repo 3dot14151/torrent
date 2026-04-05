@@ -1,3 +1,32 @@
+###  Публикация: 1648998   (224575) от 03.08.2023
+
+Aerosmith (Steven Tyler; Joe Perry) - Studio Albums (10 releases) (1993-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224575.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aerosmith — музыкальная группа, вероятно, самый важный представитель американского хард-рока. Группа черпала своё вдохновение в британском блюз-роке, доминировавшем на рок-сцене в конце 1960-х и начале 1970-х, как, например, Cream, Led Zeppelin, Jeff Beck Group, а также the Rolling Stones.1993 - Get A Grip
+1997 - Nine Lives
+2001 - Just Push Play
+2006 - Honkin On Bobo(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 10:36:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:893FBC5828368B3AAB3FC78EDEC256B17752735D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268574   (223122) от 13.12.2018
 
 Jamiroquai - A Funk Odyssey (2001) [FLAC 2.0|48/24|image+.cue|MC-Rip] <House, Acid Jazz, Disco>
@@ -6,7 +35,7 @@ Jamiroquai - A Funk Odyssey (2001) [FLAC 2.0|48/24|image+.cue|MC-Rip] <House, Ac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223122.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223064.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - ''Не люблю прощания'' - Песни на музыку Иго�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223061.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222893.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Robert Michaels - Paradiso (1998) [FLAC 2.0 16/44,1|image+.cue (MC-Rip)] <Flamen
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222673.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222635.jpg" />
 </div>
 
 
@@ -178,7 +207,7 @@ B. B. King - Blues Masters (Compilation) [FLAC 2.0 16/44,1|image+.cue (MC-Rip)] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222548.jpg" />
 </div>
 
 
@@ -207,7 +236,7 @@ Secret Service - When The Night Closes In (1985) [FLAC 2.0 24/192|traks(Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221879.jpg" />
 </div>
 
 
@@ -236,7 +265,7 @@ Great White - Studio Albums (14 releases) (1991 - 2021) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221365.jpg" />
 </div>
 
 
@@ -265,7 +294,7 @@ Metallica - 10 альбомов (1983-2008) [FLAC 2.0 24/192 |image + .cue, trac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219921.jpg" />
 </div>
 
 
@@ -291,7 +320,7 @@ VA - Syksyn Savelia (1982) [FLAC|96/24|image + .cue|Vinyl-Rip] <Electronic, Jazz
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219574.jpg" />
 </div>
 
 
@@ -320,7 +349,7 @@ Peter Matz - Quadraphonic Spectacular (1972) [FLAC|96/24|image + .cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219557.jpg" />
 </div>
 
 
@@ -349,7 +378,7 @@ VA - Disco Chelsea (1978) [FLAC|192/24|image + .cue|Vinyl-Rip] <Soul, Funk, Disc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219510.jpg" />
 </div>
 
 
@@ -378,7 +407,7 @@ Elvis Presley - Collection 11 Альбомов 13 LP (1956-2007) [FLAC/APE 2.0 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219366.jpg" />
 </div>
 
 
@@ -404,7 +433,7 @@ Alice Cooper – 20 Альбомов (1972-2011) [FLAC 2.0 24/96|tracks (Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219328.jpg" />
 </div>
 
 
@@ -433,7 +462,7 @@ Rainbow - 7 альбомов (1975-1983) [FLAC 2.0 24/192|image + .cue (Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219319.jpg" />
 </div>
 
 
@@ -462,7 +491,7 @@ Rammstein - XXI (1995-2015) 7 x Double LP, The Vinyl Box Set, Remastered, 2015  
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219309.jpg" />
 </div>
 
 
@@ -491,7 +520,7 @@ Scorpions - 11 альбомов (1979-1993, 2004, 2007) [FLAC 2.0 24/192|image +
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219213.jpg" />
 </div>
 
 
@@ -520,7 +549,7 @@ Slaughter - Studio Albums (7 releases) (1990 - 2017) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218906.jpg" />
 </div>
 
 
@@ -550,7 +579,7 @@ Supermax - Full LPs Discography (1977-1992) 11LP [FLAC 2.0 24/192|image (Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218363.jpg" />
 </div>
 
 
@@ -579,7 +608,7 @@ Joe Dassin - Le Jardin Du Luxembourg (1976) [FLAC 2.0 24/192|tracks(Vinyl-Rip)] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217951.jpg" />
 </div>
 
 
@@ -608,7 +637,7 @@ Linda Ronstadt - Living In The USA (1978) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217915.jpg" />
 </div>
 
 
@@ -637,7 +666,7 @@ VA - Some Broken Hearts... - Schlager International (1982) [FLAC 2.0|96/24|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217891.jpg" />
 </div>
 
 
@@ -666,7 +695,7 @@ VA - Естрадна Панорама 3 (1984) [FLAC 2.0|192/24|image + .cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217708.jpg" />
 </div>
 
 
@@ -695,7 +724,7 @@ Rock House - Rockin' With Rock House (1974) [FLAC 2.0|192/24|image + .cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216910.jpg" />
 </div>
 
 
@@ -709,35 +738,6 @@ A4 Good Rockin' Tonight(   Читать дальше...   )Жанр: Rock & Roll
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06D96FA5D25F62C8B3C9AEC976E2B649BE935301
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652456   (216793) от 12.08.2023
-
-VA - Естрадна Палитра/Variety Palette (1973) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop Rock, Synth-pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216793.jpg" />
-</div>
-
-
-###  Подробнее
-
-А1 Маут И Мак Нийл - Скажи Мне Что-Нибудь • Кажи Ми Нещо
-А2 Лефт Сайд - Добро Пожаловать Домой • Добре Дошла У Дома
-А3 Кристоф - Рука За Руку • Ръка За Ръка
-А4 Ню Сийкърс - Никогда Не Кончится Песня Любви • Никога Няма Да Свърши Песента На Любовта(   Читать дальше...   )Жанр: Pop Rock, Synth-pop, DiscoПродолжительность: 00:37:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D6E9BE83D0223A49F259F34022772FCCCCBCCF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

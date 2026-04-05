@@ -1,3 +1,61 @@
+###  Публикация: 1220055   (708172) от 17.04.2018
+
+VA - Lowrider Bass (2018) [MP3|320 Kbps] <Drum And Bass, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708172.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. AwakeFM - Biokernel (Original Mix)
+002. Furia - Good Vibrations
+003. Denis L - Auf der Flucht
+004. Agressor Bunx - Galaxy(   Читать дальше...   )Жанр: Drum And Bass, DubstepПродолжительность: 11:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB407C08CEEA348A27B604BB926AE71709A70747
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220148   (708161) от 17.04.2018
+
+VA - Club Dance Ambience vol.143 (2018) [MP3|320 Kbps] <Club House, Vocal House, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708161.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Afgo - The Truth (Original Mix)
+002. Alain Deejay - Mirame (feat. Katiuscia Ruiz) (Giovix Remix Edit)
+003. Andrea Tufo - Bassline Riddim (Original Mix)
+004. Anna Mirani - Come With Me (Original Mix)(   Читать дальше...   )Жанр: Club House, Vocal House, Electro HouseПродолжительность: 07:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A53B5C5E8CD1CE5A2F861E01896754EF2034B52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026049   (708131) от 13.06.2016
 
 VA - Coffee Break: Sensational Chillout Selection (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -6,7 +64,7 @@ VA - Coffee Break: Sensational Chillout Selection (2016) [MP3|320 кб/с] <Down
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708131.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Club Music Times Planet (2016) [MP3|253-320 кб/с] <Hands Up, Dancecore, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708129.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Beach Sound: The Velvet Jungle (2019) [MP3|320 Kbps] <Drum And Bass, Jungle
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707357.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Divine Lotys: Psychedelic Trance (2019) [MP3|320 Kbps] <Psychedelic, Goa Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707336.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Extra Lounge (episode 8) (2015) [MP3|320 кб/с]<Lounge, Chill Out>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707306.jpg" />
 </div>
 
 
@@ -152,7 +210,7 @@ VA - Club Dance Ambience Vol.107 (2017) [MP3|256-320 Kbps] <Club House, Vocal Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707082.jpg" />
 </div>
 
 
@@ -181,7 +239,7 @@ VA - Romantic Deep House (2014) [MP3|320 кб/с]<Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706432.jpg" />
 </div>
 
 
@@ -210,7 +268,7 @@ VA - Лучшая клубная сотня 13 (2011) [MP3|160-320 kbps]<Dance, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706211.jpg" />
 </div>
 
 
@@ -245,7 +303,7 @@ VA - Deep Session (2018) [MP3|320 Kbps] <Deep House, Nu Disco>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706188.jpg" />
 </div>
 
 
@@ -274,7 +332,7 @@ VA - Deep House Collection vol.166 (2018) [MP3|320 Kbps] <Deep House, Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706097.jpg" />
 </div>
 
 
@@ -303,7 +361,7 @@ VA - Deep House Session (Vol. 2) (2018) [MP3|320 Kbps] <Deep House, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706094.jpg" />
 </div>
 
 
@@ -332,7 +390,7 @@ VA - Trip to Ibiza 2014 - House Set For V.I.P (2016) [MP3|256-320 кб/с] <Tech
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706054.jpg" />
 </div>
 
 
@@ -361,7 +419,7 @@ VA - Vocal Trance Collection Vol.11 (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705997.jpg" />
 </div>
 
 
@@ -390,7 +448,7 @@ VA - Red Sea Gruves (2019) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705521.jpg" />
 </div>
 
 
@@ -419,7 +477,7 @@ VA - Deep House Collection Vol.119 (2017) [MP3|320 Kbps] <Deep House, Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705080.jpg" />
 </div>
 
 
@@ -448,7 +506,7 @@ VA - Record Super Chart № 187 (2011) [MP3|320 kbps]<House, Trance, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704288.jpg" />
 </div>
 
 
@@ -483,7 +541,7 @@ VA - Hits of My Soul Vol. 34 (2018) [MP3|320 кб/с]<Trap>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704192.jpg" />
 </div>
 
 
@@ -515,7 +573,7 @@ VA - Trip to Ibiza 2014 - Soulful Deep-House. Volume 1: by Day (2016) [MP3|320 �
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704073.jpg" />
 </div>
 
 
@@ -544,7 +602,7 @@ VA - Beatport Top 100 Trance April (2017) [MP3|320 Kbps] <Trance, Progressive Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703032.jpg" />
 </div>
 
 
@@ -573,7 +631,7 @@ VA - Record Super Chart #485 (2017) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702827.jpg" />
 </div>
 
 
@@ -602,7 +660,7 @@ VA - Music For Sports Games Vol 2 (2017) [MP3|256-320 Kbps] <Club, Dance, Pop>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702826.jpg" />
 </div>
 
 
@@ -631,7 +689,7 @@ VA - Beatport Top 100 House April (2017) [MP3|320 Kbps] <House, Progressive Hous
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702746.jpg" />
 </div>
 
 
@@ -660,7 +718,7 @@ VA - Beatport Top 100 Downloads April (2017) [MP3|320 Kbps] <House, Deep House, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702742.jpg" />
 </div>
 
 
@@ -689,7 +747,7 @@ VA - Lounge At The Seashore 14 (by Alex3107) (2014) [MP3|320 кб/с]<Lounge, Ch
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702564.jpg" />
 </div>
 
 
@@ -703,64 +761,6 @@ VA - Lounge At The Seashore 14 (by Alex3107) (2014) [MP3|320 кб/с]<Lounge, Ch
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:843657BB6B112EE9095F882175B51092081C318A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026738   (702513) от 16.06.2016
-
-VA - Flash Party Line DJ (2016) [MP3|320 кб/с] <House, Future House, Bigroom>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mari Ferrari - Hello, Hello (Extended Mix) 4:00
-02. Oxidyon - I Want to Say (Radio Edit) 3:36
-03. Martin Garrix Vs Matisse & Sadko - Break Through the Silence (Original Mix) 4:43
-04. Pulsedriver - I Want Your Soul (Club Mix) 4:33(   Читать дальше...   )Жанр: House, Future House, BigroomПродолжительность: 04:13:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DF9A0F234190462331A50AFA4CAB38AA851E64F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026666   (702504) от 16.06.2016
-
-VA - Trip to Ibiza 2014. Chill Out (2016) [MP3|320 кб/с] <Chill Out, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Antica Fabbrica Del Suono - La Demografia Dell'intellett (D-Soriani chilly mix)  04:54min
-02. Innate Joy - Morning Instinct  06:05min
-03. Chillwalker - Dancing in the Sunrise (Bossa Beach cut)  05:21min
-04. Living Room - Urbanism  04:06min(   Читать дальше...   )Жанр: Chill Out, DowntempoПродолжительность: 04:54:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8FA7ADCA3CCD134BDFFC919FF356169D0C7F254
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1565606   (492433) от 24.07.2022
+
+Faronics Deep Freeze 7 v7.40.220.0004 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deep Freeze - это утилита, которая позволяет системным администраторам или простым пользователям защитить ядро операционной системы, а также конфигурационные файлы на рабочей станции или сервере от нежелательных изменений и восстановить первоначальные настройки системы каждый раз после перезагрузки компьютера, независимо от того, случайно это сделано или злонамеренно. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.11.2021Разработчик: © 1996 - 2022 Faronics CorporationПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40976B29C5A4CFA5A0B8AC94DCDE6E5B22D272C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565800   (490431) от 25.07.2022
 
 Mission Control Plus 1.8 [En]
@@ -6,7 +32,7 @@ Mission Control Plus 1.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490431.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ Recordee 1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490360.jpg" />
 </div>
 
 
@@ -63,7 +89,7 @@ Umbrella 1.1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487388.jpg" />
 </div>
 
 
@@ -91,7 +117,7 @@ Screenotate 3.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487387.jpg" />
 </div>
 
 
@@ -117,7 +143,7 @@ A Better Finder Rename 11 v11.51 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486514.jpg" />
 </div>
 
 
@@ -144,7 +170,7 @@ Wondershare TunesGo 9.7.0.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485948.jpg" />
 </div>
 
 
@@ -170,7 +196,7 @@ Monterey Cache Cleaner 17.0.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484517.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ SoundSource 5.5.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484418.jpg" />
 </div>
 
 
@@ -223,7 +249,7 @@ TotalFinder 1.9.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484029.jpg" />
 </div>
 
 
@@ -251,7 +277,7 @@ Tadam: Stay focused at work 2.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483990.jpg" />
 </div>
 
 
@@ -279,7 +305,7 @@ Paste 2.0.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483885.jpg" />
 </div>
 
 
@@ -307,7 +333,7 @@ Processes Monitor 1.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483243.jpg" />
 </div>
 
 
@@ -333,7 +359,7 @@ DotPass 1.5.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482439.jpg" />
 </div>
 
 
@@ -360,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482438.jpg" />
 </div>
 
 
@@ -386,7 +412,7 @@ WiFiSpoof 3.8.5 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482348.jpg" />
 </div>
 
 
@@ -412,7 +438,7 @@ Nice Clipboard - a cloud synced clipboard manager 1.5.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482214.jpg" />
 </div>
 
 
@@ -438,7 +464,7 @@ TinyAlarm 1.9.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482164.jpg" />
 </div>
 
 
@@ -464,7 +490,7 @@ iRamDisk 3.6.12 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482158.jpg" />
 </div>
 
 
@@ -490,7 +516,7 @@ Disk Drill Enterprise 4.7.382 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482075.jpg" />
 </div>
 
 
@@ -517,7 +543,7 @@ TunesKit iPhone Data Recovery 1.0.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482068.jpg" />
 </div>
 
 
@@ -545,7 +571,7 @@ Trim Enabler Pro 4.0.5 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481853.jpg" />
 </div>
 
 
@@ -572,7 +598,7 @@ Xcode 6.0.1 (6A317) [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479204.jpg" />
 </div>
 
 
@@ -600,7 +626,7 @@ CCleaner Pro 1.14.451 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476928.jpg" />
 </div>
 
 
@@ -626,7 +652,7 @@ Auto Highlight 4.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476512.jpg" />
 </div>
 
 
@@ -652,7 +678,7 @@ Stats 2.7.28 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476502.jpg" />
 </div>
 
 
@@ -663,32 +689,6 @@ Stats - это приложение с открытым исходным код�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFB2687BA8EFA4FCC878A2F8A33578183B10421F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567097   (476319) от 01.08.2022
-
-Digital Clock 3D 2.1.1 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отличная подборка цифровых часов, начиная от ретро и закачивая современным вариантом OLED. Подключить все это великолепие, можно, как в качестве обоев, так и в качестве заставки. Выберите стиль, который вам больше всего нравится или оставьте его на волю случая, смакуя ультра реалистичную 3D графику!Тип издания: macOS SoftwareРелиз состоялся: 31.07.2022Разработчик: 3PlanesoftПоддерживаемая ОС: OS X 10.9 или вышеЯзык интерфейса: Русский, Английский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A810B8678200D6806E7E0C546C971F897FFB563
 ```
 
 https://mybot314.ru/tekegram_catalog/

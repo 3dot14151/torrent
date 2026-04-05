@@ -1,3 +1,161 @@
+###  Публикация: 587550   (216551) от 12.12.2012
+
+Ежегодный шоу-показ мод / The Victoria's Secret Fashion Show (2012) HDTVRip [MPEG-2/1080i] [EN]
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пока Нью-Йорк отходит от стихийных бедствий, ведущий бренд нижнего белья Victoria’s Secret устроил здесь грандиозное фэшн-шоу с участием топ-моделей и звезд шоу-бизнеса. Новую феерическую коллекцию женского белья Victoria's Secret демонстрировали такие звезды подиума, как Адриана Лима, Миранда Керр, Алессандра Амбросио, Даутцен Крус, Лили Олдридж, Кэндис Свейнпол (   Читать дальше...   )Производство: СШАЖанр: Музыкальное fashion-шоуРежиссер: Hamish HamiltonПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 00:38:52Реклама: вырезана вся реклама и сольное выступление подростка (да простят меня его фанаты, если есть таковые у нас  =)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F5D5023BE244CFB452746E379783E2CE3251574
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426051   (216544) от 23.11.2020
+
+Региональный природный парк Лотарингии / Au coeur du Parc naturel regional de Lorraine (2018) IPTV [H.264/1080p-LQ] [FR / RU Sub]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216544.jpg" />
+</div>
+
+
+###  Подробнее
+
+На востоке Франции находится природный парк Лотарингии с удивительным разнообразием пейзажей. Он включает в себя долины, холмы и равнины, леса и влажные зоны. Парк был создан в 1974 году благодаря усилиям мужчин и женщин, ассоциаций и местных депутатов, чтобы сохранить уникальные пейзажи, а также флору и фауну этого края.Производство: Франция, MC4 / LCP, Ushuaïa TV, TV5 Monde, TV8 Mont BlancЖанр: Документальный, природа, флора, фаунаРежиссер: Лоран ШарбонньеПеревод: отсутствуетСубтитры: Русские (неотключаемые)Продолжительность: 00:52:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E97129479DEB385DCA5825FC4FD588429A4E2DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966929   (216538) от 19.12.2015
+
+Теория заговора. Страхование вкладов (2015.12.19) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главная финансовая «страшилка» нашего времени. Центробанк отзывает лицензии у банков с частотой раз в неделю, а то и чаще. У вкладчиков одна на всех надежда – Агентство по страхованию вкладов.Производство: РоссияТелекомпания: Первый каналЖанр: ДокументальныйПродолжительность: 00:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AADA6CD788434A8153AF08DC77737AC899F5ADE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967053   (216532) от 19.12.2015
+
+МастерШеф. Дети (Россия) (2015.12.19) SATRip (сезон 1, выпуск 7)
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216532.jpg" />
+</div>
+
+
+###  Подробнее
+
+«МастерШеф. Дети» дает возможность юным поварам продемонстрировать свои кулинарные таланты и побороться за звание лучшего юного повара страны. Это единственный российский аналог всемирно известного шоу «MasterChef Junior», которое с успехом идет уже более чем в 50 странах мира. Несмотря на возраст, маленьким кулинарам предстоит столкнуться с испытаниями, которые (   Читать дальше...   )Телекомпания: СТСЖанр: Кулинарное шоуРежиссер: Роман БутовскийПродолжительность: ~ 00:48:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51B9AC9E9ADFE013C0344E7A7554EC5C4A502FFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 336886   (216529) от 03.12.2021
+
+Всесоюзный парад физкультурников 12 августа 1945 (2011) SATRip
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216529.jpg" />
+</div>
+
+
+###  Подробнее
+
+9 мая 2011 года в рамках проекта «Великой Победе посвящается» на телеканале был показан документальный фильм «Всесоюзный парад физкультурников. 12 августа 1945 года»
+Победный 1945 год. Впервые после Великой Отечественной войны на Красной площади проходит парад физкультурников. На трибуне Мавзолея стоят руководители страны. На гостевых трибунах представители иностранных (   Читать дальше...   )Производство: ЦСДФТелекомпания: Телеканал «Россия-Культура»Жанр: Телепередача, ДокументальныйРежиссер: В. БеляевПродолжительность: 00:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94CF8B48E48770570A530EE5C992653072CA8324
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967046   (216515) от 19.12.2015
+
+Главная сцена. Сезон 2. Выпуск 13 (2015.12.19) SATRip
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216515.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Главная сцена" – это крупнейшая музыкальная академия, цель которой – поиск современных талантливых артистов, способных стать новыми звездами российской эстрады.
+В новом сезоне задача для конкурсантов усложняется: участники проекта будут исполнять песни только на русском языке, с первого выхода они должны доказать, что готовы стать настоящей звездой российской (   Читать дальше...   )Телекомпания: РоссияЖанр: ДокументальныйПродолжительность: 02:03:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0A931AF52321AC19BF9C42F541EAA78125631B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1084305   (216492) от 20.12.2016
 
 Логотипы автомобилей. История марок / Auto Logos, la saga des marques (2014) SATRip [FR / RU Sub]
@@ -6,7 +164,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216492.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216380.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216323.jpg" />
 </div>
 
 
@@ -84,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216292.jpg" />
 </div>
 
 
@@ -110,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216273.jpg" />
 </div>
 
 
@@ -136,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216223.jpg" />
 </div>
 
 
@@ -162,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216214.jpg" />
 </div>
 
 
@@ -188,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216117.jpg" />
 </div>
 
 
@@ -214,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_215958.jpg" />
 </div>
 
 
@@ -240,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215884.jpg" />
 </div>
 
 
@@ -266,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215868.jpg" />
 </div>
 
 
@@ -292,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215776.jpg" />
 </div>
 
 
@@ -318,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215770.jpg" />
 </div>
 
 
@@ -344,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215759.jpg" />
 </div>
 
 
@@ -370,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215742.jpg" />
 </div>
 
 
@@ -396,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215706.jpg" />
 </div>
 
 
@@ -422,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215657.jpg" />
 </div>
 
 
@@ -448,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215646.jpg" />
 </div>
 
 
@@ -474,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215625.jpg" />
 </div>
 
 
@@ -500,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215605.jpg" />
 </div>
 
 
@@ -511,162 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C81FD49AA67EA0D773ACCD641A8153506788D8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514614   (215597) от 04.12.2021
-
-Возвращаясь к природе / Back To Nature (2021) HDTVRip [H.264/720p] (серии 1-7 из 8) [EN / RU Sub]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный австралийский актер и писательница путешествуют по землям коренных народов, изучая местные сказания и удивляясь чудесам дикой природы.Производство: Австралия, Media Stockade, Threshold PicturesЖанр: документальный, познавательный, путешествияРежиссер: Кимберли Бенджамин, Джейн Маннинг, Дина Кертис, Софи ВеснерПеревод: субтитрыЯзык озвучки: английскийСубтитры: русские (внешние, Ron.Studio™)Продолжительность: серии x ~00:28:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:659C89C593B37BE0AA4569B4E0BDED3E84736E81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514667   (215580) от 04.12.2021
-
-Главная дорога (04.12.2021) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зима пришла, но многие до сих пор к ней не готовы! У одних утром не заводится мотор, у вторых замерзла омывайка в форсунках, у третьих примерзли двери так, что их никак не открыть, а кто-то и вовсе не переобулся. В новом выпуске «Главной дороги» Андрей Федорцов и Денис Юченков проверили, как обычные автомобилисты подготовились к зиме, и рассказали, что сделать, чтобы (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:27:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4903084485C2A38594AFD42224BC1F3B7F42D06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966909   (215526) от 19.12.2015
-
-Голос. Сезон №4. Выпуск №16 (2015.12.18) SATRip
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215526.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Первый канал" объявляет о премьере нового сезона музыкального проекта "Голос". Из тысяч претендентов, приславших минувшим летом свои заявки на участие, отобраны полторы сотни тех, кто поднимется на ставшую уже знаменитой на всю страну сцену во время "слепых прослушиваний" в надежде покорить слух требовательных наставников. Зрителей (   Читать дальше...   )Телекомпания: Первый каналЖанр: ТВ-Шоу, развлекательныйПродолжительность: ~ 02:09:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CA7EA1CD06376646261CE1E486BFCD20FB5E858
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514607   (215518) от 04.12.2021
-
-Мальта / Malta (2021) WEBRip [H.264/2160p]
-
->>Документалистика и Телепередачи
->>Релакс / Relax
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мальта - небольшое островное государство-архипелаг в центре Средиземного моря. Его богатая история и яркая культура превратили этот архипелаг в совершенно уникальное место в дополнение к его чудесным ландшафтам. Это скрытая жемчужина и определенно таит в себе больше приключений, чем думает большинство людей.Производство: МальтаЖанр: документальный, видовойРежиссер: Карсан ЧунгПеревод: не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:02:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FCA70324E0DB89B140CCE6293A66BB0F3F82993
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514610   (215499) от 04.12.2021
-
-Моменты / Moments (2020) WEBRip [H.264/2160p]
-
->>Документалистика и Телепередачи
->>Релакс / Relax
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поскольку мне приходилось проводить много часов дома за компьютером, я смонтировал короткое видео о своих поездках за последние 4 года. Над водой и под водой у нас была возможность пережить незабываемые «моменты»!Производство: Германия, Abgetaucht-WeltweitЖанр: документальный, видовойПеревод: не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:04:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F27751B31702DEB202C4F17C8F6C58272BD03B1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085014   (215448) от 20.12.2016
-
-Без обмана. Чудесное фуфло (2016.12.19) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это масштабное потребительское расследование, задача которого дать зрителям подробные советы, как не попасть в неприятности за собственные деньги. В центре программы оказываются самые разные товары и услуги потребительского рынка, их "судят" авторитетные эксперты и рядовые люди. Корреспонденты программы часто выступают в роли тайных агентов, внедряющихся (   Читать дальше...   )Производство: РоссияТелекомпания: ТВЦЖанр: Документальный, расследованиеСубтитры: ОтсутствуютПродолжительность: ~ 00:40:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77754BCB572333321ECF77080D1ADC48E57C2E17
 ```
 
 https://mybot314.ru/tekegram_catalog/

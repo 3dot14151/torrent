@@ -1,4 +1,56 @@
 https://t.me/izofen
+###  Публикация: 1863011   (1063744) от 
+
+The Last Faith (2023) [Ru/Multi] (2.03/dlc) Repack FitGirl
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063744.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Last Faith рассказывает о герое, который решился опровергнуть слова, предсказанные в древнем пророчестве, и узнать почему его мир пал и стал опустошенным. В основе геймплея стоит исследование, а также здесь объединены жанры платформера и метроидвании с ужасающим готическим сеттингом. Игра отличается наличием огромного арсенала оружия и разнообразия магических (   Читать дальше...   )Тип издания: RepackРазработчик: Kumi Souls GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98EBACAC1533D2E139BB719CA057E56D547B6906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862351   (1063175) от 
+
+Hollow Knight (2017) [Ru/Multi] (1.5.12620) Repack Let'sРlay
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063175.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бросьте вызов глубинам заброшенного Королевства. Глубоко под угасающим городом Грязьмут лежат руины древнего Королевства. Многих влечет под землю тяга к богатству, славе или ответам на старинные загадки. Hollow Knight – классическое двухмерное приключение в огромном взаимосвязанном мире. Исследуйте извилистые пещеры, древние города и смертоносные пустоши, сражайтесь (   Читать дальше...   )Тип издания: RepackРазработчик: Team CherryЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAEA628015F972B061815A512140B6D3230D1970
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861126   (1062321) от 
 
 Kotama and Academy Citadel (2026) [Multi] (1.00.02.01) Scene Rune
@@ -7,7 +59,7 @@ Kotama and Academy Citadel (2026) [Multi] (1.00.02.01) Scene Rune
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062321.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ Bullet Noir (2025) [Ru/Multi] (1.0.2) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061864.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ Cryogear (2020) [Multi] (1.2.0.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060794.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ Atomic Owl (2025) [En] (1.2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060129.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ Magenta Horizon: Neverending Harvest (2024) [Ru/Multi] (1.1.4) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059878.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ VonGarland Castle: Beyond Blood (2025) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059877.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Gunslugs 3: Rogue Tactics (2019) [En] (1.0.10b) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059754.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ Gunslugs 2 (2015) [En] (1.0.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059753.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ Gunslugs (2015) [En] (3.3.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059752.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ Scott Pilgrim vs The World: The Game (2023) [Ru/En] (Build 10135169/dlc) Repack 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059008.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ Dark Light (2020) [Ru/Multi] (1.1.0.13) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058961.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ Warfare Legacy Collection (2025) [Ru/Multi] (9570e04c+) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058338.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ Soda Crisis (2022) [Ru/Multi] (20230301) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056957.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ Guns of Fury (2025) [Ru/Multi] (1.2.7.6) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056519.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ Terraria (2011) [Ru/Multi] (1.4.5.3) Repack Pioneer
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055831.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ Illuminaria (2022) [Ru/Multi] (1.301) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055739.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ Terraria (2011) [Ru/Multi] (1.4.5.4) Repack Necros
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055735.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ Hollow Knight (2017) [Ru/Multi] (1.5.12459) Repack Necros
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055669.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ Saviorless (2024) [Ru/Multi] (1.1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055645.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ Terraria (2011) [Ru/Multi] (1.4.5.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054512.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ Terraria (2011) [Ru/Multi] (1.4.5.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054464.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ Sigi - A Fart for Melusina (2017) [Multi] (3.41) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054235.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ The Last Faith (2023) [Ru/Multi] (2.0.0/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053401.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ Terminator 2D: NO FATE (2025) [Ru/Multi] (Build 20805989) Repack Decepticon
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053098.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ Terminator 2D: NO FATE (2025) [Ru/Multi] (Build 20805989) Repack Decepticon
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0E801BC311C8C9D7449547A9ED550B19BFC5817
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846583   (1051457) от 08.01.2026
-
-Bo: Path of the Teal Lotus (2024) [Multi] (1.2.5) License GOG
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bo: Path of the Teal Lotus - яркий платформер, предлагающий сыграть за очаровательную героиню, которая является небесным цветком. Девушка обладает акробатическими способностями, а ее смертельное оружие - серьга. Вместе с девочкой потребуется исследовать таинственный мир, вдохновленный японской мифологией. В игре представлено множество ярких и запоминающихся персонажей, (   Читать дальше...   )Тип издания: LicenseРазработчик: Squid Shock Studios, Christopher Stair, Trevor YoungquistЖанр: Метроидвания, 2DЯзык субтитров: Английский, Французский, Немецкий, Японский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A898AEBF96B33FFE183CC43285E174B3A3AF656
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844920   (1050388) от 29.12.2025
-
-Braid (2024) [Ru/Multi] (0.444 revision 15517 M) Repack Let'sРlay [Anniversary Edition]
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Управляйте временем и решайте загадки в обновленной версии классической инди-игры Braid с обновленной графикой и подробными авторскими комментариями. Попрощайтесь со стенами родного дома и отправляйтесь на поиски принцессы в миры, где у времени нет четких границ. Вам предстоит погрузиться в воспоминания и столкнуться лицом к лицу с сожалениями о прошлом.Тип издания: RepackРазработчик: Thekla, Inc.Жанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B94898B2418BFD6B1D30D9BBC67A64526D5853F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,58 @@
+###  Публикация: 744390   (971120) от 11.01.2014
+
+Гадкий Я: Мини-фильмы. Миньоны / Despicable Me Presents: Minions Mini-Movies & Minion Madness (2010-2013) DVDRip (6 серий)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жёлтые коротышки, служат армией и помощниками для Грю. Хотя и понимают человеческую речь, говорить по-человечески не умеют, но могут произносить отдельные слова, но чаще они общаются на своём языке между собой. Глуповатые, но очень полезные. Интересно, что у некоторых миньонов только один глаз. Замечательное дополнение к известному мультфильмам "Гадкий я" (   Читать дальше...   )1. Преображение дома - Home makeover
+2. Ознакомительный день - Orientation Day
+3. Банан - Banana (без перевода – не требуется, нет диалогов)
+4. Паника в почтовом отделении - Panic in the Mailroom (без перевода – не требуется, нет диалогов)(   Читать дальше...   )Жанр: Мультфильм, короткометражный, комедия, приключения, семейныйПеревод: Профессиональный многоголосыйЯзык субтитров: ОтсутствуютПродолжительность: 6 х ~ 00:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35EBBABBE77A3DEBC73D4F8E224CB15FA8C52064
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358076   (970355) от 06.02.2020
+
+Долина муми-троллей / Moominvalley (2019) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-13 из 13) HDRezka Studio
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Муми-тролль — любопытный, добрый, чуткий и идеалистичный подросток. Он взрослеет, пытаясь найти свое истинное «я», оставаясь при этом частью семьи.Производство: Финляндия, ВеликобританияЖанр: Фэнтези, драма, семейныйРежиссер: Стив Бокс, Даррен Робби, Avgousta ZourelidiАктеры: Мэтт Берри, Уорвик Дэвис, Тэрон Эджертон, Эдвин Эндре, Розамунд Пайк, Бел Паули, Акия Генри, Уилл Селф, Джо Уилкинсон, Сьюзи БрэннПеревод: Многоголосый профессиональный (HDRezka Studio)Субтитры: русские (хардсаб)Продолжительность: ~00:20:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A231F425B13404257D887D83357CAB381AC16E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358377   (969485) от 07.02.2020
 
 Трое снизу: Истории Аркадии / 3Below: Tales of Arcadia (2018) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-13 из 13) HDRezka Studio
@@ -6,7 +61,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969485.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969244.jpg" />
 </div>
 
 
@@ -59,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968919.jpg" />
 </div>
 
 
@@ -85,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967169.jpg" />
 </div>
 
 
@@ -111,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966314.jpg" />
 </div>
 
 
@@ -138,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964852.jpg" />
 </div>
 
 
@@ -164,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963689.jpg" />
 </div>
 
 
@@ -190,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963346.jpg" />
 </div>
 
 
@@ -216,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963118.jpg" />
 </div>
 
 
@@ -242,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960975.jpg" />
 </div>
 
 
@@ -268,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959761.jpg" />
 </div>
 
 
@@ -294,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958394.jpg" />
 </div>
 
 
@@ -320,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957313.jpg" />
 </div>
 
 
@@ -346,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957265.jpg" />
 </div>
 
 
@@ -372,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957032.jpg" />
 </div>
 
 
@@ -398,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955624.jpg" />
 </div>
 
 
@@ -424,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955588.jpg" />
 </div>
 
 
@@ -450,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955504.jpg" />
 </div>
 
 
@@ -476,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955495.jpg" />
 </div>
 
 
@@ -502,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955470.jpg" />
 </div>
 
 
@@ -528,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955394.jpg" />
 </div>
 
 
@@ -554,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954720.jpg" />
 </div>
 
 
@@ -580,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954359.jpg" />
 </div>
 
 
@@ -606,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952913.jpg" />
 </div>
 
 
@@ -617,61 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB0559CF907D0B0AF95BD53E0DE7C4221CAB799B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 170388   (952629) от 05.02.2010
-
-Барашек Шон, 50 серий / Shan the Sheep (2007-2009) DVD-9 [EN]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952629.jpg" />
-</div>
-
-
-###  Подробнее
-
-50 серий приключений барашка Шона. Сам собрал сезоны, объеденил в пять частей, и оформил под одно меню. Понятно, что многие уже по частям скачали, но сам бы такое скачал, если бы нашел. Вот и делал для удобства. Простое меню  =)Жанр: Кукольный, Компьютерная анимация, КомедияРежиссер: Кристофер Сэдлер, Ричард Голесовский, Дейв Османд, Ричард ВебберПерсонажи: Барашек ШонПеревод: ОригинальныйПродолжительность: 1:10:34
-
-01. Двойные неприятности
-02. Разметка(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569972   (950672) от 27.01.2014
-
-Кунг-Фу Панда: Захватывающие Легенды / Kung-Fu Panda: Legends of Awesomeness (2012) HDTVRip/WEB-DLRip/SATRip (Сезон 2,серии 1-25 из 25) [Nickelodeon]
-
->>След.
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал рассказывает о продолжении приключений Панды По, о том, как он тренируется, защищается, борется, учит и учится, говорит слишком много и выступает в роли нового героя Долины Мира. И теперь, живя вместе с Неистовой Пятеркой, По придется взять на себя много новых обязанностей, ведь он Воин Дракона.Жанр: Мультсериал, Анимация, Детский, Приключения, СемейныйПеревод: ДублированныйСубтитры: отсутствуютФормат: XviDПродолжительность: Каждая серия ~ 00:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:765D875531B341A3A86CFB435A194A076C4C1CAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

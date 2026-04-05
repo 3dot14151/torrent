@@ -1,3 +1,32 @@
+###  Публикация: 1566722   (480548) от 30.07.2022
+
+Whipstriker - Merciless Artillery (2018) [FLAC|Lossless|image + .cue] <Heavy, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Merciless Artillery (04:19)
+02. Rape of Freedom (03:17)
+03. Calm After Destruction (03:34)
+04. Mantas' Black Mass (04:06)(   Читать дальше...   )Жанр: Heavy, Speed MetalПродолжительность: 00:30:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2590E5EBF6001134F7F1443CE3B850A6E7CC0A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566713   (480429) от 30.07.2022
 
 Knight Area - D-Day II - The Final Chapter (2022) [FLAC|Lossless|WEB-DL|tracks] <Neo Progressive Rock>
@@ -6,7 +35,7 @@ Knight Area - D-Day II - The Final Chapter (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480429.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Dimmu Borgir - Puritanical Euphoric Misanthropia (2001) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480423.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Thy Gate Beyond - The Power To Thrash (2003) [FLAC|Lossless|image + .cue] <Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480237.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Helltrain - 3 альбома (2004-2012) Дискография [FLAC|Lossless]<
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480200.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ Ad Hominem - Antitheist (2015) [FLAC|image+.cue]<Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480098.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ Black Oak County - Black Oak County (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480049.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480019.jpg" />
 </div>
 
 
@@ -212,7 +241,7 @@ Shining - IX - Everyone, Everything, Everywhere, Ends (2015) [FLAC|image+.cue]<B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480003.jpg" />
 </div>
 
 
@@ -241,7 +270,7 @@ Jungle Rot - Order Shall Prevail (2015) [FLAC|image+.cue]<Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480002.jpg" />
 </div>
 
 
@@ -270,7 +299,7 @@ Marc Bolan - Tramp King Of The City (2018) [MP3|320 Kbps] <Glam Rock, Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479929.jpg" />
 </div>
 
 
@@ -299,7 +328,7 @@ The Tea Party - The Edges Of Twilight (2015) 2CDs Deluxe Edition [FLAC|tracks]<P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479869.jpg" />
 </div>
 
 
@@ -328,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479824.jpg" />
 </div>
 
 
@@ -357,7 +386,7 @@ Children Of Bodom / Amorphis - Tales From Lake Bodom (2015) Split [MP3|320 кб/
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479796.jpg" />
 </div>
 
 
@@ -386,7 +415,7 @@ Voices Of Destiny - Crisis Cult (2014) [FLAC|Lossless|image + .cue] <Symphonic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479711.jpg" />
 </div>
 
 
@@ -415,7 +444,7 @@ Stratovarius - Eternal (2015) Japan SHM-CD Edition [FLAC|image+.cue]<Melodic Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479688.jpg" />
 </div>
 
 
@@ -444,7 +473,7 @@ Celldweller - Blackstar (Original Score) (2015) [MP3|320 кб/с]<Industrial, Al
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479680.jpg" />
 </div>
 
 
@@ -473,7 +502,7 @@ Annihilator - Suicide Society (2015) Limited Edition 2CD [FLAC|image+.cue]<Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479679.jpg" />
 </div>
 
 
@@ -502,7 +531,7 @@ Drunkard - Inhale The Inferno (2016) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479616.jpg" />
 </div>
 
 
@@ -531,7 +560,7 @@ Taking Back Sunday - Tidal Wave (2016) [FLAC|Lossless|tracks + .cue] <Alt. Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479610.jpg" />
 </div>
 
 
@@ -560,7 +589,7 @@ Chris Norman - Crossover (2015) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479556.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ Elvis Presley - 15 Original Albums & Bonus Tracks (2014) 10CD Box Set[FLAC|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479454.jpg" />
 </div>
 
 
@@ -618,7 +647,7 @@ Suicidal Tendencies - World Gone Mad (2016) [MP3|320 Kbps] <Thrash Metal, Crosso
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479405.jpg" />
 </div>
 
 
@@ -647,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479399.jpg" />
 </div>
 
 
@@ -676,7 +705,7 @@ Merzy - Rock the Blues (1991) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479277.jpg" />
 </div>
 
 
@@ -705,7 +734,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479272.jpg" />
 </div>
 
 
@@ -719,35 +748,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A20FAF6579A728C4BA9281C5607F7538532B9A06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319814   (479236) от 14.08.2019
-
-B.T.R - Чужая война (2019) [MP3|320 Kbps] <Industrial Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479236.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Кто-то
-2. Дыши
-3. Война
-4. Шаг(   Читать дальше...   )Жанр: Industrial Hard RockПродолжительность: 00:42:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:129F792E522AAFAED9604CF7D1EB29A5058E55E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,57 @@
+###  Публикация: 1296719   (325139) от 07.10.2022
+
+Udemy, YouRa Allakhverdov | Android разработка с нуля до профессионала (2021) WEB-DL [RU]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полный курс Android. Создай 25 приложений, в том числе клоны Telegram, Uber, SnapChat, игры Flappy Bird и Super Mario!  Курс на данный момент в состоянии АКТИВНОЙ разработки...
+Вы хотите увеличить свой доход в качестве разработчика Android? Может быть, у вас много идей для приложений, но не знаете с чего начать? Или вы ищете карьеру Android и Java разработчика, которая, (   Читать дальше...   )Производство: UdemyЖанр: Программирование, Java, KotlinЯзык озвучки: РусскийПродолжительность: 55:27:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC505C230A6B785721D9464D4EFD84270307C2F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 262675   (325055) от 26.11.2010
+
+Alone in the Dark / Alone in the Dark: У последней черты  [Ru] (RePack) 2008 | R.G.ReCoding
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Центральный парк Нью-Йорка - уголок тишины и спокойствия. Мало кто знает, что происходит в нем ночью. Под покровом темноты это место начинает преображаться. Когда тени убегают прочь от твоего взгляда, а спасением от подступающей тьмы становится луч фонарика, начинаешь верить в реальность происходящего. И если кто-нибудь рискнет отправиться в Центральный парк ночью, он быстро поймет, что у темноты есть глаза...
+Эдвард Карнби, исследователь паранормальных явлений, прибывает в Центральный парк под покровом темноты. Ночь, сумрачным саваном опутавшая это место, затягивает его в водоворот событий, которым невозможно дать логическое объяснение. Сражаясь с порождениями тьмы, Эдвард узнает правду о парке и его загадочном прошлом. Истина, словно раскат грома сотрясает ночной город. Нью-Йорк уже никогда не будет прежним...Тип издания: RePackРазработчик: Eden GamesЖанр: Action / 3D / 1st Person / 3rd PersonЯзык озвучки: Язык интерфейса: 
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D36CC63BA0809AF3296131FA07F4934294C40C5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 958036   (324501) от 20.11.2015
 
 Любовь / Love (2015) WEBRip [H.264 / 720p-LQ] [EN]
@@ -6,7 +60,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324501.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Watch Dogs (2014) [Ru] (1.06.329/dlc) Repack xatab [Digital Deluxe Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324423.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ City Maps 2Go Pro Offline Maps v3.16.1 [En] - оффлайн интеракти�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324420.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324419.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ Manfred Mann / Manfred Mann's Earth Band - 38 Albums, 4 Box-Set, 130CD (1964-202
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324204.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ MX vs. ATV: Reflex [En] (RePack) 2010 | R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324100.jpg" />
 </div>
 
 
@@ -167,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324093.jpg" />
 </div>
 
 
@@ -193,7 +247,7 @@ Drakensang: The River of Time / Drakensang: Река времени [Ru] (L) 201
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324087.jpg" />
 </div>
 
 
@@ -221,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_323867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_323867.jpg" />
 </div>
 
 
@@ -247,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_323809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_323809.jpg" />
 </div>
 
 
@@ -273,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323683.jpg" />
 </div>
 
 
@@ -299,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323681.jpg" />
 </div>
 
 
@@ -325,7 +379,7 @@ Adobe Photoshop CC 2015.0.1 (20150722.r.168) (x64) RePack by JFK2005 (21.11.2015
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323081.jpg" />
 </div>
 
 
@@ -351,7 +405,7 @@ Pro Evolution Soccer 2016 (2015) [Ru/En] (1.02.01) Repack R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323044.jpg" />
 </div>
 
 
@@ -377,7 +431,7 @@ Kingdom Come: Deliverance (2016) [En] (0.1) Rip Cat-a-Cat Games
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323041.jpg" />
 </div>
 
 
@@ -403,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_322989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_322989.jpg" />
 </div>
 
 
@@ -429,7 +483,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2017.11.07 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322975.jpg" />
 </div>
 
 
@@ -455,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_322969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_322969.jpg" />
 </div>
 
 
@@ -481,7 +535,7 @@ Red Giant Trapcode Suite 15.0.0 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322716.jpg" />
 </div>
 
 
@@ -507,7 +561,7 @@ Adguard Premium 6.4.1814.4903 (31.10.2018) RePack by elchupacabra [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322712.jpg" />
 </div>
 
 
@@ -533,7 +587,7 @@ Adobe Premiere Pro CC 2019 13.0.225 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322710.jpg" />
 </div>
 
 
@@ -559,7 +613,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2018.10.04 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322709.jpg" />
 </div>
 
 
@@ -585,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322708.jpg" />
 </div>
 
 
@@ -611,7 +665,7 @@ KMS Tools Portable 01.11.2018 by Ratiborus [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322707.jpg" />
 </div>
 
 
@@ -622,58 +676,6 @@ KMS Tools — сборник программ от Ratiborus в одной об�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4760010CE8650518ED793BBB7F21F0B83236B21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 843731   (322628) от 23.11.2014
-
-Пряности и страсти / The Hundred-Foot Journey (2014) HDRip [Line]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семья индийских эмигрантов, которых судьба забросила в маленький городок в Провансе, решает открыть кафе с восточной кухней... прямо напротив знаменитого на всю округу ресторана «Плакучая ива», бастиона французских кулинарных традиций, хозяйка которого, Мадам Малори, больше всего на свете гордится тем, что её заведение удостоено звезды в каталоге «Мишлен».Производство: Индия, ОАЭ, США | Touchstone Pictures, Harpo Films, Reliance EntertainmentЖанр: Драма, КомедияРежиссер: Лассе ХалльстрёмАктеры: Хелен Миррен, Ом Пури, Маниш Дайал, Шарлотта Ле Бон, Амит Шах, Фарзана Дуа Элахе, Диллон Митра, Ариа Пандья, Мишель Блан, Клеман СибониПеревод: Дублированный (Чистый звук) ОфициальныйСубтитры: ОтсутствуютПродолжительность: 02:02:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70A1477C420B01522D6988BBFC0FED83BDC290E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 263629   (322567) от 28.11.2010
-
-В следующем году Россия начинает работы по созданию космического корабля с ядерной энергетической установкой.
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322567.jpg" />
-</div>
-
-
-###  Подробнее
-
-На прошедшей неделе представители российской космической компании "Энергия" сообщили подробности касательно некоторых планов компании. Согласно этим планам, в следующем году начнутся работы по разработке стандартизованных космических модулей, имеющих на борту двигательную установку на ядерной энергии. Директор компании "Энергия" Виталий Лопота сообщил, что первые запуски экспериментальных модулей с ядерными энергетическими установками мощностью от 150 до 500 КВт должны начаться в 2020 году.(   Читать дальше...)
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

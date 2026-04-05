@@ -1,3 +1,119 @@
+###  Публикация: 1406064   (472926) от 04.09.2020
+
+Unterschicht - Krank: lass mich allein (2020) [MP3|320 Kbps] <Dark Electro, EBM, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Chernobog [00:06:02]
+02 - Psychokiller [00:04:12]
+03 - Pantha Rhei [00:05:22]
+04 - Ihr habt alle gefickt [00:03:45](   Читать дальше...   )Жанр: Dark Electro, EBM, IndustrialПродолжительность: 00:59:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:718A2589FE900566CA25C509F66B106E4D58EB70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406663   (472925) от 04.09.2020
+
+Priest Of Secret Garden - Ancient Spirit (2020) Mystic Sound Records [FLAC|Lossless|WEB-DL|tracks] <Psychill, Breaks, Downtempo, Psy-Trance>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Is The Destiny (08:34)
+ 02. Heartway (08:29)
+ 03. Ancient Spirit (09:36)
+ 04. Balance (06:16)(   Читать дальше...   )Жанр: Psychill, Breaks, Downtempo, Psy-TranceПродолжительность: 00:52:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C091224F8FF7F971E4AAF78E6749DA8A6B052875
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406669   (472924) от 04.09.2020
+
+VA - Refreshing Jazz Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eivissarts - De La Tierra (Original Mix)
+02. Marco Moli - A Piano and a Trumpet (Original Mix)
+03. Michael E - For Laurant (Original Mix)
+04. Mission Brown, Arnob - Rosetta's Smile (Original Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:12:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:286C2ACA1B8CCC7CA99A8AD418D9CB0A0AB69EFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406533   (472763) от 04.09.2020
+
+VA - Workout & Fitness 2020 Motivation Training Music [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dani Corbalan - Nobody Like You (Radio Edit) 02:55
+02. Andrw Madnss - Ibiza (Radio Edit) 03:11
+03. Nik Finn - Show Me (Original Mix) 03:48
+04. Mark Star - Freefall (Original Mix) 02:47(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A540D82362E1BD057CDD01C7359C0E91E4A15BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1406602   (472645) от 04.09.2020
 
 Hurts - Faith (2020) [MP3|320 Kbps] <Synthpop, Pop>
@@ -6,7 +122,7 @@ Hurts - Faith (2020) [MP3|320 Kbps] <Synthpop, Pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472645.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Kiss FM Dance Radio Chart 6 (4 Dance Years) (2006) [MP3|320 кб/с]<House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472288.jpg" />
 </div>
 
 
@@ -70,7 +186,7 @@ VA - Born To Lounge (25 Chillout Classic Hits Session) (2012) [MP3|320 кб/с]<
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472273.jpg" />
 </div>
 
 
@@ -105,7 +221,7 @@ VA - Afterdark 001 - Buenos Aires (Mixed & Compiled by Sneijder) (2018) [FLAC|Lo
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472008.jpg" />
 </div>
 
 
@@ -134,7 +250,7 @@ Blakk Harbor - Madares (2018) Ant-Zen [FLAC|Lossless|WEB-DL|tracks] <Experimenta
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471908.jpg" />
 </div>
 
 
@@ -163,7 +279,7 @@ K-Chaos - Let The Heat In (2017) LP [MP3|320 Kbps] <Drum & Bass, Breaks, Techno>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471879.jpg" />
 </div>
 
 
@@ -192,7 +308,7 @@ David Guetta - Nothing but the Beat 2.0 (2012) [FLAC|Lossless]<House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471510.jpg" />
 </div>
 
 
@@ -226,7 +342,7 @@ VA - Bikini Beach, Vol. 4 (2019) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471393.jpg" />
 </div>
 
 
@@ -255,7 +371,7 @@ VA - Dj Darroo - Harder Trance (2020) [MP3|320 Kbps] <Hard Trance, Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471187.jpg" />
 </div>
 
 
@@ -284,7 +400,7 @@ Black Magnet - Hallucination Scene (2020) [MP3|320 Kbps] <Industrial Metal, Alte
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470992.jpg" />
 </div>
 
 
@@ -313,7 +429,7 @@ Arcturus - Templates (2020) Merkaba Music [FLAC|Lossless|WEB-DL|tracks] <Psychil
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470851.jpg" />
 </div>
 
 
@@ -342,7 +458,7 @@ U96 & Wolfgang Flur - Transhuman (2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Elec
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470846.jpg" />
 </div>
 
 
@@ -371,7 +487,7 @@ Dhamika - Point of No Return (2020) Dhamika Music [FLAC 2.0|44.1/24|tracks|WEB-D
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470842.jpg" />
 </div>
 
 
@@ -400,7 +516,7 @@ Tricky - Fall to Pieces (2020) [MP3|320 Kbps] <Trip-Hop, E﻿lectronic>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470728.jpg" />
 </div>
 
 
@@ -429,7 +545,7 @@ Balance - One Second (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psychill, Downtemp
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470700.jpg" />
 </div>
 
 
@@ -458,7 +574,7 @@ The Living Tombstone - zero one (2020) [MP3|320 Kbps] <Electronic, Dubstep>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470598.jpg" />
 </div>
 
 
@@ -487,7 +603,7 @@ VA - Beautiful Vocal Trance: Chapter 5 (2020) [FLAC|Lossless|tracks] <Trance, Vo
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470563.jpg" />
 </div>
 
 
@@ -516,7 +632,7 @@ Parov Stelar - Voodoo Sonic (The Trilogy, Pt. 3) (2020) [FLAC|24/44,1|Lossless|W
 >>Trance, House, Techno (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470528.jpg" />
 </div>
 
 
@@ -545,7 +661,7 @@ ScAnDroid Experiment's - We Will Make You Happy (2022) авторская раз
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470188.jpg" />
 </div>
 
 
@@ -574,7 +690,7 @@ VA - Ori Uplift - Uplifting Only 291 (2018) [MP3|320 Kbps] <Trance,Uplifting Tra
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470087.jpg" />
 </div>
 
 
@@ -603,7 +719,7 @@ VA - Essential Vocal Trance (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470084.jpg" />
 </div>
 
 
@@ -632,7 +748,7 @@ VA - Silk Music Pres. Trance Treasures 11 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470065.jpg" />
 </div>
 
 
@@ -646,122 +762,6 @@ VA - Silk Music Pres. Trance Treasures 11 (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A00218BA908167FEB97D395E0DC67C7BBAD22192
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245779   (469974) от 07.09.2018
-
-VA - Aurosonic - Best Of Trance (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurosonic & Ana Criado - Ask Me Anything (Extended Mix)
-02. Aurosonic, Kate Louise Smith & Denis Karpinskiy - They Wait For Us (Progressive Mix)
-03. Aurosonic & Katty Heath - My Good Place (Progressive Mix)
-04. Aurosonic - Starfall (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:05:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E79C9C07C437A322A935BCEA94F24E6973A6BDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245825   (469962) от 07.09.2018
-
-Paul van Dyk - My World (In The Mix) (2002) [FLAC|Lossless|image + .cue] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul van Dyk - Autumn
-02. David Forbes - Questions Must Be Asked
-03. Paul van Dyk - Tell Me Why (The Riddle)
-04. Paul van Dyk - Another Way(   Читать дальше...   )Жанр: TranceПродолжительность: 01:16:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A89EA9256A2F9912F3AFE586CF8673461E86AB49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245690   (469892) от 07.09.2018
-
-Yotto - Hyperfall (2018) Anjunadeep [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hyperfall (2:55)
- 02. The One You Left Behind (5:29)
- 03. Kantsu (4:59)
- 04. Nada C (3:02)(   Читать дальше...   )Жанр: Progressive House, Tech House, Deep HouseПродолжительность: 00:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD2F95A7BB5B1CE4E4A299289A9730930AAE45CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161022   (469813) от 27.08.2017
-
-Eschaton - Carina (2017) EP [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life Patterns (06:33)
- 02. Sky Portraits (07:07)
- 03. Carina (05:57)
- 04. Dreaming Colours (06:51)Жанр: Drum & BassПродолжительность: 00:26:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03687491877162B727B8F91CD5B25D0FCC592F4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

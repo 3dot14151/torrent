@@ -1,3 +1,57 @@
+###  Публикация: 1182800   (314881) от 11.11.2017
+
+Е.М. Грязнова и др. | Геотехнический мониторинг в строительстве (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Термин «геотехнический мониторинг» появился в практике отечественного строительства в 90-х гг. ХХ в. в ряде нормативных документов, обобщающих накопленный к тому времени опыт по реконструкции и новому строительству объектов в историческом центре таких мегаполисов, как Москва и Санкт-Петербург.
+Излагаются и обосновываются вопросы организации и проведения геотехнического (   Читать дальше...   )Жанр: СтроительствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D9EAC9EE2F178014F626CF54D85C27B726CD724
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 582983   (314861) от 01.12.2012
+
+Сетков В.И., Сербин Е.П. | Строительные конструкции [2005] [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314861.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебнике излагаются основы проектирования и расчета наиболее простых и широко распространенных в строительной практике несущих конструкций.
+Издание рассчитано на студентов и преподавателей строительных колледжей и техникумов, а также других средних профессиональных учебных заведений, ведущих подготовку специалистов по строительным специальностям, и прежде всего по специальности «Строительство зданий и сооружений» (спец. 2902) со всеми ее специализациями базового уровня. Может представлять интерес для студентов высшей школы, где дисциплина «Строительные конструкции» имеется в учебных планах, но не является профилирующей. Может быть полезным для техников-строителей, занимающихся производственной деятельностью или проектным делом в области нового строительства или реконструкции в жилищно-коммунальном комплексе, и особенно в малом бизнесе.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:029DD804A9850259969232EF28F8AEEC4D5D8F30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182826   (314754) от 11.11.2017
 
 Махмуд Харун | Проектирование и строительство инженерных систем (2014) [PDF]
@@ -6,7 +60,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314754.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314279.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312828.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312592.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312479.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312475.jpg" />
 </div>
 
 
@@ -162,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312463.jpg" />
 </div>
 
 
@@ -189,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312350.jpg" />
 </div>
 
 
@@ -216,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312336.jpg" />
 </div>
 
 
@@ -243,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312193.jpg" />
 </div>
 
 
@@ -269,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312192.jpg" />
 </div>
 
 
@@ -295,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312066.jpg" />
 </div>
 
 
@@ -322,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312041.jpg" />
 </div>
 
 
@@ -348,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311910.jpg" />
 </div>
 
 
@@ -375,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311657.jpg" />
 </div>
 
 
@@ -402,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308331.jpg" />
 </div>
 
 
@@ -428,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308145.jpg" />
 </div>
 
 
@@ -454,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308136.jpg" />
 </div>
 
 
@@ -480,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307819.jpg" />
 </div>
 
 
@@ -506,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307579.jpg" />
 </div>
 
 
@@ -533,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307377.jpg" />
 </div>
 
 
@@ -560,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307231.jpg" />
 </div>
 
 
@@ -587,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306627.jpg" />
 </div>
 
 
@@ -613,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305664.jpg" />
 </div>
 
 
@@ -624,59 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86AF16840F03F18A9C028A3D8F20D6A2C1606E33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261192   (305461) от 10.11.2018
-
-Ю.И. Нечаев, А.Б. Дегтярев | Интеллектуальные системы: концепция и приложения (2011) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305461.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии общие принципы и методы искусственного интеллекта исследованы при решении трудноформализуемых проблем. Большое внимание уделено развитию современного подхода к реализации систем искусственного интеллекта в рамках новой парадигмы обработки информации в мультипроцессорной вычислительной среде. Рассмотрены вопросы использования концепции мягких вычислений (   Читать дальше...   )Жанр: РобототехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF271D16CCF0088371FB56019304585DDCF10735
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960788   (305434) от 29.11.2015
-
-В.А. Новиков (ред.) | Электропривод в современных технологиях (2014) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305434.jpg" />
-</div>
-
-
-###  Подробнее
-
-В соответствии с блочно-модульными принципами построения технических и программных средств унифицированных систем автоматизированных электроприводов изложены способы реализации технологических функций электроприводов, методы расчета, выбора, параметрирования и программирования электроприводов для современных технологий.
- Приведены примеры выполнения систем управления (   Читать дальше...   )Жанр: ЭлектротехникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3FA329EE1CC3EF6811540FDBF9A5DFB6E7C2A53
 ```
 
 https://mybot314.ru/tekegram_catalog/

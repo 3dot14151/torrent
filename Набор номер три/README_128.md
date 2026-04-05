@@ -1,3 +1,160 @@
+###  Публикация: 841539   (878670) от 22.02.2015
+
+Assassin's Creed: Unity (2014) [Ru/Multi] (1.5.0/dlc) SteamRip R.G. Игроманы [Gold Edition]
+
+>>3
+>>13
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Assassin’s Creed® Единство - приключенческий экшн, который перенесет вас в Париж времен Французской революции. Вы узнаете историю Арно – юноши, по воле случая оказавшегося втянутым в кровавые события того периода. Вас ждут новые возможности в управлении персонажем. Изменяйте и внешний вид предметов, и их технические характеристики. Вы сможете играть в Assassin’s (   Читать дальше...   )Тип издания: Цифровая лицензия (Steam-Rip)Разработчик: Ubisoft Montral, Ubisoft Toronto и Ubisoft MontpellierЖанр: Action / 3D / 3rd PersonЯзык озвучки: Русский, ФранцузскийЯзык субтитров: РусскийЯзык интерфейса: Русский,
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:998F8E60F30EAB6EDF53F99ABA6885CF396115AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 840423   (878666) от 22.02.2015
+
+Assassin's Creed: Unity (2014) [Ru/Multi] (1.5.0/dlc) Repack R.G. Механики
+
+>>3
+>>91
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Assassin’s Creed® Единство - приключенческий экшн, который перенесет вас в Париж времен Французской революции. Вы узнаете историю Арно – юноши, по воле случая оказавшегося втянутым в кровавые события того периода. Вас ждут новые возможности в управлении персонажем. Изменяйте и внешний вид предметов, и их технические характеристики. Вы сможете играть в Assassin’s (   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft Montral, Ubisoft Toronto и Ubisoft MontpellierЖанр: Action / 3D / 3rd PersonЯзык озвучки: Русский, Английский, ФранцузскийЯзык субтитров: Русский, Английский, ФранцузскийЯзык интерфейса: Русский, Английский, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B10A45DC42445D4E29565A1DDDE744FB0326E18D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494959   (878610) от 13.09.2021
+
+Ил-496: отечественный лайнер-гигант нового поколения
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уже к 2022 году на смену Ил-96-300 придет достойный наследник отечественного авиапрома — настоящий гигант, широкофюзеляжный самолет Ил-96-400М.В 2017 году Авиационный комплекс им. С.В. Ильюшина начал разработку конструкторской документации настоящего титана авиационной промышленности – широкофюзеляжного лайнера Ил-96-400М. По заявлениям самих конструкторов, новый (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495410   (878599) от 13.09.2021
+
+Тема недели: ТСПУ-блокировки и способы их обхода
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878599.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Рунете всё больше блокировок, в том числе VPN. Что делать для обхода в таких условиях и как развиваться VPN-сервисам?Любые массовые сервисы, в том числе VPN, уязвимы к блокировке именно из-за своей массовости.Пока мы не дошли до так называемого «китайского сценария», самым действенным способом является поднятие собственной VPN на арендованных виртуальных серверах (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380670   (878595) от 13.09.2021
+
+Вечная Отечественная (2020) WEBRip [H.264] (серии 1-13 из 13) [PR]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878595.jpg" />
+</div>
+
+
+###  Подробнее
+
+В фильме представлены кадры видеохроники, исторические документы, воспоминания участников сражений и рассекреченные архивные данные. Рассказ об истинных планах Германии и ее приспешниках, о подоплеке событий, важнейших сражениях и героизме советских военных будут вести известные российские деятели культуры.
+Также в фильме описываются действия стран-победителей — (   Читать дальше...   )Жанр: Документальный, История, Война, ХроникиРежиссер: А. ОсиповПродолжительность: 13 x ~00:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61E8446CDEB8A3FE151E50310D05F2E6D8C4F009
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495018   (878594) от 13.09.2021
+
+Tales of Arise (2021) [Ru/Multi] (7034068/dlc) License Fairlight
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878594.jpg" />
+</div>
+
+
+###  Подробнее
+
+На протяжении 300 лет Рена правила планетой Дахна, разграбляя её ресурсы и лишая её народ достоинства и свободы. Наша история начинается с двух рождённых в разных мирах людей, которые хотят изменить свою судьбу и создать новое будущее. Tales of Arise порадует Вас первоклассным игровым процессом японской ролевой игры: всевозможные персонажи, интуитивно понятные и (   Читать дальше...   )Тип издания: LicenseРазработчик: BANDAI NAMCO Studios Inc.Жанр: jRPG, Action, AdventureЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3258B8CF96610D796602AA6C490C25996EEA730
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446093   (878593) от 13.09.2021
 
 GoodbyeDPI.0.1.6. Launcher-4.3 [Ru]
@@ -6,7 +163,7 @@ GoodbyeDPI.0.1.6. Launcher-4.3 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878593.jpg" />
 </div>
 
 
@@ -35,7 +192,7 @@ ViNTERA.TV v3.1.457 [Ru/En] - просмотр сотен телевизионн
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878592.jpg" />
 </div>
 
 
@@ -61,7 +218,7 @@ CyberLink PowerDirector Ultimate 14.0.2707.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878447.jpg" />
 </div>
 
 
@@ -87,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878441.jpg" />
 </div>
 
 
@@ -113,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878420.jpg" />
 </div>
 
 
@@ -139,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878357.jpg" />
 </div>
 
 
@@ -168,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>9
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878345.jpg" />
 </div>
 
 
@@ -195,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878328.jpg" />
 </div>
 
 
@@ -225,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878179.jpg" />
 </div>
 
 
@@ -252,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877975.jpg" />
 </div>
 
 
@@ -278,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>12
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877959.jpg" />
 </div>
 
 
@@ -304,7 +461,7 @@ Acronis True Image 2020 Build 25700 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877927.jpg" />
 </div>
 
 
@@ -330,7 +487,7 @@ Autodesk AutoCAD 2021 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877914.jpg" />
 </div>
 
 
@@ -356,7 +513,7 @@ Rollback Rx Professional 10.5 Build 2702327820 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877543.jpg" />
 </div>
 
 
@@ -382,7 +539,7 @@ SolidWorks Premium Edition 2017 SP 2.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877531.jpg" />
 </div>
 
 
@@ -408,7 +565,7 @@ Call of Duty: Modern Warfare - Remastered (2016) [Ru/En] (1.7.83/u4) Rip xatab
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877530.jpg" />
 </div>
 
 
@@ -434,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877529.jpg" />
 </div>
 
 
@@ -460,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877326.jpg" />
 </div>
 
 
@@ -486,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>14
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877324.jpg" />
 </div>
 
 
@@ -514,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_877067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_877067.jpg" />
 </div>
 
 
@@ -525,164 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 300014   (877052) от 23.02.2011
-
-Санктум / Sanctum (2011) [H.264] DVDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа дайверов предпринимает очень рискованную экспедицию в самую большую систему пещер на Земле — невероятно красивую и почти недоступную. Неожиданный тропический шторм вынуждает их спуститься глубоко в пещеры. Единственное спасение для исследователей — найти неизвестный второй выход к морю, преодолевая неистовую стихию бушующих вод, коварные ловушки подземелий (   Читать дальше...   )Производство: США / Австралия, Relativity MediaЖанр: Боевик, Триллер, Драма, ПриключенияРежиссер: Алистер ГрирсонАктеры: Ричард Роксбург, Йоан Гриффит, Риз Уэйкфилд, Элис Паркинсон, Дэниэл Уилли, Кристофер Бэйкер, Элисон Крэтчли, Крамер Кэйн, Эндрю Хансен, Джон ГарвинПеревод: ДублированныйФормат: MKVПродолжительность: 01:44:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A590D0DED1E45D6C9A3CECC71D4470210524612
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495426   (876958) от 14.09.2021
-
-Технология Google повышает разрешение изображений до 16 раз без потери качества
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876958.jpg" />
-</div>
-
-
-###  Подробнее
-
-В июле исследователи Google из команды Brain Team поделились своими достижениями в области масштабирования изображений. Результаты своих исследований они опубликовали в блоге Google AI, посвящённом исследованиям и разработкам в области машинного обучения и искусственного интеллекта.В статье под названием «Создание высокоточных изображений с использованием диффузионных (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494945   (876952) от 14.09.2021
-
-Life is Strange: True Colors (2021) [Ru/Multi] (1.1.190.624221) License CODEX
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алекс Чэнь давно скрывает от всех своё "проклятие" - сверхъестественное умение считывать и поглощать сильные чувства других людей, которые представляются ей в виде разноцветных аур, а также управлять ими. Когда её брат погибает - якобы в результате несчастного случая, Алекс приходится овладеть своими силами, чтобы узнать правду и заодно раскрыть мрачные (   Читать дальше...   )Тип издания: LicenseРазработчик: Deck NineЖанр: Adventure, Choice and Consequence, Choose Your Own AdventureЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Английский, Французский, НемецкийЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AB5870887AB2ED0EA7E62C979E527B83512E1C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495847   (876947) от 14.09.2021
-
-Adobe Photoshop 2020 21.2.12.215 (Win7) RePack by KpoJIuK [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная версия - последняя, которая нормально работает на windows7
-Adobe Photoshop 2020 - новая версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6532C1F15F585E49204B10A29CFD5BF76172B1B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 155040   (876857) от 23.02.2015
-
-Набор в релиз-группу категории "Игры" R.G. Games
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876857.jpg" />
-</div>
-
-
-###  Подробнее
-
-Идёт набор в релиз-группу "R.G. Games"Специализация: Делаем раздачи игр, делаем репаки,
- Интересуют и тестеры,(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992797   (876653) от 15.03.2016
-
-Холодное лето пятьдесят третьего (1987) DVDRip [H.264] [PR]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вскоре после смерти Иосифа Сталина в 1953 году Лаврентий Берия, всесильный министр НКВД, объявил широкую амнистию. Благодаря этой амнистии на свободе оказались отпетые уголовники, совершившие тяжкие преступления. Бесчинствуя в тайге, в поисках еды и средств передвижения, бандиты набредают на маленькую деревушку, в которой ожидают прибытия катера двое амнистированных (   Читать дальше...   )Производство: СССР, МосфильмЖанр: Боевик, Драма, КриминалРежиссер: Александр ПрошкинАктеры: Валерий Приемыхов, Анатолий Папанов, Виктор Степанов, Нина Усатова, Зоя Буряк, Юрий Кузнецов, Владимир Кашпур, Владимир Головин, Андрей Дударенко, Сергей Власов, Борис Плотников, Виктор Косых и др.Продолжительность: 01:36:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E8F98203A99CB5AB0438023C374C2F28EB5B4BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

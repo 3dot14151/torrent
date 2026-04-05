@@ -1,3 +1,30 @@
+###  Публикация: 1147358   (609481) от 02.07.2017
+
+Антон Чехов | Три года (2016) [MP3, Алексей Багдасаров]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повесть о московской жизни.
+Повесть «Три года» вынашивалась долго. Первые наброски были сделаны писателем еще во время его первого зарубежного путешествия в 1891 г. Завершающий период работы – 1894 г. Таким образом, повесть и писалась три года. Повесть существовала в виде фрагментов, узловых сцен, зарисовок, тем дискуссии, то есть в разрозненном виде. Опубликована (   Читать дальше...   )Жанр: Русская классическая литератураИздательство: ГельветикаПродолжительность: 04:00:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98D9F210B6F9215A797E521595639B7EDAF33EC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1147101   (609394) от 02.07.2017
 
 Кристофер Марло | Трагическая история доктора Фауста (2012) [MP3]
@@ -6,7 +33,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609394.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607824.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607523.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606606.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605549.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603917.jpg" />
 </div>
 
 
@@ -164,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603909.jpg" />
 </div>
 
 
@@ -191,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600228.jpg" />
 </div>
 
 
@@ -218,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598653.jpg" />
 </div>
 
 
@@ -244,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598361.jpg" />
 </div>
 
 
@@ -272,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598216.jpg" />
 </div>
 
 
@@ -298,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598210.jpg" />
 </div>
 
 
@@ -325,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598208.jpg" />
 </div>
 
 
@@ -351,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598023.jpg" />
 </div>
 
 
@@ -377,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597891.jpg" />
 </div>
 
 
@@ -403,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596545.jpg" />
 </div>
 
 
@@ -429,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596540.jpg" />
 </div>
 
 
@@ -456,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593572.jpg" />
 </div>
 
 
@@ -482,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593568.jpg" />
 </div>
 
 
@@ -508,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593540.jpg" />
 </div>
 
 
@@ -534,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593534.jpg" />
 </div>
 
 
@@ -560,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593392.jpg" />
 </div>
 
 
@@ -586,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593389.jpg" />
 </div>
 
 
@@ -613,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592851.jpg" />
 </div>
 
 
@@ -641,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592664.jpg" />
 </div>
 
 
@@ -652,32 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B314207CB59F8E7AB56F19E6F73BEBADC6AD10AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550019   (592662) от 09.05.2022
-
-Константин Симонов | Четыре шага (1979) [MP3, В.Самойлов и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Радиоспектакль по повести Констатнтина Симонова "Четыре шага" о буднях военного корреспондента во время Великой Отечественной войны в Крыму.Жанр: Классика, РадиоспектакльПродолжительность: 00:50:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12EF1743E65F4DD8062A3B1285332BFC99B3A164
 ```
 
 https://mybot314.ru/tekegram_catalog/

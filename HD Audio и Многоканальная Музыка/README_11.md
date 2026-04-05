@@ -1,32 +1,3 @@
-###  Публикация: 1492379   (903857) от 29.08.2021
-
-George Harrison – All Things Must Pass (50th Anniversary) (2021) [DTS-ES Discrete 6.1 CD-DA|44.1/16|image+.cue|BD-Audio] <Pop/Rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 I’d Have You Anytime
-02 My Sweet Lord
-03 Wah-Wah
-04 Isn’t It A Pity (Version One)(   Читать дальше...   )Жанр: Pop/RockПродолжительность: 01:15:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:140202108F00581B0D1C17E151680A56454483AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099256   (903056) от 02.02.2017
 
 Simply Red - Stars (1991) [FLAC 2.0|192/24|tracks+.cue|Vinyl-Rip] <Funk, Soul, Pop, Rock>
@@ -35,7 +6,7 @@ Simply Red - Stars (1991) [FLAC 2.0|192/24|tracks+.cue|Vinyl-Rip] <Funk, Soul, P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903056.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902749.jpg" />
 </div>
 
 
@@ -94,7 +65,7 @@ AC/DC - Let There Be Rock (1977) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902586.jpg" />
 </div>
 
 
@@ -124,7 +95,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902548.jpg" />
 </div>
 
 
@@ -154,7 +125,7 @@ John Lennon - Imagine (2014/1971) [LPCM 2.0 96/24|Audio-DVD (BD-Audio)] <Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899541.jpg" />
 </div>
 
 
@@ -183,7 +154,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899279.jpg" />
 </div>
 
 
@@ -212,7 +183,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894588.jpg" />
 </div>
 
 
@@ -242,7 +213,7 @@ Ambra - Child Of The Universe (2003) [DTS 5.1 44.1 /16 | .wav+.cue (SACD)] <new 
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894169.jpg" />
 </div>
 
 
@@ -271,7 +242,7 @@ AC-DC - Rock Or Bust (2014) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892146.jpg" />
 </div>
 
 
@@ -300,7 +271,7 @@ VA - RETROспектива, часть IX: Эстрадные оркестры I
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890901.jpg" />
 </div>
 
 
@@ -329,7 +300,7 @@ Locomotiv GT. - In Warsaw. Recorded live at the Congress Hall (1975) [FLAC 2.0|9
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890865.jpg" />
 </div>
 
 
@@ -358,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890699.jpg" />
 </div>
 
 
@@ -387,7 +358,7 @@ VA - RETROспектива, часть X: Эстрадные оркестры X 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887401.jpg" />
 </div>
 
 
@@ -416,7 +387,7 @@ The Alan Parsons Project - Eve (1979) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887065.jpg" />
 </div>
 
 
@@ -445,7 +416,7 @@ Mike Oldfield - Discovery And The Lake (2016) 1984 [DTS 5.1 CD-Extra|44.1/16|ima
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885832.jpg" />
 </div>
 
 
@@ -474,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882829.jpg" />
 </div>
 
 
@@ -503,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880732.jpg" />
 </div>
 
 
@@ -532,7 +503,7 @@ VA - Love Power vol.1 (1997) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880530.jpg" />
 </div>
 
 
@@ -561,7 +532,7 @@ VA - RETROспектива, часть XI: Эстрадные оркестры X
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879940.jpg" />
 </div>
 
 
@@ -590,7 +561,7 @@ Beth Hart - Better Than Home (2015) [WavPack|192/32|image + .cue|Vinyl-Rip] <Blu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879781.jpg" />
 </div>
 
 
@@ -621,7 +592,7 @@ Frank Sinatra - Duets (1993) First Press [WavPack|192/32|image + .cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879773.jpg" />
 </div>
 
 
@@ -650,7 +621,7 @@ Nightwish - Endless Forms Most Beautiful (2015) [FLAC 2.0|96/24|tracks|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878696.jpg" />
 </div>
 
 
@@ -679,7 +650,7 @@ Manfred Mann's Earth Band - Messin' (1973) 1983, Reissue [FLAC 2.0|192/24|image 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878009.jpg" />
 </div>
 
 
@@ -708,7 +679,7 @@ Manfred Mann's Earth Band - Nightingales & Bombers (1975) [FLAC 2.0|192/24|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875456.jpg" />
 </div>
 
 
@@ -737,7 +708,7 @@ a-ha - Cast In Steel (2015) [WavPack 2.0|192/32|image +.cue|Vinyl-Rip] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_875254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_875254.jpg" />
 </div>
 
 
@@ -751,6 +722,35 @@ A3 The Wake 3:45(   Читать дальше...   )Жанр: PopПродолж�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84A8B87831341F03980378CAD74954B95B1EEC13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105409   (874934) от 18.02.2017
+
+Duran Duran - Notorious (1986) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874934.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Notorious
+A2	American Science
+A3	Skin Trade
+A4	A Matter Of Feeling(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC6D710DCECA83540E6D5487CFA041AD805349FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

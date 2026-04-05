@@ -6,7 +6,7 @@ NG: Секреты истории - Эксперименты ЦРУ: Контр�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190955.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Discovery. Потерянный город Тутанхамона / Tut's Lost C
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190541.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ History Channel: Древние пришельцы / Ancient Aliens (2021) WEB-D
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190510.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190462.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_189498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189498.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ History Channel: Жизнь после людей / Life after people (2008) HDR
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_189495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189495.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ NG: 11 сентября - хроника террора / Inside 9/11 (2007) TVR
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_189484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189484.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189018.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188938.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ BBC. Замёрзшая планета 2 / Frozen Planet II (2022) WEB-DL [H.265
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188364.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188212.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Discovery: Ниндзя. Демоны ночи / Unsolved History. Ninjas (2004)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_187056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_187056.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ NG: Безграничный / Без границ: с Крисом Хемсво
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187032.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Discovery. Тутанхамон: столетие тайн / King Tut: A Century
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186719.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Discovery: Покушение на Гитлера / Virtual History: The Secret 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186400.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186393.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186189.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Discovery. Взрывая историю / Blowing up History (2022) HDTV [H.264
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185776.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ NG. Охотники за вирусами / Virus Hunters (2020) IPTV [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184897.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ BBC: Приключeния Брайана Кокса в пространстве
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183454.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182987.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182985.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182710.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181974.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ History Channel. Тайны древности. Варвары: Монголы /
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181840.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ History Channel: Древние пришельцы / Ancient Aliens (2023) WEB-D
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180426.jpg" />
 </div>
 
 

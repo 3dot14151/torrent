@@ -1,3 +1,133 @@
+###  Публикация: 940414   (468672) от 24.09.2015
+
+Кокоша – маленький дракон / Der kleine Drache Kokosnuss (2014) BDRip 3D [H.264/1080p-LQ] [Горизонтальная анаморфная стереопара]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дракончик Кокоша и его друг, дракончик Оскар, жили на Острове Драконов. Были они не такими, как все. Кокоша очень хотел стать летающим драконом, но летать у него не получалось. А Оскар, хищник по рождению, был убежденным вегетарианцем. Однажды вместе со своей подружкой, дикобразихой Матильдой, они решили отправиться в рискованное путешествие…Производство: Германия / Caligari Film- und Fernsehproduktions GmbH, Universum Film (UFA)Жанр: мультфильм, детскийРежиссер: Хьюберт Вейланд, Нина ВелсПерсонажи: Каролин Кебекус, Клаудия Михельсен, Дастин Земмельрогге, Макс фон ГробенПеревод: Профессиональный (полное дублирование) (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:34:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BCD5B90294632F0CEAE8027607AC05ECB5AAB07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940397   (468661) от 24.09.2015
+
+Кокоша – маленький дракон / Der kleine Drache Kokosnuss (2014) BDRip [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дракончик Кокоша и его друг, дракончик Оскар, жили на Острове Драконов. Были они не такими, как все. Кокоша очень хотел стать летающим драконом, но летать у него не получалось. А Оскар, хищник по рождению, был убежденным вегетарианцем. Однажды вместе со своей подружкой, дикобразихой Матильдой, они решили отправиться в рискованное путешествие…Производство: Германия / Caligari Film- und Fernsehproduktions GmbH, Universum Film (UFA)Жанр: мультфильм, детскийРежиссер: Хьюберт Вейланд, Нина ВелсПерсонажи: Каролин Кебекус, Клаудия Михельсен, Дастин Земмельрогге, Макс фон ГробенПеревод: Профессиональный (полное дублирование) (iTunes)Язык субтитров: НемецкийПродолжительность: 01:34:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:736885893AC0CA887A9E1AEBC893B16E1CCC4391
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406973   (468605) от 06.09.2020
+
+Оседлай его, Боско! / Ride Him, Bosko! (1932) DVDRip [H.264] [hand made colored]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468605.jpg" />
+</div>
+
+
+###  Подробнее
+
+Боско на диком западе пытается развлечься в любой ситуации, которая встречается у него на пути.Производство: США, Warner Bros. Cartoon StudiosЖанр: Рисованная анимация, Музыкальный, Комедия, КороткометражныйРежиссер: Хью ХарманПеревод: Одноголосый профессиональный (RoxMarty)Субтитры: вшитые отключаемые, английскийПродолжительность: 00:07:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:539FD3E2EFED44C5FBDDD92D79675657EBAB43A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407139   (468488) от 06.09.2020
+
+Бадди на прогулке / Buddy's Day Out (1933) DVDRip [H.264] [hand made colored]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бадди готовится к своему романтическому пикнику с Куки, но по пути она берет с собой своего младшего брата Элмера.Производство: США, Warner Bros. Cartoon StudiosЖанр: Рисованная анимация, Музыкальный, Комедия, КороткометражныйРежиссер: Том ПалмерПеревод: ОтсутствуетСубтитры: вшитые отключаемые (русский, английский)Продолжительность: 00:07:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC04F72FA8F7044DCCE021D8B49FC6ADB3127EFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407115   (468485) от 06.09.2020
+
+Боско на войне / Bosko the Doughboy (1931) DVDRip [H.264] [hand made colored] [EN sub]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Боско - мальчишка на Великой войне. Повсюду пули и бомбы (одна даже взрывает титульный лист). Боско и его товарищи-пехотинцы вряд ли находятся в безопасности в своих окопах. Боско с удовольствием ест из кастрюли, полной фасоли, когда бомба попадает в кастрюлю и разрывает ее на куски. Боско скучает по Меде, он вытаскивает ее фотографию и целует ее. Пушечное ядро пробивает (   Читать дальше...   )Производство: США, Warner Bros. Cartoon StudiosЖанр: Рисованная анимация, Музыкальный, Комедия, КороткометражныйРежиссер: Хью ХарманПеревод: ОтсутствуетСубтитры: вшитые отключаемые, английскийПродолжительность: 00:06:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:293EFC627AAF6CF940D427B823B4A2193B37613F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1407212   (468477) от 06.09.2020
 
 Это снова меня достало! / It's Got Me Again! (1932) DVDRip [H.264] [hand made colored] [EN sub]
@@ -6,7 +136,7 @@
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468477.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468403.jpg" />
 </div>
 
 
@@ -61,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468389.jpg" />
 </div>
 
 
@@ -87,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468381.jpg" />
 </div>
 
 
@@ -113,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468324.jpg" />
 </div>
 
 
@@ -140,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468308.jpg" />
 </div>
 
 
@@ -169,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468279.jpg" />
 </div>
 
 
@@ -195,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468267.jpg" />
 </div>
 
 
@@ -221,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468203.jpg" />
 </div>
 
 
@@ -247,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468182.jpg" />
 </div>
 
 
@@ -273,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468060.jpg" />
 </div>
 
 
@@ -299,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468012.jpg" />
 </div>
 
 
@@ -325,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468006.jpg" />
 </div>
 
 
@@ -351,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467952.jpg" />
 </div>
 
 
@@ -378,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467928.jpg" />
 </div>
 
 
@@ -407,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467872.jpg" />
 </div>
 
 
@@ -433,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467708.jpg" />
 </div>
 
 
@@ -459,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467704.jpg" />
 </div>
 
 
@@ -485,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467702.jpg" />
 </div>
 
 
@@ -511,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467701.jpg" />
 </div>
 
 
@@ -537,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467695.jpg" />
 </div>
 
 
@@ -548,139 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE0837AE99BC3D9422B3ABAD4397E584C657ED2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567957   (467692) от 05.08.2022
-
-Удача / Luck (2022) WEB-DL [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сэм Гринфилд — самая невезучая девочка в мире. Внезапно оказавшись в волшебной Стране Удачи, она объединяется с населяющими её существами, чтобы вернуть себе удачу.Производство: США, Испания / Skydance Animation, Paramount Pictures, Apple Original FilmsЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Пегги ХолмсПеревод: Дублированный (Невафильм)Субтитры: русские (forced, full, SDH), украинские (full), иврит (full), английские (full, SDH)Продолжительность: 01:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B678E98F6E29EA09C2565FDF0ACE912E3CC157B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 387226   (467618) от 13.09.2011
-
-Про мамонтенка (1983) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Про героя-мамонтенка, который погиб, защищая друга.Жанр: Детский, КукольныйРежиссер: Борис АблынинПродолжительность: 00:08:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E35D7209DC421E8B952574099758A2F5ACF3FD75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 387400   (467508) от 13.09.2011
-
-Про Фому и про Ерему (1984) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультипликационный фильм по сказке Генриха Сапгира о том, как незадачливых братьев Фому и Ерёму во всякой работе постигает неудача и каждый встречный оставляет их в дуракахЖанр: ДетскийРежиссер: Юрий ПрытковРоли озвучивают: Вячеслав БогачёвПродолжительность: 00:08:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2F109F720E4F758AF70AB2B965AA11A566D69AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548572   (467059) от 18.09.2012
-
-Анимированный эпос: Моби Дик / Animated Epics: Moby Dick (2000) DVDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм по роману Герман Мелвилла "Моби Дик", одного из величайших американских романов 19 века.
-Молодой человек Измаил, обуреваемый жаждой приключений нанимается на корабль, чтобы узнать, что такое охота на китов. В последнюю ночь перед отплытием "Пекуды" он знакомится с темнокожим парнем и берет его с собой... Однако оказывается, что главная цель (   Читать дальше...   )Жанр: Рисованная анимация (живопись по стеклу)Режиссер: Наталья ОрловаПеревод: Одноголосый закадровыйПродолжительность: 00:25:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33E3FF830086593C5FEBA525EE26BAF9B1C1BE6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161427   (467050) от 28.08.2017
-
-Жил-был кот / Rudolf The Black Cat (2016) HDRip [H.264]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467050.jpg" />
-</div>
-
-
-###  Подробнее
-
-История маленького чёрного котёнка с гордым именем Рудольф, жившего счастливо и спокойно ровно до тех пор, пока по роковой случайности он не оказался в неизвестном большом городе. Здесь герою придётся выживать без ласки и заботы хозяев, а ведь раньше он был твёрдо убежден, что всегда будет в полной безопасности.
-
-Блуждая по улицам незнакомого города, Рудо встречает (   Читать дальше...   )Производство: Япония, КанадаЖанр: мультфильм, комедия, приключенияРежиссер: Микинори Сакакибара, Кунихико ЮямаПерсонажи: Сандаю Докумамуси, Арата Фурута, Мао Иноуэ, Нана Мидзуки, Рио Сасаки, Рёхэй Судзуки, Юка Тэрасаки, Норито Ясима, Акио ОцукаПеревод: ДублированныйСубтитры: отсутствуют.Продолжительность: 01:28:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5936EE5E778918AD7EC95953A91BD067F7496DFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

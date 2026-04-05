@@ -1,3 +1,29 @@
+###  Публикация: 1276893   (787187) от 18.01.2019
+
+А.Г. Мордкович | Алгебра 10 класс Часть 2 Задачник (2009) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Задачник представляет собой вторую часть комплекта из двух книг предназначенных для изучения курса алгебры и начал математического ана лиза в 10-м классе с профильной подготовкой по математике (первая часть — учебник).Жанр: Школа УчебникиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25E544EEA4496BC0BF9C3C2C79C9471C0A191474
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276849   (787181) от 18.01.2019
 
 А.Г. Мордкович, П.В. Семенов | Учебник Алгебра 10 класс (2009) [PDF]
@@ -6,7 +32,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787181.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787144.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787119.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787117.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787116.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787060.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786992.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786959.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786855.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786826.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786602.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786600.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786598.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786594.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786593.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786587.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786584.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786579.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786578.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786511.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786507.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786392.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786382.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786360.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786280.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCD89271EDF80D4C8F89D40006B723D3313C083E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123949   (786037) от 09.04.2017
-
-Подборка | Развивающие раскраски по цифрам для самых маленьких (2016)
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Рабочие тетради, прописи и разукрашки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786037.jpg" />
-</div>
-
-
-###  Подробнее
-
-От точки до точки – получается барашка! А может быть, выйдет львенок или даже кораблик? Так сразу и не угадаешь. Тем и интересны раскраски по точкам для детей. Они словно сундучок с секретом, не сразу открываются. Нужно приложить усилия, чтобы получилось изображение. На выбор есть разные раскраски – от простых до замысловатых. Выбирайте на свой вкус и распечатывайте! (   Читать дальше...   )Жанр: РаскраскаФормат: JPEG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12D49E77DDBEB91B2840641EB0657F6436FCDC99
 ```
 
 https://mybot314.ru/tekegram_catalog/

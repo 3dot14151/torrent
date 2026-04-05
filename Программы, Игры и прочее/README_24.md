@@ -1,3 +1,113 @@
+###  Публикация: 1444937   (1034142) от 03.02.2021
+
+PC Remote v7.4.2 Vip [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Monect PC Remote - это бесплатное приложение, которое позволяет вам управлять ПК через Wi-Fi или Bluetooth локально или удаленно.
+
+Ключевая особенность:
+- Играйте во все виды компьютерных игр с встроенными датчиками и специально разработанными макетами кнопок, и вы можете редактировать их по своему желанию(   Читать дальше...   )Тип издания: Пиратка (Vip)Релиз состоялся: 3 февраля 2021 г.Разработчик: MonectПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA839F0A89E711A8EB047C5320310234FBCA4131
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618382   (1034069) от 11.03.2023
+
+Floor Plan Creator v3.6.2 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавайте подробные и точные планы этажей. Смотрите их в 3D. Добавьте мебель для оформления интерьера вашего дома. Возьмите с собой план этажа во время покупок, чтобы проверить, достаточно ли места для новой мебели.Тип издания: ModРелиз состоялся: 28.02.2023Разработчик: Marcin LewandowskiПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5AC32E72186846914FC374B9B33597B208BA136
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444846   (1034065) от 03.02.2021
+
+Kingdom Rush Vengeance v1.9.10 [Ru/En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Королевская Лихорадка (Kingdom Rush Vengeance) - Игра начинается с того момента, как могущественный маг Везнан вернулся! Вам предстоит отправится вместе с магом в опасное приключение, по ходу игры вы должны будите собрать могущественную армию и воплотить все коварные планы Везнана!Тип издания: Пиратка (Мод)Релиз состоялся: 17 июля 2020 г.Разработчик: Ironhide GamesПоддерживаемая ОС: Android 4.4+Жанр: СтратегияЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8650A1143B0C4E0A9D682F64C235E29B11A03499
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238007   (1034043) от 03.02.2021
+
+AudioBooks. Аудиокниги бесплатно v4.0.8 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034043.jpg" />
+</div>
+
+
+###  Подробнее
+
+Более 15000 аудиокниг и радиоспектаклей  зарубежных и отечественных авторов Бесплатно. Без подписки или регистрации:
+— Фантастика,
+— Романы,
+— Детективы,(   Читать дальше...   )Тип издания: Mod  (удалена реклама)Релиз состоялся: 01.02.2021Разработчик: Sergey FomichevПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A53A5015AD4C666B8F3984FD1A989EB38364BD50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445071   (1033902) от 04.02.2021
 
 Battle of Warships Морской бой v1.72.12 [Ru/En]
@@ -6,7 +116,7 @@ Battle of Warships Морской бой v1.72.12 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033902.jpg" />
 </div>
 
 
@@ -32,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033868.jpg" />
 </div>
 
 
@@ -61,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033618.jpg" />
 </div>
 
 
@@ -87,7 +197,7 @@ NUM - No UI Movies v1.0.60 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033602.jpg" />
 </div>
 
 
@@ -113,7 +223,7 @@ Sun Locator Pro v4.20 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033514.jpg" />
 </div>
 
 
@@ -142,7 +252,7 @@ Olympia Pro v21.2.1 [En] - Gym Workout & Fitness Trainer
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033468.jpg" />
 </div>
 
 
@@ -170,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033375.jpg" />
 </div>
 
 
@@ -196,7 +306,7 @@ Avito автопоиск с оповещениями v1.15.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033363.jpg" />
 </div>
 
 
@@ -222,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033353.jpg" />
 </div>
 
 
@@ -250,7 +360,7 @@ VLC for Android 3.5.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033338.jpg" />
 </div>
 
 
@@ -277,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033195.jpg" />
 </div>
 
 
@@ -303,7 +413,7 @@ Call Blocker / Блокировщик звонков v4.5.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033182.jpg" />
 </div>
 
 
@@ -329,7 +439,7 @@ Very Little Nightmares v1.2.0 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033124.jpg" />
 </div>
 
 
@@ -355,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032865.jpg" />
 </div>
 
 
@@ -381,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032681.jpg" />
 </div>
 
 
@@ -407,7 +517,7 @@ Bubble Shooter Royal Pop / Шарики Игры Королевские v2.3.2.2
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032211.jpg" />
 </div>
 
 
@@ -433,7 +543,7 @@ AirReceiver v4.9.5 FTV/MITV [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032163.jpg" />
 </div>
 
 
@@ -459,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032035.jpg" />
 </div>
 
 
@@ -485,7 +595,7 @@ Resize Me! v2.01.2 [Ru/Multi] - изменение размера изображ
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031971.jpg" />
 </div>
 
 
@@ -511,7 +621,7 @@ SketchAR v4.57 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031835.jpg" />
 </div>
 
 
@@ -539,7 +649,7 @@ Piano Kids - Music & Songs v2.73 [En]
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031570.jpg" />
 </div>
 
 
@@ -565,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031565.jpg" />
 </div>
 
 
@@ -576,110 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEEAF7C04119C5CB83E5FD92C4FD4B35916E568F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447631   (1031536) от 14.02.2021
-
-Play Magnus - играть в шахматы v4.7.4 [Ru/En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Play Magnus — проверь свои шахматные навыки в противостоянии с чемпионом мира Магнусом Карлсеном! Присоединяйся к другим игрокам разного уровня мастерства со всего мира, уже скачавших Play Magnus бесплатно!Тип издания: Пиратка (Мод) Много денег!Релиз состоялся: 13 февраля 2021 г.Разработчик: Play MagnusПоддерживаемая ОС: Android 6.0 и вышеЖанр: Настольные игрыЯзык интерфейса: Русский (меняется в настройках)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAA10368A7CD460D90EB5AEBAEB91DA0ECA8A81B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447604   (1031534) от 14.02.2021
-
-Sonic Dash 2 v2.3.2 [Ru/En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sonic Dash 2 - невероятное продолжение ранее популярного раннера с пополнением новых персонажей из популярного мультфильма SONIC BOOM. Вы отправитесь в мир, в котором вас никто не сможет остановить и вам нет равных.Тип издания: Пиратка (Мод) Много денег!Релиз состоялся: 8 февраля 2021 г.Разработчик: SEGAПоддерживаемая ОС: Android 4.4 и вышеЖанр: АркадаЯзык интерфейса: Русский есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AA5AFFC5888CAEA672EB142B44C2AEA922DAB12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447612   (1031502) от 14.02.2021
-
-The Walking Zombie 2: Zombie shooter v3.5.5 [Ru/En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031502.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Walking Zombie 2: Zombie shooter – шутер от первого лица на андроид, где вам предстоит выживать в экстремальных условиях. Вы родились в мире после зомби апокалипсиса и не представляете другого мира. Вашей задачей будет сражаться с зомби, бандитами и опасными боссами.Тип издания: Пиратка (Мод)Релиз состоялся: 28 января 2021 г.Разработчик: Alda GamesПоддерживаемая ОС: Android 4.4 и вышеЖанр: ЭкшенЯзык интерфейса: Русский есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF06C15C801FA81F2D3F762745BF2D10B421FF6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447821   (1031323) от 15.02.2021
-
-Hellrider 3 v1.15 [Ru/En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hellrider 3 - третья часть захватывающей экшн аркады на Android. В новой части вам также придется сражаться со скелетами, разъезжая на своем байке. Станьте участником совершенно новой истории. Верните городу мир и спокойствие.Тип издания: 1 февраля 2021 г.Релиз состоялся: 1 февраля 2021 г.Разработчик: Anji GamesПоддерживаемая ОС: Android 5.0 и вышеЖанр: АркадаЯзык интерфейса: Русский есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F0E35A120F7CFA8FAABE2AC5399E2DB7355BE9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

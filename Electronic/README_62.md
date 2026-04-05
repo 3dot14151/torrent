@@ -1,3 +1,60 @@
+###  Публикация: 1359084   (966133) от 10.02.2020
+
+VA - Erotica Vol. 5 (Most Erotic Chillout & Smooth Jazz Tunes) (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Peter Pearson - A Dream in Your Eyes (Original Mix)
+02 Michael e - It's Like Floating (Original Mix)
+03 La Estación Del Mar - A Sax in the City (Original Mix)
+04 Mo'jardo - The Way She Moves (Original Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:21:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1BC246164A1F0432E482872A22B9BED78BB96F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977278   (965547) от 21.01.2016
+
+VA - Ministry Of Sound: The Annual 2008 (2007) 3CD [FLAC|Lossless|tracks + .cue] <House, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Cut Up Boys - Shine (a cappella) vs. The Creeps (Get on the Dancefloor) (Vandalism remix) (Booty Luv vs. Freaks) (6:14)
+02. The Cut Up Boys - Let Me Think About It (a cappella) vs. The Creeps (Ida Corr vs. Fedde Le Grand vs. Camille Jones vs. Fedde Le Grand) (5:16)
+03. The Cut Up Boys - Rapture (a cappella) vs. Love on My Mind (feat. Amanda Wilson) (iiO vs. (   Читать дальше...   )Жанр: House, ElectroПродолжительность: 01:18:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64A26BD8878D73EEEC4455610404697A8FEC3545
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 977559   (965474) от 21.01.2016
 
 VA - Best Of The 80's Volume 1 (1997) [FLAC|Lossless|tracks + .cue] <House, Synth-pop, Disco>
@@ -6,7 +63,7 @@ VA - Best Of The 80's Volume 1 (1997) [FLAC|Lossless|tracks + .cue] <House, Synt
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965474.jpg" />
 </div>
 
 
@@ -35,7 +92,7 @@ Blutengel - Monument (2013) 2CD / Deluxe Edition [MP3|320 кб/с]<Darkwave, EBM
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965226.jpg" />
 </div>
 
 
@@ -64,7 +121,7 @@ Dj Sveta - My City (2016) [MP3|320 кб/с] <Progressive House, House>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964584.jpg" />
 </div>
 
 
@@ -93,7 +150,7 @@ VA - Best Of Vocal Trance 2016 (2016) [FLAC|tracks|WEB-DL]<Trance, Vocal Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964465.jpg" />
 </div>
 
 
@@ -122,7 +179,7 @@ VA - Uplifto-1: - Первая (2007) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964354.jpg" />
 </div>
 
 
@@ -151,7 +208,7 @@ VA - The Perfect Valentine's Day (2020) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964296.jpg" />
 </div>
 
 
@@ -180,7 +237,7 @@ Depeche Mode - Spirit (2017) 2CD, Dlx. Ltd. Japanese Edition [FLAC|Lossless|trac
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964129.jpg" />
 </div>
 
 
@@ -209,7 +266,7 @@ VA - Dance Max 2003/1 (2003) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963580.jpg" />
 </div>
 
 
@@ -238,7 +295,7 @@ Adam Fielding - Discography 11 Releases (2008-2015) [FLAC|Lossless|WEB-DL|tracks
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963441.jpg" />
 </div>
 
 
@@ -267,7 +324,7 @@ VA - Resonance (Mixed by DJ Arseniy) (2004) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963282.jpg" />
 </div>
 
 
@@ -296,7 +353,7 @@ VA - Битва Dj - Dj Denis Binokl & Dj Arseniy (2008) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963281.jpg" />
 </div>
 
 
@@ -325,7 +382,7 @@ VA - Housemission II - Do You Remember (Mixed by DJ Ярик) (2004) [MP3|320 Kb
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963280.jpg" />
 </div>
 
 
@@ -354,7 +411,7 @@ VA - Body (Mixed by Dj Zezick) (2005) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963279.jpg" />
 </div>
 
 
@@ -383,7 +440,7 @@ VA - Что бы лето не кончалось (Mixed by Dj Decibel) (2005) [
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963277.jpg" />
 </div>
 
 
@@ -412,7 +469,7 @@ VA - Royal Royce - Pornpop (2004) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963276.jpg" />
 </div>
 
 
@@ -441,7 +498,7 @@ VA - Defragmentation (Mixed by DJ Бинокль) (2008) [MP3|320 Kbps] <Trance,
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963270.jpg" />
 </div>
 
 
@@ -470,7 +527,7 @@ DJ Иван Ионов - Soundcheck - Summer Non Stop (2005) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963222.jpg" />
 </div>
 
 
@@ -499,7 +556,7 @@ VA - Dreaming - Mixed by Dj Anna Lee (2007) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963213.jpg" />
 </div>
 
 
@@ -528,7 +585,7 @@ Dj Donatas VZ - Nobody Harder - Volume Zero (2004) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963210.jpg" />
 </div>
 
 
@@ -557,7 +614,7 @@ VA - Erotic Lounge Selection (2020) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963204.jpg" />
 </div>
 
 
@@ -586,7 +643,7 @@ VA - TECHNO (mixed by Dj Arseniy) (2002) [MP3|320 Kbps] <Techno>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963046.jpg" />
 </div>
 
 
@@ -615,7 +672,7 @@ Dub FX - ROOTS (2020) [FLAC|Lossless|Web-DL|tracks] <Drum'n'Bass, Dub, Dubstep, 
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963039.jpg" />
 </div>
 
 
@@ -644,7 +701,7 @@ Dubfire - HYBRID: A Decade Of Dubfire (2017) Compilation [FLAC|Lossless|WEB-DL|t
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961928.jpg" />
 </div>
 
 
@@ -673,7 +730,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961890.jpg" />
 </div>
 
 
@@ -687,61 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A7D89B522B97572C68CF8D0B64B1FD21F718A97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360128   (961880) от 14.02.2020
-
-Boytronic - The Original Maxi-Singles Collection (2014) [FLAC|Lossless|image + .cue] <Synth-pop, Euro-Disco>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961880.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 You (Extended Version) 7:10
-2 Diamonds And Loving Arms (Special Front-Mix) 6:56
-3 Man In A Uniform (Continental-Mix) 5:17
-4 Hold On (Deaf Dumb & Blind Mix 115 Bpm) 6:22(   Читать дальше...   )Жанр: Synth-pop, Euro-DiscoПродолжительность: 01:19:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:880E41B7841959876D6DA8A96479666F929A3A9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 171120   (961426) от 29.01.2010
-
-Massive Attack - Heligoland (2010) [MP3|320 kbps]<Trip-Hop>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Trip-HopПродолжительность: 00:52:57
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

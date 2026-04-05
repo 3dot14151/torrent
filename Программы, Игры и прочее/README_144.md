@@ -1,3 +1,111 @@
+###  Публикация: 1726379   (55111) от 28.05.2024
+
+Windy.app: погода и ветер 50.1.0 Lite-Mod by GIP-79 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55111.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windy.app - очень и очень востребованное погодное приложение, что детально визуализирует прогнозы на ближайшее время. Владельцы гаджетов смогут воочию наблюдать за вероятным течением ветра, перемещением осадков и прочими аспектами. Это поможет и пилотам и рабочим, что так или иначе зависят от подобных условий и спортсменам, что не хотят рисковать понапрасну. Высокое (   Читать дальше...   )Тип издания: Lite-Mod (облегчённый)Релиз состоялся: 02.04.2024Разработчик: Windy Weather World IncПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A6C98F56C6B8818171A1A43431A7BF0BC6BBBF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726699   (55027) от 29.05.2024
+
+Weather app - eWeather HDF v8.8.7 Pro Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55027.jpg" />
+</div>
+
+
+###  Подробнее
+
+eWeather HDF - это точный прогноз погоды от двух метеоагенств, домашняя метеостанция и барометр.
+Уникальные виджеты погоды на экране телефона имеют более 50-ти тем оформления на выбор, включающие виды Санкт-Петербурга, Москвы, Парижа, римские и арабские часы на экране и т.д. Виджет часы показывает время будильника и текущее время на домашнем экране телефона как в (   Читать дальше...   )Тип издания: Pro / Mod ExtraРелиз состоялся: 28.05.2024Разработчик: Elecont softwareПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:434A12BE8655371BEC8551161F557761B1EC0145
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726704   (54976) от 29.05.2024
+
+AndroPods v1.5.26 Mod by adidas [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отображение заряда Apple AirPods, BeatsX, Beats Solo 3, PowerBeats 3, Beats Studio 3, активация Голосового Ассистента, автоматическое определение нахождения в ушах. Поддерживаемые модели:
+➤ AirPod 1
+➤ AirPod 2
+➤ AirPod Pro (теперь можно выбрать AirPod Pro или 1/2 поколение в настройках, соответствующие анимация и изображения будут отображаться)(   Читать дальше...   )Тип издания: ProРелиз состоялся: 01.03.2024Разработчик: Parkhomenko VitaliiЯзык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:459925BAC9DAF0A153582943FB39ED38A4C21966
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727140   (54661) от 01.06.2024
+
+Справочник рыбака v1.2.0 Mod by vadj [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54661.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Справочник рыбака» - полезное приложение, содержащее в себе подробное описание наиболее известных видов рыб, обитающих в водоёмах России и ближнего зарубежья. Оно будет полезно как начинающим, так и опытным рыболовам-любителям.Тип издания: AdfreeРелиз состоялся: 31.05.2024Разработчик: VT LabsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11200055BA269E73D9F6D66CA12895063524F1A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727145   (54658) от 01.06.2024
 
 OfficeSuite Pro + PDF v14.5.52368 Extra Mod by Balatan [Ru/Multi]
@@ -6,7 +114,7 @@ OfficeSuite Pro + PDF v14.5.52368 Extra Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54658.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ TapScanner v3.0.24 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54549.jpg" />
 </div>
 
 
@@ -61,7 +169,7 @@ FBReader Premium v3.7.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54458.jpg" />
 </div>
 
 
@@ -87,7 +195,7 @@ Cat Scanner / Сканер породы кошек v17.2.5-G Mod by ModExPro [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54399.jpg" />
 </div>
 
 
@@ -113,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54303.jpg" />
 </div>
 
 
@@ -140,7 +248,7 @@ Dog Scanner: Породы собак v17.2.5-G Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54159.jpg" />
 </div>
 
 
@@ -166,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53961.jpg" />
 </div>
 
 
@@ -192,7 +300,7 @@ YouTube ReVanced Extended 17.34.36 (RVP v2.160.10) Mod by Number one' + microG G
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53881.jpg" />
 </div>
 
 
@@ -218,7 +326,7 @@ Square Home Launcher 3.0.13 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53854.jpg" />
 </div>
 
 
@@ -244,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53848.jpg" />
 </div>
 
 
@@ -270,7 +378,7 @@ SnapEdit - AI photo editor v6.4.4 Mod by Oflarm, 0x7d [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53837.jpg" />
 </div>
 
 
@@ -296,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53833.jpg" />
 </div>
 
 
@@ -322,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53826.jpg" />
 </div>
 
 
@@ -348,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53768.jpg" />
 </div>
 
 
@@ -374,7 +482,7 @@ WhatWeather - Метеостанция 1.18.6-pro [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53761.jpg" />
 </div>
 
 
@@ -400,7 +508,7 @@ Windfinder Pro: Wind & Weather 3.33.1 ROOT-Mod by youarefinished [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53749.jpg" />
 </div>
 
 
@@ -426,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53745.jpg" />
 </div>
 
 
@@ -452,7 +560,7 @@ Weatherzone: Weather Forecasts 7.3.0 Mod by Balatan [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53742.jpg" />
 </div>
 
 
@@ -478,7 +586,7 @@ Clime: Прогноз погоды и Радар / Clime: NOAA Weather Radar Liv
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53741.jpg" />
 </div>
 
 
@@ -504,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53734.jpg" />
 </div>
 
 
@@ -530,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53731.jpg" />
 </div>
 
 
@@ -556,7 +664,7 @@ Windfinder Pro: Wind & Weather 3.30.2 Mod by youarefinished [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53730.jpg" />
 </div>
 
 
@@ -567,110 +675,6 @@ Windfinder - вариация известного и популярного с�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16FE15133E68BD1CD94F96EF38EBE1EEF68FF36A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729233   (53722) от 10.06.2024
-
-Breezy Weather - прогноз погоды 5.2.4 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Breezy Weather - это приложение с открытым исходным кодом для просмотра прогнозов погоды от следующих поставщиков: Metro France, Open-Meteo, AccuWeather, MET Norway, OpenWeatherMap и другие - для поиска местоположения и параметров погоды.Тип издания: FreeРелиз состоялся: 01.06.2024Разработчик: Breezy WeatherПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:115C3AF133EA948B845083C93786688B27ADA698
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729257   (53710) от 10.06.2024
-
-Weather Underground - прогноз погоды 6.17.0 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Weather Underground - очень популярный за счёт своих отличных качеств и функциональный погодный проект, что может обрадовать всех кто искал действительно удобное и универсальное приложение. Точные прогнозы по выбранной локации, перемещение элементов по интерактивной карте, система оповещению о резких изменениях или приближающейся угрозе, несколько отслеживаемых точек, (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 20.02.2024Разработчик: Weather UndergroundПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7695309B1C8A215F43EA8C9F4B71B2CB3C450B62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729714   (53549) от 12.06.2024
-
-MX Player 1.85.1 Mod by AjeethK [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощный видеоплеер с аппаратным ускорением и поддержкой субтитров для Android-смартфонов и планшетов. Плеер отличается удобной системой управления. Так, для изменения громкости достаточно провести пальцем вверх или вниз по правому краю экрана, для изменения яркости картинки - слева. Скольжение вправо или влево отвечает за перемотку позиции воспроизведения. С помощью (   Читать дальше...   )Тип издания: ModРелиз состоялся: 03.06.2024Разработчик: MX Media & Entertainment Pte LtdПоддерживаемая ОС: Android 11+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BC17C44ED1947E8A22513274CE41EF9A0D1AFCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729814   (53531) от 12.06.2024
-
-Before Launcher | Go Minimal 7.5.0-1172052821 Mod by derrin [Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Before Launcher - крайне минималистичный лаунчер, что предоставляет пользователям всё, что им только может потребоваться и при этом гарантирует весьма низкие запросы по ресурсам из-за своего аскетичного дизайна, отсутствия лишней анимации и всего прочего, что в итоге затрудняет взаимодействие. Тут же все происходит быстро и без каких-либо особых требований к техническим (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 11.06.2024Разработчик: ⎋ Before LabsПоддерживаемая ОС: Android 7.0+Язык интерфейса: Английский, Немецкий, Французский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E1D4A2D0738700AD3C5E2AA1FEC9B75123AE927
 ```
 
 https://mybot314.ru/tekegram_catalog/

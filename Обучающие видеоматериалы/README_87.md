@@ -1,3 +1,30 @@
+###  Публикация: 1501478   (835042) от 10.10.2021
+
+kalachevaschool, Татьяна Чулюскина | Книжка-раскладушка (2018) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_835042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Помните, как завораживали в детстве книжки-раскладушки? Сколько радости приносит разворачивание страниц и рассматривание картинок то вместе, то по отдельности?
+Осваиваем три стиля рисования. Узнаем, что такое гротеск и вспоминаем антикву и скрипт. Продумываем последовательность композиций на страницах. Рисуем три страницы книги, одну из которых делаем навыворотку.Производство: kalachevaschoolЖанр: РисованиеПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54453A317EBA48975A68476FCA410F8DFDAC1735
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501477   (835041) от 10.10.2021
 
 kalachevaschool, Татьяна Чулюскина | Шрифтовой коллаж (2018) PCRec
@@ -6,7 +33,7 @@ kalachevaschool, Татьяна Чулюскина | Шрифтовой колл
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835041.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ kalachevaschool, Анастасия Ермакова | Звездная ночь
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835040.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ kalachevaschool, Анна Цымбал | Меловой леттеринг (2018
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834966.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ kalachevaschool, Дарья Остапенко | Живописный рисун
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834948.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ Geekbrains | Видеокурс Excel 2.0 (2021) PCRec [AD]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834760.jpg" />
 </div>
 
 
@@ -141,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834317.jpg" />
 </div>
 
 
@@ -167,7 +194,7 @@ Webflow | Официальный курс для начинающих по со�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833791.jpg" />
 </div>
 
 
@@ -193,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833452.jpg" />
 </div>
 
 
@@ -222,7 +249,7 @@ Geekbrains | Управление клиентским опытом (2021) WEB-D
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833218.jpg" />
 </div>
 
 
@@ -248,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833028.jpg" />
 </div>
 
 
@@ -276,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832831.jpg" />
 </div>
 
 
@@ -305,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832797.jpg" />
 </div>
 
 
@@ -331,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832789.jpg" />
 </div>
 
 
@@ -357,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832787.jpg" />
 </div>
 
 
@@ -383,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832532.jpg" />
 </div>
 
 
@@ -410,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832529.jpg" />
 </div>
 
 
@@ -436,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831724.jpg" />
 </div>
 
 
@@ -470,7 +497,7 @@ CGMA, Niels Prayer | Organic Design in Houdini (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831559.jpg" />
 </div>
 
 
@@ -496,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830765.jpg" />
 </div>
 
 
@@ -522,7 +549,7 @@ Udemy, Maximilian Schwarzmüller | Flutter & Dart - The Complete Guide [2021 Edi
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829684.jpg" />
 </div>
 
 
@@ -550,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829541.jpg" />
 </div>
 
 
@@ -577,7 +604,7 @@ FlippedNormals, Maria Puchkova | Real-Time Hair Tutorial (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829540.jpg" />
 </div>
 
 
@@ -604,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829235.jpg" />
 </div>
 
 
@@ -633,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829174.jpg" />
 </div>
 
 
@@ -659,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829115.jpg" />
 </div>
 
 
@@ -671,35 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:960C825B525A30A57806E87AC200FD30DD8E3BBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113014   (829113) от 16.03.2017
-
-Бизнес Молодость | Бизнес под ключ (2016) WEBRip
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Практический онлайн-курс из 2х занятий, для тех, кто хочет начать свой путь в бизнесе по модели франчайзинга. Курс однозначно вам необходим даже, если вы пока не планируете открывать бизнес по франшизе, но хотите узнать больше. А также:
-
-Хотите запустить прибыльный бизнес с минимальными рисками.
-Мечтаете присоединиться к успеху крупной компании в выбранной нише.(   Читать дальше...   )Жанр: Бизнес, предпринимательствоПродолжительность: 09:35:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DA45CD09BA1372515656931A5A63DB30402B9CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

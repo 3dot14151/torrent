@@ -1,3 +1,148 @@
+###  Публикация: 995286   (884512) от 11.03.2016
+
+3 Doors Down - Us And The Night (2016) [FLAC|Lossless|tracks] <Alternative Rock, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Broken (02:46)
+02. In The Dark (03:43)
+03. Still Alive (02:41)
+04. Believe It (03:21)(   Читать дальше...   )Жанр: Alternative Rock, Post-GrungeПродолжительность: 00:37:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:370F3056EC282AEFFDFAB2DF453FB317B8491B39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995242   (884494) от 11.03.2016
+
+VA - Love Rock Hits (2000) 3CD Box [FLAC|Lossless|tracks + .cue] <Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ricky Valance - Tell Laura I Love Her (2:49)
+02. Danny Williams - Moon River (2:43)
+03. Ronnie Carroll - Roses Are Red (2:35)
+04. Susan Maughan - Bobby’s Girl (2:32)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:58:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FCDCB801855D49513C8A23B178E6013104C90B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495002   (884460) от 10.09.2021
+
+Jinjer - Wallflowers (2021) [MP3|320 kbps] <Alternative Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Call Me a Symbol (04:20)
+02. Colossus (03:37)
+03. Vortex (04:02)
+04. Disclosure! (03:47)(   Читать дальше...   )Жанр: Alternative Metal, MetalcoreПродолжительность: 00:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ED3B2EE755195C5A69DF32883D9E28AACD2B301
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494965   (884441) от 10.09.2021
+
+Мураками - Среди акул (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884441.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ласточки
+2. Ошибки
+3. Кепочка
+4. Встречи не будет(   Читать дальше...   )Жанр: RockПродолжительность: 00:28:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA4EB27E5D5BFF6991767E256841C2755A3819CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 641397   (884412) от 08.04.2013
+
+Sunsay - Благодари (2013) [MP3|320 кб/с]<Funk / Experimental / Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Благодари
+02. Кефир
+03. До рассвета
+04. Просыпаться пора (   Читать дальше...   )Жанр: Funk / Experimental / AlternativeПродолжительность: 00:28:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F7DA74D2B31A9646B0D030CD377242FE567DEEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 614921   (884358) от 10.09.2021
 
 Red - Release The Panic (2013) Deluxe Edition [FLAC|lossless|tracks + .cue] <Alternative Metal>
@@ -6,7 +151,7 @@ Red - Release The Panic (2013) Deluxe Edition [FLAC|lossless|tracks + .cue] <Alt
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884358.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Ozzy Osbourne - No More Tears (1991) Japanese Edition [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884320.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ VA - Pure... Rock (2012) [FLАC|Lоssless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884318.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884281.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Deep Purple - Hard Road: The Mark 1 Studio Recordings 1968-69 (5CD) (2014) [MP3|
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884221.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884204.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ VA - The Metallica Blacklist (2021) 4CD [MP3|320 Kbps] <Metal, Rock & etc>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884047.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ VA - Romantic Collection: Русский рок (1999) [FLAC|Lossless|tracks + .
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884045.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Scorpions - Return to Forever (2015) Limited Deluxe Edition [MP3|320 кб/с]<Ha
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884026.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Rise On Everest - 2 Albums, 1 ЕР (2013-2020) [MP3|~245 Kbps/(V0)/320] <Post-Ha
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883997.jpg" />
 </div>
 
 
@@ -295,7 +440,7 @@ AtomA - Skylight (2012) [FLAC|Lossless|tracks + .cue] <Progressive Metal, Atmosp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883994.jpg" />
 </div>
 
 
@@ -324,7 +469,7 @@ Tulip - High Strangeness (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883993.jpg" />
 </div>
 
 
@@ -353,7 +498,7 @@ Imagine Dragons - Smoke + Mirrors (2015) Deluxe Edition [FLAC|Lossless]<Indie Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883980.jpg" />
 </div>
 
 
@@ -382,7 +527,7 @@ Dwayne Ford - Neadless Freaking (1981) 2016, Epic [FLAC|Lossless|tracks + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883863.jpg" />
 </div>
 
 
@@ -411,7 +556,7 @@ Mighty Baby - At A Point Between Fate And Destiny (The Complete Recordings): 6CD
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883787.jpg" />
 </div>
 
 
@@ -440,7 +585,7 @@ V.A - Shadows Of Tragedy (2011) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883730.jpg" />
 </div>
 
 
@@ -469,7 +614,7 @@ Ad Infinitum - Chapter I: Monarchy (2020) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883717.jpg" />
 </div>
 
 
@@ -498,7 +643,7 @@ Cinderella - Best ballads (2001) [MP3|320 kbps]<Hard-rock / Glam-rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_883649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_883649.jpg" />
 </div>
 
 
@@ -533,7 +678,7 @@ My Darkest Hate - Anger Temple (2016) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883648.jpg" />
 </div>
 
 
@@ -562,7 +707,7 @@ Bathsheba - Servus (2017) [MP3|320 Kbps] <Occult Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883646.jpg" />
 </div>
 
 
@@ -591,7 +736,7 @@ Chrome Molly - Hoodoo Voodoo (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883645.jpg" />
 </div>
 
 
@@ -605,151 +750,6 @@ Chrome Molly - Hoodoo Voodoo (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72F8B29531F4ED2FB728403C7A0F0D2AE7FDBFD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103551   (883643) от 13.02.2017
-
-Mastercastle - The Phoenix (2009) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Words are swords  (03:32) 
-02|  Princess of love  (04:24) 
-03|  Space  (04:07) 
-04|  My screams (Instrumental)  (05:26) (   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:45:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC617DD432188D1E26C635B6EDBDC45EF784DF18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103572   (883641) от 13.02.2017
-
-Al Atkins - Reloaded (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winter (4:51)
-02. Mind Conception (3:51)
-03. A Void to Avoid (9:44)
-04. Coming Thick and Fast (4:54)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:00:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40C608D68094BA11A3AFC4E6A757E7C977612223
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372783   (883616) от 04.04.2020
-
-Ёк-Макарёк - Песнь весла (2020) [MP3|320 Kbps] <Ethno Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883616.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Песнь весла
-2. Бабы
-3. Лётчик
-4. Люся(   Читать дальше...   )Жанр: Ethno PunkПродолжительность: 00:40:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D050C4FF569A270E727FB23459E85EBF29A39D16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103762   (883553) от 13.02.2017
-
-VA - Best of Lovy Metal (2007) [FLAC|Lossless|tracks + .cue] <Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883553.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Mr. Mister - Broken Wings [03:18]
- 2. Warrant - Heaven [03:55]
- 3. Winger - Miles Away [04:09]
- 4. Stryper - I Believe in You [03:13](   Читать дальше...   )Жанр: MetalПродолжительность: 00:57:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A855B1EDFA2EB36FC6F6E19CA993FB03E8F5D3AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103836   (883522) от 13.02.2017
-
-VA - Eddie Stobart Trucking Songs: Trucking All over the World (2014) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883522.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-
- 1. Queen - Another One Bites the Dust [03:32]
- 2. Status Quo - Rockin' All Over the World [03:32](   Читать дальше...   )Жанр: RockПродолжительность: 03:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96759E465B14B082C95A218F6E08300C8FE5197F
 ```
 
 https://mybot314.ru/tekegram_catalog/

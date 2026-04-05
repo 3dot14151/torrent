@@ -1,3 +1,55 @@
+###  Публикация: 549696   (461886) от 20.09.2012
+
+New York Race / Погоня за 5 элементом [Ru] (L) 2001
+
+>>Win Старые Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам хотелось бы оказаться на месте Корбена Далласа, удирающего от полиции по лабиринту нью-йоркских небоскребов в 2215 году? Если да, то Ваша мечта сбылась: садитесь за руль знаменитого такси и примите участие в гонках по Нью-Йорку "Пятого элемента" со скоростью 500 километров в час! Вам предстоят воистину захватывающие воздушные гонки. На скоростных летающих машинах Вы промчитесь из конца в конец Нью-Йорка, от самых ужасных трущоб до сияющих вершин роскошных небоскребов.Тип издания: ЛицензияЖанр: Гонки, АркадаЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AA8858FF7BE39D7E8CDDDF6FE0C9807FCD681F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348826   (461527) от 08.08.2022
+
+Blade Runner (1997) [Multi] (1.0.1016) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461527.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1997 году Westwood Studios выпустила игру, которая завоевала любовь игроков и критиков по всему миру и получила немало наград, в том числе титул «Лучшая приключенческая игра года» от AIAS. Игра Blade Runner, действие которой разворачиваются параллельно сюжету классического научно-фантастического фильма Ридли Скотта «Бегущий по лезвию», вышедшего в 1982 году, вернулась (   Читать дальше...   )Тип издания: LicenseРазработчик: Westwood Studios, Inc.Жанр: Приключение, От третьего лица, ФантаcтикаЯзык озвучки: Английский, Немецкий, Испанский, Французский и другиеЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:756ABF6EB675588AEC8CBDDA47ACE6E51DAE9F9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1162141   (458741) от 01.09.2017
 
 Wizards and Warriors (2000) [En] (1.0) License
@@ -6,7 +58,7 @@ Wizards and Warriors (2000) [En] (1.0) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458741.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Blitzkrieg Anthology / Антология Блицкриг (2005) [Ru/En/Ge] (1.
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458682.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Faery Tale Adventure II: Halls of the Dead (1997) [En] (1.0) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458644.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Call of Cthulhu: Prisoner of Ice (1995) [Ru] (1.0) Repack Pilotus
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457733.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Rise of the Triad: Dark War (1994) [En] (1.3) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456874.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454558.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Ultimate Spider-Man [Ru/En] (Repack) 2005 | R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454382.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ American Civil War: Gettysburg / Гражданская Война: Решающ
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449982.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Knights of the Temple 2 / Тамплиеры 2 Портал Тьмы (2005) [Ru/
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449912.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Amerzone: The Explorer's Legacy (1999) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445742.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Gangland (2004) [Ru/En] (1.4.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443499.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Chaos Legion / Рыцари Хаоса [En/Ru] (RePack/1.1.0) 2003 | R.G. Cataly
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442988.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ Shadow Man (1999) [En/Fr] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441207.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ Privateer 2: The Darkening (1996) [En/Ge] (17.0e) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438767.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ Titus the Fox: To Marrakech and Back (1992) [En/Fr] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436598.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ MDK 2 (2000) [Ru/En] (1.003) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436359.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ The Suffering: Ties That Bind (2005) [Ru/En] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434165.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ Warlords: BattleCry 3 (2004) [Ru/En] (1.0.3) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430395.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ Jagged Alliance 2 / Jagged Alliance 2: Агония власти (1999) [En] (1.
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430388.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ Icewind Dale / Долина Ледяного Ветра (2001) [Ru/En] (1.42/dlc
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429210.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ Albion (1995) [Ru/En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425816.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ Overclocked: A History of Violence / Overclocked. Оправданная жес�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422944.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ Painkiller: Overdose / Painkiller: Передозировка (2007) [Ru] (84.4)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422942.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ Moto Racer (1997) [Multi] (1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421099.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ Moto Racer (1997) [Multi] (1.0) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B17649A009E7BDF9D48F4BD84CF2523B9D238C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167037   (421098) от 18.09.2017
-
-MegaRace 3 (2001) [En] (1.0) License GOG
-
->>Win Старые Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автогонки? Забудьте. Под вопли ликующей толпы и улетные комментарии Лэнса Бойла вы будете гнать по сменяющим друг друга трассам на транспорте, специально созданном для скорости и сражений. А ваше вооружение представляет собой не какой-то захудалый дробовик, а целую смертоносную машину...Тип издания: LicenseРазработчик: Cryo InteractiveЖанр: Гонки, Экшн, РаллиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1067A22101B036A860355F9E0DEF7731CDB6152
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065261   (420464) от 22.10.2016
-
-Sky Break (2016) [Ru/Multi] (1.0) License HI2U
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Человечеству грозит опасность. Смертоносный вирус распространяется быстро. Растительность планеты Аркания - бывшего форпоста космической экспансии - может помочь создать лекарство. Но планета заброшена с тех пор, как строительные дроны взбунтовались против людей. На Арканию отправилась группа ученых, чтобы найти решение. Я - один из них. Но после высадки на планету (   Читать дальше...   )Тип издания: LicenseРазработчик: Farsky InteractiveЖанр: Action, 3D, 3rd PersonЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AE187BC25BC25D362204A53F281DBE29E2A0382
 ```
 
 https://mybot314.ru/tekegram_catalog/

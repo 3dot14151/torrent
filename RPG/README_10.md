@@ -1,3 +1,55 @@
+###  Публикация: 1371504   (889683) от 31.03.2020
+
+Neverwinter Nights: Enhanced Edition (2018) [Ru/En] (80.8193.9/dlc) Repack xatab [Digital Deluxe Edition]
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Потрясающий Neverwinter возвращается! Трудно найти геймера, старого фаната жанра RPG, который не слышал бы о Neverwinter! Поэтому нет ничего удивительного в том, что команда разработчиков из студии Beamdog взялись за работой над переизданием этой легенды! Теперь вы можете поиграть в Neverwinter Nights: Enhanced Edition и насладиться улучшенным специальным изданием, (   Читать дальше...   )Тип издания: RepackРазработчик: BeamdogЖанр: Ролевая игра, Приключение, ФэнтезиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8133907CF598F158728D8971E058DBB6F38C6A42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049865   (888617) от 10.02.2017
+
+Little King's Story (2016) [En/Multi] (1.0/09.02.2017) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый проект студии Town Factory позволит нам осуществить мечту многих и стать полноценным королем. Сюжет таков. Мальчик Коробо, как и любой ребенок его возраста, любит играть и обладает живым и богатым воображением. В один прекрасный день он пускается в небольшую погоню за стаей крыс, которых он обнаружил в своей комнате.Тип издания: LicenseРазработчик: Town Factory, CingЖанр: Стратегия, Ролевая игра, ФэнтезиЯзык интерфейса: Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9C8C7D14D4F65A1DB4D713CD4506DC1C112E5A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371774   (887939) от 01.04.2020
 
 Operencia: The Stolen Sun (2020) [Ru/Multi] (1.3.0.21540s) Repack xatab
@@ -6,7 +58,7 @@ Operencia: The Stolen Sun (2020) [Ru/Multi] (1.3.0.21540s) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887939.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Arboria (2021) [En] (1.0.0.1055) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885348.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Encased: A Sci-Fi Post-Apocalyptic RPG (2021) [Ru/Multi] (1.0.906.0546/dlc) Repa
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885324.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Tales of Berseria (2017) [Ru/Multi] (1.48.00#193/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884662.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Operencia: The Stolen Sun (2020) [Ru/Multi] (1.3.0.21540s/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884572.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Terrain of Magical Expertise (2021) [Ru/Multi] (7310529) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884069.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Final Fantasy IV (2021) [Ru/Multi] (1.0) License Fairlight
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881966.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Dungeon Of Dragon Knight (2019) [Ru/Multi] (1.0151/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881300.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ The Bard's Tale IV: Director's Cut (2019) [Ru/Multi] (1.0) Repack R.G. Catalyst 
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879711.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Highrisers (2021) [Ru/Multi] (1.0.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878601.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ UnderRail (2015) [En] (1.0.1.4) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878458.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Fallout 4 VR (2017) [Ru/Multi] (1.2.72.0.1) Repack xatab [VR]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877933.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Fallout 2 (1998) [En/De/Fr] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_875860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_875860.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ ATOM RPG: Trudograd (2021) [Ru/En] (1.0/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875448.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Eastward (2021) [Multi] (1.0.5) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874323.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Fallout: A Post Nuclear Role Playing Game (1997) [Ru/Multi] (1.2/1.2.1/1.3.5) Li
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874273.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Iron Danger (2020) [Ru/Multi] (1.00.31) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_874026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874026.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ The Elder Scrolls V: Skyrim VR (2018) [Ru/En] (1.4.15.0.8/dlc) Repack xatab [VR]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_874022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874022.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Tails of Iron (2021) [Ru/Multi] (1.37768) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870820.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ SpellForce 3: Soul Harvest (2019) [Ru/Multi] (1.05.75935) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870236.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Razenroth (2015) [Ru/Multi] (1.6) Repack ALiAS
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867597.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Ethereal Legends (2017) [En] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867214.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Portal Knights (2017) [Ru/En] (1.7.2/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866790.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Delivery from the Pain (2019) [Ru/Multi] (1.0.9194/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866786.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Delivery from the Pain — это игра на тему выживания. Н�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:572D35D3DC5D8AA8982AF68B890CB77A80A348B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497372   (864290) от 22.09.2021
-
-Arcanum: Of Steamworks and Magick Obscura (2001) [En] (1.0.7.4hf) License GOG
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Промышленная революция в мире магии. Представьте себе чудесное место, где магия и технологии сосуществуют в непростом балансе, и искатель приключений может так же легко владеть кремневым пистолетом, как и пылающим мечом. Место, где в крупных промышленных городах находятся замки и фабрики, где обитают гномы, люди, орки и эльфы. Место древних рун и паровых электростанций, (   Читать дальше...   )Тип издания: LicenseРазработчик: Troika GamesЖанр: RPG, Steampunk, AdventureЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8614647E01921281F8F6F9F33F0FE03AF8128DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109486   (858531) от 27.02.2017
-
-Ultima™ 4: Quest of the Avatar (1985) [En] (1.0) License GOG
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы готовы к воистину эпическому событию? Настоящая веха в истории ролевых игр, Ultima™ IV в 16 раз больше, чем Ultima™ III. В этой игре лорд Бритиш потребует от вас не только концентрации ума и силы, но и твердости характера. Мондейн, Минакс и их дьявольское порождение Эксодус повержены в прах. В Британии воцарился мир. Однако зло все еще живо в темных чащобах...Тип издания: LicenseРазработчик: Origin SystemsЖанр: Ролевая игра, Приключение, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB967306260C4786D0C5C83F90FA7E11F4F29684
 ```
 
 https://mybot314.ru/tekegram_catalog/

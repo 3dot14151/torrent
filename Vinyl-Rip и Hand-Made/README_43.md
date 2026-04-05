@@ -1,3 +1,32 @@
+###  Публикация: 1626980   (239947) от 16.04.2023
+
+Yello - Stella (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239947.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Desire 3:47
+A2 Vicious Games 4:18
+A3 Oh Yeah 3:05
+A4 Desert Inn 3:30(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:145DCD8D2CBA70C79D0C6A55D926360B6B106E64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1635275   (239937) от 25.05.2023
 
 VA - Русская Балалайка (1968) [FLAC 1.0|96/24|image+.cue|Vinyl-Rip] <Folk, Instrumental>
@@ -6,7 +35,7 @@ VA - Русская Балалайка (1968) [FLAC 1.0|96/24|image+.cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239937.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Heretic - Studio Albums (4 releases) (1986-2017) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239913.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239834.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Thunder - Studio Albums (15 releases) (1990 - 2022) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239802.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239608.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Yello - One Second (1987) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239544.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Tom Jones - Tom Jones Sings She's A Lady (1971) [FLAC 2.0|96/24|image+.cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239353.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Beseech - Studio Albums (6 releases) (1998-2016) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238977.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Europe - Дискография (14 albums) (1983-2017) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238954.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Kraftwerk - Computerwelt (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-p
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238933.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238862.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238861.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Royal Hunt - Studio Albums (17 releases) (1992-2022) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238726.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Duran Duran - Notorious (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop Roc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238506.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Amon Amarth - Studio Albums (13 releases) (1996-2022) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238489.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Shakra - Studio Albums (13 releases) (1998-2023) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_238458.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ VA (Юрий Антонов, Александр Серов, Александр �
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238423.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238422.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ VA - RETROспектива часть XXI. Зарубежные исполнит
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238403.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Elton John - The New Collection vol. I - vol. II (1983) [FLAC 2.0|96/24|image+.c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238397.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ VA - Мелодии экрана, 17 серия (1968) [FLAC 1.0|96/24|tracks|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238389.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Miguel Ramos/Мигель Рамос - Organo Hammond/Орган Хаммонд 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238371.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Visage - The Anvil (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <New Wave, Sy
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238357.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ David Gilmour - In Concert (2002) Unofficial Release [WavPack 2.0|44,1/24|image+
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238355.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ VA - Rock Remakes - Non Stop (2017) Unofficial Release [FLAC 2.0|44,1/16|image+.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238348.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ VA - Rock Remakes - Non Stop (2017) Unofficial Release [FLAC 2.0|44,1/16|image+.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8D0BB1F761B06C3834CA52614E589D708E00026
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140820   (238299) от 30.04.2022
-
-Ингви Малмстин/Yngwie J. Malmsteen - Трилогия/Trilogy (1986) Reissue 1988 [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238299.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Ты Не Помнишь, Я Никогда Не Забуду (You Don't Remember, I'll Never Forget)
-A2 Лжец (Liar)
-A3 Влюбленная Королева (Queen In Love)
-A4 Плач (Crying)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21C439EF8CBBA8BCAEA6448CF53FD2A93F10D798
 ```
 
 https://mybot314.ru/tekegram_catalog/

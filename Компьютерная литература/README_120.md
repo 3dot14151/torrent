@@ -1,159 +1,3 @@
-###  Публикация: 484748   (89273) от 18.04.2012
-
-Л.Д. Забродин | UNIX: основы командного интерфейса и программирования (в примерах и задачах) [2010] [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассматриваются основы командного языка мобильных UNIX-подобных операционных систем (ОС) и основы программирования процедур на языке оболочки Korn-shell. Операционные системы семейства UNIX (Linux, Sysyem V, AIX, MCBC и др.) объединяют единые стандарты как на структуры алгоритмов и управляющих данных, так и на внешние интерфейсы для пользователей.  Изучаются возможности ОС UNIX по управлению и защите файлов, по управлению процессами, по управлению и экспортированию переменных, программированию процедур проверки условий и организации циклов. Изучение базируется на большом количестве примеров и задач. Особое место отводится контрольным вопросам и тестированию. Пособие предназначено для использования в вузах, колледжах, лицеях и на курсах повышения квалификации, а также для самостоятельного изучения ОС UNIX.2010Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3F6E64AA24BA2D6F0641E7FC05D5B2B3096F91F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483225   (89083) от 17.04.2012
-
-Waves Lab | Руководство для пакета плагинов Waves 7 (русский)[PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89083.jpg" />
-</div>
-
-
-###  Подробнее
-
-Руководство для пакета плагинов Waves 7 на русском языке в формате PDF.неизвестенЯзык интерфейса: русскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A467739772057270B25E7139AB1D0B75EA35D963
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483756   (88906) от 16.04.2012
-
-С. Келби | Система "великолепная семерка" Скотта Келби для Adobe Photoshop CS3 [2008] [PDF]
-
->>Компьютерная литература
->>2D графика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88906.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге описывается новаторская система (Scott Kelby's 7-Point System) обучения работе в Adobe Photoshop CS3, изобретенная Скоттом Келби, одним из самых известных авторов книг по цифровой фотографии. В отличие от большинства справочников и учебников по Photoshop, содержащих излишне детализированные описания и теоретические выкладки, эта книга дает ответ на самые важные вопросы, с которыми сталкивается любой фотограф: "С чего начинать редактирование, какие действия необходимы и в какой последовательности их выполнять?" Читатели получат 21 наглядный урок редактирования невзрачных изображений и поэтапного превращения их в шедевры цифровой фотографии. Все уроки снабжены краткими пошаговыми описаниями и реальными значениями параметров. Многократное повторение шагов системы "великолепная семерка" позволяет быстро запомнить и успешно применять операции редактирования к любой фотографии.2008Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3312C05626F81A49AE4750413D801797F24845E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483293   (88667) от 15.04.2012
-
-Тони Седдон | Сетки. Креативные решения для графических дизайнеров [2009] [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Креативно разработанная и правильно примененная сетка это то, что отличает обычную композицию листа от действительно яркой и "цепляющей". Эта книга поможет дизайнерам обрести вдохновение и отшлифовать умение создавать великолепные композиции страниц и разворотов. Сетка присутствует на всех страницах книги. Журналы, буклеты, многостраничные издания представлены не просто лучшими разворотами, а композиционными листами с видимой сеткой, подробными комментариями, детализирующими процесс работы и точными параметрами сеток.Вы поймете, как дизайнер использовал модульную сетку для создания узнаваемого ритма страниц и разворотов, не теряя при этом динамики и гибкости изображения. Книга "Сетки" действительно необходима графическим дизайнерам, чья творческая деятельность связана с созданием плакатов, упаковки и многостраничных изданий.2009Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B442DD8687E286B28B33C22E71F6D7A668B297F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481854   (88097) от 12.04.2012
-
-Василий Леонов | Самоучитель Mac OS X Lion [2012] [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга поможет проложить вам кратчайший путь в мир богатых возможностей операционной системы Mac OS X Lion. С ее помощью читатель познакомится с самыми различными сторонами операционной системы.2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45C591E95ED47DD4A1A8E36E3C37F0DB1B243378
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481734   (87979) от 12.04.2012
-
-Управление "К" предупреждает: будьте осторожны и внимательны! [2011] [RTF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сегодня в повседневной жизни используется множество разнообразных высокотехнологичных устройств. Одновременно с развитием таких устройств появляются виды мошенничества, позволяющие обмануть и присвоить денежные средства граждан. Чтобы не поддаться на уловки злоумышленников, достаточно знать, как они действуют, и соблюдать правила пользования мобильными телефонами, пластиковыми картами и компьютерами.2011Формат: RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50F9B5A5A325AA4D3CB590BBD024F3E66FE2C6A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 482293   (87971) от 12.04.2012
 
 Е.А.Зрюмов | Базы данных для инженеров [2010] [Pdf]
@@ -162,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87971.jpg" />
 </div>
 
 
@@ -188,7 +32,7 @@ Adobe | Adobe Illustrator CS5. Официальный учебный курс [2
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87665.jpg" />
 </div>
 
 
@@ -215,7 +59,7 @@ Steinberg | Руководство пользователя HALion 3 (русск
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87347.jpg" />
 </div>
 
 
@@ -241,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87189.jpg" />
 </div>
 
 
@@ -267,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87141.jpg" />
 </div>
 
 
@@ -293,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86594.jpg" />
 </div>
 
 
@@ -328,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86338.jpg" />
 </div>
 
 
@@ -354,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85610.jpg" />
 </div>
 
 
@@ -386,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85572.jpg" />
 </div>
 
 
@@ -416,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85377.jpg" />
 </div>
 
 
@@ -444,7 +288,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85156.jpg" />
 </div>
 
 
@@ -470,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85141.jpg" />
 </div>
 
 
@@ -496,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85133.jpg" />
 </div>
 
 
@@ -522,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85132.jpg" />
 </div>
 
 
@@ -548,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84798.jpg" />
 </div>
 
 
@@ -574,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83900.jpg" />
 </div>
 
 
@@ -603,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83379.jpg" />
 </div>
 
 
@@ -629,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82964.jpg" />
 </div>
 
 
@@ -657,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82767.jpg" />
 </div>
 
 
@@ -688,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82743.jpg" />
 </div>
 
 
@@ -699,6 +543,168 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BB2193499209A3DABE32DD7BBB4C95ADF38CC1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468181   (82283) от 15.03.2012
+
+Х. Граф | Руководство для начинающего пользователя Joomla! 1.7 [2011] [PDF]
+
+>>Компьютерная литература
+>>Веб-дизайн
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82283.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга создана на основе своей успешной предшественницы, «Joomla! 1.6 — Beginner’s Guide». В «Руководстве для начинающего пользователя Joomla! 1.7» появились новые главы, старые главы переработаны, скриншоты, где это необходимо, заменены. Она окажется полезной рядовым читателям, рекламодателям, авторам, переводчиками и, конечно, сообществу Joomla!2011Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E263FD501769EF8962F6D8256409B6F2614DDAAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467541   (82062) от 14.03.2012
+
+Олег Мединов | Excel. Мультимедийный курс [2008] [PDF, FB2]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга - не обычный самоучитель. Процесс обучения предельно прост и максимально приближен к занятиям с репетитором. Информационная насыщенность учебного материала позволяет утверждать, что мультимедийный курс будет интересен и новичкам, и опытным пользователям, которые уже владеют основными навыками работы в Excel и стремятся к достижению профессиональных результатов в своей работе.2008Жанр: Обучение работе с программойФормат: PDF, FB2
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467310   (81942) от 13.03.2012
+
+Руслан Аблязов | Программирование на ассемблере на платформе x86-64 [2011] [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81942.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом пособии речь идет о работе процессора в двух его основных режимах: защищенном режиме и 64-битном, который также называют long mode ("длинный режим"). Также помимо изложения принципов и механизмов работы процессора в защищенном и 64-битном режимах, речь пойдет о программировании на ассемблере в операционных системах семейства Windows, как в 32-битных, так и 64-битных версиях.
+
+ Рассматривается не только разработка обычных приложений для операционных систем Windows, но и разработка драйверов на ассемблере.
+ При написании книги уделялось большое внимание именно практической составляющей, т.е. изложение материала идет только по делу и только то, что необходимо знать любому системному и низко-уровневому программисту. Последний раздел книги посвящен принципам работы многопроцессорных систем, а также работе с расширенным программируемым контроллером прерываний (APIC).
+ Издание предназначено для системных и низкоуровневых программистов, а также для студентов и преподавателей технических специальностей высших (   Читать дальше...   )2011Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E893D85B9E33349CEF042107E64D776CE64F0F37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 463256   (80650) от 07.03.2012
+
+MacDonald | Pro Silverlight 5 in C# [2012] [PDF] [Eng]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80650.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Silverlight — это плагин для браузера, который позволяет запускать приложения, содержащие анимацию, векторную графику и аудио-видео ролики, что характерно для RIA (Rich Internet application).
+Silverlight предоставляет графическую систему, схожую с Windows Presentation Foundation, и объединяет мультимедиа, графику, анимацию и интерактивность в одной программной платформе. Он был разработан, чтобы работать с XAML и с языками Microsoft .NET. XAML используется для разметки страниц, использующих векторную графику и анимацию. Текст, содержащийся в приложениях Silverlight, доступен для поисковых систем, так как он не компилируется, а доступен в виде XAML. Silverlight также можно использовать для того, чтобы создавать виджеты для Windows Sidebar в Windows 7.
+Silverlight может воспроизводить WMV, WMA и MP3 для всех поддерживаемых браузеров, не требуя при этом дополнительных компонентов, таких как Windows Media Player. Так как Windows Media Video 9 является реализацией стандарта SMPTE VC-1, Silverlight поддерживает (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D8180332510E81BD73A526994F94EBE54E03DFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453711   (76997) от 18.02.2012
+
+Юрий Стручков | Установка и настройка Tor (2011) [DOC, FB2]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76997.jpg" />
+</div>
+
+
+###  Подробнее
+
+Массовое распространение сети Интернет стало причиной начала тотальной слежки за ее пользователями и блокирования неугодных власти ресурсов. Естественно, что и провайдеров обязали сотрудничать с соответствующими органами. Как рядовому пользователю избежать этого безобразного произвола? Для решения проблемы предлагается система Tor. К сожалению, в настоящее время (   Читать дальше...   )Жанр: Компьютеры и ИнтернетФормат: DOC, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDCD69EA9616415C0921801D8D1127F68F6F8001
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 449726   (75150) от 09.02.2012
+
+Дэвид А. Карп | Хитрости Windows 7. Для профессионалов (2011) [DJVU]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 7 - это, без сомнения, операционная система нового поколения. Но, несмотря на это, она по-прежнему содержит немало тонкостей, способных сбить с толку любого, даже опытного пользователя. Эта книга представляет собой уникальную и тщательно подобранную коллекцию решений, методов и советов, позволяющих сэкономить время и помочь в решении большинства проблем, (   Читать дальше...   )Жанр: Компьютерная литератураФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1303E8FA495F00C59DCB24D888A5769D9085A027
 ```
 
 https://mybot314.ru/tekegram_catalog/

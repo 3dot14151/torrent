@@ -1,32 +1,3 @@
-###  Публикация: 1855336   (1057912) от 22.02.2026
-
-Игорь Истуканов - То, что вы искали. Песни на стихи Сергея Миронова (2026) AI-generated content [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Блюз цвета глаз [00:02:58]
-02 - Остров [00:04:33]
-03 - Держись, брат [00:05:17]
-04 - Летняя ночь [00:07:01](   Читать дальше...   )Жанр: PopПродолжительность: 00:37:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D91CEF8AB42BB736540D6E63BD6B311F72F75980
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1854812   (1057721) от 19.02.2026
 
 VA - Low Light, Warm Feelings (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -35,7 +6,7 @@ VA - Low Light, Warm Feelings (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057721.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - High Impact Hits (2026) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057654.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Elvira T - Ядовитая. Неразбитая (2026) [FLAC 16,24/44.1,48|Los
 >>Pop (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057436.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Backstreet Boys - Backstreet Boys (1997) [FLAC|Lossless|tracks + .cue] <Pop, Eur
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057290.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057111.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ King Sis - Late to the Party (Lover’s Deluxe) (2026) [FLAC|Lossless|WEB-DL|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057055.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ VA - Pure Pop Peak (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057047.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056968.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Sotomayor - Wabi Sabi (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Dance, Pop, El
 >>Pop (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056915.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ VA - Pure... 80s Soul Grooves (2013) 4 x CD [FLAC|Lossless|tracks + .cue] <Pop, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056911.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056906.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ VA - NRJ Hits 2026 (2025) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056229.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Michael Bolton - This Is the Time: The Christmas Album (1996) [FLAC|Lossless|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056221.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Martina McBride - Emotion (1999) CD, HDCD, Album [FLAC|Lossless|tracks + .cue] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056220.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Paul Parker - Strong - The Album (2025) Deluxe Edition [FLAC 24/44,1|Lossless|WE
 >>Pop (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056207.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ VA - New Hits 98 (1998) 2 x CD, Compilation [FLAC|Lossless|tracks + .cue] <Elect
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055855.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ BeBe Winans - BeBe Winans (1997) [FLAC|Lossless|tracks + .cue] <Pop, Funk / Soul
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055676.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Carly Simon - The Best of Carly Simon (2008) [FLAC|Lossless|tracks + .cue] <Pop 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055675.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Dido - Life For Rent (2003) [FLAC|Lossless|tracks + .cue] <Pop, Downtempo>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055674.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Madonna - Like A Prayer  1989 (2005) Reissue [FLAC|Lossless|image + .cue] <Pop R
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055607.jpg" />
 </div>
 
 
@@ -613,7 +584,7 @@ One Direction - Up All Night (2012) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055604.jpg" />
 </div>
 
 
@@ -642,7 +613,7 @@ VA - 70s Acoustic (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B, Soul>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055588.jpg" />
 </div>
 
 
@@ -671,7 +642,7 @@ VA - 70's Vibe (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, R&B>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055570.jpg" />
 </div>
 
 
@@ -700,7 +671,7 @@ VA - 1976 - Best of (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, R&B>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055569.jpg" />
 </div>
 
 
@@ -729,7 +700,7 @@ VA - The 100 Greatest Love Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055537.jpg" />
 </div>
 
 
@@ -743,6 +714,35 @@ VA - The 100 Greatest Love Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B95116DE2D5403868D88C105ED28C199CF7A655C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851471   (1055332) от 02.02.2026
+
+VA - Undercover Angel: 70's Nostalgia (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Soul, R&B, Funk, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055332.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Undercover Angel - Alan O'Day - (03:31)
+002. What a Fool Believes - The Doobie Brothers - (03:40)
+003. Right down the Line - Gerry Rafferty - (04:28)
+004. Da Ya Think I’m Sexy - ROD STEWART - (05:31)(   Читать дальше...   )Жанр: Pop, Rock, Soul, R&B, Funk, DiscoПродолжительность: 6:18:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:766898C3509B9965280081BA3A53E636690AAA67
 ```
 
 https://mybot314.ru/tekegram_catalog/

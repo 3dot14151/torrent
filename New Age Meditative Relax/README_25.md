@@ -1,3 +1,32 @@
+###  Публикация: 219410   (267474) от 05.12.2018
+
+Leonhardt North - The Spirit Of Pandora (2010) [MP3|256 kbps] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pandora
+02. Dreaming Under Branches
+03. Na Vi
+04. Forest Dance(   Читать дальше...   )Жанр: New age, AmbientПродолжительность: 01:04:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CCB555B0F19330C789E7BCBD58DBAA78281636A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1339580   (264570) от 21.11.2019
 
 Gregorian - 20/2020 (2019) Limited Edition 2CD [MP3|320 Kbps] <New Age, Enigmatic, Ambientpop>
@@ -6,7 +35,7 @@ Gregorian - 20/2020 (2019) Limited Edition 2CD [MP3|320 Kbps] <New Age, Enigmati
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264570.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Kokhe - Blue World (2019) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264277.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Albert Artemyev - The Living Universe (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263449.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Amanaska - Panorama (2003) [MP3|320 Kbps] <World Music, Ethno, Worldbeat>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262895.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Buddha Meditation Relax (2019) [MP3|320 Kbps] <New Age, Relax, Downtempo>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262621.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ The Sound Of Love - Enigmatic Love (2018) [MP3|320 Kbps] <New age, Enigmatic, Et
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262581.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Valefim Planet - Contradiction (2019) [MP3|320 Kbps] <Electronic, New age, Enigm
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262283.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - Mosaic - the Very Best New Age Music VA - Mosaic - the Very Best New Age Mu
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262117.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Mato Grosso - Native Indian's Music (2006) [MP3|320 кб/с]<Native American, Pa
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259841.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ Nicole feat: Brulé - Passion Spirit (2001) [MP3|192 кб/с]<Native American, N
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259315.jpg" />
 </div>
 
 
@@ -308,7 +337,7 @@ VA - Celtic Spirit (2001) [MP3|320 кб/с]<New Age, Celtic Music, Ambient, Loun
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258491.jpg" />
 </div>
 
 
@@ -343,7 +372,7 @@ Peter Buffett - 500 Nations. A Musical Journey (1994) [MP3|320 кб/с]<New age,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256292.jpg" />
 </div>
 
 
@@ -376,7 +405,7 @@ VA - American Tribal Songs (2011) [MP3|320 Kbps] <Native American, New Age, Inst
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255378.jpg" />
 </div>
 
 
@@ -405,7 +434,7 @@ VA - Enigma-Forest-Transit 6 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250109.jpg" />
 </div>
 
 
@@ -434,7 +463,7 @@ VA - Enigma-Forest-Transit 10 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249939.jpg" />
 </div>
 
 
@@ -463,7 +492,7 @@ VA - Enigma-Forest-Transit 9 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249642.jpg" />
 </div>
 
 
@@ -492,7 +521,7 @@ VA - Enigma-Forest-Transit 12 (1999) [OGG Vorbis|480 Kbps] <Electronic, Ambient,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249519.jpg" />
 </div>
 
 
@@ -521,7 +550,7 @@ VA - Mystera III (1999) [OGG Vorbis|480 Kbps] <Electronic, Ambient, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244567.jpg" />
 </div>
 
 
@@ -550,7 +579,7 @@ VA - Mystera (1998) [OGG Vorbis|480 Kbps] <Downtempo, Synth-pop, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244522.jpg" />
 </div>
 
 
@@ -579,7 +608,7 @@ Enigma - The Cross Of Changes (1993) [OGG Vorbis|630 Kbps] <New Age, Downtempo, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243594.jpg" />
 </div>
 
 
@@ -608,7 +637,7 @@ John Barcanic - Time Between Times (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242016.jpg" />
 </div>
 
 
@@ -637,7 +666,7 @@ VA - Bathtub Relax: Ambient and Chillout Music for Relaxing Moments (2017) [MP3|
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241208.jpg" />
 </div>
 
 
@@ -666,7 +695,7 @@ Meditation Music Zone - Footprints in the Sand (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241061.jpg" />
 </div>
 
 
@@ -695,7 +724,7 @@ Buddha Room - 2 + Hours of World Music (2018) [MP3|320 Kbps] <Ethnic, World Musi
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239826.jpg" />
 </div>
 
 
@@ -724,7 +753,7 @@ Atahualpa - Музыка у метро (2016) 2CD [MP3|320 Kbps] <Native America
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238916.jpg" />
 </div>
 
 
@@ -738,41 +767,6 @@ Atahualpa - Музыка у метро (2016) 2CD [MP3|320 Kbps] <Native America
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5BDF5F38F33D43E4967CA5C37EFE6D66F5D87CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586661   (227334) от 09.12.2012
-
-A. J. Asiain - 4 albums (2009-2010) [MP3|192 кб/с]<New age, Instrumental, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227334.jpg" />
-</div>
-
-
-###  Подробнее
-
-(09:21) 01. Cerca Del Arroyo IV
-(05:18) 02. Bonshai
-(04:54) 03. Lacricum
-(03:16) 04. El Jardin De Las Esencias
-(04:11) 05. Asia Lounge
-(04:47) 06. Dreams
-(05:53) 07. Crystal
-(10:24) 08. Otro Dia
-(10:09) 09. Anestes I
-(08:47) 10. Anestes II(   Читать дальше...   )Жанр: New age, Instrumental, RelaxПродолжительность: 01:15:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3999ED2BC3E9F5C4C31D002B28E73B7047FC407
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ VA - Hit News Vol. 9 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160637.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Hit News Vol. 10 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Ital
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160263.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Broken Beat & Nu Disco The Best Of (2022) CD, Compilation [MP3|320 Kbps] <S
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159857.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Winter Chill 2023 (2022) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159365.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Gene Ferrari And The Disco Roma Band - Disco Italiano (1978) LP [MP3|320 Kbps] <
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159334.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Sarah Brightman - Diva : The Singles Collection (2006) [OGG Vorbis|480 Kbps] <Mo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159330.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Best of the Best 2022 [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158964.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ The Cars - Heartbeat City (1984) Reissue, Remastered, 2016, Mobile Fidelity Soun
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157738.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ The Korgis - 3 Albums (1979-1981) LP [MP3|320 Kbps] <Electronic, Pop Rock, Synth
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157626.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - NOW That's What I Call Christmas (4CD) (2022) MP3 [320 Kbps] <Pop, Rock, R&
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157587.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Hit News Vol. 13 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Ital
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157512.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Hit News Vol. 12 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Ital
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157498.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Hit News Vol. 11 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Ital
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157422.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Hit News Vol. 2/95 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, It
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157332.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - NRJ Hits 2023 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157164.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Corynne Charby - Reference 80 (2011) Compilation [MP3|320 Kbps] <New Wave, Chans
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156757.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Titiyo - Extended (1997) [MP3|320 Kbps] <Pop, Soul, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155980.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Titiyo - Hidden (2008) [MP3|320 Kbps] <Pop, Soul, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155946.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Saturday Feel Good (2021) Explicit [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155913.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Titiyo - This Is... (1993) [MP3|256 Kbps] <Pop, Soul, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155904.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Club MTV - Dance Anthems (2018) [MP3|320 Kbps] <Pop, Experimental, Synthpop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155806.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Titiyo - Come Along (2001) [MP3|320 Kbps] <Pop, Soul, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155805.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA – Best Of Christmas (2017) [MP3|320 Kbps] <Pop, Christmas>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155766.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Titiyo - Titiyo (1990) [MP3|320 Kbps] <Pop, Soul, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155742.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155593.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - 50 Hits Winter 2018 (2017) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155575.jpg" />
 </div>
 
 

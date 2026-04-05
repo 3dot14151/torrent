@@ -1,86 +1,3 @@
-###  Публикация: 914554   (595131) от 04.07.2015
-
-Рубен Маркарьян | Суд присяжных. Особенности процесса и секреты успешного выступления в прениях (2015) [FB2, EPUB]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее издание посвящено исследованию уголовно-процессуальных проблем, связанных с доказыванием в суде присяжных, и подробно рассматривает правовые, психологические, бытовые аспекты этой новой для наших соотечественников юридической институции. Исключительное значение книге придает то обстоятельство, что ее автор – адвокат, кандидат юридических наук – рассматривает (   Читать дальше...   )Жанр: Юриспруденция, правоФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:222EACDD93E121C424B72718287D3FBB7940B6B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299920   (595060) от 04.05.2019
-
-Б. Селигмен | Основные течения современной экономической мысли (1968) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор освещает эволюцию буржуазной экономической мысли после 1870 г. до наших дней.
-
-Изложение материала строится по принципу обзора развития основных школ и направлений в политической экономии. Значительное место уделено виднейшим представителям каждого направления, оказавшим наиболее заметное влияние на экономическую мысль.
-(   Читать дальше...   )Жанр: История, политология, экономика, публицистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C88212A46FE19ACE3B6246A931230D1B4C1011D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299918   (595056) от 04.05.2019
-
-П. Коваленко | Книжка политической грамоты (1924) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшое пособие для товарищей-рабочих, проходящих школу политической грамоты: тот, кто внимательно и серьезно прочитает «Книжку политической грамоты», тому легче будет читать и более серьезные книжки и разбираться в сложных вопросах переходного периода.
-
-В политической грамоте — сила пролетарской власти.Жанр: История, политология, экономика, публицистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6CC562A77C16169DF0744BB9B9446D61ACDA4E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 914679   (595054) от 04.07.2015
 
 Сергей Севрюгин | Амазонки, савроматы, сарматы – развенчанный миф. Версия 1.1 (2015) [FB2, EPUB]
@@ -89,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595054.jpg" />
 </div>
 
 
@@ -115,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594958.jpg" />
 </div>
 
 
@@ -141,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594956.jpg" />
 </div>
 
 
@@ -167,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594927.jpg" />
 </div>
 
 
@@ -193,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594780.jpg" />
 </div>
 
 
@@ -219,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594714.jpg" />
 </div>
 
 
@@ -245,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594658.jpg" />
 </div>
 
 
@@ -271,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594650.jpg" />
 </div>
 
 
@@ -299,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594644.jpg" />
 </div>
 
 
@@ -326,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594570.jpg" />
 </div>
 
 
@@ -352,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594418.jpg" />
 </div>
 
 
@@ -379,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594416.jpg" />
 </div>
 
 
@@ -405,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594065.jpg" />
 </div>
 
 
@@ -433,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594059.jpg" />
 </div>
 
 
@@ -461,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594058.jpg" />
 </div>
 
 
@@ -489,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594055.jpg" />
 </div>
 
 
@@ -515,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593875.jpg" />
 </div>
 
 
@@ -541,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593488.jpg" />
 </div>
 
 
@@ -569,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593022.jpg" />
 </div>
 
 
@@ -595,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592803.jpg" />
 </div>
 
 
@@ -623,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592395.jpg" />
 </div>
 
 
@@ -649,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592389.jpg" />
 </div>
 
 
@@ -675,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591332.jpg" />
 </div>
 
 
@@ -687,6 +604,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9510A51B8AAFD137610CCA28C7831127EF50A633
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916474   (590949) от 08.07.2015
+
+С. А. Васильев, В. Е. Щелинский (ред.) | Древнейшие обитатели Кавказа и расселение предков человека в Евразии (2010) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590949.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборнике представлены тексты докладов, прозвучавших на состоявшейся в 2008 г. на Таманском полуострове Международной научной конференции, посвященной открытию неожиданно древних раннепалеолитических памятников. Новые открытия существенно изменяют сложившиеся представления о времени и путях первоначального освоения предками человека территории юга нашей страны. (   Читать дальше...   )Жанр: АрхеологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAAD3045601526F735A4EB06B42B65E0C07C30F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916957   (589990) от 10.07.2015
+
+Э. В. Ильенков | Диалектика абстрактного и конкретного в «Капитале» Маркса (1960) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589990.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая книга принадлежит молодому научному работнику, посвящающему свои исследования вопросам диалектической логики. Нет нужды здесь специально останавливаться на значении разработки этой важной области марксистской философской науки. Как запросы дальнейшего развития естествознания и общественных наук, так и потребности современной общественной практики настоятельно (   Читать дальше...   )Жанр: история, политология, философия, логика, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07D2205E184E6234AAE174474EC4731298B53379
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916978   (589830) от 10.07.2015
+
+Гарр Рейнольдс | Презентация в стиле дзен. Основы дизайна для тех, кто хочет выступать лучше (2015) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589830.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга научит создавать презентации, безупречные по дизайну и содержанию.
+Чтобы создать выдающуюся презентацию, нужно прорваться через шум и завладеть вниманием аудитории. Большинство презентаций, перегруженных сложными графиками и текстом, который спикеру приходится читать, для этого не подходят. Вы сможете добиваться впечатляющего эффекта от своих выступлений, если (   Читать дальше...   )Жанр: ДизайнФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46B313EC28D65A86A1D3DF1B2BD3FEB0ED747538
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1817364   (3487) от 10.09.2025
+
+А.Г. Мордкович, П.В. Семенов, Л.А. Александрова и др. | Алгебра. Учебник для 7 класса (2022) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник входит в завершённую линию учебников для 7–9-х классов; поддерживает разные модели изучения алгебры: базовую и углублённую. Изложение теоретического материала сопровождается подробным рассмотрением большого числа примеров, практические задания представлены на трёх уровнях сложности. В конце каждой главы приведены основные факты, а также вопросы и тест для (   Читать дальше...   )Жанр: УчебникИздательство: ПросвещениеФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E9405B009B2F837AC274FB2E0EFDD8FD784430F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817375   (3479) от 10.09.2025
+
+Н.Н. Гомулина, В.Г. Сурдин | Введение в астрономию. 5-7 классы (2021) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3479.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии приводится некоторый теоретический материал, который сопровождается задачами и заданиями, в том числе заданиями в формате международных тестирований. Для выполнения ряда заданий необходимо использовать программы компьютерных планетариев. Содержание учебного пособия способствует формированию универсальных учебных действий — личностных, регулятивных, познавательных (   Читать дальше...   )Жанр: Учебное пособиеИздательство: ПросвещениеФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C6EBFD7B4FF05176A79E169B1A2DA87E42DEA08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1817373   (3476) от 10.09.2025
 
 Г.М. Генералов | Математичееское моделирование. 10-11 классы (2021) [PDF]
@@ -6,7 +58,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3476.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3452.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3451.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3365.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3213.jpg" />
 </div>
 
 
@@ -128,32 +180,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817738   (3206) от 12.09.2025
-
-Шамиль Ахмадуллин | Развитие памяти у детей. Как научить ребенка запоминать легко и надолго. Тренинг для детей 6-16 лет (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор книги - основатель и руководитель сети школ скорочтения и эффективного обучения TurboRead.ru - описывает в этом пособии одну из самых эффективных методик развития памяти и внимания у детей. Это книга-тренинг, в которой даны пошаговые инструкции, позволяющие всего за 12 занятий вывести память вашего ребенка на невероятный уровень и повысить эффективность его (   Читать дальше...   )Жанр: Воспитание детейИздательство: БилингваФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92462426BD46C24C65936F6027F2B1AD57C556C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1817614   (3179) от 12.09.2025
 
 Андрей Курпатов | Игровой блокнот для детей. Батлгаджет (2025) [PDF]
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3179.jpg" />
 </div>
 
 
@@ -180,32 +206,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817611   (3174) от 12.09.2025
-
-Андрей Курпатов | Супергаджет. Блокнот для детей (2024) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3174.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Супергаджет" - уникальный блокнот, разработанный "Академией смысла для детей" в помощь родителям, которые думают о будущем своих детей. Идеально вписывается в современный тренд сокращения экранного времени. Ребёнку легко будет остановить себя и заменить гаджет на "Супергаджет", в котором можно поиграть, пообщаться с друзьями и даже (   Читать дальше...   )Жанр: Развитие логического мышленияИздательство: ИД «Нева»Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF5C285C6CD4DC85E429C8D5FCA7D5D57573E178
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1817615   (3169) от 12.09.2025
 
 Андрей Курпатов | Игровой блокнот для детей. Батлгаджет 2.0 (2025) [PDF]
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3169.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2582.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_552.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_525.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_516.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_512.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_510.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_506.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_503.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_482.jpg" />
 </div>
 
 
@@ -472,35 +472,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30AA5986B9ABBD924B0C63F66AD08B9386F39D47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820810   (19) от 29.09.2025
-
-Максим Горький | 9 января, Макар Чудра (1941) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге предоставлены два рассказа.
-1. 9-я января, посвящено событиям 1905-го года, больше известное как "Кровавое воскресенье".
-2. Макар Чудра, посвящено влюблённой цыганской паре и тому, к чему приводит гордость.
-(   Читать дальше...   )Жанр: РассказИздательство: ДетгизФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40129DE243AE7D795C284E75A504F6622A2F5C87
 ```
 
 https://mybot314.ru/tekegram_catalog/

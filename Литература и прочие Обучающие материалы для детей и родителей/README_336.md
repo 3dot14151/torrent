@@ -1,3 +1,56 @@
+###  Публикация: 422622   (287885) от 14.12.2011
+
+М.Н. Жуков | Подвижные игры (2000) [ DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Подвижные Игры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287885.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебнике в соответствии с программой изложена методика преподавания подвижных игр в школе с I по XI класс. Рассмотрены игры с предметами и без предметов, развивающие основные физические и психические качества детей разных возрастных групп. Дан материал по используемым на уроках подвижным играм, подводящим к видам спорта.
+Книга может быть интересна также преподавателям (   Читать дальше...   )Жанр: Методика преподавания подвижных игрФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94D4BE9E23D37F91BC372D00070F42F5385AE80E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 422661   (287870) от 14.12.2011
+
+Н. Луконина, Л. Чадова | Физкультурные праздники в детском саду (2007) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Подвижные Игры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник сценариев физкультурной направленности для детей 2-7 лет. Спортивные праздники, приуроченные к 23 Февраля, 9 Мая и Дню защиты детей, зимние и летние развлечения, которые могут проводиться в зале и на улице. Составной частью сценариев являются эстафеты, состязания, подвижные игры, а также стихи и песни. Книга адресована педагогам, работающим с дошкольниками (   Читать дальше...   )Жанр: Пособие для педагоговФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:024ADB221A8FA59DE6B0407564C1E2BD40D315D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 733601   (287768) от 12.12.2013
 
 Георгий Кубанский | Тайна реки Семужьей (1962) [FB2]
@@ -6,7 +59,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287768.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287675.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287660.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287508.jpg" />
 </div>
 
 
@@ -114,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287249.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287150.jpg" />
 </div>
 
 
@@ -168,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286884.jpg" />
 </div>
 
 
@@ -194,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286641.jpg" />
 </div>
 
 
@@ -220,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286407.jpg" />
 </div>
 
 
@@ -249,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286406.jpg" />
 </div>
 
 
@@ -275,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286401.jpg" />
 </div>
 
 
@@ -301,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286025.jpg" />
 </div>
 
 
@@ -327,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285946.jpg" />
 </div>
 
 
@@ -355,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285903.jpg" />
 </div>
 
 
@@ -382,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285892.jpg" />
 </div>
 
 
@@ -408,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285891.jpg" />
 </div>
 
 
@@ -436,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285793.jpg" />
 </div>
 
 
@@ -462,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285791.jpg" />
 </div>
 
 
@@ -488,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285734.jpg" />
 </div>
 
 
@@ -520,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285500.jpg" />
 </div>
 
 
@@ -547,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285489.jpg" />
 </div>
 
 
@@ -574,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285373.jpg" />
 </div>
 
 
@@ -600,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285035.jpg" />
 </div>
 
 
@@ -628,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284896.jpg" />
 </div>
 
 
@@ -639,58 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F093668C6870B8B7432FFFE477178C2A59ADCE6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186755   (284750) от 26.11.2017
-
-Николай Плавильщиков | Анпа и Гати (1930) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказы об индийском мальчике Анпе и его друге слоне Гати.Жанр: Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F50C87CF75F2C17CD8C20ABF3E3835C1F91E39E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186753   (284731) от 26.11.2017
-
-Радий Погодин | Шутка (1967) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ о том, как нельзя шутить.Жанр: Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4698EA8303553CE77F6349E03638DF034EFD8812
 ```
 
 https://mybot314.ru/tekegram_catalog/

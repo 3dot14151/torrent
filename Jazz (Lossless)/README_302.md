@@ -6,7 +6,7 @@ Jeremy Bruger Trio - Jubilation (2013) Black & Blue [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126404.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Bud Shank, Manny Albam, Vic Lewis - Bud Shank Plays (1984, 1985) 1987, Mole Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126394.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Frank Morgan & Rodney Kendrick Trio - Bop! (1997) Telarc [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126212.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Franco Ambrosetti - Nora (2022) Enja Records [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126179.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ Michel Petrucciani - Date With Time (1991) 1981, Owl Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126178.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Horace Silver - 12 Classic Albums (1953 - 1962) 6CD, 2014, Enlightenment [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126177.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Ramsey Lewis - Ramsey Lewis And His Gentle-Men of Jazz (1957, 1958) 2008, Fresh 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125730.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Felo Sepulveda - Long Distance (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125712.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ John Hicks - Piece For My Peace (1996) Landmark Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125700.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Frank Morgan - Gene Norman Presents Frank Morgan (1955) 1989, Fresh Sound Record
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125698.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Frank Sinatra & Bing Crosby - Christmas Sing With Frank And Bing (1945 -1971) 19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125457.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Ramsey Lewis - Classic Encounter (1988) CBS [FLAC|Lossless|tracks + .cue] <Cross
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125438.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Boston Brass & The Brass All-Stars Big Band - The Stan Kenton Christmas Carols (
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125436.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ VA - Smooth Easy Going Relax Lounge Luxury Tunes (2023) [FLAC|Lossless|WEB-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125428.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Jazz Hop #2 (Relaxing Lo-fi Jazzy Chill) (2023) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125426.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Frank Sinatra - Under The Mistletoe (2001) Direct Source Special Products [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125425.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ VA - It's a Groovy Thing! Vol. 4 (The Amazing Jazz Funk Instrumental Sound) (202
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125424.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ John Hicks - Inc. 1 (1985) 2008, DIW Records [FLAC|Lossless|tracks + .cue] <Hard
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125416.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Horace Silver Quintet / Sextet - The Jody Grind (1966) 1991, Blue Note [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125414.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Laurent de Wilde Trio - Life Is A Movie (2023) Gazebo [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125295.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Boney James - Soulful Holiday Sax (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125294.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Gerry Mulligan - Four Classic Albums (1956 - 1960) 2CD, 2011, Avid Jazz [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125293.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ The Kenny Clarke-Francy Boland Big Band - Latin Kaleidoscope, Cuban Fever (1968)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125292.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Tadd Dameron - Four Classic Albums (1948 - 1962) 2CD, 2015, Avid Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125158.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Nobuo Hara & His Sharps & Flats - Big Band Congress (1970) 2013, Nippon Columbia
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125157.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ David Benoit - Remembering Christmas (1996) GRP [FLAC|Lossless|tracks + .cue] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125153.jpg" />
 </div>
 
 

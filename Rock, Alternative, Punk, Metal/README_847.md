@@ -1,3 +1,32 @@
+###  Публикация: 1474040   (239406) от 01.06.2021
+
+Chiliasm - Flesh Over Finite (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Neoclassical Technical Death>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eos
+02. Mother Cosmos
+03. Flesh Over Finite
+04. Welcome HomeЖанр: Neoclassical Technical DeathПродолжительность: 00:17:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DA5AE0654BD5C999B6BD615616534DCFB9194D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1636048   (239405) от 28.05.2023
 
 Hotwire - The Story so Far 1993 - 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
@@ -6,7 +35,7 @@ Hotwire - The Story so Far 1993 - 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Mel
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239405.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Drautran - Throne Of The Depths (2007) [APE|Lossless|image + .cue] <Sympho Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239399.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Drautran - Unter dem Banner der Nordwinde (Demo) (2002) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239392.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Stillskin - Through Time (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239390.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Aerodyne - Damnation (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239389.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Dark Millennium - Ashore the Celestial Burden (1992) [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239383.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Kira Mac - Chaos Calling (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239375.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Mozart Gabriel - Sign Me Up 4 The Apocalypse (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239366.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Dawn of Creation - Self-Destructive Matters (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239359.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Gia Margaret - Romantic Piano (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alte
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239357.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Brunorock - War Maniacs (2009) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239356.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Bridge the Gap - Secret Kombinations (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239352.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Titanskull - Titanomachy (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239349.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Ian Hunter - Defiance Part 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239344.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Page 99 - For Imagination's Sake (2022) [FLAC|Lossless|image + .cue] <AOR, Westc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239340.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Calexico - Feast of Wire (2023) 20th Anniversary Deluxe Edition [FLAC 24/44.1|Lo
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239335.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Crimson Sunsets - A Furore Normannorum Libera Nos Domine (Demo) (1997) Reissue, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239334.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Phil Collins - Love Songs: A Compilation... Old And New (2004) 2CD [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239331.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Rainbow - The Very Best Of Rainbow (1997) [APE|Lossless|image + .cue] <Hard Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239328.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Clark - Sus Dog (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative, Indie
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239327.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Escape The Madness - Continuation Of Misery (2020) [FLAC|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239325.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Slog - Divination (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Doom, Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239307.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Tomi Malm - Walkin' On Air (2018) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239304.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Bite The Bullet - Rocky Road (2023) [FLAC|Lossless|image + .cue] <Melodic Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239298.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ David Sinclair - Apropos Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239297.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ David Sinclair - Apropos Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:657F339A9B5B79EA87D5372EDA6ADD065E56BBC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636015   (239291) от 28.05.2023
-
-Mike Tramp - Songs Of White Lion (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady Of The Valley (6:48)
-02. Little Fighter (4:30)
-03. Broken Heart (4:13)
-04. Love Don't Come Easy (3:39)(   Читать дальше...   )Жанр: Hard Rock, AORПродолжительность: 01:00:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F978F60DC73EB84358008BA17794E2DFBE7552E
 ```
 
 https://mybot314.ru/tekegram_catalog/

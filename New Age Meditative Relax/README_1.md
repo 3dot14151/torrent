@@ -1,3 +1,32 @@
+###  Публикация: 979595   (959885) от 26.01.2016
+
+David Wahler - Secret Dream (2012) [MP3|320 кб/с] <New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Finger Rain
+02. Snowflake
+03. Beyond the Edge
+04. Free as a Bird(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 00:57:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5596590A888F9BDCCEEC98DBACB8EB6B152DEF54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 979597   (959786) от 26.01.2016
 
 Arash Behzadi - With Closed Eyes (2015) [MP3|320 кб/с] <New Age, Solo Piano>
@@ -6,7 +35,7 @@ Arash Behzadi - With Closed Eyes (2015) [MP3|320 кб/с] <New Age, Solo Piano>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959786.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Yanni - Sensuous Chill (2016) [MP3|320 кб/с] <New Age, Electronic, Classical>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955931.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Joe Kool - Simple Meditation: The Art of Music, Vol. 1 (2016) [MP3|320 Kbps] <Ne
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953875.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Sacred Earth - The Way Home (2008) [MP3|320 кб/с] <New age, Meditative, Ambie
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951571.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ StoneOcean - Home (2016) [MP3|320 кб/с] <New Age, Dance & Electronic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949993.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Louis Landon - Soul Healing Piano Music (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947508.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - 60 Minutes Relaxing Music (Non Stop Mix) (2016) [MP3|320 кб/с] <Relaxati
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945389.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Eric Chiryoku - 3 альбома (2006-2012) [MP3|320 кб/с]<New Age, Easy Lis
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941155.jpg" />
 </div>
 
 
@@ -239,7 +268,7 @@ Dagda - 6 альбомов (1999-2010) [MP3|320 кб/с]<New age, Meditative, Ce
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941153.jpg" />
 </div>
 
 
@@ -268,7 +297,7 @@ Dreamstate Logic - 6 Compilations (2015-2020) [MP3|320 Kbps] <Ambient, Downtempo
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937739.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ Ethereal in E - Up. (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937321.jpg" />
 </div>
 
 
@@ -323,7 +352,7 @@ Giorgio Costantini - Dreamers (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937238.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ Celtic Woman - Celebration (2020) [MP3|320 Kbps] <Celtic, New age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936257.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ Chinmaya Dunster - Gaia's Garden (2017) [MP3|320 Kbps] <World, Instrumental, New
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933897.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ Fly Project - 50 Indian Spirit (2015) [MP3|320 Kbps] <Native American, New age, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931971.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ MIDIval Punditz - Light (2015) [MP3|320 кб/с] <New Age, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931011.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ Mauro Usai and friends - Ethnico (my wind instruments) (2016) [MP3|320 кб/с] 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931010.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ John Adorney - The Essential John Adorney (2016) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931000.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ Oliver Scheffner - Sunlight Dreams (2015) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930938.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ VA - Encyclopedia of Ethnic Music, Vol. 1 (2010) [MP3|192 Kbps] <Native American
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930399.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ Kathryn Kaye - Reflected in a Flowing Stream (207) [MP3|320 Kbps] <Celtic New Ag
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929378.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ Aenigmatica - Enigmatic (2016) [MP3|320 Kbps] <New Age, Downtempo, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929052.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ Liquid Mind - Liquid Mind XI. Deep Sleep (2016) [MP3|320 кб/с] <New Age, Ambi
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926043.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ Messiah Project - (2 альбома) (2012-2013) [MP3|320 кб/с]<Enigmatic,New
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924753.jpg" />
 </div>
 
 
@@ -706,7 +735,7 @@ Mars Lasar - Jazz from Mars (2016) [MP3|320 кб/с] <New Age, Ambient, Electron
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922733.jpg" />
 </div>
 
 
@@ -720,35 +749,6 @@ Mars Lasar - Jazz from Mars (2016) [MP3|320 кб/с] <New Age, Ambient, Electron
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:640E117891F9AE17A709BEA750120CEFABF78BCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988489   (920899) от 20.02.2016
-
-VA - Electronic Medicine - Binaural Meditation, Relaxing Deep Yoga Flow and Healing Tones (2016) [MP3|320 кб/с] <Chill Out, Lounge, New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nadja Lind – Reprocessing
-02. Helmut Ebritsch – Emptiness
-03. Worldwide Groove Corporation – Kiss Me Slow
-04. Nadja Lind – Expanding(   Читать дальше...   )Жанр: Chill Out, Lounge, New Age, AmbientПродолжительность: 03:05:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA9939298770A04060B1DEC3DF0A2F50ADAEDA88
 ```
 
 https://mybot314.ru/tekegram_catalog/

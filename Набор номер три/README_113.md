@@ -1,3 +1,162 @@
+###  Публикация: 863848   (900242) от 02.03.2016
+
+Dying Light: The Following (2015) [Ru/Multi] (1.11.0.0/dlc) SteamRip Let'sPlay [Enhanced Edition]
+
+>>3
+>>12
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dying Light - экшн-игра на выживание от первого лица. Действие игры разворачивается в огромном и опасном открытом мире. Днем вы бродите по городу, опустошенному загадочной эпидемией, пытаясь найти боеприпасы и изготавливая оружие, которое поможет вам в борьбе с полчищами безмозглых кровожадных врагов, порожденных чумой.Тип издания: SteamRipРазработчик: TechlandЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03CC1885CA0BB85AAFA4DBF4DBDCF1BB07AA1398
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 182580   (900066) от 13.03.2010
+
+Мир реки / Riverworld [1-2] (2010) DVDRip
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Военный журналист Мэтт Эллман и его невеста Джесси погибают во время взрыва в кафе. Вскоре Мэтт оказывается в очень странном месте, на берегу бесконечной реки. Вдоль этой реки одновременно живут все, кто на Земле давно уже умерли. Вместе с женщиной-воином 13-го века и капитаном судна Марком Твеном, Мэтт отправляется на поиски Джесси…
+
+«А ты бы хотел прожить ещё одну (   Читать дальше...   )Производство: США, КанадаЖанр: ФантастикаРежиссер: Стюарт ГиллардАктеры: Тамо Пеникетт, Лаура Вандервурт, Mark Deklin, Питер Уингфилд, Джинэнн Гуссен, Matthew MacCaull, Matty Finochio, Ромина Д`Уго, Квеси Амеяу, Мэг РоуПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:25:33 + 01:25:21
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492681   (900061) от 31.08.2021
+
+В Китае детям запретили играть в онлайн-игры дольше трех часов в неделю
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Национальное управление печати и издательств Китая опубликовало новые правила для технологических компаний и несовершеннолетних пользователей, ограничивающие время нахождения детей и подростков в онлайн-играх, сообщает агентство «Синьхуа».Теперь лицам младше 18 лет можно будет проводить в онлайн-играх не больше одного часа в пятницу, субботу, воскресенье, а также (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419336   (900017) от 31.08.2021
+
+Ghostrunner (2020) [Ru/Multi] (0.40019.434/dlc) License GOG
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ghostrunner — эта жестокая игра-слэшер от первого лица с супердинамичным сюжетом, разворачивающимся в мрачном киберпанковом мире футуристической сверхконструкции. Взбирайтесь вверх по башне Дхарма, ставшей последним убежищем человечества после всемирной катастрофы. Пройдите путь снизу доверху, встретьтесь с тираном Кимастером и воздайте ему по заслугам.Тип издания: LicenseРазработчик: One More Level, 3D Realms, Slipgate IronworksЖанр: Action, SlasherЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C139D7A09D895B8C7BEAE670657DC36A28A1BD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490272   (900016) от 31.08.2021
+
+Microsoft Windows 11 Insider Preview, Version 21H2 [10.0.22000.132] - Оригинальные образы от Microsoft [Ru]
+
+>>3
+>>10
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы - Windows 11 Version 21H2 Build 22000.132.
+Оригинальные образы EnterpriseVL и Client.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8467BF81F178165BC98C2E3B7DF37564553DC26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369575   (899718) от 25.03.2020
+
+Цифровая слежка против эпидемии: как в разных странах мониторят больных коронавирусом
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899718.jpg" />
+</div>
+
+
+###  Подробнее
+
+За последнюю неделю правительства ряда стран усилили меры по цифровому надзору над гражданами, которые заразились коронавирусной инфекцией или могли находиться в контакте с заболевшими. Система, которая в той или иной манере позволяет следить за перемещениями людей через их смартфоны, уже внедрена в 11 странах. Об этом пишет Business Insider со ссылкой на данные (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369375   (899470) от 25.03.2020
 
 Антивирус Windows 10 игнорирует некоторые файлы при сканировании
@@ -6,7 +165,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899470.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>10
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899435.jpg" />
 </div>
 
 
@@ -58,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899434.jpg" />
 </div>
 
 
@@ -86,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899330.jpg" />
 </div>
 
 
@@ -112,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899328.jpg" />
 </div>
 
 
@@ -138,7 +297,7 @@ Fairy Tail / Фейри Тейл [2009, TV, 175] HDTV 720p raw
 >>46
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899325.jpg" />
 </div>
 
 
@@ -164,7 +323,7 @@ Windows 7 Ultimate SP1 (x86/x64) Beslam™ Edition [Updated] 2 DVD
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899070.jpg" />
 </div>
 
 
@@ -197,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899042.jpg" />
 </div>
 
 
@@ -223,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898935.jpg" />
 </div>
 
 
@@ -249,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898737.jpg" />
 </div>
 
 
@@ -275,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898728.jpg" />
 </div>
 
 
@@ -301,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898723.jpg" />
 </div>
 
 
@@ -328,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898715.jpg" />
 </div>
 
 
@@ -355,7 +514,7 @@ Parallels Desktop for Mac Business Edition 12.1.3 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898711.jpg" />
 </div>
 
 
@@ -381,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898705.jpg" />
 </div>
 
 
@@ -407,7 +566,7 @@ Windows 7 Ultimate SP1 (x86/x64) Elgujakviso Edition v.04.02.17 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898704.jpg" />
 </div>
 
 
@@ -436,7 +595,7 @@ MultiBoot USB Flash v.1.0 by Marat® 01.2017 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898698.jpg" />
 </div>
 
 
@@ -462,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898697.jpg" />
 </div>
 
 
@@ -488,7 +647,7 @@ Yosemite OS X 10.10.1 for Gigabyte G41MT-S2P & Video NVidia GT220
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898680.jpg" />
 </div>
 
 
@@ -517,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898670.jpg" />
 </div>
 
 
@@ -528,165 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5ADD30364111A0F5C4C7BCD66A485A509F09E982
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992355   (898626) от 03.03.2016
-
-Мобильный интернет в России признан одним из самых дешевых в мире
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898626.jpg" />
-</div>
-
-
-###  Подробнее
-
-Россия заняла второе место по стоимости мобильного интернета
-Мобильный интернет в России признан одним из самых дешевых. По дешевизне мобильного интернета Россия уступила лишь Ирану и заняла второе место в рейтинге стран, составленном аналитическим агентством Content Review.Стоимость гигабайта трафика во многих развитых странах оказалась гораздо выше, чем в России. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492720   (898571) от 01.09.2021
-
-Акции провайдера спутниковой связи взлетели из-за слухов об iPhone 13
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898571.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акции американского провайдера Globalstar взлетели на бирже после появления слуха, что новый iPhone 13 будет поддерживать спутниковую связь, сообщает CNBC.По состоянию на 30 августа ценные бумаги компании подорожали на 55 процентов и торговались по 2,2 доллара за штуку. Причиной тому стало сообщение аналитика TFI International Securities Минг-Чи Ко.Он заявил, что (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 102120   (898499) от 14.03.2010
-
-Gekijouban Kara no Kyoukai: The Garden of Sinners / Граница пустоты: Сад грешников [2007-2009, 7] 5xDVD5, 2xDVD9
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта серия родилась из обширного (900 стр.) додзинси-романа Киноко Насу. В принципе, роман был рыхлым и слабым, поэтому позже автор переписал его как визуальную «Легенду полнолуния о Лунной принцессе», с которой началась история Type-Moon. После раскрутки фирмы с серией игр Fate, вспомнили и о «Границе», которую объявили альтернативным миром вселенной Type-Moon и (   Читать дальше...   )Жанр: триллер, мистика, ужасыРежиссер: Такидзава СинсукэФормат: DVD-5 (оригинальные диски с добавленным русским войсовером, релизПродолжительность: 119 мин.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492682   (898473) от 01.09.2021
-
-Рогозин предположил, что США на Starship будут перебрасывать спецназ
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898473.jpg" />
-</div>
-
-
-###  Подробнее
-
-Корабль Starship, создаваемый компанией SpaceX Илона Маска для полетов на Луну и Марс, может использоваться в интересах Пентагона для межконтинентальной переброски спецназа, считает генеральный директор Роскосмоса Дмитрий Рогозин."Новые разработки, которые он (Маск - ред.) реализует, связаны с Пентагоном. Например, красивая идея, которую сразу поддержали наши (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992865   (898435) от 03.03.2016
-
-WinPE 10 Sergei Strelec (x86/x64) 2016.03.03 [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузочный диск WinPE 10 - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, и антивирусы.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43239C7EEE93F1D45F4CB24705A5A8BF7FC5DAA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992747   (898429) от 03.03.2016
-
-ESET Smart Security + NOD32 Antivirus 9.0.375.1 Repack by SmokieBlahBlah [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898429.jpg" />
-</div>
-
-
-###  Подробнее
-
-ESET NOD32 Antivirus - новое антивирусное решение от ESET, предлагающее улучшенный эвристический анализ неизвестных угроз, "облачные" технологии ESET Live Grid для определения репутации файлов и обновленный интерфейс.
-
-ESET Smart Security - новая версия комплексного антивируса с облачной технологией ESET Live Grid. Решение "все-в-одном" с многоуровневой (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6E9661433242CD3C1F137419A1C4C15133F0165
 ```
 
 https://mybot314.ru/tekegram_catalog/

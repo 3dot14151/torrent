@@ -1,3 +1,55 @@
+###  Публикация: 1478955   (890062) от 06.09.2021
+
+Рик и Морти / Rick and Morty (2021) WEB-DLRip [H.264/720p-LQ] (сезон 5, серии 10 из 10) Сыендук
+
+>>След.
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учёный-социопат вовлекает своего невинного внука в опасные межпространственные приключения.Производство: США, Harmonius Claptrap, Justin Roiland's Solo Vanity Card Productions, Starburns Industries, Williams StreetЖанр: мультфильм, комедия, фантастика, для взрослыхРежиссер: Пит Мишелс, Брайан Ньютон, Джон РайсАктеры: Джастин Ройланд, Крис Парнелл, Спенсер Грэммер, Сара Чок, Кари Уолгрен, Райан Ридли, Том Кенни, Морис ЛаМарш, Фил Хендри, Брэндон Джонсон и др.Перевод: Одноголосый закадровый, СыендукСубтитры: Английские, РусскиеПродолжительность: ~00:20:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4FAD3F88C271B9E76B3F420E044060F5AE47100
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289314   (889807) от 31.03.2020
+
+Изысканная Нэнси Клэнси / FANCY NANCY (2018) SATRip (сезон 1, серий 1-24 из 25) [Обновляемая]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добрая и жизнерадостная девочка Нэнси Клэнси — юная мисс совершенство! Она обожает французские словечки, яркие наряды и украшения, музыку и балет. Каждый день шестилетней фантазерки должен быть неповторимым, запоминающимся и очень-очень шикарным. Поэтому она постоянно придумывает для своей семьи и друзей элегантные занятия и развлечения: устраивает для мамы день (   Читать дальше...   )Производство: США, КанадаЖанр: Детский, МузыкальныйРежиссер: Мирчи Мантта, Джэми Митчелл.Перевод: Полный дубляж, вкл. песниСубтитры: отсутствуютПродолжительность: ~00:11:40 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32E93BFBE777E58424D51486CB91FA35546F4093
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494771   (884120) от 10.09.2021
 
 Катури / Katuri (2019) WEBRip [H.264/1080p] (сезон 1, серии 1-52 из 52) Первый Канал. Всемирная сеть
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884120.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882889.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_880472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_880472.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878877.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878702.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878060.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877327.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_877102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_877102.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_877100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_877100.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877096.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_876973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_876973.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875641.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874381.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874199.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872791.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872248.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870673.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870668.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869787.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868693.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867656.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867008.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866919.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861575.jpg" />
 </div>
 
 
@@ -622,58 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B32784F10CD71610879ED83C67E4AF535FEAE27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 646727   (859681) от 21.04.2013
-
-Розовая пантера / The Pink Panther Classic Cartoon Collection (1964-1980) DVDRip (133 серии из 133)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Розовая Пантера, хитрая, самоуверенная, но иногда глупая, постоянно попадает в какие-нибудь истории. Главный противник Пантеры — Человек с большим носом (Big Nose Man), который, благодаря старанием Розового героя, то не может построить дом (в мультфильме «Pink Blueprint», 1966), то не может нормально поспать (лента «Rock-a-Bye Pinky», 1966), то у него не получается (   Читать дальше...   )Жанр: Рисованная анимация, Детский, КомедияРежиссер: Фриц Фреленг, Хоули Пратт, Арт Леонарди, Брэд КейсПерсонажи: Пантера и KoПеревод: Без слов / НемойПродолжительность: 133 х ~ 00:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2A3F81CB28988E394ECD4F55004290A8913EAE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 874713   (859251) от 05.03.2015
-
-Чаггингтон: Веселые паровозики / Chuggington (2011) DVDRip [Сезон 3: 14 серий из 14]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859251.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чаггингтон — настоящий мир поездов, в котором старательные паровозики-малыши Уилсон, Коко и Брюстер готовятся стать большими поездами. Пусть они и непоседы, и любят подурачиться, но никогда не сходят с рельсов, все задания исполняют на пятерку, а еще маленькие «чаггеры» всегда помогают друг другу и жителям города. Уилсон — этот паровозик очень рад, что оказался в (   Читать дальше...   )Производство: Великобритания, BBCЖанр: Детский, Приключения, ОбучающийРежиссер: Сара Болл/Sarah BallПеревод: Полный дубляж, вкл. песниПродолжительность: 14 серий по ~00:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84A14A52B845A6970FDD4F8DFDBF02AC1C5EEA36
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1599316   (1042062) от 08.02.2023
+
+Жестокая ночь / Violent Night (2022) BDRip [H.264] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042062.jpg" />
+</div>
+
+
+###  Подробнее
+
+В канун Рождества преступники берут в заложники состоятельную семью, чтобы получить их деньги. Незадолго до этого захваченные родители подарили дочери рацию, по которой можно связаться с Сантой. Девочка вызывает подкрепление в его лице, чтобы проучить захватчиков.Производство: США, Канада / 87North, Québec Production Services Tax CreditЖанр: фэнтези, боевик, триллер, комедия, криминалРежиссер: Томми ВирколаАктеры: Дэвид Харбор, Джон Легуизамо, Беверли Д’Анджело, Алекс Хэсселл, Кэм Жиганде, Алексис Лодер, Эди Паттерсон, Леа Брэйди, Брендан Флетчер, Майк ДопудПеревод: Многоголосый профессиональный (Jaskier | 18+), (TVShows)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8AA02CEDD2162E26B5E1B53DBEFF0ABF44CFAF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437254   (1041870) от 05.01.2021
 
 Понимают ли кошки и собаки, что хвост – часть их тела. Мнение ученых
@@ -6,7 +32,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041870.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041862.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041825.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Anno 1800 (2020) [Ru/Multi] (9.2/dlc) Uplay-Rip InsaneRamZes [Complete Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041824.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Mi Band Master v3.1.4 Pro [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041820.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041549.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041381.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041234.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041211.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ ADATA: карты памяти формата SD Express
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040988.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ High On Life (2022) [Multi] (1.11.4763.0) License RAZOR1911
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040959.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ Osiris: New Dawn (2023) [Ru/Multi] (0.5.616) License TENOKE
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040957.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ Windows 8.1 (x86/x64) 40in1 +/- Office 2019 SmokieBlahBlah 08.01.21 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040683.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ Udemy, Владилен Минин | JavaScript 2021 - Полное Руково
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040682.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040680.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040660.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040420.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ CorelDRAW Graphics Suite 2020 22.2.0.532 RePack by PooShock [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040407.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040226.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040223.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ Terminator: Resistance (2019) [Ru/Multi] (1.050/dlc) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040201.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ Samsung SSD 990 Pro получил новую прошивку, которая �
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040020.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ Kage no Jitsuryokusha ni Naritakute! / The Eminence in Shadow / Восхожде
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040012.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039684.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039673.jpg" />
 </div>
 
 
@@ -654,34 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBD2778101B0AE1E1365165736FFC11F734D8982
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 126206   (1039669) от 13.01.2021
-
-Убить Билла. Фильм первый и Фильм второй. / Kill Bill vol.1 & vol.2 (2003, 2004) [1080p] Blu Ray
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я право не знаю.... Тут есть почти все. Аниме, черно-белые кадры, драки на мечах, смерть и любовь. Не хватает только пришельцев и роботов, но этого будет во вторых Трансформерах.Жанр: "самая жестокая история любви"Режиссер: Квентин Тарантино (Quentin Tarantino)В ролях: Ума Турман (Uma Thurman)/The Bride, Люси Лью (Lucy Liu)/O-Ren Ishii, Вивика А. Фокс (Vivica A. Fox)/Vernita Green, Дэрил Ханна (Daryl Hannah)/Elle Driver, Майкл Мэдсен (Michael Madsen)/Budd, Дэвид Кэррадайн (David Carradine)/Bill, Джули Дрейфус (Julie Dreyfus)/Sofie Fatale, Чиаки Курияма (Chiaki Kuriyama)/Gogo Yubari, Сонни Чиба (Sonny Chiba)/Hattori Hanzo, Джа Хуи (   Читать дальше...   )Субтитры: отсутствуют
-
-* для обеих частей, если не указано обратное.Продолжительность: Vol.1: 01.50.43, Vol.2: 02.16.57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BED460D0EE9A095D204F4046C06123A55C94F7C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

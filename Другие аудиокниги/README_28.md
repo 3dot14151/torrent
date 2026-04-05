@@ -1,3 +1,55 @@
+###  Публикация: 1075207   (320787) от 22.11.2016
+
+Джон Гришэм | Серая гора (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Саманте Кофер казалось, что ей обеспечена блестящая карьера в солидной юридической фирме на Уолл-стрит, однако когда разразился кризис, ее мгновенно выкинули на улицу. И теперь единственная предложенная ей вакансия – это место юриста в затерянном в горах шахтерском городке Брэйди… Саманта, решив сменить обстановку и «отсидеться» в провинции в нелегкие времена, думала, (   Читать дальше...   )Жанр: ТриллерПродолжительность: 17:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A134A379BB3A9299FADC0612AB4BAAC8D11C5B2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259522   (319040) от 04.11.2018
+
+Дарья Плещеева | Блудное чадо (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319040.jpg" />
+</div>
+
+
+###  Подробнее
+
+Середина XVII века. Боярин Афанасий Ордин-Нащокин, выполняя ответственные поручения царя Алексея Михайловича, ведет переговоры с иностранными дипломатами. А его единственный избалованный сын – Воин, наслушавшись баек о просвещенной Европе, в один прекрасный день удирает в Польшу, увезя с собой секретные письма государя. В погоню отправляются подьячий Посольского (   Читать дальше...   )Жанр: Исторические приключенияПродолжительность: 12:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F661A0D6F6A92E97C0C6562135D481FC398A4FD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259526   (318954) от 04.11.2018
 
 Дарья Плещеева | Береговая стража (2018) [MP3]
@@ -6,7 +58,7 @@
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318954.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318463.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315990.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309939.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309084.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307613.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305464.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305279.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305161.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305098.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304996.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304987.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304950.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304642.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304554.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301296.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300899.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300845.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300700.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300321.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299996.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298857.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298770.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295992.jpg" />
 </div>
 
 
@@ -618,59 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9289CF513D71B1A02E76057524A6E2383AE62DB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078967   (295889) от 03.12.2016
-
-Жан Жак Руссо | Исповедь (2010 ) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жан Жак Руссо - знаменитый французский философ-просветитель, писатель, композитор. "Исповедь" - самое выдающееся произведение Руссо. Это не только автобиография, но и роман. Цель книги - "... показать своим собратьям одного человека во всей правде его природы", во всем его неповторимом индивидуальном своеобразии. С предельной искренностью и беспощадной (   Читать дальше...   )Жанр: Философия, автобиографический романПродолжительность: 39:10:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E01BD129FD830D5C0DA1A0A7BA4AD461E23E0717
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262346   (294830) от 15.11.2018
-
-Дмитрий Быков | Школа жизни. Честная книга. Любовь – друзья – учителя – жесть (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самая честная и правдивая книга о школе. "Школа жизни" - составленный Дмитрием Быковым сборник школьных воспоминаний людей, учившихся в 1960-1990-е годы.
-Вышел в серии "Народная книга" по итогам масштабного литературного конкурса "Мы родом из школы", уникального в своем роде и охватившего более 10 000 граждан России, Украины, Белоруссии, (   Читать дальше...   )Жанр: Биографии, мемуарыПродолжительность: 17:40:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:503DA6AAD09EB86E2CE99FA50D97DD7F79D5C986
 ```
 
 https://mybot314.ru/tekegram_catalog/

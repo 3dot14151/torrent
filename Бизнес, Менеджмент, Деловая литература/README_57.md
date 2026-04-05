@@ -1,31 +1,3 @@
-###  Публикация: 950720   (367547) от 27.10.2015
-
-Александр Зюзгинов | Хватит быть рабом работы! Стань хозяином своих денег! (2015) [FB2]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367547.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александр Зюзгинов в своей книге задается вопросом: как же люди становятся состоятельными, преуспевающими, богатыми? Это происходит благодаря чуду?.. Или труду своих рук?.. Или ума?.. Или – ценой стоической аскезы и пустого живота?
-
-На эти и многие другие вопросы автор дает достойные ответы. Они обоснованы не пресловутой «мистикой денег», а описанием конкретных, (   Читать дальше...   )Жанр: Личные финансы, инвестицииФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAFDD8859B6EF616896AAB98BEFB918A0361F257
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 575768   (367543) от 15.11.2012
 
 К.Друри | Управленческий учет для бизнес-решений [2012] [PDF]
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367543.jpg" />
 </div>
 
 
@@ -60,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367542.jpg" />
 </div>
 
 
@@ -86,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367532.jpg" />
 </div>
 
 
@@ -112,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367207.jpg" />
 </div>
 
 
@@ -138,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365807.jpg" />
 </div>
 
 
@@ -164,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365802.jpg" />
 </div>
 
 
@@ -190,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365647.jpg" />
 </div>
 
 
@@ -216,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365631.jpg" />
 </div>
 
 
@@ -242,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365629.jpg" />
 </div>
 
 
@@ -268,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365616.jpg" />
 </div>
 
 
@@ -294,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365499.jpg" />
 </div>
 
 
@@ -320,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365498.jpg" />
 </div>
 
 
@@ -348,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365493.jpg" />
 </div>
 
 
@@ -374,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365332.jpg" />
 </div>
 
 
@@ -400,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364942.jpg" />
 </div>
 
 
@@ -426,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364814.jpg" />
 </div>
 
 
@@ -454,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364743.jpg" />
 </div>
 
 
@@ -480,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363263.jpg" />
 </div>
 
 
@@ -506,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362657.jpg" />
 </div>
 
 
@@ -532,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361821.jpg" />
 </div>
 
 
@@ -558,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361657.jpg" />
 </div>
 
 
@@ -586,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361138.jpg" />
 </div>
 
 
@@ -614,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360386.jpg" />
 </div>
 
 
@@ -640,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360245.jpg" />
 </div>
 
 
@@ -666,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360237.jpg" />
 </div>
 
 
@@ -677,6 +649,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7353E1CB0954E3BB9670E10176644E6F8EA2626
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 723147   (359953) от 16.11.2013
+
+Джеймс Шуровьески | Мудрость толпы (2007) [PDF]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джеймс Шуровьески, финансовый аналитик New York Times и Wall Street Journal, анализируя в книге "Мудрость толпы" результаты масштабных и многоплановых исследований - в области военной истории и политики, поведенческой экономики, биологических систем и повседневной психологии - убедительно доказывает, что коллективный потенциал большой группы так называемых (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF527F08E0414EF13EB08BAF40DF58F7718DA96D
 ```
 
 https://mybot314.ru/tekegram_catalog/

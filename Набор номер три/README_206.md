@@ -1,3 +1,160 @@
+###  Публикация: 1211798   (776266) от 10.03.2018
+
+12 000 спутников Илона Маска дадут всем землянам доступ в интернет, и отключить его будет невозможно
+
+>>3
+>>13
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_776266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для сравнения — сейчас в космосе работают 1740 аппаратов различного назначения. Еще 2600 выведены из эксплуатации, они превратились в космический мусор. Но в орбитальной группировке Starlink уже к середине 2020 годов планируется использование 11925 (!) спутников связи. Они должны будут работать как единая система в виде ячеистой сети, равномерно покрывающей поверхность (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212189   (776263) от 10.03.2018
+
+Need for Speed: Payback (2017) [Ru/En] (1.0.51.15364) Repack xatab
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Need for Speed, одна из ведущих игровых серий возвращается ради мести в новой Need for Speed: Payback. Действие происходит в теневом мире Фортуна-Вэлли. Вы и ваша команда разделены предательством и объединены заново местью.Тип издания: RepackРазработчик: Ghost GamesЖанр: Racing (Cars), Action, Arcade, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84F768510BA55C205938D99DC926125422E7D33C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212179   (776258) от 10.03.2018
+
+Интервью Владимира Путина телеканалу NBC (10.03.2018) WEB-DL [H.264/720p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Владимир Путин ответил на вопросы журналистки американского телеканала NBC Мегин Келли. Интервью записывалось 1 марта в Кремле и 2 марта в Калининграде. Самые волнующие мировые темы, мнимое вмешательство России в выборы президента в США, внутриполитическая обстановка в России.Производство: США / NBC, Россия / Президент.РФЖанр: ПолитикаСубтитры: ОтсутствуютПродолжительность: 01:28:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28826DE60FC18B0537EAF86A9E7EE8207ADF8407
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211997   (776253) от 10.03.2018
+
+Звёздные войны: Последние джедаи / Star Wars: Episode VIII - The Last Jedi (2017) WEB-DLRip [H.264/720p-LQ] [Line, AD]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая история о противостоянии света и тьмы, добра и зла начинается после гибели Хана Соло. В Галактике, где Первый Орден и Сопротивление яростно сражаются друг с другом в войне, героиня Рей пробудила в себе Силу. Но что произойдет, когда она встретится с единственным оставшимся в живых рыцарем-джедаем — Люком Скайуокером? Кайло Рен перешел на Темную сторону Силы (   Читать дальше...   )Производство: США, Ram Bergman Productions, Lucasfilm Ltd., Walt Disney PicturesЖанр: Фантастика, Фэнтези, Боевик, ПриключенияРежиссер: Райан ДжонсонАктеры: Джон Бойега, Дэйзи Ридли, Оскар Айзек, Адам Драйвер, Донал Глисон, Марк Хэмилл, Макс фон Сюдов, Энди Серкис, Лупита Нионго, Энтони ДэниелсПеревод: Дублированный (Чистый звук)Субтитры: ОтсутствуютПродолжительность: 02:25:19Реклама: Присутствуют текстовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05C808C1CA7124F0B9FED654E77832643BAB1208
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211941   (776252) от 10.03.2018
+
+Need for Speed: Payback (2017) [Ru/Multi] (1.0.51.15364) License CPY
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Need for Speed, одна из ведущих игровых серий возвращается ради мести в новой Need for Speed: Payback. Действие происходит в теневом мире Фортуна-Вэлли. Вы и ваша команда разделены предательством и объединены заново местью.Тип издания: LicenseРазработчик: Ghost GamesЖанр: Racing (Cars), Action, Arcade, 3DЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0D7E641A423D565EBAC184C31AB3E114C5F1EF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014314   (776239) от 07.05.2016
+
+Microsoft откажется от назойливого приложения "Get Windows 10"
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_776239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уведомление об обновлении до Windows 10 исчезнет с Windows 7 и 8.1 после 29 июля
+После 29 июля Microsoft удалит из Windows 7 и Windows 8.1 программу Get Windows 10 («Получить Windows 10»). Об этом представитель корпорации рассказал изданию WinBeta.В официальном заявлении Microsoft среди прочего говорится:«Детали по-прежнему уточняются, но 29 июля приложение Get Windows (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 942147   (776227) от 07.05.2016
 
 Crysis 3 (2013) [Ru/En] (1.3/upd3/dlc) Rip =nemos= [Digital Deluxe Edition]
@@ -6,7 +163,7 @@ Crysis 3 (2013) [Ru/En] (1.3/upd3/dlc) Rip =nemos= [Digital Deluxe Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776227.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_775934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_775934.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_775927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_775927.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_775921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_775921.jpg" />
 </div>
 
 
@@ -110,7 +267,7 @@ Need for Speed: Payback (2017) [Ru/Multi] (1.0.51.15364) Repack =nemos=
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775915.jpg" />
 </div>
 
 
@@ -136,7 +293,7 @@ Windows 7 SP1 Lite by -A.L.E.X.- x86 (v.10.01.2018) [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775914.jpg" />
 </div>
 
 
@@ -163,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_775911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_775911.jpg" />
 </div>
 
 
@@ -189,7 +346,7 @@ CorelDRAW Graphics Suite X8 18.0.0.448 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775887.jpg" />
 </div>
 
 
@@ -215,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775886.jpg" />
 </div>
 
 
@@ -241,7 +398,7 @@ AusLogics BoostSpeed 8.2.1.0 DC 26.04.2016 RePack (& Portable) by KpoJIuK [Ru/En
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775882.jpg" />
 </div>
 
 
@@ -267,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775878.jpg" />
 </div>
 
 
@@ -293,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775876.jpg" />
 </div>
 
 
@@ -319,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775872.jpg" />
 </div>
 
 
@@ -345,7 +502,7 @@ WPI x86-x64 by OVGorskiy® 05.2016 1DVD [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775870.jpg" />
 </div>
 
 
@@ -371,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775869.jpg" />
 </div>
 
 
@@ -397,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775587.jpg" />
 </div>
 
 
@@ -424,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_775575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_775575.jpg" />
 </div>
 
 
@@ -451,7 +608,7 @@ Need for Speed: Payback (2017) [Ru/Multi] (1.0.51.15364/dlc) Repack R.G. Catalys
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775570.jpg" />
 </div>
 
 
@@ -477,7 +634,7 @@ Little Nightmares (2017) [Ru/En] (1.0.43.1/dlc) Repack R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775568.jpg" />
 </div>
 
 
@@ -503,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_775491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_775491.jpg" />
 </div>
 
 
@@ -515,165 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277302   (775489) от 21.01.2019
-
-"Правила хорошей жены" из американского журнала Housekeeping Monthly, 13 мая 1955 года.
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_775489.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ужин должен быть готов. Об этом стоит позаботиться заранее, порой даже за ночь до ужина, чтобы вкусные и разнообразные блюда были готовы к приходу мужа. Это способ показать супругу, что ты думаешь о нем и заботишься о его потребностях. Большинство мужчин голодны, когда возвращаются домой, и вид хорошей еды (особенно любимого блюда) – неотъемлемая часть теплого (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277468   (775487) от 21.01.2019
-
-Windows 10 x64 USB Project Release by StartSoft 05-2019 [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка предназначена для установки на компьютеры операционной системы Windows 10 с разрядностью x64-bit. Загрузочный образ, который входит в состав сборки, предназначен для записи на Flash накопитель размером от 16 Гигабайт. Сборка поддерживает установку операционной системы на компьютеры жесткие диски которых имеют разметку стандартов GPT или MBR при помощи модифицированного (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA63A9E71EB50CBB598B464F645AA120D09C5A90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095545   (775483) от 21.01.2019
-
-Warhammer 40,000: Sanctus Reach (2017) [Ru/Multi] (1.2.4/dlc) License CODEX
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Warhammer 40,000: Sanctus Reach переносит игроков в темную эпоху резни и бесконечной войны. Мира нет – Империум осаждают со всех сторон, и одной из главных угроз являются Орки. Один из могущественных отрядов зеленокожих направляется в систему Sanctus Reach и миры один за одним склоняются под натиском миллиардов кровожадных захватчиков.Тип издания: LicenseРазработчик: Straylight EntertainmentЖанр: Strategy (Turn-based, Tactical), IsometricЯзык субтитров: Русский, Немецкий и другиеЯзык интерфейса: Русский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD7E592E2701FE2A8BFA321A671BE0711E49681C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276187   (775482) от 21.01.2019
-
-Windows 10 32in1 (x86/x64) + LTSC +/- Office 2019 by SmokieBlahBlah 14.01.19 [Ru/En]
-
->>3
->>36
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775482.jpg" />
-</div>
-
-
-###  Подробнее
-
-8 редакций Windows 10 (русские и английские) с обновлениями по декабрь 2018, основанных на оригинальных образах Redstone 5 (1809) и интегрированными системными библиотеками
-+8 таких же редакций со встроенным MS Office 2019 Pro Plus x86 (можно выбрать, ставить ли Office. Галочка перед началом установки.) Язык офиса зависит от выбранного языка ОС.
-
-Ничего не вырезано (   Читать дальше...   )Язык интерфейса: русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77B07FE311BA37A90AF5898F06C97EF367EB9B99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014933   (775411) от 09.05.2016
-
-Kerish Doctor 2016 4.60 DC 07.05.2016 Final Repack by Alker [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kerish Doctor 2016 — комплексное решение для автоматического ухода за компьютером под управлением ОС Windows. Программа предлагает два режима работы. В режиме работы в реальном времени Kerish Doctor 2016 в фоновом режиме защищает систему и автоматически исправляет ошибки автоматически, показывает уведомления о проделанной работе. Программа запускается вместе со стартом (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEF319DD7110AFE826F576A505F05E6346F42049
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009060   (775403) от 09.05.2016
-
-P·O·L·L·E·N (2016) [Ru/Multi] (1.0.1) License GOG
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775403.jpg" />
-</div>
-
-
-###  Подробнее
-
-P·O·L·L·E·N, атмосферная и таинственная игра, в которой вам предстаит исследовать огромную космическую станцию. У планеты Сатурн есть спутник Титан. На Титане – исследовательская станция. На станции пропал человек.Тип издания: LicenseРазработчик: Mindfield GamesЖанр: Adventure, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2909D1B939B3E08795D1E23EE390D4E3140461B
 ```
 
 https://mybot314.ru/tekegram_catalog/

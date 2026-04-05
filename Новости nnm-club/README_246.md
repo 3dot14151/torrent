@@ -1,3 +1,55 @@
+###  Публикация: 1429442   (175357) от 07.12.2020
+
+Как перенести лицензию Windows 10 на новый компьютер или жёсткий диск
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_175357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычно при покупке нового компьютера или ноутбука на нём есть уже активированная копия Windows 10. Однако, если вы собираете компьютер самостоятельно, это не так. Если вы хотите собрать компьютер из отдельных компонентов своими руками, нужна лицензия на Windows 10, которая в зависимости от редакции может стоить десятки тысяч рублей.Если на предыдущем компьютере у (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460542   (175202) от 05.12.2022
+
+Жуки (2021) WEBRip [H.264/1080p-LQ] (сезон 2, серии 1-16 из 16 + Фильм о сериале)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175202.jpg" />
+</div>
+
+
+###  Подробнее
+
+За этот год мир полностью изменился, а в Жуках все так же солнечно и душевно. Никита, Дэн и Артемий продолжают работать над своим приложением для знакомств TWIN под присмотром инвестора, который после событий первого сезона всё-таки добрался до Жуков в трезвом уме и теперь живёт тут, несмотря на неодобрение участкового Маслова. У Маслова, кроме инвестора, появляется (   Читать дальше...   )Производство: Россия / Comedy Club ProductionЖанр: комедияРежиссер: Константин Смирнов, Константин КолесовАктеры: Вячеслав Чепурченко, Вадим Дубровин, Павел Комаров, Максим Лагашкин, Анастасия Акатова, Дмитрий Радонов, Валерий Новиков, Александр Робак, Владимир Епифанцев, Игорь Верник, Анатолий Журавлёв и др.Продолжительность: ~00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F62692276A7C0032991DEE9B1BC7CEF806204246
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595681   (174673) от 06.12.2022
 
 Steganos VPN Online Shield 2.0.11 Revision 13052 (Акция COMSS от 2022.12.06) [Multi]
@@ -6,7 +58,7 @@ Steganos VPN Online Shield 2.0.11 Revision 13052 (Акция COMSS от 2022.12.
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174673.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_174361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_174361.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_174245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_174245.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ Starfield (2023) [Multi] (1.7.36.0/dlc) Scene Rune [Premium Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174222.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ Adobe Acrobat Pro DC 2020.013.20074 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173985.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173682.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_173560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_173560.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173287.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173277.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ Nanatsu no Maken ga Shihai Suru / Reign of the Seven Spellblades / Семь гл
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173272.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ Lords of the Fallen (2023) [Ru/Multi] (1.1.184/dlc) Repack DjDI [Deluxe Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173071.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173066.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172960.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172908.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172898.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ Adobe Photoshop Lightroom Classic 13.0.1.1 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172701.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172414.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ The Mortuary Assistant (2022) [Ru/Multi] (1.2.3) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172154.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172150.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ Kaspersky Free 21.15.8.493 Repack by LcHNextGen (20.10.2023) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171966.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ Parallels Desktop Business Edition 19 for Mac 19.1.0 [Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171803.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ MInstAll v.21.10.2023 By Andreyonohov (ISO) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171616.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171611.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.5413.1000 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171609.jpg" />
 </div>
 
 
@@ -619,58 +671,6 @@ Microsoft Office 2016 хорошо демонстрирует, как сегод
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D789775BC003508EECA3D57D64173F94911885C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670726   (171468) от 23.10.2023
-
-Маск: Надо создать издание "Правда"
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171468.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Все, что писала газета „Правда", оказалось правдой!"Название уже занято. Да и сама идея тухлая - как показывают примеры разных киносайтов, где за фильмы голосуют зрители, любой обсуждаемый проект может очень легко искажаться либо пользователями, которые накручивают едииницы или десятки за любой фильм, либо администрацией такого сайта, которая подкручивает (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670720   (171460) от 23.10.2023
-
-Заблокируют ли нам VPN с помощью DPI?
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171460.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сети стали появляться новости о том, что провайдеры закупают DPI оборудование, для того чтобы блокировать VPN. В этой статье я хочу поделиться своим мнением в целом о блокировках и конкретно о DPI.Как у нас происходят блокировки сейчас?Роскомнадзор вносит нежелательный ресурс в черный список. Провайдеры вынуждены подчиняться и не пропускать запросы к такому ресурсу. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

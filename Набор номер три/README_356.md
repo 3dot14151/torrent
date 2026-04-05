@@ -1,3 +1,213 @@
+###  Публикация: 226354   (542969) от 12.08.2010
+
+[Xbox 360] Kane & Lynch 2: Dog Days [Region Free / RUS] (2010)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Грязные улочки Шанхая – отличное местечко, чтобы забыть о кровавом угаре. Десять баксов, девочка под боком, и ты король мира. Но когда приезжает старый друг, все это ни черта не значит. И страсть как охота посидеть, вспомнить былые деньки – но на горизонте новые проблемы. А вот решать их придется по старинке. Ведь когда подонки зажимают в угол, так и тянет достать (   Читать дальше...   )Тип издания: пираткаРазработчик: IO InteractiveЖанр: 3rd-Person / 3D / Action ShooterЯзык интерфейса: русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533842   (542300) от 14.06.2022
+
+ELDEN RING (2022) [Ru/Multi] (1.05/dlc) Repack Other s
+
+>>3
+>>20
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542300.jpg" />
+</div>
+
+
+###  Подробнее
+
+ELDEN RING™ — фэнтезийное экшен-РПГ приключение, действия которого развиваются в мире, созданном знаменитым Хидэтака Миядзаки, известным по работе над играми Dark Souls. К проекту также приложил руку известный писатель Джордж Р. Р. Мартин (Песнь Льда и Огня).Тип издания: RepackРазработчик: FromSoftware Inc.Жанр: Action, RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF1F0A3843A243D68A9DF0C865081479566639CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924849   (542234) от 05.08.2015
+
+Есть топор - нет проблем / Axe to Grind (2015) WEBRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542234.jpg" />
+</div>
+
+
+###  Подробнее
+
+На съемках нового фильма ужасов категории Б, отвергнутая и обиженная звезда ужастиков, начинает свою кровавую мстю.Производство: СШАЖанр: Ужасы, ТриллерРежиссер: Мэтт ЗеттеллАктеры: Дэбби Рошон, Гай Торри, Мэттью Джеймс Гулбрансон, Пола Лабаредас, Мишель Томлинсон, Дэни Томпсон, Адриан Куихиус, Тони фон Холли, Рэйчел Роббинс, Келси ЖуковскийПеревод: Двуголосый закадровый, любительскийОзвучка / Автор перевода: Den904 & DeadSnoПродолжительность: 01:21:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:985AB94973F152754C926D9CB41BA10A873E8980
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924824   (542232) от 05.08.2015
+
+KMSAuto Net 2015 1.3.7 Portable [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542232.jpg" />
+</div>
+
+
+###  Подробнее
+
+KMSAuto Net - автоматический KMS-активатор для операционных систем
+Windows VL редакций: Vista, 7, 8, 8.1, 10, Server 2008, 2008 R2, 2012,
+2012 R2 а также Office 2010, 2013, 2016.Язык интерфейса: Русский / Украинский / Английский / Французский / Испанский / Вьетнамский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46AF27E91FCED9148DDE29E5D76F7BEDA1B9B9FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925082   (542230) от 05.08.2015
+
+Adobe Muse CC 2015.0.2.4 RePack by D!akov [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Muse CC – визуальный конструктор сайтов, функционирующий по принципу «отображение внесённых изменений в реальном времени». Таким образом, разработчику не требуется открывать HTML-код сайта - панель редактирования позволяет работать с веб-страницей, как с изображением. Очевидно, что такой подход ориентирован на создание среды разработки, доступной пользователю (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05AB4930D27BA9D02A5129A28B3D8418E2D2DF05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925054   (542220) от 05.08.2015
+
+The Bat! Professional 7.0.0.56 RePack (& portable) by KpoJIuK [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542220.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Bat! – общепризнанная система обработки электронных сообщений, которая прекрасно совмещает в себе все качества, необходимые опытному пользователю. Интуитивный интерфейс позволяет пользователям The Bat! приступить к работе сразу после установки. Эффективный механизм фильтрации и сортировки помогает обрабатывать огромные потоки входящей почты, с которыми не справляются (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07218233C0DFB82E38782C22C62DC7C8076EC0A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924843   (542216) от 05.08.2015
+
+Adobe Photoshop CC 2015.0.1 (20150722.r.168) RePack by D!akov [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop CC - это комплексное решение для профессиональной обработки цифровых изображений, которое содержит самые современные инструменты для работы с изображениями и новые возможности для реализации творческих идей, которые позволяют значительно повысить производительность. Редактируйте изображения с исключительной точностью, используйте новые интуитивно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73D868DE917EF6194FEFCACB98CBD74D1E17B882
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925191   (542211) от 05.08.2015
+
+Adobe After Effects CC 2015.0.1 13.5.1.48 RePack by D!akov [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542211.jpg" />
+</div>
+
+
+###  Подробнее
+
+After Effects CC — это ведущая в отрасли программа для создания и компоновки анимированной графики, которую используют многие разработчики визуальных эффектов и анимированной графики. Она предлагает великолепные функции управления, широкий выбор инструментов для творчества, а также возможность интеграции с другими приложениями для постобработки видеоматериалов. Сделайте (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99EB5E50EB74F41CDA0F13B9C9F6D2802C0346DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 925194   (542209) от 05.08.2015
 
 Microsoft Office 2010 Professional Plus SP2 14.0.7015.1000  VL Repack The Hacker [x86-x64] (cxarchive)
@@ -6,7 +216,7 @@ Microsoft Office 2010 Professional Plus SP2 14.0.7015.1000  VL Repack The Hacker
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542209.jpg" />
 </div>
 
 
@@ -32,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542207.jpg" />
 </div>
 
 
@@ -59,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542204.jpg" />
 </div>
 
 
@@ -85,7 +295,7 @@ Tom Clancy's Ghost Recon Wildlands (2017) [Ru/Multi] (2355883/dlc) Repack R.G. �
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542069.jpg" />
 </div>
 
 
@@ -111,7 +321,7 @@ Kaspersky Internet Security 2018 18.0.0.405 (b) Final [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542068.jpg" />
 </div>
 
 
@@ -137,7 +347,7 @@ NaviTel / Навител Навигатор 9.8.189 [Ru/Multi] (Windows CE)
 >>12
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542066.jpg" />
 </div>
 
 
@@ -163,7 +373,7 @@ Mafia III / Мафия 3 (2016) [Ru/En] (1.090.0.1/dlc) Repack =nemos= [Digital 
 >>65
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542065.jpg" />
 </div>
 
 
@@ -189,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541866.jpg" />
 </div>
 
 
@@ -215,7 +425,7 @@ WPI x86-x64 by OVGorskiy® 06.2018 1DVD [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541865.jpg" />
 </div>
 
 
@@ -241,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541668.jpg" />
 </div>
 
 
@@ -269,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541664.jpg" />
 </div>
 
 
@@ -295,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541663.jpg" />
 </div>
 
 
@@ -321,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541639.jpg" />
 </div>
 
 
@@ -350,7 +560,7 @@ Promt Professional 9.5 (9.0.514) Giant (2012) + Коллекция словар�
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541637.jpg" />
 </div>
 
 
@@ -378,7 +588,7 @@ NoNaMe Клубу шесть лет!
 >>98
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541636.jpg" />
 </div>
 
 
@@ -408,7 +618,7 @@ Debian 8 Xfce Custom v6 2016.09.04 [Авторский релиз] [x86] 1xDVD
 >>11
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541572.jpg" />
 </div>
 
 
@@ -439,7 +649,7 @@ Windows 7 Professional SP1 x64 Game OS 2.3 by CUTA (UPDATE 2) [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541441.jpg" />
 </div>
 
 
@@ -465,7 +675,7 @@ Star Wars Battlefront II (2017) [Ru/Multi] (1.34) License CODEX
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541436.jpg" />
 </div>
 
 
@@ -476,215 +686,6 @@ Star Wars Battlefront II (2017) [Ru/Multi] (1.34) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61FC0F57FD3CC95B12244495CBA34A69B3C7B080
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 226410   (541254) от 13.08.2010
-
-BlazBlue: Calamity Trigger [Eng] (L) 2010
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тип издания: ЛицензияРазработчик: Arc System WorksЖанр: Arcade (Fighting)Язык интерфейса: 
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 817818   (540894) от 03.09.2014
-
-Как приручить дракона 2 / How to Train Your Dragon 2 (2014) WEB-DL [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540894.jpg" />
-</div>
-
-
-###  Подробнее
-
-С момента примирения викингов и драконов прошло пять лет. Пока Астрид, Сморкала и остальные ребята проводят время, соревнуясь друг с другом в популярных на острове драконьих гонках, Иккинг и Беззубик путешествуют по небу, составляя карту неизвестных мест. Когда одно из их приключений приводит к открытию тайной ледяной пещеры, которая является домом для сотен ранее (   Читать дальше...   )Производство: США, DreamWorks Animation, Mad Hatter EntertainmentЖанр: Мультфильм, Фэнтези, Комедия, Приключения, СемейныйРежиссер: Дин ДеБлуаАктеры: Джей Барушель. Кейт Бланшетт, Джерард Батлер, Крэйг Фергюсон, Америка Феррера, Джона Хилл, Кристофер Минц-Плассе, ТиДжей Миллер  Кристен Уиг, Джимон ХонсуПеревод: Дублированный (iTunes)Субтитры: отсутствуютПродолжительность: 01:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:893C868A0F9537B7F890B17027151040B5EBC817
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 123085   (540582) от 15.06.2022
-
-Тарас Бульба (2009) DVD9
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540582.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам одной из самых известных повестей Николая Гоголя «Тарас Бульба». События «Запорожской сечи» отсылают к тяжелому периоду в истории казачества, когда запорожцы поднялись на борьбу с Речью Посполитой. В самом центре политических интриг оказалась семья уважаемого казака Тараса Бульбы, переживающего глубокую личную драму. Его сын Андрий полюбил польскую аристократку (   Читать дальше...   )Производство: Россия, Украина, ПольшаЖанр: ДрамаРежиссер: Владимир БорткоАктеры: Богдан Ступка, Игорь Петренко, Владимир Вдовиченков, Магдалена Мельцаж, Любомирас Лауцявичюс, Ада Роговцева, Михаил Боярский, Сергей Дрейден, Юрий Беляев, Лесь СердюкСубтитры: отсутствуютПродолжительность: 02:11:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AC8C7C03E51E3A101BBDEFD3F6D7193482E0F27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 869023   (540268) от 06.08.2015
-
-Александр Куртеев | Полная защита сайта на Joomla 3.0 (2014) PCRec
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный курс полностью адаптирован и дополнен новыми средствами защиты для Joomla 3-ей серии.
-Выполнив шаг за шагом необходимые, простые действия, описанные в уроках, вы создадите максимальную защиту ваших сайтов и обеспечите их быстрое восстановление, даже если против вас восстала "золотая орда" хакеров.Жанр: Веб-безопасностьПродолжительность: 04:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75F058BBCB610AF2C5B4587E2980C505BDA08287
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924641   (540266) от 06.08.2015
-
-Windows 10-8.1-7SP1-XP Plus PE WPI StartSoft 45-2015 Final [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка предназначена для установки на ПК Windows XP, Windows 7 SP1, Windows 8.1 Update и Windows 10, с разной разрядностью. Кроме того, сборка имеет возможности загрузки ПК с Windows PE, с программ Акронис, а так же с загрузочного диска Касперского для проверки разделов жестких дисков на наличие вирусов, без загрузки основной, ранее установленной системы. В составе (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2109102B47C14CB66E6EDD01AC466CC2B6553943
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925216   (540263) от 06.08.2015
-
-Adobe Photoshop CC 2015.0.1 (20150722.r.168) (x64) RePack by JFK2005 [Ru/En]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop CC - это комплексное решение для профессиональной обработки цифровых изображений, которое содержит самые современные инструменты для работы с изображениями и новые возможности для реализации творческих идей, которые позволяют значительно повысить производительность. Редактируйте изображения с исключительной точностью, используйте новые интуитивно (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F779545B903A28481F575882C273BE53041CD61A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925317   (540262) от 06.08.2015
-
-Carmageddon: Reincarnation (2015) [Ru/Multi] (1.0.0.7039) Repack R.G. Механики
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540262.jpg" />
-</div>
-
-
-###  Подробнее
-
-Carmageddon: Reincarnation – снова позволит геймерам погрузиться в мир безумных гонок и веселья. В Carmageddon: Reincarnation игрокам позволено все, никто не требует соблюдать правила дорожного движения, скоростной режим и так далее. Все что нужно делать игрокам, это любой ценой добиваться намеченных целей. В новой части известной игры, вновь можно будет сесть за (   Читать дальше...   )Тип издания: RepackРазработчик: Stainless Games LtdЖанр: Arcade, Racing (Cars), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский, Итальянский, ФранцузскийЯзык интерфейса: Русский, Английский, Немецкий, Испанский, Итальянский, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4516474FF5F6BB25E941F849FF81603410C18C35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925407   (540261) от 06.08.2015
-
-Destroy Windows 10 Spying 1.4.2 [Ru/En]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная программа отключает задачи, кей логгер в Windows 10 . Дополнительно она добавляет все сервисы приёма отчётов M$ в hosts файл + отключает рекламу в Skype. Удаляет (по желанию) приложения 10-тки, которые многим мешают.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1D0F90BD0082963EE0D671557DB6742747721A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

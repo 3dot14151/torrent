@@ -1,33 +1,3 @@
-###  Публикация: 1531077   (192610) от 03.09.2023
-
-Hellyeah - Studio Albums (6 releases) (2007 - 2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hellyeah — американская грув-метал-группа из Далласа, штат Техас, представляющая собой «супергруппу». Коллектив был основан в 2006 году вокалистом Чедом Греем, гитаристом Грэгом Триббеттом из Mudvayne, гитаристом Томом Максвеллом из Nothingface, басистом Бобом Зилла из Damageplan и ударником Винни Полом из Pantera, Damageplan и Rebel Meets Rebel.
-В 2014 году группа (   Читать дальше...   )2007 - Hellyeah
-2010 - Stampede
-2012 - Band Of Brothers
-2014 - Blood For Blood(   Читать дальше...   )Жанр: Groove MetalПродолжительность: 04:10:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D56803B2EA75FD2EB4705BE79094586D72417EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1657591   (192447) от 04.09.2023
 
 Andy McCoy - Too Much Ain't Enough (1988) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Glam, Classic Rock>
@@ -36,7 +6,7 @@ Andy McCoy - Too Much Ain't Enough (1988) [FLAC 2.0|24/192|image + .cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192447.jpg" />
 </div>
 
 
@@ -65,7 +35,7 @@ Aventhur - Fractured Memories (2023) [FLAC 24/48|WEB-DL|tracks] <Symphonic Progr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192302.jpg" />
 </div>
 
 
@@ -94,7 +64,7 @@ Julian Lennon/Джулиан Леннон - Valotte/Валотт (1987) Лице
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192270.jpg" />
 </div>
 
 
@@ -123,7 +93,7 @@ VA - Ultimate Divas 1940 - 2004, feat. B. Holiday • E. Fitzgerald • S. Vaugh
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192096.jpg" />
 </div>
 
 
@@ -152,7 +122,7 @@ Ronnie Montrose - Territory (1986) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191974.jpg" />
 </div>
 
 
@@ -181,7 +151,7 @@ Sunny Day Real Estate - Studio Albums (4 releases) (1994-2000) hand made [restor
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191913.jpg" />
 </div>
 
 
@@ -210,7 +180,7 @@ Sylosis - A Sign of Things to Come (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191324.jpg" />
 </div>
 
 
@@ -239,7 +209,7 @@ Second Life - Why (1979) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop, Pop Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191320.jpg" />
 </div>
 
 
@@ -268,7 +238,7 @@ Vega - Battlelines (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191318.jpg" />
 </div>
 
 
@@ -297,7 +267,7 @@ The Grand Hotel Orchestra - Palm Court of Grand Hotel (1965) [FLAC 1.0|24/96|ima
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191300.jpg" />
 </div>
 
 
@@ -326,7 +296,7 @@ Andre Y Su Conjunto – Latin American Favourites - "Cocktail De Amor" & Various
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191294.jpg" />
 </div>
 
 
@@ -355,7 +325,7 @@ The Chemical Brothers - For That Beautiful Feeling (2023) [FLAC 24/44.1|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191222.jpg" />
 </div>
 
 
@@ -384,7 +354,7 @@ Peter Lipa - Moanin' (1984) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191028.jpg" />
 </div>
 
 
@@ -413,7 +383,7 @@ OOMPH! - Richter und Henker (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Industri
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190972.jpg" />
 </div>
 
 
@@ -442,7 +412,7 @@ Mad Butcher - Metal Meat (1987) Reissue, 2021, Relics From the Crypt [FLAC|24/19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190968.jpg" />
 </div>
 
 
@@ -471,7 +441,7 @@ George Benson - Tell It Like It Is (1984) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190749.jpg" />
 </div>
 
 
@@ -500,7 +470,7 @@ OSI - Дискография (4 releases) (2003-2012) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190636.jpg" />
 </div>
 
 
@@ -529,7 +499,7 @@ Village People - Go West (1979) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Funk, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190478.jpg" />
 </div>
 
 
@@ -558,7 +528,7 @@ Fixation - More Subtle Than Death (2023) [FLAC 24/48|WEB-DL|tracks] <Metalcore, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190207.jpg" />
 </div>
 
 
@@ -587,7 +557,7 @@ Allison Russell - The Returner (2023) [FLAC 24/48|WEB-DL|tracks] <Indie Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190186.jpg" />
 </div>
 
 
@@ -616,7 +586,7 @@ Super Furry Animals - Phantom Power (2003) (2023 Remaster) BMG Rights Management
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190165.jpg" />
 </div>
 
 
@@ -645,7 +615,7 @@ Jerry Lee Lewis - Killer In Stereo: Good Rockin' Tonight (1969) (Remastered 2023
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190121.jpg" />
 </div>
 
 
@@ -674,7 +644,7 @@ James Blake - Playing Robots Into Heaven (2023) [FLAC 24/96|WEB-DL|tracks] <Elec
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190118.jpg" />
 </div>
 
 
@@ -703,7 +673,7 @@ The Royal Military School Of Music - Gilbert & Sullivan - Selectiohs from "The G
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189703.jpg" />
 </div>
 
 
@@ -729,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189666.jpg" />
 </div>
 
 
@@ -743,6 +713,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CF14060D125CA94EFADCD263421BBBF3DCDFB9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660657   (189404) от 13.09.2023
+
+Roger Whittaker - Butterfly (1979) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop, Folk, Country>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189404.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Settle Down
+A2 After The Laughter (Came Tears)
+A3 Butterfly
+A4 Acre Of Wheat(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 00:26:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FBB13E834ED2BDBEBF9B3C19D4183F1176DFC80
 ```
 
 https://mybot314.ru/tekegram_catalog/

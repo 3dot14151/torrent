@@ -1,3 +1,29 @@
+###  Публикация: 1211292   (777236) от 08.03.2018
+
+Михаил Юрьевич Лермонтов | Песня про царя Ивана Васильевича, молодого опричника и удалого купца Калашникова (1913) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первым, как и предвидел Калашников, выходит на ринг Кирибеевич. Возбуждённый вчерашней «победой», он так агрессивен и так уверен в себе, что никто из его обычных противников не трогается с места. Вот тут-то, раздвинув толпу, и появляется Степан Парамонович. Кирибеевич, слегка удивлённый (он-то сразу сообразил, что перед ним — новичок), предлагает простофиле представиться, (   Читать дальше...   )Жанр: СтихиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87A381B24E9F45BAE99C58CB95BF5C08F7462C43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211386   (777234) от 08.03.2018
 
 Дмитрий Мамин-Сибиряк | Аленушкины сказки (1913) [PDF]
@@ -6,7 +32,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777234.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777196.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777190.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777154.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776952.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776906.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776834.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776833.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776829.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776827.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776825.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776817.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776775.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776742.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776684.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776548.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776547.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776459.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776425.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776409.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776399.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776391.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776334.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776325.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776209.jpg" />
 </div>
 
 
@@ -652,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:874CD976255708139612CEE9EA4D05E7683B8E60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014661   (776191) от 08.05.2016
-
-Григорий Абрамян | Кто взял фальшивую ноту? (1987) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776191.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Кто взял фальшивую ноту?» — повесть о ребятах, которые, сами того не подозревая, обнаружили удивительную сокровищницу. В ней нет ни золотых монет, ни драгоценных камней. Ее богатства нельзя увидеть, потрогать руками, попробовать на зуб, купить, продать, забыть, спрятать, запереть. Они никому не принадлежат, хотя каждый может пользоваться ими, независимо от возраста, (   Читать дальше...   )Жанр: Детская прозаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E775BFBECE37D1C0B1C57E77AE6171E6F2FDB6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

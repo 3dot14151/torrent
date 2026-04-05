@@ -1,3 +1,133 @@
+###  Публикация: 1751889   (42162) от 28.09.2024
+
+Головоломка 2 / Inside Out 2 (2024) WEB-DLRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Райли уже подросток, и штаб-квартира в её мозгу подвергается капитальному ремонту, чтобы дать место новым эмоциям. Радость, Грусть, Гнев, Страх и Отвращение никак не ожидали появления Тревожности, Зависти, Смущения и Скуки. Райли с двумя лучшими подругами отправляется в хоккейный лагерь, где у неё появляется шанс попасть в команду старшей школы, и Радость уверена, (   Читать дальше...   )Производство: США / Walt Disney Pictures, Pixar Animation StudiosЖанр: мультфильм, комедия, семейный, фэнтезиРежиссер: Келси МаннАктеры: Эми Полер, Филлис Смит, Льюис Блэк, Тони Хейл, Лиза Лапира, Майя Хоук, Айо Эдебири, Адель Экзаркопулос, Пол Уолтер Хаузер, Кенсингтон ТаллманПеревод: Дублированный (MovieDalen, TVShows, LeDoyen), Многоголосый (LostFilm, HDrezka)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH), украинские (Forced, Full) и др.Продолжительность: 01:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5037A0ED58E360A9CBF7E14E07FA7F6AEBAC9931
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744443   (42121) от 28.09.2024
+
+Хит-Манки / Hit-Monkey (2024) WEB-DLRip (сезон 2, серии 1-10 из 10) NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет посвящен обезьяне, которая тренировалась у киллера по имени Брюс, чтобы линчевать преступников.Производство: США, Floyd County Productions, Hulu, Marvel Animation, Marvel Entertainment, Marvel TelevisionЖанр: Мультсериал, фантастика, фэнтези, боевик, комедия, приключенияРежиссер: Джош Гордон, Уилл СпекАктеры: Джейсон Судейкис, Оливия Манн, Элли Маки, Фред Таташиор, Джордж Такей, Ноби НаканисиПеревод: Многоголосый профессиональный (NewStation) присутствует ненормативная лексика!Субтитры: отсутствуютПродолжительность: ~00:27:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8D543243D65E49309ED7D6C98622E4A36A9FF49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744441   (42107) от 28.09.2024
+
+Хит-Манки / Hit-Monkey (2024) WEB-DL [H.264/1080p-LQ] (сезон 2, серии 1-10 из 10) NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет посвящен обезьяне, которая тренировалась у киллера по имени Брюс, чтобы линчевать преступников.Производство: США, Floyd County Productions, Hulu, Marvel Animation, Marvel Entertainment, Marvel TelevisionЖанр: Мультсериал, фантастика, фэнтези, боевик, комедия, приключенияРежиссер: Джош Гордон, Уилл СпекАктеры: Джейсон Судейкис, Оливия Манн, Элли Маки, Фред Таташиор, Джордж Такей, Ноби НаканисиПеревод: Многоголосый профессиональный (NewStation) присутствует ненормативная лексика!Субтитры: английскиеПродолжительность: ~00:27:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75E5E72BDDBB015D9934892EEE04F9BF81FB6490
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752093   (42096) от 28.09.2024
+
+Замбезия / Zambezia (2012) BDRip [H.264/1080p-LQ] [US Transfer] [handmade AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42096.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мультфильме рассказывается история жизни юного соколёнка по имени Кай, его приключения, характер, комичные ситуации в которые он попадает на пути к своей главной цели, на пути к заветному птичьему городку Замбезия, в котором он от всей души желает отыскать новых друзей, которые бы скрасили его одиночество и не оставили в беде. Однако для начала ему необходимо преодолеть (   Читать дальше...   )Производство: ЮАР, США, Нидерланды / 120dB Films, Cinema Management Group, Industrial Development Corporation of South AfricaЖанр: мультфильм, комедия, приключенияРежиссер: Уэйн ТонлиАктеры: Леонард Нимой, Джереми Суарес, Эбигейл Бреслин, Джефф Голдблюм, Сэмюэл Л. Джексон, Дженифер Льюис, Джим Каммингс, Джамал Миксон, Ричард Э. Грант, Дэвид ШонессиПеревод: Дублированный (CPIG)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:22:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B85E2B7953CF7BE7736BA50833D707478951E69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752213   (42011) от 29.09.2024
+
+Ози: Голос джунглей / Ozi: Voice of the Forest (2023) TS [H.264/1080p] [UKR, звук с TS]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разлучённая с семьёй из-за пожара, обезьянка Ози живёт в заповеднике и в своем блоге знакомит весь мир с завораживающей природой этих мест. Но когда Ози узнаёт, что её родители живы, а джунглям угрожает опасность, она отправляется в захватывающее дух приключение по тропическим лесам. С помощью новых колоритных друзей она на собственном примере узнает, что даже один (   Читать дальше...   )Производство: Великобритания, Франция, США / Appian Way, GCI Film, Mike Medavoy ProductionsЖанр: мультфильм, приключенияРежиссер: Тим ХарперАктеры: Амандла Стенберг, Дин-Чарльз Чепмен, Джимон Хонсу, Дональд Сазерленд, Лора Дерн, РуПол, Урзила Карлсон, Хью Бонневилль, Марисса Анита, Уилсон БенедитоПеревод: Дублированный (звук с TS)Язык озвучки: УкраинскийСубтитры: ОтсутствуютПродолжительность: 01:22:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:073C2F246A7A8F92BB8F8AC14119227C3732B0B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1752344   (41894) от 30.09.2024
 
 Скрытые Страшилки Франкельды / Los Sustos Ocultos de Frankelda (2021) WEB-DL [H.264/1080p] (сезон 1, серии 1-5 из 5) [ES / RU, EN, POR Sub]
@@ -6,7 +136,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41894.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41853.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41769.jpg" />
 </div>
 
 
@@ -85,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41724.jpg" />
 </div>
 
 
@@ -111,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41690.jpg" />
 </div>
 
 
@@ -137,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41685.jpg" />
 </div>
 
 
@@ -163,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41584.jpg" />
 </div>
 
 
@@ -189,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41468.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41437.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41396.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41386.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41361.jpg" />
 </div>
 
 
@@ -320,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41339.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41325.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41312.jpg" />
 </div>
 
 
@@ -398,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41287.jpg" />
 </div>
 
 
@@ -424,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41280.jpg" />
 </div>
 
 
@@ -450,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41278.jpg" />
 </div>
 
 
@@ -476,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41205.jpg" />
 </div>
 
 
@@ -502,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41081.jpg" />
 </div>
 
 
@@ -528,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41075.jpg" />
 </div>
 
 
@@ -539,136 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:033D4F73C730005FE7F9E7992A3A920B2462C08E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754135   (41049) от 08.10.2024
-
-Вольт / Bolt (2008) BDRip [H.264/1080p-LQ] [Локализованная версия]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пес по кличке «Вольт» всю жизнь снимается в телевизионном сериале, где его герой – суперпес – спасает человечество, используя свои необычайные способности. Сам Вольт свято верит в собственную неуязвимость, невероятную силу, и умение летать. Когда же судьба забрасывает его в полный опасностей Большой Город, он все еще думает, что это – лишь очередной эпизод телесериала...Производство: США, Япония / Walt Disney Pictures, Walt Disney Animation StudiosЖанр: мультфильм, фантастика, комедия, приключенияРежиссер: Байрон Ховард, Крис УильямсАктеры: Джон Траволта, Майли Сайрус, Сьюзи Эссман, Марк Уолтон, Малкольм Макдауэлл, Джеймс Липтон, Грег Джерманн, Дидрих Бадер, Ник Свардсон, Жан-Поль МаноПеревод: Дублированный (Невафильм)Язык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: 01:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC57E02B1205813CE754BEBD436EC20A6D5BD117
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690622   (40759) от 11.10.2024
-
-Скуби-Ду и Крипто / Scooby-Doo! And Krypto, Too! (2023) WEB-DLRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда друзей именуемая себя Mystery Inc., вместе с скуби-ду расследуют исчезновение Лиги справедливости и прибывают в Готем сити, где сталкиваются со множеством злодеев!Производство: СШАЖанр: мультфильм, приключенияРежиссер: Сесилия АрановичАктеры: Мэттью Лиллард, Фрэнк Уэлкер, Грэй Гриффин, Кейт Микуччи и др.Перевод: Дублированный (HotVoice 41)Язык озвучки: РусскийСубтитры: Русские (forced, hardsub)Продолжительность: 01:18:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FC419AA13E16D6A3759FB04914E2094188A0504
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690526   (40757) от 11.10.2024
-
-Побег из курятника: Рассвет наггетсов / Chicken Run: Dawn of the Nugget (2023) WEB-DLRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совершив фееричный побег с фермы, где свирепствовала жестокая хозяйка, главные герои нашли убежище на отдалённом острове, где нет людей. Здесь они живут счастливой и беззаботной жизнью. Но неожиданно на горизонте появляется новая опасность и птицам снова придется встать на свою защиту…Производство: Великобритания, США, ФранцияЖанр: мультфильм, комедия, приключения, семейныйРежиссер: Сэм ФеллАктеры: Тандиве Ньютон, Закари Ливай, Белла Рэмзи, Имелда Стонтон, Линн Фергюсон, Дэвид Брэдли, Джейн Хоррокс, Рамеш Ранганатхан, Дэниэл Мейс, Джози Седжвик-ДэвисПеревод: Дублированный (HotVoice 41)Язык озвучки: РусскийСубтитры: Русские (forced, hardsub)Продолжительность: 01:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CED330986C0D0C91CCE011AED2328115CC9338A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754544   (40714) от 11.10.2024
-
-Ранго / Rango (2011) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [Open Matte] [Theatrical Cut] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ранго - хамелеон, который живет в террариуме и считает себя героем, которому, к сожалению, никак не удается проявить свое бесстрашие. Но когда он внезапно оказывается в городке Грязь, у него появляется такая возможность. Ранго провозглашает себя борцом за справедливость и начинает вести себя как шериф на Диком Западе. Он еще не знает, что быть «хорошим парнем» в (   Читать дальше...   )Производство: США, Великобритания / Blind Wink, GK Films, Nickelodeon MoviesЖанр: мультфильм, боевик, комедия, приключения, семейный, вестернРежиссер: Гор ВербинскиАктеры: Джонни Депп, Айла Фишер, Эбигейл Бреслин, Нед Битти, Альфред Молина, Билл Найи, Стивен Рут, Гарри Дин Стэнтон, Тимоти Олифант, Рэй УинстонПеревод: Дублированный (Пифагор)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:42:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E34FD154BD249472AF578DA2FADD13D2C16545E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754698   (40584) от 12.10.2024
-
-Ночные воины: Охотники на вампиров / Vampire Hunter: The Animated Series / Night Warriors: Darkstalkers' Revenge (1997) BDRip (1-4 серии из 4) MC Entertainment [H.265/2160p] [4K, SDR, 10-bit] [hand ...
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вампиры и пришельцы, колья и лазеры, разные измерения и еще более разные герои... Все это слилось в водоворот, затягивающий зрителя, как черная дыра. Великолепно анимированная драматическая экранизация культовой видеоигры. Никаких провисаний сюжета и проходных сцен — только стильное действо в мрачных «готических» тонах.Производство: Япония / MadhouseЖанр: аниме, мультфильм, фэнтези, боевикРежиссер: Масаси Икэда, Сатоси ИкедаАктеры: Акио Оцука, Коити Ямадэра, Унсё Исидзука, Акико Ядзима, Масаси Эбара, Юко Миямура, Юкана, Синдзи ОгаваПеревод: Многоголосый профессиональный (MC Entertainment)Язык озвучки: Русский, ЯпонскийСубтитры: русскиеПродолжительность: ~00:42:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F70CC745CCF2CD399C3D713EDFF065CB72B7B6CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

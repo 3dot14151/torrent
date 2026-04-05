@@ -1,3 +1,29 @@
+###  Публикация: 1657538   (192490) от 03.09.2023
+
+Udemy, Dzianis Matveyenka (DMdev) | Computer Science on Java for Beginners (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вводный курс для тех, кто хочет освежить свои знания или кто впервые знакомится с программированием и хочет иметь представление о том, что это такое, как написать свою первую программу, убедиться, что это довольно просто и легко. Поэтому курс не требует каких-то предварительных знаний. Мы пройдемся от самого нуля до того уровня, когда вы сможете писать собственные (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 04:57:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86A4B4590119969666ED6AE1D73C958A08537DB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1657473   (192488) от 03.09.2023
 
 QA.GURU, Артём Eрошенко, Aлексей Виноградов, Роман Орлов и др. | Школа инженеров по автоматизации тестирования на Java (2022-2023) WEB-DL [RU]
@@ -6,7 +32,7 @@ QA.GURU, Артём Eрошенко, Aлексей Виноградов, Ром�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192488.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ Fillthegaps, Яковлева Диана | Многопоточное прогр
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192482.jpg" />
 </div>
 
 
@@ -64,7 +90,7 @@ OTUS, Александр Ключев | C++ Developer. Professional. Углуб�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192477.jpg" />
 </div>
 
 
@@ -91,7 +117,7 @@ Blender Guru, Andrew Price | The Architecture Academy (Blender 2.6-2.7) (2014) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192471.jpg" />
 </div>
 
 
@@ -117,7 +143,7 @@ Amy Dutton | Everything Svelte (Complete package) (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192097.jpg" />
 </div>
 
 
@@ -145,7 +171,7 @@ Udemy, Ines Ivanova-Kenova | Complete FastAPI REST course + AWS + Emails + Payme
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192050.jpg" />
 </div>
 
 
@@ -171,7 +197,7 @@ Talkpython | Подборка курсов по FastAPI (2021-2022) WEB-DL [EN /
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192038.jpg" />
 </div>
 
 
@@ -198,7 +224,7 @@ XYZ School, Кирилл Золовкин | Пайплайн разработк�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191969.jpg" />
 </div>
 
 
@@ -227,7 +253,7 @@ MographPlus, Kamel Khezri | The Ultimate Introduction to Arnold 6 and 7 for Cine
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191921.jpg" />
 </div>
 
 
@@ -253,7 +279,7 @@ MographPlus, Kamel Khezri | The Ultimate Introduction to Redshift 3 and 3.5 For 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191890.jpg" />
 </div>
 
 
@@ -279,7 +305,7 @@ Yan Cui | AppSync Masterclass (Premium) (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191839.jpg" />
 </div>
 
 
@@ -306,7 +332,7 @@ Udemy, Learn IT University, Andrii Piatakha | Object Oriented Programming - Basi
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191745.jpg" />
 </div>
 
 
@@ -333,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191723.jpg" />
 </div>
 
 
@@ -359,7 +385,7 @@ Thinknetica Pro, Анна Буянова | Старый Добрый Код: к�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191721.jpg" />
 </div>
 
 
@@ -387,7 +413,7 @@ SchoolHomesPro, Александр Кузнецов | Отопление, вод
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191668.jpg" />
 </div>
 
 
@@ -416,7 +442,7 @@ Udemy, Very Academy, Zander | Full Stack - React Django DRF Channels Project - d
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191405.jpg" />
 </div>
 
 
@@ -444,7 +470,7 @@ Proprofiling, Алексей Филатов | Энциклопедия мани�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191377.jpg" />
 </div>
 
 
@@ -473,7 +499,7 @@ Systems.Education, Анна Вичугова | BPMN для людей: осно�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191358.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191348.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ Laravelcreative.ru | Laravel 9: Базовый подробный курс (2023
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191340.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ HYPE4 Academy | Подборка курсов по UI и web-дизайну (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190808.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190728.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ Udemy, Илья Фофанов, Валерий Павликов | Изучаем
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190718.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ Art And Shock, Евгения Тумина и др. | Визуализация �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190698.jpg" />
 </div>
 
 
@@ -669,7 +695,7 @@ Laravelcreative.ru | Социальная сеть SPA Laravel 9 vue 3 Tailwind 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190288.jpg" />
 </div>
 
 
@@ -680,32 +706,6 @@ Laravelcreative.ru | Социальная сеть SPA Laravel 9 vue 3 Tailwind 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:037E0E72FB35A569567FD5F568BFC8EF33A1B628
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330467   (190265) от 10.09.2023
-
-Маковецкий Сергей и др. | Motion–дизайн в Adobe After Affects (2019) PCRec [H.264]
-
->>Обучающие видеоматериалы
->>Фотография и Видео (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190265.jpg" />
-</div>
-
-
-###  Подробнее
-
-Motion-дизайн в Adobe After Effects — это уникальный курс, основанный на систематизированных материалах и огромном практическом опыте преподавателей.Жанр: Adobe After Effects, обучающее видеоПродолжительность: 35:28:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD5035868846344375C07D5C6E254B2D56DAE576
 ```
 
 https://mybot314.ru/tekegram_catalog/

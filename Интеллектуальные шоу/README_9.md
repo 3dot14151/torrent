@@ -1,3 +1,29 @@
+###  Публикация: 794261   (698074) от 08.06.2014
+
+Что? Где? Когда?  Летняя серия игр. Игра 4 (2014.06.07) SATRip
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярнейшая командная интеллектуальная игра. В элитарном телевизионном казино игроки-знатоки зарабатывают деньги своим умом, отвечая на вопросы телезрителей. Проводятся летние и зимние игры. В эфире с 1975 года. За четверть века перед глазами телезрителей прошло более 170 игр. Сначала программа обосновалась в баре телецентра в Останкино и провела там 7 лет (с 1975 по 1982 гг.), затем переехала на улицу Герцена, д. 47 (с 1983 по 1986 гг.), потом были три прямых эфира из Болгарии в 1987 г., Центр Международной Торговли на Красной Пресне в 1988-1989 гг., и наконец, Охотничий домик в Нескучном саду, где она обитает по сегодняшний день. Сейчас на адрес Телекомпании "Игра" приходит по 150000-200000 вопросов в месяц. После обработки и проверки остается в среднем 75 вопросов в год. Каждую игру на столе находится 12 вопросов. Всего за 25 лет было задано 1514 вопросов. В играх клуба приняли участие 168 мужчин и 59 женщин. Всего через клуб прошло 227 знатоков, из них 41 иностранных. Лучшие были награждены призом (   Читать дальше...   )Жанр: ТелепередачаПродолжительность: 01:09:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14F5C76260DFAC95B97283F1080FE00DD998A0B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027768   (694453) от 20.06.2016
 
 Что? Где? Когда? (2016.06.19) HDTVRip [H.264/720p-LQ] (Летняя серия: игра 5 - Финал)
@@ -6,7 +32,7 @@
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694453.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694451.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694449.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686714.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684315.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682560.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672652.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668768.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663947.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657997.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657874.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657274.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657267.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655308.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655247.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649369.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647685.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647541.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646951.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646947.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646945.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646941.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645328.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645318.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644588.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11A05E4C0618E3B17E1C071F9391CA2C8E841B62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541858   (642999) от 04.04.2022
-
-Пятеро на одного (02.04.2022) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда из пяти звездных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A830FD69952468520C04E9B389196C703ACBF7D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

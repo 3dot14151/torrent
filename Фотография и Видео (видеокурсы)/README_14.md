@@ -6,7 +6,7 @@ Highlights School | Художественная обработка фотогр
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522216.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521246.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Profileschool | Секреты цветокоррекции слайдов и н
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520305.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Highlights School | Портретная обработка (2015) PCRec [H.264]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520189.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518002.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Profileschool | Профессия – коммерческий фотогра
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513538.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512245.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ video2brain | Adobe After Effects CS6: Learn by Video [Jul 31, 2012] PCRec [En]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511154.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501898.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498177.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493188.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487316.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487314.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487313.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483975.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480483.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478615.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476402.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Profileschool | Разбор полетов. Портфолио-ревю (2015) 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474727.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470104.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468941.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463511.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Lynda.com | The Art of Video Interviews / Искусcтво съёмки инт�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462172.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Profileschool | МК Paths - пути в Adobe Photoshop (2014) PCRec [H.264/720
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459565.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Profileschool | Коммерческая фотография. Рецепт ус
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457300.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Sophie Black | Мастер-класс по обработке фотограф�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457199.jpg" />
 </div>
 
 

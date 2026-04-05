@@ -6,7 +6,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888957.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Inna - Party Never Ends (Ok Edition. CD №4) (2013) [H.264/1080p-LQ] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888941.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Jenifer - L'amour Fou (2012) HDTV [H.264/1080i]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887230.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887110.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Northern Genocide - 3 Music Videos (2015-2019) WEBRip [H.264/1080p-LQ] <Industri
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886991.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Malevolence (UK) 7 Music Videos (2015-2020) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886980.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ NikitA - Игра (2013) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886814.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ NikitA - Avocado (2012) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886643.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885256.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ History of Rock (2016) WEBRip [H.264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884290.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Testament - Children Of The Next Level (2020) WEBRip [VP9/2160p-LQ] <Thrash, Hea
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883628.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Hocico - 6 Music Videos (2008-2019) WEBRip [VP9/H.264/2160p/1080p/480p-LQ] <EBM,
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883626.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Drum'n'Bass Clips. Коллекция музыкальных драм'н'бэй�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883304.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Sarah Brightman - Angel (2012) [1080p] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_881012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_881012.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_880802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_880802.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880669.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880337.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Eternal Delyria - 6 Music Videos (2014-2020) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880231.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880217.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Babooshka (Александр Константинов) - Православны
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880139.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877667.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877063.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Alestorm - Treasure Chest Party Quest (2020) WEBRip [H.264/1080p-LQ] <Scottish P
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_876708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_876708.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ ILL NINO - 18 Music Videos (2001-2020) WEBRip [H.264/480p/720p/1080p/2160p-LQ] <
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876619.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876612.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Megadeth - коллекция видеоклипов (1986-2011) [H.264] DVDRip,
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_875484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_875484.jpg" />
 </div>
 
 

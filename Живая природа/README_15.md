@@ -1,3 +1,29 @@
+###  Публикация: 711232   (732465) от 29.05.2016
+
+Мир коралловых рифов / Alien Reefs (2013) HDTVRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732465.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коралловые рифы насчитывают самое большое количество видов среди всех представителей флоры и фауны. Рифы, находящиеся в теплых водах Тихого океана и Карибского бассейна хорошо всем известны, но известно ли вам, что рифы также произрастают и в холодной воде. Образованные айсбергами глубоководные рифы становятся идеальным основанием для образования там кораллов. Скрытые (   Читать дальше...   )Жанр: Документальный, видовой, природаПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BC1E89033230C854A6D074C75B30FD84A0CA708
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282486   (731947) от 18.02.2019
 
 Жизнь: первые шаги / Life: First Steps (2018) HDTVRip (серии 1-3) (Обновляемая)
@@ -6,7 +32,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731947.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727722.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726602.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723625.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721389.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721170.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721060.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721058.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719382.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719375.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718613.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717762.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ Nat Geo Wild: Дикая природа Индонезии / Wild Indonesia (201
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716842.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716163.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ BBC. Дикая Аравия / Wild Arabia (2013) HDTVRip [H.264/720p-LQ] [3 с�
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715826.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714915.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714881.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714228.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711948.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ IMAX: Африка - Серенгети / Africa - The Serengeti (1994) BDRemux 
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710990.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ IMAX: Амазонка / Amazon (1997) BDRemux [VC-1/1080p] [VO]
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710978.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709079.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708617.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ BBC. Дикие Карибы / Wild Caribbean (2007) HDTVRip [H.264/720p-LQ] (с
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707612.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707389.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7366D68E2C28CD5C4EB3B947512B1702EA1A4EE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131293   (706813) от 06.05.2017
-
-Край чистой воды / Land of Crystal Waters (2008) SATRip
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта программа рассказывает о девственно-чистых альпийских реках и озерах богатых рыбными запасами. Мы познакомимся с целой системой горных рек, поднимемся на ледники, пройдем сквозь сеть пещер и глубоких ущелий, по быстротечным потокам доберемся до кристально-чистых озер и одной из самых красивых австрийских рек Траун, в окрестностях которой берут своё начало заболоченные (   Читать дальше...   )Телекомпания: Австрия, ORFЖанр: Документальный, природа, путешествие, исследование, флора, фаунаРежиссер: Клаус Фейчтенберг, Эрих ПроллПеревод: Дублированный (SDI Media)Продолжительность: 00:52:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FBFDA60515B8B2595202DC3DE740529A460A08E
 ```
 
 https://mybot314.ru/tekegram_catalog/

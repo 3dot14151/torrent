@@ -1,82 +1,3 @@
-###  Публикация: 506485   (687279) от 06.06.2012
-
-Учитель на замену / Detachment (2011) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687279.jpg" />
-</div>
-
-
-###  Подробнее
-
-У Генри Бартса настоящий талант ладить с учениками. Чтобы избежать каких-либо привязанностей к подопечным, он решил нигде не задерживаться на длительное время. Когда он прибывает на новое место в государственную школу, где учителя абсолютно безразличны к судьбе учеников, то быстро становится образцом для подражания и самым популярным педагогом.Жанр: ДрамаРежиссер: Тони КэйПродюсер: Остин Старк, Бинго Губельман, Бенжи КонАктеры: Эдриан Броуди, Кристина Хендрикс, Марша Гэй Харден, Джеймс Каан, Люси Лью, Блайт Даннер, Тим Блейк Нельсон, Уильям Л. Питерсен, Брайан Крэнстон, Сами ГэйлПеревод: Многоголосый закадровый, профессиональныйЯзык субтитров: РусскийПродолжительность: 01:33:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 334702   (686986) от 10.05.2011
-
-Остров проклятых / Shutter Island (2010) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_686986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два американских судебных пристава отправляются на один из островов в штате Массачусетс, чтобы расследовать исчезновение пациентки клиники для умалишенных преступников. При проведении расследования им придется столкнуться с паутиной лжи, обрушившимся ураганом и смертельным бунтом обитателей клиники, которые бросают их на острове, как в ловушке.Производство: СШАЖанр: Драма, Триллер, ДетективРежиссер: Мартин СкорсезеАктеры: Леонардо ДиКаприо, Марк Руффало, Бен Кингсли, Макс фон Сюдов, Мишель Уильямс, Эмили Мортимер, Патриция Кларксон, Джеки Эрл Хейли, Тед Левайн, Джон Кэрролл Линч, Элиас КотеасПеревод: ДублированныйСубтитры: нетПродолжительность: 02:12:21
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 334813   (686982) от 10.05.2011
-
-Война миров / War of the Worlds (2005) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_686982.jpg" />
-</div>
-
-
-###  Подробнее
-
-Никто не поверил бы в начале 21 столетия, что за всем происходящим на Земле зорко и внимательно следят существа более развитые, чем человек; что в то время, как люди занимались своими делами, их исследовали и изучали.
-С бесконечным самодовольством сновали люди по всему земному шару, занятые своими делишками, уверенные в своей власти над материей. А между тем через (   Читать дальше...   )Производство: СШАЖанр: Фантастика, Триллер, ДрамаРежиссер: Стивен СпилбергАктеры: Том Круз, Дакота Фаннинг, Миранда Отто, Джастин Чэтвин, Тим Роббинс, Рик Гонсалес, Йул Васкес, Ленни Бенито, Лиза Энн Уолтер, Энн РобинПеревод: Дублированный, Одноголосый закадровыйСубтитры: Русские, Английские, ФранцузкиеПродолжительность: 01:56:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403834   (686177) от 22.08.2020
 
 Ночь в музее: Секрет гробницы / Night at the Museum: Secret of the Tomb (2014) DVD9
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686177.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685825.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_685430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_685430.jpg" />
 </div>
 
 
@@ -163,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_684916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_684916.jpg" />
 </div>
 
 
@@ -189,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683715.jpg" />
 </div>
 
 
@@ -215,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683600.jpg" />
 </div>
 
 
@@ -241,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_682831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_682831.jpg" />
 </div>
 
 
@@ -268,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_682707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_682707.jpg" />
 </div>
 
 
@@ -295,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_682578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_682578.jpg" />
 </div>
 
 
@@ -321,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_682553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_682553.jpg" />
 </div>
 
 
@@ -347,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_682542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_682542.jpg" />
 </div>
 
 
@@ -373,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681802.jpg" />
 </div>
 
 
@@ -399,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681788.jpg" />
 </div>
 
 
@@ -425,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681686.jpg" />
 </div>
 
 
@@ -451,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_680709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_680709.jpg" />
 </div>
 
 
@@ -477,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_680473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_680473.jpg" />
 </div>
 
 
@@ -503,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679354.jpg" />
 </div>
 
 
@@ -531,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679206.jpg" />
 </div>
 
 
@@ -557,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_678809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_678809.jpg" />
 </div>
 
 
@@ -583,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_678558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_678558.jpg" />
 </div>
 
 
@@ -609,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678136.jpg" />
 </div>
 
 
@@ -635,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677991.jpg" />
 </div>
 
 
@@ -661,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677979.jpg" />
 </div>
 
 
@@ -672,6 +593,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A056796982572D54D54CC285AC90F8EA67BE0501
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290547   (677919) от 20.03.2019
+
+Хищник / The Predator (2018) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой, бывший военный, обнаруживает злобную инопланетную расу на Земле, но никто не верит ему, что эти твари существуют. Его сын-аутист, которого все обижают в школе, становится ключевой фигурой в схватке с Хищниками, поскольку мальчик умеет невероятно быстро учить языки и, судя по всему, сможет понять пришельцев.Производство: США, Канада / 20th Century Fox Film Corporation, TSG Entertainment, Canada Film Capital, Dark Castle Entertainment, Davis EntertainmentЖанр: Боевик, фантастика, триллер, приключения, ужасыРежиссер: Шейн БлэкАктеры: Бойд Холбрук, Треванте Роудс, Джейкоб Тремблей, Кигэн-Майкл Ки, Оливия Манн, Стерлинг К. Браун, Томас Джейн, Алфи Аллен, Августо Агилера, Джейк БьюзиПеревод: Дублированный (лицензия)Субтитры: Русские, английские, датские, финские, норвежские, шведские, эстонские, хинди, латышские, литовские, украинскиеПродолжительность: 01:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C37DB95B38E4CD4A7BACBFBEADCAA767D2929BEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290528   (677796) от 20.03.2019
+
+Звезда родилась / A Star Is Born (2018) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кантри-музыкант Джексон Мейн, чья карьера быстро катится под откос, однажды знакомится с никому не известной талантливой певицей Элли. Между героями вспыхивает страстный роман. Джек помогает Элли добиться успеха. Но чем стремительнее набирает обороты музыкальная карьера Элли, тем сложнее ему мириться со своей увядающей славой.Производство: США / Warner Bros. Pictures, Live Nation Productions, Metro-Goldwyn-Mayer (MGM)Жанр: Мелодрама, музыкаРежиссер: Брэдли КуперАктеры: Леди Гага, Брэдли Купер, Сэм Эллиотт, Эндрю Дайс Клэй, Рафи Гаврон, Энтони Рамос, Дэйв Шаппелл, Алек Болдуин, Марлон Уильямс, Брэнди КарлайлПеревод: Дублированный (лицензия)Субтитры: Русские, английские, болгарские, хорватские, эстонские, латышские, литовские, польские, словенские, турецкиеПродолжительность: 02:10:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D23C2397DECEC0FDE11DF696B2681186CF4B200
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 797472   (676955) от 18.06.2014
+
+Отель «Гранд Будапешт» / The Grand Budapest Hotel (2014) DVD5 [BD -> DVD]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает об увлекательных приключениях легендарного консьержа Густава и его юного друга, портье Зеро Мустафы. Сотрудники гостиницы становятся свидетелями кражи и поисков бесценных картин эпохи Возрождения, борьбы за огромное состояние богатой семьи и… драматических изменений в Европе между двумя кровопролитными войнами XX века.Производство: Великобритания, ГерманияЖанр: Комедия, Детектив, ПриключенияРежиссер: Уэс АндерсонАктеры: Рэйф Файнс, Тони Револори, Сирша Ронан, Эдриан Броуди, Уиллем Дефо, Ф. Мюррэй Абрахам, Джуд Лоу, Эдвард Нортон, Джефф Голдблюм, Харви КейтельПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: русские (частичные: перевод иностранной речи)Продолжительность: 1:35:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A09F1C0DC0EC199AFD889BF96A91DE3947A0793
 ```
 
 https://mybot314.ru/tekegram_catalog/

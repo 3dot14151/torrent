@@ -1,3 +1,56 @@
+###  Публикация: 1654034   (206001) от 18.08.2023
+
+Ч.А. Кариев | Основы работы с Яндекс (2-е изд.) (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс содержит описание многочисленных сервисов Яндекса, определяющих облик современного Рунета. Для большинства пользователей сети слово “Яндекс” ассоциируется с поиском. На самом деле Яндекс сейчас – это множество удобных сервисов, интегрированных в рамках единого портала.
+Почта, каталог, карты, погода, маркет, фотографии, видео, словари, поиск работы и вакансий (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: НОУ "Интуит"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87CEDAE335E26DAEDD181BE8BAE601F6E4DCA39D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654182   (205845) от 19.08.2023
+
+А.В. Погорелов | Основания геометрии (1979) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205845.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена принципиальным вопросам, связанным с аксиоматическим построением евклидовой геометрии, геометрии Лобачевского, аффинной и проективной геометрий. В частности, в ней рассматриваются вопросы независимости, непротиворечивости и полноты системы аксиом указанных геометрий. Наряду с этим она содержит значительный фактический материал по геометрии Лобачевского, (   Читать дальше...   )Жанр: МатематикаИздательство: НаукаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F18345FB8D61A3AED2986E79BF466EED7242728
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1581777   (205226) от 07.10.2022
 
 К. Граталу | Исторический атлас мира (2022) [PDF]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205226.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204813.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204801.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204602.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204590.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204537.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204344.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204204.jpg" />
 </div>
 
 
@@ -220,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204188.jpg" />
 </div>
 
 
@@ -247,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204163.jpg" />
 </div>
 
 
@@ -275,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203223.jpg" />
 </div>
 
 
@@ -301,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203142.jpg" />
 </div>
 
 
@@ -328,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203046.jpg" />
 </div>
 
 
@@ -354,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203024.jpg" />
 </div>
 
 
@@ -380,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202770.jpg" />
 </div>
 
 
@@ -406,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202091.jpg" />
 </div>
 
 
@@ -434,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202011.jpg" />
 </div>
 
 
@@ -461,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201961.jpg" />
 </div>
 
 
@@ -487,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201935.jpg" />
 </div>
 
 
@@ -514,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201854.jpg" />
 </div>
 
 
@@ -540,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201565.jpg" />
 </div>
 
 
@@ -567,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201472.jpg" />
 </div>
 
 
@@ -593,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201462.jpg" />
 </div>
 
 
@@ -619,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201299.jpg" />
 </div>
 
 
@@ -631,59 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7317EA98852A007A39588A425DDE439360DEFA22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619202   (201297) от 15.03.2023
-
-А.Э. Рутковская | Офисное программирование. Лабораторный практикум (2017) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие содержит лабораторно-практические работы по учебному предмету «Офисное программирование» и предусматривает закрепление теоретических знаний по темам: создание пользовательских процедур и функций, программирование вычислительных процессов, обработка массивов, использование математических функций, работа с записями, файлами, формами, основные понятия (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28C12D0A3F6100859DACE03A16A710AD71EFBAE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619458   (201282) от 16.03.2023
-
-В.Ф. Ляхович и др. | Основы информатики (2016) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Излагается процесс разработки основных видов алгоритмов и программ на базе оригинальной общей методики построения алгоритмов, не имеющей аналогов в России. Общая методика построения алгоритмов позволяет быстро осваивать различные языки программирования, в том числе и высокого уровня. Отражены принципы построения и развития компьютерных сетей.
-Соответствует действующему (   Читать дальше...   )Жанр: Компьютерная литератураФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A52FA374FF94F011D86B5023EFDEFF6A4C428F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

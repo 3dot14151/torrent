@@ -1,3 +1,31 @@
+###  Публикация: 1311642   (540058) от 30.06.2019
+
+И. М. Разин (сост.) | Комсомольский быт. Сборник (1927) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый отдел сборника — „Вопросы коммунистической этики и морали". В нем имеется ряд статей, излагающих воззрения марксизма на сущность коммунистической морали и этики. Среди них особого внимания заслуживают отрывки из речей В. И. Ленина и воспоминания К. Цеткин об ее личных беседах с Ильичом о вопросам морали.
+
+Второй отдел сборника — „Каким должен быть быт (   Читать дальше...   )Жанр: История, политология, культурология, психология, социологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BE5EDDBEB8D5B8268ED54DB1FEE2F09B79FFDC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1311402   (539953) от 30.06.2019
 
 Эндрю Мортон | Меган. Принцесса из Голливуда (2018) [FB2]
@@ -6,7 +34,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539953.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539207.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539084.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538956.jpg" />
 </div>
 
 
@@ -110,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538821.jpg" />
 </div>
 
 
@@ -137,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538227.jpg" />
 </div>
 
 
@@ -163,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537061.jpg" />
 </div>
 
 
@@ -189,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536868.jpg" />
 </div>
 
 
@@ -215,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536855.jpg" />
 </div>
 
 
@@ -243,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536726.jpg" />
 </div>
 
 
@@ -271,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535198.jpg" />
 </div>
 
 
@@ -297,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535187.jpg" />
 </div>
 
 
@@ -324,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534995.jpg" />
 </div>
 
 
@@ -350,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534970.jpg" />
 </div>
 
 
@@ -378,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534197.jpg" />
 </div>
 
 
@@ -405,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533332.jpg" />
 </div>
 
 
@@ -432,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531447.jpg" />
 </div>
 
 
@@ -459,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531389.jpg" />
 </div>
 
 
@@ -485,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531364.jpg" />
 </div>
 
 
@@ -511,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531353.jpg" />
 </div>
 
 
@@ -537,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531268.jpg" />
 </div>
 
 
@@ -565,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531184.jpg" />
 </div>
 
 
@@ -591,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531148.jpg" />
 </div>
 
 
@@ -617,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530546.jpg" />
 </div>
 
 
@@ -643,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530536.jpg" />
 </div>
 
 
@@ -654,32 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66C620909D6B51AA82B3007882551B44CCB8C825
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312549   (530535) от 05.07.2019
-
-С. Р. Дикштейн | Кто чем живет (1902) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530535.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Каждый человек живет своим трудом". На первый взгляд это кажется действительно так. Посмотрите лишь, сколько об этом писалось и говорилось в газетах, в журналах, книгах и даже церковных проповедях. При этом разве не кажется многим, что действительно сапожник живет своим сапожническим трудом, портной - портняжным, учитель - учительским, что каждый фабрикант (   Читать дальше...   )Жанр: История, политология, публицистика, социология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D3FBF8F38D266000BA9F92BFFC52CA85051CD0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

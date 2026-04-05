@@ -1,3 +1,32 @@
+###  Публикация: 1318953   (490758) от 08.08.2019
+
+Дария Мазанова | Аудиосказки. Волшебный фонарь (1 сезон) (2019) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490758.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Остовок сокровищ
+2. Робинзончик Крузо
+3. Маленький капитан
+4. Маленький принц и маленький нищий(   Читать дальше...   )Жанр: Детские сказкиПродолжительность: 02:33:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C67D29B92DE71351446FC1EC2DA26417BB76E0D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565891   (490430) от 25.07.2022
 
 Валентин Постников | Карандаш и Самоделкин. Карандаш и Самоделкин на острове Динозавров (2013) [MP3, Алла Човжик]
@@ -6,7 +35,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490430.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489753.jpg" />
 </div>
 
 
@@ -59,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489077.jpg" />
 </div>
 
 
@@ -91,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489049.jpg" />
 </div>
 
 
@@ -118,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488722.jpg" />
 </div>
 
 
@@ -144,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488369.jpg" />
 </div>
 
 
@@ -170,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487519.jpg" />
 </div>
 
 
@@ -196,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487386.jpg" />
 </div>
 
 
@@ -222,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487273.jpg" />
 </div>
 
 
@@ -248,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486857.jpg" />
 </div>
 
 
@@ -276,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486852.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486804.jpg" />
 </div>
 
 
@@ -328,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486788.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485708.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485692.jpg" />
 </div>
 
 
@@ -407,7 +436,7 @@ Fatcat & Fishface - Meanie (2007) [MP3|192 kbps]<Детские песенки>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485425.jpg" />
 </div>
 
 
@@ -436,7 +465,7 @@ VA - Hey! Hey! Big songs for little people (2007) [MP3|128 kbps]<Детские 
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485122.jpg" />
 </div>
 
 
@@ -465,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484542.jpg" />
 </div>
 
 
@@ -493,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484536.jpg" />
 </div>
 
 
@@ -521,7 +550,7 @@ VA - Детские Песни (2003) [MP3|224 kbps]<Детские песни>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482922.jpg" />
 </div>
 
 
@@ -553,7 +582,7 @@ Bebe Lilly - Mon Monde a moi (2006) [MP3|192 kbps]<Детские песенки
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482811.jpg" />
 </div>
 
 
@@ -582,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481495.jpg" />
 </div>
 
 
@@ -609,7 +638,7 @@ Cedarmont Kids - Silly Songs (1996) [MP3|192 kbps]<Детские песенки
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481172.jpg" />
 </div>
 
 
@@ -638,7 +667,7 @@ Raffi - Дискография (3 CD) (1979-1996) [MP3|192 kbps]<Детские 
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481166.jpg" />
 </div>
 
 
@@ -667,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481081.jpg" />
 </div>
 
 
@@ -681,35 +710,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60AC96268BEF60D95CB92BC3F2BC7A75E7668D1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405848   (481079) от 31.08.2020
-
-Юрий Кудинов (клоун Плюх) - Песенки сказочных героев. Любимые детские песенки (2014) [MP3|320 Kbps]<Детские песни и минусовки>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01+/-10. Клоун Плюх - Лягушка-путешественница
-02+/-11. Клоун Плюх, Татьяна Кистол - Песня феи
-03+/-12. Клоун Плюх, Мила - Песня Золушки
-04+/-13. Клоун Плюх - Гуси-лебеди(   Читать дальше...   )Жанр: Детские песни и минусовкиПродолжительность: 00:42:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F29E19217E38CE9F963D6D36DE0E773FBEEEB3D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

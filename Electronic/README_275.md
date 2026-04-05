@@ -1,3 +1,116 @@
+###  Публикация: 1154883   (536991) от 01.08.2017
+
+VA - Coldharbour Chill (2017) [MP3|320 Kbps] <Downtempo, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Arkham Knights - Knightfall (Chillout Mix)   7:22
+02.  Jennifer Rene & Solid Stone - Heart Call (Chillout Mix)  6:22
+03.  Seri feat. Nifra - Army Of Lights (Chillout Mix)   4:10
+04.  Dave Neven - Drifter (Chillout Mix)   7:02(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 04:06:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08EEAD2BB097B8B7F984E3D0EBEC6A612D21BDB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050671   (536731) от 09.09.2016
+
+VA - Disco Dance Italy (2016) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cazintel - Over The Sea (Radio Version) 03:55
+02. Ivan Herb - Larga Vida En Vivo 03:07
+03. Jane Doe - Knight Rider (Ray Livingstone Rework) 04:26
+04. Jimmy & Wenzel - Dreamer 04:56(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:50:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58EA0E067587C8241F27862FB08554664B7CDD2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050833   (536572) от 09.09.2016
+
+Way Out West - Set My Mind (Single) (2016) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Set My MindЖанр: HouseПродолжительность: 00:06:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:069A1FF0DC15F791C242B8D7490A1FCA36348B11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312098   (536502) от 02.07.2019
+
+Lemon Jelly ‎ - Lost Horizons (2002) 2003, Japanese Edition [FLAC|Lossless|tracks + .cue] <Downtempo, Chillout>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elements (08:41)
+02. Space Walk (07:03)
+03. Ramblin' Man (07:06)
+04. Return To Patagonia (08:41)(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 01:06:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:713D3608B8EFB977F07F1137C89A42022F787896
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1311956   (536489) от 02.07.2019
 
 VA - Dave Pears Trance Anthems 2 (2019) 3CD [MP3|320 Kbps] <Trance>
@@ -6,7 +119,7 @@ VA - Dave Pears Trance Anthems 2 (2019) 3CD [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536489.jpg" />
 </div>
 
 
@@ -35,7 +148,7 @@ Joel Corry - Tomorrowland Friendship Mix (2022-06-16) [MP3|320 Kbps] <House, Tec
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535830.jpg" />
 </div>
 
 
@@ -64,7 +177,7 @@ Korolova - Live @ Red Rock California, United States (2022-06-17) [MP3|320 Kbps]
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535691.jpg" />
 </div>
 
 
@@ -93,7 +206,7 @@ VA - Female Vocal Trance 2022 Vol 2 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535550.jpg" />
 </div>
 
 
@@ -122,7 +235,7 @@ VA - Sax in the House (2015) [MP3|320 кб/с]<House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535465.jpg" />
 </div>
 
 
@@ -151,7 +264,7 @@ Riya - Sublimation (2015) [MP3|320 кб/с]<Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535380.jpg" />
 </div>
 
 
@@ -180,7 +293,7 @@ Raphaël Marionneau - Le Classique Abstrait Volume 1 (2002) Abstrait Music [FLAC
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535323.jpg" />
 </div>
 
 
@@ -209,7 +322,7 @@ Martian Love - 5 Albums (2009-2014) Discography [FLAC|Lossless|WEB-DL|tracks] <E
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535306.jpg" />
 </div>
 
 
@@ -238,7 +351,7 @@ VA - The Swampilation: Volume II (2017) [MP3|320 Kbps] <Neuro Psychedelic, Psyst
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535304.jpg" />
 </div>
 
 
@@ -267,7 +380,7 @@ VA - The Best 50 Drops [Summer'18] (2018) [MP3|320 Kbps] <House, Future House, F
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535249.jpg" />
 </div>
 
 
@@ -296,7 +409,7 @@ VA - Best Of Trance 2018 Vol.05 (2018) [MP3|320 Kbps] <Trance, Progresive Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535245.jpg" />
 </div>
 
 
@@ -325,7 +438,7 @@ Helena Hauff - Qualm (2018) Ninja Tune [FLAC|Lossless|WEB-DL|tracks] <Techno, El
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535222.jpg" />
 </div>
 
 
@@ -354,7 +467,7 @@ Housework - Follow The Groove (2016) [MP3|320 Kbps] <Funky House, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535127.jpg" />
 </div>
 
 
@@ -383,7 +496,7 @@ VA - Radio Gladiators, Vol. 2 (2019) [MP3|320 Kbps] <Melodic House & Techno, Dan
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534299.jpg" />
 </div>
 
 
@@ -409,7 +522,7 @@ VA - Meditation Music for Inner Peace Vol.4 (Beautiful Ambient and Chillout Musi
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534295.jpg" />
 </div>
 
 
@@ -438,7 +551,7 @@ Feed Me - High Street Creeps (2019) [MP3|320 Kbps] <Electro House, Progressive H
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534086.jpg" />
 </div>
 
 
@@ -467,7 +580,7 @@ The Nautilus Project - Discography 16 Releases (2008-2016) ZeECc, Forest Roots [
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534085.jpg" />
 </div>
 
 
@@ -496,7 +609,7 @@ VA - Bass House 2019, Vol.2 (2019) [MP3|320 Kbps] <Bass House, Electro House, Fu
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534075.jpg" />
 </div>
 
 
@@ -525,7 +638,7 @@ VA - Black Hole Trance Music 06-22 (2022) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533754.jpg" />
 </div>
 
 
@@ -554,7 +667,7 @@ VA - A World Of Trance Vol. 4 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533623.jpg" />
 </div>
 
 
@@ -583,7 +696,7 @@ VA - Uplifting Trance Generation Vol.2 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533616.jpg" />
 </div>
 
 
@@ -612,7 +725,7 @@ AndAWan - Time (2017) [MP3|320 Kbps] <Electronic, Ambient>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533607.jpg" />
 </div>
 
 
@@ -626,122 +739,6 @@ AndAWan - Time (2017) [MP3|320 Kbps] <Electronic, Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90991C22E63D6E079FCFE5F02DA6A05FB28370CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155332   (533532) от 03.08.2017
-
-VA - Deep and Soulful House Summer 2017 [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hardage - There's Enough For All Of Us (Luca Elle remix feat Michael Franti)
-02.  Luca Elle - Let Me Be Crazy
-03.  Ben Hur - Friends Always (Paolo Madzone Zampetti And Steve Paradise Darksax dub remix feat Jocelyn Brown)
-04.  Britalics - I Can C Through U (Face Off remix)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:47:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C71D5702A9803E7F6A146F01A4AC4F040D9E7BE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155479   (533518) от 03.08.2017
-
-Knock Out - Buddha Bells (2017) [MP3|320 Kbps] <Psy-Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fascinating Place (Intro) (2:30)
-02. Buddha Bells (7:07)
-03. Veil Of The Mind (7:04)
-04. Cosmic Experience (7:12)Жанр: Psy-TranceПродолжительность: 00:23:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCEF40ECC4382E06E45FF0EC22D33EEB97D74FAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239934   (533353) от 08.08.2018
-
-VA - Ibiza House (2018) [MP3|320 Kbps] <House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reza - Kongo (D.O.N.S. & Rio De La Duna Remix) 7:12
-02. Filatov - Back In The Love (Swanky Tunes Remix) 6:36
-03. DANEV - Shaggy (Extended Mix) 5:21
-04. Alessandro Cenatiempo - Do U Really (Original Mix) 4:42(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 04:26:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E92BCA8708CD6080A3B2CCCC91C8709B75C9AE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155417   (533348) от 03.08.2017
-
-VA - Aly & Fila - Future Sound Of Egypt 507 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.London & Niko - Burning Down (Noel Sanger Remix)
-02.L.S.G. - Netherworld (Rise And Fall Remix)
-03.Solid Stone & Michael Gin - Xonic
-04.Solid Stone - Watchmen(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:58:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FF090B83F835ED95BECA3D3384ACD540FB5858E
 ```
 
 https://mybot314.ru/tekegram_catalog/

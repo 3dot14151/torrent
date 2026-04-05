@@ -1,3 +1,31 @@
+###  Публикация: 1029435   (682750) от 26.06.2016
+
+Dahu - Desolate EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desolate (Original Mix) (07:52)
+02. Never (Original Mix) (08:46)
+03. RS (Original Mix) (07:54)Жанр: Deep House, MinimalПродолжительность: 00:24:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F838BC8AFD542920FE89B7F5CC09A394377B4225
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029306   (682569) от 26.06.2016
 
 Eagles & Butterflies - Constellations EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
@@ -6,7 +34,7 @@ Eagles & Butterflies - Constellations EP (2016) [FLAC|Lossless|WEB-DL|tracks] <D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682569.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ VA - Storm'99 Progressive Dance (1999) [FLAC|Lossless|tracks + .cue] <Progressiv
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682507.jpg" />
 </div>
 
 
@@ -55,6 +83,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 335894   (682295) от 12.05.2011
+
+Moby - Destroyed (2011) [FLAC|Lossless] <Ambient, Techno, Downtempo, Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_682295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.2011Жанр: Ambient, Techno, Downtempo, ElectronicПродолжительность: 01:11:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290085   (682158) от 18.03.2019
 
 Lucy - Dyscamupia (2019) Stroboscopic Artefacts [FLAC|Lossless|WEB-DL|tracks] <Techno>
@@ -63,7 +117,7 @@ Lucy - Dyscamupia (2019) Stroboscopic Artefacts [FLAC|Lossless|WEB-DL|tracks] <T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682158.jpg" />
 </div>
 
 
@@ -91,7 +145,7 @@ Twin Peetz | The Difference Engine - Discography 11 Releases (1998-2018) ODrex M
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680435.jpg" />
 </div>
 
 
@@ -120,7 +174,7 @@ VA - Summer Sessions 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680341.jpg" />
 </div>
 
 
@@ -149,7 +203,7 @@ VA - Get Physical Music Presents: Body Language, Vol. 18 by Tim Green (2016) [FL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680152.jpg" />
 </div>
 
 
@@ -178,7 +232,7 @@ PHCK - Natu (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679367.jpg" />
 </div>
 
 
@@ -207,7 +261,7 @@ Lakker - Época (Epoca) (2019) R & S Records [FLAC|Lossless|WEB-DL|tracks] <Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678481.jpg" />
 </div>
 
 
@@ -236,7 +290,7 @@ Monolink - Burning Sun (2017) Maxi Single [FLAC|Lossless|WEB-DL|tracks] <Deep Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677281.jpg" />
 </div>
 
 
@@ -265,7 +319,7 @@ Solid Stone - Introspection (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Progress
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676530.jpg" />
 </div>
 
 
@@ -294,7 +348,7 @@ S'express - Enjoy This Trip (2016) [FLAC|Lossless|tracks] <House, Deep House, So
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674688.jpg" />
 </div>
 
 
@@ -323,7 +377,7 @@ VA - In The Mix 002 - Progressive Sessions (Mixed by Audio Noir) (2016) [FLAC|Lo
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674572.jpg" />
 </div>
 
 
@@ -352,7 +406,7 @@ Powder - Powder In Space (2019) [FLAC|Lossless|tracks + .cue] <Electronic, House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674451.jpg" />
 </div>
 
 
@@ -381,7 +435,7 @@ Silk Road Assassins - State of Ruin (2019) [FLAC|Lossless|tracks + .cue] <Electr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674450.jpg" />
 </div>
 
 
@@ -410,7 +464,7 @@ Ercos Blanka - Classic Trick (2018) Seven Villas Music [FLAC|Lossless|WEB-DL|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674449.jpg" />
 </div>
 
 
@@ -439,7 +493,7 @@ VA - Deep House Hits: Ibiza 2018 [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673301.jpg" />
 </div>
 
 
@@ -468,7 +522,7 @@ Damian Lazarus & The Ancient Moons - Heart Of Sky (2018) [FLAC|Lossless|tracks +
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_672457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_672457.jpg" />
 </div>
 
 
@@ -497,7 +551,7 @@ Phon.O - Fractions EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672412.jpg" />
 </div>
 
 
@@ -525,7 +579,7 @@ VA - Cafe del Mar ChillWave 3 (2019) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chil
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672326.jpg" />
 </div>
 
 
@@ -554,7 +608,7 @@ Martin Schulte - Depth Of Soul (2008) Lantern [FLAC|Lossless|tracks+.cue] <Dub T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671651.jpg" />
 </div>
 
 
@@ -583,7 +637,7 @@ Ercos Blanka - Classic Trick Remixes (2019) Seven Villas Music [FLAC|Lossless|WE
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670704.jpg" />
 </div>
 
 
@@ -612,7 +666,7 @@ VA - Ibiza Sunset Dreams Vol.2 (Compiled & mixed by Dj Zappi) (2016) [FLAC|Lossl
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670249.jpg" />
 </div>
 
 
@@ -641,7 +695,7 @@ VA - Get Physical Music Presents: Most Wanted 2016, Pt. 1 (2016) [FLAC|Lossless|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670150.jpg" />
 </div>
 
 
@@ -668,7 +722,7 @@ Willie Graff & Darren Eboli - The Tribeca Tapes (2018) Music For Dreams [FLAC|Lo
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669897.jpg" />
 </div>
 
 
@@ -682,64 +736,6 @@ Willie Graff & Darren Eboli - The Tribeca Tapes (2018) Music For Dreams [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E0CE79632B9B2FB90D5E3A8E57B9828E2CAD2F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223874   (669892) от 07.05.2018
-
-Dub Taylor - Caves & Cages (2018) Dirt Crew Recordings [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Tech House, Dub, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intra (2:20)
- 02. King's Cave (10:20)
- 03. Helix (7:18)
- 04. In Air (7:17)(   Читать дальше...   )Жанр: Dub Techno, Tech House, Dub, AmbientПродолжительность: 01:08:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:756C57DA6F1BC673060FB0A124412306A0D80DD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223913   (669762) от 07.05.2018
-
-VA - Deepalma Ibiza 2018 | 5th Anniversary DJ Edition (Compiled By Yves Murasca, Rosario Galati & Keyano) (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Nu Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweed, Jalana, Dayne S - Finally (Dayne S Deep Mix) (6:16)
-02. Meines - Take Me Away Feat. Lenny (Original Mix) (5:48)
-03. Rosario Galati, Yves Murasca - Kalura (Original Mix) (6:30)
-04. Holter & Mogyoro - Summer Vibes (Original Mix) (6:28)(   Читать дальше...   )Жанр: Deep House, Tech House, Nu DiscoПродолжительность: 04:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B2C236643DEA22C3C878934A3CB508C2D4D8A28
 ```
 
 https://mybot314.ru/tekegram_catalog/

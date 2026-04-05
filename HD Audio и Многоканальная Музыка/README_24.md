@@ -1,32 +1,3 @@
-###  Публикация: 1543215   (631375) от 10.04.2022
-
-Аида Ведищева и Ансамбль п/у В. Людвиковского - Александр Зацепин – Музыка Из Кинофильма «Кавказская Пленница» (1967) [FLAC 1.0|96/24|image+.cue|Vinyl-Rip] <Soundtrack, Theme, Score>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631375.jpg" />
-</div>
-
-
-###  Подробнее
-
-А1 Аида Ведищева – Песенка О Медведях
-А2 Ансамбль под упр. В. Людвиковского – Дорога
-В1 Ансамбль под упр. В. Людвиковского – Встреча
-В2 Ансамбль под упр. В. Людвиковского – На Танцевальной Площадке(   Читать дальше...   )Жанр: Soundtrack, Theme, ScoreПродолжительность: 00:10:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8CF10AA50B300402F89823344E282237B761DDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1543465   (629373) от 11.04.2022
 
 Муслим Магомаев - Сумерки Зеленые/Прощай, Любовь Моя (1983) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Pop>
@@ -35,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629373.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Dire Straits - ExtendeDancEPlay (1982) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629152.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ The Who - Face Dances (1981)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628788.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Acker Bilk - Klarinet (1980) [FLAC 2.0 (image+.cue)|Vinyl-rip (24/96)]<Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627585.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Billie Piper - Walk Of Life (2000) [FLAC 2.0|16/44,1 (MC-Rip)]<Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627576.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Jennifer Paige - Positively Somewhere (2001) [FLAC 2.0 (image+.cue)|16/44,1 (MC-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627459.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Slade - The Story Of Slade (1977) 2LP, Compilation [FLAC 2.0|192/24|image + .cue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627358.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ The Who - Who Are You (1978)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626669.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ The Beatles/Битлз - Российский/Советский Лицензи�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626021.jpg" />
 </div>
 
 
@@ -293,7 +264,7 @@ Joe Satriani - Дискография (26 releases) (1984 - 2022) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623574.jpg" />
 </div>
 
 
@@ -322,7 +293,7 @@ Barbra Streisand - The Movie Album (2003) [DTS 5.1 44.1 /16 | .wav+.cue (SACD)] 
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623295.jpg" />
 </div>
 
 
@@ -351,7 +322,7 @@ Paul van Dyk – Reflections (2003) [DTS 5.1 44.1 /16 | .wav+.cue (SACD)] <dance
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623282.jpg" />
 </div>
 
 
@@ -380,7 +351,7 @@ Jean-Michel Jarre - Equinoxe (1978/2011) [WavPack 2.0|32/384|image + .cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622437.jpg" />
 </div>
 
 
@@ -409,7 +380,7 @@ Blues Company - Ain't Givin' Up [Mastering YMS X] (2019) [FLAC 2.0|96/24|image+.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622364.jpg" />
 </div>
 
 
@@ -438,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622202.jpg" />
 </div>
 
 
@@ -467,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621889.jpg" />
 </div>
 
 
@@ -496,7 +467,7 @@ VA - Лето 2002/Зарубежная супер двадцатка (2002) [FL
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621888.jpg" />
 </div>
 
 
@@ -525,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621882.jpg" />
 </div>
 
 
@@ -554,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621878.jpg" />
 </div>
 
 
@@ -583,7 +554,7 @@ John Denver - Rocky Mountain High (1972) [FLAC 2.0 24/96|image+.cue (Vinyl Rip)]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621739.jpg" />
 </div>
 
 
@@ -612,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621736.jpg" />
 </div>
 
 
@@ -641,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620881.jpg" />
 </div>
 
 
@@ -670,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620783.jpg" />
 </div>
 
 
@@ -699,7 +670,7 @@ Jethro Tull - Aqualung (1971) 2 ADVD, 40th Anniversary Adapted Edition, 2016 [PC
 >>Blu-ray Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620588.jpg" />
 </div>
 
 
@@ -728,7 +699,7 @@ Queen - Hot Space (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620346.jpg" />
 </div>
 
 
@@ -742,6 +713,33 @@ Queen - Hot Space (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD7841371A88F4E0F2E1E81CD4B2F373FF0B96D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072817   (620203) от 16.04.2022
+
+Джаз-квинтет п/у Я. Валясека - Импровизированный джаз (1955) Shellac-78rpm [FLAC 1.0|96/24|tracks|Vinyl-Rip] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Чай Вдвоём, фокстрот
+02. Знаю одно средство, фокстротЖанр: JazzПродолжительность: 00:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D336984AC1CB96C0F77ACC92BDF252DE8FDFFD4
 ```
 
 https://mybot314.ru/tekegram_catalog/

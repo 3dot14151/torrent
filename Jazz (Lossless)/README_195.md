@@ -6,7 +6,7 @@ Al Hirt - At The Mardi Gras (1962) 2000, RCA Victor [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404116.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Al Hirt - The Sound of Christmas (1965) 2013, Relayer Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404115.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Ted Rosenthal Trio - Rosenthology (1996) Concord Jazz [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404113.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Al Hirt - All Time Greatest Hits (1960-e) 1989, RCA [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404112.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Tito Puente - Top Percussion & Dance Mania (1958) 1993, Bear Family Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404108.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Princess Velasco - 2 альбома (2010-2011) [FLAC|Lossless]<Ballads, Jazz, P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403841.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Don Ewell - Free 'n Easy! (1957) 2000, Good Time Jazz [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403217.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Stephane Grappelli - 1935-1940 (1993) Classics [FLAC|Lossless|tracks + .cue] <Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403195.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ The Latin Stars Orchestra - Romantico (2007) 2CD [FLAC|Lossless]<Jazz, Instrumen
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_403004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_403004.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ V.A. - Venus Jazz Bar - Relaxin' Cocktail Jazz Time (2CD) (2012) [APE|Lossless]<
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_402932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_402932.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Lee Ritenour - Rhythm Sessions (2012) [FLAC|Lossless]<Fusion, Smooth Jazz, Guita
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_402852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_402852.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ VA - Audiophile Female Voices (2005) [FLAC|Lossless]<Jazz, Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_402749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_402749.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ XXIth Century Infinity Jazz Ensemble - Digging In Archives (2009) JAZZO Sophia [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401624.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Machito & His Afro-Cuban Orchestra - Vacation At The Concord (1959) 2004, Verve 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401598.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Cy Coleman - It Started with a Dream (2002) [APE|Lossless]<Vocal Jazz, Piano Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401281.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Custo - Cold Jazz (2008) [APE|Lossless]<Nu Jazz, Lounge, Ambient>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401279.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Mr. Chop - Switched On (2011) [FLAC|Lossless]<Funk, Acid Jazz, Electronic, Instr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401189.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Big Bad Voodoo Daddy - Live (2004) [FLAC|Lossless]<Swing Revival>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400759.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Leni Stern - Words (1995) [FLAC|Lossless|tracks + .cue] <Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400666.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ V.A. - Vintage Lounge (2CD) (2012) [FLAC (tracks+cue)|Lossless]<Jazz, Nu Jazz, L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399999.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Lin Halliday - Airegin (2000) Delmark [FLAC|Lossless|image + .cue] <Hard Bop, Ma
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399821.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Maria Emig Trio - Introducing (2016) Gateway Music [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399803.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ Johnny Hodges & Wild Bill Davis - Joe's Blues (1965) 2007, Lone Hill Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399737.jpg" />
 </div>
 
 
@@ -718,7 +718,7 @@ Buddy Rich & Maynard Ferguson - Two Big Bands Play Selections From West Side Sto
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399733.jpg" />
 </div>
 
 
@@ -747,7 +747,7 @@ Steve Marcus - Smile (1993) Red Baron [FLAC|Lossless|image + .cue] <Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399623.jpg" />
 </div>
 
 
@@ -776,7 +776,7 @@ Sam Levine - Smooth Sax Romance (2011) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399430.jpg" />
 </div>
 
 

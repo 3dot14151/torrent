@@ -1,3 +1,29 @@
+###  Публикация: 1823903   (128631) от 14.10.2025
+
+Sora no Aosa o Shiru Hito yo | Her Blue Sky | Она видела небо [2019, Movie] DVD9 480p raw+rus
+
+>>Аниме разное
+>>Аниме DVD
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Родители Аой и Аканэ погибли 13 лет назад, и, чтобы заботиться о младшей сестре, Аканэ пришлось отказаться от планов переехать в Токио вместе со своим парнем Синносукэ. С тех пор Аой чувствует себя в долгу перед сестрой. Однажды известный исполнитель песен в жанре энка по имени Данкити приглашает Аой, только делающую первые шаги на музыкальном поприще, выступить (   Читать дальше...   )Производство: CloverWorksЖанр: романтика, повседневность, драмаРежиссер: Нагай ТацуюкиПеревод: ReanimediaЯзык озвучки: Японский и РусскийСубтитры: РусскиеПродолжительность: 107 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82264FB389047BCE9114284AEEE28C2AC2923C79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823897   (128630) от 14.10.2025
 
 Violet Evergarden Gaiden: Eien to Jidou Shuki Ningyou | Violet Evergarden: Eternity and the Auto Memories Doll | Виолетта Эвергарден: Вечность и призрак пера [2019, Movie] DVD5 480p raw+rus
@@ -6,7 +32,7 @@ Violet Evergarden Gaiden: Eien to Jidou Shuki Ningyou | Violet Evergarden: Etern
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128630.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Mononoke Hime | Принцесса Мононокэ | Princess Mononoke | При
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128581.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Promare | Промар [2019, Movie] DVD9 480p raw+rus
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128580.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Gekijouban Violet Evergarden | Violet Evergarden the Movie | Виолетта Э
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128578.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ UFO Robot Grendaizer / Грендайзер [1975, TV, 1-74 из 74] 19xDVD5
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126820.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Bakemono no Ko | The Boy and the Beast | Ученик Чудовища [2015, Mo
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125851.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Chu Feng: B.E.E. / Позывной: «Пчёлка» [2015, TV, 6 эп.] WEBRip
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122460.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Wu Geng Ji | The Legend and the Hero | Feng Shen Ji | Chronicles of the God's Or
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116428.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Wu Geng Ji | The Legend and the Hero | Feng Shen Ji | Chronicles of the God's Or
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116425.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ Kage no Jitsuryokusha ni Naritakute! 2nd Season | The Eminence in Shadow 2nd Sea
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107003.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ Jormungand | Ёрмунганд [ТВ-1] [2012, TV, 12] BDRemux 1080p raw+rus
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105521.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ Jormungand: Perfect Order | Ёрмунганд [ТВ-2] [2012, TV, 12] BDRemux 1
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105404.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ Kono Subarashii Sekai ni Shukufuku o! Kurenai Densetsu | Konosuba: God's Blessin
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98553.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ Hatsune Miku Live Party 2011 (Mikupa) / Хацунэ Мику живой кон�
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85567.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ Tsutsu Yume Gunnm / Gunnm / Сны оружия / Боевой Ангел Али
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85443.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ MIKUNOPOLIS in LOS ANGELES (02.07.2011) BDrip TrueHD 5.1 1080p Hi10p
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83747.jpg" />
 </div>
 
 
@@ -435,7 +461,7 @@ Henjin no Salad Bowl | A Salad Bowl of Eccentrics | Салатница чуда�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69320.jpg" />
 </div>
 
 
@@ -461,7 +487,7 @@ Megami no Cafe Terrace | The Cafe Terrace and Its Goddesses | Богини ка�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67183.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ Byousoku 5 Centimeter | 5 Centimeters per Second | Пять Cантиметро�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66983.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ Karigurashi no Arrietty | The Secret World of Arrietty | Добывайка Ар
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66787.jpg" />
 </div>
 
 
@@ -541,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66784.jpg" />
 </div>
 
 
@@ -568,7 +594,7 @@ Tenki no Ko | Weathering with You | Дитя Погоды [Movie] Blu-ray 1080p 
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66152.jpg" />
 </div>
 
 
@@ -594,7 +620,7 @@ Kaijuu no Kodomo | Children of the Sea | The Sea Monster's Children | Дети �
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66151.jpg" />
 </div>
 
 
@@ -620,7 +646,7 @@ Ookami Kodomo no Ame to Yuki | Wolf Children | Волчьи дети Амэ и �
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66140.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ Bakemono no Ko | The Boy and the Beast | Ученик Чудовища [2015, Mo
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66100.jpg" />
 </div>
 
 
@@ -657,32 +683,6 @@ Bakemono no Ko | The Boy and the Beast | Ученик Чудовища [2015, Mo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7961CA68F1AFFDD492F593FB27761B8630F9922
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802083   (66098) от 15.06.2025
-
-Gekijouban Violet Evergarden | Вайолет Эвергарден | Violet Evergarden the Movie | Виолетта Эвергарден [2020, Movie] Blu-ray 1080p raw+rus
-
->>Аниме разное
->>Аниме Blu-ray, Remux
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Её работа — писать письма. Её имя — Виолетта Эвергарден. Прошло несколько лет, с тех пор как закончилась война, которая нанесла многим глубокие раны. Мир постепенно обретает покой, люди возвращаются к привычной жизни. Виолетта пытается научиться жить без самого важного для нее человека и не обращать внимания на свои чувства. Но однажды она получает письмо, и в её (   Читать дальше...   )Производство: Kyoto AnimationЖанр: приключенияРежиссер: Исидатэ ТайтиПеревод: ReanimediaОзвучка: Original 5.1Язык озвучки: Японский и РусскийСубтитры: РусскиеПродолжительность: 140 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F1A243FE4C972AED39D1D2A1D72AC7DC41E535A
 ```
 
 https://mybot314.ru/tekegram_catalog/

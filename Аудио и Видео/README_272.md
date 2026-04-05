@@ -6,7 +6,7 @@
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144040.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143857.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143670.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143524.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142744.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142645.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ VA - Best of Future Avenue 2021 (2021) [AAC|~329 Kbps] <Progressive House, Downt
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142536.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ VA - Requiem 2021 (2021) [AAC|~340 Kbps] <Deep House, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142529.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - 4 Years of Hoofbeats Music (2020) [AAC|~334 Kbps] <Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142511.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ XoBrooklynne - My Crown: The Album (2021) [AAC|~308 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142492.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ VA - The Hoofbeats Music Family Album (2021) [AAC|~338 Kbps] <Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142486.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ VA - Sensual Winter Chill, Vol. 2 (2020) [AAC|~307 Kbps] <Lounge, Chill Out, Dow
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142471.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ VA - Pi V/A (2021) [AAC|~328 Kbps] <Organic House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142466.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ VA - 5 Years of Hoofbeats Music (2021) [AAC|~335 Kbps] <Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142451.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Muffler - Glitch In The System (2021) [AAC|~309 Kbps] <Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142442.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ VA - Sensual Winter Chill, Vol. 1 (2019) [AAC|~335 Kbps] <Lounge, Chill Out, Dow
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142436.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ VA - Music Lovers Club #002 (2020) [AAC|~300 Kbps] <Deep House, Downtempo, Trip 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142433.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ VA - Silent Night Chill-Out (2021) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142424.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ George Michael - December Song (I Dreamed of Christmas) EP (2009) [AAC|256 Kbps]
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142409.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ VA - Music Lovers Club #001 (2019) [AAC|~295 Kbps] <Deep House, Downtempo, Trip 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142408.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ VA - Music Lovers Club #003 (2021) [AAC|~290 Kbps] <Deep House, Downtempo, Trip 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142399.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ VA - Martian's Gift, vol. 2 (2021) [AAC|~319 Kbps] <Psy-Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142394.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ VA - Sensual Winter Chill, Vol. 3 (2021) [AAC|~312 Kbps] <Lounge, Chill Out, Dow
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142349.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ VA - YANA 2021 (2021) [AAC|~333 Kbps] <Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142343.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ VA - 2 Years of Hoofbeats Music (2019) [AAC|~335 Kbps] <Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142331.jpg" />
 </div>
 
 
@@ -715,7 +715,7 @@ VA - Something We All Adore (Compilation by Rialians on Earth) (2021) [AAC|~313 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142324.jpg" />
 </div>
 
 

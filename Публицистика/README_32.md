@@ -1,3 +1,29 @@
+###  Публикация: 1220647   (698700) от 22.04.2018
+
+Семен Багдасаров | Ближний Восток. Перезагрузка (2016) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ближний Восток трещит по швам. Карта региона, сложившаяся после Первой мировой войны, стремительно теряет актуальность. На наших глазах возникают новые квазигосударства, имеющие все шансы со временем превратиться в государства настоящие, всё новые области требуют от центральных правительств своих стран предоставить им автономию, а на юго-востоке Турции курды начали (   Читать дальше...   )Жанр: Публицистика, Современное политическое положениеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A55EE37E7B6040CE410D2C3F88AB5EC4E8840DF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288246   (697864) от 10.03.2019
 
 Ц. Фридлянд (ред.) | Атеизм и борьба с церковью в эпоху Великой французской революции [Часть 1] (1933) [PDF]
@@ -6,7 +32,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697864.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697811.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697765.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697495.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694188.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694145.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693074.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692251.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688680.jpg" />
 </div>
 
 
@@ -250,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688667.jpg" />
 </div>
 
 
@@ -278,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687793.jpg" />
 </div>
 
 
@@ -304,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687567.jpg" />
 </div>
 
 
@@ -332,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686397.jpg" />
 </div>
 
 
@@ -360,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686229.jpg" />
 </div>
 
 
@@ -386,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684939.jpg" />
 </div>
 
 
@@ -412,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684535.jpg" />
 </div>
 
 
@@ -438,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684340.jpg" />
 </div>
 
 
@@ -466,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683841.jpg" />
 </div>
 
 
@@ -492,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682872.jpg" />
 </div>
 
 
@@ -518,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682247.jpg" />
 </div>
 
 
@@ -544,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682173.jpg" />
 </div>
 
 
@@ -570,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681876.jpg" />
 </div>
 
 
@@ -596,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681434.jpg" />
 </div>
 
 
@@ -622,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681102.jpg" />
 </div>
 
 
@@ -648,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680142.jpg" />
 </div>
 
 
@@ -661,32 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18EA81137758DDB140A2A736944AF35DF74DF22A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508551   (679275) от 10.06.2012
-
-Владимир  Хандорин | Адмирал Колчак. Правда и мифы [2007] [RTF, FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга кандидата исторических наук В.Г.Хандорина посвящена одному из наиболее противоречивых и неоднозначных имен в отечественной истории, вокруг которого продолжаются дискуссии среди ученых и политиков - военно-политическому деятелю, белогвардейскому Верховному правителю периода Гражданской войны, выдающемуся флотоводцу, ученому, полярному путешественнику адмиралу А.В.Колчаку. Книга, написанная хорошим литературным языком, опирается на широкий круг документальных источников и литературы и представляет попытку всестороннего объективного анализа личности и деятельности адмирала, свободную от свойственных большинству исследований о нем политических крайностей.2007Жанр: ИсторияФормат: RTF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A579A234223752D899AFD460F68B79F99E5E1D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

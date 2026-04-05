@@ -1,3 +1,56 @@
+###  Публикация: 1430120   (174225) от 09.12.2020
+
+Император и убийца / Jing Ke ci Qin wang (1998) DVDRip [H.264]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174225.jpg" />
+</div>
+
+
+###  Подробнее
+
+III в. до н. э. Ван (царь) Цинь Шихуан покоряет соседние царства, объединяя Поднебесную. Дань-ван царства Янь не желая покоряться, нанимает убийцу Цзин Кэ убить Шихуана. В заговоре участвует красавица жена Шихуана. Дань-ван не знает, что все подстроено Шихуаном, а Шихуан не знает, что все пойдет не так, как он задумал.
+Дома у вана Цинь не все спокойно — протеже первого (   Читать дальше...   )Производство: Китай, Франция, Япония / Shin Corporation, Le Studio Canal+Жанр: драма, мелодрама, историяРежиссер: Чэнь КайгэАктеры: Гун Ли, Чжан Фэнъи, Ли Сюэцзянь, Сунь Чжоу, Сяо-хе Лю, Ван Чживэнь, Чэнь Кайгэ, Гу Ёнфэй, Чжао Бэньшань, Дин ХайфэнПеревод: Многоголосый профессиональныйСубтитры: русскиеПродолжительность: 02:33:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB1E320C1D4084B40C0392E91985BE8E0B506E84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595469   (174200) от 07.12.2022
+
+Воины будущего / Ming yat zin gei / Warriors of Future (2022) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174200.jpg" />
+</div>
+
+
+###  Подробнее
+
+2055 год. Планета задыхается от загрязнений и глобального потепления, и, видимо, чтобы окончательно избавиться от человечества, высшие силы посылают на Землю метеорит с агрессивной формой жизни. Этот замечательный организм начинает очищать планету от всего живого, включая людей. Но человечество сдаваться не собирается - хорошо вооруженные гонконгские военные дадут (   Читать дальше...   )Производство: Гонконг, One Cool Film Production, Hua Wen Movie Group, Media Asia FilmsЖанр: боевик, фантастикаРежиссер: Нг Юэнь-ФайАктеры: Луис Ку, Шон Лау, Филип Кюн, Карина Лау, Ник Чун, У Цянь, Цзэ Кван-Хо, Чэн Сяося, Лау Хо-Люн, Мак Тинь-ШуПеревод: Любительский многоголосыйЯзык озвучки: Русский, АнглийскийСубтитры: Русские, Английские | отдельными файламиПродолжительность: 01:41:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7D82D1BB8CF60208F2C8B8E9F0C02E778F149F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1266541   (173827) от 18.12.2018
 
 Прорыв / Changgwol (2018) WEBRip [MVO]
@@ -6,7 +59,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173827.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173523.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172782.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172765.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172583.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172464.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171148.jpg" />
 </div>
 
 
@@ -188,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171114.jpg" />
 </div>
 
 
@@ -214,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171013.jpg" />
 </div>
 
 
@@ -240,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170823.jpg" />
 </div>
 
 
@@ -266,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170266.jpg" />
 </div>
 
 
@@ -292,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169855.jpg" />
 </div>
 
 
@@ -318,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169773.jpg" />
 </div>
 
 
@@ -344,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169663.jpg" />
 </div>
 
 
@@ -370,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169478.jpg" />
 </div>
 
 
@@ -396,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169303.jpg" />
 </div>
 
 
@@ -422,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168904.jpg" />
 </div>
 
 
@@ -448,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168810.jpg" />
 </div>
 
 
@@ -474,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168478.jpg" />
 </div>
 
 
@@ -500,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168202.jpg" />
 </div>
 
 
@@ -526,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167541.jpg" />
 </div>
 
 
@@ -552,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166787.jpg" />
 </div>
 
 
@@ -578,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166768.jpg" />
 </div>
 
 
@@ -604,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166659.jpg" />
 </div>
 
 
@@ -615,58 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3376306D0432750FF8F25751E955C95F34083ABA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516650   (165219) от 12.12.2021
-
-Посылки от папы / Xinling shizhong / Packages from Daddy (2016) WEB-DLRip [AVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165219.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девятилетний Лань живет в приморском городке с родителями и старшей сестрой Чэн. Однажды, вернувшись домой из школы, он узнает, что его отец покончил жизнь самоубийством. Лань винит в смерти себя, поскольку утром он накричал на отца. Чэн тоже винит себя, поскольку утром, видя, что отец расстроен, не подошла к нему. В скором времени начинают приходить посылки от папы, (   Читать дальше...   )Производство: Тайвань, Movie Bird FilmsЖанр: СемейныйРежиссер: Цай ИньчуаньАктеры: Фанн Вонг, Ли Лижэнь, Райан Тан, Катрина Юй, Се Фэй, Дин Нин, Жи-Пин Тан, Кэш ЧуанПеревод: Авторский (Виктор Береговых)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:37:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2FD4BBB7C07EB6B957AFB1D207F95993C8D361D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516918   (164359) от 13.12.2021
-
-Око за око / Wai ngoh duk juen / An Eye for an Eye (1990) BDRip [AVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164359.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дочь влиятельного триадовца не очень довольна тем, что ее отец отказывается завязать с преступным миром – не очень доволен этим и ее бойфренд Тат, один из видных офицеров антитриадовского подразделения гонконгской полиции. В конце концов настает день, когда Тату приходится арестовать пожилого мафиози, а это значит, что теперь его дочь получила управление всей его (   Читать дальше...   )Производство: Гонконг, Legend Films CompanyЖанр: Боевик, криминалРежиссер: О Син-ПуйАктеры: Джой Вонг, Макс Мок, Уилсон Лам, Джон Чин, Лун Фонг, Анджела Фонг, Ван Сеунг-Лам, Вонг Леун-Чун, Вонг Чи-Кеунг, Джимми Синь, Джонни Вонг, Лам Кай-ВингПеревод: Авторский (Виктор Береговых)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:29:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5FB587DC891A3C40DB9D4EFC46EAA853475F3C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

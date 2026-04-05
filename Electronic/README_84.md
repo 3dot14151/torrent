@@ -1,3 +1,61 @@
+###  Публикация: 1369756   (902015) от 24.03.2020
+
+VA - 100 (Compiled by DJ PIN) (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902015.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Waterphonics - Not Real (Oeah Edit) (5:58)
+2. ArkoMo - Wunderwald (8:00)
+3. Dj Pin; Patchbay - Goa Wind (7:23)
+4. Hyperflex - Makumba (8:20)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:54:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8A464A298AA29AA0B8C8FE02E20ABE2C5D74637
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369721   (902010) от 24.03.2020
+
+VA - Nothing But... Soulful House Vibes, Vol. 07 (2020) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Des Jaguar - Forgive Myself [08:09]
+02. Chynaah Doll - I Hear The Rain (Joeflame Remix) [08:10]
+03. BSJ The Black Legend - Your Best Side (Dub Mix) [06:22]
+04. Gianni Ruocco - Groove Del Sol (Lazy Bug & Gabriel Grant Remix) [06:18](   Читать дальше...   )Жанр: HouseПродолжительность: 02:51:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F60221F1B00DA25F48BFCADF6BAF045422EFD0FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369736   (901986) от 24.03.2020
 
 Kim & Buran (Ким и Буран) - Best Melodies (2020) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Downtempo, Easy Listening>
@@ -6,7 +64,7 @@ Kim & Buran (Ким и Буран) - Best Melodies (2020) [FLAC|Lossless|WEB-DL|
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901986.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Clarke : Hartnoll  (Vince Clarke & Paul Hartnoll) - 2Square (2016) [FLAC|Lossles
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901870.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Armin van Buuren - A State of Trance 551 - 750 (2012-2016) [MP3|128 ~ 320 кб/�
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901828.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Hypnotic Room (Best of 2016) (2017) [MP3|320 Kbps] <House, Tech House, Deep
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901717.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Best of Uplifting Trance (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, V
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901596.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Infected Mushroom - More than Just a Name (2020) [FLAC|Lossless|WEB-DL|tracks] <
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901517.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Colombo - iBreaks 12th Anniversary Series (2017) [MP3|320 Kbps] <Breaks>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901422.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Потанцуем ? (2000) S&V #03/2000 [FLAC|Lossless|tracks + .cue] <Eur
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901015.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Dance With The Dead - B-Sides: Volume 1 (2017) Compilation [FLAC|Lossless|WEB-DL
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900965.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Serenity Sexy Lounge & Chill out Pearls Vol 3 (2016) [MP3|320 кб/с] <Dow
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900922.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Depeche Mode - Some Great Reward (1984) remastered 2006, collectors edition, CD+
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900611.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Sufjan Stevens and Lowell Brams - Aporia (2020) [FLAC|Lossless|WEB-DL|tracks] <E
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900338.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900162.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Project Zen. Ultimate Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899984.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Carnaval House (2017) [MP3|320 Kbps] <Tech House,Deep House,House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899935.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Bikini Sounds: Ibiza Beach Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899928.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - This Is My Church, Vol. 1 (The Chill Out Edition) (2017) [MP3|320 Kbps] <Ch
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899895.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Relaxation Lounge: Chillout Your Mind (2017) [MP3|320 Kbps] <Downtempo, Chi
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899888.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Hypnotized Creations Vol. 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899842.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Lounge in Love Collection Vol 1 (2017) [MP3|320 Kbps] <Electronic, Lounge, 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899834.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Kontor Festival Sounds 2017.01 The Beginning (2017) [FLAC|Lossless|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899528.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Intense - Logical Progression Level 3 (1998) [FLAC|Lossless|tracks + .cue] 
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899081.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Londonbeat - Best! The Singles (1995) [FLAC|Lossless|tracks + .cue] <Soul, Vocal
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898968.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Lady Gaga - Artpop (2013) [FLAC|Lossless|tracks + .cue] <Electro, Synth-pop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898953.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Lady Gaga - Artpop (2013) [FLAC|Lossless|tracks + .cue] <Electro, Synth-pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DE0C2ABE0E84537D8630A5E147AB28A3238E07F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370215   (898569) от 26.03.2020
-
-Duckson - Stuff i did last year (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898569.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Time is now (4:58)
-2. Deep is 5 (4:44)
-3. Trackson McFinigan (5:54)
-4. What u want (4:43)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:12:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70F39C70CE97845644E161A39E6C2C4313D35E87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370108   (898539) от 26.03.2020
-
-Pablo Moriego - Deep House Collection (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898539.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Addiction (7:16)
-2. Close My Eyes (5:01)
-3. Lonely (5:36)
-4. Unbrace (Slow Deep Re-Edit) (7:00)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:36:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED6E0C3479C3B6E9ACDED00D9D05D365703F924B
 ```
 
 https://mybot314.ru/tekegram_catalog/

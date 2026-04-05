@@ -1,3 +1,29 @@
+###  Публикация: 1771785   (31422) от 10.01.2025
+
+My Summer Car (2016) [En] (241230-03) Repack FitGirl
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31422.jpg" />
+</div>
+
+
+###  Подробнее
+
+My Summer Car – симулятор жизни финского, 19-тилетного паренька, который живёт на даче в живописных лесах. Его родственники на отдыхе в Тенерифе, весь дом, а главное, гараж, в его распоряжении. Создана на Unity, благодаря гибкости данного движка, и стало возможно добавить столько механик, о которых ниже. Основным вашим занятием будет восстановление древнего автомобиля (   Читать дальше...   )Тип издания: RepackРазработчик: Amistech GamesЖанр: Инди, Гонки, СимуляторыЯзык озвучки: ФинскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D517A3257135EDBDB44E9E7C0ABD28D96A79CCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1772253   (31409) от 10.01.2025
 
 Per Aspera (2020) [Ru/Multi] (1.8.3.63441/dlc) Repack FitGirl [Deluxe Edition]
@@ -6,7 +32,7 @@ Per Aspera (2020) [Ru/Multi] (1.8.3.63441/dlc) Repack FitGirl [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31409.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Farm Manager 2021 (2021) [Ru/Multi] (1.1.20241030.529/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31387.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Guardian's Guide (2025) [En] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31292.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Teardown (2022) [Ru/Multi] (20241204/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31229.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Construction Simulator 3 (2024) [Ru/Multi] (0.9) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31213.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Construction Simulator 2 US (2018) [Ru/Multi] (0.9) License GOG [Pocket Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31140.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Chocolate Factory Simulator (2025) [Ru/Multi] (1.0.4) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31117.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ While We Wait Here (2024) [Ru/Multi] (Build 16641425) Repack FitGirl [Soundtrack
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30960.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ I Am Future: Cozy Apocalypse Survival (2023) [Ru/Multi] (1.1.0.006r) Repack FitG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30881.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Tavern Master: Complete (2021) [Ru/Multi] (2.1.1/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30779.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Chocolate Factory Simulator (2025) [Ru/Multi] (1.0.15) Repack R.G. Freedom
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30586.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Car Mechanic Simulator 2021 (2021) [Ru/Multi] (1.0.37/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30499.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ AquaFantasia (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30486.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Heart's Medicine - Hospital Heat (2017) [Ru/Multi] (1.0.0.9) Scene F4CG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30478.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Love n Life: Lucky Teacher (2024) [Ru/Multi] (3.3.0/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30398.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Tavern Master (2021) [Ru/Multi] (2.3/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30392.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Tin Can: Escape Pod Simulator (2022) [Ru/Multi] (1.0.0.7d) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30386.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Warlords Under Siege (2022) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30193.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Vampire Therapist (2024) [Multi] (1.202) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30155.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Uncle Chop's Rocket Shop (2024) [Ru/Multi] (1.4.0:5875/dlc) Repack FitGirl [Delu
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30029.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Cyber Manhunt 2: New World - The Hacking Simulator (2024) [Multi] (1.0.7) Repack
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29833.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Blacksmith Simulator (2025) [Ru/Multi] (1.0.0.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29831.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ TrickShot Simulator (2025) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29622.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ JOY OF PROGRAMMING - Software Engineering Simulator (2024) [Ru/Multi] (1.0.0) Re
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29216.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Rock Star Life Simulator (2024) [Ru/Multi] (1.0) RePack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29064.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Rock Star Life Simulator - это обширная игра-симулятор �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13DAB21428F3BA917A4A1814C9453707755C4724
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777890   (28343) от 07.02.2025
-
-Instruments of Destruction (2024) [Ru/Multi] (1.11а) Repack Let'sРlay
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28343.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Instruments of Destruction используется передовая система разрушения, основанная на физических законах. Благодаря полностью интерактивной физике любое сооружение в игре можно разрушить на кусочки, и все объекты будут так или иначе взаимодействовать с разрушениями. Все элементы игровой реальности гармонично включены в систему разрушения и взаимодействуют друг с (   Читать дальше...   )Тип издания: RepackРазработчик: RadiangamesЖанр: Экшены, Казуальные игры, Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:634F7D14189B426B7A55C35CE503643C1CDC6944
 ```
 
 https://mybot314.ru/tekegram_catalog/

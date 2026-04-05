@@ -1,3 +1,162 @@
+###  Публикация: 980714   (954371) от 30.01.2016
+
+В Госдуму внесен законопроект, отменяющий «налог на болванки»
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Депутат от фракции ЛДПР  внес в Госдуму законопроект под наименованием «О внесении изменений в часть четвертую Гражданского Кодекса Российской Федерации», который предполагает отмену ряда пунктов, обозначенных в ГК РФ, по сути — пересмотреть существующий порядок выплаты авторских вознаграждений Российскому союзу правообладателей (РСП), возглавляемому Никитой Михалковым.Законопроект (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 857048   (954273) от 07.01.2015
+
+Profileschool | Фундаментальная цветокоррекция фотографических изображений (2014) PCRec
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фундаментальная цветокоррекция фотографических изображений — это онлайн семинар, посвященный базовой обработке фотографий, продиктованной естественными причинами.
+На двухдневном онлайн семинаре будут рассмотрены базовые законы зрительного восприятия и методы перенесения впечатления от натуры на снимок этой натуры.Жанр: Цветокоррекция фотоПродолжительность: 07:44:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50578441BCFE0B80C9CA70EEFFA478AC4958B4D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 773385   (954269) от 07.01.2015
+
+Autodesk 3ds Max Design 2015 (x64) [Multi] + SP3
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954269.jpg" />
+</div>
+
+
+###  Подробнее
+
+Autodesk 3ds Max Design – это полнофункциональное решение для 3D-моделирования, анимации и рендеринга, предназначенное для архитекторов, инженеров, проектировщиков инфраструктуры, дизайнеров и специалистов по визуализации.Язык интерфейса: Английский, Немецкий, Французский...
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7A3B6B1922C0CFC031D6739D4C5493F2855FFB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 749390   (953922) от 25.01.2014
+
+Несносный дед / Jackass Presents: Bad Grandpa (2013) HDRip [H.264] [Unrated Cut]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953922.jpg" />
+</div>
+
+
+###  Подробнее
+
+• 86-летний старикан по имени Ирвинг Зисман путешествует по Америке с необычным компаньоном — восьмилетним «внуком» Билли.
+• По дороге заводной дедушка знакомит впечатлительного Билли с людьми, местами и ситуациями, которые вряд ли укладываются в рамки привычных представлений о воспитании. Парочка столкнется со стриптизерами, разъяренными участниками помпезного детского (   Читать дальше...   )Производство: США | Dickhouse Productions, MTV FilmsЖанр: КомедияРежиссер: Джефф ТреймейнАктеры: Джонни Ноксвил, Джексон Николл, Грег Харрис, Джорджина Кэйтс, Камбер Хейлик, Джилл Килл, Мэдисон Дэвис, Джордж Фонан, Грэси Мерседес, Мэрилинн ЭллейнПеревод: Многоголосый закадровый, профессиональныйСубтитры: Вшитые отключаемыеЯзык субтитров: Английский (Full, SDH, SDH-Colored)Продолжительность: 01:42:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3B18FDECBE2BC28EC0318ABCCA04B5A3D823892
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 748528   (953921) от 25.01.2014
+
+Голодные игры: И вспыхнет пламя / The Hunger Games: Catching Fire (2013) BDRip [H.264/720p-LQ] [IMAX]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953921.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сумев выжить на безжалостных Голодных играх, Китнисс Эвердин и Пит Мелларк возвращаются домой. Но теперь они в еще большей опасности, так как своим отказом играть по правилам на Арене бросили вызов Капитолию. По традиции следующие, юбилейные, Голодные игры должны стать особенными, и в этот раз в них участвуют только победители прошлых лет. Китнисс и Пит вынуждены (   Читать дальше...   )Производство: СШАЖанр: Фантастика, Боевик, ПриключенияРежиссер: Френсис ЛоуренсАктеры: Дженнифер Лоуренс, Джош Хатчерсон, Сэм Клафлин, Джена Мэлоун, Вуди Харрельсон, Элизабет Бэнкс, Лиам Хемсворт, Дональд Сазерленд, Филип Сеймур Хоффман, Стэнли ТуччиПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: Русский, АнглийскийПродолжительность: 02:26:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5281828D51E4934E682571BF7A128FD41D721EEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980226   (953829) от 30.01.2016
+
+Роскомнадзор: Обход блокировок не противоречит закону
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роскомнадзор назвал обходы блокировок законными
+В эфире телеканала «РБК» Вадим Ампелонский, пресс-секретарь Роскомнадзора, прояснил некоторые моменты относительно «вечных блокировок» сайтов. Ампелонский выступал не как частное лицо, а как представитель ведомства, поэтому его слова можно считать официальным заявлением от имени Роскомнадзора.В частности, чиновник рассказал (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 980632   (953812) от 30.01.2016
 
 Мученицы / Martyrs (2015) HDRip
@@ -6,7 +165,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953812.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953808.jpg" />
 </div>
 
 
@@ -58,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>12
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953796.jpg" />
 </div>
 
 
@@ -84,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953794.jpg" />
 </div>
 
 
@@ -112,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953793.jpg" />
 </div>
 
 
@@ -138,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953792.jpg" />
 </div>
 
 
@@ -164,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953791.jpg" />
 </div>
 
 
@@ -190,7 +349,7 @@ Skin "New Navitel" 9.6 Free [RUS/MULTI] Авторская раздача
 >>15
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953790.jpg" />
 </div>
 
 
@@ -216,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953775.jpg" />
 </div>
 
 
@@ -242,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953700.jpg" />
 </div>
 
 
@@ -268,7 +427,7 @@ Windows 10 x64 Pro for Workstations v1909 build 18363.657 by Zosma [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953658.jpg" />
 </div>
 
 
@@ -297,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>16
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953657.jpg" />
 </div>
 
 
@@ -323,7 +482,7 @@ Adobe Photoshop 2020 21.1.0.106 RePack by KpoJIuK [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953651.jpg" />
 </div>
 
 
@@ -349,7 +508,7 @@ Survive In Russia (2020) [Ru/En] (1.0) Repack Other s
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953649.jpg" />
 </div>
 
 
@@ -375,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953646.jpg" />
 </div>
 
 
@@ -402,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953349.jpg" />
 </div>
 
 
@@ -428,7 +587,7 @@ Lords Of The Fallen (2014) [Ru/Multi] (1.6/dlc) RePack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953182.jpg" />
 </div>
 
 
@@ -454,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953176.jpg" />
 </div>
 
 
@@ -480,7 +639,7 @@ Grand Theft Auto: Anthology / Антология Grand Theft Auto [Ru/En/Multi7]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953122.jpg" />
 </div>
 
 
@@ -508,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952569.jpg" />
 </div>
 
 
@@ -519,165 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980779   (952392) от 31.01.2016
-
-X-2 - первый истребитель-невидимка японского производства
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Япония, наряду с США, Россией и Китаем стала четвертой страной в мире, которая имеет в своем распоряжении истребитель-невидимку следующего поколения собственной разработки и производства. Новый самолет, известный ранее под названием ATD-X (Advanced Technology Demonstrator X), был представлен вниманию общественности в одном из ангаров аэропорта Нагои, а свой первый (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475756   (952372) от 31.01.2016
-
-Специалист | Linux. Уровень 2. Использование систем на UNIX в качестве серверов [2011] PCRec
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный курс позволит получить знания для эффективного использования сетевых возможностей Linux / FreeBSD. Вы узнаете принцип работы как с корпоративными сервисами, такими как электронная почта, Intranet, FTP-сервер, так и с незаметными, но не менее необходимыми — шлюз в Интернет, DNS, DHCP и т.п.
-
-Курс в первую очередь будет интересен системным администраторам, администраторам (   Читать дальше...   )Жанр: Обучающие видеоурокиПродолжительность: 24:13:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:351F173373CE8DF8FE2BD3D349570DAD3246D882
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981092   (952371) от 31.01.2016
-
-Срочно выйду замуж (2015) WEB-DL [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женя — редактор-трудоголик, Стас — светский фотограф. Она амбициозна, а у него по жизни — ни задачи, ни проблемы. Женя хочет и может стать главным редактором журнала, но для этого у нее срочно должен появиться супруг! Условие акционеров издания — семейная аудитория нуждается в семейном руководителе. И на решение этой задачи у девушки есть всего неделя. Стас берется (   Читать дальше...   )Производство: Россия / Art Pictures Studio, ВайТ МедиаЖанр: Комедия, МелодрамаРежиссер: Сергей ЧекаловАктеры: Юлия Ковальчук, Алексей Чумаков, Екатерина Маликова, Сергей Бурунов, Ольга Прокофьева, Вячеслав Гришечкин, Нонна Гришаева, Анатолий Белый, Алика Смехова, Эвклид КюрдзидисПеревод: Не требуется (русский) iTunesПродолжительность: 01:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7616D12AFD93353E38E16CBE9A82F6AA5332728D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361498   (951953) от 21.02.2020
-
-Хакеры массово атаковали пользователей Windows 7
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951953.jpg" />
-</div>
-
-
-###  Подробнее
-
-В середине января Microsoft официально прекратила поддержку операционной системы Windows 7. Уже спустя несколько недель её пользователи столкнулись с техническими проблемами и навязчивым предложением компании обновиться до более актуальной версии ОС. Теперь же «выкуривать» пользователей «семёрки» принялись создатели вредоносного ПО. Эксперты компании Webroot отметили (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361951   (951902) от 21.02.2020
-
-Достать ножи / Knives Out (2019) BDRip [H.264/720p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951902.jpg" />
-</div>
-
-
-###  Подробнее
-
-На следующее утро после празднования 85-летия известного автора криминальных романов Харлана Тромби виновника торжества находят мёртвым. На лицо — явное самоубийство, но полиция по протоколу опрашивает всех присутствующих в особняке членов семьи, хотя, в этом деле больше заинтересован частный детектив Бенуа Блан. Тем же утром он получил конверт с наличными от неизвестного (   Читать дальше...   )Производство: США / Lionsgate, Media Rights Capital, T-StreetЖанр: Детектив, Комедия, Драма, КриминалРежиссер: Райан ДжонсонАктеры: Дэниэл Крэйг, Ана де Армас, Крис Эванс, Джейми Ли Кёртис, Майкл Шеннон, Дон Джонсон, Тони Коллетт, Лакит Стэнфилд, Кристофер ПламмерПеревод: Дублированный (iTunes)Субтитры: Русские (Full, Forced)Продолжительность: 02:10:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED123E1FB82195387F7C97CFC8F5C90C392B9D21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360179   (951900) от 21.02.2020
-
-SolidWorks 2020 Premium SP 1.0 [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951900.jpg" />
-</div>
-
-
-###  Подробнее
-
-SolidWorks – система автоматизированного проектирования, инженерного анализа и подготовки производства изделий любой сложности и назначения.
-SolidWorks является ядром интегрированного комплекса автоматизации предприятия, с помощью которого осуществляется поддержка жизненного цикла изделия в соответствии с концепцией CALS-технологий, включая двунаправленный обмен (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:644022003A71DAB5ABB8A08074EE779BE6650BFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

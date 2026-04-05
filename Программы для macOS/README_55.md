@@ -1,3 +1,59 @@
+###  Публикация: 1281384   (753486) от 07.02.2019
+
+Instaradio 8.0.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Instaradio - слушайте любимые радиостанции или открывайте новые. Instaradio может быть радио-проигрывателем, которого вы так долго ждали. Попробуйте приложение, которым пользуются тысячи людей, слушающих радио!
+
+Доступны плейлисты для Австралии, Австрии, Бельгии, Канады, Чехии, Дании, Франции, Германии, Италии, Нидерландов, Норвегии, Польши, России, Словении, Испании, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.02.2019Разработчик: Markus JahnsrudПоддерживаемая ОС: macOS 10.14 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62F1BFD356ED588B080C118523B4E1F02EE0F142
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523126   (753385) от 10.01.2022
+
+Music Tag Editor 5.10.4 [Multi]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Music Tag Editor - редактор музыкальных тегов поможет вам изменить информацию легко и эффективно, преобразовать текст тегов, добавить обложку и т.д.
+Приложение поддерживает следующие форматы: MP3, M4A (Apple lossless), MP4, FLAC, APE, AIFF, WAV , Ogg files.
+Поддержка: ID3V1, ID3V2.3,ID3V2.4, xiphComments, APE Tag, Ogg Vorbis, Ogg Speex, Ogg Flac.Тип издания: macOS SoftwareРелиз состоялся: 22.12.2021Разработчик: SwiftMediaПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Упрощенный китайский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32CFDF12510D2736317BFF80387B1B7575512085
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1523051   (753286) от 10.01.2022
 
 Planner 5D Premium 4.6.3 [Multi/Ru]
@@ -6,7 +62,7 @@ Planner 5D Premium 4.6.3 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753286.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ Movavi Screen Capture Pro 10.1.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753122.jpg" />
 </div>
 
 
@@ -58,7 +114,7 @@ Total Adware Doctor 1.1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752946.jpg" />
 </div>
 
 
@@ -84,7 +140,7 @@ Fileloupe - Media Browser 1.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752263.jpg" />
 </div>
 
 
@@ -111,7 +167,7 @@ Magic Number 2.7.10 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_752254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_752254.jpg" />
 </div>
 
 
@@ -139,7 +195,7 @@ Aiseesoft PDF Converter 3.2.39 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752177.jpg" />
 </div>
 
 
@@ -166,7 +222,7 @@ SQLPro for MSSQL 1.0.318 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_751969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_751969.jpg" />
 </div>
 
 
@@ -195,7 +251,7 @@ Theme Lab - Templates 5.4.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751958.jpg" />
 </div>
 
 
@@ -223,7 +279,7 @@ PatterNodes 2 v2.4.12 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751675.jpg" />
 </div>
 
 
@@ -250,7 +306,7 @@ BuildBox 2.1.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751512.jpg" />
 </div>
 
 
@@ -276,7 +332,7 @@ Screaming Frog Log File Analyser 4.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751273.jpg" />
 </div>
 
 
@@ -303,7 +359,7 @@ FxFactory Pro 7.2.8 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751268.jpg" />
 </div>
 
 
@@ -330,7 +386,7 @@ ABBYY Lingvo Dictionary для Mac 1.10.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751235.jpg" />
 </div>
 
 
@@ -359,7 +415,7 @@ JetBrains PhpStorm 2018.3.4 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751070.jpg" />
 </div>
 
 
@@ -385,7 +441,7 @@ OmniOutliner Pro 5.4.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751059.jpg" />
 </div>
 
 
@@ -411,7 +467,7 @@ BalenaEtcher 1.4.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749919.jpg" />
 </div>
 
 
@@ -437,7 +493,7 @@ Typeeto: remote BT keyboard 1.6 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749903.jpg" />
 </div>
 
 
@@ -464,7 +520,7 @@ ExifEditor 1.2.5 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749805.jpg" />
 </div>
 
 
@@ -490,7 +546,7 @@ AnyToISO Pro 3.9.6 fix [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749793.jpg" />
 </div>
 
 
@@ -517,7 +573,7 @@ Planner 5D Premium 4.8.2 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_749565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749565.jpg" />
 </div>
 
 
@@ -543,7 +599,7 @@ Maxon Cinema 4D Studio R25.117 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749404.jpg" />
 </div>
 
 
@@ -569,7 +625,7 @@ macOS Server 5.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748983.jpg" />
 </div>
 
 
@@ -595,7 +651,7 @@ Addism - The Calculator 1.2.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748464.jpg" />
 </div>
 
 
@@ -624,7 +680,7 @@ Grids for Instagram 3.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748333.jpg" />
 </div>
 
 
@@ -638,59 +694,6 @@ Grids переносит лучшее из Instagram на ваш Mac.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAEE7C4F712521A41D6D3BA229B0CC6741579B80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281904   (748286) от 10.02.2019
-
-TunesKit M4V Converter 5.0.0 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748286.jpg" />
-</div>
-
-
-###  Подробнее
-
-TunesKit DRM M4V Converter - лучшее и самое быстрое программное обеспечение для удаления DRM, специально разработанное для устранения защиты DRM без потери покупок фильмов iTunes, прокатов и телевизионных эпизодов.
-Это также поможет вам преобразовать любое видео без DRM в MP4 без защиты, M4V и другие форматы с объемным звуком AC3 5.1 с сохраненными субтитрами.Тип издания: macOS SoftwareРелиз состоялся: февраль 2019Разработчик: TunesKitПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57FA08CB4063D7E492970EE43B311C3D30AE01F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281924   (748046) от 10.02.2019
-
-Presonus Studio One Pro 4.1.3 [Multi]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Studio One Pro - мощный, профессиональный аудио/MIDI-секвенсор, снабжен не только всеми профессиональными функциями, необходимыми музыканту и аранжировщику в процессе производства музыки, но и некоторыми новыми разработками, выделяющими эту программу из ряда традиционных аудио-приложений. В основе работы Studio One Pro лежит механизм автоматического переключения (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: февраль 2019Разработчик: PreSonusПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский, Немецкий, Французский, Японский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A3C653BE4387BDA7249B2B65B18486BFFA86ADB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,143 @@
+###  Публикация: 1802775   (65992) от 19.06.2025
+
+Мария Благушина | Бразилия изнутри. Как на самом деле живут в жаркой стране карнавалов? (2024) [MP3, Анна Османова]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65992.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что вы знаете о Бразилии?
+
+Наверняка вы слышали о ярких и красочных карнавалах, которые здесь проводятся с особым размахом, хоть раз видели культовые бразильские сериалы вроде «Рабыни Изауры» или «Клона» и точно знаете про главную визитную карточку Рио-де-Жанейро – статую Христа-Искупителя, которая входит в список Новых семи чудес света. Это пятая страна в мире по (   Читать дальше...   )Жанр: ПублицистикаИздательство: БОМБОРАПродолжительность: 05:13:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:013A19FAE946ECBD01E723C67AFCCDA2EB5947BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802770   (65991) от 19.06.2025
+
+Виктория Станкеева | Австралия изнутри. Как на самом деле живут в стране вверх тормашками? (2022) [MP3, Екатерина Булгару]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что мы знаем об Австралии?
+
+Это страна, которая расположилась на отдельном материке и где пустыни занимают почти половину площади. Здесь опаснейшие животные соседствуют с милыми кенгуру и коалами, а также находится Большой Барьерный риф – крупнейший живой организм на Земле, который виден даже из космоса! Но Австралия – это намного больше, чем знаковые достопримечательности (   Читать дальше...   )Жанр: ПублицистикаИздательство: БОМБОРАПродолжительность: 04:42:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8257504C37F39FE38BA032989CF669B122A819D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802767   (65990) от 19.06.2025
+
+Дарья Кириенко | Малайзия изнутри. Как на самом деле живут в стране вечного лета, дурианов и райских пляжей? (2022) [MP3, Марина Тропина]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65990.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга «Малайзия изнутри» посвящена всем, кому не хватает ярких летних пейзажей, фестивалей и праздников. Тем, кто хочет узнать больше о невероятной стране контрастов и проникнуться неповторимой атмосферой.
+
+Дарья Кириенко знает все о жизни в Малайзии и сможет поделиться своим опытом, впечатлениями и советами.
+(   Читать дальше...   )Жанр: ПублицистикаИздательство: БОМБОРАПродолжительность: 08:39:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F48B01D63E843C8BA8C4B96C1C1E3BF4E0A408F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808011   (65061) от 22.07.2025
+
+Яков Миркин | Потрясенные общества. Правила жизни в эпоху перемен (2025) [MP3, Алексей Воскобойников]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы все знаем выражение «общественные потрясения». Но как жить в «потрясенном» обществе, как сохранить в нем имущество, достоинство, душевное равновесие – и саму жизнь? Как выдержать первый удар, когда привычный мир вдруг рухнул? Как выйти из кризиса умудренным и окрепшим? Кто, как не Россия, даст ответы на эти вопросы, ведь нас столетиями кидает из крайности в крайность.Жанр: Публицистика, Философские притчиИздательство: АзбукаПродолжительность: 11:40:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97133A7F5CC9F36499CCE3D498681CDCFBF652DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808683   (64889) от 26.07.2025
+
+Захар Прилепин | Имя рек. 40 причин поспорить о главном (2020) [MP3, Денис Макаренко]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быть может, у меня ничего не получилось, но я так не думаю.
+Перед вами – итоги моих болезненных размышлений о нашем с вами Отечестве.
+Чтоб понять, кто мы и зачем, нужно было заново пересобрать все представления, и я бережно, с тщанием ребёнка, пересобрал.
+В какой точке бытия находимся мы и куда следуем. Что есть Родина. Какое отношение мы имеем к Древней Руси. Насколько (   Читать дальше...   )Жанр: ПублицистикаИздательство: АСТПродолжительность: 06:02:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9B8532E15D1F066254F43B4281DC2053B592A6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708285   (62325) от 20.03.2024
 
 Роман Василишин | Сверхновый Завет (2018) [MP3, Неизвестен]
@@ -6,7 +146,7 @@
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62325.jpg" />
 </div>
 
 
@@ -33,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59169.jpg" />
 </div>
 
 
@@ -61,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56253.jpg" />
 </div>
 
 
@@ -87,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52098.jpg" />
 </div>
 
 
@@ -113,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51388.jpg" />
 </div>
 
 
@@ -139,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47218.jpg" />
 </div>
 
 
@@ -165,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43938.jpg" />
 </div>
 
 
@@ -191,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40304.jpg" />
 </div>
 
 
@@ -217,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39373.jpg" />
 </div>
 
 
@@ -243,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38691.jpg" />
 </div>
 
 
@@ -272,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38590.jpg" />
 </div>
 
 
@@ -299,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38469.jpg" />
 </div>
 
 
@@ -325,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38302.jpg" />
 </div>
 
 
@@ -351,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37059.jpg" />
 </div>
 
 
@@ -377,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36582.jpg" />
 </div>
 
 
@@ -403,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35949.jpg" />
 </div>
 
 
@@ -429,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34678.jpg" />
 </div>
 
 
@@ -455,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31487.jpg" />
 </div>
 
 
@@ -482,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29070.jpg" />
 </div>
 
 
@@ -509,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29045.jpg" />
 </div>
 
 
@@ -537,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26248.jpg" />
 </div>
 
 
@@ -548,139 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7453A624309539FB1C78A1DB816E9E74B0791BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784296   (25087) от 10.03.2025
-
-Олег Маркеев | Демон власти (2025) [MP3, Crocofant]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный автор политических триллеров и мистических детективов — Олег Маркеев — не перестает удивлять своих читателей. На этот раз совместно с учеными Александром Масленниковым и Михаилом Ильиным он предпринял попытку исследовать феномен Власти. Никогда о тайнах, происхождении, эволюции и кризисе Власти не писалось столь ясно, откровенно и убедительно. Как и в полюбившихся (   Читать дальше...   )Жанр: ПублицистикаИздательство: Аудиокнига своими рукамиПродолжительность: 07:54:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B8E55E73C3ABC215830046F8DB64F22B23BA63D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507764   (24316) от 18.03.2025
-
-Олесь Бузина | Революция на болоте (2020) [MP3, Лунный ДЕВ] [Сборник]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Режиссёры те же. Украина 2014- это продолжение событий 90-х в России. Только сценарий уже другой. Сталкивание лбами одного народа при помощи марионеток и националистов. Теперь уже не по политическому, а по языковому признаку....
-Книга Олеся Бузины высмеивает мифы Оранжевой революции. В сборник вошли знаменитые рассказы «Крейсер «Жовто-синя Україна», «Оборотни в вышиванках» (   Читать дальше...   )Жанр: ПублицистикаИздательство: Аудиокнига своими рукамиПродолжительность: 07:02:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:698EE351214CDA8E1A0E67162E852A717231358B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507513   (24307) от 18.03.2025
-
-Олесь Бузина | Истории от Олеся Бузины (2021) [MP3, Лунный ДЕВ] [Сборник]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24307.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Истории от Олеся Бузины", печатавшихся в киевской газете "Сегодня", в частности, о террористической деятельности нацистов из ОУН в предвоенный период, ее сотрудничестве со спецслужбами нацистской Германии, расколе в ОУНовском руководстве и ее главарях: Бандере, Шухевиче, Яром и других вопросах истории.Жанр: История, ПрозаИздательство: Аудиокнига своими рукамиПродолжительность: 01:18:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBE78F648AA33AEAB47EBC0C9D4B66B9D4E80D37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786009   (24280) от 18.03.2025
-
-Уинстон Черчилль | Вторая мировая война (Книги 1-3) (2023) [MP3, Александр  Харитонов]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание представляет собой 6-томник в 3 книгах.
-В первой книге публикуются в сокращенном переводе с английского I и II тома шеститомного издания мемуаров бывшего премьер-министра Великобритании.
-В книге описываются важнейшие события с 1919 года по декабрь 1940 года, автор приводит малоизвестные исторические факты, характеристики видных государственных и военных деятелей, (   Читать дальше...   )Жанр: История, мемуарыИздательство: Аудиокнига своими рукамиПродолжительность: 97:23:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01E02AA31B6A2452A7877BD8E0588136718FDFB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789844   (22261) от 06.04.2025
-
-Майкл Поллан | Дилемма всеядного. Шокирующее исследование рациона современного человека (2017) [MP3, Индра Лоуренс]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы когда-нибудь задумывались о том, как еда попадает на наш стол? Вы купили продукты в супермаркете или на фермерском рынке? А может быть, вы сами вырастили помидоры или привезли гуся с удачной охоты? Или заказали бургер в ближайшем ресторане фастфуда? У любого блюда есть своя история, и, прежде чем стать почетным гостем на нашем ужине, оно переживает свою историю. (   Читать дальше...   )Жанр: ПублицистикаИздательство: Аудиокнига своими рукамиПродолжительность: 18:14:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:329E735C54BC3C96200A1BE8BCBA59EB961AB01F
 ```
 
 https://mybot314.ru/tekegram_catalog/

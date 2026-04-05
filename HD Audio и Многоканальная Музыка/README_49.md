@@ -1,32 +1,3 @@
-###  Публикация: 1625184   (241666) от 10.04.2023
-
-The Buggles - The Age Of Plastic (1980)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241666.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-
-1 Living In The Plastic Age 5:12
-2 Video Killed The Radio Star 4:08(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:36:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA844F0F87A5271B2A70BF0F697A865BDC188928
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625441   (241189) от 10.04.2023
 
 Secret Service - Jupiter Sign (1984)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Synth-pop>
@@ -35,7 +6,7 @@ Secret Service - Jupiter Sign (1984)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241189.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ The Alan Parsons Project - I Robot (1977) (2022) [DSD 128|image+.cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241158.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Blood Sweat & Tears - Nuclear Blues (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241130.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Место Встречи Дискотека. Выпуск 4 (1988) [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241112.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241108.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ VA - Для Вас, Женщины! (1975 - 1989) Серия 13LP [FLAC 2.0|96/2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241081.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Orchestra Caravelli - Оркестр Каравелли (1985) [FLAC 2.0|96/24|i
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240900.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240885.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ VA - Пулсиращи Ноти 1 (1984) [APE 2.0 24/96|image+.cue (Vinyl-Rip)]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240263.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ VA - Девочка Моя Синеглазая - Песни В. Дорохин�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240202.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ DIO - Легенды Зарубежного Рока (2001) Compilation, Unoffic
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240023.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Thomas Anders - Whispers (1991) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-p
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239963.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Yello - Stella (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239947.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ VA - Русская Балалайка (1968) [FLAC 1.0|96/24|image+.cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239937.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Heretic - Studio Albums (4 releases) (1986-2017) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239913.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239834.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Thunder - Studio Albums (15 releases) (1990 - 2022) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239802.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239608.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Yello - One Second (1987) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239544.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Tom Jones - Tom Jones Sings She's A Lady (1971) [FLAC 2.0|96/24|image+.cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239353.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Fishbone - Fishbone (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Reggae>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239216.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ Beseech - Studio Albums (6 releases) (1998-2016) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238977.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Europe - Дискография (14 albums) (1983-2017) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238954.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ Kraftwerk - Computerwelt (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-p
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238933.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238862.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81AE1EECB178B2C91858083605D08BE16C8DEBA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628145   (238861) от 22.04.2023
+
+Оркестр Поля Мориа (Paul Mauriat) - Под музыку Вивальди (1980) Мелодия [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+
+1. Под музыку Вивальди · Sur Un Air Du Vivaldi 3:02
+2. Pulstar 3:29(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 00:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B19C1FCFBBC3002FDEF648B93FA5516B968A9E22
 ```
 
 https://mybot314.ru/tekegram_catalog/

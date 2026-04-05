@@ -6,7 +6,7 @@ Duplicate Manager Pro 1.3.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238323.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ TunesKit Screen Recorder 1.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238319.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ TunesKit AceMovi Video Editor 4.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238294.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ System Toolkit 5.14 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238272.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ MacDroid Pro 1.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238269.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ ON1 HDR 2021 v15.1.0.10035 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238250.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ HitPaw Watermark Remover for Mac 2.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_238249.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Wondershare Recoverit 10.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238211.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ ON1 Effects 2021.1 v15.1.0.10035 CR2 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238195.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ SideNotes 1.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238188.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Pixelmator Pro 2.4.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238185.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_238170.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ EdgeView 4.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238162.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ FSNotes 6.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238158.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ SnapMotion Unlimited 5.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238155.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ AnyDroid 7 v7.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238150.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ MetaImage  2.5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238147.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ File List Export 2.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238134.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Geekbench 5 v5.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238128.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ RAR Extractor Max-Unzip Winrar 9.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238118.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Integrity Plus 10.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238113.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ GroupsPro 5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238104.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Disk Xray 4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238099.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ FSNotes 6.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238083.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ DirEqual 5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238076.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Scrutiny 10 v10.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238073.jpg" />
 </div>
 
 

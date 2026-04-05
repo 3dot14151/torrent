@@ -6,7 +6,7 @@ Kaze ga Tsuyoku Fuite Iru | Run with the Wind | Почувствуй ветер 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648272.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648046.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Boku no Hero Academia / My Hero Academia / Моя геройская акаде�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647260.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Bishoujo Senshi Sera Mun Kurisutaru Season III / Прекрасная воите
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647258.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Sansha Sanyou / Трилистник [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645436.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Mahou Shoujo Tokushusen Asuka | Magical Girl Spec-Ops Asuka | Девочки-в�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644457.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Girly Air Force | Девичьи воздушные силы [2019, TV, 12 эп.
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644448.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Domestic na Kanojo | Domestic Girlfriend | Домашняя девушка | Д�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644441.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Boogiepop wa Warawanai | Boogiepop and Others | Бугипоп никогда н
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644314.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Lupin the Third: Mine Fujiko to Iu Onna / Lupin the Third: The Woman Called Fuji
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_643045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_643045.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Gyakuten Saiban: Sono "Shinjitsu", Igi Ari! Season 2 | Первоклассны�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642529.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Bermuda Triangle: Colorful Pastorale | Разноцветная пасторал
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640771.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Fukigen na Mononokean: Tsuzuki | The Morose Mononokean II | Обитель мр�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640631.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640520.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Shingeki no Kyojin: The Final Season | Атака титанов [ТВ-4] [2020,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640365.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Ultraman | Ультрамен [2019, ONA, 13 эп.] WebRip 720p HEVC 10bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638828.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Grimms Notes The Animation / Заметки Гримм [2019, TV, 12] HDTV 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638820.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Endro! / Эндро! [2019, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638819.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Date a Live III / Рандеву с Жизнью 3 [2019, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638818.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Kaguya-sama wa Kokurasetai: Tensai-tachi no Ren`ai Zunousen / Kaguya-sama: Love 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638719.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Sword Art Online: Alicization / Мастера меча онлайн: Алиси
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638705.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Hakozume: Kouban Joshi no Gyakushuu | Police in a Pod | Девушки-поли�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638496.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Vanitas no Karte | The Case Study of Vanitas | Мемуары Ванитаса [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638488.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Onigiri / Онигири [2016, TV, 13 из 13] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638136.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Sidonia no Kishi | Knights of Sidonia | Рыцари Сидонии [TV-1][2014,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637961.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Wagamama High Spec [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637940.jpg" />
 </div>
 
 

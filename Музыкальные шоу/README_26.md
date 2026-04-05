@@ -6,7 +6,7 @@
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320972.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318654.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316783.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316401.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316264.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314720.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313992.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313643.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312739.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312702.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312467.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312461.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312194.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311914.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311735.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311731.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311379.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311373.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310438.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310066.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309632.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309447.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309067.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308882.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308729.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308718.jpg" />
 </div>
 
 

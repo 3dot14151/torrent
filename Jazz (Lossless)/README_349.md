@@ -6,7 +6,7 @@ John Graas & Art Pepper - Complete Small Group Sessions (1951 - 1958) 2CD, 2017,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69850.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Very Tall Band - What's Up? (1998) 2007, Telarc Jazz [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69845.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Joey DeFrancesco - Finger Poppin' (2009) Doodlin' Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69844.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Jazzy Chill Vibes (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69841.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Mondo Groove (The New Italian Funky Scene) (2025) [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69837.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Chill Jazz Classics (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69835.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Italian Dining Jazz (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69828.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Art Pepper & Zoot Sims All Stars - Art & Zoot (1981) 1991, West Wind [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69825.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Bill Evans - In Norway: The Kongsberg Concert (1970) 2024, Elemental Music [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69822.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Oscar Peterson Trio - The Complete Tokyo Concert (1964) 2CD, 2008, Jazz Lips [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69820.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Art Pepper & George Cables - Tete-A-Tete (1982) 1995, Original Jazz Classics [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69798.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Les McCann - Never A Dull Moment! (1966, 1967) 3CD, 2023, Resonance Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69797.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Sonny Rollins - On The Outside (1962, 1963) 1991, Bluebird [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69796.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ The John Graas Project - Jazz Studio 1/2 Complete Sessions (1953, 1954) 2004, Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69795.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ The Syd Lawrence Orchestra - Big Band Swing (1984) Philips [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69794.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Art Pepper - Living Legend (1975) 2006, Victor [FLAC|Lossless|tracks + .cue] <Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69673.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Bud Powell - At The Blue Note Cafe, Paris (1961) 1990, Magic Music [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69672.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Art Pepper - Among Friends (1978) 1988, Discovery Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69671.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Bud Powell - Live at the Blue Note Cafe, Paris (1961) 2007, ESP-Disk' [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69670.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Houston Person & Ron Carter - Remember Love (2018) HighNote Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69666.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Bud Powell - The Bud Powell Trio Plays (1947, 1953) 1990, Roulette Jazz [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69606.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Sun Ra - Lights On A Satellite: Live At The Left Bank (1978) 2CD, 2024, Resonanc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69605.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Art Pepper - So In Love (1979) 2004, Analogue [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69604.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Max Roach & Dizzy Gillespie - Max + Dizzy: Paris (1989) 2CD, 1990, A&M Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69603.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Sadao Watanabe - A Night With Strings (1993) Elektra [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69594.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Kenny Burrell - Four Classic Albums (1957 - 1959) 2CD, 2023, Avid Jazz [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69575.jpg" />
 </div>
 
 

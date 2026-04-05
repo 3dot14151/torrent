@@ -1,3 +1,32 @@
+###  Публикация: 1261205   (305582) от 10.11.2018
+
+Ace of Cups - Ace of Cups (2018) [MP3|320 Kbps] <Hard Rock, Classic Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction: There's a Record Being Made
+02. Feel Good
+03. Pretty Boy
+04. Fantasy 1 & 4(   Читать дальше...   )Жанр: Hard Rock, Classic Rock, Psychedelic RockПродолжительность: 01:28:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C89BE27F5F6267F215C04BB2DA8CA4A965556C7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261182   (305572) от 10.11.2018
 
 Cannon - 5 Albums (1988-2016) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard'n'Heavy>
@@ -6,7 +35,7 @@ Cannon - 5 Albums (1988-2016) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard'n'
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305572.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Metamorphosis - After All These Years (2002) [FLAC|image+.cue]<Neo-Progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305565.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Game Over - Claiming Supremacy (2017) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305546.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305458.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Chris Isaak - First Comes the Night (2015) Deluxe Edition [FLAC|tracks + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305442.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Primal Fear - Best of Fear (2017) 2CD [MP3|320 Kbps] <Heavy Metal, Speed Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305422.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305391.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ The Firm - 2 альбома (1985 - 1986) Дискография [FLAC|Lossless]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_305355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_305355.jpg" />
 </div>
 
 
@@ -244,7 +273,7 @@ Larkin Poe - Venom & Faith (2018) [MP3|320 Kbps] <Alternative, Indie Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305318.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ Roger Waters - The Wall (2015) [FLAC|tracks + .cue] 2CD Live <Progressive Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305309.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ Deep Purple - The Collection (1997) [FLAC|Lossless]<Hard Rock, Classic Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305289.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ Airbourne - Boneshaker (2019) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305268.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ Lindemann - Ich weiß es nicht (2019) Single [FLAC|Lossless|Web-DL|tracks] <Indu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305267.jpg" />
 </div>
 
 
@@ -387,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305196.jpg" />
 </div>
 
 
@@ -416,7 +445,7 @@ Fish (ex-Marillion) - Vigil In A Wilderness Of Mirrors (1990) [FLAC|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305156.jpg" />
 </div>
 
 
@@ -445,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305127.jpg" />
 </div>
 
 
@@ -474,7 +503,7 @@ Monomad - The Art of the Broken Mind (2016) [MP3|320 Kbps] <Avant-Garde, Thrash,
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305103.jpg" />
 </div>
 
 
@@ -503,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304985.jpg" />
 </div>
 
 
@@ -532,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304977.jpg" />
 </div>
 
 
@@ -561,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304966.jpg" />
 </div>
 
 
@@ -590,7 +619,7 @@ Roth Brock Project - Roth Brock Project (2016) [FLAC|lossless|image + .cue] <Mel
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304829.jpg" />
 </div>
 
 
@@ -619,7 +648,7 @@ Napalm Death - The Best of Napalm Death (2016) [MP3|320 Kbps] <Grindcore, Death 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304826.jpg" />
 </div>
 
 
@@ -648,7 +677,7 @@ Black Pistol Fire - Black Pistol Fire (2011) [MP3|320 Kbps] <Alternative Rock, I
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304640.jpg" />
 </div>
 
 
@@ -677,7 +706,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304637.jpg" />
 </div>
 
 
@@ -706,7 +735,7 @@ Black Pistol Fire - Don't Wake the Riot (2016) [MP3|320 Kbps] <Alternative, Blue
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304635.jpg" />
 </div>
 
 
@@ -720,35 +749,6 @@ Black Pistol Fire - Don't Wake the Riot (2016) [MP3|320 Kbps] <Alternative, Blue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F0ED174293767C475CAAD62E26A437BC22A4A28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333319   (304572) от 24.10.2019
-
-Dire Straits - New Collection (2008) Compilation, Unofficial Release [FLAC|Lossless|image + .cue] <Rock, Blues Rock, World>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Calling Elvis[6:27]
- 02 - On Every Street[5:05]
- 03 - You And Your Friend[5:59]
- 04 - Setting Me Up[3:20](   Читать дальше...   )Жанр: Rock, Blues Rock, WorldПродолжительность: 01:19:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43606C8290CDDB9FD8961ED5C83852D10A9CEE87
 ```
 
 https://mybot314.ru/tekegram_catalog/

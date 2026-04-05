@@ -1,3 +1,55 @@
+###  Публикация: 1585320   (246737) от 26.07.2023
+
+The Valiant (2022) [Ru/Multi] (1.5c) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246737.jpg" />
+</div>
+
+
+###  Подробнее
+
+В The Valiant вы перенесетесь в XIII век и с горсткой соратников отправитесь в поход сквозь всю Европу. Ведите своих рыцарей в бой и прокачивайте их навыки в этой тактической RTS. Пройдите эпическую кампанию и сражайтесь по сети против общего врага или друг с другом.Тип издания: LicenseРазработчик: Kite GamesЖанр: Ролевые игры, СтратегииЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3AC56B805E6485C529650BB7FE61A4C622E77A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492086   (246580) от 04.05.2012
+
+Challenge of the Five Realms (RePack) [En] 1992 | Pilotus
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_246580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в фэнтезийном мире, ваш герой – принц, правитель государства под названием Алония, задачей которого является победа над страшным злодеем Гримнотом, наславшим на его земли Тёмную Чуму, истребляющую жителей, для чего нужно собрать пять Сфер (к сожалению, сюжет в игре нельзя назвать действительно проработанным). Одним словом, перед нами очередной пример чудовищно недооценённой по неизвестным причинам ролевой игры, которая наверняка способна доставить любому поклоннику старых ролевых игр много-много радости.Тип издания: RePackЖанр: Ролевая играЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541995   (243869) от 05.04.2022
 
 The Swindle (2015) [En] (1.061) License GOG
@@ -6,7 +58,7 @@ The Swindle (2015) [En] (1.061) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243869.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Eldest Souls (2021) [Ru/Multi] (1.1.23f2-master) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237068.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Legend of Grimrock 2 (2014) [En] (2.2.4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234642.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Birthright: The Gorgon's Alliance / Право на Жизнь: Союз Гор�
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233451.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Birthright: The Gorgon's Alliance / Страна Героев (1997) [Ru] (1.3) 
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233314.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Kung Fu Grand King (2022) [Multi] (2/dlc) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233091.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Darkest Dungeon II (2023) [Ru/Multi] (2.04.80648/dlc) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230618.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Ishar Trilogy (1990-1994) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230422.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Forspoken (2023) [Ru/Multi] (1.21/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229641.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Forspoken (2023) [Ru/Multi] (1.21/dlc) Repack DjDI [Digital Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229622.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Dark Messiah of Might and Magic (2006) [Ru/En] (1.02) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228082.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Lost Eidolons (2022) [Ru/Multi] (1.00.06.R293.8b7ed397/dlc) Repack DjDI [Digital
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227024.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Stirring Abyss (2020) [Ru/Multi] (1.06.01) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225798.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ The Last Oricru (2022) [Ru/Multi] (9708472) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224969.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Knights of Braveland (2023) [Ru/Multi] (1.1.4.50/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224434.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Eastward (2021) [Multi] (1.1.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223991.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Hard West 2 (2022) [Ru/Multi] (1.0.2.0.4192) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220990.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Pillars of Eternity II: Deadfire / Pillars of Eternity 2: Deadfire (2018) [Ru/Mu
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220284.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Queen's Wish 2: The Tormentor (2022) [En] (1.0.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219952.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Paranoia: Happiness is Mandatory (2019) [Ru/Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219032.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Assassin's Creed: Origins / Assassin's Creed: Истоки (2017) [Ru/Multi] (1.
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218938.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Edge of Space (2013) [En] (0.3.81E) Repack Табличка
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216902.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ Armored Xpress (2021) [En] (1.0.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216712.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ Dynasty Warriors 7: Xtreme Legends (2018) [En/Ja/Ch] (1.0) License CODEX [Defini
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216642.jpg" />
 </div>
 
 
@@ -619,58 +671,6 @@ Dynasty Warriors 7: Xtreme Legends (2018) [En/Ja/Ch] (1.0) License CODEX [Defini
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4725E8F6BAE65F169D0C332309527C39AE210DBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227451   (216612) от 16.12.2018
-
-Pillars of Eternity II: Deadfire / Pillars of Eternity 2: Deadfire (2018) [Ru/Multi] (3.1.1.0023/dlc) Repack R.G. Механики
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Преследуйте беглого бога на земле и по морю в сиквеле Pillars of Eternity — ролевой игры, заслужившей высокую оценку критиков. Отправьте свой корабль в опасную экспедицию через огромный неизученный архипелаг Дэдфайр. Подчините мир своей воле — исследуйте массу безграничных возможностей, включая детальную персонализацию героя, полную свободу в исследовании мира и (   Читать дальше...   )Тип издания: RepackРазработчик: Obsidian EntertainmentЖанр: Ролевая игра, Приключение, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AD9CA67A2322B4F3202C2E0DBC1722D1B765F45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514350   (216513) от 03.12.2021
-
-Griftlands (2021) [Ru/Multi] (484799) License PLAZA
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Технологии в упадке, а остатками былого прогресса торгует клан Электробаронов, то и дело кусаясь за власть с религиозным культом почитателей Хеша. И те, и другие не стесняются прибегать к использованию рабского труда. Рабы и пролетариат категорически не согласны мириться с таким положением дел и готовятся устроить проклятым капиталистам Красный Октябрь. В этом пытается (   Читать дальше...   )Тип издания: LicenseРазработчик: Klei EntertainmentЖанр: Сюжетная RPG, Карточный рогаликЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B644A753B30CD40DD3495BCA9DAD29B67E6A9CAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

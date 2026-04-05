@@ -1,3 +1,55 @@
+###  Публикация: 965466   (225000) от 14.12.2015
+
+Убийца / The Assassin (2015) HDRip [H.264]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225000.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 9 веке, в Китае, изгнаная убийца (Шу Ци) должна выбрать между любовью и долгом когда она получает приказ убить мужчину (Чэнь Чан) из её прошлого.Производство: Тайвань, Китай, Гонконг, ФранцияЖанр: Драма, БоевикРежиссер: Хоу СяосяньАктеры: Шу Ци, Чэнь Чан, Сатоси Цумабуки, Юнь Чжоу, Никки Синь-Ин Се, Этан Жуань, Ни ДахонПеревод: Двуголосый закадровый, любительский (озвучивание Ворон и Wenlana)Язык субтитров: РусскийПродолжительность: 01:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8470F032EE0AC4DC07224071C80204AF4D0634A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650976   (224050) от 04.08.2023
+
+Стальное пианино / Gang de qin / The Piano in a Factory (2010) WEB-DLRip [H.264]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224050.jpg" />
+</div>
+
+
+###  Подробнее
+
+В прошлом рабочий сталелитейного завода Чэнь страстно любит музыку и играет на аккордеоне в местном ансамбле. Неожиданно, после долгих лет отсутствия, появляется жена Чэня и требует развода и единоличной опеки над их дочерью. Чэнь в затруднении: он не возражает против развода с женщиной, которая стала ему чужой, но не может перенести расставания с дочерью. Чэнь тяжело (   Читать дальше...   )Производство: Китай / Dalian Hung Yuan Film & TV, Etoile Pictures, Ляонинская киностудия, Perfect World (Beijing) Pictures Co.Жанр: драма, комедияРежиссер: Чжан Мэн, Гао БоАктеры: Ван Цяньюань, Yongzhen Guo, Чан Щин-ён, Лю Цянь, Qian Liu, Лю Синъюй, Er-yang Luo, Цинь Хайлу, Тянь Юй, Yue WangПеревод: Двуголосый профессиональный (Кукльтура)Язык озвучки: русский, китайскийСубтитры: русские, китайскиеПродолжительность: 01:41:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E5A6163C57DDB686E024B158853482ADA08F9A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1651032   (223873) от 04.08.2023
 
 Малышка на драйве / Спецдоставка / Teuksong / Special Delivery (2022) BDRip [H264]
@@ -6,7 +58,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223873.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223655.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223222.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222683.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222677.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222473.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221819.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221322.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221187.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_220958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_220958.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220587.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220557.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220410.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220141.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219237.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218986.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216772.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216299.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215549.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214511.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214286.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213202.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213088.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213085.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDD4E5B70A82C900596643AA22E24CBA28ABE1CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559437   (213080) от 25.06.2022
-
-Городские легенды. Возвращение / Seoul goedam / Seoulgoedam / Urban Myths (2022) WEB-DLRip [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несколько страшных историй, которые происходят с жителями Сеула. Истории и городские легенды окружают нас повсюду, будь то шум между этажами, странная поддержанная мебель или жуткие манекены.Производство: Южная Корея, Megabox Plus M, ZanybrosЖанр: Ужасы, фэнтезиРежиссер: Хон Вон ЧханАктеры: Ким До Юн, Чон Вон Чхан, Ли Хо Вон, Бон Джэ Хён, Со Джи Су, Чжу Хак Нён, Ли Су Мин, Ли Ёль Ым, Ли Ён Джин, Алекса, Чхве Йе Вон, Ли Мин Хёк, Сола, Экси, ШонуПеревод: Двуголосый любительский (АрхиAsia)Субтитры: Русские (forced, full)Продолжительность: 02:03:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60018F2C9E5679ABB634F8813A7AE227F1DF7B72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560973   (212903) от 02.07.2022
-
-Криминальный город / Beomjoi dosi / Beomjoidosi / The Outlaws (2017) BDRip [H.264]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212903.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2004 году в китайском квартале Сеула, печально известном высоким уровнем преступности, объявляются три особо борзых мигранта-коллектора и вместо того? чтобы по старинке изымать деньги у должников, сразу убивают главу одной из преступных группировок. Свято место пусто не бывает, и вот уже предводитель троицы Цзян Чэнь руководит этой бандой и пытается отжать бизнес (   Читать дальше...   )Производство: Южная Корея, BA Entertainment, Hong FilmЖанр: боевик, криминал, триллерРежиссер: Юн Сон КанАктеры: Ма Дон-сок, Юн Ге-сан, Чо Джэ-юн, Чхве Гви-хва, Хён Чжун Им, Чин Сон-гю, Хон Ги-джун, Хо Дон-вон, Сон Ха-джун, Ким Сон-гюПеревод: дублированный (Lucky Production), любительский многоголосый (Batafurai team & SOUND-GROUP & Anidub), любительский двухголосый (GrееnPаy Studio; den904 & DeadSno  Перевод Сергей Константинов), авторский (Юрий Сербин)Продолжительность: 02:01:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77B5AE2276B21E98F775900FD37EC65BFED97FBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

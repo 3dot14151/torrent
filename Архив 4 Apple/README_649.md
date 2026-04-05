@@ -6,7 +6,7 @@ Allegorithmic Substance Painter 2019.3.1 (build 3547) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146115.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Elmedia Player Pro 7.8 (build 1897) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146088.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Folx Pro 5 v5.14 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146053.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ ATOM RPG: Post-apocalyptic indie game v1.11 (2019) [Multi/Ru] [macOS Native game
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146030.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ MarsEdit 4 v4.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145959.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ SmallCubed MailSuite 1.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145913.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ FabFilter Total Bundle 2019.03.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145869.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Topaz Video AI for Mac 4.0.5 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145845.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ BBEdit 14.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145827.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145775.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Cocktail Monterey Edition 15.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145689.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Easy Data Transform 1.23.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145652.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Parallels Desktop for Mac Business Edition 15.1.2 + Toolbox 3.7.0  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145578.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ SimpleMind Pro 1.30.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145544.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ DxO OpticsPro for Photos 1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145520.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Movavi Video Editor 15 Business 15.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145517.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ PDF Reader Pro 3.0.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145482.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ RapidWeaver 6.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145392.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ The Unarchiver - Unzip RAR ZIP 3.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145383.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Downie 3 v3.9.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145283.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Vezér 1.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145269.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ iNet Network Scanner 2.6.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145241.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Navicat Premium 15.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145141.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ AI War 2  v1.023 (2019) [En] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144977.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144966.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ TG Pro (Temperature Gauge Pro) 2.36 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144943.jpg" />
 </div>
 
 

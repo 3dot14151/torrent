@@ -6,7 +6,7 @@ Streets of Rogue (2019) [Ru/Multi] (99i2/dlc) License GOG (обновляема�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6873.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Drill Core (2025) [Ru/Multi] (1.210.20.8.24.cadc052/dlc) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6700.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Bioweaver (2024) [Ru/Multi] (2.0.8b) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6570.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Firehawk FPV: Drone Warfare Simulator (2025) [Ru/Multi] (build 19708406) Repack 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6213.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Touhou Danmaku Kagura: Phantasia Lost (2024) [Multi] (1.10.1/dlc) Scene Tenoke [
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6188.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Lost Twins II (2) (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6183.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Poly Bridge 3 (2023) [Ru/Multi] (1.5.7) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6170.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Firehawk FPV: Drone Warfare Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5740.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Goat Simulator 3 (2022) [Ru/Multi] (1.1.4.3_410056/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5697.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5601.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Miraculous - Paris Under Siege (2024) [Ru/Multi] (1.0) Repack Yaroslav98
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5551.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Haste: Broken Worlds (2025) [Ru/Multi] (1.6.a) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5444.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Get To Work (2024) [Multi] (1.1.1.6) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5365.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Get To Work (2024) [Multi] (1.1.1.6) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5358.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Hotline Miami 2: Wrong Number (2015) [Ru/Multi] (07.12.2017) Repack Wanterlude
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5208.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Wicked West (2025) [En] (1.0) Scene TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5197.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Miraculous: Rise of the Sphinx (2022) [Ru/Multi] (Build 10128456) Repack Yarosla
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5185.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Hotline Miami (2012) [Ru/Multi] (gog-8(a)) Repack Wanterlude
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5180.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ The Riftbreaker (2021) [Ru/Multi] (2.0/dlc) Repack FitGirl [Complete Pack]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5156.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Empty Shell (2023) [Ru/Multi] (1.6i) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4727.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ BlazBlue Entropy Effect (2024) [Ru/Multi] (1.0.7.123249.0/dlc) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4599.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Re:Fresh (2023) [Multi] (1.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4540.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Vault of the Void (2022) [Ru/Multi] (2.6.55.0/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4497.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Human: Fall Flat (2016) [Ru/Multi] (1093513) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4221.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Fallen City Brawl (2025) [En] (1.05) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3634.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Achilles: Survivor (2025) [Ru/Multi] (1.2.9988/dlc) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3282.jpg" />
 </div>
 
 

@@ -1,3 +1,261 @@
+###  Публикация: 1481763   (1007975) от 05.07.2021
+
+Футбол. Чемпионат Европы 2020. Плей-офф. 1/4 Финала. Украина — Англия (2021) HDTV [H.264/1080i]
+
+>>Спорт и активный отдых
+>>Футбол. Чемпионаты Европы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат Европы по футболу 2020 года.
+03 июля 2021, суббота. 22:00 МСК
+1/4 Финала. Украина — Англия
+Стадион: Олимпико (Рим, Италия), 11880 зрителей (16% при вместимости 72698)(   Читать дальше...   )Телекомпания: Первый канал HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:39:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AEBAE1BFEF07717FC5B4EC71FEBD4BEFC62CADC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482039   (1007850) от 06.07.2021
+
+Меру / Meru (2015) HDRip
+
+>>Спорт и активный отдых
+>>Экстрим
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007850.jpg" />
+</div>
+
+
+###  Подробнее
+
+В октябре 2008 года альпинисты Конрад Анкер (Conrad Anker), Джимми Чин (Jimmy Chin) и Ренан Озтюрк (Renan Ozturk) прибыли в Индию для восхождения на пик Меру (Meru Peak, 6.660 м) по знаменитому северо-восточному склону Meru Central (6630 м) по маршруту "Shark's Fin". Запланированная семидневная поездка превратились в тяжелую трехнедельную борьбу за вершину. (   Читать дальше...   )Производство: США, Индия, Universal Pictures, NetflixЖанр: документальный, спорт, приключения, экстримРежиссер: Джимми Чин, Элизабет Чай ВасархелиПеревод: Дублированный (Netflix)Субтитры: отсутствуютПродолжительность: 01:30:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D0AEFF9C3C627DDA026784C17ECD32EACD1DC27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482191   (1007719) от 07.07.2021
+
+Баскетбол. Евролига 2020-2021. Финал 4-х. 1/2 Финала. Барселона (Испания) — Олимпия Милан (Италия) (2021) WEB-DLRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Баскетбол, Волейбол, Гандбол
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Евролига 2020-2021. Финал 4-х. Кёльн (Германия)
+1/2 Финала
+Барселона (Барселона, Испания) — Олимпия Милан (Милан, Италия)
+Стадион: Ланксесс-Арена (Кёльн, Германия), вместимость: 20000(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:688415CB453BF9AED9462D9C04A3B4DB0A957223
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482145   (1007718) от 07.07.2021
+
+Футбол. Чемпионат Европы 2020. Плей-офф. 1/2 финала. Италия — Испания (2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Футбол. Чемпионаты Европы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007718.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат Европы по футболу 2020 года.
+06 июля 2021, вторник. 22:00 МСК
+1/2 финала. Италия — Испания
+Стадион: Уэмбли (Лондон, Англия), 57811 зрителей (64% при вместимости 90000)(   Читать дальше...   )Телекомпания: Россия 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:34:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3C5113121E534B429C083C39E412A002317CD55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482185   (1007714) от 07.07.2021
+
+Баскетбол. Евролига 2020-2021. Финал 4-х. 1/2 Финала. ЦСКА (Россия) — Анадолу Эфес (Турция) (2021) WEB-DLRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Баскетбол, Волейбол, Гандбол
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Евролига 2020-2021. Финал 4-х. Кёльн (Германия)
+1/2 Финала
+ЦСКА (Москва, Россия) — Анадолу Эфес (Стамбул, Турция)
+Стадион: Ланксесс-Арена (Кёльн, Германия), вместимость: 20000(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:46:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D351876132805FA1D18D2C95BE67823FBD461DB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482143   (1007710) от 07.07.2021
+
+Футбол. Чемпионат Европы 2020. Плей-офф. 1/2 финала. Италия — Испания (2021) HDTV [H.264/1080i]
+
+>>Спорт и активный отдых
+>>Футбол. Чемпионаты Европы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат Европы по футболу 2020 года.
+06 июля 2021, вторник. 22:00 МСК
+1/2 финала.
+Италия — Испания(   Читать дальше...   )Телекомпания: Россия 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:34:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C63117BA417D797FA731363F81EE00283120F79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482360   (1007578) от 08.07.2021
+
+Легкая атлетика. Бриллиантовая Лига 2021. 1 Этап. Гейтсхед (Великобритания). Гран-при Гейтсхед (2021) IPTV [H.264/1080i-LQ]
+
+>>Спорт и активный отдых
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бриллиaнтовая лига (Diamond League) — ежегодная серия коммерческих соревнований по лёгкой атлетике. Лига организована Международной ассоциацией легкоатлетических федераций (ИААФ).
+Этап 1. Гейтсхед (Великобритания)
+Женщины:
+Прыжки в высоту, Толкание ядра, Тройной прыжок.(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:54:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9757234114607F9220FC0184208130E78DAD50E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482492   (1007568) от 08.07.2021
+
+Спортивная гимнастика. Чемпионат Европы 2021. Базель (Швейцария). Женщины. Многоборье. Финал (2021) IPTV [H.264/1080i-LQ]
+
+>>Спорт и активный отдых
+>>Гимнастика, Бодибилдинг, Красота тела
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007568.jpg" />
+</div>
+
+
+###  Подробнее
+
+9-й Личный Чемпионат Европы по спортивной гимнастике среди мужчин и женщин 2021 года. Базель (Швейцария)
+Личное многоборье.
+Женщины. Финал
+Арена:  Санкт-Якоб Холл. Базель (Швейцария)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:58:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64D7EFA64A88DED17F61098C6C21D151B5329395
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482343   (1007561) от 08.07.2021
+
+Футбол. Чемпионат Европы 2020. 1/2 Финала. Англия - Дания (2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Футбол. Чемпионаты Европы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат Европы по футболу 2020 года. 1/2 Финала. Англия - Дания. 7 июля 2021, среда. 22:00 МСК
+СУДЬЯ Маккели Данни (Нидерланды)
+Судья на линии 1: Стеегстра Хессел (Нидерланды)
+Судья на линии 2: де Врис Ян (Нидерланды)(   Читать дальше...   )Телекомпания: Первый HDЖанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:32:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8EF3C6E4274A097CC01AE7303B04C747209510E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1482461   (1007530) от 08.07.2021
 
 НХЛ Кубок Стэнли 2020-2021. Финал. 5-й матч. Монреаль Канадиенс - Тампа-Бэй Лайтнинг (07.07.2021) WEB-DL [H.264/720p] [hand made 60fps] [EN]
@@ -6,7 +264,7 @@
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007530.jpg" />
 </div>
 
 
@@ -34,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007416.jpg" />
 </div>
 
 
@@ -63,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007407.jpg" />
 </div>
 
 
@@ -92,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007405.jpg" />
 </div>
 
 
@@ -121,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006985.jpg" />
 </div>
 
 
@@ -150,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006451.jpg" />
 </div>
 
 
@@ -177,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006335.jpg" />
 </div>
 
 
@@ -204,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006267.jpg" />
 </div>
 
 
@@ -230,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006127.jpg" />
 </div>
 
 
@@ -256,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Единоборства, Бои без правил
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006118.jpg" />
 </div>
 
 
@@ -282,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006075.jpg" />
 </div>
 
 
@@ -309,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005451.jpg" />
 </div>
 
 
@@ -335,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005315.jpg" />
 </div>
 
 
@@ -361,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005314.jpg" />
 </div>
 
 
@@ -387,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005311.jpg" />
 </div>
 
 
@@ -413,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005310.jpg" />
 </div>
 
 
@@ -439,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005308.jpg" />
 </div>
 
 
@@ -450,240 +708,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B362573BA0908DB2E5647D087A3D927840DBD005
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485658   (1005305) от 26.07.2021
-
-Чемпионат мира по шоссейно-кольцевым гонкам Формула Е. Сезон 2021. Этап 12-13. Великобритания. Квалификация 1,2, Гонка 1,2 (24-25.07.2021) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005305.jpg" />
-</div>
-
-
-###  Подробнее
-
-12-13 этап электрической формулы Formula E в Великобритания, Лондон.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Сергей Сухоруков)Субтитры: ОтсутствуютПродолжительность: 01:31:12 + 01:16:59 + 01:30:51 + 01:15:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:543B3122B6FF2C0DF2E00F3C15F2CAD63E36987A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485071   (1005302) от 26.07.2021
-
-Серия Кубков NASCAR 2021. Этап 22. Нью-Хэмпшир. Гонка / NASCAR Cup Series 2021. Jockey Foxwoods Resort Casino 301. New Hampshire Motor Speedway (2021) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Кубков Nascar 2021 года — 73 сезон американских профессиональных гонок сток-каров и 50 сезон кубка современной эры. Сезон стартует на международном треке Дайтона Интернейшнл Спидвей внезачетным этапом Busch Clash. 2021 год станет первым, когда гонка-открытие чемпионата пройдет на дорожной трассе. Следом пройдут две квалификационные гонки Bluegreen Vacations (   Читать дальше...   )Телекомпания: 36Racing / A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 02:47:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0985EF7CA3B6B83EEC245EBC3D207E6323A9460E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484635   (1005299) от 26.07.2021
-
-Бразильская автоспортивная серия гоночных грузовиков. Сезон 2021. Этап 3. Каскавел. Гонка 1-2 / Copa Truck-2021 (ex- Formula Truck). Cascavel (PR). Race 1-2 (17.07.2021) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005299.jpg" />
-</div>
-
-
-###  Подробнее
-
-Copa Truck — бразильская автоспортивная серия гоночных грузовиков, до 2017 года она называлась Formula Truck.Телекомпания: 36Racing / A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Степан Афонин)Субтитры: ОтсутствуютПродолжительность: 01:19:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19573C7A58A332AFA9144E4A0E44F1D925844955
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485392   (1005079) от 28.07.2021
-
-Смешанные единоборства. UFC on ESPN 27: Кори Сэндхаген – Ти Джей Диллашоу / UFC on ESPN 27: Sandhagen - Dillashaw. Prelims & Main Card (24.07.2021) IPTVRip [H.264/1080p-LQ]
-
->>Спорт и активный отдых
->>Единоборства, Бои без правил
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005079.jpg" />
-</div>
-
-
-###  Подробнее
-
-24 июля в Лас-Вегасе (Невада, США) на фирменной арене «UFC APEX» состоялся турнир UFC on ESPN 27. Главным событием которого стал бой в легчайшем весе между Кори Сэндхагеном и Ти Джей Диллашоу. Бывший чемпион, Диллашоу, возвращается в октагон после двухлетнего отстранения от USADA. Для поединка с Генри Сехудо, Ти Джей спустился в наилегчайший вес за титул в той же (   Читать дальше...   )Телекомпания: UFC ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 05:00:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCCF13C717472FF16614F5FFFCEBA434B3678A1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486403   (1004871) от 30.07.2021
-
-Чемпионат по дрэг-рейсингу NHRA 2021. 9 этап. Сонома / NHRA Drag Racing Championship 2021. Round 9. Sonoma (2021) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дрэг-рейсинг — гоночное соревнование, являющееся спринтерским заездом на дистанцию в 402 метра (1/4 мили). Реже проводятся заезды на 1/2 мили (~804 м), 1/8 мили (201 м) либо на мерную милю (1609 м). По сути драг-рейсинг является гонкой на ускорение, проводящейся на прямой трассе.Телекомпания: 36Racing / A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Сергей Сухоруков)Субтитры: ОтсутствуютПродолжительность: 02:17:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C28A7D548F47BB5DDA462B51B173A41DACA61C25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487210   (1004129) от 03.08.2021
-
-Чемпионат США по супербайку 2021. Этап 6. Брэйнард. Гонка 1-2 / MotoAmerica 2021. Rd. 6. Brainerd. Race 1-2 (2021) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004129.jpg" />
-</div>
-
-
-###  Подробнее
-
-MotoAmerica — это организация, которая продвигает серию AMA Superbike с 2015 года. С санкции Американской ассоциации мотоциклистов и Международной федерации мотоциклистов она предлагает пять классов шоссейных гонок: Superbike, Stock 1000, Supersport, Twins Cup и Junior Cup.Телекомпания: 36Racing / A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Сергей Сухоруков)Субтитры: ОтсутствуютПродолжительность: 01:17:08 + 01:04:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AB5B0FCEB91647AE57B42B950B14D11A6F1CF19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487200   (1004128) от 03.08.2021
-
-Национальное первенство Великобритании по супербайку 2021. Тракстон, Гонка 1-3 / British Superbike Championship. Thruxton, Race 1-3 (2021) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bennetts British Superbike Championship — ведущий чемпионат по шоссейным кольцевым мотогонкам в Великобритании, он также широко известен в мире, как ведущая серия гонок среди отечественных, английских супербайков.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Сергей Сухоруков)Субтитры: ОтсутствуютПродолжительность: 37:42 + 54:53 + 55:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F250F56DD4625937B8DE9BAEB61399CEADACBEF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487204   (1004127) от 03.08.2021
-
-Национальное первенство Великобритании по шоссейно-кольцевым автогонкам БТСС 2021. Оултон Парк, Гонка 1-3 / BTCC. Oulton Park, Race 1-3 (2021) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Великобритании по шоссейно-кольцевым гонкам среди легковых автомобилей (англ. British Touring Car Championship, BTCC) — это национальное туринговое автомобильное первенство, существующее с 1958 года. Серия базируется в Великобритании.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Степан Афонин)Субтитры: ОтсутствуютПродолжительность: 01:19:46 + 32:49 + 01:06:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12BD63C883E9FB497083D3687F5CE6B664EECF43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487192   (1004126) от 03.08.2021
-
-Женская формульная серия W. Сезон 2021. Этап 4. Венгрия. Квалификация, Гонка / W Series 2021. Rd. 4. Hungary. Quali, Race  (2021) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004126.jpg" />
-</div>
-
-
-###  Подробнее
-
-W Series была презентована публике 10 октября 2018 года. Она была создана в связи с отсутствием пилотесс, которые могут попасть на самую высокую ступень автоспортивного мира, особенно Формулу-1.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Сергей Сухоруков)Субтитры: ОтсутствуютПродолжительность: 01:28:21 + 04:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0A5E5E1808F4479132F33D2702F726D86149EE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

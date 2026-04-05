@@ -1,3 +1,29 @@
+###  Публикация: 619805   (932685) от 12.03.2013
+
+Crysis 3: Hunter Edition [Ru/Pl] (Origin-Rip/1.2.1.0) 2013 | R.G. Игроманы
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Crysis 3 продолжает знаменитую серию шутеров от Crytek. Действие игры разворачивается в 2047 году, а вам предстоит выступить в роли Пророка. Он возвращается в Нью-Йорк, где узнает о том, что город находится под куполом Nanodome, который был создан корпорацией C.E.L.L. Жителям сообщают, что Nanodome необходим для их защиты и очистки метрополисов от последних цефов, однако, на самом деле, его строительство является частью тайной операции по захвату технологий ради мирового господства. Надев усовершенствованный нанокостюм и вооружившись смертоносным луком и разрушительными инопланетными технологиями, Пророку предстоит помешать коварным планам C.E.L.L. и уничтожить оставшихся пришельцев. (   Читать дальше...   )Тип издания: Лицензия (Origin-Rip)Разработчик: CrytekЖанр: Action / ShooterЯзык озвучки: Русский, ПольскийЯзык субтитров: Русский, ПольскийЯзык интерфейса: Русский, Польский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 985626   (932049) от 13.02.2016
 
 Ученые обнаружили сотни новых галактик, скрывавшихся позади Млечного Пути
@@ -6,7 +32,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932049.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931802.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931577.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ Microsoft Office Picture Manager 2010 14.0.4750.1000 RePack by SPecialiST [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931571.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ Wolfenstein: The New Order (2014) [Ru/En] (1.0.0.2/upd1) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931569.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931568.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ Q4OS 1.8.2 (Легкий дистрибутив) [Trinity - форк KDE 3.5]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931477.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931472.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ Microsoft Windows x86 x64 Plus PE StartSoft 03-2017 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931469.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ Call of Duty (2004) [Ru] (1.5/dlc) Repack =nemos= [Gold edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931466.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930275.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930120.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930113.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929872.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929840.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929837.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ World of Warcraft (2004) [En] (1.12.1) Official
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929823.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ Adobe Illustrator CC 2017.0.2 21.0.2 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929821.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929660.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929590.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ Profileschool | Творческая Ретушь Vol.2 (2014) PCRec
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929578.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929567.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ Pinnacle Studio 16 Ultimate 16.1.0.115 VPP 2013 (58.2GB) [MULTi / Русский
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929518.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929334.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928560.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFFB3D0B8B9C6A9066DB9FA5DB26D5EE79C90CB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365636   (928558) от 08.03.2020
-
-Middle-earth: Shadow of War / Средиземье: Тени войны (2017) [Ru/Multi] (1.21/dlc) Repack xatab [Definitive Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Средиземье: Тени войны продолжает историю следопыта Талиона и призрака Келебримбора. Ныне им предстоит проникнуть в тыл вражеской армии и обратить силы Мордора против самого Темного Властелина. События игры продолжают сюжет первой главы серии и относятся к периоду времени между «Хоббитом» и «Властелином колец».Тип издания: RepackРазработчик: Monolith ProductionsЖанр: Action, RPG, 3D, 3st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE266603EBBB0B6B3DA215231706E76DB3A594A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,83 @@
+###  Публикация: 435100   (985201) от 11.01.2012
+
+Алексей Николаевич Толстой | Хождение по мукам (Книга 2). Восемнадцатый год (2008) [MP3, Иван Литвинов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985201.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алексей Николаевич Толстой (1882–1945) – русский советский писатель и общественный деятель, граф. Автор социально-психологических, исторических и научно-фантастических романов, повестей и рассказов, публицистических произведений.
+В стране, ослабленной мировой войной и февральской революцией, грянула еще одна революция – октябрьская. За ней пришла гражданская война. (   Читать дальше...   )Жанр: Русская литература, классика, романПродолжительность: 13:31:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63DDF728B195D66256EA7EE8EA66E5C86C9D8CBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 435099   (985013) от 11.01.2012
+
+Алексей Николаевич Толстой | Хождение по мукам (Книга 1). Сёстры (2008) [MP3, Иван Литвинов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алексей Николаевич Толстой (1882–1945) – русский советский писатель и общественный деятель, граф. Автор социально-психологических, исторических и научно-фантастических романов, повестей и рассказов, публицистических произведений.
+Первую часть своей знаменитой трилогии Алексей Николаевич Толстой написал в эмиграции. Он создал контрастную картину безоблачной и спокойной (   Читать дальше...   )Жанр: Русская литература, классика, романПродолжительность: 12:34:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77D8D8F6434A1043BBD862123FA5FD8AE6C4AA99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 165574   (981609) от 11.01.2010
+
+Уильям Шекспир | Ричард III [радиоспектакль] (2006) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981609.jpg" />
+</div>
+
+
+###  Подробнее
+
+В трагедии Вильяма Шекспира Ричард III изображен тираном, узурпатором королевской власти, убийцей собственных племянников, малолетних принцев Эдуарда (Эдуарда V) и Ричарда, сыновей Эдуарда IV. Тем не менее, именно Ричард, «ловкий и бессовестный», по мнению Шекспира, сможет вывести страну из хаоса. В его уста он вкладывает девиз: "Кулак - нам совесть, и закон (   Читать дальше...   )Жанр: ТрагедияПродолжительность: 02:13:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356201   (980487) от 29.01.2020
 
 Маргарет Митчелл | Унесенные ветром (2020) [MP3, Александр Клюквин]
@@ -6,7 +86,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980487.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979851.jpg" />
 </div>
 
 
@@ -59,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979557.jpg" />
 </div>
 
 
@@ -88,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975863.jpg" />
 </div>
 
 
@@ -114,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975022.jpg" />
 </div>
 
 
@@ -142,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974726.jpg" />
 </div>
 
 
@@ -168,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973723.jpg" />
 </div>
 
 
@@ -194,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973302.jpg" />
 </div>
 
 
@@ -221,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970972.jpg" />
 </div>
 
 
@@ -250,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970751.jpg" />
 </div>
 
 
@@ -276,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966661.jpg" />
 </div>
 
 
@@ -302,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965688.jpg" />
 </div>
 
 
@@ -329,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964643.jpg" />
 </div>
 
 
@@ -355,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963553.jpg" />
 </div>
 
 
@@ -381,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962406.jpg" />
 </div>
 
 
@@ -407,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956504.jpg" />
 </div>
 
 
@@ -433,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956099.jpg" />
 </div>
 
 
@@ -459,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953975.jpg" />
 </div>
 
 
@@ -486,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952229.jpg" />
 </div>
 
 
@@ -512,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951324.jpg" />
 </div>
 
 
@@ -540,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950382.jpg" />
 </div>
 
 
@@ -566,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947037.jpg" />
 </div>
 
 
@@ -592,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946427.jpg" />
 </div>
 
 
@@ -603,85 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D29787782B3816F5E1EC9E5F1D9065830321D149
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362910   (946388) от 25.02.2020
-
-Михаил Булгаков | Мастер и Маргарита (2003) [Радиоспектакль] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман «Мастер и Маргарита» – визитная карточка Михаила Афанасьевича Булгакова. Более десяти лет Булгаков работал над книгой, которая стала его романом-судьбой, романом-завещанием. В «Мастере и Маргарите» есть все: веселое озорство и щемящая печаль, романтическая любовь и колдовское наваждение, магическая тайна и безрассудная игра с нечистой силой. Этот роман стал (   Читать дальше...   )Жанр: МистикаЯзык озвучки: РусскийПродолжительность: 13:02:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C1EFC79AF7184F2E5A2E23470033098B96ACDF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983124   (945550) от 05.02.2016
-
-Мари Хермансон | Двойная жизнь (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945550.jpg" />
-</div>
-
-
-###  Подробнее
-
-У преуспевающей бизнес-леди Ивонн Герстранд появилось необычное увлечение: по вечерам она уезжала в пригород и гуляла по улочкам между коттеджами, подглядывая в окна за людьми. Вскоре она знала многое о каждой семье в этом поселке, и только жизнь обитателей дома номер 9 по улице Орхидей оставалась для Ивонн тайной. Случайно заметив объявление о том, что хозяину этого (   Читать дальше...   )Жанр: ТриллерПродолжительность: 07:24:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEBCE4D78823EAB524BC1D787343F506EDC64512
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983508   (943872) от 06.02.2016
-
-Леонид Леонов | Соть (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман «Соть» (1929) — одно из первых произведений советской литературы о героизме и творческом порыве свободного народа, поднимающего индустрию страны, о пафосе коллективного труда.
-В романе воссозданы яркие образы коммунистов — Ивана Увадьева, вожака и воспитателя масс, возглавившего на реке Соть строительство большого целлюлозного комбината, его соратников — Давида (   Читать дальше...   )Жанр: РоманПродолжительность: 11:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42B4378B4349BD70FC08F39D389A69D8C64A2ED7
 ```
 
 https://mybot314.ru/tekegram_catalog/

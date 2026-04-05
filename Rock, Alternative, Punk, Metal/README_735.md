@@ -1,3 +1,32 @@
+###  Публикация: 957948   (325802) от 19.11.2015
+
+Саша Самойленко & TOMAS band - Время-Весы (2015) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Одна звезда
+02. Время-Весы
+03. Над кукушкиным гнездом
+04. Брат(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7E30FB58E588A0ECA44880A9C95536B63EE48A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957511   (325791) от 19.11.2015
 
 Fish - Internal Exile (1991) [FLAC|image + .cue] <Symphonic Rock>
@@ -6,7 +35,7 @@ Fish - Internal Exile (1991) [FLAC|image + .cue] <Symphonic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325791.jpg" />
 </div>
 
 
@@ -37,7 +66,7 @@ Slade - Live In London (1975) Bootleg [MP3|192 кб/с]<Rock, Hard Rock, Glam Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325749.jpg" />
 </div>
 
 
@@ -66,7 +95,7 @@ Suzi Quatro - The Girl From Detroit City (2014) 4CD Box Set / Remastered [FLAC|i
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325673.jpg" />
 </div>
 
 
@@ -95,7 +124,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325647.jpg" />
 </div>
 
 
@@ -130,7 +159,7 @@ Obituary - Slowly We Rot - Live & Rotting (2022) [FLAC|Lossless|image + .cue] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325592.jpg" />
 </div>
 
 
@@ -159,7 +188,7 @@ Obituary - Cause Of Death - Live Infection (2022) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325591.jpg" />
 </div>
 
 
@@ -188,7 +217,7 @@ DPrize - 2 Albums (2021-2022) [MP3|320 Kbps] <Melodic Death, Black Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325589.jpg" />
 </div>
 
 
@@ -217,7 +246,7 @@ Bush - The Art Of Survival (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325588.jpg" />
 </div>
 
 
@@ -246,7 +275,7 @@ The Cult - Under The Midnight Sun (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325586.jpg" />
 </div>
 
 
@@ -275,7 +304,7 @@ Caravan - Better by Far (1977) Japanese Edition, Reissue, Remastered, 2022, Bell
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325585.jpg" />
 </div>
 
 
@@ -304,7 +333,7 @@ Ellefson-Soto - Vacation In The Underworld (2022) [FLAC 2.0|48/24|tracks|WEB-DL]
 >>Hard Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325581.jpg" />
 </div>
 
 
@@ -333,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325579.jpg" />
 </div>
 
 
@@ -362,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325578.jpg" />
 </div>
 
 
@@ -391,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325511.jpg" />
 </div>
 
 
@@ -420,7 +449,7 @@ Charlotte Wessels (Delain) - Tales From Six Feet Under (2021) [MP3|320 Kbps] <Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325510.jpg" />
 </div>
 
 
@@ -449,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325506.jpg" />
 </div>
 
 
@@ -478,7 +507,7 @@ Lamb Of God - Omens (2022) [FLAC 2.0|48/24|tracks|WEB-DL] <Groove Thrash Metal>
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325504.jpg" />
 </div>
 
 
@@ -507,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325498.jpg" />
 </div>
 
 
@@ -536,7 +565,7 @@ Caravan - Blind Dog At St. Dunstans (1976) Japanese Edition, Reissue, 2022, Bell
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325497.jpg" />
 </div>
 
 
@@ -565,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325494.jpg" />
 </div>
 
 
@@ -594,7 +623,7 @@ Bryan Ferry - Avonmore (2014) [FLAC|Lossless|WEB-DL]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325468.jpg" />
 </div>
 
 
@@ -623,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325455.jpg" />
 </div>
 
 
@@ -652,7 +681,7 @@ In This Moment - Black Widow (Best Buy Deluxe Edition) (2014) [FLAC|Lossless]<Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325380.jpg" />
 </div>
 
 
@@ -681,7 +710,7 @@ Chaosrising - 5 Relises (2015-2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325373.jpg" />
 </div>
 
 
@@ -710,7 +739,7 @@ Charlotte Wessels - Tales From Six Feet Under Vol. II (2022) [MP3|320 Kbps] <Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325371.jpg" />
 </div>
 
 
@@ -724,41 +753,6 @@ Charlotte Wessels - Tales From Six Feet Under Vol. II (2022) [MP3|320 Kbps] <Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57E7EEB0CC3687EEE185992858A19C15F7C1434F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 260503   (325238) от 26.11.2010
-
-Маврин - Моя свобода (2010) [FLAC|Lossless]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Рождение (1:14)
-02. Моё время (5:29)
-03. Моя свобода (10:17)
-04. Душа (5:55)
-05. Новый день (7:51)
-06. Моё небо (5:38)
-07. Падшая звезда (2:55)
-08. Final (2:08)
-09. Show time (3:46)
-10. Утоли мои печали (5:22)Жанр: Heavy MetalПродолжительность: 00:50:34
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

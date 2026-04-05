@@ -1,3 +1,61 @@
+###  Публикация: 1114279   (833608) от 14.03.2017
+
+Koan - Serenity: Side A. (2017) [MP3|320 Kbps] <Psychill, Downtempo, Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Before Fullmoon (Serenity Mix) (2:26)
+02. Ferryman (Serenity Mix) (7:05)
+03. Arousal (Serenity Mix) (6:09)
+04. Appearance (Serenity Mix) (5:35)(   Читать дальше...   )Жанр: Psychill, Downtempo, AmbientПродолжительность: 01:24:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF4E16061C77473CCC8F5FC25AC7364B16EDFD6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114267   (833604) от 14.03.2017
+
+VA - Myths & Legends (Mixed By SoundLift) (2012) [FLAC|Lossless|WEB|tracks|image] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SoundLift - Myths & Legends (Disc 1) (Continuous DJ Mix) (61:14)
+02. Sergio Pereira - Phoenix (Original Mix) (9:24)
+03. D&Z - Lovely (Original Mix) (6:48)
+04. Monkey Top Saloon - 5th Avenue (Original Mix) (7:30)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:50:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB8D3304A7FC3662ACB797B023330F04FA619FC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380575   (833307) от 03.05.2020
 
 VA - Aly & Fila - FSOE Top 20 April 2020 (2020) [FLAC|Lossless|WEB-DL|tracks] <Trance, Uplifting Trance>
@@ -6,7 +64,7 @@ VA - Aly & Fila - FSOE Top 20 April 2020 (2020) [FLAC|Lossless|WEB-DL|tracks] <T
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833307.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Progressive House Spring Essentails (2016) [MP3|320 кб/с] <House, Progre
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832839.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Psyrius - Sorry Pluto (2014) Uxmal Records [FLAC|Lossless|WEB-DL|tracks]<Ambient
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832756.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Lazy Sundays Vol 3 (2016) [MP3|320 кб/с] <Deep House, Chill House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832706.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Electro Nation (2017) [MP3|320 Kbps] <House, Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832157.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Nu Disco Super Hits 2017 (Volume 002) (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832155.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Hernan Cattaneo - Balance Presents Sudbeat (2017) [MP3|320 Kbps] <Deep Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832151.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Martin Graff & Eva Kade - Destiny (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832087.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Hygge Acoustic (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832086.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Islas Baleares: The Summer Opening Party 2017 (30 Deep House Anthems) (2017
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832085.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - My Italian Cafe Vol.3 (Selection Of Amazing Lounge & Chill Out Music) (2017
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832081.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Abora Chillout Best of 2016 (Mixed by Johannes Fischer & Ori Uplift) (2017)
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832080.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ DJ Feel - Top 30 Of February (2017) [MP3|320 Kbps] <Progressive Trance, Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832079.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Didier Marouani & Space - Back to The Future (2008) [FLAC|Lossless]<Electronic>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831876.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Korablove - Sociopath's Diary (2011) [MP3|320 kbps]<Tech House, Minimal, Ambient
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831820.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Cathode Ray Tube - Invisible Soundtracks (2018) M-tronic [FLAC|Lossless|WEB-DL|t
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831668.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - SUB-07 To SUB-11 - The A-Sides (2009) Drone Records [FLAC|Lossless|tracks+.
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831579.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Summer Deephouse Megamix 2020 (2020) [MP3|320 Kbps] <House, Deep House, Clu
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831363.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Phillip Sollmann | Efdemin - Discography 24 Releases (2005-2019) Curle Recording
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831228.jpg" />
 </div>
 
 
@@ -555,7 +613,7 @@ VA - Love Ibiza & House Music (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Deep Hous
 >>Trance, House, Techno (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831210.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ JIN SHI - My Digital Madness (2013) [MP3|320 кб/с] <Deep House, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831065.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ Giuseppe Ottaviani (aKa Nu NRG) - 6 Альбомов, 4 Компиляции (20
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830981.jpg" />
 </div>
 
 
@@ -645,7 +703,7 @@ Label Pack - Pure Trance Recordings - 66 Releases (2014 - 2017) [MP3|320 Kbps] <
 >>Label-Packs
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830971.jpg" />
 </div>
 
 
@@ -671,7 +729,7 @@ Tiga - No Fantasy Required (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Tec
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830915.jpg" />
 </div>
 
 
@@ -685,64 +743,6 @@ Tiga - No Fantasy Required (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Tec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:796482E85EF7F987633E192AC214568577C0506C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114869   (830167) от 16.03.2017
-
-VA - Chill out Republic (20 Fresh Electronic Tunes) Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Deepland - Pils (Original Mix)  4:52
-02.  Lord Of Beat - Trip To Mars (Original Mix)  4:31
-03.  Niji Liquidium - Modern Times (Original Mix)  5:08
-04.  Cephalonya - Looking Back (Original Mix)  6:08(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9567F22B4AE1CAA289ED19505C90267BB8C2B70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114905   (830165) от 16.03.2017
-
-VA - Chilled Beach Vol.2 (No Hectic Just Chill) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bes & Meret - Morgenstund  3:01
-02.  Der Dienstleister - Crusty  6:18
-03.  Christos Fourkis - Come In My Life (Bes & Meret Remix)  4:10
-04.  Bildertal - Lost In Bloom  8:28(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:21:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8125125D164F56984DF3AA349BC4AA3A8DFEEC1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

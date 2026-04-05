@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249640.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Textra SMS v4.61 Pro [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249513.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ GreenNet: Hotspot VPN Proxy v1.5.39 b103 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249506.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Telegram for Android 9.5.4 (3227) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249464.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248353.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Gradient v2.9.65 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247606.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Smart AudioBook Player Pro v9.9.4 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247363.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246975.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246962.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_246592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_246592.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ AIDA64 1.91 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245845.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Revo Uninstaller Mobile 3.0.250G Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244753.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ SmartTube Next 15.30 + 15.62 (Beta) Mod by armanych [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244719.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Stellarium Plus - Star Map v1.9.3 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244171.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Reverso Translation Dictionary / Переводной словарь Reverso 10.
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243996.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ ImageMeter Pro - Фотоизмерение 3.5.36 Mod by Kirlif' [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243973.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ TuneIn Radio 31.2 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243972.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243959.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ HiPER Scientific Calculator Pro 10.0.3 Mod by Balatan & Droid73 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243765.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Bazaart: Photo Editor & Graphic Design v1.23.0 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243730.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ YouTube ReVanced [Non-Root] [Patches v2.31.0] Mod by derrin 17.29.34 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243650.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ RS Explorer / RS Проводник 1.8.9.6 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243276.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ UniBook - Аудиокниги v0.5.6 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243079.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ ViMu Media Player for TV 9.15 Mod by Vildanoff [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243042.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Easy Notes 1.1.62.0315 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242941.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ PixeLeap - Улучшение фотографий 1.0.6.1 Mod by Mixroot [Ru/Mu
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242913.jpg" />
 </div>
 
 

@@ -1,3 +1,61 @@
+###  Публикация: 1338630   (269004) от 16.11.2019
+
+Misja Helsloot - WhatTheHelsloot (2019) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Misja - E-mocean (Misja Helsloot Deep Remix) (6:21)
+02. Sean Dexter - Synthetica (Misja Helsloot Deep Remix) (7:26)
+03. AxelPolo & Misja Helsloot presents Dark Echo - Apache (2:58)
+04. Misja Helsloot with Cari - See the Sun Again (3:54)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:35:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D50470576F45546A42A1E72EF0F9358FF3C3BE74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266912   (268413) от 04.12.2018
+
+VA - A State of Trance: Future Favorite - Best of 2018 (Extended Versions) (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin Van Buuren vs Shapov – The Last Dancer (Extended Mix)
+02. Cosmic Gate & Emma Hewitt – Tonight (Allen Watts Extended Remix)
+03. Richard Durand – The Air I Breathe (Extended Mix)
+04. Shane 54 And Jonathan Mendelsohn – Return To Love (Cubicore Extended Remix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 03:04:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4588A59930F6AA8EE68505F855434B86B7D8D6E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1190056   (267146) от 10.12.2017
 
 VA - Tranceiology: Trance Music Contest (2017) [MP3|320 Kbps] <Trance>
@@ -6,7 +64,7 @@ VA - Tranceiology: Trance Music Contest (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267146.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Damaged Records - Best of 2017 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267145.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - The Sound Of Trance Vol.07 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267143.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Suanda Music: Track Of The Week - Best Of (2017) [MP3|320 Kbps] <Trance, Up
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267141.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Tech Trance Essentials Vol.10 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267140.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Cosmic Cubes - A Cosmic Trance Compilation Vol. 1-6 (1994-1997) 6x2CD, Comp
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266728.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Paul Van Dyk - Music Rescues Me (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266650.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - The Verse Uplifting Trance Journey 2016-2017 (Mixed by Philip Langham) (201
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266034.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Infrasonic Best Of (Mixed by Solis & Sean Truby) (2017) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266032.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Airwave - Touareg (Remastered Deluxe Edition) (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264669.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Trance - The Vocal Session 2020 (2019) [MP3|320 Kbps] <Trance, Vocal Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264659.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Nothing But... The Future Of Trance Vol.05 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264521.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Grotesque 300 (Mixed by RAM, Marco V & Darren Porter) (2017) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264514.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Trance 2020 (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264498.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Trance Miami (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264291.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Black Hole Trance Music (11-19) (2019) [MP3|320 Kbps] <Trance, UpliftingTra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264000.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - A State Of Trance: Future Favorite Best Of 2019 (2019) Extended Version [MP
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263933.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - The Best Of Suanda Voice (Mixed by Dennis Graft) (2017) [MP3|320 Kbps] <Voc
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263895.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Gabriel & Dresden - The Only Road (2017) [MP3|320 Kbps] <Trance,Progressive Hous
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263842.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Inspectrum Recordings Best Of (Mixed by DJ Chris) (2017) [MP3|320 Kbps] <Up
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263537.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Best of Trance (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263529.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - A State Of Trance Year Mix (Mixed by Armin Van Buuren) (2017) [MP3|320 Kbps
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263378.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Alter Ego: Best Of 2017 (Mixed by Luigi Palagano & Duncan Newell) (2017) [M
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263256.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Outburst Presents: Prism Vol. 2 (Mixed by Tempo Giusto & Mark Sherry) (2017
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263254.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Outburst Presents: Prism Vol. 2 (Mixed by Tempo Giusto & Mark Sherry) (2017
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63F2EBD110BD5FDCAC3D566C992E110701B93FAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192522   (263251) от 17.12.2017
-
-VA - The Best Of Pulsar (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andy Groove - Thunderstorm (original mix)
-02. AEG - Always In My Memories (original mix)
-03. Volmax - Near Reality (James Kitcher remix)
-04. Sound Apparel - Dream (2017 Remaster)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 04:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4237E13B119A3790B45DA7A61F046A834E8C505E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192577   (263246) от 17.12.2017
-
-VA - Alter Ego: Progressive Best Of 2017 (Mixed by Luigi Palagano) (2017) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hanski - Sirens (radio edit)
-02. Varun & Inge Lemon - Velour (radio edit)
-03. ARChima - Skyfall (radio edit)
-04. Metroom - Inside (radio edit)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 03:18:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFD5904988E99E3E5A81D5476EBDBD923B49CECC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Boyz II Men - Collide (2014) Target Deluxe Edition [MP3|320 кб/с] <Soul, Rhyt
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922782.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Demetria Taylor - Bad Girl (2011) [MP3|320 Kbps] <Chicago Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920994.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Aaron Keylock - Cut Against The Grain (2017) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920951.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Anni Piper - More Guitars Than Friends (2016) [MP3|320 кб/с] <Rockin' Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919095.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Jimmy Burns - Leaving Here Walking (1996) [MP3|320 Kbps] <Chicago Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917775.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Depravity Brothers - When I'm Feeling Evil (2017) [MP3|320 Kbps] <Blues Rock, Di
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917663.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Tycoon Machete - Wedding Cake (2020) [MP3|320 Kbps] <Dark Psych, Blues Rock, Gru
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917223.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Tasha Taylor - Honey For The Biscuit (2016) [MP3|320 кб/с] <Contemporary Blue
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917128.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Barry Goldberg - Two Jews Blues (1969) [MP3|320 кб/с] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913616.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Hughes Taylor - Hear My Melody (2016) [MP3|320 кб/с] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913398.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ John Mayall - Talk About That (2017) [MP3|320 Kbps] <British Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910511.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Susan Tedeschi - The Best of Susan Tedeschi - Episode One (2005) [MP3|320 кб/�
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908096.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Tristan Mackay - Wire & Wood (2015) [MP3|320 Kbps] <Blues, Pop>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907216.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Susan Tedeschi - The Best of Susan Tedeschi - Episode Two (2007) [MP3|320 кб/�
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906351.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Airborne Blues Virus - Get on Down (2016) [MP3|320 кб/с] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904377.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Blues Clinic - Walk Don't Walk (2003) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903497.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Big Boy Bloater & The Limits - Luxury Hobo (2016) [MP3|320 кб/с] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902756.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - The Blues In... Asia (2005) [MP3|320 кб/с] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900996.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Bluesed Up Rock Classics (2016) [MP3|320 кб/с] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900923.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Acoustic Blues (2020) [MP3|320 Kbps] <Blues, Acoustic Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898361.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Corey Dennison Band - Corey Dennison Band (2016) [MP3|320 кб/с] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897533.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Kelly Richey - Shakedown Soul (2016) [MP3|320 кб/с] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895887.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Budda Power Blues - Live 2019 (2020) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891878.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Too Late, Too Late Blues (1993-1999) 13 CD /Document Records/ [MP3|320 кб
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890757.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Thorbjorn Risager & The Black Tornado - Come On In (2020) [MP3|320 Kbps] <Blues 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890008.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Carl Wyatt & The Delta Voodoo Kings - Doing The Boogaloo (2016) [MP3|320 Kbps] <
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889570.jpg" />
 </div>
 
 

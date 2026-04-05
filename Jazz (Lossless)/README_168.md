@@ -6,7 +6,7 @@ Chuck Hedges & The Johnny Varro Trio - Skylark (1983) 1995, Delmark Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490987.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Uptown String Quartet - Max Roach Presents The Uptown String Quartet (1989) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490445.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Louis Armstrong - The Hot Fives, volume I (1925, 1926) 1988, CBS Records[FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490414.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ The Workshop - Conversations With The Drum (2015) /Onze Heures Onze/[FLAC|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490319.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Roberto Negro Trio invite Christophe Monniot - #1 Luna Di Wuxi & #2 Kimono (2015
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490276.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Terumasa Hino - Live In Concert (1975) /2015, Universal/[FLAC|tracks+.cue]<Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490275.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Leon Spencer - Louisiana Slim (1971) /2014, Universal/[FLAC|tracks+.cue]<Jazz-Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490271.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ John Patton - Understanding (1968) /2014, Universal/[FLAC|tracks+.cue]<Jazz-Funk
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490270.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Art Blakey And The Jazz Messengers - Album Of The Year (1981) /2015, Solid Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490267.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ McCoy Tyner - Fly With The Wind (1976) /2008, Concord/[FLAC|tracks+.cue]<Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490263.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Roger Manins - Trio (2010) Rattle Records [FLAC|Lossless|tracks + .cue] <Avant-G
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490256.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Chet Baker - The Last Great Concert: My Favourite Songs (1988) 2CD, 2006, Enja R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490184.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Benny Carter - Sax Ala Carter! (1960) 2004, Capitol Jazz [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489891.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Benny Carter & American Jazz Orchestra - Central City Sketches (1987) Musicmaste
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489888.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Peter Bernstein - Earth Tones (1997) Criss Cross Jazz [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489887.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Ruby Braff Featuring Coleman Hawkins - Braff! (1956) 2005, Lone Hill Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489761.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Ruby Braff & Dick Hyman - Music from My Fair Lady (1989) Concord Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489760.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Ruby Braff - Ruby Braff Remembers Louis Armstrong: Being with You (1996) 1997, A
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489759.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Andy Narell - Light In Your Eyes (1989) Windham Hill Records[FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488438.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Earl Coleman featuring Billy Taylor - Love Songs (1967) /2013, Warner/[FLAC|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488374.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Norio Maeda - Saxophone Unity (1967) 1987, Denon [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488367.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Laurindo Almeida & Bud Shank Quartet - Brazilliance Vol. 1 & 2 (1953) 2CD /1991,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488319.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Thomas (Tim) Hardin Trio - You Just Have A Listen To Jazz (1992) /Victor/[FLAC|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488318.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Kyoto Jazz Sextet - Mission (2015) Universal [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488292.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ Mary Lou Williams - My Mama Pinned A Rose On Me (1977) 2005, Original Jazz Class
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488291.jpg" />
 </div>
 
 
@@ -727,7 +727,7 @@ Hugh Masekela - Jabulani (2012) [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488289.jpg" />
 </div>
 
 

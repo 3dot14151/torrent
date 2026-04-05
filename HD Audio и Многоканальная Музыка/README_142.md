@@ -1,32 +1,3 @@
-###  Публикация: 1735735   (106832) от 09.07.2024
-
-Chris Bergson Band - Comforts of Home (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feelin' Good Today (4:14)
-02. Retribution (4:09)
-03. Comforts of Home (5:22)
-04. You Lied (4:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F2B0E4DBE37409DAF2E23443DD7E5F57C7B5634
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735738   (106828) от 09.07.2024
 
 LaBronn Conner Jr - Bluesberry Haze (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electric Blues>
@@ -35,7 +6,7 @@ LaBronn Conner Jr - Bluesberry Haze (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106828.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Sting - Fields Of Gold: The Best Of Sting 1984 - 1994 (1994) [FLAC 2.0|48/24|ima
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106821.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Mr. Big - Mr. Big (1989) Remastered, 2023, evoXS [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106789.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ The Supersoul Brothers - By The Way (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106786.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Mr. Big - Ten (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106780.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Seasick Steve - A Trip A Stumble A Fall Down On Your Knees (2024) [FLAC 24/96|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106778.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ The Yardbirds - The Ultimate Live At The BBC (2024) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106776.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ The Skintight Revue - The Ever Lovin' Travelin' Show (2024) [FLAC 24/44.1|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106768.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Ivan Marcio - 30 and Still Counting (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106767.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Zuli - Lambda (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <trip hop,  techno an
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106766.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ The Roses - Out Of The Fear (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106764.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Sean Webster - Summer Has Gone (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106763.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Seth Lee Jones - Tulsa Custom (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106761.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Jacob Banks - Our Time Together: The Live Album (2024) (Live) [FLAC 24/48|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106740.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Forbidden Society - Lonely Road (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106738.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Sebastian Barbosa - Burning on the road (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106732.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Bart Graft - Jewel in the Crown (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alte
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106731.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ JoosTVD - 196tree (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Funk>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106719.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Tuk - CONFRONTATIONS (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106718.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Vengaboys - The Greatest Hits Collection (2024) [FLAC 24/96|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106714.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Axxis - Coming Home (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy/Power Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106707.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ Amorphis - Tales From The Thousand Lakes (Live At Tavastia) (2024) Live [FLAC 24
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106705.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ John Hiatt - Stolen Moments (1990) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Country 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106701.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ Spektra - Hypnotized (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106695.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ Mr. Big - Ten (2024) with bonus track [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106691.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ Mr. Big - Ten (2024) with bonus track [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32214F8BBE0D867F0389BCE3727737FC58D72047
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736447   (106689) от 12.07.2024
+
+Palace - Reckless Heart (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <AOR/Melodic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reckless Heart (3:37)
+02. The Widow's Web (3:49)
+03. Back In Your Arms (4:04)
+04. Girl Is An Angel (4:25)(   Читать дальше...   )Жанр: AOR/Melodic RockПродолжительность: 00:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47EA12B19DA308D03D5BEFAF8CC6D5FD8035A65F
 ```
 
 https://mybot314.ru/tekegram_catalog/

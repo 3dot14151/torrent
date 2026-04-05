@@ -1,3 +1,30 @@
+###  Публикация: 908821   (629892) от 16.06.2015
+
+Тополиный пуск (2015) HDTVRip [720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Город Тейково, Ивановская область. На его улицах вместо рекламных щитов – плакаты с изображением межконтинентальных баллистических ракет "Тополь М" или "Ярс". И неудивительно: здесь расквартирован ракетный полк, основная задача которого - обеспечение ядерной безопасности России.
+Корреспондент RT побывал в гостях у военных этого и других ракетных (   Читать дальше...   )Телекомпания: RTДЖанр: Телепередача, ДокументальныйПродолжительность: 00:24:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6288D5358F6C35215BFB42F5DBE2A098CCB5BA60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036221   (622667) от 19.07.2016
 
 Наш человек в Ватикане (2016) DVB
@@ -6,7 +33,7 @@
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622667.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622658.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619978.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611900.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611515.jpg" />
 </div>
 
 
@@ -136,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610617.jpg" />
 </div>
 
 
@@ -162,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610559.jpg" />
 </div>
 
 
@@ -189,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610182.jpg" />
 </div>
 
 
@@ -215,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608942.jpg" />
 </div>
 
 
@@ -244,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608906.jpg" />
 </div>
 
 
@@ -271,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607450.jpg" />
 </div>
 
 
@@ -297,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606359.jpg" />
 </div>
 
 
@@ -323,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605810.jpg" />
 </div>
 
 
@@ -349,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605515.jpg" />
 </div>
 
 
@@ -375,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604874.jpg" />
 </div>
 
 
@@ -401,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601226.jpg" />
 </div>
 
 
@@ -427,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601083.jpg" />
 </div>
 
 
@@ -453,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600179.jpg" />
 </div>
 
 
@@ -479,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597393.jpg" />
 </div>
 
 
@@ -505,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591315.jpg" />
 </div>
 
 
@@ -532,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584386.jpg" />
 </div>
 
 
@@ -558,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578328.jpg" />
 </div>
 
 
@@ -584,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576448.jpg" />
 </div>
 
 
@@ -610,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575885.jpg" />
 </div>
 
 
@@ -636,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566376.jpg" />
 </div>
 
 
@@ -649,33 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:872EFCAE9106E57BAEA97E55E8C69CB71ADEB3E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923795   (560497) от 02.08.2015
-
-Трэвис Хэйли. Адаптивный автомат Калашникова / Travis Haley: Adaptive Kalash (2011) WEBRip [720p-LQ]
-
->>Документалистика и Телепередачи
->>Военное дело
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оружие должно обладать качествами: надежностью и простотой применения. Это секрет успеха, востребованности в любых условиях. Простота определяет и достаточно низкую стоимость. Автоматическое оружие, символизирующее все самые нужные характеристики – автомат Калашникова. И все же здесь все определяют навыки стрелка, его опыт. Оружие просто в обращении, но может творить (   Читать дальше...   )Телекомпания: США, Panteao ProductionsЖанр: Документальный, оружие, видеоурокПеревод: Одноголосый закадровый, любительский
-Все благодарности за перевод группе 222 с VКПродолжительность: 02:00:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:909D514E42DDCA5E4B1FC4CB11970B702B3FA60E
 ```
 
 https://mybot314.ru/tekegram_catalog/

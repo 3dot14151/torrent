@@ -1,3 +1,55 @@
+###  Публикация: 1522043   (761903) от 05.01.2022
+
+Е.Н. Быкова | Оценка земель с обременениями в использовании. Теория и методика (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761903.jpg" />
+</div>
+
+
+###  Подробнее
+
+В монографии проведен анализ исторического развития оценки земельных ресурсов в мире и массовой (кадастровой) оценки в России. Определены и раскрыты основные проблемы, с которыми сталкиваются оценочные организации при проведении кадастровой оценки и интерпретации ее результатов для налогообложения. Обоснована крайне актуальная необходимость учета при оценке земельных (   Читать дальше...   )Жанр: Землеустройство, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B071D3C02586883324C9C46DD682C8C7EBCCA8B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522035   (761901) от 05.01.2022
+
+М.Б. Павлова, И.В. Самсонова | Управленческий консалтинг в АПК (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие подготовлено в соответствии с требованиями федерального государственного образовательного стандарта высшего образования по направлениям подготовки «Экономика», «Менеджмент» и с программой курса «Управленческое консультирование в АПК». Представленные в виде систематизированных иллюстраций основные понятия и определения помогут при освоении курса в (   Читать дальше...   )Жанр: Менеджмент, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD26C667BF737CC0D486326ED168135C29E68EE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522057   (761776) от 05.01.2022
 
 Б.Ю. Васильев | Автоматизированный электропривод машин и установок горного производства [2 тома] (2022) [PDF]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761776.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761774.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761765.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761276.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760055.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760042.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759928.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759623.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759306.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_758377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_758377.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758368.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758240.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756518.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756343.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756226.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756219.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754607.jpg" />
 </div>
 
 
@@ -457,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753283.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753277.jpg" />
 </div>
 
 
@@ -513,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753158.jpg" />
 </div>
 
 
@@ -539,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750942.jpg" />
 </div>
 
 
@@ -566,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750117.jpg" />
 </div>
 
 
@@ -594,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748294.jpg" />
 </div>
 
 
@@ -620,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748157.jpg" />
 </div>
 
 
@@ -631,60 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00A0463253E9B542727748B3C46F91527D164D2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 650891   (747626) от 13.01.2022
-
-С.С. Молчанов | Бухгалтерский учет за 14 дней. Экспресс-курс [2013] [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747626.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами уникальное учебное пособие (три в одном), которое позволит освоить вам бухгалтерский учет в кратчайшие сроки и с удовольствием! Здесь вы найдете курс из 14 лекций, содержащий более 200 наглядных и занимательных примеров 100 задач с ответами и даже чистые страницы для своих записей и решений.
-Во втором издании книги все продумано до мелочей, чтобы вам было (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E07D59247A753F4226B7E45B8040C6781A4ECF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019917   (746610) от 25.05.2016
-
-С. А. Лобзин | Электротехника. Лабораторный практикум (2010) [PDF, DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие предназначено для изучения предмета "Электротехника" и является частью учебно-методического комплекта по дисциплинам общепрофессионального цикла для технических специальностей.
-Приведены описания лабораторных работ. Дана подробная информация о необходимом лабораторном оборудовании, применительно к которому составлены описания. Порядок выполнения (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85A4B9F25199C684E73FD557460A81F0BC973D9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

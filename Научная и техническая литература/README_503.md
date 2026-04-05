@@ -1,138 +1,3 @@
-###  Публикация: 1641050   (236819) от 20.06.2023
-
-Ю.И. Дытнерский | Мембранные процессы разделения жидких смесей (1975) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Излагаются основы теории обратного осмоса, ультрафильтрации и испарения через мембрану.
-Рассматривается практическое применение этих методов в химической, нефтеперерабатывающей и нефтехимической, пищевой, медицинской, микробиологической и других отраслях промышленности для разделения и концентрирования растворов, очистки промышленных стоков, опреснения морских и (   Читать дальше...   )Жанр: ХимияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C7BB2EE68A4BC5AE81AF0CEB3E4C7BC24494908
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549736   (236740) от 08.05.2022
-
-Antonia Clare, J. J. Wilson | Speak Out 2nd Pre-intermediate (2015) [PDF] [Student's book | Workbook | Teacher's book | Extra| Including MP4, MP3, DOCX] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Speakout - Шестиуровневый курс английского языка для взрослых, созданный на базе аутентичных материалов BBC, эффективно развивающий все четыре речевых навыка. 6 уровней: A1-C1 (Starter-Advanced). Отбор лексико-грамматического материала ориентирован на потребности реального повседневного общения.
-Данная подборка уровня Pre-intermediate (A2), включает следующие книги (   Читать дальше...   )Жанр: Образование, Аглийский языкФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:335A3B1FF7806524D11676B6B86927E68CE08CC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549740   (236721) от 08.05.2022
-
-Antonia Clare, J. J. Wilson | Speak Out 2nd Advanced Plus (2019) [PDF] [Student's book | Workbook | Teacher's book | Extra| Including MP4, MP3, DOCX] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Speakout - Шестиуровневый курс английского языка для взрослых, созданный на базе аутентичных материалов BBC, эффективно развивающий все четыре речевых навыка. 6 уровней: A1-C1 (Starter-Advanced). Отбор лексико-грамматического материала ориентирован на потребности реального повседневного общения.
-Данная подборка уровня Advanced Plus (C1), включает следующие книги (   Читать дальше...   )Жанр: Образование, Аглийский языкФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DAF675EE6676E3A0031BDB028358D86E85640D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549734   (236703) от 08.05.2022
-
-Antonia Clare, J. J. Wilson | Speak Out 2nd Starter (2015) [PDF] [Student's book | Workbook | Teacher's book | Extra| Including MP4, MP3, DOCX] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Speakout - Шестиуровневый курс английского языка для взрослых, созданный на базе аутентичных материалов BBC, эффективно развивающий все четыре речевых навыка. 6 уровней: A1-C1 (Starter-Advanced). Отбор лексико-грамматического материала ориентирован на потребности реального повседневного общения.
-Данная подборка уровня Starter (A1), включает следующие книги и материалы (   Читать дальше...   )Жанр: Образование, Аглийский языкФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFD3BAB402125453202F926485A5985CB22C987F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549735   (236686) от 08.05.2022
-
-Antonia Clare, J. J. Wilson | Speak Out 2nd Elementary (2015) [PDF] [Student's book | Workbook | Teacher's book | Extra| Including MP4, MP3, DOCX] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236686.jpg" />
-</div>
-
-
-###  Подробнее
-
-Speakout - Шестиуровневый курс английского языка для взрослых, созданный на базе аутентичных материалов BBC, эффективно развивающий все четыре речевых навыка. 6 уровней: A1-C1 (Starter-Advanced). Отбор лексико-грамматического материала ориентирован на потребности реального повседневного общения.
-Данная подборка уровня Elementary (A1), включает следующие книги и материалы (   Читать дальше...   )Жанр: Образование, Аглийский языкФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08BD7F5DC04F4259592D4419EC0B8D57B42EAD35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1631855   (236013) от 07.05.2023
 
 Дж. Маррел, С. Кеттл, Дж. Теддер | Химическая связь (1980) [PDF]
@@ -141,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_236013.jpg" />
 </div>
 
 
@@ -169,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235961.jpg" />
 </div>
 
 
@@ -198,7 +63,7 @@ Leigh Neville | The SAS 1983–2014 (2016) [EPUB, PDF] [Elite #211] [EN]
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235408.jpg" />
 </div>
 
 
@@ -224,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235341.jpg" />
 </div>
 
 
@@ -250,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235309.jpg" />
 </div>
 
 
@@ -277,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235165.jpg" />
 </div>
 
 
@@ -306,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235076.jpg" />
 </div>
 
 
@@ -332,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_234915.jpg" />
 </div>
 
 
@@ -358,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234910.jpg" />
 </div>
 
 
@@ -384,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_234889.jpg" />
 </div>
 
 
@@ -410,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234819.jpg" />
 </div>
 
 
@@ -437,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234716.jpg" />
 </div>
 
 
@@ -463,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234700.jpg" />
 </div>
 
 
@@ -490,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234615.jpg" />
 </div>
 
 
@@ -517,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234366.jpg" />
 </div>
 
 
@@ -544,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234272.jpg" />
 </div>
 
 
@@ -570,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233986.jpg" />
 </div>
 
 
@@ -596,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233949.jpg" />
 </div>
 
 
@@ -622,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233728.jpg" />
 </div>
 
 
@@ -648,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233720.jpg" />
 </div>
 
 
@@ -674,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233541.jpg" />
 </div>
 
 
@@ -685,6 +550,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0DC747ECAEFD415B5177DF85AE6885E7A5D7D26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645097   (233500) от 08.07.2023
+
+А.М. Кутепов и др. | Химическая гидродинамика: Справочное пособие (1996) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233500.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой краткий справочник по химической гидродинамике и смежным разделам гидродинамики, тепломассообмена, механики дисперсных систем и химической технологии. Исследуется движение и массоперенос в трубах, каналах, пленках, струях и пограничных слоях. Рассматривается обтекание и массо- и теплообмен частиц, капель и пузырей различной формы с поступательным (   Читать дальше...   )Жанр: ХимияИздательство: КвантумФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EA93C7CAEA7F1BC388A712B1607E79AA43E2E84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645008   (233479) от 08.07.2023
+
+А.Д. Полянин | Лекции по нелинейным уравнениям математической физики (2023) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233479.jpg" />
+</div>
+
+
+###  Подробнее
+
+Излагаются эффективные аналитические методы построения точных решений нелинейных уравнений математической физики и механики. Описаны методы обобщенного и функционального разделения переменных, прямой метод построения редукций (метод Кларксона — Крускала), метод поиска слабых симметрий, метод дифференциальных связей и некоторые другие методы. Показано, что точные (   Читать дальше...   )Жанр: МатематикаИздательство: ИПМех РАНФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFF0215E9D10E4614EB13006ECC27083669AF25F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645099   (233432) от 08.07.2023
+
+А.Д. Полянин, А.И. Журов | Методы разделения переменных и точные решения нелинейных уравнений математической физики (2020) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена описанию и применению методов обобщенного и функционального разделения переменных, используемых для поиска точных решений нелинейных уравнений с частными производными. Достаточно подробно рассматривается также прямой метод построения редукций (во многом родственный методам функционального разделения переменных) и его более общая версия, основанная (   Читать дальше...   )Жанр: МатематикаИздательство: ИПМех РАНФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FD2ECE2394CA41EAC8E75D3E5A285ACC766EFB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645004   (233424) от 08.07.2023
+
+А.Д. Полянин | Точные решения дифференциальных, интегральных, функциональных и других математических уравнений (2023) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена точным решениям математических уравнений различных типов (алгебраических, трансцендентных, обыкновенных дифференциальных, с частными производными первого порядка, математической физики, интегральных, функциональных, дифференциальных с запаздыванием, функционально-дифференциальных и др.). Особое внимание уделяется уравнениям, которые встречаются в (   Читать дальше...   )Жанр: МатематикаИздательство: ИПМех РАНФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B5098029750E3F8521D9FEA614B8A8264745791
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634504   (233413) от 20.05.2023
+
+Е.О. Степанов | Кросс-платформенные и многозвенные технологии (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233413.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящее время аппаратные и программные платформы и технологии стремительно развиваются, непрерывно появляются все новые и новые возможности. В то же время, налицо тенденция к интероперабельности (interoperability) платформ и совместимости технологий.
+В данном курсе рассматриваются основные тенденции этого развития, а также основные технологии, предназначенные (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:631B7A448324979398F0FF174981A3B19AF65750
 ```
 
 https://mybot314.ru/tekegram_catalog/

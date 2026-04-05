@@ -1,31 +1,3 @@
-###  Публикация: 971247   (987588) от 02.01.2016
-
-Мария Павлова | Илья Фрэз (1985) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987588.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена творчеству народного артиста РСФСР, лауреата Государственной премии СССР Ильи Фрэза, известного мастера детского кино.
-
-Фильмы "Первоклассница", "Я купил папу", "Чудак из пятого "Б", "Я вас любил…", "Вам и не снилось…", "Карантин" и другие принесли ему широкую популярность у зрителей (   Читать дальше...   )Жанр: Биографии и Мемуары, КиноФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC92923C8AA67733AC6309326CED67FD233E4C05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971234   (987584) от 02.01.2016
 
 Виктор Кожемяко | Виктор Розов. Свидетель века (2013) [FB2]
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987584.jpg" />
 </div>
 
 
@@ -60,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987583.jpg" />
 </div>
 
 
@@ -86,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987475.jpg" />
 </div>
 
 
@@ -112,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987232.jpg" />
 </div>
 
 
@@ -138,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986976.jpg" />
 </div>
 
 
@@ -164,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986009.jpg" />
 </div>
 
 
@@ -191,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985940.jpg" />
 </div>
 
 
@@ -218,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985756.jpg" />
 </div>
 
 
@@ -246,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985361.jpg" />
 </div>
 
 
@@ -273,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984978.jpg" />
 </div>
 
 
@@ -299,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984828.jpg" />
 </div>
 
 
@@ -325,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984649.jpg" />
 </div>
 
 
@@ -351,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984645.jpg" />
 </div>
 
 
@@ -378,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984589.jpg" />
 </div>
 
 
@@ -404,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984561.jpg" />
 </div>
 
 
@@ -431,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983509.jpg" />
 </div>
 
 
@@ -457,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983499.jpg" />
 </div>
 
 
@@ -485,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983433.jpg" />
 </div>
 
 
@@ -514,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983427.jpg" />
 </div>
 
 
@@ -540,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983421.jpg" />
 </div>
 
 
@@ -566,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983420.jpg" />
 </div>
 
 
@@ -595,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983419.jpg" />
 </div>
 
 
@@ -624,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983347.jpg" />
 </div>
 
 
@@ -652,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983344.jpg" />
 </div>
 
 
@@ -678,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983198.jpg" />
 </div>
 
 
@@ -689,6 +661,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:627EB200B89975E40CC15B15F3E60D8EB14831F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 613162   (982457) от 04.02.2013
+
+Эрик Хобсбаум | Сборник произведений (4 книги) [1999-2004] [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эрик Хобсбаум - выдающийся британский историк, член Британской Академии и Американской Академии Искусств и Наук, обладатель почетных степеней университетов ряда стран.
+Его книги неизменно попадают во все каталоги книг по всеобщей истории, предлагаемые англоязычному читателю. Разгадка этого феноменального успеха проста: после нескольких десятилетий упорного и кропотливого (   Читать дальше...   )Издательство: Феникс, Независимая газетаФормат: DJVUКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4188B558A614D0CFB72975BDD169EBD6A612F4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

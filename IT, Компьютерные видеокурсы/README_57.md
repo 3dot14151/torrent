@@ -1,30 +1,3 @@
-###  Публикация: 1404460   (492778) от 25.08.2020
-
-Виктор Рыжов | Power BI Аналитика и визуализация данных для бизнеса (2019) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492778.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы разработали курс для аналитиков, финансистов и руководителей, которые хотят усовершенствовать систему отчетности в компании. Вы научитесь работать с инструментами аналитики, манипулировать данными и превращать сложные отчеты в интуитивно понятные дашборды.
-О курсе: Что и Сколько?Производство: Жанр: Power BIПродолжительность: 16:34:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0F918CE9D361CDD5C6FFC28AAA1B711EADDF850
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565646   (492315) от 24.07.2022
 
 Fireship.io | Firestore Security Course (2020) WEB-DL [EN]
@@ -33,7 +6,7 @@ Fireship.io | Firestore Security Course (2020) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492315.jpg" />
 </div>
 
 
@@ -62,7 +35,7 @@ Fireship.io | Firestore Data Modeling Course (2019) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492310.jpg" />
 </div>
 
 
@@ -88,7 +61,7 @@ KNP University | Подборка курсов KNP University (2010-2018) PCRec 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491096.jpg" />
 </div>
 
 
@@ -114,7 +87,7 @@ Beyond Code | Настольные приложения с Electron / Desktop ap
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491018.jpg" />
 </div>
 
 
@@ -143,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490920.jpg" />
 </div>
 
 
@@ -169,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490822.jpg" />
 </div>
 
 
@@ -197,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489263.jpg" />
 </div>
 
 
@@ -225,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488860.jpg" />
 </div>
 
 
@@ -251,7 +224,7 @@ itgid | Практический JavaScript (2019) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488425.jpg" />
 </div>
 
 
@@ -280,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487450.jpg" />
 </div>
 
 
@@ -307,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487336.jpg" />
 </div>
 
 
@@ -335,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487318.jpg" />
 </div>
 
 
@@ -362,7 +335,7 @@ CBT Nuggets | Видеокурс для подготовки к экзамену
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487080.jpg" />
 </div>
 
 
@@ -392,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486479.jpg" />
 </div>
 
 
@@ -418,7 +391,7 @@ Udemy | SQL инъекции и тестирование баз данных д�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486336.jpg" />
 </div>
 
 
@@ -444,7 +417,7 @@ Udemy | Создание сайтов без программирования н
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486331.jpg" />
 </div>
 
 
@@ -470,7 +443,7 @@ Udemy | PHP v.7+ и MySQL с нуля (2019) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486324.jpg" />
 </div>
 
 
@@ -496,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486226.jpg" />
 </div>
 
 
@@ -525,7 +498,7 @@ Udemy, Jonas Schmedtmann | The Complete JavaScript Course 2022: From Zero to Exp
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486008.jpg" />
 </div>
 
 
@@ -554,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485132.jpg" />
 </div>
 
 
@@ -583,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485116.jpg" />
 </div>
 
 
@@ -612,7 +585,7 @@ HarvardX (Harvard University) | CS50 Разработка мобильных п�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480779.jpg" />
 </div>
 
 
@@ -641,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480504.jpg" />
 </div>
 
 
@@ -669,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480494.jpg" />
 </div>
 
 
@@ -696,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480492.jpg" />
 </div>
 
 
@@ -708,6 +681,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11BF5D71E7E4737020BA5CBD4150F3097178E809
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405795   (480486) от 31.08.2020
+
+SkillBox | Сквозная аналитика (2019) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы научитесь настраивать аналитику для всех каналов продвижения, чтобы выжимать максимум из рекламы, принимать решения на основе точных данных и не терять деньги. Прокачаете скилы в веб-аналитике, станете востребованным специалистом и сможете повысить свой доход и прибыль компании.Производство: SkillBoxЖанр: Веб-Аналитика, Данные, Power BIПродолжительность: 09:47:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56291FFFBE51D63CE6332C68AFC012EFDC6E1BA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

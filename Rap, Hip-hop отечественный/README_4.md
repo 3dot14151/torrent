@@ -1,32 +1,3 @@
-###  Публикация: 1509704   (793860) от 13.11.2021
-
-Oxxxymiron - miXXXtape III: Смутное Время (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793860.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Мох
-2. Погружение
-3. Flashback
-4. Reality(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:687E7CEA448887E0A00CE16BAC7C9DD2BE825F82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1510919   (789710) от 19.11.2021
 
 Noize MC - Выход в город (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -35,7 +6,7 @@ Noize MC - Выход в город (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789710.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789465.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789432.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789421.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789420.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ ChipaChip, Vnuk - Дохлый номер (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789419.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Redo - ARKTECH (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789370.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Bahh Tee - 33 (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789364.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ ST - Высотка (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789361.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Loc-Dog - Счастье в простом (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789315.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Zambezi - CHIPS (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789314.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ ST1M - Цитрус (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789311.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ SQWOZ BAB - FLOWJOB (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789310.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789309.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ VELIAL SQUAD - UGLY STYLEZZ (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789304.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789301.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789241.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ INSTASAMKA - MONEYDEALER (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789237.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Redo - RANKED (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786886.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Horus & Зараза - Вопрос времени (2020) [MP3|320 Kbps] <Rap, H
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786872.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784008.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783935.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Fardi - Черный сад, часть 2 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783685.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ DA108 - Это всё не то... (Чужие 2005-2011) (2020) [MP3|320 Kbps] 
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783679.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ SQWOZ BAB - BODY LANGUAGE (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783668.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ SQWOZ BAB - BODY LANGUAGE (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84B9C915BE24B6410A2D5FE96F40674CB8F4862E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209006   (779650) от 24.02.2018
+
+Krec - Атом (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Рядовой
+02. Серьезно
+03. Атом
+04. Монстр(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03543358513CEE9DCA39EF8CD0BCB7B1967D9086
 ```
 
 https://mybot314.ru/tekegram_catalog/

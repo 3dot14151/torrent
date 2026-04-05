@@ -1,3 +1,55 @@
+###  Публикация: 1326786   (380495) от 22.09.2019
+
+Д.П. Харченко и др. | Схемотехника. Внутреннее устройство и программирование РІС-контроллеров (2014) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие содержит сведения о внутренней архитектуре, системе команд и программированию современных РІС-микроконтроллеров, получивших распространение во встроенных системах контроля и управления. Рассмотренные микроконтроллеры являются практически готовыми устройствами, не требующие для своей работы дополнительного оборудования и позволяющие реализовать достаточно (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C808D9196095FDC5DBED4C95C8BFDD6677C316C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 572772   (380430) от 10.11.2012
+
+А.В. Бицадзе, Д.Ф. Калиниченко | Сборник задач по уравнениям математической физики [1977] [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник содержит свыше 600 задач по курсу уравнений в частных производных, читаемому в высших учебных заведениях студентам математического, механического, физического и технического профилей (с повышенной программой математического образования). Материал в книге расположен по традиционный разделам этого курса—уравнениям эллиптического, гиперболического и параболического типов. Особое внимание уделяется методам, наиболее часто применяемым на практике при построении решений указанных уравнений (методу Фурье, методу интегральных преобразований, методу конечных разностей, вариационным методам и т. д).Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8199C1E49187C12969D80B6529E8D365E6BD5029
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 949004   (379578) от 22.10.2015
 
 Е.Ю. Агеев | Защита информационных процессов в компьютерных системах (2007) [PDF]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379578.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379508.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379415.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379311.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378799.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378758.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378752.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378639.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378630.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378475.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377235.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376603.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376372.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376207.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376204.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375126.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375113.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375082.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374881.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374652.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374330.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374083.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373923.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373665.jpg" />
 </div>
 
 
@@ -626,59 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3DE7BAF12F48E32461BDC768636F87A2EC59D58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415680   (373527) от 13.10.2020
-
-Павел Чистов | Сборник задач по разработке на платформе 1С:Предприятие (1C:Enterprise) (2020) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373527.jpg" />
-</div>
-
-
-###  Подробнее
-
-В издании представлены задачи по разработке информационных систем на платформе «1С:Предприятие 8» (1C:Enterprise 8), рекомендованные к использованию в учебном процессе в образовательных программах высшего и среднего профессионального образования по ИТ-направлениям с учетом требований ФГОС и профессиональных стандартов.
-Книга ориентирована на преподавателей ИТ-дисциплин, (   Читать дальше...   )Жанр: Учебники и пособия для вузовФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70C2A25A8B9DC4FD49AD42488990418BA87F914C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253940   (373008) от 14.10.2018
-
-Д.В. Лысенко | Комплексный экономический анализ хозяйственной деятельности (2008) [PDF, DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анализ представлен как метод обоснования управленческих решений, направленный на поиск резервов и выбор путей повышения эффективности производства. Показаны методы выявления интенсивных и экстенсивных резервов основных факторов производства: трудовых ресурсов, производственных и материально-энергетических ресурсов, оценки их комплектности и возможностей учета при (   Читать дальше...   )Жанр: ЭкономикаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE68D39D79F41AB3CFA7721872A6D8087E614C96
 ```
 
 https://mybot314.ru/tekegram_catalog/

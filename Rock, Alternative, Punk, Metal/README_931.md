@@ -1,3 +1,32 @@
+###  Публикация: 1650631   (224897) от 03.08.2023
+
+Divisiv - 3 Albums (2019-2023) [MP3|320 Kbps] <Gothic, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2019 - Adharma
+2021 - Burn It Down
+2023 - Lies in DisguiseЖанр: Gothic, Heavy MetalПродолжительность: 3 CD, 02:33:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91DDED8251A5000D0DD33215339075ED3F4A56B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1584434   (224892) от 19.10.2022
 
 Exempt - Awakening Morbidity (2017) Compilation, Dark Blasphemies Records  [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
@@ -6,7 +35,7 @@ Exempt - Awakening Morbidity (2017) Compilation, Dark Blasphemies Records  [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224892.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Crypta - Shades of Sorrow (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224888.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Exiled - Inside the Disrupted Minds (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224885.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Etwas - Enochian Keys - Chvpter I (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224876.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Captain Caravan - 2 Albums (2018-2022) [MP3|320 Kbps] <Heavy Rock, Stoner, Sludg
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224869.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Girlschool - WTFortyfive? (2023) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224867.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Stefan Kaiser - 6 Albums (2018-2023) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224860.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Rifle - Repossessed (2022) [MP3|320 Kbps] <Heavy Rock, Psych Stoner, Punk>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224859.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Bloodbath - Survival Of The Sickest (2022) [FLAC|Lossless|image + .cue] <Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224850.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Diamond Chazer - 2 Albums (2020-2022) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224810.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Realisea - 2 Albums (2020-2022) [Mp3|320 kbps] <Progressive Rock, Neo-Prog, Fema
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224800.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Silver Nightmares - 2 Albums (2020-2022) [MP3|320 Kbps] <Crossover Prog, Prog-Me
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224787.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Trick Or Treat - 2 Studio Albums (2012-2016) Japanese Edition [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224780.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ Hangar 55 - 2 Albums (2017-2022) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224770.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ Ira - Identidad (2022) [FLAC|Mp3|320 kbps] <Hard & Heavy>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224767.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ Red Mess - 2 Albums (2017-2022) [MP3|320 Kbps] <Heavy Rock, Stoner, Psych,>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224758.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ Spill Your Guts - 5 Albums (2013-2022) [MP3|320 Kbps] <Post-Hardcore, Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224748.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ Ira - Alma en Llamas (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard & Heavy>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224739.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ Primal Roots - Stand Up (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Doom,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224725.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ Berlin - Best Of Berlin 1979-1988 (1988) [OGG Vorbis|480 Kbps] <Rock, Pop Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224705.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224701.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ Big Big Train - Summer Shall Not Fade. Live At Loreley (2022) 2CD [MP3|320 Kbps]
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224694.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224675.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224670.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ Rainbow - Denver 1979 Down To Earth Tour (2023) Japanese Edition [FLAC|Lossless|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224668.jpg" />
 </div>
 
 
@@ -714,35 +743,6 @@ Rainbow - Denver 1979 Down To Earth Tour (2023) Japanese Edition [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7A67B510644A176A915785DA185CE75E1076C9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268869   (224664) от 12.12.2018
-
-Louna - Panopticon (2018) [MP3|320 Kbps] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shadow Kingdoms (feat. Craig Mabbit & Kevin Thrasher)
-02. Spring
-03. Homeland
-04. Searching(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:45:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CA225E647201931A8D9254AF921AA01B0392B64
 ```
 
 https://mybot314.ru/tekegram_catalog/

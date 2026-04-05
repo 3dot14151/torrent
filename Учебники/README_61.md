@@ -1,3 +1,55 @@
+###  Публикация: 552926   (445611) от 27.09.2012
+
+К.А.Тананушко | Учебник латинского языка [2012] [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное издание предназначено для изучающих латинский язык как в учебных заведениях, так и самостоятельно. В нем исчерпывающе и доступно объясняются грамматические явления элементарного курса латыни. Поскольку латынь является мертвым языком, неразговорным языком, основной упор делается на развитие пассивного восприятия языка, то есть на перевод с латинского на родной язык. Поэтому естественно, что авторы учебника не включали в него обычные для пособий по современным языкам диалоги, тексты для перевода с русского языка и традиционно ограничились подборкой различных по объему и сложности предложений для грамматического анализа и перевода с латыни. Помогут в этом методические указания, которыми снабжена часть занятий, и латинско-русский словарь, размещенный в конце учебника.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3ED3454DCB38333A8DCED5CB7001A8F972F6D48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 706028   (445150) от 02.10.2013
+
+ТА Инжиниринг | Инструкция по движению поездов и маневровой работе на метрополитенах (2003) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полная инструкция по движению и маневром поездов в метрополитене.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB3A3500F7F1D24CF88D87307A34D80F5C3801AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 553254   (443727) от 28.09.2012
 
 Ю.С. Очан | Книги по методам математической физики [1966, 1967] [DJVU]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443727.jpg" />
 </div>
 
 
@@ -41,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443611.jpg" />
 </div>
 
 
@@ -76,7 +128,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442777.jpg" />
 </div>
 
 
@@ -103,7 +155,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442766.jpg" />
 </div>
 
 
@@ -129,7 +181,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442214.jpg" />
 </div>
 
 
@@ -155,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442041.jpg" />
 </div>
 
 
@@ -182,7 +234,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440946.jpg" />
 </div>
 
 
@@ -208,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440807.jpg" />
 </div>
 
 
@@ -234,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440413.jpg" />
 </div>
 
 
@@ -263,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440205.jpg" />
 </div>
 
 
@@ -290,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440128.jpg" />
 </div>
 
 
@@ -316,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439941.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436034.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435831.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435734.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433899.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433398.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433393.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433390.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433389.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433203.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433121.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432918.jpg" />
 </div>
 
 
@@ -630,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431459.jpg" />
 </div>
 
 
@@ -642,59 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C85CDB82C737FCD83A59D6AE24436964E7A42615
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 708347   (431327) от 08.10.2013
-
-В.Е. Кононов | Справочник машиниста тепловозов (1993) [DjVu]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431327.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приведены технические характеристики основных и опытных серий тепловозов с электрической передачей, их дизелей, электрического и вспомогательного оборудования: даны схемы топливных, масляных, водяных и пневматических систем. Изложены основные сведения по обслуживанию, эксплуатации и ремонту тепловозов.
-Рассчитан на машинистов тепловозов и их помощников, может быть полезен работникам локомотивного хозяйства, связанным с эксплуатацией и ремонтом тепловозов.Формат: DjVu
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B979ABA0B41F1AA79B3A3EAE6781DBF8870D7158
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 708178   (431075) от 08.10.2013
-
-В.А. Раков | Локомотивы отечественных железных дорог 1845-1955 (1995) [DjVu]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга "Локомотивы отечественных железных дорог 1845-1955" представляет собой коренным образом переработанное и существенно дополненное второе издание книги "Локомотивы железных дорого Советского Союза"Формат: DjVu
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1EBD72875BF6DABD9029531879C61C55981D1CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

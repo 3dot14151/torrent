@@ -1,3 +1,57 @@
+###  Публикация: 1650980   (194811) от 04.08.2023
+
+Final Cut Pro X 10.6.8 [Multi]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194811.jpg" />
+</div>
+
+
+###  Подробнее
+
+Final Cut Pro X включает основные функции аудиомонтажа и цветокоррекции из Final Cut Studio, так что теперь на всех этапах пост-продакшна можно использовать одно приложение.
+В основе Final Cut Pro X лежит гибкая временная шкала Magnetic Timeline, предлагающая новый подход к редактированию видео без дорожек с возможностью добавлять и организовывать клипы так, как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.08.2023Разработчик: © 2011-2023 Apple Inc.Поддерживаемая ОС: macOS 12.6 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49943DA21B8F6CF9D2A4A3B87B9F91B3D55824B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651933   (194562) от 08.08.2023
+
+Movavi HD Screen Recorder for Mac 23.1.1 [Multi/Ru]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Записывайте видео с экрана Mac с помощью Movavi Screen Recorder! Этот удобный видеомагнитофон для Mac поможет вам сохранять прямые трансляции, видео- и аудиоклипы с веб-страниц, записывать ваши взаимодействия в приложениях, захватывать игровой процесс и выполнять множество других задач по захвату экрана.
+Настройте программу и начните делать качественные записи всего (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.08.2023Разработчик: © 2016 Movavi, PixelNovel Ltd.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FE4F7C256BADA40F588CFF283DAD8F8FB67562C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652209   (194545) от 10.08.2023
 
 Serato Studio for Mac 2.0.6 [En]
@@ -6,7 +60,7 @@ Serato Studio for Mac 2.0.6 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194545.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Macs Fan Control Pro 1.5.15 U2B [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194501.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ Xojo 2023 Release 1.1 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194467.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ Astute Graphics Plugins Elite Bundle for Mac 2.3.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194322.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ PDF Studio Pro for Mac 2023.0.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194247.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ PDF Expert 3.4 U2B [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193924.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ Autodesk Flame 2024.0.1 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193919.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ MacDroid Pro 1.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193872.jpg" />
 </div>
 
 
@@ -218,7 +272,7 @@ Topaz Gigapixel AI 8.4.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193737.jpg" />
 </div>
 
 
@@ -247,7 +301,7 @@ Pixelmator Pro 3.7 [En/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193724.jpg" />
 </div>
 
 
@@ -275,7 +329,7 @@ CorelDRAW Graphics Suite 2025 26.2.0.170 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193637.jpg" />
 </div>
 
 
@@ -301,7 +355,7 @@ Radio Silence 3.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192276.jpg" />
 </div>
 
 
@@ -328,7 +382,7 @@ Parallels Desktop Business Edition 18.0.3 (build 53079) [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191692.jpg" />
 </div>
 
 
@@ -356,7 +410,7 @@ Optimage 3.5.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191036.jpg" />
 </div>
 
 
@@ -382,7 +436,7 @@ Translate Tab 2.0.18 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190590.jpg" />
 </div>
 
 
@@ -408,7 +462,7 @@ TG Pro (Temperature Gauge Pro) 2.83 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190577.jpg" />
 </div>
 
 
@@ -435,7 +489,7 @@ Adobe Bridge 2023 13.0.4 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190409.jpg" />
 </div>
 
 
@@ -461,7 +515,7 @@ Adobe Animate 2023 v.23.0.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190396.jpg" />
 </div>
 
 
@@ -487,7 +541,7 @@ Adobe Media Encoder 2023 v.23.6 U2B [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190319.jpg" />
 </div>
 
 
@@ -513,7 +567,7 @@ Boxy SVG 4.12.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190199.jpg" />
 </div>
 
 
@@ -539,7 +593,7 @@ CHM Viewer Star 6.3.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190196.jpg" />
 </div>
 
 
@@ -565,7 +619,7 @@ Folder Tidy 2.9.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190170.jpg" />
 </div>
 
 
@@ -594,7 +648,7 @@ WiFi Scanner 3.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190074.jpg" />
 </div>
 
 
@@ -620,7 +674,7 @@ Omni Toolbox 1.4.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189821.jpg" />
 </div>
 
 
@@ -631,60 +685,6 @@ Omni Toolbox - это обширный набор инструментов дл�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:891BDC44A1E1F2AB871C4F33E4FFF5CB400098AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660319   (189815) от 12.09.2023
-
-Network Radar 3.0.4 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Network Radar предоставляет Вам информацию о сети к которой подключен ваш Mac . Network Radar показывает устройства, подключенные к вашей локальной сети, компьютер или маршрутизатор, а также их имя, IP и поставщика. Network Radar представляет собой простой в использовании инструмент, который позволит вам получить детальную информацию о сетевых устройствахТип издания: macOS SoftwareРелиз состоялся: 11.09.2023Разработчик: © 2012 - 2022 Daniel WittПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7CEDC3641CCD3FEDF00F60802D9A5D363D7474B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660279   (189813) от 12.09.2023
-
-OmmWriter 1.67 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189813.jpg" />
-</div>
-
-
-###  Подробнее
-
-OmmWriter - скромная попытка вернуть себе то, что технология вырвала у нас сегодня: наша способность концентрироваться.
-OmmWriter - это инструмент, который позволяет снова писать в удовольствие, позволяя пользователям оставаться наедине со своими мыслями; Сконцентрироваться и писать без отвлечения. OmlWriter - это нечто большее, чем текстовый процессор.
-Секрет OmmWriter (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.09.2023Разработчик: © 2023 Herraiz Soto & Co.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77DD48C3FB3D3483CA2DDA78079AE420B6F0511A
 ```
 
 https://mybot314.ru/tekegram_catalog/

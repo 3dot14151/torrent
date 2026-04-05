@@ -1,3 +1,56 @@
+###  Публикация: 1078967   (295889) от 03.12.2016
+
+Жан Жак Руссо | Исповедь (2010 ) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жан Жак Руссо - знаменитый французский философ-просветитель, писатель, композитор. "Исповедь" - самое выдающееся произведение Руссо. Это не только автобиография, но и роман. Цель книги - "... показать своим собратьям одного человека во всей правде его природы", во всем его неповторимом индивидуальном своеобразии. С предельной искренностью и беспощадной (   Читать дальше...   )Жанр: Философия, автобиографический романПродолжительность: 39:10:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E01BD129FD830D5C0DA1A0A7BA4AD461E23E0717
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262346   (294830) от 15.11.2018
+
+Дмитрий Быков | Школа жизни. Честная книга. Любовь – друзья – учителя – жесть (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294830.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самая честная и правдивая книга о школе. "Школа жизни" - составленный Дмитрием Быковым сборник школьных воспоминаний людей, учившихся в 1960-1990-е годы.
+Вышел в серии "Народная книга" по итогам масштабного литературного конкурса "Мы родом из школы", уникального в своем роде и охватившего более 10 000 граждан России, Украины, Белоруссии, (   Читать дальше...   )Жанр: Биографии, мемуарыПродолжительность: 17:40:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:503DA6AAD09EB86E2CE99FA50D97DD7F79D5C986
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1079756   (290233) от 06.12.2016
 
 Игорь Болгарин, Виктор Смирнов | Обратной дороги нет (2016) [MP3]
@@ -6,7 +59,7 @@
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290233.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288463.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288000.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286881.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286555.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286554.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285468.jpg" />
 </div>
 
 
@@ -188,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282197.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280908.jpg" />
 </div>
 
 
@@ -241,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280750.jpg" />
 </div>
 
 
@@ -267,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280592.jpg" />
 </div>
 
 
@@ -294,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280527.jpg" />
 </div>
 
 
@@ -320,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279400.jpg" />
 </div>
 
 
@@ -346,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278840.jpg" />
 </div>
 
 
@@ -373,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276352.jpg" />
 </div>
 
 
@@ -399,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276266.jpg" />
 </div>
 
 
@@ -426,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276192.jpg" />
 </div>
 
 
@@ -452,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276188.jpg" />
 </div>
 
 
@@ -478,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276178.jpg" />
 </div>
 
 
@@ -505,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275110.jpg" />
 </div>
 
 
@@ -531,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274791.jpg" />
 </div>
 
 
@@ -557,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274075.jpg" />
 </div>
 
 
@@ -583,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271138.jpg" />
 </div>
 
 
@@ -609,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271004.jpg" />
 </div>
 
 
@@ -620,59 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A930027F7AB5E72C7F063BB11C9A5389580BF8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189282   (270351) от 06.12.2017
-
-Евгений Сафронов | Кенотафия. Коммунальный юродивый (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник рассказов и повестей Евгения Сафронова в исполнении Олега Булдакова.Жанр: Mагический реализм, драма, приключенияПродолжительность: 02:27:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5197D07566B85D9DFAFEF61913190C569E2D622A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189935   (268661) от 08.12.2017
-
-Сванте Пэабо | Неандерталец. В поисках исчезнувших геномов (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Имя Сванте Пэабо ( Паабо, шв. Svante Pääbo ), – практически синоним исследования древних ДНК как научной дисциплины. Его «Неандерталец» – увлекательный рассказ о сенсационном прорыве в методах восстановления картины эволюции нашего вида.
-Шведский генетик Сванте Пэабо давно лелеял мечту, казавшуюся несбыточной: выделить ДНК из египетских мумий и, таким образом, (   Читать дальше...   )Жанр: Антропология, Генетика, Научно-популярная литератураПродолжительность: 11:05:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79CF687EB15ED6424FCD343B18BE4F7DD688633F
 ```
 
 https://mybot314.ru/tekegram_catalog/

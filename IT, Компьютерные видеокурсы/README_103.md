@@ -1,29 +1,3 @@
-###  Публикация: 1687072   (126009) от 25.12.2023
-
-Udemy, Colt Steele | JavaScript Pro: Mastering Advanced Concepts and Techniques (2023) WEB-DL [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превратите ваши базовые знания JavaScript в уровень эксперта с этим новым обширным курсом, разработанным для тех, кто готов сделать следующий большой шаг в своей карьере программиста. Если вы когда-либо чувствовали себя запуганным более сложными возможностями JavaScript или испытывали трудности с пониманием его тонких концепций, этот курс создан именно для вас. Если (   Читать дальше...   )Производство: UdemyЖанр: Обучающий курсЯзык озвучки: АнглийскийПродолжительность: 19:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFC142E9094188A76327222B05CE70143B3435F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823684   (125868) от 12.10.2025
 
 1С Учебный центр №1, Лада Люзинелли | Ведение бухгалтерского учета в 1С Предприятие 8 (2024) WEBRip [RU]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125868.jpg" />
 </div>
 
 
@@ -60,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125826.jpg" />
 </div>
 
 
@@ -89,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125810.jpg" />
 </div>
 
 
@@ -115,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125793.jpg" />
 </div>
 
 
@@ -141,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125791.jpg" />
 </div>
 
 
@@ -169,7 +143,7 @@ Udemy, Joseph Heidari | Understanding Node.js: Core Concepts (2023) WEB-DL [EN /
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125277.jpg" />
 </div>
 
 
@@ -196,7 +170,7 @@ Balun.Courses, Владимир Балун | System Design - 3-х недельн
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124979.jpg" />
 </div>
 
 
@@ -223,7 +197,7 @@ Udemy, Neil Cummings | Build a Microservices app with .Net and NextJS from scrat
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124952.jpg" />
 </div>
 
 
@@ -249,7 +223,7 @@ Udemy, Manik (Cloudaffle) | TypeScript Design Patterns And SOLID Principles (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124950.jpg" />
 </div>
 
 
@@ -275,7 +249,7 @@ Udemy, Marat Zhman | React Animation Project SCSS (2023) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124947.jpg" />
 </div>
 
 
@@ -302,7 +276,7 @@ Udemy, Norbert B. Menyhart | 30+ React Projects, Learn React JS by Building 30+ 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124938.jpg" />
 </div>
 
 
@@ -330,7 +304,7 @@ Udemy, Nam Ha Minh | Spring Boot REST APIs Ultimate Course (2023) WEB-DL [EN / E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124819.jpg" />
 </div>
 
 
@@ -356,7 +330,7 @@ IAmTimCorey, Tim Corey | C# Mastercourse (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124722.jpg" />
 </div>
 
 
@@ -384,7 +358,7 @@ Udemy, Virtual Pair Programmers, Richard Chesterwood, Prageeth Warnak | Kubernet
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124706.jpg" />
 </div>
 
 
@@ -411,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124125.jpg" />
 </div>
 
 
@@ -438,7 +412,7 @@ Stepik, Renat Lotfullin | Microsoft Excel - Продвинутый пользо�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124119.jpg" />
 </div>
 
 
@@ -464,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123894.jpg" />
 </div>
 
 
@@ -490,7 +464,7 @@ Stepik, Renat Lotfullin | Excel VBA – Программирование мак�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123893.jpg" />
 </div>
 
 
@@ -519,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123867.jpg" />
 </div>
 
 
@@ -546,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123866.jpg" />
 </div>
 
 
@@ -575,7 +549,7 @@ Linkedin Learning, Liam Cleary | Metasploit Essential Training (2022) WEB-DL [EN
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123850.jpg" />
 </div>
 
 
@@ -601,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123840.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ IAmTimCorey, Tim Corey | Web API From Start to Finish (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123192.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ IAmTimCorey, Tim Corey | Blazor From Start to Finish (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123165.jpg" />
 </div>
 
 
@@ -682,7 +656,7 @@ Julio Casal | Building Microservices With .NET (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123163.jpg" />
 </div>
 
 
@@ -693,6 +667,34 @@ Julio Casal | Building Microservices With .NET (2023) WEB-DL [EN]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:626692F0C9D31A65FB0B7C0A951A5C7F7020A9D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691825   (123142) от 13.01.2024
+
+SparkCertCourse, Florian Roscheck | Apache Spark Certification Training (2023) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Apache Spark является ключевым навыком в области данных - вот как вы можете доказать, что владеете им!
+Изучите Apache Spark с нуля и продемонстрируйте свои знания с помощью сертификации Databricks Associate Developer для Apache Spark. Этот курс превратит вас в профессионала PySpark и подготовит к успешной сдаче популярной сертификации Databricks Spark.
+Присоединяйтесь (   Читать дальше...   )Производство: SparkCertCourseЖанр: Обучающий курсЯзык озвучки: АнглийскийПродолжительность: 15:13:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:657B94D5F6194AF9482BAD52014DB5CCA233B3A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

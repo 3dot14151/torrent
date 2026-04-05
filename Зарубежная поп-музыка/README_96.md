@@ -6,7 +6,7 @@ Lady Gaga - Mayhem (2025) [MP3|320 Kbps] <Pop, Dance-Pop, Art Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3900.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Sheena Easton - The Definitive 12" Singles, 1983-1987 (2025) [MP3|320 Kbps] <Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2932.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Sophie Ellis-Bextor - Perimenopop (2025) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2768.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Miley Cyrus - Something Beautiful (2025) Deluxe Edition, 2025, MCEO Inc. [MP3|32
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1985.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Damiano David - FUNNY little FEARS (DREAMS) (2025) [MP3|320 Kbps] <Pop, Pop Rock
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1569.jpg" />
 </div>
 
 

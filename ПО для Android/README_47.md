@@ -1,3 +1,110 @@
+###  Публикация: 1530080   (730660) от 09.02.2022
+
+Music Theory Companion v2.6.3 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Теория музыки очень важна при написании любой песни. Это приложение-помощник по теории музыки предназначено для всех музыкантов, которые заинтересованы в изучении гамм, аккордов, альтернативных аккордов, пятого круга, голосового ведения, модуляции или изменения тональности и т. д. И применяют их в своих композициях. Music Theory Companion - это краткий справочник (   Читать дальше...   )Тип издания: Пиратка (VIP)Релиз состоялся: 2 февраля 2022 г.Разработчик: PG App StudioПоддерживаемая ОС: Android 6.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9C37F88CBE2BFEBE57DE980249CF02074B02B33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530293   (729568) от 10.02.2022
+
+Шахматный тренер Pro v2.81 [Ru] (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729568.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Шахматы" - одна из лучших и увлекательных игр на Земле! В нее играют миллионы шахматистов по всему миру от детей до пожилых людей. Но чтобы понять как играть в шахматы, недостаточно просто знать шахматные правила и названия шахматных фигур. Намного важнее изучить шахматную стратегию и тактику, а также все поля шахматной доски, чтобы хорошо в ней ориентироваться. (   Читать дальше...   )Тип издания: Пиратка (Paid)Релиз состоялся: 2 февраля 2022 г.Разработчик: KemigoGamesПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44BBF32B6B923BBD1938A26EF16943467E673C2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530300   (729567) от 10.02.2022
+
+Bluetooth Scanner v1.2.2 [Ru] (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Готовы обнаруживать вокруг себя любые устройства Bluetooth?
+Хотите знать всё о подключенных устройствах Bluetooth?Тип издания: Пиратка (Ultimate)Релиз состоялся: 29 января 2022 г.Разработчик: Zoltán PallagiПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6494E9D2A08350D2A3261001513250E1B49597A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981106   (729362) от 23.04.2017
+
+Snapseed 2.17.0.150426010 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фоторедактор, завоевавший множество сердец пользователей iOS теперь доступен и на Android c версии 4.0+
+Теперь лучшее приложение по обработке фотографий выставки TIPA и IPad App 2011 доступно и на Android!
+Snapseed является единственным приложением, которое вы будете желать использовать каждый день. Вы сможете высококачественно обрабатывать ваши фотографии парой (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 23.04.17Разработчик: Google Inc.Поддерживаемая ОС: Android 4.1 +Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C304B50A11D10A597C9A2C412D6ED67E757CAD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 858735   (729208) от 23.04.2017
 
 My Android Tools Pro 1.3.7.2  [Rus]
@@ -6,7 +113,7 @@ My Android Tools Pro 1.3.7.2  [Rus]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729208.jpg" />
 </div>
 
 
@@ -35,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728914.jpg" />
 </div>
 
 
@@ -61,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728802.jpg" />
 </div>
 
 
@@ -88,7 +195,7 @@ Erectile Dysfunction Cure Yoga v6.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728695.jpg" />
 </div>
 
 
@@ -117,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728077.jpg" />
 </div>
 
 
@@ -146,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727622.jpg" />
 </div>
 
 
@@ -172,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727204.jpg" />
 </div>
 
 
@@ -198,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726514.jpg" />
 </div>
 
 
@@ -226,7 +333,7 @@ RawBT служба печати v5.52.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726505.jpg" />
 </div>
 
 
@@ -255,7 +362,7 @@ iHeart: #1 for Radio, Podcasts v10.12.0 [En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726255.jpg" />
 </div>
 
 
@@ -283,7 +390,7 @@ Onkyo HF Player v2.9.1 [Ru] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726037.jpg" />
 </div>
 
 
@@ -309,7 +416,7 @@ Runtastic PRO GPS Бег и фитнес v6.8.1 [Ru/Multi] - GPS трекер, �
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725617.jpg" />
 </div>
 
 
@@ -335,7 +442,7 @@ Terabox: облачное хранилище v2.10.3 Premium MegaMod [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723986.jpg" />
 </div>
 
 
@@ -361,7 +468,7 @@ Month: виджет календаря 2.9.16.5.9 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723828.jpg" />
 </div>
 
 
@@ -388,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723633.jpg" />
 </div>
 
 
@@ -415,7 +522,7 @@ Legs Workout and Exercises v1.3.31 [Ru/Multi] - Комплекс упражне�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723527.jpg" />
 </div>
 
 
@@ -441,7 +548,7 @@ Butt Workout v1.3.31 [Ru/Multi] - Тренировка Ягодиц
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723523.jpg" />
 </div>
 
 
@@ -467,7 +574,7 @@ Chest Workout v2.4.31 [Ru/Multi] - Тренировка грудных мышц
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723517.jpg" />
 </div>
 
 
@@ -493,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723362.jpg" />
 </div>
 
 
@@ -519,7 +626,7 @@ DigiSender TV Launcher 2.6.3 RU [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722934.jpg" />
 </div>
 
 
@@ -545,7 +652,7 @@ GlassWire для Android (Data Usage Privacy) 1.0.50r [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722276.jpg" />
 </div>
 
 
@@ -571,7 +678,7 @@ Balance BY Pro 6.0.203 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721822.jpg" />
 </div>
 
 
@@ -582,110 +689,6 @@ Balance BY — удобное приложение для проверки ба�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9462A17322D151589EC81D88A16722575ACB59E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 892106   (721328) от 25.04.2015
-
-ClockSync 1.2.5 [Ru] - Синхронизация времени телефона с атомными часами через NTP
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ручная или автоматическая синхронизация системного времени устройства через NTP.  ClockSync синхронизирует системное время устройства через Интернет по протоколу NTP с серверами точного времени. Программа будет полезна если ваш сотовый оператор не поддерживает NITZ (автоматическую синхронизацию времени) или посылает неверное время, а также если часы сильно убегают вперед или отстают. Доступно 2 режима работы: автоматический, для тех у кого есть root; и ручной, для пользователей без прав root.Тип издания: FreeРелиз состоялся: 25.10.2014Разработчик: Sergey BaranovПоддерживаемая ОС: Android 1.5+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25731C8E591618C26B2838258B669F3221107BE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 804658   (720144) от 16.02.2022
-
-iMuscle 2 v1.9 [En] (обновляемая)
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Android приложение - помощник для фитнес тренировок. Станет незаменимым для тех, кто решил начать следить за собой и заняться спортом. С помощью графической 3D модели тела человека можно выделить все мышцы, а также получить подробную информацию о них, узнать какие нужны упражнения для развития каждой группы мышц.  Приложение очень удобно в использовании: анимация (   Читать дальше...   )Тип издания: Купленная версия с Маркета (Paid)Релиз состоялся: 04.07.2019Разработчик: 3D4Medical.com, LLCПоддерживаемая ОС: Android 4.4+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:180840A38843A3FFEEA474857580984ABDED4AFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459877   (716445) от 06.08.2020
-
-AdAway 4.3.6 и 5.0.6 Beta [Ru] - Блокировщик рекламы
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Блокировщик рекламы с поддержкой белых и чёрных списков. HTC с S-ON напрямую не поддерживаются, поскольку нужна возможность записи в системный раздел. Поддерживает работу на планшетах.Релиз состоялся: 06.08.20Разработчик: Dominik SchrmannПоддерживаемая ОС: Android 4.1 + Android 8.0 для 5.0.4Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54AB0B15657CAAE05993578920B510C05FEB899C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130371   (716050) от 01.05.2017
-
-AutoBoy v3.5.1 AdFree [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716050.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеорегистратор AutoBoy BlackBox просто необходим в наши дни. Теперь AutoBoy будет вашим личным опекуном и помощником. Autoboy будет постоянно защищать вас от дорожно-транспортных происшествий.Тип издания: Пиратка (удалена реклама)Релиз состоялся: 26.04.2017Разработчик: HappyConzПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F14E504E03168C7E1F4DE896E059BF93F0ACC234
 ```
 
 https://mybot314.ru/tekegram_catalog/

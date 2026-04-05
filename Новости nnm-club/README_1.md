@@ -1,3 +1,134 @@
+###  Публикация: 1841757   (1048471) от 14.12.2025
+
+Россияне массово переходят на домашний интернет — 500 000 новых подключений за 3 месяца
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1048471.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как сообщает компания «ТМТ Консалтинг», в России рекордными темпами растет число абонентов, использующих домашний интернет. Так, за 3 месяца число подключений увеличилось на 500 000 — такого не было с 2010 года.На конец ноября в стране насчитывалось почти 38,5 миллиона домохозяйств, подключенных к домашнему интернету. При этом стоит учитывать, что семья из нескольких (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841938   (1048341) от 14.12.2025
+
+Очередное достижение: 9000 релизов от Аlехаndr
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередное  достижение: 9000 релизов от АlехаndrУважаемые одноклубники!Дорогие друзья! Мы отмечаем очередное, важное достижение Пользователя. Накануне наш Одноклубник, известный релизёр разного контента, и по совместительству Модератор Сериалов - совершил новый рывок, сделав ещё 1000 отличных релизов! Преодолев рубеж  в 9000 раздач - он не останавливается, и уверенно (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841754   (1048331) от 14.12.2025
+
+Почему нам нужно забыть про 5G в России. Разбираемся в вопросе
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заголовок статьи провокационный, но в ближайшие годы 5G у нас можно не ждать. Сети пятого поколения в России можно назвать многострадальными во всех смыслах. По всей стране раскиданы опытные зоны 5G, и вы даже можете к ним подключиться, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840629   (1047721) от 09.12.2025
+
+Немецкий государственный «троян»
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полиции разрешили тайно проникать в квартиры и устанавливать шпионское программное обеспечение на гаджеты
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840296   (1047345) от 06.12.2025
+
+Банановые документы
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047345.jpg" />
+</div>
+
+
+###  Подробнее
+
+ИИ Nano Banana Pro способен генерировать поддельные документы, включая квитанции, формы KYC и даже изображения паспортов, выяснили пользователи. Модель ИИ выводит результаты с гиперреалистичным почерком или макетами документов всего по одному запросу.Возможность создать официальные документы значительно увеличивает риск мошенничества и манипуляции с личными данными. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840330   (1047276) от 05.12.2025
 
 Micron закрыла бренд Crucial и свернула производство потребительских SSD и ОЗУ, направив все силы на ИИ
@@ -6,7 +137,7 @@ Micron закрыла бренд Crucial и свернула производс�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047276.jpg" />
 </div>
 
 
@@ -33,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047088.jpg" />
 </div>
 
 
@@ -60,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046753.jpg" />
 </div>
 
 
@@ -86,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046682.jpg" />
 </div>
 
 
@@ -112,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046561.jpg" />
 </div>
 
 
@@ -139,7 +270,7 @@ Neiry представила управляемых «голубей-биодр�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046550.jpg" />
 </div>
 
 
@@ -165,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046540.jpg" />
 </div>
 
 
@@ -191,7 +322,7 @@ Visualcapitalist: Китай опередил Европу по потребле
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046462.jpg" />
 </div>
 
 
@@ -217,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046379.jpg" />
 </div>
 
 
@@ -243,7 +374,7 @@ BLACKTAIL (2022) [Ru/Multi] (1.4) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046365.jpg" />
 </div>
 
 
@@ -269,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046364.jpg" />
 </div>
 
 
@@ -295,7 +426,7 @@ Aven Colony (2017) [Ru/En] (1.0.25665/dlc) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046363.jpg" />
 </div>
 
 
@@ -321,7 +452,7 @@ The Dark Pictures Anthology: The Devil in Me (2022) [Ru/Multi] (Build 10114057/d
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045961.jpg" />
 </div>
 
 
@@ -347,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045960.jpg" />
 </div>
 
 
@@ -373,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045959.jpg" />
 </div>
 
 
@@ -399,7 +530,7 @@ Udemy, YouRa Allakhverdov | Современный React - с Нуля до Пр
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045699.jpg" />
 </div>
 
 
@@ -427,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045696.jpg" />
 </div>
 
 
@@ -456,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045612.jpg" />
 </div>
 
 
@@ -482,7 +613,7 @@ BELOFF 2023 (Авторская раздача)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045610.jpg" />
 </div>
 
 
@@ -508,7 +639,7 @@ Aqua Mail Pro v1.42.0-239 [Ru/Ml]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045530.jpg" />
 </div>
 
 
@@ -527,32 +658,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603874   (1045528) от 11.01.2023
-
-Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.14332.20447 (2023.01) (W10 / 11) RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1045528.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2021 — новый офисный пакет от корпорации Microsoft, который включает в себя не только передовые функции, которые помогают пользователям работать максимально продуктивно, но и эффективные решения для управления, а также более более комплексный подход к безопасности. По традиции в его состав входят такие приложения как Word, Excel, Outlook, PowerPoint, (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:805FD4F789FF80E16C13A726A53426CD7C95F6C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 438543   (1045527) от 11.01.2023
 
 Тест звука для акустики 5.1.avi / Sound Test.Ac3 Dolby Digital 5.1Ch.avi (2012) DVDRip
@@ -561,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045527.jpg" />
 </div>
 
 
@@ -573,110 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70E887083654EE11945A0A3C559CA0DFEFF10C7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603867   (1045526) от 11.01.2023
-
-Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.12527.22286 (2023.01) (W 7, 8.1, 10, 11) RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1045526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2019 — новый офисный пакет от корпорации Microsoft, который включает в себя не только передовые функции, которые помогают пользователям работать максимально продуктивно, но и эффективные решения для управления, а также более более комплексный подход к безопасности. По традиции в его состав входят такие приложения как Word, Excel, Outlook, PowerPoint, (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CD094A2A51B778D092A4316F3E1F2A85C9515D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305013   (1045235) от 14.01.2023
-
-PC Building Simulator (2019) [Ru/Multi] (1.15.3.0/dlc) License GOG [Overclocked Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Постройте свою ПК-империю: начните с базовой диагностики и закончите сборкой машин, за которые удавится любой геймер! И вообще, мы постарались максимально точно передать реальные цены на реальные комплектующие. Давайте, самое время использовать полученную в игре информацию и собрать себе зверь-компуктер, а потом еще и замерить бенчмарк!Тип издания: LicenseРазработчик: Claudiu Kiss, The Irregular CorporationЖанр: Симулятор, Строительство, МенеджментЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A34A625B84E3FACACEC0EE4AE01B36DDB0A3A0D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605064   (1044902) от 17.01.2023
-
-AMD обнаружила 31 новую уязвимость в своих процессорах Ryzen и EPYC
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044902.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания AMD обновила информацию об уязвимостях в своих процессорах. В список добавлены данные о 31 уязвимости, которые, в том числе, затрагивают потребительские процессоры Ryzen и серверные EPYC. Разработчики также опубликовали список версий библиотеки AGESA, в которых реализованы исправления для закрытия выявленных уязвимостей.Библиотека инструкций AMD Generic (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587612   (1044890) от 17.01.2023
-
-Концерты (2022-2023) WEBRip [H.264/1080p] (сезон 1, выпуски 1-10 из 10)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы об этом мечтали, но боялись произнести вслух. Чистый юмор в эфире ТНТ! В рамках этого проекта профессиональные юмористические коллективы будут выступать со специальными часовыми перфомансами. Никаких судей или оценок – только юмор – это и есть «КОНЦЕРТЫ». Самый отвязный юмор во всём его жанровом и смысловом разнообразии, без запретов и ограничений. В каждом выпуске (   Читать дальше...   )Телекомпания: АО «ФМП Групп» по заказу АО «ТНТ-Телесеть»Жанр: ТВ-шоу, юморРежиссер: Роман НовиковПродолжительность: ~00:45:00 выпуск
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF607F7277061C948DE6DAAA8DB5C4B83BFFD830
 ```
 
 https://mybot314.ru/tekegram_catalog/

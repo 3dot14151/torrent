@@ -1,3 +1,61 @@
+###  Публикация: 19013   (1027979) от 04.03.2021
+
+The Best of Paul Mauriat 10 CD
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027979.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+
+01 BEGIN THE BEGUINE '90
+02 EBB TIDE '72(   Читать дальше...   )Жанр: InstrumentalПродолжительность: ~12:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38A60833FE6116FD23FCE31085A78404CEACC2AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452519   (1027705) от 06.03.2021
+
+Wardruna - Kvitravn (2021) [FLAC|Lossless|tracks + .cue] <Dark Folk, Ambient, Nordic Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Synkverv (4:51)
+02. Kvitravn (6:18)
+03. Skugge (6:38)
+04. Grá (3:32)(   Читать дальше...   )Производство: Sony Music, Columbia, Fimbulljóð Productions – 19439724702Жанр: Folk, Ambient, Nordic Folk, Dark FolkПродолжительность: 01:05:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CB676E7919376F6373E0F53F6FB8EA3FF017919
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452789   (1027363) от 08.03.2021
 
 Romantic Piano Music Masters - Спокойное фортепиано: Инструментальные баллады, Женский день (2020) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano>
@@ -6,7 +64,7 @@ Romantic Piano Music Masters - Спокойное фортепиано: Инст
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027363.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Marc Canham - I Care A Lot (2021) Original Motion Picture Soundtrack [FLAC|Lossl
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026734.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Baulta - 4 Альбома + 1 EP (2011-2021) [MP3|320 кб/с] <Post-Rock, Instr
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026713.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Blackmore's Night - Nature's Light (2021) [FLAC|24/48|Lossless|WEB-DL|tracks] <F
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026709.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Empyrium - 7 Studio Albums (1996-2021) 7xCD [FLAC|Lossless|image + .cue] <Neofol
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026576.jpg" />
 </div>
 
 
@@ -152,7 +210,7 @@ Beirut - 9 альбомов (2006-2019) [FLAC|Lossless]<Balkan Folk, World, Indi
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026120.jpg" />
 </div>
 
 
@@ -181,7 +239,7 @@ Tom Holkenborg (aka Junkie XL) - Zack Snyder's Justice League / Лига спр�
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025415.jpg" />
 </div>
 
 
@@ -210,7 +268,7 @@ Tom Holkenborg (aka Junkie XL) - Zack Snyder's Justice League / Лига спр�
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025411.jpg" />
 </div>
 
 
@@ -239,7 +297,7 @@ Tom Holkenborg (aka Junkie XL) - Zack Snyder's Justice League / Лига спр�
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025266.jpg" />
 </div>
 
 
@@ -268,7 +326,7 @@ Blackmore's Night - Nature's Light (2021) 2xCD, Jараnese Еditiоn [FLAC|Loss
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024572.jpg" />
 </div>
 
 
@@ -299,7 +357,7 @@ VA - Romantic Melodies: Classic In Pop (2005) [MP3|320 Kbps] <Pop, Rock, Classic
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024563.jpg" />
 </div>
 
 
@@ -328,7 +386,7 @@ Tom Holkenborg (aka Junkie XL) - Godzilla vs. Kong / Годзилла проти
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024209.jpg" />
 </div>
 
 
@@ -357,7 +415,7 @@ Tom Holkenborg (aka Junkie XL) - Godzilla vs. Kong / Годзилла проти
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024200.jpg" />
 </div>
 
 
@@ -386,7 +444,7 @@ Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Sketches from th
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024060.jpg" />
 </div>
 
 
@@ -415,7 +473,7 @@ Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Sketches from th
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024056.jpg" />
 </div>
 
 
@@ -444,7 +502,7 @@ Paul Cardall - The Broken Miracle (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023679.jpg" />
 </div>
 
 
@@ -473,7 +531,7 @@ VA - Romantic Melodies: Enigmatic (2008) [MP3|320 Kbps] <New Age, Folk, Celtic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023669.jpg" />
 </div>
 
 
@@ -502,7 +560,7 @@ VA - Pop Piano Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumenta
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023660.jpg" />
 </div>
 
 
@@ -531,7 +589,7 @@ VA - More Pop Piano Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instru
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023475.jpg" />
 </div>
 
 
@@ -560,7 +618,7 @@ Corrado Carosio & Pierangelo Fornaro - Rocco Schiavone 1-4 (Colonna Sonora Origi
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023468.jpg" />
 </div>
 
 
@@ -589,7 +647,7 @@ Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Sketches from th
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023466.jpg" />
 </div>
 
 
@@ -618,7 +676,7 @@ Tom Holkenborg (aka Junkie XL) - Godzilla vs. Kong / Годзилла проти
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023464.jpg" />
 </div>
 
 
@@ -647,7 +705,7 @@ Oscar Lopez - Guitar Masters (2002) Compilation [MP3|320 Kbps] <Flamenco, Guitar
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023463.jpg" />
 </div>
 
 
@@ -676,7 +734,7 @@ Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Original Motion 
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023462.jpg" />
 </div>
 
 
@@ -690,64 +748,6 @@ Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Original Motion 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD6F9B061A998978472BB45B79C61637848BEE8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459161   (1023305) от 01.04.2021
-
-Анастасия Бардина - GRAN-d SURPRISE (2006) [MP3|320 Kbps] <Guitar, Acoustic>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вечера в парках Парижа (5:29)
-02. Фанданго (6:26)
-03. Соната для скрипки-соло №1 (6:47)
-04. Вальс 'Мечта' (2:05)(   Читать дальше...   )Жанр: Guitar, AcousticПродолжительность: 01:05:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A817F8B23976B2D27E5D91B184B9E89E1332A683
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459157   (1023284) от 01.04.2021
-
-Francis Goya - Europe Vol. 5: Latino (2006) [MP3|320 Kbps] <Flamenco, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nostalgia (2:47)
-02. Solamente una vez (3:07)
-03. La Playa (3:58)
-04. Quando, quando, quando (2:33)(   Читать дальше...   )Жанр: Flamenco, Easy ListeningПродолжительность: 00:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB0D66069B3E269E900D59255818D5C7DD2C64DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

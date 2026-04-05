@@ -1,162 +1,3 @@
-###  Публикация: 933371   (505204) от 02.09.2015
-
-Стивен Леви | Хакеры: Герои компьютерной революции (2001) [FB2]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как-то незаметно получилось, что за последние годы достаточно большое количество значений слова «хакер» («компьютерный гений – озорник – любитель – специалист – исследователь») постепенно сжалось до «компьютерного хулигана – преступника». Mожно только «порадоваться» за труды журналистов околокомпьютерных и не очень изданий во всем мире, а также голливудских режиссеров, (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: Алексей ЛукинФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F57C33F0856CFB70934DA7397698D71FE22E4DE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316650   (505072) от 27.07.2019
-
-Михаил Фленов | Transact-SQL (2006) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подробно рассмотрено использование языка Transact-SQL для администрирования и манипуляции данными СУБД Microsoft SQL Server. Материал сопровождается большим количеством практических примеров, написанных автором. Уделено внимание вопросам применения Transact-SQL при совместном использовании 1С и Microsoft SQL Server. Для программистов и администраторов СУБДЖанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBA2AA1C9EE76ECAC82F62D2FAAD9BD6CBC2EB10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540693   (502979) от 29.08.2012
-
-М.Моррисон  | Изучаем JavaScript [2012] [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы готовы сделать шаг вперед в своей практике веб-программирования и перейти от верстки в HTML и CSS к созданию полноценных динамических страниц? Тогда пришло время познакомиться с самым "горячим" языком программирования - JavaScript!
-С помощью этой книги вы узнаете все о языке JavaScript: от переменных до циклов. Вы поймете, почему разные браузеры по-разному реагируют на код и как написать универсальный код, поддерживаемый всеми браузерами. Вам станет ясно, почему с кодом JavaScript никогда не придется беспокоиться о перегруженности страниц и ошибках передачи данных. Не пугайтесь, даже если ранее вы не написали ни одной строчки кода, - благодаря уникальному формату подачи материала эта книга с легкостью проведет вас по всему пути обучения: от написания простейшего java-скрипта до создания сложных веб-проектов, которые будут работать во всех современных браузерах.
-Особенностью данного издания является уникальный способ подачи материала, выделяющий серию "Head First" издательства O'Reilly в (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5430A46080969C62A7DB0FD684D93DC5AF5543A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540694   (502978) от 29.08.2012
-
-Л.Бейли | Изучаем SQL [2012] [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502978.jpg" />
-</div>
-
-
-###  Подробнее
-
-В современном мире наивысшую ценность имеет информация, но не менее важно уметь этой информацией управлять. Эта книга посвящена языку запросов SQL и управлению базами данных. Материал излагается, начиная с описания базовых запросов и заканчивая сложными манипуляциями с помощью объединений, подзапросов и транзакций. Если вы пытаетесь разобраться в организации и управлении базами данных, эта книга будет отличным практическим пособием и предоставит вам все необходимые инструменты.
-Особенностью данного издания является уникальный способ подачи материала, выделяющий серию «Head First» издательства O’Reilly в ряду множества скучных книг, посвященных программированию.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B52B7FF1BCCD2C5821D17B71B9920142FF2FC09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316981   (502223) от 30.07.2019
-
-Анатолий Караваев и др. | Введение в программирование для инженеров-электронщиков (2016) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502223.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебно-методическое пособие оформлено в виде конспекта лекций. Пособие ориентировано на студентов и инженерно-технических работников, знакомых с языком Pascal, которые преследуют цель быстрого освоения основ популярного языка Си и получения базовых знаний и навыков программирования на языке ассемблера в объеме минимально достаточном для начала освоения специальных (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF565B0FD3338F0FA07D3CF0FB709CC216CEA054
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541149   (502185) от 30.08.2012
-
-Steve Johnson | Adobe Dreamweaver CS5 On Demand [2010] [PDF] [En]
-
->>Компьютерная литература
->>Веб-дизайн
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502185.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет из себя пошаговый иллюстрированный самоучитель. Охвачен весь процесс создания веб-страниц от планирования сайта до его публикации в сети. Подробно рассмотрен интерфейс программы Adobe Dreamweaver CS5. Знание языка - начальное.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB538B6F15ADF7D14107EA070FA44E7C0371E1F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1317196   (502120) от 30.07.2019
 
 Кайл Симпсон | Вы не знаете JS. Асинхронная обработка и оптимизация (2019) [PDF]
@@ -165,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502120.jpg" />
 </div>
 
 
@@ -191,7 +32,7 @@ David Sawyer McFarland | Dreamweaver CS6: The Missing Manual [июль 2012] [PD
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502106.jpg" />
 </div>
 
 
@@ -217,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502037.jpg" />
 </div>
 
 
@@ -244,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501891.jpg" />
 </div>
 
 
@@ -271,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501035.jpg" />
 </div>
 
 
@@ -297,7 +138,7 @@ CheckPoint Software Technologies Ltd. | Документация по CheckPoint
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500989.jpg" />
 </div>
 
 
@@ -323,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500268.jpg" />
 </div>
 
 
@@ -349,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500059.jpg" />
 </div>
 
 
@@ -375,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500001.jpg" />
 </div>
 
 
@@ -401,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499990.jpg" />
 </div>
 
 
@@ -427,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499864.jpg" />
 </div>
 
 
@@ -453,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499077.jpg" />
 </div>
 
 
@@ -479,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498399.jpg" />
 </div>
 
 
@@ -505,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498376.jpg" />
 </div>
 
 
@@ -531,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498367.jpg" />
 </div>
 
 
@@ -557,7 +398,7 @@ M. Bowers, D. Synodinos, V. Sumner | Pro HTML5 and CSS3 Design Patterns [2011] [
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497991.jpg" />
 </div>
 
 
@@ -583,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497348.jpg" />
 </div>
 
 
@@ -609,7 +450,7 @@ Julie C. Meloni | Sams Teach Yourself PHP, MySQL and Apache. All in One [2012] [
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497070.jpg" />
 </div>
 
 
@@ -640,7 +481,7 @@ Openssource | Курс по анонимности и безопасности �
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497006.jpg" />
 </div>
 
 
@@ -668,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496866.jpg" />
 </div>
 
 
@@ -679,6 +520,165 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF296153B9AE9043D2D1788E4B4AEF92CCAABA56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935962   (495772) от 11.09.2015
+
+Rene Molenaar | How to Master CCNA / Как овладеть CCNA (2013) [PDF] [En]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга написана сертифицированный системным инструктором Cisco (CCSI) Rene Molenaar, и является компактным руководством по подготовке с экзамену CCNA. Обновленное издание с учетом экзаменов 100-101, 200-101 и 200-120.Жанр: Компьютерные сетиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B96ACE2A817617DCE59FD658072ACE3EAAE7A81A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936104   (495605) от 11.09.2015
+
+Василий Леонов | Сбои и ошибки компьютера. Простой и понятный самоучитель (2015) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495605.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы недавно начали осваивать компьютер? И возможно, уже успели столкнуться с проблемами в работе системы, вирусами или неполадками в работе жесткого диска? Не нужно отчаиваться! Наш компактный и наглядный самоучитель поможет вам справиться со всеми проблемами не хуже компьютерного мастера.
+Множество практических примеров и иллюстраций, а также простой и понятный стиль (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAB8719104625708084D66CB82E9CF5B7EECD9F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543306   (495218) от 05.09.2012
+
+Leonard Lobel, Andrew Brust | Programming Microsoft SQL Server 2012 [2012] [PDF] [En]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495218.jpg" />
+</div>
+
+
+###  Подробнее
+
+С этой книгой вы поднимите свои навыки программирования на новый уровень. Вы научитесь разрабатывать, тестировать и развертывать базы данных для SQL Server 2012. Основные аспекты - знакомство с ядром (T-SQL, SQL CLR, транзакции, безопасность); реляционные базы данных; прикладной SQL (технологии доступа к данным WCF, облачные технологии и синхронизация данных с SQL Azure).Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:927AC0CE3DBC10B7066EC8ADDD387A17D059BFFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543368   (495116) от 05.09.2012
+
+Бен Ватсон | С# 4.0 на примерах [2011] [DJVU]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495116.jpg" />
+</div>
+
+
+###  Подробнее
+
+На практических примерах рассмотрено программирование на языке Microsoft С# 4.0, начиная с основ языка и заканчивая решением типичных задач с помощью .NET Framework. Показано создание эффективных классов, интерфейсов и типов, а также программного кода, допускающего многократное использование. Описаны приемы обработки данных, основанные на применении коллекций, сериализации, баз данных и XML. Рассмотрена реализация пользовательского интерфейса с применением технологий WinForms и WPF, а также создание веб-приложений на основе технологий ASP.NET и Silverlight. Показано применение на практике новых возможностей языка С# 4.0. Уделено внимание взаимодействию с ОС Windows и системным ПО, использованию шаблонов для разработки сложных программ и другое. Приведено более 200 готовых решений, оптимальных технических приемов и примеров проверенного кода.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC98928E89CE02C110C060C952238B8A485A1A70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158119   (493185) от 15.08.2017
+
+И.В. Баскаков и др. | IP-телефония в компьютерных сетях (2016) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493185.jpg" />
+</div>
+
+
+###  Подробнее
+
+IP-телефония прочно входит в повседневную жизнь человека, превращаясь из экзотической услуги в базовый сервис. Это не просто альтернатива обычной телефонии, но и перспективная техническая платформа для передачи мультимедийной информации.
+Перед вами книга, которая поможет более глубоко разобраться в тонкостях IР-телефонии.
+Учебное пособие предназначено для широкого (   Читать дальше...   )Жанр: Сетевые технологииФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6331CA5228A0F4554E3F4D1590176E1717A3D95C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543961   (493001) от 06.09.2012
+
+Steve Johnson | Adobe Illustrator CS6 on Demand [2012] [PDF] [En]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет из себя пошаговый иллюстрированный самоучитель. Охвачен весь процесс работы с программой. Подробно рассмотрен интерфейс программы Adobe Illustrator CS6, новые возможности обозначены специальным значком. В конце книге они выделены в отдельный раздел с описанием. Книга позволяет подготовиться к сертификационным экзаменам Adobe.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ED2A198F63F31ACE29790293E5A4A03BE0EF135
 ```
 
 https://mybot314.ru/tekegram_catalog/

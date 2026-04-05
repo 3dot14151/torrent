@@ -6,7 +6,7 @@ NG: Подъем "Коста Конкордии" / The Raising the Costa Concord
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357551.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NG. Медоеды. Змеиные убийцы / Honey Badgers of the Kalahari.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357547.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NG: Секретное оружие Японии / Japan's Secret Weapon (2009) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356296.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NG. Потерянные мумии Новой Гвинеи / Mystery Mummies of
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354264.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NG. Титаник: Роковой пожар / Titanic's: Fatal Fire (Titanic: 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354142.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NGW: Остров муссонов. Озерные охотники / Island of 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351888.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ NGW: Загадка гигантского пещерного паука / Myste
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350810.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ NG. Мумии, застывшие во времени / Mummies. Frozen in Time
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349750.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ NG: Затерянный храм империи инков / Lost Temple of The
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346446.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ NG: Затерянный храм империи инков / Lost Temple of The
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346438.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ NG. Франциск-бунтарь / Rebel Pope (2016) DVB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345657.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ NG: Дикая природа Чили / Wild Chile (2017) WEB-DL [H.264/1080p] 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343944.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ NG: Дикая природа Чили / Wild Chile (2017) WEB-DLRip [H.264/720p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343942.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ NG: Чудеса инженерии / Big Bigger Biggest (2008-2009) HDTVRip [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342925.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ NGW. Дикий Нил / Wild Nile (2014) HDTVRip [H.264/720p-LQ] (1-3 сери�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342116.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ NG: Топ 10 Мегамонстры / Top 10 Biggest Beasts Ever (2015) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341948.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ NG: От колыбели до могилы / Cradle to Grave (2016) HDTV [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341631.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ NG. Первая мировая война: тоннели смерти / WWI: T
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340902.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ NGW. Дикая природа Коста-Рики / Wild Costa Rica (2000) HDTV
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340900.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ NGW. Самая большая в мире белая акула / World's Bigge
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340847.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ NG. Львиное королевство / Lion Kingdom (2017) WEB-DL [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340788.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ NGW. Дикие животные 24 часа / Wild 24 (2016) HDTVRip [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340726.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ NG: Внутри колец Сатурна / Mission Saturn (2017) TVRip [H.264]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339393.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ NGW: Птица-динозавр / Dino-Bird (2017) HDTV [H.264/1080i]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338697.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ NGW: Гонка жизни / Race of Life (2015) HDTVRip [H.264/1080p-LQ] (Се�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338207.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ NG: Архитекторы древности / Architects of the Ancient World 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334439.jpg" />
 </div>
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1208994   (779638) от 24.02.2018
+
+Элементы материи / Elements of Matter  (2018) BDRip [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779638.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Элементы материи» - комедийная мелодрама, в центре событий которой оказывается жизнь молодой, но талантливой и очень успешной актрисы. В свои годы героиня сумела сделать головокружительную карьеру. У неё множество поклонников и прекрасные перспективы в творческой жизни. Но у богатых и знаменитых тоже случаются свои неприятности. А известность и обеспеченная жизнь (   Читать дальше...   )Производство: США / Fooya Films, Schema MediaЖанр: мелодрама, комедия, семейныйРежиссер: Ассаф Бен ШетритАктеры: Дилан Кенин, Холли Фэйн, Шон Бакхолз, Бен Уайз, Бэт Парнасс, Чип Сиклер, Катрин Вентура, Пол Де СузаПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английскиеПродолжительность: 01:32:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38C1D8E15B9A99D4299EAA317875F0CD6FF84317
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209100   (779456) от 25.02.2018
 
 Колесо чудес / Wonder Wheel  (2017) BDRip [H.264/1080p] [EN]
@@ -6,7 +32,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779456.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779189.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779066.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779044.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778981.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778949.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778810.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778797.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778642.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778615.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778598.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778512.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778481.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778443.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778278.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778224.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778117.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778097.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777724.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777719.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777717.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777397.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777386.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777071.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777044.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5AB6D7508DE09C91B17D4C87C6D31247A4E61E7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013901   (776815) от 06.05.2016
-
-Двое во вселенной / La corrispondenza  (2016) BDRip [H.264/720p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эд и Эми - ученый и студентка, изучающие теорию струн и космических двойников, вселенную и параллельные измерения. Они - родственные души, созданные друг для друга. Их любовь не знает границ и расстояний. Но внезапно Эд исчезает. И все, что у нее остается - это регулярно приходящие от него послания. В какую игру втягивают Эми? Эксперимент ученого, решившего скрыться (   Читать дальше...   )Производство: Италия, Paco Cinematografica, Rai Cinema, Ministero per i Beni e le Attività Culturali (MiBAC), Business Location Sudtirol Alto Adige, Trentino Film Commission, Film Commission Torino-PiemonteЖанр: драма, мелодрамаРежиссер: Джузеппе ТорнатореАктеры: Ольга Куриленко, Джереми Айронс, Шона МакДональд, Анна Савва, Джеймс Смилли, Саймон Микок, Джерри Квартенг, Род Гленн, Джеймс Блур, Ирина Кара, Стюарт Адамс, Колин МакДугаллПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 02:02:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7818D26353D8D1E8328FBCB1726C88F2D0E9BF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

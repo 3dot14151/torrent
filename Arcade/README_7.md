@@ -6,7 +6,7 @@ Big Rumble Boxing: Creed Champions (2021) [Multi] (6579165) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885433.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Dwarrows (2020) [En] (1.3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884805.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ The King of Fighters XIV (2017) [Multi] (1.0/dlc) License GOG [Galaxy Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884745.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Pode (2020) [Ru/Multi] (1.0/hotfix) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881326.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Race The Sun (2013) [En] (1.51/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881063.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Revolve (2017) [Ru/Multi] (1.0) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880937.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Ultimate Chicken Horse (2016) [Ru/Multi] (1.0) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880283.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ WWE 2K16 (2016) [En] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880277.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ ClusterTruck (2016) [En] (1.1) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879387.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Shadow Blade: Reload (2015) [Ru/Multi] (1.0/upd 3) License POSTMORTEM
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878687.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Shadow Blade: Reload (2015) [Ru/Multi] (1.0/upd3) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878455.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ NARUTO SHIPPUDEN: Ultimate Ninja STORM 4 (2016) [Ru/Multi] (1.0/upd 2) License C
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874593.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Psychonauts (2005) [Multi] (1.1.603.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874385.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ The Last Stand Legacy Collection (2021) [En] (1.04) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874227.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873244.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Assassin’s Creed Chronicles: India / Assassin's Creed Chronicles: Индия (
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871107.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ LEGO MARVEL's Avengers (2016) [Ru/Multi] (1.0) License RELOADED
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871106.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Assassin's Creed Chronicles: Russia / Assassin's Creed Chronicles: Россия 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870983.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Crime Cities (2000) [En] (1.0) Licence
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867615.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Candlelight (2016) [En] (1.0) Rip R I T U E L
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865822.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Xeno Crisis (2019) [Multi] (1.0.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865147.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Shift Happens (2017) [Ru/Multi] (1.0) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863668.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Sky Cannoneer (2020) [En] (1.1.8.05) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863286.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Dead or Alive 6 (2019) [Ru/Multi] (1.22/dlc) Repack xatab [Digital Deluxe Editio
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863267.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Subterrain (2015) [Ru/Multi] (1183) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862496.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Orphan (2018) [Ru/Multi] (1.0.2.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860887.jpg" />
 </div>
 
 

@@ -1,32 +1,3 @@
-###  Публикация: 1278573   (768478) от 26.01.2019
-
-Atom Music Audio - Vortex (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mistake [02:33]
-02. In the Dark Rise [02:29]
-03. Vortex [02:05]
-04. Eternity [02:36](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:23:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC0C7C4E896D58F9D3BF4B6015463AF86D86E7F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278574   (768475) от 26.01.2019
 
 Atom Music Audio - EON (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
@@ -35,7 +6,7 @@ Atom Music Audio - EON (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orc
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768475.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Really Slow Motion - Miraculum (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, 
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768471.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766387.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Евгенич (2021) [MP3|320 Kbps] <OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766079.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Claudio Simonetti - Стальные руки / Hands of Steel - Vendetta dal Fu
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763533.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Jon Brion - Паранорман, или Как приручить зомби / 
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757563.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ VA - OST - The Angry Birds Movie (Original Motion Picture Soundtrack) (2016) [MP
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755591.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Atom Music Audio - Epic Nature Series: Earth (Planet of Life) (2020) [MP3|320 Kb
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755402.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Atom Music Audio - Exogen: Metahuman Themes (2020) [MP3|320 Kbps] <Soundtrack, I
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755191.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Audiomachine - Exogenesis (2019) [MP3|320 Kbps] <Soundtrack, Trailer music, Clas
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749916.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ VA - Яркость / Bright: The Album (2017) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742139.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741701.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Ric Sandler - Hey Good Lookin' (Original Motion Picture Soundtrack) (2006) [MP3|
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740232.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ John Carpenter, Cody Carpenter and Daniel Davies - Halloween (Original 2018 Moti
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731000.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ VA - Не грози Южному Централу, попивая сок у с�
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730015.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Atom Music Audio - Nemesis (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729934.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729468.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Ramin Djawadi - Warcraft (Original Motion Picture Soundtrack) (2016) [MP3|320 к
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726407.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Steve Jablonsky - Teenage Mutant Ninja Turtles: Out of the Shadows (Music from t
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726072.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724897.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Table Top Racing - World Tour (2016) [MP3|320 кб/с]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724250.jpg" />
 </div>
 
 
@@ -641,7 +612,7 @@ Angry Video Game Nerd II: ASSimilation (Sam Beddoes) (2016) [MP3|320 кб/с]<Sc
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724241.jpg" />
 </div>
 
 
@@ -667,7 +638,7 @@ John Ottman - X-Men: Apocalypse / Люди Икс: Апокалипсис (Origi
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720303.jpg" />
 </div>
 
 
@@ -696,7 +667,7 @@ VA, Tyler Bates - Guardians of the Galaxy Vol. 2 / Стражи Галактик
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720046.jpg" />
 </div>
 
 
@@ -725,7 +696,7 @@ Atticus Ross, Claudia Sarne, Leopold Ross - Triple 9 / Три девятки (Or
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720039.jpg" />
 </div>
 
 
@@ -739,6 +710,35 @@ Atticus Ross, Claudia Sarne, Leopold Ross - Triple 9 / Три девятки (Or
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D9F45408DF2E6ED4821A4A8C15AE8962FA7BFB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023707   (719727) от 07.06.2016
+
+Brad Fiedel - The Terminator (Original MGM Motion Picture Soundtrack) (2016) Milan / Remastered [MP3|320 кб/с] <Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	Main Title 	2:40
+02. 	Terminator Arrival / Reese Chased / Sarah On Motorbike 	7:09
+03. 	Terminator Gets Guns / Search For Sarah 	1:13
+04. 	Reese Dreams Of Future War 	1:51(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:08:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:671CE556654B703612F6A1D3D64EE453E1CC19AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

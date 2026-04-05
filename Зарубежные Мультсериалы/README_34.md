@@ -1,3 +1,55 @@
+###  Публикация: 1326012   (358386) от 02.10.2019
+
+Отмена / Undone (2019) WEB-DLRip (сезон 1, серии 1-8 из 8)  NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет расскажет о девочке, которая после автомобильной аварии получила возможность перемещаться во времени и пространстве. Она пытается использовать свои способности, чтобы спасти давно умершего отца.Производство: США, Amazon Studios, Minnow Mountain, Submarine, Tornante CompanyЖанр: Мультфильм, фэнтези, драмаРежиссер: Хиско ХулсингПеревод: Многоголосый любительский (NewStation)Субтитры: отсутствуютПродолжительность: ~00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F324DA3948AA346C23242B917492928EEF7863E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326009   (358182) от 02.10.2019
+
+Отмена / Undone (2019) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-8 из 8)  NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет расскажет о девочке, которая после автомобильной аварии получила возможность перемещаться во времени и пространстве. Она пытается использовать свои способности, чтобы спасти давно умершего отца.Производство: США, Amazon Studios, Minnow Mountain, Submarine, Tornante CompanyЖанр: Мультфильм, фэнтези, драмаРежиссер: Хиско ХулсингПеревод: Многоголосый любительский (NewStation)Субтитры: русские, английские, арабские, датские, немецкие, испанские, финские, французские, ивритские, индонезийские, итальянские, корейские, японские, норвежские, голландские, польские, португальские, шведские, тамильские, тайские, турецкие, китайскиеПродолжительность: ~00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73D50568F3A990A4D78A40CEF259DD261D6ACCBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 755239   (355585) от 03.11.2014
 
 Арчер / Спецагент Арчер / Archer (2014) WEB-DLRip (Сезон-5 / Серии 1-13 из 13) NewStudio
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355585.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354342.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353931.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353925.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353916.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353900.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352189.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351761.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351750.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348891.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348760.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348746.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347640.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347199.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347172.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ Lego: Рыцари Нексо /  Lego: Nexo Knights (2017) WEBRip (сезон 3,
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346330.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346148.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346076.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345366.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344774.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342986.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342445.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342438.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_342059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_342059.jpg" />
 </div>
 
 
@@ -622,58 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 839581   (341591) от 09.11.2014
-
-Лего. Подружки из Хартлейк Сити / Lego: Friends (2012-2014) WEB-DLRip (1 сезон: 1-6 серии + Бонусы)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341591.jpg" />
-</div>
-
-
-###  Подробнее
-
-На озере в форме сердца расположен маленький замечательный город Хартлейк Сити. Здесь и живут наши подружки Андреа, Эмма, Оливия, Мия, Стефани. Героини очень разные по характеру, взглядами, интересами. Но не смотря на это они крепко дружат, находят взаимопонимание, поддерживают друг друга. У них много друзей, увлечений, каждая из героинь имеет свою точку зрения на (   Читать дальше...   )Жанр: Мультсериал, приключения, романтика, комедияРежиссер: Педер ПедерсенАктеры: Рич Баклойд, Ракель Кристиана, Джессика Ги, Тейлор Генри, Венди Ли, Софи РобертсПеревод: ДублированныйПродолжительность: Каждая серия х 00:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83154142BA4A357713062FF55A5652FD65D2042B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 411122   (340484) от 15.11.2011
-
-Том и Джерри / Tom and Jerry (1940-1945) BDRip [720p] (Часть 1)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кот Том и мышонок Джерри вызывали смех и покоряли сердца детей и взрослых всего мира на протяжении десятилетий. До сих пор эти два мультгероя-суперзвезды с неизменным успехом поражают зрителей своим мастерством перевоплощения, новыми изобретательными трюками и розыгрышами. Следите за уморительными проделками этой неуловимой парочки в первоклассной коллекции незабываемых (   Читать дальше...   )Жанр: Рисованная анимация, Детский, КомедияРежиссер: Джозеф Барбера, Ханна УильямПерсонажи: Том и ДжерриПеревод: Профессиональное (многоголосое)Продолжительность: 20 серий по ~00:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA7E3F9A0C62D886B9B945C64D451AEAE6AA5474
 ```
 
 https://mybot314.ru/tekegram_catalog/

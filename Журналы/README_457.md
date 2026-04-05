@@ -1,3 +1,134 @@
+###  Публикация: 1269434   (268681) от 16.11.2019
+
+Подшивка | Selber Machen (2019) [PDF] [De]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Selber Machen — немецкий журнал для домашних мастеров. В каждом выпуске: советы по ведению домашнего хозяйства, создание изделий из дерева для дома и сада своими руками, обустройство приусадебного участка, навыки обращения с рабочим инструментом, мелкий ремонт, идеи по оформлению интерьераЖанр: ДомоводствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9BBCC6E8958818EAF2E5FC336E164A595557923
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190004   (268660) от 08.12.2017
+
+Журнал | Квант №10 (октябрь 2017) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268660.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Квант» — научно-популярный физико-математический журнал, рассчитанный на массового читателя. Материалы, накопленные в журнале за годы его существования, практически бесценны. Идею создания издания такой тематики высказал П.Л. Капица в 1964 году. Издается с 1970-го года.Жанр: Научно-популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18D6D51C79CFEFBEF06A94A022962389C48D4BED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190176   (268652) от 08.12.2017
+
+Журнал | Windows IT Pro/RE №12 (декабрь 2017) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268652.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональное издание на русском языке, целиком и полностью посвященное вопросам работы с продуктами семейства Windows и технологиям компании Microsoft. Каждый номер журнала начинается со статей, посвященных одной из самых перспективных на данный момент технологий, оказывающих серьезное влияние на ИТ-отрасль и вызывающих интерес сообщества профессионалов Windows. (   Читать дальше...   )Жанр: Компьютерный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58B2CF4004B5F983BF668494489D99F382AFF1CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 274697   (268637) от 28.12.2010
+
+Подшивка журналов | Шторы как искусство [Интерактивный журнал мод] (2002-2009) [DJVU, PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал "Шторы как искусство" - это специализированное издание: профессиональное, и в то же время популярное, рассчитанное как на заказчика, так и на производителя.
+Уже семь лет мы ведем с читателем заинтересованный разговор о тканевом оформлении интерьера. Сегодня можно констатировать, что мы достигли одной из своих главных целей: стали не только широко (   Читать дальше...   )Формат: DJVU-PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4B24FCD1A01D9483436EC7E8FDC55A5F9B88417
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 428513   (268403) от 27.12.2011
+
+Журнал | Чем развлечь гостей (6 номеров) [1998, 1999, 2000, 2008, 2009] [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268403.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник "Чем развлечь гостей" - это печатное издание, которое поможет Вам провести любое мероприятие, праздник, день рождения, юбилей, свадьбу, Новый Год или вечеринку так, что они надолго запомнятся всем участникам. Все материалы Вы сможете применить как в большой аудитории, так и на молодёжной вечеринке, в семье, в кругу друзей и сослуживцев.Формат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194731   (268261) от 04.12.2018
 
 Подшивка журналов | Circuit Cellar (2018) [PDF] [En]
@@ -6,7 +137,7 @@
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268261.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268206.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268198.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268187.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268186.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268136.jpg" />
 </div>
 
 
@@ -162,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268027.jpg" />
 </div>
 
 
@@ -189,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267961.jpg" />
 </div>
 
 
@@ -216,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267955.jpg" />
 </div>
 
 
@@ -242,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267943.jpg" />
 </div>
 
 
@@ -268,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267868.jpg" />
 </div>
 
 
@@ -294,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267863.jpg" />
 </div>
 
 
@@ -320,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267861.jpg" />
 </div>
 
 
@@ -346,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267671.jpg" />
 </div>
 
 
@@ -372,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267571.jpg" />
 </div>
 
 
@@ -398,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267392.jpg" />
 </div>
 
 
@@ -424,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267272.jpg" />
 </div>
 
 
@@ -450,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267267.jpg" />
 </div>
 
 
@@ -476,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267128.jpg" />
 </div>
 
 
@@ -502,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267122.jpg" />
 </div>
 
 
@@ -528,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267118.jpg" />
 </div>
 
 
@@ -539,137 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C76F64CA68405278894BD8CE4EE7A9C015A233A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339138   (267117) от 18.11.2019
-
-Журнал | Делаем сами №19 (2019) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267117.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Делаем сами» - журнал для мастеров и мастериц, находящихся в постоянном поиске свежих творческих идей и решений. Уникальность издания в том, что оно состоит главным образом из писем читателей. Авторы делятся своим опытом и доступными идеями, дают полезные практические советы о том, что можно спаять и вырезать, выпилить и выстругать, собрать и склеить, выкроить и (   Читать дальше...   )Жанр: ДомоводствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A04CF1A28092FB8A3800D7A23379A36B3618AE97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339152   (267114) от 18.11.2019
-
-Журнал | Делаем сами №21 (2019) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267114.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Делаем сами» - журнал для мастеров и мастериц, находящихся в постоянном поиске свежих творческих идей и решений. Уникальность издания в том, что оно состоит главным образом из писем читателей. Авторы делятся своим опытом и доступными идеями, дают полезные практические советы о том, что можно спаять и вырезать, выпилить и выстругать, собрать и склеить, выкроить и (   Читать дальше...   )Жанр: ДомоводствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC446CC9F9595D5B5CC58F827832C10ED0780E78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339130   (267109) от 18.11.2019
-
-Журнал | Делаем сами №12 (2019) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267109.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Делаем сами» - журнал для мастеров и мастериц, находящихся в постоянном поиске свежих творческих идей и решений. Уникальность издания в том, что оно состоит главным образом из писем читателей. Авторы делятся своим опытом и доступными идеями, дают полезные практические советы о том, что можно спаять и вырезать, выпилить и выстругать, собрать и склеить, выкроить и (   Читать дальше...   )Жанр: ДомоводствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D48C9B5F61768FC89BE3FDA7C0700E165231F762
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190628   (267107) от 10.12.2017
-
-Газета | Великие открытия №12 (декабрь 2017) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь президентов, политиков и даже современных королей не так уж безоблачна, блистательна и безопасна, как думают некоторые. На политических лидерах лежит огромная ответственность за страну, за
-свой народ и его процветание. Уже в 2000-е годы мы стали свидетелями гибели политических лидеров ряда стран, причем нередко довольно таинственным образом...Жанр: Популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:889B2E38994332A6A99DDA55A5F52E484B9772B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190667   (267100) от 10.12.2017
-
-Журнал | Загадки истории №50 (2017) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны не только журналистами, но и писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Жанр: Популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4685B89D7092BBA9FF25534877DE7D072AB48F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

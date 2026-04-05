@@ -1,22 +1,24 @@
-###  Публикация: 1781739   (70174) от 24.02.2025
+###  Публикация: 1779599   (70630) от 14.02.2025
 
-Photo Studio PRO v2.7.13.3850 Mod by Balatan [Ru/Multi]
+Шрифты - Creative Market - Brighter Brush a Realistic SVG Font [OTF, TTF]
 
 >>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70630.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Photo Studio — не просто приложение для редактирования фотографий, в нем собраны необычные эффекты для фото. Подручный редактор фотографий добавит красок повседневным кадрам, подскажет как исправить фото. Интересные фильтры, неожиданные эффекты, потрясающий коллаж, веселые стикеры на фото: все то, чего мы ждем, выбирая редактор фото.Тип издания: Pro / ModРелиз состоялся: 24.02.2025Разработчик: KVADGroup App StudioПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+Brighter Brush — реалистичный шрифт с кистью, созданный для любого профессионального брендинга проекта, например, логотипа, комикса, водяных знаков, плаката, брендинга, акций, упаковки продукта и т. д. Каждая буква имеет реалистичный стиль кисти.
+
+Кириллица не поддерживается.Формат: OTF, TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:865D3B7896BB83AA304A500FF9E3BB0A4C6A2F21
+magnet:?xt=urn:btih:B8783B7164E4968142D1FE74B626703FC64BC5EF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +26,82 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781643   (70173) от 24.02.2025
+###  Публикация: 1778753   (70629) от 14.02.2025
 
-VA - Modern 80's - The Best Of Discopop Vol.2 (1999) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Italo-Disco, Synth-pop>
+John Williams - Film Music of John Williams (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical, Modern Classical, Film Soundtracks, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Bateman & Czech National Symphony Orchestra - Hedwig's Theme (From "Harry Potter And The Philosopher's Stone") [1:29]
+02. John Williams, Anne-Sophie Mutter & The Recording Arts Orchestra of Los Angeles - Sayuri's Theme (From "Memoirs Of A Geisha") [4:44]
+03. John Williams - Gupta's Deliverance (The Terminal/Soundtrack Version) (   Читать дальше...   )Жанр: Classical, Modern Classical, Film Soundtracks, SoundtrackПродолжительность: 02:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87179B3297DBE0E58B570F99D009833A21FDD4B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779598   (70628) от 14.02.2025
+
+Process Lasso Pro  15.1.0.41 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Process Lasso позволяет вручную или автоматически манипулировать запущенными на компьютере процессами, что позволяет добиться максимального быстродействия и стабильности системы. Process Lasso наблюдает за программами, активно загружающими центральный процессор и ограничивает их, тем самым улучшая системный отклик. Также она может автоматически снизить приоритет (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3333D2C2CC680C5E9FA4355A47509BBA589850F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779636   (70627) от 14.02.2025
+
+Юлия Коган - Соло на нервах (2025) [MP3|320 Kbps] <Pop>
 
 >>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70627.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Robin Gibb - Juliet
-02. Samantha Fox - I Surrender (To the Spirit of the Night)
-03. Bros - When Will I Be Famous
-04. Sabrina - Boys(   Читать дальше...   )Жанр: Electronic, Pop, Italo-Disco, Synth-popПродолжительность: 02:40:53
+1. Соло на нервах
+2. Таблетка
+3. Быть для тебя
+4. Влюбились и выжили(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:75D0EE7BEDCFFDF143D43F23CBDBB15AE0235379
+magnet:?xt=urn:btih:138C0C8891AC00A196443BA15C7C8AE6B0B3C469
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,26 +109,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781680   (70172) от 24.02.2025
+###  Публикация: 1779507   (70626) от 14.02.2025
 
-НХЛ 2024-2025. Нью-Йорк Рейнджерс - Питтсбург Пингвинз (23.02.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+Johnny Valdivia - Mandolin Cover Compilation (2025) [MP3|320 Kbps] <Instrumental, Easy listening, Cover>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta, Johnny Valdivia - Lovers on the Sun
+02. Annalisa, Johnny Valdivia - Sinceramente
+03. Joe Dassin, Johnny Valdivia - Et Si Tu N'existais Pas
+04. Johnny Valdivia - The Beauty of Rose of Versailles(   Читать дальше...   )Жанр: Instrumental, Easy listening, CoverПродолжительность: 00:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC8546BB2F59AD5542BB850DE2CBC6729B68FDF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779668   (70625) от 14.02.2025
+
+Les McCann - How's Your Mother (1967) 1998, 32 Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70625.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love for Sale [7:11]
+02. I Can Dig It [8:24]
+03. Doin' That Thing [8:56]
+04. I Am in Love [6:09](   Читать дальше...   )Жанр: Hard Bop, Piano jazzПродолжительность: 00:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8026C027612EFD6A1997FB233C80AB2DF59769D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779522   (70624) от 14.02.2025
+
+Футбол. Чемпионат Германии 2024/25. Бундеслига 21-тур. Бавария (Мюнхен) - Вердер (Бремен) (07.02.2025) DVBRip [H264]
 
 >>Спорт и активный отдых
->>Хоккей
+>>Футбол
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70624.jpg" />
 </div>
 
 
 ###  Подробнее
 
-23 февраля 2025, воскресенье. 23:30 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 17 186 зрителей (92% при вместимости 18 673)
-Главный судья: Дэн О'Рурк (Калгари, Канада); Главный судья: Грэм Скиллитер (Ла Ронж, Канада); Линейный: Си Джей Мюррей (Питтсбург, США); Линейный: Трэвис Гаврилетц (Трэил, Канада)Телекомпания: TNTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:06:55
+Во встрече предыдущего тура Бундеслиги мюнхенцы чуть было не нарвались на сенсационную потерю очков. «Вердеру» придётся несладко, ведь «Бавария» будет нацелена исправиться. Главный недостаток «Вердера» заметен невооружённым глазом. Результативность хорошая, но пропускает клуб чаще. А в Мюнхен бременцы отправляются ещё и без двух ведущих защитников. В игре предыдущего (   Читать дальше...   )Телекомпания: Матч!Жанр: спорт, футболЯзык озвучки: РусскийПродолжительность: 01:48:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:234CFD41B6948EBB46B0DDFC4D4AF14063894A10
+magnet:?xt=urn:btih:F7130E3487B83638B9C0EC156FB9A934F9FCB1DC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -80,28 +193,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781627   (70171) от 24.02.2025
+###  Публикация: 1779721   (70623) от 14.02.2025
 
-Michael Weiss Quartet - Power Station (1997) DIW Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+Алексей Николаевич Толстой | Сорочьи сказки (2013) [MP3, Александр Котов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70623.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алексей Николаевич Толстой (1882–1945) – русский советский писатель и общественный деятель, граф. Автор социально-психологических, исторических и научно-фантастических романов, повестей и рассказов, публицистических произведений.
+Для детей дошкольного возраста предлагается сборник сказок А.Н. Толстого, в который вошли сказки о природе.
+
+ Алексей Николаевич Толстой (   Читать дальше...   )Жанр: Русская литература для детей, классика, сказкаИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 01:45:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6237058E2EB956433CEA6D302539B79584CEEA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779661   (70622) от 14.02.2025
+
+Dick Hyman - Plays The Great American Songbook (1994) 2CD, MusicMasters Jazz [FLAC|Lossless|tracks + .cue] <Stride, Swing, Piano Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70622.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Power Station [8:50]
-02. Atlantis [8:16]
-03. Orient Express [5:53]
-04. Soul Journey [4:47](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:54:59
+01. Easter Parade [2:52]
+02. Liza [4:36]
+03. Woman's Prerogative [4:47]
+04. All Through the Night [4:31](   Читать дальше...   )Жанр: Stride, Swing, Piano JazzПродолжительность: 02:05:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B0CA7CE673C4A5ACE6FDD42A125BD56D14503D3
+magnet:?xt=urn:btih:9CD2101B9897BDCC1A392EA09ECB728880512CD7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -109,168 +251,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781629   (70170) от 24.02.2025
+###  Публикация: 1779724   (70621) от 14.02.2025
 
-Joanie Sommers & Laurindo Almeida - Softly, The Brazilian Sound (1964) 2013, Warner [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Brazilian Jazz, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meditation [3:01]
-02. Dear Heart [3:19]
-03. Watching the World Go By [3:07]
-04. Quiet Nights [2:51](   Читать дальше...   )Жанр: Vocal Jazz, Brazilian Jazz, Bossa NovaПродолжительность: 00:37:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5EC9F680441C492DA0AAEF57666ED0BC1217ECF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781675   (70169) от 24.02.2025
-
-НХЛ 2024-2025. Эдмонтон Ойлерз - Вашингтон Кэпиталз (23.02.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70169.jpg" />
-</div>
-
-
-###  Подробнее
-
-23 февраля 2025, воскресенье. 21:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
-Главный судья: Брайан Почмара (Детройт, США); Главный судья: Франсис Шаррон (Оттава, Канада); Линейный: Жонатан Дешам (Труа-Ривьер, Канада); Линейный: Трент Кнорр (Пауэлл Ривер, Канада)Телекомпания: SNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:04:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1C021568EB06340BBF8DF1B186CE01A2130446B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781619   (70168) от 24.02.2025
-
-Ulcerate - Cutting The Throat Of God (2024) [FLAC|Lossless|image + .cue] <Death Metal, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70168.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. To Flow Through Ashen Hearts 7:07
-2. The Dawn Is Hollow 7:32
-3. Further Opening The Wounds 7:57
-4. Transfiguration In And Out Of Worlds 8:33(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0B40709FBB7B4652BCBAD616A06B71A39D86981
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781633   (70167) от 24.02.2025
-
-Abdullah Ibrahim - Water From An Ancient Well (1985) 1992, Enja [FLAC|Lossless|tracks + .cue] <Post-Bop, African Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mandela [4:59]
-02. Song for Sathima [6:12]
-03. Manenberg Revisited [6:11]
-04. Tuang Guru [5:26](   Читать дальше...   )Жанр: Post-Bop, African JazzПродолжительность: 00:46:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F61A6EC26961508066350B688FC8AB13E4E553F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781687   (70166) от 24.02.2025
-
-Бернард Шоу | Смуглая леди сонетов (Радиоспектакль) (1971) [MP3, Вера Марецкая, Михаил Астангов и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Редкие Записи, Из архива «Гостелерадиофонда».
-Джордж Бернард Шоу (1856–1950) – английский писатель, романист, драматург, лауреат Нобелевской премии в области литературы 1925 года. Общественный деятель. Второй (после Шекспира) по популярности драматург в английском театре.
-Радиоспектакль по одноимённой пьесе Бернарда Шоу.
-Пьеса об Уильяме Шекспире, о его (   Читать дальше...   )Жанр: Зарубежная литература, классика, комедияПеревод: Мария ЛориеИздательство: Всесоюзное радио СССРПродолжительность: 00:34:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61A15045C678DB7B44DDD83F20729B3A92850742
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781712   (70165) от 24.02.2025
-
-Двойные неприятности / Double Trouble (1915) WEBRip [H.264/720p]
+Обыватель / Enhver (1915) WEBRip [H.264/720p]
 
 >>Классика кино и Старые фильмы до 90-х
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70621.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Странноватый фильм с лихо закрученным сюжетом. Молодой человек, очень скромный, благовоспитанный,  стеснительный. Случился с ним казус. Какие-то гопники дают ему по голове, он падает в обморок. А приходит в себя в поезде по дороге в Нью-Йорк... через пять лет! Он не помнит что было в эти пять, но ведь он как-то и где-то жил эти годы? Многие люди к нему обращаются (   Читать дальше...   )Производство: США / Fine Arts Film CompanyЖанр: мелодрама, комедия, немое киноРежиссер: Кристи КэбэннАктеры: Дуглас Фэрбенкс, Марджери Уилсон, Ричард Каммингс, Ольга Грэй, Глэдис Брокуэлл, Монро Салисбери, Уильям Лоури, Том Кеннеди, Кейт Тонкрэй, Лиллиэн ЛэнгдонПеревод: немой с интертитрами (В. Сачков)Субтитры: английские (интертитры), русскиеПродолжительность: 00:54:46
+В основу фильма положена пьеса австрийского поэта Хуго фон Хофмансталя «Старая игра Энхвера», написанная в 1911 году и повествующая о «беспомощности и покинутости богатого любителя удовольствий перед лицом смерти» (цитата из оригинальной программы фильма). Короче, это нравоучительная история выбора приоритетов жизни. Выборе, который делает каждый из нас. И название (   Читать дальше...   )Производство: Дания / Filmfabrikken DanmarkЖанр: драма, немое киноРежиссер: Vilhelm GlückstadtАктеры: Питер С. Андерсен, Gudrun Houlberg, Lilly Jansen, Charles Løwaas, Питер Мальберг, Вальдемар Мюллер, Джонна Нейендам, Расмус Оттесен, Else Schiwe, Alfred SjøholmПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русскиеПродолжительность: 00:51:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0E162E682ECB738BBB97550ADA3F0C361A5EC21B
+magnet:?xt=urn:btih:EE4710BFA4D69C14EB79F5C2907CBB391CA8F6FB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -278,28 +277,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781678   (70164) от 24.02.2025
+###  Публикация: 1779585   (70620) от 14.02.2025
 
-Бернард Шоу | Лечение музыкой (Радиоспектакль) (2008) [MP3, Татьяна Пушкина, Юрий Дуванов и др.]
+Элисон Гопник | Садовник и плотник (2019) [MP3, Чигинская Галина]
 
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70620.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Редкие Записи. Из фондов «Радио России».
-Джордж Бернард Шоу (1856–1950) – английский писатель, романист, драматург, лауреат Нобелевской премии в области литературы 1925 года. Общественный деятель. Второй (после Шекспира) по популярности драматург в английском театре.
-Пьеса «Лечение музыкой» (англ.: The Music Cure, год написания: 1913).
-Совершенно пустячная (   Читать дальше...   )Жанр: Зарубежная литература, классика, пьесаПеревод: Елена ЛопыреваИздательство: Радио РоссииПродолжительность: 00:39:41
+Аудиокнига, которая развеивает популярные мифы о воспитании.
+Еще один научный аргумент в пользу того, что дети могут сами руководить своим обучением.
+Как передать детям традиции нашей культуры, при этом не навязывая их и давая новому поколению шанс двигаться дальше, вырабатывая свои совершенно новые ценности и двигая вперед всю цивилизацию? Как сделать так, чтобы (   Читать дальше...   )Жанр: Воспитание детей, Детская психологияИздательство: АудиокнигаПродолжительность: 10:20:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8B795AFB1E752DE931E4C7A63BEEB19C60BC9784
+magnet:?xt=urn:btih:D7DA83AF58024418D2C830E013DAC41396EBFF45
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -307,112 +305,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781702   (70163) от 24.02.2025
+###  Публикация: 1779635   (70619) от 14.02.2025
 
-Dionigi - Hot Oxygen (2021) [MP3|320 Kbps] <Deep-House, Nu-Disco>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Mermaid (5:37)
-02. White Sand (4:48)
-03. Summer Is Coming (5:34)
-04. Sunny And Hot (4:57)(   Читать дальше...   )Жанр: Deep-House, Nu-DiscoПродолжительность: 00:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:133A39351A92FC95882A0C9183FDFC6209BAE55A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781683   (70162) от 24.02.2025
-
-Бернард Шоу | Охваченные страстью (Радиоспектакль) (2009) [MP3, Наталья Данилова, Светлана Письмиченко и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Редкие Записи. Из фондов «Радио России».
-Джордж Бернард Шоу (1856–1950) – английский писатель, романист, драматург, лауреат Нобелевской премии в области литературы 1925 года. Общественный деятель. Второй (после Шекспира) по популярности драматург в английском театре.
-«Охваченные страстью» (Overruled, 1912) – пьеса-демонстрация.
-Любовный четырехугольник (   Читать дальше...   )Жанр: Зарубежная литература, классика, комедияПеревод: Елена ЛопырёваИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:029ACE21F74A90424547A1554A0F3B223DE033BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781733   (70161) от 24.02.2025
-
-Photo Studio PRO v2.7.13.3850 Mod by youarefinished [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Studio — не просто приложение для редактирования фотографий, в нем собраны необычные эффекты для фото. Подручный редактор фотографий добавит красок повседневным кадрам, подскажет как исправить фото. Интересные фильтры, неожиданные эффекты, потрясающий коллаж, веселые стикеры на фото: все то, чего мы ждем, выбирая редактор фото.Тип издания: Pro / ModРелиз состоялся: 24.02.2025Разработчик: KVADGroup App StudioПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B92E5615CB97FB2CC4A3CC5145D3A7ABB28A4C68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781719   (70160) от 24.02.2025
-
-VA - Armin van Buuren - A State Of Trance 1213 (2025) [MP3|128 Kbps] <Trance, Progressive, Electronic>
+VA - Ori Uplift - Uplifting Only Episode 627 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
 >>Electronic
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70619.jpg" />
 </div>
 
 
 ###  Подробнее
 
-TRANSFORMATION Special
-01. Armin van Buuren & Ben Hemsley ft. Lucy Pullin – Is It Beautiful? (ASOT 2025 TRANSFORMATION Anthem)
-02. Joris Voorn ft. Tom Walker – Burn
-03. ARTBAT – AfterpartyЖанр: Trance, Progressive, ElectronicПродолжительность: 03:00:24
+Tune Of The Year Vote 2024
+25. Nik Andre & Yuri Melnikov – Opera
+24. RAM & Arctic Moon with Stine Grove – A Billion Stars Above (Ciaran McAuley Remix)
+23. Michael Angelo, Lokka Vox – Take Me To The Stars(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:03:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B234B555107197AC8855A0E1CFC18DD6E3030F84
+magnet:?xt=urn:btih:5D8394B2C28C916CF02EC402701CEA596A576345
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -420,57 +334,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781696   (70159) от 24.02.2025
+###  Публикация: 1779658   (70618) от 14.02.2025
 
-VA - Spacesynth.de Contest TraxX (2007) [MP3|320 Kbps] <Spacesynth>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Galaxion - Embryo Zero (5:08)
-02. Phobotrax - A Better Place (5:29)
-03. Dreamtime - Before The Dawn (6:31)
-04. Staffan Ohman - Point Of No Return (6:39)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 00:56:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B95FFD44CAD62D54A3702FCDC48573C7BA5DB8A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781699   (70158) от 24.02.2025
-
-Dionigi - Space Disco (2021) [MP3|320 Kbps] <Deep-House, Nu-Disco>
+VA - ADE Underground Amsterdam Sampler (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70618.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Di Di Disco (6:34)
-02. Space Sequencer (5:45)
-03. Kevlar Sequencer (4:55)
-04. Base 80 (8:08)(   Читать дальше...   )Жанр: Deep-House, Nu-DiscoПродолжительность: 01:21:50
+01. Findike - Pyramids (Ramus Remix) [7:06]
+02. Findike - Recondite (Original Mix) [7:45]
+03. Furkan Sert - Turkey (Original Mix) [5:42]
+04. Nicola Saladino - No Name (Original Mix) [8:36](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 05:09:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:13BE0CE97AE9FDE70FBBB7520E011EE87587B67E
+magnet:?xt=urn:btih:B0A9A751A5B2614F3CDC2B385B23761EE75B532D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -478,28 +363,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781697   (70157) от 24.02.2025
+###  Публикация: 1779915   (70617) от 15.02.2025
 
-Ernestronix (Ernesto) - Synths Earth Orbit (Mission Alpha) (2025) [MP3|320 Kbps] <Spacesynth, Space-Dance>
+VA - Compilation part 143 (2025) [MP3|320 Kbps] <Electronic>
 
->>Electronic
->>Synthpop, New Wave
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70617.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Interstellar Invasion (5:10)
-02. Old Memories (4:55)
-03. Escape in the Galaxy (4:08)
-04. Back to the 80space (5:23)(   Читать дальше...   )Жанр: Spacesynth, Space-DanceПродолжительность: 02:12:22
+01. Umar Keyn & Imazee - A Girl Alone
+02. Dndm & Umar Keyn & Davvi - You Said Forever
+03. Menda - Calmness
+04. Isskoy - Confident(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:53:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C170F0759334187FDB344FCA3EBC64177483D5AE
+magnet:?xt=urn:btih:5EF9FD49E30229A5B7D134128E0C0A4FAC914FE3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -507,27 +392,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781686   (70156) от 24.02.2025
+###  Публикация: 1779916   (70616) от 15.02.2025
 
-Бернард Шоу | Пигмалион (2022) [MP3, Валерий Кухарешин и др.]
+Леночка и виноград (1936) DVDRip
 
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70616.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Эксклюзивная классика (АСТ).
-Джордж Бернард Шоу (1856–1950) – английский писатель, романист, драматург, лауреат Нобелевской премии в области литературы 1925 года. Общественный деятель. Второй (после Шекспира) по популярности драматург в английском театре.
-По пьесе Бернарда Шоу «Пигмалион» снято множество фильмов и поставлен легендарный бродвейский мюзикл (   Читать дальше...   )Жанр: Зарубежная литература, классика, пьеса, комедияИздательство: Аудиокнига (АСТ)Продолжительность: 03:40:05
+Группа пионеров поехала отдыхать в виноградный совхоз на юг. Ребята активно помогали в борьбе с вредителями полей - с птицами и насекомыми. Но оказалось, что самым страшным врагом для "самого скороспелого в мире сорта винограда" был неуловимый вор. Леночка привлекла своих друзей к выслеживанию вора...
+Этот фильм можно назвать продолжением фильмаПроизводство: СССР / ЛенфильмЖанр: комедия, детскийРежиссер: Антонина КудрявцеваАктеры: Янина Жеймо, Александр Курков, Петр Гофман, Борис Чирков, Инна ФедороваСубтитры: отсутствуютПродолжительность: 00:46:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FAF86065EEBDADE5E4689DD765B0A0F753A1179D
+magnet:?xt=urn:btih:272FA1EAE3E9AB2F206B1F0AB157A029ACACDBAB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -535,26 +419,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781724   (70155) от 24.02.2025
+###  Публикация: 1779842   (70615) от 15.02.2025
 
-МузЛофт-Дети / МузLoft. Захар Бобылёв (2025) WEBRip [H.264/1080p]
+TuneIn Radio Pro v37.3 Mod by Balatan [Ru/Multi]
 
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70615.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ярушин, Акмаль, Бобылев. Так Арию ещё не пел никто.
-В этом выпуске вы познакомитесь с уникальным не по годам Захаром Бобылёвым. Захар исполнит песни из советских фильмов и впервые в истории шоу Музлофт подарит подарки ведущим.Производство: Россия | Y-GenerationУчастники: Захар БобылёвПродолжительность: 00:41:41
+TuneIn объединяет спортивные события, музыку, новости, подкасты и радио со всего мира в одном приложении. Благодаря самому большому в мире каталогу оригинального аудиоконтента по запросу или в прямом эфире вы всегда сможете услышать то, что для вас важнее всего, открыть для себя новые моменты, которые произведут на вас впечатление.Тип издания: Paid / Mod ExtraРелиз состоялся: 15.02.2025Разработчик: TuneIn IncПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:19C171E8630529261294850F4534E9E3D70EA1C8
+magnet:?xt=urn:btih:F5D6050345ECF522EFA920D53C508B5E70A23FD0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -562,57 +445,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781816   (70154) от 25.02.2025
+###  Публикация: 1779914   (70614) от 15.02.2025
 
-Abdullah Ibrahim - Dollar Brand Plays Sphere Jazz (1960) 2015, Phono [FLAC|Lossless|tracks + .cue] <Post-Bop, African Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boulevard East [6:51]
-02. Khumbula Jane [5:57]
-03. Sad Times, Bad Times/King Kong [5:27]
-04. Blues for B [3:30](   Читать дальше...   )Жанр: Post-Bop, African JazzПродолжительность: 01:18:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD32A25B5F3578BF21761A55DF0165999D62C572
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781808   (70153) от 25.02.2025
-
-Francesco Marras - Out Of The Fire (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+Lacuna Coil - Sleepless Empire (2025) [FLAC|Lossless|image + .cue] <Gothic, Alternative Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70614.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Carnival of Darkness (04:02)
- 02. Out of the Fire (05:06)
- 03. Lost Souls (04:08)
- 04. Through my Veins (04:30)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:44:14
+01. The Siege
+02. Oxygen
+03. Scarecrow
+04. Gravity(   Читать дальше...   )Жанр: Gothic, Alternative MetalПродолжительность: 00:46:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F8861DE5DD04595555EEC16ECD73D6087CA1D41E
+magnet:?xt=urn:btih:1E1FDCC72A7CB0D04D3D32031029893E86EEC3AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -620,27 +474,187 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781866   (70152) от 25.02.2025
+###  Публикация: 1779818   (70613) от 15.02.2025
 
-Аркадий Аверченко | Шутка мецената (2010) [MP3, Алексей Борзунов]
+Stoto - Compilation (2025) [MP3|320 Kbps] <Electronic, Instrumental>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Point Blank
+  02.  Still Can't Sleep
+  03.  I Never Really Cared
+  04.  Oblivion(   Читать дальше...   )Жанр: Electronic, InstrumentalПродолжительность: 02:08:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBEFB11E46D464744A60F7423D9FD78124B422D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779881   (70612) от 15.02.2025
+
+VA - House of the past years (2025) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70612.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Worakls - Good Night My Love (Joachim Pastor Remix) (6:39)
+002. Tosel & Hale, Heavy Pins feat. Veselina Popova - Read The Signs (Radio Edit) (3:32)
+003. Tensnake feat. Fiora - See Right Through (4:28)
+004. Stefan Gruenwald, Lookee feat. Pearl Andersson - Wonderful Life (Radio Edit) (3:03)(   Читать дальше...   )Жанр: HouseПродолжительность: 09:18:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E38F660098E8C612B2E381B8BCAB824B2DB0760
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779868   (70611) от 15.02.2025
+
+ExtraDisks 25.2.1 Home [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70611.jpg" />
+</div>
+
+
+###  Подробнее
+
+ExtraDisks - это набор инструментов для создания виртуальных дисков на физических дисках вашего компьютера, которые не изменяются и не делятся на дополнительные разделы. Программа содержит инструменты для создания зашифрованных дисков, виртуальных дисков на основе файлов и виртуальных дисков на основе каталогов. Текущая версия включает следующие инструменты: Зашифрованные (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1DB7477B19AFF7A8F043088BE1771AE73F11BD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779371   (70610) от 15.02.2025
+
+Плененное сердце / The Captive Heart (1946) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70610.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноименному рассказу Патрика Кёрвана. 1940 год, лагерь для военнопленных в Германии. Чтобы выжить, чешский офицер присваивает имя погибшего англичанина и начинает переписку с его женой.Производство: Великобритания / Ealing StudiosЖанр: драма, военныйРежиссер: Бэзил ДирденАктеры: Майкл Редгрейв, Рэйчел Кемпсон, Фредерик Лейстер, Мервин Джонс,Рэйчел Томас, Джек Уорнер, Глэдис Хенсон, Джеймс Харкорт, Гордон Джексон, Эллиот МейсонПеревод: Многоголосый профессиональный (с телеканала FilmBox Arthouse)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:39:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:335551070AF0BADB65B134FBAB7F6E97EA283776
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779784   (70609) от 15.02.2025
+
+Roboquest (2020) [Ru/Multi] (1.6.0-353) Repack Pioneer
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Roboquest - это динамичный рогалик от первого лица, в который можно играть как в одиночку, так и в кооперативном режиме на двоих. Прыгайте в стальные башмаки мощного гипермобильного робота и сражайтесь так, как никогда раньше. Бегите по случайно сгенерированной среде на неузнаваемой Земле. Выжженные каньоны и яркие города, наполненные секретами, улучшениями и врагами. (   Читать дальше...   )Тип издания: RepackРазработчик: RyseUp StudiosЖанр: Экшны, От первого лица, RoguelikeЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46DECF6B1B5FC5BFF6C52F6495203B23B1019100
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779913   (70608) от 15.02.2025
+
+А.Г. Мерзляк, Д.А. Номировский, В.М. Поляков | Алгебра и начала математического анализа. Учебник для 10 класса (углублённый уровень) (2023) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник предназначен для углублённого изучения алгебры и начал математического анализа в 10 классе общеобразовательных организаций. В нём предусмотрена уровневая дифференциация, позволяющая формировать у школьников познавательный интерес к алгебре.Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70944F83A10970A4D0863A802014C3D496D89D7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675033   (70607) от 15.02.2025
+
+Януш Зайдель | Колодец (2023) [MP3, Puffin Cafe]
 
 >>Художественные аудиокниги и публицистика
->>Сатира, Юмор (аудиокниги)
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70607.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Союз классика.
-Аркадий Тимофеевич Аверченко (1880–1925) – русский писатель, сатирик, театральный критик.
-Современники называли Аверченко «королем смеха». Его роман «Шутка мецената» – юмористическая, местами лирическая, весело написанная история из жизни хорошо знакомой писателю литературной богемы Петербурга. Цинично относящиеся к жизни герои романа невольно (   Читать дальше...   )Жанр: Русская литература, классика, юмор, романИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 04:09:02
+"Известному ученому Трауту дают в нагрузку студента дипломника. Предстоит провести эксперимент на спутнике Марса по созданию идеальной отражающей поверхности. Такая поверхность может сконцентрировать излучение от процесса аннигиляции протонов в направленный луч, таким образом, речь идет о работающей модели фотонного двигателя для межзвездных полетов. Но сам (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:52:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FC473FF9CC561AB64AA285DD67A86C1B03DE4FAB
+magnet:?xt=urn:btih:80D00643F92F2C9BB2985B27DD7B4CADEC3BF157
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -648,25 +662,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781768   (70151) от 25.02.2025
+###  Публикация: 1777817   (70606) от 15.02.2025
 
-Высохшая кровь / Chi wa kawaiteru / Blood is dry (1960) WEB-DLRip [H.264] [VO]
+Мой котик и я / Mon chat et moi, la grande aventure de Rrou (2023) BDRip [H.264]
 
->>Зарубежное кино
->>Азиатское кино (SD)
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70606.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Такаси Кигути – ничем не примечательный сотрудник текстильной фабрики «Тоё». Когда его фирма разоряется, он совершает неожиданный поступок: выхватив пистолет, угрожает дирекции убить себя. Чудом Такаси остается в живых, но о случившемся быстро узнают газеты. Скромный и неуклюжий клерк в одночасье делается знаменитостью. С ним заключают контракт на участие в рекламе, (   Читать дальше...   )Производство: Япония / Shochiku OfunaЖанр: драмаРежиссер: Ёсисигэ ЁсидаАктеры: Кэйдзи Сада, Канэко Ивасаки, Синъитиро Миками, Мари Ёсимура, Кодзи Андо, Хираёси Аоно, Нацуко Арай, Масахико Арима, Макото Асакава, Дзюнко ХараПеревод: Одноголосый любительский (Олег Воротилин)Язык озвучки: русский, японскийСубтитры: русские, английские, французские, испанскиеПродолжительность: 01:26:45
+Фильм основан на романе «Rroû» Мориса Женевуа 1931 года... Парижская девочка Клеманс находит на чердаке котёнка, называет его Ру и привязывается к нему. На лето её семья решает отправиться в отпуск за город, и её любопытному питомцу не терпится пуститься в приключения. В окрестных лесах его ждут новые знакомые: неугомонный кабанчик, рысь, сова и другие удивительные (   Читать дальше...   )Производство: Франция, Швейцария, MC4, Orange StudioJ, MH et Filo FilmsЖанр: приключения, детский, семейныйРежиссер: Гийом МайдачевскийАктеры: Капюсин Сенсон-Фабресс, Корин Мазьеро, Люси Лоран, Николя Умбденсток, Жюльетт ГиллисПеревод: дублированный (Pride Production)Язык озвучки: русский, французскийСубтитры: русские, английскиеПродолжительность: 01:22:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9A2E79C1D3BC37A076F69AA916229913E4E3946E
+magnet:?xt=urn:btih:DE7A659D7D6F061F3B10FFA92C3E7015711EF598
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -674,55 +688,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781864   (70150) от 25.02.2025
+###  Публикация: 1779766   (70605) от 15.02.2025
 
-Peter White - Light of Day (2025) [FLAC|Lossless|image + .cue] <Smooth Jazz>
+Kdenlive 24.12.2 + Standalone [Multi/Ru]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70605.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Готовясь к выпуску своего долгожданного 17-го альбома Light of Day в начале 2025 года, британский ветеран-гитарист и икона современного джаза Peter White отмечает ряд ключевых личных и профессиональных вех. Музыкант, которому только что исполнилось 70, говорит о новом сборнике: "Я думаю, что эта запись - одна из лучших, которые я когда-либо делал. У меня столько (   Читать дальше...   )01. Catalonia (4:42)
-02. Cityscape (feat. Rick Braun) (6:17)
-03. Carefree (4:08)
-04. Till I See You Again (3:48)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:54:20
+Kdenlive - бесплатный нелинейный видеоредактор, который удовлетворяет большинство задач пользователя, от базового редактирования видео до профессиональной работы. Присутствует возможность использовать любые аудио/видео форматы (например QuickTime, AVI, WMV, MPEG и пр.), поддерживается 4:3 и 16:9 соотношение сторон для PAL, NTSC и различных HD стандартов, в том числе (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6BDFE517376C2C69B8A5218DEDE47580BC745254
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781856   (70149) от 25.02.2025
-
-Аркадий Аверченко | Подходцев и двое других (2022) [MP3, Дмитрий Стрелков]
-
->>Художественные аудиокниги и публицистика
->>Сатира, Юмор (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70149.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аркадий Тимофеевич Аверченко (1880–1925) – русский писатель, сатирик, театральный критик.
-Юмористическая повесть «Подходцев и двое других» была написана более ста лет назад. Известный юморист Аркадий Аверченко написал смешную, едкую и в то же время трогательную историю о дружбе, о «человеческой троице, которая причудливо сошлась разными путями к одной и той же точке». (   Читать дальше...   )Жанр: Русская литература, классика, юмор, повестьИздательство: ЭксмоПродолжительность: 04:46:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B636A9B061FA270B3046EB26E4C830ACBACCA1D4
+magnet:?xt=urn:btih:460C73523B31334DC084C75CCD43B8BDE8170120
 ```
 
 https://mybot314.ru/tekegram_catalog/

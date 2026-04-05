@@ -6,7 +6,7 @@ BlowOut [GameCube] [NTSC] [ENG] (2003)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997988.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Binary Domain [En/Multi5] (Steam-Rip/DLC) 2012 | R.G. Игроманы
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997923.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ Terminator 3 The Redemption [GameCube] [NTSC] [ENG] (2004)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997916.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997904.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ A Walk in the Dark [En] (RePack) 2012 | SxSxL
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997666.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Fez [Xbox 360] [Freeboot/Jtag] [Eng] [XBLA] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997635.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Minecraft (1.4.6) (P) [Английский\Русский] (2013)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997629.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Potatoman Seeks the Troof [En] (DL/1.06) 2013 | Fanfar
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997444.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Orcs Must Die! 2 [Ru/En] (Steam-Rip/1.0.0.349/6 DLC) 2012 | R.G. Игроман�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997413.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Sanctum [Ru/En/Multi12] (Steam-Rip/1.5.18881/5 DLC) 2011 | R.G. Игроманы
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997345.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Wargame: European Escalation [Ru/En/Multi8] (Steam-Rip/13.01.07.670000683/4 DLC)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997319.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Tales Of Graces F [PS3] [NTSC] [ENG/JAP] [UNDUB] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997135.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Tom Clancy's Ghost Recon: Future Soldier (RePack/1.6) [Ru/En/Multi12] 2012 l R.G
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996799.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Legacy Of Kain : Blood Omen 2 [GameCube] [PAL] [ENG] (2002)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996631.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Battlefield: Bad Company 2 [PS3] [PAL] [Ru/En] [Repack] 2010 | R.G. Inferno
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995973.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Dracula: Origin [Ru/En/Multi8] (L) 2008 | *PROPHET*
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995774.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ SolSuite 2013 [En] (L/13.1) (2013)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995581.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Emperor: Battle for Dune_Clean [Ru/En] (RePack/1.09) 2001 | volkogriz
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995433.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Chaos on Deponia / Депония 2: Взрывное Приключение [Ru
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995412.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Saints Row 2 [Ru/En/Multi13] (L) 2009 | *PROPHET*
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995382.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Batman: Arkham City [PS3] [Ru/En] [Repack] 2011 | R.G. Inferno
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995364.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Saints Row 2 [Ru/Multi13] (Lossless RePack) 2009 | R.G. Games
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994579.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Alice: Madness Returns [PS3] [NTSC] [RUS] (2011) | Два Ашота
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994083.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ X-Men Origins: Wolverine / Люди Икс: Начало: Росомаха [Ru/E
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994079.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Manhunt Dilogy [Ru/En] (RePack) 2004-2009 | R.G. Revenants
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993948.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Metal Gear Rising: Revengeance [Xbox 360] [Demo] [Eng] (2013)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993916.jpg" />
 </div>
 
 

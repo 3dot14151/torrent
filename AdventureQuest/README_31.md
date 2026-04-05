@@ -1,3 +1,81 @@
+###  Публикация: 1255226   (644333) от 30.03.2019
+
+LEGO DC Super-Villains (2018) [Ru/Multi] (1.0/upd5/dlc) License CODEX [Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644333.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хорошо быть плохим… Погрузитесь в новые приключения LEGO, став лучшим злодеем во вселенной DC. Игроки смогут создавать новых суперзлодеев и управлять ими. Они проделывают злобные выходки и сеют хаос. Лига Справедливости исчезла, оставив Землю своим коллегам из Синдиката Справедливости.Тип издания: LicenseРазработчик: TT GamesЖанр: Action, Adventure, Indie, 3DЯзык озвучки: Английский, Немецкий и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B00E02405ED83C385E9BF1C02F6D6E78512C219A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518307   (642600) от 03.07.2012
+
+The Lost Crown: A Ghosthunting Adventure / The Lost Crown: Призраки из прошлого [Ru] (RePack/1.1) 2008 | R.G. Element Art
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642600.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Призраки из прошлого» - игра о контактах с потусторонними силами. О старинных обрядах общения с призраками и о современных средствах обнаружения привидений. Мир игры - живой и пугающий - создан на основе фотографий графства Корнуолл, расположенного на юго-западном побережье Англии. Это живописное место вдохновляло на создание мистических рассказов многих британских писателей, среди которых были Чарльз Диккенс, Вилки Коллинз и Артур Конан Дойл. Вместе с главным героем вы отправитесь в мрачный городок на восточном побережье Великобритании. Ваша цель - разгадать очень старую загадку этого места. В вашем распоряжении - новейшая техника, которой пользуются профессиональные «охотники на призраков» в реальной жизни. Но берегитесь - приходу чужака будут рады не все жители города, неважно - живые или давно умершие...(   Читать дальше...   )Тип издания: RePackЖанр: AdventureЯзык озвучки: АнглийскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85550894C71816C5AFB4D74CE555E67B4AE232F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033289   (639361) от 10.07.2016
+
+Zero Escape: Zero Time Dilemma (2016) [En/Ja] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девять участников просыпаются в подземном сооружении, со странным черным браслетом на запястье. Для того, чтобы сбежать, они должны сыграть в игру со смертельными последствиями. Правила просты - после того, как шесть человек погибнут, аварийный люк откроется. Кто будет жить, а кто умрет? Выбор за вами. Да начнется "Игра"...Тип издания: RepackРазработчик: Spike Chunsoft Co., Ltd.Жанр: Psychological thriller, PuzzleЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AA2CE5EBE8B5187B57FFEC6F46D9E35AEEF7BBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1293420   (636985) от 03.04.2019
 
 House of Evil (2017) [Ru/En] (1.0) Repack Other s
@@ -6,7 +84,7 @@ House of Evil (2017) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636985.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Call of Cthulhu: Shadow of the Comet (1993) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636901.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Song of Horror (2019) [Multi] (1.25/dlc) License GOG [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636662.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Haven Moon (2016) [Ru/Multi] (1.0) License POSTMORTEM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635694.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Haven Moon (2016) [Ru/Multi] (1.0) SteamRIP ALiAS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635551.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Gemini Rue / Gemini Rue: Заговор на Барракусе [Ru/En] (RePack)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634513.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ J.U.L.I.A. - Among The Stars (2014) [En/Ge] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632839.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ Pineview Drive - Homeless (2019) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631389.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ Dance of Death: Du Lac & Fey (2019) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631379.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ Afterparty (2020) [Ru/Multi] (1.4.26f2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630948.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ Pineview Drive (2014) [Ru/Multi] (2.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629627.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ Tunnels of Despair (2018) [Ru/En] (1.05) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629563.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ Beholder 2 (2018) [Ru/En/Ch] (Upd20190129) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629343.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ Call of Cthulhu (2018) [Ru/Multi] (1.0upd2) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629309.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ Life is Strange: Before the Storm (2017) [Ru/Multi] (1.4.0.5.1805151406/dlc) Rep
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629303.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ Nancy Drew: Alibi In Ashes / Нэнси Дрю: Сгоревшее алиби [R
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626250.jpg" />
 </div>
 
 
@@ -426,7 +504,7 @@ Oxenfree (2016) [Ru/En] (2.1.0f26) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626085.jpg" />
 </div>
 
 
@@ -452,7 +530,7 @@ Ridge (2016) [Ru/Multi] (1.0 u1) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625908.jpg" />
 </div>
 
 
@@ -478,7 +556,7 @@ Ridge (2016) [Ru/Multi] (1.0/upd1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625905.jpg" />
 </div>
 
 
@@ -507,7 +585,7 @@ Night in the Woods (2017) [En] (5.6.2.23522822) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625862.jpg" />
 </div>
 
 
@@ -533,7 +611,7 @@ Pineview Drive - Homeless (2019) [Ru/Multi] (1.0.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625571.jpg" />
 </div>
 
 
@@ -559,7 +637,7 @@ The Walking Dead: The Final Season (2018) [Ru/Multi] (1.0.0.1) License GOG [Epis
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625432.jpg" />
 </div>
 
 
@@ -585,7 +663,7 @@ Sylvio (2015) [En] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623085.jpg" />
 </div>
 
 
@@ -597,84 +675,6 @@ Sylvio – приключенческий инди-хоррор от перво�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05A8B378BFF7E6BB2C719E134C3489F3F652684F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229768   (622611) от 08.06.2018
-
-Detective Gallo (2018) [Ru/Multi] (1.0) Repack Covfefe
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622611.jpg" />
-</div>
-
-
-###  Подробнее
-
-Detective Gallo – юмористическая нуар point&click адвенчура, героем которой является пернатый ворчливый приватный детектив, расследующий весьма странное дело. Тьма окутала город и под покровом ночи пять экзотических растений стали жертвами трагического события. Нет никаких сомнений – это серийное убийство растений. Но город не особо потрясло это происшествие, (   Читать дальше...   )Тип издания: RepackРазработчик: Footprints GamesЖанр: Приключение, Квест, ДетективЯзык озвучки: Английский, ИтальянскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:601CD6D7E803B876D980ABFB2306EBE9D6266BF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204840   (622277) от 08.06.2018
-
-Finding Paradise (2017) [Ru/Multi] (1.2) License PLAZA
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Finding Paradise — игра, рассказывающая историю о двух врачах, проходящих через воспоминания умирающих людей, чтобы выполнить их последнее желание...Тип издания: LicenseРазработчик: Freebird GamesЖанр: Adventure, RPGЯзык субтитров: Русский, Английский, Украинский, Испанский и другиеЯзык интерфейса: Русский, Английский, Украинский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A90AE6B87292FB08FEF0904F99CE745B866098B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295090   (621850) от 11.04.2019
-
-Dance of Death: Du Lac & Fey (2019) [En] (1.0) Repack R.G. Catalyst
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dance of Death: Du Lac & Fey - это приключенческая история, события которого разворачиваются в викторианском Лондоне 1888 года. Город терроризирует Джек-потрошитель, и на след печально известного убийцы выходит никто иной как бессмертный герой сэр Ланселот ОзерныйТип издания: RepackРазработчик: Salix Games Ltd, Tea Clipper GamesЖанр: Adventure, Detective, Point & ClickЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:969821AA261B991743A937A336F043C4909A7AEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

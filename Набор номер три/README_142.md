@@ -1,3 +1,162 @@
+###  Публикация: 1497682   (857415) от 26.09.2021
+
+Консолидация индустрии VPN создает проблемы для потребителя
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_857415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор блога Windscribe раскрывает секреты рынка VPN – кто является глобальными владельцами популярных VPN-сервисов, кому принадлежат сайты с обзорами и оценками VPN-сервисов, и как это влияет на потенциальных клиентов.Большинство из вас, вероятно не подозревают о драмах, разворачивающихся в индустрии VPN. Что ж, это скоро изменится. Отрасль VPN переживает серьезные (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498079   (857405) от 26.09.2021
+
+Windows 10 Enterprise LTSC (x64) Elgujakviso Edition (v.25.09.21) [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857405.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана на основе оригинального образа от MSDN: ru_windows_10_enterprise_ltsc_2019_x64_dvd_9aef5d46.iso
+
+   Интегрированы важные и рекомендуемые обновления по 23.09.2021 года.
+Установлен NET Framework 3.5 (включает .NET 2.0 и 3.0); установлен NET Framework 4.8; включен стандартны просмотр фото. Для получения полной информаций об изменениях, читайте раздел "дополнительная (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A32E200A439BCCB4FE2C26D5867A3F496BFF831
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498020   (857400) от 26.09.2021
+
+Главный герой / Free Guy (2021) BDRip [H.264/1080p] [DVO, PR]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857400.jpg" />
+</div>
+
+
+###  Подробнее
+
+У сотрудника крупного банка всё идёт по накатанной, пока однажды он не выясняет, что окружающий его мир — это часть огромной видеоигры, а сам он в ней — всего лишь второстепенный персонаж. Хватит ли у него духу переписать свой код, обратить на себя внимание прекрасной девушки и, наконец, спасти мир? Одним словом, получится ли из него главный герой?Производство: США, Канада, Япония, 20th Century Studios, 21 Laps Entertainment, Berlanti Productions, Lit Entertainment Group, Maximum EffortЖанр: Фантастика, боевик, комедияРежиссер: Шон ЛевиАктеры: Райан Рейнольдс, Джоди Комер, Тайка Вайтити, Уткарш Амбудкар, Джо Кири, Камилль Костек, Лил Рел Ховери, Кимберли Хоу, Мэтти Кардаропл, Тейт ФлетчерПеревод: Двухголосый любительский (Pazl Voice)Субтитры: Русские (от MENINSUB), Английские (Forced, Full, SDH)Продолжительность: 01:54:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1053C514C6ABFEAABD56061589D2AE0224FB654
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494504   (857398) от 26.09.2021
+
+Аниара: Космическая обитель / Aniara (2018) BDRip [H.264/1080p]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Человечество отправляет поселенцев на Марс на нескольких космических кораблях. Пассажиры избалованы потреблением, так как на судах есть все необходимое современному человеку — это гигантские торговые центры. Но после того, как один из кораблей под названием Аниара сбивается с курса и теряет управление, людям придется столкнуться с непредвиденными последствиями.Производство: Швеция, Дания / Meta Film Stockholm, Meta Film, ViaplayЖанр: Фантастика, драмаРежиссер: Пелла Когерман, Хюго ЛиаАктеры: Эмили Йонсон, Бианка Крузейро, Arvin Kananian, Аннели Мартини, Йенния Сильверйельм, Emma Broomé, Джамил Дрисси, Leon Jiber, Петер Карлберг, Хуан РодригезПеревод: Дублированный (IVI)Субтитры: Русские, английскиеПродолжительность: 01:45:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B4CD13356291D2874FFB284DE51FCD4E8291001
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 799394   (857313) от 06.03.2015
+
+Форс-мажоры / Костюмы в законе / Suits (2014) WEB-DL [H.264/720p-LQ] (сезон 4, серии 1-16 из 16) NewStudio
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857313.jpg" />
+</div>
+
+
+###  Подробнее
+
+Убегая после неудачной попытки сбыта наркотиков, юрист-самоучка  Росс, выдающий себя за выпускника Гарварда, попадает на собеседование к одному из лучших адвокатов по сделкам Нью-Йорка Харви Спектру. Устав от скучных соискателей, мечтающих «верой и правдой служить букве закона», Харви рискует и нанимает Майка: у парня врожденный талант и фотографическая память. Так (   Читать дальше...   )Производство: СШАЖанр: драма, комедияРежиссер: Кевин Брэй, Майкл Смит, Антон КропперАктеры: Гэбриел Махт, Патрик Дж. Адамс, Рик Хоффман, Меган Маркл, Сара Рафферти, Джина Торрес, Ванесса Рэй, Том Липински, Макс Топплин, Ребекка Скул, Джулиан ДеЗотти, Бен Льюис и др.Перевод: Двухголосый закадровый, профессиональный - NewStudioПродолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A8CD232EBC14B878C4552C1DB1FAC8F6EBF53BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000672   (856947) от 26.03.2016
+
+Adobe Muse CC 2015.1.2.44 RePack by D!akov [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Muse – визуальный конструктор сайтов, функционирующий по принципу «отображение внесённых изменений в реальном времени». Таким образом, разработчику не требуется открывать HTML-код сайта - панель редактирования позволяет работать с веб-страницей, как с изображением. Очевидно, что такой подход ориентирован на создание среды разработки, доступной пользователю (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4568EC33A2622337BA4742BC7B5EE44CEF1AC9F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000455   (856811) от 26.03.2016
 
 Дэдпул / Deadpool (2016) WEBRip [H.264/1080p-LQ] [Line]
@@ -6,7 +165,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856811.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ Malwarebytes Anti-Malware Premium 2.2.1.1043 Final Portable by PortableAppZ [Mul
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856803.jpg" />
 </div>
 
 
@@ -58,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856801.jpg" />
 </div>
 
 
@@ -84,7 +243,7 @@ Mac OS X El Capitan 10.11.4 VMware Image [AMD] [Multi]
 >>9
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856796.jpg" />
 </div>
 
 
@@ -113,7 +272,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4312.1000
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856795.jpg" />
 </div>
 
 
@@ -139,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856794.jpg" />
 </div>
 
 
@@ -165,7 +324,7 @@ Sherlock Holmes: The Devil's Daughter (2016) [Ru/Multi] (1.0.8767.0) License CPY
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856688.jpg" />
 </div>
 
 
@@ -191,7 +350,7 @@ Mad Max (2015) [Ru/Multi] (1.0.3.0/dlc) License CPY
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856687.jpg" />
 </div>
 
 
@@ -217,7 +376,7 @@ Just Cause 3 (2015) [Ru/Multi] (1.05/dlc) License CPY
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856686.jpg" />
 </div>
 
 
@@ -243,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856685.jpg" />
 </div>
 
 
@@ -269,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856682.jpg" />
 </div>
 
 
@@ -295,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856680.jpg" />
 </div>
 
 
@@ -321,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856678.jpg" />
 </div>
 
 
@@ -347,7 +506,7 @@ Dead Space 3 (2013) [Ru] (1.0.0.1/dlc/tr) Repack =nemos= [Limited Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856677.jpg" />
 </div>
 
 
@@ -373,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_856199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_856199.jpg" />
 </div>
 
 
@@ -399,7 +558,7 @@ MInstAll v.17.04.2020 By Andreyonohov & Leha342 (ISO) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856195.jpg" />
 </div>
 
 
@@ -425,7 +584,7 @@ JetBrains PhpStorm 2020.1 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856193.jpg" />
 </div>
 
 
@@ -453,7 +612,7 @@ Windows 10 1909 16in1 (x86/x64) by Eagle123 (04.2020) [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856191.jpg" />
 </div>
 
 
@@ -479,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856189.jpg" />
 </div>
 
 
@@ -505,7 +664,7 @@ Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.1
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856187.jpg" />
 </div>
 
 
@@ -516,164 +675,6 @@ Office 2019 — новый офисный пакет от корпорации M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08C6FE491B3D2103F386F5E6D979BD261E566248
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376783   (856186) от 19.04.2020
-
-Jetbrains IntelliJ IDEA Ultimate 2020.1 [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856186.jpg" />
-</div>
-
-
-###  Подробнее
-
-IntelliJ IDEA — самая умная среда разработки для Java и других языков, включающая поддержку всех последних технологий и фреймворков, идеально подходящая для создания коммерческих, веб- и мобильных приложений.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC851B0045734551F73179CE4472C3169CCD4860
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375706   (856185) от 19.04.2020
-
-Adobe Photoshop 2020 21.1.2.136 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856185.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop — это комплексное решение для профессиональной обработки цифровых изображений, которое содержит самые современные инструменты для работы с изображениями и новые возможности для реализации творческих идей, которые позволяют значительно повысить производительность. Редактируйте изображения с исключительной точностью, используйте новые интуитивно понятные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55D612B44000FD9F16802A31761BCED344C5B88F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376770   (856184) от 19.04.2020
-
-Windows 7 SP1 (x86/x64) 52in1 +/- Office 2016 by SmokieBlahBlah 18.04.20 [Ru/En]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856184.jpg" />
-</div>
-
-
-###  Подробнее
-
-13 редакций Windows 7 (русские и английские) с IE 11, важными и рекомендуемыми обновлениями по апрель 2020 (кроме нежелательных) и интегрированными системными библиотеками +13 таких же редакций со встроенным MS Office 2016 Pro Plus VL х86 (можно выбрать, ставить ли Office. Галочка перед началом установки.). Язык офиса зависит от выбранного языка ОС.
-
-Ничего не вырезано (   Читать дальше...   )Язык интерфейса: Русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A980F58F4221312DDFA64BA05594E96F3574F3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368154   (856183) от 19.04.2020
-
-Microsoft® Windows® 10 Enterprise LTSC 2019 x86-x64 1809 RU by OVGorskiy 03.2020 2DVD
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856183.jpg" />
-</div>
-
-
-###  Подробнее
-
-сборка на основе оригинальных русских образов новейшей операционной системы Windows 10 Enterprise (Корпоративная) LTSC x86-x64 (VLSC) от Microsoft с дополнительным материалом разных разрядностей на 2-х разных DVD (x86 и x64). Установка полностью стандартная "вручную" с выбором параметров установки ОС. Интегрированы: обновления системы, небольшой набор самых (   Читать дальше...   )Язык интерфейса: Русский (Russian).
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5636981C2D913E5BD4132E51CAB75100E290F1A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497931   (855699) от 27.09.2021
-
-Онищенко посоветовал выявлять социально опасных школьников по запросам в интернете
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_855699.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выявлять потенциальных «школьных стрелков» нужно не по сочинениям с помощью софта, а следить, чем подростки интересуются в интернете. Об этом «Газете.Ru» заявил первый зампред комитета по образованию и науке Государственной думы Геннадий Онищенко.«Для того, чтобы выявлять склонных к такого рода поведению детей, не надо сочинениями заниматься, нужно просто следить, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417547   (855691) от 27.09.2021
-
-Amnesia: Rebirth (2020) [Ru/Multi] (1.4) License GOG
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы не решаетесь даже дышать. Тварь в считанных сантиметрах от вас. И она жаждет насытиться охватившим вас ужасом. И вот вы, согнувшись, крадетесь во тьме, пытаясь подавить страх и заглушить голос, что таится внутри. «Я тебя знаю. И знаю, на что ты способна».Тип издания: LicenseРазработчик: Frictional GamesЖанр: Приключение, От первого лица, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C5F76586EBD406AAC01458AA62A1FFF05A98C99
 ```
 
 https://mybot314.ru/tekegram_catalog/

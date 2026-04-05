@@ -1,3 +1,61 @@
+###  Публикация: 1276824   (785332) от 20.01.2019
+
+VA - Virtually Surrounded (Headphone Demo) (2018) [FLAC|Lossless|tracks + .cue] <Demonstration & test>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Botti - Lisa (5:06)
+02. Roxy Music - Avalon (4:17)
+03. Nirvana - Come As You Are (Live) (4:00)
+04. Dire Straits - Brothers In Arms (6:52)(   Читать дальше...   )Жанр: Demonstration & testПродолжительность: 01:40:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B62C07F587149A7CA2A8D0EA7CA7566AE53F7028
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207669   (780242) от 20.02.2018
+
+Brandi Carlile - By the Way, I Forgive You (2018) [FLAC|Lossless|tracks + .cue] <Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Every Time I Hear That Song 4:01
+02. The Joke 4:39
+03. Hold Out Your Hand 4:23
+04. The Mother 3:17(   Читать дальше...   )Жанр: FolkПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F015A25286819CBEB3708EB70D2FE06A2EAD2ED7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 533777   (777772) от 03.05.2016
 
 Mike Oldfield - 9 Albums Deluxe Edition (1973-1984) 2009-2016 / Mercury, Universal Music Company [FLAC|Lossless]<Progressive rock, pop, Celtic fusion, world, New Age>
@@ -6,7 +64,7 @@ Mike Oldfield - 9 Albums Deluxe Edition (1973-1984) 2009-2016 / Mercury, Univers
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777772.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Mariza - Mundo (2015) [FLAC|Lossless|tracks  + .cue] <Folk, World, Country, Fado
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776376.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Khruangbin - Mordechai (2020) [FLAC|Lossless|tracks + .cue] <Reggae, Funk, Neo-p
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769371.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Julia Kent - Temporal (2019) [FLAC|Lossless|tracks + .cue] <Contemporary Classic
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768467.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767036.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Потанцуем (2002) 3 CD [FLAC|Lossless|tracks] <Instrumental, Dance>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732824.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Seven Lounge (2009) 2CD Digipack Edition [APE|Lossless|image + .cue] <Loung
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722852.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Pepe & Celin Romero - Famous Spanish Dances (1982) [FLAC|Lossless|tracks + .cue]
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720826.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Vittorio Del Monaco - Histoires D'amour (1991) (2CD) [FLAC|Lossless|image + .cue
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718753.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Diving Dreams - The Coral Sea (2005) [APE|Lossless|image + .cue] <New Age, 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718734.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Hide-Hide - Реминисценции звука (2011) [FLAC|Lossless|tracks] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718731.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ V.A. - Die Hit-Giganten Best Of Ballads (2011) 3CD [FLAC|Lossless]<Pop, Rock>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717091.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Lee Scratch Perry - The Black Album (2018) [FLAC|Lossless|tracks + .cue] <Dub, R
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714825.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Die Hit-Giganten: Best Of One Hit Wonder (2013) [FLAC|Lossless]<Pop, Dance,
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708949.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Jupiter Panic - Earth-like (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronica, So
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707843.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ The Pasadena Roof Orchestra - Breakaway (1991) [FLAC|Lossless|image + .cue] <Jaz
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707521.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Super Instrumental 25 (Vol. 23-25) (1996) [FLAC|Lossless|image, tracks + .c
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706993.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Robert Miles - Child of Dream (2001) Bootleg [FLAC|Lossless|image + .cue] <Tranc
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696585.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ CherryVata - Daybreak (2017) [FLAC|Lossless|WEB-DL|tracks] <Future Beats, Nu Jaz
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689100.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Harvestman - 3 albums (2005-2010) [FLAC|Lossless] <Drone Ambient, Psychedelic Fo
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_677200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_677200.jpg" />
 </div>
 
 
@@ -592,7 +650,7 @@ Steve Von Till - 3 albums (2000-2008) [FLAC|Lossless] <Acoustic, Neofolk, Ambien
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_677062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_677062.jpg" />
 </div>
 
 
@@ -627,7 +685,7 @@ Jakob - 5 albums (1999-2006) [FLAC|Lossless] <Post-Rock, Ambient, Instrumental>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_676899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_676899.jpg" />
 </div>
 
 
@@ -659,7 +717,7 @@ Gregor Samsa - 6 albums (2002-2009) [FLAC|Lossless] <Post-Rock, Ambient, Instrum
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672202.jpg" />
 </div>
 
 
@@ -693,7 +751,7 @@ Shirley Rumsey - Music of the Renaissance - 2 альбома (1993-1994) [FLAC|L
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_670651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_670651.jpg" />
 </div>
 
 
@@ -709,74 +767,6 @@ Shirley Rumsey - Music of the Renaissance - 2 альбома (1993-1994) [FLAC|L
 08. Antonio Caprioli - Quella Bella E Biancha Mano [02:44]
 09. Vincenzo Capirola - Balletto [01:59]
 10. Adrian Willaert - Vecchie letrose non valete niente [00:59](   Читать дальше...   )1993-1994Жанр: ClassicalПродолжительность: 00:54:51
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 510748   (668470) от 15.06.2012
-
-Set Fire to Flames - 2 albums (2001-2003) [FLAC|Lossless] <Post-Rock, Instrumental, Ambient, Experimental>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_668470.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1. Telegraphs in Negative: (00:43:56)
-01. Deja, Comme Des Trous De Vent, Comme Reproduit (06:43)
-02. Small Steps Against Inertia / Echo Of A Dead End (03:01)
-03. Measure De Mesure (04:45)
-04. Holy Throat Hiss Tracts To The Sedative-Hypnotic (03:38)
-05. When Sorrow Shoots Her Darts (03:11)
-06. Kill Fatigue Frequencies (01:28)
-07. In Prelight Isolate (15:11)
-08. Tehran In Seizure / Telegraphs In Negative (05:56)2001-2003Жанр: Post-Rock, Instrumental, Ambient, ExperimentalПродолжительность: 01:28:09
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 511347   (667225) от 16.06.2012
-
-Shalabi Effect - 4 albums (2001-2005) [FLAC|Lossless] <Instrumental, Experimental, Post-Rock, Ambient>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_667225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out Of The Closet (13:07)
-02. Pai Nai (01:44)
-03. Early Reptilian Memories (03:20)
-04. Monobrow (08:32)
-05. Half Life (06:55)
-06. Beluga (02:39)
-07. Harpie (06:24)
-08. Vegas Radiation (04:46)
-09. Skin Job (04:20)2001-2005Жанр: Instrumental, Experimental, Post-Rock, AmbientПродолжительность: (00:51:49)
 
 ## Скачать торент
 ```bash

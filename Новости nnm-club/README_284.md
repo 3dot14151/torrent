@@ -1,3 +1,55 @@
+###  Публикация: 1749838   (43332) от 17.09.2024
+
+Будущие игры невозможны без ИИ
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зачем думать про оптимизацию если есть ИИ, (разработчики Remnant II не дадут соврать), но геймеры опасаются "аппаратного разрыва", когда индустрия разделится на "до" и "после".  Поскольку отрасль продолжает развиваться, то нам еще предстоит увидеть, как разработчики решат эти проблемы.Глава Nvidia Дженсен Хуан на конференции Goldman Sachs (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750005   (43098) от 19.09.2024
+
+В Америке разрабатывают ПО  для моделирования влияния ядерного оружия на сельское хозяйство
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43098.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 сентября на сайте государственных закупок США был опубликован  документ  от Армейского инженерного корпуса (US Army Corps of Engineers, ERDC). В нем сообщается о заключении контракта с "единственным поставщиком" компанией Terra Analytics, Inc. для дальнейшей разработки и оптимизации программного комплекса AgriShock.AgriShock — это специализированный инструмент (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1750242   (43013) от 20.09.2024
 
 Discord запускает DAVE: безопасность общения выходит на новый уровень
@@ -6,7 +58,7 @@ Discord запускает DAVE: безопасность общения вых�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43013.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43005.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42913.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Star Wars Jedi: Survivor (2023) [Multi] (Patch 9/dlc) Scene Rune [Deluxe Edition
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42898.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Microsoft Office LTSC 2024 Professional Plus / Standard + Visio + Project 16.0.1
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42895.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42801.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Sin Episodes: Emergence (2006) [Ru] (1.0/dlc) Repack Fenixx
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42793.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42791.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42581.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ SpaceX хочет запустить пять кораблей на Марс д�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42562.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42483.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42479.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ Ookami to Koushinryou: Merchant Meets the Wise Wolf | Spice & Wolf: Merchant Mee
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42377.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42268.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42177.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42165.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42164.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42126.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41970.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41849.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41848.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41823.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41725.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41622.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367126   (41544) от 04.10.2024
-
-Запечатленное время (2012-2024) DVB [H.264] (серии 1-173 из ?) (обновляемая)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальное кино стало одним из величайших творений человечества. Как говорил Андрей Тарковский, «с появлением документального кино человек получил в свои руки матрицу реального времени». В Красногорском архиве кинофотодокументов хранятся уникальные фильмы, снятые еще на заре кинематографа. На многих плёнках запечатлены порой невероятные факты, о которых подзабыли (   Читать дальше...   )Телекомпания: Россия / КультураЖанр: Документальный, История, ХроникаРежиссер: Алексей АртемьевСубтитры: русские, телетекст (888)Продолжительность: ~00:26:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7921670B46600274702F939BFC78270C946342D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742346   (41538) от 04.10.2024
-
-VLADiK BRUTAL (2024) [Ru/Multi] (1.0.3.7) Repack Decepticon
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41538.jpg" />
-</div>
-
-
-###  Подробнее
-
-В вымышленной стране восточно-европейского типа, уже долгие годы сидит у власти диктатор. Правитель был сущим параноиком и устраивал массовые зачистки и убийства тех, кто был против него. Для обеспечения тотального контроля над обычными гражданами, людям начали вживлять в шею чип для отслеживания их перемещения. Всем людям выдали одинаковую одежду с определённым (   Читать дальше...   )Тип издания: RepackРазработчик: Narko GamesЖанр: Экшены, Приключенческие игры, Казуальные игрыЯзык озвучки: РусскийЯзык субтитров: Русский, Английский, Немецкий, Китайский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Китайский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC9B518E37E5DE730A8289B497AFA6F17CD8BCF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

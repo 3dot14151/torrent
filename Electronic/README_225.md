@@ -1,3 +1,116 @@
+###  Публикация: 347176   (641557) от 07.06.2011
+
+DJ Silence - Driving Relax (2010) [FLAC|Lossless]<Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_641557.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: AmbientПродолжительность: 01:19:52
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293043   (641293) от 01.04.2019
+
+Toki Fuko - Archives (2019) Affin LTD [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oblation (07:09)
+ 02. The Signal (08:35)
+ 03. Boil (08:54)
+ 04. Sapadilla Bay (10:47)(   Читать дальше...   )Жанр: Techno, Ambient, ExperimentalПродолжительность: 01:18:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C96C0C6BC366801F742D3C77B9E1D0C6F1C0FD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228074   (641206) от 29.05.2018
+
+Guido Hermans - Against the Tide (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Would Do Without Sound? (Intro Track)
+02. Once Upon A Time in Outer Space (Original Mix)
+03. Creepy Business (Original Mix)
+04. Until We Meet Again (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:18:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6B5E3E5EDA2D6144D8E064951D50AE7E7741EF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228051   (641204) от 29.05.2018
+
+VA - High Contrast: Ibiza Trance (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Beyond Vision - Mesmerized (Ibiza Trance 2018 Exclusive)
+02 Dj K-Mixx - Nocturnal Bliss (Ibiza Trance 2018 Exclusive)
+03 Marcel Woods - Lemon Tree (Daxson Remix) (Ibiza Trance 2018 Exclusive)
+04 Spark, Shade - Not Even Close (Tony Day Remix) (Ibiza Trance 2018 Exclusive)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A8916A0A26EDDF79F02B583F545DFC51A8D6721
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228056   (641203) от 29.05.2018
 
 VA - Cathy Burton - Best Of Vocal Trance (The Radio Edits) (2018) [MP3|320 Kbps] <Trance,Uplifting Trance,Vocal Trance>
@@ -6,7 +119,7 @@ VA - Cathy Burton - Best Of Vocal Trance (The Radio Edits) (2018) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641203.jpg" />
 </div>
 
 
@@ -35,7 +148,7 @@ VA - Stay In Ibiza 2017 [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641188.jpg" />
 </div>
 
 
@@ -64,7 +177,7 @@ VA - Organica Lounge Grooves (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641186.jpg" />
 </div>
 
 
@@ -93,7 +206,7 @@ VA - Cooked Vol.1 (Fine Selection Of Smooth Electronic Jazz) (2017) [MP3|320 Kbp
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641181.jpg" />
 </div>
 
 
@@ -122,7 +235,7 @@ VA - Relaxing Vol.1 not Only Chill Out (2017) [MP3|320 Kbps] <Downtempo, Lounge,
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641178.jpg" />
 </div>
 
 
@@ -151,7 +264,7 @@ VA - Maxxx Power Tunes Vol 1 (Maximum Music for Maximum Power) (2017) [MP3|320 K
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641174.jpg" />
 </div>
 
 
@@ -180,7 +293,7 @@ Relaxed - Relaxed (2017) [MP3|320 Kbps] <Ambient, Drone>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641173.jpg" />
 </div>
 
 
@@ -209,7 +322,7 @@ VA - Santorini Chill (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641170.jpg" />
 </div>
 
 
@@ -238,7 +351,7 @@ VA - Vocal House Essentials 2018 (Mixed by Vin Veli) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641083.jpg" />
 </div>
 
 
@@ -267,7 +380,7 @@ VA - Sexy Ibiza Summer - Chillout Beach Cafe Lounge (2018) [MP3|320 Kbps] <Loung
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641077.jpg" />
 </div>
 
 
@@ -296,7 +409,7 @@ VA - Champagne Lounge Deep House (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641065.jpg" />
 </div>
 
 
@@ -325,7 +438,7 @@ VA - Chill House Ibiza 2017 (Finest Chill House Music) (2017) [MP3|320 Kbps] <Ho
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641064.jpg" />
 </div>
 
 
@@ -354,7 +467,7 @@ VA - Ibiza Beach Chill House Club Party Del Mar (2017) [MP3|320 Kbps] <Deep Hous
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641061.jpg" />
 </div>
 
 
@@ -383,7 +496,7 @@ VA - Bifrost (Compiled by Erot) (2017) [MP3|320 Kbps] <Electronic, Ambient, Down
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641060.jpg" />
 </div>
 
 
@@ -412,7 +525,7 @@ VA - Clubfete 2017.02 (63 Summer Club & Party Hits)  [MP3|320 Kbps] <Funky, Club
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641053.jpg" />
 </div>
 
 
@@ -441,7 +554,7 @@ Eguana - Invisible Civilization (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640910.jpg" />
 </div>
 
 
@@ -470,7 +583,7 @@ Missing Persons - Spring Session M (1982) Reissue, 1995, CEMA Special Markets [F
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640907.jpg" />
 </div>
 
 
@@ -499,7 +612,7 @@ VA - Chill & Relax 1 (2016) [MP3|320 Kbps] <Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640210.jpg" />
 </div>
 
 
@@ -528,7 +641,7 @@ VA - Ibiza Chill (2016) [MP3|320 Kbps] <Lounge, Chill Out>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640109.jpg" />
 </div>
 
 
@@ -557,7 +670,7 @@ VA - House of Love Vol. 1 (2015) [MP3|320 кб/с]<House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639816.jpg" />
 </div>
 
 
@@ -586,7 +699,7 @@ Leftfield - Alternative Light Source (2015) [FLAC|Lossless|tracks + .cue] <Progr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639762.jpg" />
 </div>
 
 
@@ -615,7 +728,7 @@ VA - Chill Out Night with Cocktail Music in your Lounge Bar (2017) [MP3|320 Kbps
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639553.jpg" />
 </div>
 
 
@@ -629,122 +742,6 @@ VA - Chill Out Night with Cocktail Music in your Lounge Bar (2017) [MP3|320 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:873440E176BF4A36F27E598F7B439E7F255B0396
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228255   (639411) от 30.05.2018
-
-VA - Redux Frankfurt Selection (Mixed by A-Tronix & Sven E) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sven E - Tell Me (Brent Rix Club Remix)
-02. Rene Ablaze feat. Crystal Blakk - Torn Into Pieces (Original Mix)
-03. Brent Rix - Dream Chaser (Original Mix)
-04. Gosselt feat. Robin Vane - U & I (A-Tronix & Sven E Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:56:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC5CB9180DBC274167736F4821DC6406B1A91BC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228245   (639408) от 30.05.2018
-
-VA - The Sound Of Trance Vol. 10 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreamline - Winter Lights (Original Mix)
-02. Prodeeboy - Qwerty (Original Mix)
-03. Sothzanne String - Looking For Happiness (Original Mix)
-04. Daun Giventi - Valkyrie (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:143F897396A7B693AA06AC78FE926F6C5239E2B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228089   (639407) от 30.05.2018
-
-VA - Trance Runner - Episode Six (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brisby & Jingles - It's My Life (Andestro Edit)
-02. Sun Liquide - New Dawn (Radio Mix)
-03. Dima Krasnik - Heaven (Radio Cut)
-04. Symon, Jay - Aerify (Radio Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:01:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3F565B41C5617B17798ABB6D1F51968673CB0AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228081   (639403) от 30.05.2018
-
-Orjan Nilsen - Prism (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swoosh (Intro Extended Mix)
-02. That One Night (Extended Mix)
-03. Hi There Radio (Been Too Long) (Feat. Mike James)
-04. Iconic (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:01:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67A5B14F8073918620CA1D4477D294B702BDE320
 ```
 
 https://mybot314.ru/tekegram_catalog/

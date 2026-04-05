@@ -6,7 +6,7 @@ Ben Webster - Ben Webster (1940-e) 2004, Centurion Jazz [FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110055.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Houston Person - Legends Of Acid Jazz: Person to Person! & Houston Express (1970
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110053.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Johan Farjot & Friends - Caravan Party (2021) 2023, Klarthe Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110045.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Charles McPherson - Charles McPherson (1971) 2017, Solid Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109962.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Gene Harris - Live At Otter Crest (1981) 2001, Concord Jazz [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109961.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Bud Freeman - Newport News (1955) 2013, Solid Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109959.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Jacky Terrasson & Stephane Belmondo - Mother (2016) Impulse! [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109956.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Charles Fambrough - Keeper Of The Spirit (1995) AudioQuest Music [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109950.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ David "Fathead" Newman & The Tilden Webb Trio - Cellar Groove (2004) 2013, Cella
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109941.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Happy Charming Easy Lounge Tunes for Vacation (2024) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109824.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Charming Smooth Easy Light Jazz for Relaxation (2024) [FLAC|Lossless|WEB-DL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109821.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Nils - Feelin' Good (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109778.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Amazing Soothing Relaxing Lounge Romance Playlist (2024) [FLAC|Lossless|WEB
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109765.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Amazing Soothing Groovy Light Jazz Romance Playlist (2024) [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109764.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Smooth Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109754.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Modern Funk (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109753.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Acid Jazz Beats & Breaks Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Acid 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109751.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Gigi Gryce - The Rat Race Blues (1960) 1991, Original Jazz Classics [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109701.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ David "Fathead" Newman, Ellis Marsalis, Cornell Dupree - Return To The Wide Open
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109700.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Jackie McLean - Rhythm Of The Earth (1992) Antilles [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109694.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Kenny Barron - Things Unseen (1995) 1997, Gitanes [FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109672.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ George Shearing & Brian Torff - Blues Alley Jazz (1979) 1989, Concord Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109669.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Kenny Barron - Wanton Spirit (1994) Verve [FLAC|Lossless|image + .cue] <Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109661.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Soul, Jazz & Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109648.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Delightful Cozy Sweet Lounge Inviting Instrumentals (2024) [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109641.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - Delightful Cozy Smooth Inviting Jazz Playlist (2024) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109617.jpg" />
 </div>
 
 

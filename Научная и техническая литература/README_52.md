@@ -1,135 +1,3 @@
-###  Публикация: 1486678   (1004581) от 01.08.2021
-
-С.Г. Агаджанов | Очерки истории Огузов и Туркмен средней Азии IX-XIIIв. (1969) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004581.jpg" />
-</div>
-
-
-###  Подробнее
-
-В предлагаемой книге исследуется комплекс проблем истории предков туркменского народа. Значительное место в монографии занимают проблемы социально-экономического строя и военно-политической истории огузов и туркмен. Специальная глава монографии посвящена происхождению сельджукидов и сельджукскому движению X—XI вв. Приводится очерк истории государства сырдарьинских (   Читать дальше...   )Жанр: Историография, История ТуркменистанаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F168062EFB244753798DC2B202444C243EF5D22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486819   (1004570) от 01.08.2021
-
-Н.А. Дубова (отв. ред.) | Туркмены (2016) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004570.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой очередной том энциклопедической этнологической серии «Народы и
-культуры»: обобщает исторические, этнографические, антропологические материалы, собранные и опубликованные до настоящего времени по различным аспектам истории и культуры туркменского народа.
-В книге освещаются история изучения туркменской этнографии, история туркменского народа, (   Читать дальше...   )Жанр: ЭтнологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6940A72D367DBEFCAD2F155DD45983B48DFFA3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486674   (1004551) от 01.08.2021
-
-А.Н. Кононов | Родословная Туркмен (сочинение Абу-л-Гази Хана Хивинского) (1958) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004551.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге излагает биография Абул-л-Гази, дается общая историческая характеристика положения в Хорезме в XVII в., представляется социальный анализ узбекско-туркменских отношений в это время, вырисовывается картина внутренней жизни туркменских племен, излагается история наиболее крупных из этих племен, показывается роль Ирана в событиях описываемого периода и многое (   Читать дальше...   )Жанр: Историография, История ТуркменистанаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88E10163EE0E902DB7BE1A77C42A68C408CC8D39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349443   (1004490) от 01.01.2020
-
-М.Д. Евтифьев | Огненные крылья. История создания реактивной авиации СССР (2005) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга историка авиации и ракетной техники М.Д. Евтифьева посвящена малоизвестным страницам истории советской реактивной авиации. В ней впервые рассказывается о выдающихся авиаконструкторах, инженерах и испытателях, самоотверженно трудившихся над созданием отечественной реактивной авиации. Книга адресована не только специалистам авиационной и ракетно-космической техники, (   Читать дальше...   )Жанр: Военная история, Военная техникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F4BD13EDBC4E148859EF5D58C2FA1FEC955C442
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349438   (1004443) от 01.01.2020
-
-С.А. Воробьева, А.В. Киселева | Деловой английский для гостиничного бизнеса (B1) (2019, 5-е изд.) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004443.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее учебное пособие предназначено для студентов, владеющих английским языком на уровне Intermediate. Книга составлена на основе оригинальных источников и материалов зарубежной прессы и дает возможность ознакомиться с практикой гостиничного бизнеса и условиями работы на мировом туристическом рынке.Жанр: Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC06056A456DE025BC73A96B8F5B2FE6A0C60FB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349379   (1004441) от 01.01.2020
 
 Р.И. Куряева | Английский язык. Лексико-грамматическое пособие. Часть 1 (2019) [PDF]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004441.jpg" />
 </div>
 
 
@@ -164,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004426.jpg" />
 </div>
 
 
@@ -190,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004279.jpg" />
 </div>
 
 
@@ -216,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004227.jpg" />
 </div>
 
 
@@ -242,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004204.jpg" />
 </div>
 
 
@@ -270,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004059.jpg" />
 </div>
 
 
@@ -297,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004044.jpg" />
 </div>
 
 
@@ -324,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004037.jpg" />
 </div>
 
 
@@ -351,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004032.jpg" />
 </div>
 
 
@@ -377,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004027.jpg" />
 </div>
 
 
@@ -406,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004010.jpg" />
 </div>
 
 
@@ -432,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003941.jpg" />
 </div>
 
 
@@ -458,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003933.jpg" />
 </div>
 
 
@@ -484,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003915.jpg" />
 </div>
 
 
@@ -510,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003856.jpg" />
 </div>
 
 
@@ -536,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003770.jpg" />
 </div>
 
 
@@ -562,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003761.jpg" />
 </div>
 
 
@@ -588,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003729.jpg" />
 </div>
 
 
@@ -615,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003724.jpg" />
 </div>
 
 
@@ -641,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003682.jpg" />
 </div>
 
 
@@ -667,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003677.jpg" />
 </div>
 
 
@@ -679,6 +547,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A224F2E0DE53245F21C6EA9E25FD9FD95329BEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349953   (1003676) от 04.01.2020
+
+Г.А. Вейхман | Разговорный английский без ошибок (2005) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003676.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основу пособия положены исследованные автором структурные закономерности английской речи. Для успешного овладения ими в пособие включено около 500 упражнений с ключами для самоконтроля. Их выполнение обеспечивает грамматически безошибочное общение на английском языке. Для студентов вузов, преподавателей английского языка, переводчиков и всех, кто хотел бы научиться (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBC00BF8FC318EECB3E6D1F932AF6EC9EB225D6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028813   (1003673) от 04.01.2020
+
+Андрей Мак | Ножи боевые и универсальные / Fighting and Utility Knives (2008) [DJVU]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена в основном ножам, кинжалам и стилетам, использовавшимся в ХХ-м веке на европейском театре военных действий. Боевые, охотничьи, полевые, универсальные, повседневные и специальные ножи и кинжалы охватывают практически все сферы применения холодного оружия. На примере 450-ти образцов показана история развития боевого и универсального короткоклинкового (   Читать дальше...   )Жанр: Холодное оружиеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28D1A41475F66CDB300BA89B11098024A8D52430
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350000   (1003671) от 04.01.2020
+
+В.М. Буре, Е.М. Парилина | Теория вероятностей и математическая статистика (2013) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003671.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге изложены основные разделы современного курса теории вероятностей и математической статистики, включая условные распределения, основные предельные теоремы, метод характеристических функций, принципы статистического оценивания, методы построения доверительных интервалов, методы проверки статистических гипотез, регрессионный анализ и бинарная регрессия. Книга (   Читать дальше...   )Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1DD726388AFD894AECE0C11D5B76EB89CA78822
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349950   (1003666) от 04.01.2020
+
+Ж.Л. Оганян | Английский язык. Тренажер для путешественников (2017) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разговорник содержит самые популярные для общения темы и предназначен для российских граждан, с различными целями выезжающих за границу. Для наиболее распространенных ситуаций, а также проблематичных (таможня, покупки, ресторан) предлагаются диалоги-клише, позволяющие легко выстроить общение в той или иной ситуации по образцу. Разговорник содержит типичные модели (   Читать дальше...   )Жанр: Учебное пособие, РазговорникФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A0B3B9EE05F627CD51580A705EE39D2CCC04ED6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487375   (1003595) от 05.08.2021
+
+О. Ю. Климов | Пергамское царство: проблемы политической истории и государственного устройства (2010) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003595.jpg" />
+</div>
+
+
+###  Подробнее
+
+В монографии рассматривается политическая история Пергамского царства, образовавшегося в Малой Азии после походов Александра Македонского и развивавшегося в III-II вв. до н. э. до завоевания его Римом. Большое внимание уделено исследованию важнейших политических институтов, состояния армии и флота, характеристике налоговой, финансовой, религиозной политики династии (   Читать дальше...   )Жанр: История, публицистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC9E4635A6C6935A658E90C8EED8B12B9E3DCD11
 ```
 
 https://mybot314.ru/tekegram_catalog/

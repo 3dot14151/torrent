@@ -1,3 +1,55 @@
+###  Публикация: 773490   (24432) от 17.03.2025
+
+Пацаны (1983) DVDRip [H.264]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотя бы один взрослый, которого можно называть на «ты», должен быть в жизни каждого пацана… Актеры экстракласса — Валерий Приемыхов и тринадцатилетний Андрей Зыков — и ведущая тема фильмов Динары Асановой: непонимание, бесправие и одиночество подростка, против которого — весь мир взрослых.Производство: СССР, ЛенфильмЖанр: драма, криминалРежиссер: Динара Кулдашевна АсановаАктеры: Валерий Приемыхов, Андрей Зыков, Ольга Машная, Екатерина Васильева, Зиновий Гердт, Марина Левтова, Сергей Наумов, Евгений Никитин, Александр Харашкевич, Алексей Полуян, Александр Совков, Владимир Гусев, Виктор Михеев, Юлиан Груздев, Юрий Мороз, Ирина СоколоваЯзык озвучки: русскийСубтитры: ОтсутствуютКачество: DVDRipПродолжительность: 01:31:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F282A4A4B9E1CC233D4CF586215153ACF954C5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770569   (24339) от 18.03.2025
+
+Hazure Skill "Kinomi Master": Skill no Mi (Tabetara Shinu) o Mugen ni Taberareru You ni Natta Ken ni Tsuite / Бесполезный навык „Мастер Фруктов“ [2025, TV, 12] WEBRip 720p raw
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой по имени Лайт мечтает стать великим искателем приключений. Вместе со своей подругой Леной они съедают «плоды навыков», которые наделяют человека особыми способностями, но убивают, если он попробует съесть больше одного. В результате Лена приобретает навык «Святая меча» и быстро становится искательницей приключений S-ранга. А Лайту достаётся бесполезный (   Читать дальше...   )Жанр: приключения, фэнтези.Режиссер: Кимура РюитиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4626EA797C9DAA48200A1B35981B673A71D0640
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785535   (24337) от 18.03.2025
 
 WinRAR просит купить сумку, раз вы не хотите покупать лицензию
@@ -6,7 +58,7 @@ WinRAR просит купить сумку, раз вы не хотите по�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24337.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24222.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24125.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Neverwinter Nights: Enhanced Edition (2018) [Multi] (89.8193.37-15b/dlc) License
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24117.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23908.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23787.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Launcher for zapret 2.5 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23700.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23690.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ Autodesk AutoCAD 2026 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23592.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23495.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23375.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23290.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23264.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ Age of Mythology: Retold (2024) [Ru/Multi] (100.18.12962.0/dlc) Repack Deceptico
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23175.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23174.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ Pillars of Eternity (2015) [Ru/Multi] (3.8.0.87535/dlc) License GOG [Definitive 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23173.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22965.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ Arafou Otoko no Isekai Tsuuhan / The Daily Life of a Middle-Aged Online Shopper 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22662.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ Autodesk Revit 2026 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22649.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ Windows избавится от синего «экрана смерти»
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22524.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22507.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22451.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ Zorin OS 17.3 Pro & Pro Lite 17.3 [X86_64] 2xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22450.jpg" />
 </div>
 
 
@@ -616,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22449.jpg" />
 </div>
 
 
@@ -627,58 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1943AFB1DB391C714DD8B191E7DB2D3CFDAA188E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749436   (22444) от 05.04.2025
-
-Зимородок / Yali Capkini (2024-2025) WEB-DLRip [H.264/1080p-LQ] (сезон 3, серии 1-28 (74-101) из 28) turok1990
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трудные времена бросают Сейран и Ферита в разные стороны жизни. Чувствуя себя счастливее благодаря Синану, Сейран всех удивит, сделав ему предложение. Хоть Суна и пытается объяснить сестре насколько серьезный это шаг, но Сейран уверена в своем решении. А Ферит хоть немного, но отошел от своего прошлого, когда в его жизни появилась Дияр. Однако ему будет нелегко узнать (   Читать дальше...   )Производство: Турция / OGM PicturesЖанр: драма, мелодрамаРежиссер: Бурджу Алптекин, Алптекин БозкуртАктеры: Афра Сарачоглу, Мерт Рамазан Демир, Гюльчин Сантырджиоглу, Эмре Алтуг, Берил Позам, Гёзде Кансу, Пелин Акил, Дирен Полатогуллары, Эрсин Арычи, Сезин Бозаджи, Джем Сёкут, Айшен Сезерел, Хюлья Дуяр, Сериф Сезер, Четин Текиндор и др.Перевод: Одноголосый любительский (turok1990)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~02:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD00562897C0B833B1ACF2A7403149BF13FA39C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789045   (22428) от 05.04.2025
-
-Госдума запретила навязывать потребителям дополнительные товары, работы и услуги
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Госдума приняла во втором и третьем чтении закон, который с 1 сентября 2025 года запрещает навязывать потребителям любые дополнительные товары, работы и услуги.Потребитель будет вправе отказаться от оплаты навязанных ему дополнительных товаров (работ, услуг), а если они уже оплачены, то потребовать от продавца (исполнителя, владельца агрегатора) возврата денег. Требование (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

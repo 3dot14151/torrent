@@ -1,3 +1,83 @@
+###  Публикация: 1436795   (1042648) от 02.01.2021
+
+Academind Pro, Maximilian Schwarzmüller | Чистый код / Clean Code (2020) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как разработчик, вы должны уметь писать работающий код - конечно же! К сожалению, многие разработчики, тем не менее, пишут плохой код, даже если он работает. Потому что «рабочий код» - это не то же самое, что «чистый код»! Этот курс научит вас писать чистый код - код, который легко читать и понимать людям, а не только компьютерам!
+В этом курсе вы узнаете, что такое (   Читать дальше...   )Производство: Academind ProЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 06:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B761DE864D8F844BA850E5557660427918463047
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436965   (1042645) от 02.01.2021
+
+Linguatrip, Веня Пак | С носителями на равных — прокачка Speaking за 28 дней (2020) CamRip
+
+>>Обучающие видеоматериалы
+>>Иностранные языки (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042645.jpg" />
+</div>
+
+
+###  Подробнее
+
+Моя задача как преподавателя — помочь людям стать свободными и уверенными в своей речи. Многие студенты учат язык, вроде всё понимают и могут объясняться, но естественности и непринуждённости им не хватает. То предложения звучат по-школьному, то одолевают сомнения, а поймут ли, а правильно ли так сказать. Цель этого курса — помочь тебе обрести ту самую лёгкость в (   Читать дальше...   )Производство: LinguatripЖанр: Английский языкПродолжительность: 07:30:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C33A720AECCF1F0BAEFB56F9F46947417F8C9789
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436929   (1042640) от 02.01.2021
+
+Дмитрий Медведев | Основы 3D моделирования для ювелиров (2019) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для тех, кто хочет быстро освоить технику моделирования ювелирных украшений на компьютере с нуля.
+В рамках нашего курса 3D моделирования ювелирных изделий Вы научитесь создавать 3D модели, делать рендер (визуализацию) ювелирных изделий в Rhinoceros, и сможете самостоятельно подготовить файлы для печати на 3D принтерах Solidscape, Envisiontec, ProJet, Digital Wax (   Читать дальше...   )Производство: j-design.proЖанр: Создание видеоПродолжительность: 114:45:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBD663FA6173DCF1C5353F3B66ACF85CCB395645
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436909   (1042638) от 02.01.2021
 
 HTML Academy | Интерактивные тренажёры HTML Academy (2020) PCRec
@@ -6,7 +86,7 @@ HTML Academy | Интерактивные тренажёры HTML Academy (2020)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042638.jpg" />
 </div>
 
 
@@ -26,35 +106,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436997   (1042637) от 02.01.2021
-
-Udemy, Antonio Papa | React и Laravel: От Монолита к Микросервисам / React and Laravel: Breaking a Monolith to Microservices (2020) PCRec [En / En]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1042637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Микросервисная архитектура, React, Next.js, Laravel, Docker, RabbitMQ, микросервисы управляемые событиями, внутренние API, Redis. Узнайте, как создать монолит с помощью React и Laravel, а затем, как перейти на микросервисы.
-
-В этом руководстве:
-Создайте SPA с React, Next.js и Laravel;(   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 15:07:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EDD60E1E00AEA10574049D2008891C08DFC3829
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610251   (1042579) от 06.02.2023
 
 Photofox, Ростислав Литвицкий | Illustrator Beginner (2023) WEB-DL [AD] [RU]
@@ -63,7 +114,7 @@ Photofox, Ростислав Литвицкий | Illustrator Beginner (2023) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042579.jpg" />
 </div>
 
 
@@ -92,7 +143,7 @@ Skillshare, Jake Bartlett | Texturing in Adobe After Effects (2022) WEB-DL [EN /
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042574.jpg" />
 </div>
 
 
@@ -118,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042512.jpg" />
 </div>
 
 
@@ -147,7 +198,7 @@ Packt, Pavlos Vinieratos | React Native: Советы, Подсказки и Т�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042509.jpg" />
 </div>
 
 
@@ -174,7 +225,7 @@ Udemy, Brad Traversy | React Front To Back (Hooks, Context, MERN и Redux) / Rea
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042508.jpg" />
 </div>
 
 
@@ -200,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042481.jpg" />
 </div>
 
 
@@ -229,7 +280,7 @@ Udemy, Brad Traversy | Node.js API Мастер-класс с Express и MongoDB
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042473.jpg" />
 </div>
 
 
@@ -258,7 +309,7 @@ Udemy, Brad Traversy | Современный JavaScript с самого нач�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042469.jpg" />
 </div>
 
 
@@ -284,7 +335,7 @@ Udemy, Brad Traversy | Python Django Dev To Deployment (2020) PCRec [En / En Sub
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042466.jpg" />
 </div>
 
 
@@ -310,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042459.jpg" />
 </div>
 
 
@@ -339,7 +390,7 @@ Lee | Мгновенная материализация (2017) CamRip
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042455.jpg" />
 </div>
 
 
@@ -360,33 +411,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437015   (1042454) от 03.01.2021
-
-Udemy, JuanD MeGon | Освойте Laravel и создавайте приложения высокого уровня с Laravel / Master Laravel & Create High-Level Applications with Laravel (2020) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042454.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучите Laravel, создавая в процессе интернет-магазин. Курс совместим с последней версией Laravel. Конечно, вы можете использовать любую версию, но я настоятельно рекомендую использовать самую последнюю (даже если это не начальная версия курса).
-Основной подход курса заключается в том, что вы изучаете Laravel, а не просто создаете что-то конкретное с помощью Laravel. (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 14:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1C1D4A5ADD53CB2A1A2F81CF14F6A6D3316F503
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437147   (1042453) от 03.01.2021
 
 Пол Новак | Курс по развитию способности концентрироваться (2015) PCRec
@@ -395,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042453.jpg" />
 </div>
 
 
@@ -423,7 +447,7 @@ Udemy, Brad Traversy | Современный HTML и CSS с самого нач
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042391.jpg" />
 </div>
 
 
@@ -449,7 +473,7 @@ Photofox, Ростислав Литвицкий | Illustrator PRO (2023) WEB-DL 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042322.jpg" />
 </div>
 
 
@@ -478,7 +502,7 @@ Udemy, CG Masters, Chris Plush, Lee Salvemini | The Blender 2.8 Encyclopedia [Ch
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042318.jpg" />
 </div>
 
 
@@ -504,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042256.jpg" />
 </div>
 
 
@@ -533,7 +557,7 @@ Carlo Sansonetti | Character Rigging Production Techniques (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042225.jpg" />
 </div>
 
 
@@ -559,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042219.jpg" />
 </div>
 
 
@@ -587,7 +611,7 @@ Udemy, Brad Traversy | MERN Stack Front To Back: Full Stack React, Redux & Node.
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042209.jpg" />
 </div>
 
 
@@ -614,7 +638,7 @@ Udemy, Brad Traversy | Bootstrap 4 с нуля с 5 проектами / Bootstr
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042182.jpg" />
 </div>
 
 
@@ -641,7 +665,7 @@ Simon Fuchs | Military Radio Tutorial Part 1-3 (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042145.jpg" />
 </div>
 
 
@@ -667,7 +691,7 @@ Gumroad, Josh Gambrell, Ponte Ryuurui | The Hard Surface Handbook for Blender (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042065.jpg" />
 </div>
 
 
@@ -678,32 +702,6 @@ Gumroad, Josh Gambrell, Ponte Ryuurui | The Hard Surface Handbook for Blender (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BA3632267D88CD4A87AA5DBFA6117C8696A59D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437498   (1041952) от 05.01.2021
-
-Udemy, Brad Traversy | Materialize CSS с нуля + 5 проектов в курсе / Materialize CSS From Scratch With 5 Projects (2018) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Усвой HTML 5 и Materializ CSS-фреймворк, построив 5 реальных проектов на основе Material дизайна. Этот курс предназначен для тех, кто знает базовый HTML и немного CSS и которые хотят сделать пользовательский интерфейс на следующем уровне, используя структуру Materialize CSS, основанную на схеме Google's Material Design. Вы узнаете все компоненты CSS и JavaScript, (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 10:26:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1AAA978FD055FAE73A947B854005E49F2EF110E
 ```
 
 https://mybot314.ru/tekegram_catalog/

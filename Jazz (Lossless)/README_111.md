@@ -6,7 +6,7 @@ Duke Ellington - Jazz Profile (1953, 1954, 1969) 1997, Blue Note [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679511.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Duke Ellington - Original Jazz Classics Collection (1997) OJC [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679507.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Duke Ellington and His Great Vocalists: Best of the Big Bands (1930-e - 1950-e) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679505.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Duke Ellington - The Duke in Washington (1943 - 1969) 1999, Storyville [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679424.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Chris Potter, David Virelles, Joe Martin, Marcus Gilmore - The Dreamer Is The Dr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679376.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ The Lanny Morgan Quartet - Pacific Standard (1997) Contemporary [APE|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679369.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Mel Lewis & Friends - Gettin' Together (1957) 1987, Vee Jay [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679368.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Nicki Parrott - Fly Me To The Moon (2009) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_679321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_679321.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ The Jazz At The Lincoln Center Orchestra & Wynton Marsalis - The Music of John L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679303.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Nils - Play (2018) [FLAC|Lossless|image + .cue] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679268.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Masahiko Sato - All-In, All-Out (1979) 1991, Sony Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678614.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Buddy Rich - The Absolutely Essential 3 CD Collection (1930-е - 1960-е) 3CD, 2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678532.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Phronesis - We Are All (2018) [FLAC|Lossless|tracks + .cue] <Jazz, Contemporary 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678494.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Susie Arioli - Christmas Dreaming (2010) Spectra Musique [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678493.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Susie Arioli - Spring (2015) Spectra Musique [FLAC|Lossless|tracks + .cue] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678488.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Dale Cooper Quartet & The Dictaphones - Metamanoir (2011) [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678486.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Dizzy Gillespie All-Star Groups & Big Band - Four Classic Albums (1954 - 1957) 2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678485.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Susie Arioli Band - Live At The Montreal International Jazz Festival (2006) Just
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678483.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Gary Burton - Conception (1960-1962) 2CD, 2014, Cherry Red Records[FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678468.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Duke Ellington - Alhambra - Oct. 29th, 1958 (2002) 2CD, LaserLight Digital [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677424.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Maurice Peress & American Composers Orchestra - Four Symphonic Works by Duke Ell
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677406.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Susie Ibarra - Songbird Suite (2002) Tzadik [FLAC|Lossless|tracks + .cue] <Avant
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677398.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Simon Rattle - Classic Ellington (1999) 2000, EMI [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677394.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Duke Ellington - The Essential Duke Ellington (1929 - 1960) 2CD, 2005, Columbia 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677392.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Duke Ellington - Love You Madly (1970) 2002, Collectables [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677299.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Duke Ellington - Paris Jazz Concert: The Champs-Elysees Theater, Jan 29-30th 196
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677297.jpg" />
 </div>
 
 

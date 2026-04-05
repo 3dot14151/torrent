@@ -1,3 +1,29 @@
+###  Публикация: 1011240   (796762) от 27.04.2016
+
+Исследователи обнаружили абсолютно новое состояние молекул воды
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_796762.jpg" />
+</div>
+
+
+###  Подробнее
+
+Технология рассеивания нейтронов и компьютерное моделирование продемонстрировали ученым неожиданное и уникальное поведение молекул воды при некоторых чрезвычайных условиях, которое не соответствует ни одному из известных состояний этого вещества, твердому, жидкому или газообразному.  Ученые из Национальной лаборатории Ок-Ридж (Oak Ridge National Laboratory, ORNL) (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1085076   (796684) от 19.01.2018
 
 X3: Terran War Pack (2008-2011) [Ru/Multi] (3.4/3.3) License GOG
@@ -6,7 +32,7 @@ X3: Terran War Pack (2008-2011) [Ru/Multi] (3.4/3.3) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796684.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ STAR WARS Jedi: Fallen Order (2019) [Ru/Multi] (1.0.10.0/dlc) License DARKSiDERS
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796619.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Internet Download Manager 6.25 Build 16 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796613.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ ESET Smart Security 9.0.377.1 Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796576.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Ori and the Blind Forest: Definitive Edition (2016) [Ru/Multi] (1.0) License COD
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796555.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796554.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ iOS 14 целиком попала в руки хакеров, джейлбре�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_796493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_796493.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Mozilla Firefox Quantum 58.0 Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796080.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ TecDoc DVD Catalog 1Q.2018 Full [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796002.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Windows 10 x86 x64 AIO Release by StartSoft 03-04 2018 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796001.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ Mirror's Edge (2009) [Ru/En] (1.1.0.0/dlc) Repack R.G. Механики [Reflect
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795994.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_795957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_795957.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ Adobe Photoshop 2022 23.0.1.68 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795935.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795930.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ OCCT 4.4.2 + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795819.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ Maxon Cinema 4D R16 Portable by soyv4 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795814.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795812.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795808.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ Metro: Exodus / Метро: Исход (2019) [Ru/Multi] (1.0.0.7/HotFix/dlc) St
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795745.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ Metro: Exodus / Метро: Исход (2019) [Ru/Multi] (1.0.0.7/HotFix/dlc) EG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795743.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_795366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_795366.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ HitmanPro 3.8.0 Build 292 RePack by Norton46 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795316.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_795291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_795291.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ Acronis True Image 2016 19.0.6569 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795153.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795133.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4552B771F1AA1F6ADFA9CB47F30469707F1A1335
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273498   (794777) от 05.01.2019
-
-Google отказалась от обязательного выпуска обновлений для смартфонов Android One. ОБНОВЛЕНО 03.01.2019
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_794777.jpg" />
-</div>
-
-
-###  Подробнее
-
-С официальной страницы проекта Android One исчез пункт о гарантированном получении системных обновлений от Google в течение двух лет после выпуска устройства. На изменение обратил внимание один из пользователей форума Reddit.Google объявила о запуске инициативы Android One несколько лет назад. Изначально основной концепцией Android One было распространение недорогих (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

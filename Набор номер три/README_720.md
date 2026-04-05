@@ -1,3 +1,186 @@
+###  Публикация: 1819878   (904) от 26.09.2025
+
+Россия получила полный цифровой суверенитет
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российский сегмент интернета, несмотря на давление и санкции, демонстрирует опережающий рост, Россия вошла в тройку стран, обладающих полным цифровым суверенитетом, сообщил первый заместитель руководителя администрации президента РФ Сергей Кириенко."Неожиданно мы задумались о том, что стран, которые обладают всей полнотой такого цифровой суверенитета, в мире (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820066   (866) от 26.09.2025
+
+Internet Download Manager 6.42 Build 47 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_866.jpg" />
+</div>
+
+
+###  Подробнее
+
+Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D78C54BD5A05D07C01E887C56DE5361D2F0D6E84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819994   (736) от 27.09.2025
+
+Windows 10 Pro 22H2 19045.6332 x64 by SanLex [Lightweight] [Ru-En] (2025.09.25)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_736.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на официальном оригинальном образе Windows_10_Pro_edition_22h2_x64 для оптимального и комфортного пользования. Цель проекта — улучшить скорость реагирования, производительность и конфиденциальность Windows. Идеально подходит для повседневного домашнего пользования, игр, графического дизайна и работы тяжёлого характера.
+Удалены, отключены или заблокированы (   Читать дальше...   )Язык интерфейса: Русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B18925852D7EE198DC26865A199E5928E4DA3C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812153   (726) от 27.09.2025
+
+Чужой: Земля / Alien: Earth (2025) WEB-DL [H.265/2160p] [4K, SDR, 10-bit] (сезон 1, серии 1-8 из 8) HDrezka, Jaskier, TVShows, LostFilm, WStudio, Кубик в Кубе, Red Head Sound, HATE Studio, Сербин,  ...
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загадочный космический корабль терпит крушение на Земле. Молодая женщина и разношёрстная группа военных совершают судьбоносное открытие и сталкиваются с главной угрозой для планеты.Производство: Великобритания, США, Таиланд / 20th Television, 26 Keys Productions, FX ProductionsЖанр: ужасы, фантастикаРежиссер: Дана Гонсалес, Угла Хёйксдоуттир, Ноа ХоулиАктеры: Сидни Чендлер, Алекс Лоутер, Эсси Дэвис, Сэмюэл Бленкин, Бабу Сизей, Адарш Гурав, Эрана Джеймс, Джонатан Аджайи, Дэвид Рисдаль, Дьем Камилль ГбогуПеревод: Дублированный (Red Head Sound, HATE Studio), Многоголосый (HDrezka, Jaskier, TVShows, LostFilm, WStudio, LE-Production), Двухголосый (Кубик в Кубе, Viruse Project), Авторский (Ю. Сербин)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: ~01:03:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62CC2156856C865CD62B4BE5E9884D4B16637B81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633238   (722) от 27.09.2025
+
+Wartales (2021) [Ru/Multi] (1.0.43355/dlc) License GOG [The Mercenaries Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wartales - ролевое приключение в открытом мире, предлагающее возглавить свою команду наемников, чтобы отправиться на поиски сокровищ. События развиваются в средневековом фэнтезийном мире. Требуется путешествовать континентами, нанимать сопартийцев, исследовать древние гробницы и собирать награды. Сюжет начинается с падения великой Империи Эдоран. Королевство охватила (   Читать дальше...   )Тип издания: LicenseРазработчик: Shiro GamesЖанр: Ролевая игра, ПошаговаяЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C04329D79F92EC2A4D57975CECE2C0CE2809FFB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761609   (721) от 27.09.2025
+
+S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.6.0/dlc) Repack Let'sРlay [Ultimate Edition]
+
+>>3
+>>26
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чернобыльская Зона Отчуждения существенно изменилась после второго взрыва в 2006 году. Жестокие мутанты, смертоносные аномалии и враждующие фракции сделали Зону местом, где очень тяжело выжить. Тем не менее артефакты невероятной ценности привлекали в Зону многих людей, называемых сталкерами. Они проникали в Зону на свой страх и риск, стремясь разбогатеть на этом (   Читать дальше...   )Тип издания: RepackРазработчик: GSC Game WorldЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Английский, УкраинскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65E97C86C6BCAAAABFBEF7C8B53FAFB92B83B893
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266202   (720) от 27.09.2025
+
+X4: Foundations (2018) [Ru/En] (8.00 HotFix 1/dlc) License GOG [Community of Planets Collector's Edition]
+
+>>3
+>>18
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_720.jpg" />
+</div>
+
+
+###  Подробнее
+
+X4: Foundations - долгожданное продолжение успешной серии игр X, представляет собой самую сложную и продвинутую симуляцию вселенной в серии. Управляйте любым кораблём, исследуйте космос или руководите империей; Торгуйте, Сражайтесь, Стройте и Думайте, во время Ваших приключениях в бескрайнем космосе.Тип издания: LicenseРазработчик: EgosoftЖанр: Симулятор, Экшны, ФантаcтикаЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B7E986CF7BF45A186814BFA9DB26D316ED16A61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1820015   (697) от 27.09.2025
 
 Росатом отгрузил два атомных реактора ВВЭР-1200 для Турции и Египта
@@ -6,7 +189,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_697.jpg" />
 </div>
 
 
@@ -33,7 +216,7 @@ Vintage Culture - Culture Shock 001-146 (2021-2025) [MP3|320 Kbps] <House, Tech 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_447.jpg" />
 </div>
 
 
@@ -62,7 +245,7 @@ MultiBoot 2k10 7.40 Unofficial [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_441.jpg" />
 </div>
 
 
@@ -88,7 +271,7 @@ Hitman: Blood Money / Hitman: Кровавые деньги (2006) [Ru] (1.2) Re
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_440.jpg" />
 </div>
 
 
@@ -114,7 +297,7 @@ C9PE 2k10 7.40 Unofficial [Ru/En]
 >>22
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_439.jpg" />
 </div>
 
 
@@ -140,7 +323,7 @@ UltraPack 2k10 7.40 [Ru/En]
 >>15
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_438.jpg" />
 </div>
 
 
@@ -166,7 +349,7 @@ Palworld (2024) [Ru/Multi] (0.6.7.79736) Repack R.G. Alkad [Early Access]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_195.jpg" />
 </div>
 
 
@@ -192,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_194.jpg" />
 </div>
 
 
@@ -218,7 +401,7 @@ Palworld (2024) [Ru/Multi] (0.6.7.79736) Repack SE7EN [Early Access]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_193.jpg" />
 </div>
 
 
@@ -244,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_191.jpg" />
 </div>
 
 
@@ -270,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_189.jpg" />
 </div>
 
 
@@ -296,7 +479,7 @@ The Riftbreaker (2021) [Ru/Multi] (2.0.55174/dlc) License GOG
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_187.jpg" />
 </div>
 
 
@@ -322,7 +505,7 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.6/dlc) Repack Other s 
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186.jpg" />
 </div>
 
 
@@ -348,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_179.jpg" />
 </div>
 
 

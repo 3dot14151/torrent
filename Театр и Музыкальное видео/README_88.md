@@ -6,7 +6,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_412787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_412787.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412249.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411750.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ VA - Осенний марафон № 198 / Видеоклипы (Лучшая 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411098.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Linkin Park - Castle Of Glass (Featured in Medal of Honor Warfighter) (2012) [H.
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409693.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Freddie Mercury And Montserrat Caballe - Barcelona (Special Edition Disc 3 - DVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409681.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409588.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409176.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408728.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408562.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408193.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408132.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407880.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Rammstein - Live Aus Berlin (1998) DVDRip [H.264] [DE / DE, EN, RU Sub]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407666.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Masami Okui - V-mode ~10th Anniversary~ Disc 2 (2003) DVDRip [H.264] [PR]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407220.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406989.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_406920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_406920.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406584.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Lana Del Rey - Ride (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406556.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Dreamshow - Animals (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406178.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Gary Moore - The Definitive Montreux Collection (5 альбомов 1990-2001) (
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406088.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Gin-n-Juice - Pornografiya (Uncensored) (2011) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406071.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405774.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ DJMask - Hymn Of Angel (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405647.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Poshout feat Ange - Beside (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405610.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ Direct to Dreams - Adagio For Strings (Barber Remix 2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405601.jpg" />
 </div>
 
 

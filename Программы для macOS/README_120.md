@@ -1,3 +1,55 @@
+###  Публикация: 1448474   (245951) от 17.02.2021
+
+SizeMyPics 1.7.0 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245951.jpg" />
+</div>
+
+
+###  Подробнее
+
+SizeMyPics может помочь вам в преобразовании большого количества изображений. Узнайте все о возможностях, которые предлагает SizeMyPics, и о том, как он может облегчить вашу работу.Тип издания: macOS SoftwareРелиз состоялся: 15.02.2021Разработчик: Xelaton SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C4A2F7C27FB675B20CD7B1F9D30F05C5C43F185
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511537   (245928) от 21.11.2021
+
+Living Earth - Weather & Clock 1.29 fix [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Radiantlabs представляет лучшие и самые красивые часы мира и программа погоды для вашего Mac. Отмеченное наградами приложение для iPhone и IPad теперь и на вашем Mac. C помощью одного клика в строке меню вам станут доступны все страны и погода для миллионов городов по всему миру. Все это происходит в режиме реального времени. Глобальная облачность, живые обои и заставки (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.11.2020Разработчик: © 2021 Radiantlabs, LLC.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE8583C4152BB6C5C24AD9EB6AD8738177088CDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608167   (245926) от 29.01.2023
 
 PowerPhotos 2.1.6 [En]
@@ -6,7 +58,7 @@ PowerPhotos 2.1.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245926.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ TurnTable 4.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245889.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ Fontography - Text on Picture‪s‬ 2.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245837.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ Mac Backup Guru 6.9.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245824.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ Convertos 2.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245805.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ Finer Focus 1.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245644.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Carbon Copy Cloner 6 v6.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245643.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ Hostbuddy 2.2.5 fix [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245635.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ NotesTab Pro 5.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245552.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ Optimage 3.5.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245519.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ Type Fu 4.8.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245455.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ TextBar 3 v3.5.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245428.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ Sketch n Cartoonize 3.4 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245384.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ Sketch 95.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245367.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ FoneLab Video Converter Ultimate 9.2.30 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245314.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ Task Office 8.9 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245308.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ MarsEdit 5.0.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245242.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ Creative Convert 1.4.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245173.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ Apeaksoft Blu-ray Player for Mac 1.1.70 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245166.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ SQLPro for SQLite 2022.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245144.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ Batch Rename & Convert Photos for Mac 1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245137.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ Record It - Screen Recorder 1.5.4 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245099.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ Aiseesoft Mac Blu-ray Player 6.6.28 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245055.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ BetterZip 5 v5.0.3 CR2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244989.jpg" />
 </div>
 
 
@@ -623,60 +675,6 @@ BetterZip 5 v5.0.3 CR2 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12760E346364363F792C647650858B7DD9EEC8C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526672   (244972) от 25.01.2022
-
-Mirror for Grundig TV 3.5.3 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если у вас есть телевизор Grundig и вы хотите показывать изображение со своего компьютера на большом экране, у AirBeamTV есть решение. Отразите свой Mac на любом телевизоре Grundig Smart TV. Никаких проводов и дополнительного оборудования не требуется. Приложение работает без Apple TV или Airplay.Тип издания: macOS SoftwareРелиз состоялся: 25.01.2022Разработчик: © 2022 | AirBeamTV BVПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23B41858EE1634BD32F3206B0086B91927D6CC3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609343   (244964) от 03.02.2023
-
-DSLR Assistant 3.9.1 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Управляйте камерой Canon, подключенной к Mac, эффективно снимайте цифровые изображения, автоматически выполняйте различные фото-задачи и поддерживайте высокое качество изображений на протяжении всего рабочего процесса.
-Почему DSLR Assistant?
-• Экономьте время. Выполняйте задачи с фотографиями быстрее, лучше и проще. Уменьшите объем рабочего процесса постобработки. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.04.2022Разработчик: © 2021 KAAsoftПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35EC032C55C1C228A8EFEE61298A30A35CF4D57C
 ```
 
 https://mybot314.ru/tekegram_catalog/

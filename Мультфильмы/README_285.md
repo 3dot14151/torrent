@@ -1,3 +1,133 @@
+###  Публикация: 1572248   (238972) от 27.08.2022
+
+Трое из Простоквашино / Каникулы в Простоквашино / Зима в Простоквашино (1978-1984) BDRip [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жил-был мальчик по прозвищу Дядя Федор. Он очень любил животных, но его родители и слышать ничего не хотели о том, чтобы в их квартире завелся кто-то хвостатый и лохматый. И пришлось Дяде Федору со своими новыми приятелями — котом Матроскиным и верным песиком Шариком — отправиться в деревню Простоквашино.Производство: СССР / СоюзмультфильмЖанр: мультфильм, детский, короткометражка, семейныйРежиссер: Владимир ПоповАктеры: Дядя Фёдор (Мария Виноградова), Кот Матроскин (Олег Табаков), Шарик (Лев Дуров), Печкин (Борис Новиков), Папа (Герман Качин), Мама (Валентина Талызина)Субтитры: ОтсутствуютПродолжительность: 00:51:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DD4502F80518E7AD6E51E2E41E0D7B18B7105AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628141   (238942) от 21.04.2023
+
+Остров фигур / Shape Island (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) Iyuno-SDI Group
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238942.jpg" />
+</div>
+
+
+###  Подробнее
+
+На очаровательном островке Квадрат, Треугольник и Круг ищут приключений и учатся принимать различия друг друга.Производство: США, SDI Media / IYUNO SDI GroupЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Дрю ХоджесАктеры: Харви Гильен, Гидеон Адлон, Иветт Николь Браун, Скотт ЭдситПеревод: Дублированный (Iyuno-SDI Group)Язык озвучки: русский, английскийСубтитры: русские (Forced, Full, SDH), английские (Full, SDH), иврит, украинскиеПродолжительность: ~00:24:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:667D4DBDB8368DF20651D98140A38F4BD793FD47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 401128   (238773) от 28.08.2022
+
+Жирафа и очки (1978) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жирафа растранжирила деньги на массу ненужных вещей, и на необходимые очки денег не хватило.Производство: СССР, СоюзмультфильмЖанр: детский, рисованная анимацияРежиссер: Галина БариноваАктеры: Всеволод Ларионов, Татьяна Васильева, Герман Качин, Михаил ПогоржельскийСубтитры: ОтсутствуютПродолжительность: 00:08:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE681A46D1D980D481C5EF0D98A0FD42BCE28048
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 387852   (238759) от 28.08.2022
+
+Самоделкин-спортсмен (1962) VHSRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самоделкин – необычный металлический человечек, его тело состоит из батарейки, пружин, болта, а вместо носа у него винтик. В этот раз металлический человечек, который все знает обо всем предлагает своим друзьям-инструментам заняться утренней физкультурой. Не все инструменты добрые и порядочные, есть еще шайка разбойников – бракованных деталей, которые так и хотят (   Читать дальше...   )Производство: СССР, Грузия-фильмЖанр: детский, рисованная анимацияРежиссер: Вахтанг БахтадзеСубтитры: ОтсутствуютПродолжительность: 00:23:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71E0E681DDB8EA45B8CF4555A9F0E4BA5734482D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 401110   (238752) от 28.08.2022
+
+Жила-была пчелка (1978) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказка о трудолюбивой пчелке Майе, о дружной пчелиной семье, о сладком нектаре и о многом другом. По мотивам сказки А.Алиша "Нечкебиль".Производство: СССР, Саратов телефильмЖанр: детский, рисованная анимацияРежиссер: Анатолий ПапшинАктеры: Олег Балакин, Юрий Ошеров, Станислав Низовой, С. Лаврентьева, Л. Иванникова и др.Субтитры: ОтсутствуютПродолжительность: 00:16:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5B79130ADB0510DCD39916D003F4E397713D0F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 387310   (238746) от 28.08.2022
 
 Про поросёнка, который умел играть в шашки (1972) DVDRip
@@ -6,7 +136,7 @@
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238746.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238734.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238709.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238681.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238673.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238653.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238568.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238243.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238182.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237956.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237913.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237832.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237763.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ SMASH! Юные супергерои / S.M.A.S.H! (2022) WEBRip [H.264/1080p] (�
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237651.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237635.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237531.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237484.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237457.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237448.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237435.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237332.jpg" />
 </div>
 
 
@@ -539,138 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2206E613CFC669C71E906E4A853E520E96312FFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 332640   (237295) от 05.05.2022
-
-Сезон охоты (1981) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Замечательный мультфильм об охотничьей собаке, мечтающей выбраться на охоту. Ночью ей снились сны, в которых она бежит за подстреленной уткой. Как-то раз она отправилась с хозяином на прогулку и увидела на витрине магазина охотничьи принадлежности. Она увязалась за проходившем мимо магазина охотником и отправилась вместе с ним на охоту. Но не долго "охотница" (   Читать дальше...   )Жанр: Семейный, рисованныйРежиссер: Александр ВикенПродолжительность: 00:09:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7302F8E8372B13A37F116D761F00201E75AD281
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 344816   (237280) от 05.05.2022
-
-Два медвежонка (1977) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Про мальчика, который не берег свои игрушки.
-Но однажды сорванцу приснилось, что он сам превратился в игрушку, подаренную двум медвежатам. Побывав на месте беспомощной куклы, мальчик исправился и стал бережнее относиться к своим игрушкам.Жанр: Детский, КукольныйРежиссер: Леонид КощениковПродолжительность: 00:16:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37BB0D3E56A0A86296EA67243F0423DA8E9E6904
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 251370   (237275) от 04.09.2022
-
-Птичка Тари (1976) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды у крокодила заболели его страшные зубы. И никто не мог ему помочь, кроме маленькой птички Тари…Производство: СССР, СоюзмультфильмЖанр: Детский, Рисованная анимацияРежиссер: Геннадий СокольскийАктеры: Агарь Власова, Лидия Катаева, Леонид Броневой, Мария Виноградова, Зинаида НарышкинаСубтитры: ОтсутствуютПродолжительность: 00:08:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CB659DC8A360E429CB73F09AA30721F7710692D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509923   (237265) от 04.09.2022
-
-Одуванчик (1975) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237265.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три гнома дают мальчику три ключа. Как он ими распорядится по жизни, откроет ли правильный замок?
-Философская притча о смысле жизни по сказке Александра Шарова "Мальчик одуванчик и три ключика".Производство: СССР, ТО "Экран"Жанр: детский, кукольныйРежиссер: Юрий КлепацкийПродолжительность: 00:18:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1DCF176038864926131DD14D5360B8B290626B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 395493   (237224) от 04.09.2022
-
-Высокая горка (1951) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237224.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультипликационный фильм по мотивам сказки Виталия Бианки «Красная горка» о драчливом и самонадеянном воробьишке, возомнившем себя непобедимым храбрецом. Рассорившись с остальными воробьями, он улетает из леса и устраивает свое гнездо под крышей сарая, не позаботившись о его безопасности. Но в одиночку он не смог защитить гнездо от кошки. После этого он селится вместе (   Читать дальше...   )Производство: СССР, СоюзмультфильмЖанр: детский, рисованная анимацияРежиссер: Леонид Амальрик, Владимир ПолковниковАктеры: Ирина Гошева, Георгий Вицин, Анастасия Зуева, Клементина РостовцеваСубтитры: ОтсутствуютПродолжительность: 00:19:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0EBBF91D0DC15B9AD3EF16C8E6A5E790278ECFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,113 @@
+###  Публикация: 1291493   (1039412) от 14.01.2021
+
+Азбука для Детей! Учим Алфавит! v3.2.10.1 [Ru/Multi] (обновляемая)
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детские игры для детей и игры для малышей от 3 до 5 лет бесплатно! Английская азбука для малышей: русский алфавит для детей с 4 лет, английский алфавит с произношением! Наши игры для детей 4 лет с уникальной эффективной методикой обучения чтению. Ребенок ловит живые буквы и складывает из них слово, а из деталей конструктора собирает пазл-картинку, которая обозначает (   Читать дальше...   )Тип издания: Пиратка (Pro: разблокированы все буквы, без рекламы)Релиз состоялся: 11.01.2021Разработчик: Bini BambiniПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21FFCF0835953B360040DB2A4E9E4F4F31FF8A7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439996   (1039305) от 15.01.2021
+
+Коран Радио (золото) v1.4 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039305.jpg" />
+</div>
+
+
+###  Подробнее
+
+- Слушайте Священный Коран в любое время и в любом месте голосом многих чтецов.
+- Начните сейчас с голоса более сотни читателей с множеством аутентичных повествований.
+- А также многие общественные радиостанции и толкования Корана и фетв.
+- Выберите любимые станции, чтобы быстро и легко получить к ним доступ через список избранного.Тип издания: Пиратка (Paid)Релиз состоялся: 14 января 2021 г.Разработчик: ABDOROIDПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80808C6F7C08CA5EEAE01EAD677BE9996D0F2458
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439860   (1039267) от 15.01.2021
+
+Помощник сварщика v2.1 Paid [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039267.jpg" />
+</div>
+
+
+###  Подробнее
+
+.
+Приложение разработано для "рабочих" условий.
+Положение экрана Landscape. Вертикальный, горизонтальный scroll.
+Нажатия на кнопки дублированы функцией вибро.(   Читать дальше...   )Тип издания: Paid (Куплена в Маркете)Релиз состоялся: 20 февраля 2015 гРазработчик: Khokhlov AndreyПоддерживаемая ОС: Android 2.2 +Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:996C4D4751C02D29918593C7A9A306DD090FB012
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440175   (1039114) от 16.01.2021
+
+Spread The Signs v2.0.3 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Spread Signs - Самый большой в мире словарь жестовых языков с более чем 200 000 жестов! Выучите американский, чешский, британский, индийский, эстонский, французский, немецкий, австралийский, исландский, итальянский, японский, латвийский, литовский, польский, португальский, бразильский, румынский, русский, испанский, шведский, турецкий и украинский жестовый язык.Тип издания: Пиратка (Мод) Premium версияРелиз состоялся: 14 мая 2019 г.Разработчик: Europeiskt TeckenspråkcenterПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1522D7C5944248240130BCD129D39C607904C873
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1440295   (1039078) от 16.01.2021
 
 Казачество v3.3 [Ru]
@@ -6,7 +116,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039078.jpg" />
 </div>
 
 
@@ -32,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039042.jpg" />
 </div>
 
 
@@ -58,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039012.jpg" />
 </div>
 
 
@@ -87,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039008.jpg" />
 </div>
 
 
@@ -115,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039006.jpg" />
 </div>
 
 
@@ -142,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038997.jpg" />
 </div>
 
 
@@ -168,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038934.jpg" />
 </div>
 
 
@@ -194,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038928.jpg" />
 </div>
 
 
@@ -221,7 +331,7 @@ Planner 5D Interior Design v1.26.4 [Ru/Multi] - Планировщик домо�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038908.jpg" />
 </div>
 
 
@@ -247,7 +357,7 @@ Denoise it v1.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038755.jpg" />
 </div>
 
 
@@ -273,7 +383,7 @@ Dub Music Player Premium v5.6 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038703.jpg" />
 </div>
 
 
@@ -299,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038440.jpg" />
 </div>
 
 
@@ -328,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038413.jpg" />
 </div>
 
 
@@ -357,7 +467,7 @@ Titan Workouts / Сила Титана v3.2.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038405.jpg" />
 </div>
 
 
@@ -386,7 +496,7 @@ AR Plan 3D v4.4.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037967.jpg" />
 </div>
 
 
@@ -412,7 +522,7 @@ OTT Navigator IPTV v1.6.3.8 Mod [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037621.jpg" />
 </div>
 
 
@@ -439,7 +549,7 @@ Carmin v4.1.6 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037424.jpg" />
 </div>
 
 
@@ -465,7 +575,7 @@ VPN Private v1.1.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037318.jpg" />
 </div>
 
 
@@ -491,7 +601,7 @@ Ski Tracker v2.3.01 Premium [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037173.jpg" />
 </div>
 
 
@@ -517,7 +627,7 @@ Adobe Master Collection For Android [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037030.jpg" />
 </div>
 
 
@@ -543,7 +653,7 @@ RuStore 1.3.6 (159) [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036921.jpg" />
 </div>
 
 
@@ -569,7 +679,7 @@ LocalCast v33.1.2.8 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036517.jpg" />
 </div>
 
 
@@ -580,114 +690,6 @@ LocalCast - приложение №1 для видеопотока на Android
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:297142300D9240A32DA2F0479908E7A05F2F1D09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616976   (1035834) от 04.03.2023
-
-DailyArt - Daily Dose of Art v2.9.1 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальное приложение для изучения творчества и биографии художников. Выполнено в виде ленты работ для ознакомления. Каждый день вдохновляйтесь прекрасными произведениями классического, модерн и современного искусства и читайте о них короткие истории. Присоединяйтесь к сообществу более 1.000.000 любителей искусства, для которых DailyArt - это то, что скрасит ваш (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 21.02.2023Разработчик: MoiseumПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9933FC393240613CD76AF66D93794D67429373BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443176   (1035713) от 28.01.2021
-
-Звуки для сна v5.0.0.RC-GP(86) [Ru/Multi] (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035713.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бессонница? Трудно заснуть? Спящий рядом с вами храпит?
-Прослушивайте наши тщательно подобранные успокаивающие звуки, и вы будете спать как младенец. Наслаждайтесь качественными звуками для сна и просыпайтесь по-настоящему обновленным.Тип издания: Пиратка (открыт Prо)Релиз состоялся: 23.01.2021Разработчик: Sound Sleep - Relaxing Sounds and White NoiseПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3753978D219D4413C04FCD361A554C9F244129A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442455   (1035704) от 28.01.2021
-
-Selena v0.2.18 [Ru/Multi] (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самые точные ежедневные астрологические рекомендации и прогноз по всем сферам жизни от бизнеса, финансов и красоты до питания и операций, построенные на основе лунного календаря с учетом астрологических факторов.Тип издания: Пиратка (AdFree)Релиз состоялся: 06.10.2020Разработчик: CheStoneПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6C8EA09D0A12D62D7C6B85FC2D309564D82F826
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440883   (1035672) от 28.01.2021
-
-Voice Training / Голосовая тренировка ver.Autoscroll Fix (120) [Ru/Multi] (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Голосовое обучение Pro - научитесь петь. Тренируйте свой голос чтобы петь лучше. Практика для караоке!
-Особенности:
-• Выполняйте упражнения по пению, и приложение сообщит вам, гармонично ли вы поете.
-• Вы можете наслаждаться классом пения, где учителя используют фортепиано в качестве ориентира для высоты звука.(   Читать дальше...   )Тип издания: Pro (Paid - куплена в Маркете)Релиз состоялся: 27.01.2021Разработчик: Learn To MasterПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD15E02C6AFCFC96910192A013B95A0054D9BF3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

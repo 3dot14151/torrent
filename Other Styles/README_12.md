@@ -1,3 +1,61 @@
+###  Публикация: 974808   (975681) от 12.01.2016
+
+Michele McLaughlin - Undercurrent (2015) [MP3|320 кб/с] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 11.000 Miles
+02. Living In Awe
+03. Changing Skies
+04. Full Of Love(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A5BAD5BFA2A38F4AA57AFB46B967D8EC9984152
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357094   (975610) от 02.02.2020
+
+Marco Beltrami & Buck Sanders, VA - Ford V Ferrari / Ford против Ferrari (Original Soundtrack + Original Score - FYC) (2019) [MP3|320 кб/с] <Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shelby Races Le Mans (01:37)
+02. Shelby Drives Mulholland (01:29)
+03. Ford Arrives (00:41)
+04. Lee's Got An Idea (00:26)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 01:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB9EB5EF6CBF20FB40F42016DFC1F80FED2101F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357095   (975548) от 02.02.2020
 
 Marco Beltrami & Buck Sanders, VA - Ford V Ferrari / Ford против Ferrari (Original Soundtrack + Original Score) (2019) [FLAC|Lossless|tracks] <Soundtrack, Score>
@@ -6,7 +64,7 @@ Marco Beltrami & Buck Sanders, VA - Ford V Ferrari / Ford против Ferrari (
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975548.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ The Piano Girls - Hey Guys, Listen to My Piano (2014) [MP3|320 кб/с] <New Age
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975474.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Luna - 3 альбома (1992-1998) [MP3|256-320 кб/с]<New age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975351.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Ultimate Classical Guitar - The Essential Masterpieces (2008) 5CD, Box Set 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974801.jpg" />
 </div>
 
 
@@ -119,7 +177,7 @@ Jean Michel Jarre - The Concerts In China (1982) 2CD, Remastered, 2014, Sony Mus
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974358.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ VA - Mystic Spirits Vol. 2, 2CD  (2000) [FLAC|Lossless|image + .cue] <Ambient, F
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974339.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ VA - Mystic Spirits vol. 3, 2CD (2001) [FLAC|Lossless|image + .cue] <Folk, Ambie
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974336.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ VA - Песни нашего кино. Коллекция от Ридерз Да
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973413.jpg" />
 </div>
 
 
@@ -241,7 +299,7 @@ Manish Vyas - Atma Bhakti (2015) [MP3|320 кб/с] <New Age, World, Mantra>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973344.jpg" />
 </div>
 
 
@@ -269,7 +327,7 @@ Nicholas Britell - The King / Король (Original Score from the Netflix Film
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973159.jpg" />
 </div>
 
 
@@ -298,7 +356,7 @@ Nicholas Britell - The King / Король (Original Score from the Netflix Film
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973157.jpg" />
 </div>
 
 
@@ -327,7 +385,7 @@ Brian Tyler - Ready or Not / Я иду искать (Original Motion Picture Sou
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973155.jpg" />
 </div>
 
 
@@ -356,7 +414,7 @@ Simon Viklund and VA - Payday: The Game Soundtrack, Payday 2: Official Soundtrac
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973131.jpg" />
 </div>
 
 
@@ -382,7 +440,7 @@ Brian Tyler - Ready or Not / Я иду искать (Original Motion Picture Sou
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973091.jpg" />
 </div>
 
 
@@ -411,7 +469,7 @@ David Arkenstone - Gentle Rain (2006) [FLAC|Lossless]<New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972156.jpg" />
 </div>
 
 
@@ -440,7 +498,7 @@ Douglas Blue Feather - Rhythms of the Night (2015) [MP3|320 кб/с] <New Age, N
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972107.jpg" />
 </div>
 
 
@@ -469,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971725.jpg" />
 </div>
 
 
@@ -498,7 +556,7 @@ Richard Ackrill - The Lightness of Being (2012) [MP3|320 кб/с]<New age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971264.jpg" />
 </div>
 
 
@@ -530,7 +588,7 @@ The Nymphs - Language of the Nymphs (2012) [MP3|192 кб/с]<New age, Instrument
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971187.jpg" />
 </div>
 
 
@@ -562,7 +620,7 @@ Enigmatic Obsession - Secrets Of Seduction (2005) [FLAC|Lossless|tracks + .cue] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970810.jpg" />
 </div>
 
 
@@ -591,7 +649,7 @@ Jens Gad (ex.-Enigma) - Le Spa Sonique (2006) [FLAC|Lossless|tracks + .cue] <Dow
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970807.jpg" />
 </div>
 
 
@@ -620,7 +678,7 @@ Ennio Morricone - Correspondence (La Corrispondenza) Original Soundtrack (2016) 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970803.jpg" />
 </div>
 
 
@@ -649,7 +707,7 @@ Tom Kenyon - Songs of Magdalen (2005) [FLAC|Lossless|tracks + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970732.jpg" />
 </div>
 
 
@@ -678,7 +736,7 @@ Medwyn Goodall - The Elixir of Life (2020) [FLAC|Lossless|WEB-DL|tracks] <New Ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970644.jpg" />
 </div>
 
 
@@ -692,64 +750,6 @@ Medwyn Goodall - The Elixir of Life (2020) [FLAC|Lossless|WEB-DL|tracks] <New Ag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1A546C97191DE2E1C41B3B56C7842E8877143A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357704   (970632) от 06.02.2020
-
-Shinnobu - The Enigma V (Masterminds) (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relaxation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Of His Eyes the Peace V (7:05)
-02. After of Your Life (6:34)
-03. Mea Maxima Culpa (6:25)
-04. The Man V (9:33)(   Читать дальше...   )Жанр: New Age, RelaxationПродолжительность: 01:04:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A9D49C8E8CA5497C891F6CA87CCDB7D3F423CBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974313   (970582) от 16.01.2016
-
-Христина Соловій - Жива вода (2015) [FLAC|Lossless|image+.cue] <Pop-Folk, Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Несе Галя воду (3:57)
-02. Янчик (2:41)
-03. Тримай (3:28)
-04. Синя пісня (3:18)(   Читать дальше...   )Жанр: Pop-Folk, Folk RockПродолжительность: 00:45:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1720B062A974FF1FF948667554E119641A194BE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

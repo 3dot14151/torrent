@@ -6,7 +6,7 @@ Desktop Wallpapers Full HD. Part (515) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343425.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Desktop Wallpapers Full HD. Part (512) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343421.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Ultra HD 3840x2160 Wallpaper Pack 403 [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343420.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Ultra HD 3840x2160 Wallpaper Pack 402 [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343418.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Ultra HD 3840x2160 Wallpaper Pack 404 [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343412.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Desktop Wallpapers (4K) Ultra HD. Part (269) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343406.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Desktop Wallpapers Full HD. Part (516) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343403.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Ultra HD 3840x2160 Wallpaper Pack 405 [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343398.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Desktop Wallpapers Full HD. Part (517) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343396.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Ultra HD 3840x2160 Wallpaper Pack 406 [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343274.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343147.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341878.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341243.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Majestic castles of the world Wallpapers (25.11.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341228.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ OS Wallpapers (25.11.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341110.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Fantastic Wallpapers (25.11.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341096.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Minimalizm Wallpapers (25.11.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340978.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339707.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Majestic castles of the world Wallpapers (26.11.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338155.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337038.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336671.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335441.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335288.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335285.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335161.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335148.jpg" />
 </div>
 
 

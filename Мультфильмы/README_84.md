@@ -1,3 +1,133 @@
+###  Публикация: 1110923   (849798) от 04.03.2017
+
+Отважный рыцарь / Der kleine Ritter Trenk (2015) HDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849798.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящий рыцарь должен быть мужественным, смелым, отважным, каким угодно, но главные составляющие успешной героической карьеры — дама сердца и немножечко препятствий, чтобы завоевывать было интереснее. А там уже и замок, и полкоролевства, и слава под фанфары — все как всегда. Вперед — навстречу приключениям, чтобы успеть позавтракать кашей и не забыть меч…Производство: Германия, Австрия, Buena Vista Int.Жанр: Приключения, Сказка, Рисованная анимацияРежиссер: Энтони ПауэрПеревод: Дублированный iTunesПродолжительность: 01:19:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC14A6AE07227E3B9370159506B689AC522D7857
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111064   (849793) от 04.03.2017
+
+Отважный рыцарь / Der kleine Ritter Trenk (2015) BDRip [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящий рыцарь должен быть мужественным, смелым, отважным, каким угодно, но главные составляющие успешной героической карьеры — дама сердца и немножечко препятствий, чтобы завоевывать было интереснее. А там уже и замок, и полкоролевства, и слава под фанфары — все как всегда. Вперед — навстречу приключениям, чтобы успеть позавтракать кашей и не забыть меч…Производство: Германия, Австрия, Buena Vista Int.Жанр: Рисованная анимация, Приключения, СказкаРежиссер: Энтони ПауэрПерсонажи: Георг Зольцер, Аксель Праль, Йоханес Цайлер, Дэнис ЛайонсПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:19:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D72E041953256FE078926FB4576ED64BE2CEAC3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111163   (849782) от 04.03.2017
+
+Большой собачий побег / Ozzy (2016) BDRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь беспечного бигля Оззи переворачивается с лап на голову, когда, отправляясь в отпуск, семья Мартинов отдает его в элитный спа-отель для собак. Но хозяева не могли и представить, что это всего лишь ловушка, а их любимец окажется в настоящей собачьей тюрьме. Чтобы прорваться через супер-систему охраны и злющих сторожевых псов, Оззи вместе с такими же бедолагами, (   Читать дальше...   )Производство: Канада, ИспанияЖанр: Компьютерная анимация, Приключения, Комедия, ДетскийРежиссер: Альберто Родригез, Начо Ла КазаПерсонажи: Гильермо Ромеро, Дэни Ровира, Хосе Мота, Мишель Хеннер, Карлос Аресес, Фернандо Техеро, , Эктор Кантолья, Хуан Фернандес, Эльза ПатакиПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:30:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9BDD31F9BD93B152E8616A6001B3A411404469E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377840   (849476) от 23.04.2020
+
+Легенды «Смертельной битвы»: Месть Скорпиона / Mortal Kombat Legends: Scorpions Revenge (2020) WEB-DLRip [H.264] [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет мультфильма расскажет об очередном смертельном турнире Шан Цзуна, в котором участвуют бойцы с Земли и других миров. В центре истории окажется жаждущий мести за смерть семьи и клана Скорпион, который соглашается принять участие в межпространственном состязании.Производство: США / DC Entertainment, Midway Games, Warner Bros. AnimationЖанр: Мультфильм, фэнтези, боевик, приключенияРежиссер: Этан СполдингПеревод: Многоголосый закадровыйСубтитры: Русские (форсированные на надписи), английские (Full, SDH)Продолжительность: 01:20:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABB0AAE3CE885A3CD4929F8399A319DFE4DE22CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499400   (849416) от 01.10.2021
+
+Алиса и Шоу Дикого Запада / Alice's Wild West Show (1924) DVBRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маленькая Алиса и её друзья организовывают для ребят представление в стиле Дикого Запада. После первого номера появляются хулиганы с соседней улицы, и все "артисты" разбегаются. Но Алиса не из тех, кто легко сдается и она продолжает шоу в одиночку, рассказывая о своих приключениях в мультяшной стране...Производство: США, Walt Disney ProductionsЖанр: Рисованная анимация, ДетскийРежиссер: Уолт ДиснейАктеры: Вирджиния Дэвис, Томми ХиксПеревод: Немой с интертитрамиСубтитры: Английские интертиры, русские отдельным файломПродолжительность: 00:12:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6187331BDA76978B5DB67639C3BA9A0AD6620C09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1499350   (849410) от 01.10.2021
 
 Кролик Питер 2 / Peter Rabbit 2: The Runaway (2021) DVD5 [Custom]
@@ -6,7 +136,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849410.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849277.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849079.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849025.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848820.jpg" />
 </div>
 
 
@@ -138,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848812.jpg" />
 </div>
 
 
@@ -166,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848640.jpg" />
 </div>
 
 
@@ -192,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848321.jpg" />
 </div>
 
 
@@ -218,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847973.jpg" />
 </div>
 
 
@@ -244,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847539.jpg" />
 </div>
 
 
@@ -270,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847363.jpg" />
 </div>
 
 
@@ -296,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847362.jpg" />
 </div>
 
 
@@ -322,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847361.jpg" />
 </div>
 
 
@@ -348,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847352.jpg" />
 </div>
 
 
@@ -374,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847289.jpg" />
 </div>
 
 
@@ -400,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846993.jpg" />
 </div>
 
 
@@ -426,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846976.jpg" />
 </div>
 
 
@@ -452,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846852.jpg" />
 </div>
 
 
@@ -478,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846782.jpg" />
 </div>
 
 
@@ -504,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846733.jpg" />
 </div>
 
 
@@ -530,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846711.jpg" />
 </div>
 
 
@@ -541,137 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC30A065923874048F178DA712F9F0D168F063EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 771120   (846701) от 27.03.2014
-
-Холодное сердце / Frozen (2013) HDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда древнее предсказание сбывается и королевство погружается в объятия вечной зимы, трое бесстрашных героев — принцесса Анна, отважный Кристофф и его верный олень Свен — отправляются в горы, чтобы найти сестру Анны, Эльзу, которая может снять со страны леденящее заклятие. По пути их ждет множество увлекательных сюрпризов и захватывающих приключений: встреча с мистическими (   Читать дальше...   )Производство: США, Walt Disney Animation Studios, Walt Disney PicturesЖанр: Фэнтези, Комедия, ПриключенияРежиссер: Крис Бак, Дженнифер ЛиАктеры: Кристен Белл, Идина Мензел, Джонатан Грофф, Джош Гад, Сантино Фонтана, Алан Тьюдик, Киаран Хайндс, Крис Уильямс, Стивен Дж. Андерсон, Майа УилсонПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2852823C9C92265B617AA068CC465045D2F0376E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499769   (846035) от 03.10.2021
-
-Прямиком из Нигде: Скуби-Ду встречает Куража, трусливого пса / Straight Outta Nowhere: Scooby-Doo! Meets Courage the Cowardly Dog (2021) WEB-DL [H.264/1080p-LQ] [MVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846035.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скуби-Ду и команда оказываются в городе Нигде (родной город Куража), в центре Канзаса, где происходит "огромное количество загадочных и жутковатых вещей". Ребята объединяются с Куражом - трусливым псом, чтобы раскрыть тайну гигантских монстров-цикад.Производство: США / Warner Bros. Animation, Cartoon Network StudiosЖанр: мультфильм, ужасы, фэнтези, комедия, детектив, приключения, семейныйРежиссер: Сесилия АрановичПеревод: Многоголосый профессиональный (Flarrow Films)Субтитры: русскиеПродолжительность: 01:18:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2EC88083FAFB2B55FDA3DA06549770735BD0733
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377461   (846022) от 25.04.2020
-
-По ту сторону океана / Da Yu Hai Tang / Big Fish & Begonia (2016) BDRip [H.265/1080p] [10 bit]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846022.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сердце океана сокрыт волшебный мир — обитель существ, управляющих течениями и сменой времён года. У них есть традиция: как только обитатель того мира достигает 16-летия, он должен на 7 дней отправиться в мир людей. Девушка Юна принимает облик красного дельфина и плывет посмотреть на человечество, но попадает в рыболовные сети. Ценой собственной жизни её спасает (   Читать дальше...   )Производство: Китай / B&T, Huoerguosi ENLIGHT MEDIAЖанр: мультфильм, фэнтези, мелодрамаАктеры: Цзи Гуаньлинь, Су Шанцин, Сюй Вэйчжоу, Цзинь Шицзя, Пань Шулань, Чжан Юаньюань, Цзюэр, Сюэ Лифан, Чжан Цзе, Лю СяоюйПеревод: Дублированный, многоголосый закадровый
-(NewComers, AniDub, Artymko, Дядько Грей)Субтитры: Русские (Full), украинские (Full), английские (Full)Продолжительность: 01:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FD36BA1665AA233B904C3DBDAD11C3D135FEB38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378584   (845889) от 25.04.2020
-
-Семья Уиллоби / The Willoughbys (2020) WEB-DLRip [H.264] [PR]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845889.jpg" />
-</div>
-
-
-###  Подробнее
-
-В семье Уиллоби дети решают отдохнуть от эгоистичных родителей, отправив их в отпуск.Производство: Канада, США, Великобритания / BRON Studios, Canadian Film or Video Production Tax Credit (CPTC), Creative Wealth Media FinanceЖанр: мультфильм, комедия, семейныйРежиссер: Крис Пирн, Кори Эванс, Роб ЛодемаерАктеры: Уилл Форте, Майя Рудольф, Алессия Кара, Терри Крюс, Мартин Шорт, Джейн Краковски, Шон Каллен, Рики Джервэйс, Брайан Драммонд, Крис ПирнПеревод: Дублированный (Невафильм | Netflix)Субтитры: русские (форсированные, полные), английские (SDH)Продолжительность: 01:32:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99362C42402B3A75AE293EB539D5BA199573237E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499788   (845703) от 03.10.2021
-
-Легенды «Смертельной битвы»: Битва королевств / Mortal Kombat Legends: Battle of the Realms (2021) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Райден и его бойцы вновь сразятся с прихвостнями Шао Кана. В ходе битвы они отправятся во Внешний мир, чтобы защитить Земное царство, пока Скорпион разыскивает древнюю Камидогу, которую собираются использовать для воскрешения Единой сущности.Производство: США / DC Entertainment, Midway Games, Warner Bros. AnimationЖанр: мультфильм, фэнтези, боевик, приключенияРежиссер: Этан СполдингПеревод: Дублированный (КиноПоиск HD)Язык озвучки: Русский, английскийСубтитры: русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:19:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DDA05964EDCC8DE64A9C2F282A0878E231D89B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

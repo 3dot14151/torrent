@@ -6,7 +6,7 @@ Tweak Photos - Image Editor 2.8 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756886.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Artista Impresso Pro 1.8.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_756345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_756345.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Paletter 4 v4.3.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755317.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ PhotosCollage 1.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753612.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ PhotoReflector 1.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753611.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ PatterNodes 2 v2.4.12 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751675.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ FxFactory Pro 7.2.8 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751268.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ ExifEditor 1.2.5 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749805.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ SILKYPIX Developer Studio Pro 7.0.5.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747969.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ onOne Software Plug-In Suite 5.1 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_747175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_747175.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Magic Hider PRO 1.4.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743856.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Instant: The Polaroid Instant Photos 3.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743701.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Adobe DNG Converter 11.2.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743521.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ EzeeGD 2.1.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739902.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739080.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738462.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Hej Stylus! v3 3.7.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737825.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Exposure Software Snap Art 4 v4.1.3.392 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737807.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Exposure Software Eye Candy 7 v7.2.3.189 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737798.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Image Tricks Pro 3.9.5 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737400.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Acon 1.1.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736423.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ SkyLab Studio 2.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732082.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Image Vectorizer 1.6 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731967.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ PaintCode for Sketch 1.0.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731903.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ ApolloOne - Photo Video Viewer 2.3.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731712.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Sketch 3.8.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730351.jpg" />
 </div>
 
 

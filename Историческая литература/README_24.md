@@ -1,29 +1,3 @@
-###  Публикация: 911575   (829349) от 16.03.2017
-
-Сергей Соловьев | История России с древнейших времен [29 томов](2001-2003) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829349.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вниманию читателей предлагается фундаментальное издание, знаменитый труд великого русского ученого-историка Сергея Михайловича Соловьева, являющийся крупнейшим достижением русской исторической науки XIX века. Эта, не имеющая себе равных в отечественной науке, работа стала невиданным событием в российском обществе, явлением истинно мирового масштаба. На создание этого (   Читать дальше...   )Жанр: ИсторияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB9B2FF6113AE4C1333AC346EB6C499B318E545A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006652   (827085) от 12.04.2016
 
 Николай Белов (сост.) | 101 биография русских знаменитостей, которых не было никогда (2010) [FB2]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827085.jpg" />
 </div>
 
 
@@ -61,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826041.jpg" />
 </div>
 
 
@@ -87,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826040.jpg" />
 </div>
 
 
@@ -113,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826039.jpg" />
 </div>
 
 
@@ -139,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826037.jpg" />
 </div>
 
 
@@ -167,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825933.jpg" />
 </div>
 
 
@@ -194,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825186.jpg" />
 </div>
 
 
@@ -220,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824566.jpg" />
 </div>
 
 
@@ -246,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824240.jpg" />
 </div>
 
 
@@ -272,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824233.jpg" />
 </div>
 
 
@@ -298,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824198.jpg" />
 </div>
 
 
@@ -324,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824011.jpg" />
 </div>
 
 
@@ -350,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823397.jpg" />
 </div>
 
 
@@ -377,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823306.jpg" />
 </div>
 
 
@@ -403,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823304.jpg" />
 </div>
 
 
@@ -429,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823229.jpg" />
 </div>
 
 
@@ -455,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823224.jpg" />
 </div>
 
 
@@ -481,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820874.jpg" />
 </div>
 
 
@@ -509,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819243.jpg" />
 </div>
 
 
@@ -535,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818805.jpg" />
 </div>
 
 
@@ -561,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815917.jpg" />
 </div>
 
 
@@ -587,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815913.jpg" />
 </div>
 
 
@@ -616,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815911.jpg" />
 </div>
 
 
@@ -645,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815909.jpg" />
 </div>
 
 
@@ -673,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815856.jpg" />
 </div>
 
 
@@ -686,6 +660,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A83A9C8FA07E5BB60375BCDC785C48058EDD22B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008346   (815690) от 18.04.2016
+
+Дмитрий Урушев | Русское старообрядчество: традиции, история, культура (2016) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга посвящена самым ярким эпизодам и основным вехам истории старообрядчества. Рассказ об этом исконно русском духовном движении начинается со времен появления христианства на Руси и доходит до наших дней. Читатель знакомится с живыми портретами выдающихся исторических деятелей (протопоп Аввакум, боярыня Морозова и др.), с яркими рассказами о достопамятных событиях. (   Читать дальше...   )Жанр: Религиоведение, Религия: прочееФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB1AF6BF080F49D718059FB8B94299A37D544929
 ```
 
 https://mybot314.ru/tekegram_catalog/

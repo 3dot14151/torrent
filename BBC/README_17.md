@@ -6,7 +6,7 @@ BBC. Большой Барьерный риф с Дэвидом Аттенбор
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549882.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BBC. Большой Барьерный риф с Дэвидом Аттенбор
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549828.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BBC. Большое австралийское приключение / Coast Au
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546138.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BBC: Лететь ли нам на Марс? Мысли о будущем / The 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543637.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ BBC. Жизнь млекопитающих / The Life of Mammals (2002) HDTVRip 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543388.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ BBC. Город под водой. Павлопетри / City Beneath the Waves
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542658.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ BBC: Пираты Карибского моря. Черная борода / Bla
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541760.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ BBC: Инки: Владыки облаков / The Inca: Masters of the Clouds (
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538685.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ BBC: Древние затерянные города. Тёмные правит
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538584.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ BBC. Horizon: Мой домашний динозавр / My Pet Dinosaur (2007) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531456.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ BBC: Живой мир. Шри-Ланка: Остров слонов / Sri Lanka
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528113.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ BBC. Horizon: Тайны солнечной системы / Secrets of the Sola
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527914.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ BBC. Чудеса животного мира / The Wonder of Animals (2014) SAT
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527211.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526975.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ BBC: Невидимое простым глазом / Da Vinci Learning: BBC: Be
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524910.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524331.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ BBC: Сокровища Древнего Египта / Treasures of Ancient Egy
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522399.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_522282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_522282.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ BBC: Постигая звёздное небо / BBC: Stargazing Live (2013) SA
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520492.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ BBC: Мир природы: Королева снежных обезьян / Nat
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520299.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ BBC: Мир природы. Сокровища Анд / Natural World. Treasure 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518247.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ BBC: Египет. Тайны, скрытые под землей / Egypt: What 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517629.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ BBC:  Машина Большого Взрыва / The Big Bang Machine (2008) S
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_517192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_517192.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ BBC: Ноев Ковчег - реальная история / BBC: Noah`s Ark-T
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517123.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ BBC. Планеты / The Planets (2019) BDRemux [H.264/1080i] (сезон 1, с
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516763.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ BBC. Мир природы. Королева морских дьяволов / T
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514815.jpg" />
 </div>
 
 

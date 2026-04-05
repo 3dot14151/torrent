@@ -1,3 +1,58 @@
+###  Публикация: 930442   (515141) от 23.08.2015
+
+Журнал | Веселый затейник, № 1 (2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Журналы для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515141.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отличный ежемесячный познавателно-развлекательный журнал для детей школьно возраста (7-14 лет). В каждом выпуске много интересных и увлекательных заданий для самых любопытных и не угомонных детишек. В этом номере различные пословицы и поговорки
+Игры со спичками, лабиринты с загадками, раскраски, занимательные опыты
+Игры с друзьями
+Так что с этим журналом ваше ребёнок (   Читать дальше...   )Жанр: Развлечения. досугФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AE44A38B601A8FC4ACC24E0EE248ABA363D4D6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241898   (515132) от 22.08.2018
+
+Александр Ткаченко | Житие святого благоверного князя Александра Невского в пересказе для детей (2017) [FB2, PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Слабых нужно защищать. Эту простую истину каждый знает. Но вот исполнять её на деле бывает трудно, а иногда - просто страшно. Например, когда видишь, что плохие мальчишки обижают девочку или малыша, то сердце подсказывает — нужно заступиться. И ты вроде бы совсем готов прийти на помощь, но... ноги сами идут в другую сторону. А потом очень долго со стыдом вспоминаешь (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDE54905CC596CBCF43A365DCB7FEB5CBA42E10B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242415   (515128) от 22.08.2018
 
 Святослав Сахарнов | Гак и Буртик в Стране бездельников (1964) [FB2]
@@ -6,7 +61,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515128.jpg" />
 </div>
 
 
@@ -33,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515066.jpg" />
 </div>
 
 
@@ -59,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514941.jpg" />
 </div>
 
 
@@ -86,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514389.jpg" />
 </div>
 
 
@@ -112,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514335.jpg" />
 </div>
 
 
@@ -139,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514322.jpg" />
 </div>
 
 
@@ -165,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514248.jpg" />
 </div>
 
 
@@ -191,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514236.jpg" />
 </div>
 
 
@@ -218,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514140.jpg" />
 </div>
 
 
@@ -244,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514091.jpg" />
 </div>
 
 
@@ -270,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514082.jpg" />
 </div>
 
 
@@ -296,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514026.jpg" />
 </div>
 
 
@@ -322,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513995.jpg" />
 </div>
 
 
@@ -348,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513970.jpg" />
 </div>
 
 
@@ -375,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513881.jpg" />
 </div>
 
 
@@ -403,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513879.jpg" />
 </div>
 
 
@@ -429,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513866.jpg" />
 </div>
 
 
@@ -455,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513857.jpg" />
 </div>
 
 
@@ -482,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513364.jpg" />
 </div>
 
 
@@ -508,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513363.jpg" />
 </div>
 
 
@@ -534,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513347.jpg" />
 </div>
 
 
@@ -560,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513161.jpg" />
 </div>
 
 
@@ -586,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513153.jpg" />
 </div>
 
 
@@ -612,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513019.jpg" />
 </div>
 
 
@@ -623,58 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E5D0D67A0CC0CB9DF9218A53F34299ECD2E68CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931113   (513018) от 25.08.2015
-
-Иаков Глатц | Новые повести в пользу и удовольствие детей (1827) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второе издание весьма популярной в свое время детской книги предваряется предисловием автора: «Второе издание сей книжечки мною исправлено и умножено двумя вновь прибавленными к прежним повестями. Желаю, чтобы и сие издание принято было столь же благосклонно, как и первое». Русский переводчик, не пожелавший указывать своего имени, также приписывает к этому несколько (   Читать дальше...   )Жанр: Детская иллюстрированная книга XIX века, раритетФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A277A391BDAF1C920DA3E4678782CEAA5F59079B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931129   (513014) от 25.08.2015
-
-Разговоры нянюшки с детьми (1840) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание «Разговоры нянюшки с детьми» – типичный пример познавательной литературы для детей второй половины XIX века. Такого рода книги охотно издавала Университетская типография. «Разговоры нянюшки...» – это десять небольших рассказов: «Корова», «Овца», «Петух», «Птица» и др., которые знакомят детей в основном с представителями животного мира, с их повадками и образом (   Читать дальше...   )Жанр: Детская иллюстрированная книга XIX века, раритетФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60E7D4A167E83BDF5BC92B79F2BD5482D21828C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1122513   (798824) от 05.04.2017
+
+VA - Deep Ocean Escapes: Calming Waters, Blissful Sea, Ambient Relaxing, Ocean Waves (2017) [MP3|320 Kbps] <New Age, Chillout, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gentle Crystal Sounds Divine - Relaxing Ocean Waves
+02. Calming Water Cosort - Energy Flow of Nature
+03. Tropical Ocean Waves Oasis - Beautiful Ocean Waves
+04. Relaxing Nature Sounds Collection - Chakra Alignment(   Читать дальше...   )Жанр: New Age, Chillout, AmbientПродолжительность: 01:55:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60C532655918DE3081E0E54B9CFD6FB11268E68E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122371   (798814) от 05.04.2017
+
+Samuel Sim, VA - The Halcyon / Алкион (Original Music from the Television Series) (2017) [FLAC|Lossless|tracks + .cue]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Samuel Sim - Hourglass (The Halcyon Main Title Theme) (03:17)
+02. Beverley Knight - Marvellous Party (03:46)
+03. Jamie Cullum - Forever (02:57)
+04. Kara Tointon / Chris Egan & The Sonny Sullivan Band - Mr. Heartache (04:30)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:51:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BD4C6087B1DFB671FD77D3C3149DCF68C102555
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1507287   (798447) от 04.11.2021
 
 David Wilson - Romance After Hours (2005) [FLAC|Lossless|image + .cue] <Instrumental Pop, Easy Listening>
@@ -6,7 +64,7 @@ David Wilson - Romance After Hours (2005) [FLAC|Lossless|image + .cue] <Instrume
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798447.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Clannad - Studio Albums (1973 - 2013) 13 CD [APE|Lossless|image + .cue] <Celtic,
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798415.jpg" />
 </div>
 
 
@@ -67,7 +125,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798086.jpg" />
 </div>
 
 
@@ -96,7 +154,7 @@ Shakti Loka - Deep Black (2020) [MP3|320 Kbps] <Ethnic, Trip-hop, Mantras>
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797765.jpg" />
 </div>
 
 
@@ -125,7 +183,7 @@ Carlos Garo - Entrance To The Parallel Universe (2015) [FLAC|Lossless|tracks] <N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796981.jpg" />
 </div>
 
 
@@ -154,7 +212,7 @@ VA - Intimate Piano - Body & Soul (1999) [FLAC|Lossless|image + .cue] <Instrumen
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796941.jpg" />
 </div>
 
 
@@ -183,7 +241,7 @@ VA - Intimate Piano: Canadian Sunset (1999) [FLAC|Lossless|image + .cue] <Instru
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796911.jpg" />
 </div>
 
 
@@ -212,7 +270,7 @@ First Aid Kit - Ruins (2018) [FLAC|Lossless|tracks] <Indie Folk, Country Folk, A
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796889.jpg" />
 </div>
 
 
@@ -241,7 +299,7 @@ VA - The World Of Jeeves And Wooster (1992) [FLAC|Lossless|tracks] <OST>
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796642.jpg" />
 </div>
 
 
@@ -270,7 +328,7 @@ James Last - Russland Zwischen Tag Und Nacht (1989) [FLAC|Lossless|tracks + .cue
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796260.jpg" />
 </div>
 
 
@@ -299,7 +357,7 @@ James Last - Classics From Russia (1996) [FLAC|Lossless|tracks + .cue] <Instrume
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796252.jpg" />
 </div>
 
 
@@ -328,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796146.jpg" />
 </div>
 
 
@@ -357,7 +415,7 @@ The London Studio Orchestra and Singers - For Lovers Only: Great Romantic Themes
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795524.jpg" />
 </div>
 
 
@@ -386,7 +444,7 @@ Myristica - Star-Filled Skies (2016) [MP3|320 кб/с] <New Age, Neoclassical, R
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795516.jpg" />
 </div>
 
 
@@ -415,7 +473,7 @@ VA - The Best Christmas Album In The World...Ever! 2021 (2021) [MP3|320 Kbps] <C
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795486.jpg" />
 </div>
 
 
@@ -444,7 +502,7 @@ Finvarra - Finvarra (2013) [FLAC|Lossless|tracks + .cue] <Folk, World, Country, 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795451.jpg" />
 </div>
 
 
@@ -473,7 +531,7 @@ Andreas Vollenweider - White Winds (1984) [FLAC|Lossless|image + .cue] <Electron
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795447.jpg" />
 </div>
 
 
@@ -502,7 +560,7 @@ Liquid Mind - Liquid Mind XII: Peace (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794919.jpg" />
 </div>
 
 
@@ -531,7 +589,7 @@ Richard Clayderman - Hi-Res Best (2016) [FLAC|24/192|Lossless|WEB-DL|tracks] <Ea
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794859.jpg" />
 </div>
 
 
@@ -560,7 +618,7 @@ SunSquabi - Odyssey (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic Hydro Fu
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794570.jpg" />
 </div>
 
 
@@ -589,7 +647,7 @@ Sungha Jung - Monologue (2014) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Acou
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794470.jpg" />
 </div>
 
 
@@ -618,7 +676,7 @@ Sungha Jung - Two Of Me (2015) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Acou
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794467.jpg" />
 </div>
 
 
@@ -647,7 +705,7 @@ Sungha Jung - Mixtape (2017) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Instr
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794442.jpg" />
 </div>
 
 
@@ -676,7 +734,7 @@ Alexandre Desplat - The Shape of Water / Форма воды (Original Motion Pi
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793960.jpg" />
 </div>
 
 
@@ -690,64 +748,6 @@ Alexandre Desplat - The Shape of Water / Форма воды (Original Motion Pi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC86A91D3D6EC9A2258455AF7C8CA6A502C86ECA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201085   (793954) от 23.01.2018
-
-VA - Quiet Nights Of Quiet Stars (The World's Most Beautiful Melodies) (1997) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening, Vocal>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jo Stafford - Quiet Nights of Quiet Stars (3:16)
-02. Vic Damone - It's Impossible (4:32)
-03. Frank DeVol - The Tender Trap (3:41)
-04. Margaret Whiting - I Only Have Eyes for You (3:40)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, VocalПродолжительность: 01:04:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:886C4DBE4EABA0FF502CFBA80FF42035D80F0BD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200898   (793899) от 23.01.2018
-
-Alexandre Desplat - The Shape of Water / Форма воды (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|CD|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexandre Desplat - The Shape of Water (03:44)
-02. Renee Fleming - You'll Never Know (04:40)
-03. Alexandre Desplat - The Creature (01:48)
-04. Alexandre Desplat - Elisa's Theme (02:38)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BF56C8910A627DE46B52FCC75451AB4C2CE840A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1587005   (214419) от 28.10.2022
+
+Nazareth - The Ballads Album (2022) [MP3|320 Kbps] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Heart's Grown Cold (2010 - Remaster) (04:14)
+ 02 - Love Hurts (Single Edit) (03:51)
+ 03 - Loved and Lost (2010 - Remaster) (05:13)
+ 04 - Dream On (03:25)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:59:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88AD21BAAB66898098AE37EA315E91E2EA4B58C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1085585   (214330) от 21.12.2016
 
 The Rutles - The Rutles (1990) [MP3|320 Kbps] <Beat, Parody Beatles>
@@ -6,7 +35,7 @@ The Rutles - The Rutles (1990) [MP3|320 Kbps] <Beat, Parody Beatles>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214330.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Venom - Storm The Gates (2018) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214295.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Slayer - God Hates Us All (2001) Japanese Edition [FLAC|Lossless|tracks + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_214260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_214260.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Defiant - No more pain (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214143.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Ground - 4 Albums (2016-2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214137.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Despised Icon - Déterré (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Death Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214131.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Farsot / ColdWorld - Toteninsel (Split) (2018)  [FLAC|Lossless|image + .cue] <Pr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214093.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Kill Ritual - Kill Star Black Mark Dead Hand Pierced Heart (2022) [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214085.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ The Gloom In The Corner - Trinity (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214082.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ The Otolith - Folium Limina (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Vi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214071.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Skrizhali - Ледяное одиночество (2021) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214068.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Redemption - 2 Studio Albums (2016-2018) [FLAC|Lossless|image + .cue] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214065.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ Demon Hunter - EXILE (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Groove 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214062.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214053.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ Cult of the Fox - Blood Omens (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214032.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ Them - Fear City (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214028.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ Cryonic - Evil Mind (2007) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214024.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ Glacier - Island In The Sky (2021) [FLAC|Lossless|image + .cue] <Progressive Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214023.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ Starchild - Battle of Eternity (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214020.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ Tuff - What Comes Around Goes Around (1991) Japanese Edition [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214013.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ Palaye Royale - Fever Dream (2022) [FLAC|Lossless|WEB-DL|tracks] <Glam Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214011.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ Bon Jovi - This House Is Not For Sale (2016) [OGG Vorbis|480 Kbps] <Rock, Hard R
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214009.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ Michael Bormann's Jaded Hard - Power To Win (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214004.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ Devin Townsend - Lightwork / Nightwork (2022) Deluxe Edition [MP3|320 Kbps] <Pro
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213998.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ Them - Fear City (2022) [FLAC 2.0|48/24|tracks|WEB-DL] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213985.jpg" />
 </div>
 
 
@@ -714,35 +743,6 @@ Them - Fear City (2022) [FLAC 2.0|48/24|tracks|WEB-DL] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16566A4348017F4AF12A268903E5461964588ADD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586834   (213961) от 29.10.2022
-
-Royal Hunt - Dystopia, Pt. 2 (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midway (Resumption)
-02. Thorn In My Heart
-03. The Key Of Insanity
-04. Live Another Day(   Читать дальше...   )Жанр: Melodic Progressive MetalПродолжительность: 00:58:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:856A0D9EAAAAE62AF559E50BA5019590E8ECE8DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

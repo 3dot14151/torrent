@@ -1,3 +1,56 @@
+###  Публикация: 1312009   (536492) от 02.07.2019
+
+Николай Гарин-Михайловский | Детство Темы (1936) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Редкая книга. Дети в России. Школа в России.
+Для детей младшего возраста.Жанр: Детская прозаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:380A99B637BC153EDFF2102BCBCC34724D2D7EAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311864   (536395) от 02.07.2019
+
+Валерий Роньшин | Эмма Мухина и Тайна зефира в шоколаде (2019) [PDF, FB2, RTF, EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детективная повесть «Эмма Мухина и Тайна зефира в шоколаде» известного писателя В. Роньшина – первая из цикла книг о приключениях супер-девочки Эммы Мухиной, которая в один самый обыкновенный день поневоле становится сыщиком-разведчиком… Произведение отличают захватывающий сюжет, живой язык, неповторимый авторский юмор.Жанр: Детские детективыФормат: PDF, FB2, RTF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C76C51A1A3ACFC1DA0BCF81731125D503538FA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312120   (536314) от 02.07.2019
 
 Детгиз | Глобус (1977) [PDF, DJVU]
@@ -6,7 +59,7 @@
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536314.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536288.jpg" />
 </div>
 
 
@@ -61,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536190.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536180.jpg" />
 </div>
 
 
@@ -115,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536178.jpg" />
 </div>
 
 
@@ -142,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536100.jpg" />
 </div>
 
 
@@ -168,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535520.jpg" />
 </div>
 
 
@@ -195,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535512.jpg" />
 </div>
 
 
@@ -221,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535481.jpg" />
 </div>
 
 
@@ -248,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535369.jpg" />
 </div>
 
 
@@ -275,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535140.jpg" />
 </div>
 
 
@@ -301,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535031.jpg" />
 </div>
 
 
@@ -327,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535020.jpg" />
 </div>
 
 
@@ -354,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535016.jpg" />
 </div>
 
 
@@ -381,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535013.jpg" />
 </div>
 
 
@@ -408,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534802.jpg" />
 </div>
 
 
@@ -434,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534648.jpg" />
 </div>
 
 
@@ -460,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534277.jpg" />
 </div>
 
 
@@ -487,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534274.jpg" />
 </div>
 
 
@@ -513,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534272.jpg" />
 </div>
 
 
@@ -539,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534051.jpg" />
 </div>
 
 
@@ -566,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534039.jpg" />
 </div>
 
 
@@ -592,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533834.jpg" />
 </div>
 
 
@@ -619,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533816.jpg" />
 </div>
 
 
@@ -630,59 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC7DC3CD5A821715C8AD4FA78F283D3FE4DA74B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558200   (533772) от 19.06.2022
-
-Кэл Аткинсон | Как подстричь льва? (2018) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мартышка Максвелл открыл парикмахерскую, где мастерски стрижёт усы, бороду и гривы. Все животные выходят от него довольные: и льву подстригли непослушную гриву, и медведю укоротили бороду, и даже лысый слон вышел от Максвелла настоящим красавцем. Всем угодил маленький мастер из джунглей. А всё почему? Потому что никто из животных не испугался похода в парикмахерскую. (   Читать дальше...   )Жанр: Детская литература, Сказка, СтихиПеревод: Михаил ПершинФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9607DAEF4A7D8037F691F1B3590FAE7486AF290
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558194   (533766) от 19.06.2022
-
-Астрид Деборд, Полин Мартен | Моя любовь [2 книги] (2020) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533766.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лёгкие, умные рисунки, несколько коротких, но ёмких фраз - вот всё, что понадобилось авторам книги, француженкам Астрид Деборд и Полин Мартен, чтобы поделиться с нами секретом настоящей, безусловной любви в любимой читателями серии "Моя любовь".
-Для дошкольного и младшего школьного возраста.Жанр: Первые книги малыша, Развитие ребенка, Сказки и истории для малышейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EFA61C6562FE89AA41EFBB5FF78D61F9B7928DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

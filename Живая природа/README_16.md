@@ -1,3 +1,29 @@
+###  Публикация: 1131293   (706813) от 06.05.2017
+
+Край чистой воды / Land of Crystal Waters (2008) SATRip
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта программа рассказывает о девственно-чистых альпийских реках и озерах богатых рыбными запасами. Мы познакомимся с целой системой горных рек, поднимемся на ледники, пройдем сквозь сеть пещер и глубоких ущелий, по быстротечным потокам доберемся до кристально-чистых озер и одной из самых красивых австрийских рек Траун, в окрестностях которой берут своё начало заболоченные (   Читать дальше...   )Телекомпания: Австрия, ORFЖанр: Документальный, природа, путешествие, исследование, флора, фаунаРежиссер: Клаус Фейчтенберг, Эрих ПроллПеревод: Дублированный (SDI Media)Продолжительность: 00:52:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FBFDA60515B8B2595202DC3DE740529A460A08E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131394   (706482) от 06.05.2017
 
 Секреты подземной жизни / Secret Life Underground (2015) HDTVRip [H.264/720p-LQ] (серии 1-2 из 2)
@@ -6,7 +32,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706482.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705963.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705589.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705092.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703577.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703536.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700977.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697272.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696285.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695659.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695347.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695120.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695117.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694246.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693143.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692387.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690274.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688522.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687210.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687096.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686575.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684710.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ NG: Властелины бездны / Diving With Aliens (2004) DVDRip
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683571.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682244.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674754.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEB6A90A9B2B8BCF76E9659BC52737228F352235
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291074   (672139) от 23.03.2019
-
-Борнео. Очарование Азии / Borneo. Faszination Asien (2017) UHD BDRemux [H.265/2160p] [4K, 10-bit] [DE, EN]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очарование Азии! Изобилие островов – одна из главных привлекательных сторон круизов в Юго-Восточной Азии. Гуам, Борнео или те же Филиппины, гигантский островной парк развлечений Сентоза близ Сингапура – вот лишь небольшая часть из того ожерелья архипелагов, которые обещают участникам круизов по Юго-Восточной Азии массу впечатлений.Производство: США, MiragedereveЖанр: Документальный, природа, флора, фаунаРежиссер: Майк Гордон, Аттила ТенкиПеревод: отсутствуетСубтитры: отсутствуютПродолжительность: 01:10:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA6C31E71F5F6E34F876610BEF322FCA472EEBAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

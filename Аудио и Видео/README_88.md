@@ -6,7 +6,7 @@ Electro Swing Invasion - Jazz Joint Jumpin' (2014) [AAC|~284 Kbps] <Nu Jazz, Ele
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756643.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756573.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756104.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Tibetania Gold 2021 (2021) [AAC|~317 Kbps] <Chill Out, Downtempo, Organic H
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755391.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ VA - The Electro Swing Revolution - Essential Tracks, Vol. 2 (2011) [AAC|~299 Kb
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755390.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ VA - The Electro Swing Revolution, Vol. 4 (2013) [AAC|~320 Kbps] <Electro Swing,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755388.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ VA - The Electro Swing Revolution, Vol. 7 (2016) [AAC|~325 Kbps] <Electro Swing,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755387.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ VA - Lofi Winter Beats (2022) [AAC|~306 Kbps] <Lounge, Chill Out, Downtempo, Lo 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755384.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ VA - The Electro Swing Revolution, Vol. 6 (2015) [AAC|~327 Kbps] <Electro Swing,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755382.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755339.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755335.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ VA - The Electro Swing Revolution, Vol. 3 (2012) [AAC|~321 Kbps] <Electro Swing,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755309.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754962.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754957.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754602.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_754482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_754482.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_754475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_754475.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754474.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754271.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753662.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753636.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ VA - Reggaeton World, Vol. 3 (2022) [AAC|~318 Kbps] <Reggae, Dancehall>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753618.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ VA - Nightflight Dubai - 22 Premium Downbeat & Lounge Trax (2013) [AAC|~335 Kbps
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753617.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ VA - Reggaeton Nocturno, Vol. 1 (2022) [AAC|~318 Kbps] <Reggae, Dancehall>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753615.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ VA - Reggaeton World, Vol. 2 (2022) [AAC|~312 Kbps] <Reggae, Dancehall>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753614.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ VA - Drum & Bass Anthology: 2022 (2021) [AAC|~329 Kbps] <Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753613.jpg" />
 </div>
 
 

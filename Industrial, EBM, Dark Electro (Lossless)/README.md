@@ -7,7 +7,7 @@ Kmfdm - Enemy (2026) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056975.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Obscurity - The Enigma TNG (2023) [FLAC|Lossless|WEB-DL|tracks] <Cyberpunk, Indu
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044730.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Laibach - 8 Relises (2018-2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Neo-C
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044285.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Diary of Dreams - Melancholin (2023) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Go
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037851.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Osovets - Alive at Industrial Christmas (Live) (2023) [FLAC|Lossless|WEB-DL|trac
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036162.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Coil - Discography 122 Releases (1984-2020) Threshold House, Eskaton, Threshold 
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035897.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Fix8:Sed8 (Fïx8:Sëd8) - Discography 6 Releases (2005-2009) Dependent [FLAC|Los
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035693.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Empusae - Discography 19 Releases (2002-2020) Ant-Zen, Hands [FLAC|Lossless|trac
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035601.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Magnavolt - Nexus (2023) [FLAC|Lossless|WEB-DL|tracks] <Darksynth, Synthwave>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035364.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Sonic Area - Collection 11 Releases (2004-2021) [FLAC|Lossless|tracks+.cue, trac
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034541.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Faber - Spacefish (2009) [FLAC|Lossless|image + .cue] <Traditional Electronic, B
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034450.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Frank Mokros (Totakeke, Synth-Etik, Ativ) - Discography 16 Releases (2001-2015) 
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033440.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ MNEKiNG - White After Black (2020) [FLAC|Lossless|WEB-DL|image + .cue] <Acid, El
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033296.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Sovereign - Rewired (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental Cyber Met
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032536.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Transceive - Intrigue (2001) [FLAC|Lossless|tracks + .cue] <Berlin School>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032091.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Laibach - Sketches Of The Red Districts (2023) [FLAC|Lossless|WEB-DL|tracks] <In
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031220.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ G.H.T - 2 Albums (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <EBM, Dark Electro>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029617.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Profondo Delle Tenebre - Exoterica (2020) [FLAC|Lossless|WEB-DL|tracks] <Darksyn
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028904.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Blanck Mass - Discography 13 Releases (2011-2021) Sacred Bones Records [FLAC|Los
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028641.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ D.Å.R.F.D.H.S. (D.A.R.F.D.H.S.) - Discography 13 Releases (2013-2020) [FLAC|Los
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025245.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024933.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ James Church (Lucidstatic, Pandora's Black Book, Static Logic) - Discography 41 
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024512.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Geomatic - Discography 10 Releases (2001-2021) M-Tronic, Tympanik Audio, Strange
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019409.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Worms Of The Earth - Discography 10 Releases (2006-2021) Disease Foundry, Indust
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017824.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ Eggvn - La Era de la Bestia (2021) [MP3|320 Kbps] <Industrial Metal>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015793.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ ESA (Electronic Substance Abuse) - Discography 16 Releases (2006-2021) [FLAC|Los
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015388.jpg" />
 </div>
 
 

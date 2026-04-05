@@ -6,7 +6,7 @@ Brothers in Arms: Hell's Highway (2008) [PS3] [USA] 2.42 [Cobra ODE / E3 ODE PRO
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165471.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Final Fantasy X | X-2 HD Remaster (2014) [PS3] [EUR] 4.53 [Cobra ODE / E3 ODE PR
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164743.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Manhunt (2003) [PS2] [NTSC] [Unofficial] [Ru]
 >>PS2
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163218.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Gray Matter / Gray Matter. Призраки подсознания (2011) [Xbox3
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158559.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Double Dragon Neon (2012) [Xbox360] [RegionFree] FreeBoot [XBLA] [En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158315.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Halo 3 (2007) [Xbox360] [Region Free] FreeBoot [Unofficial] [Ru] | R.G. DShock
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157926.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ OCTOPATH TRAVELER (2018) [Switch] [USA] 8.1.0 [NSP] [Unofficial / 1.0.3] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156698.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Hogwarts Legacy (2023) [Switch] [USA] 16.1.0 [NSP] [License / 1.0.1 / DLC] [Ru/M
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156093.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Hotline Miami Collection (2019) [Switch] [USA] 16.0.0 [NSP] [License / 2.03] [Ru
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156078.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ I Am Alive [PS3] [PSN] [RUS] [NTSC] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155746.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Red Dead Redemption (2023) [Switch] [USA] 16.0.3 [NSZ] [License / 1.0.3] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154828.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Mario Kart 8 Deluxe (2017) [Switch] [EUR] 16.1.0 [NSZ] [License / 3.0.0 / DLC] [
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154809.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Unravel Two (2019) [Switch] [USA] 9.1.0 [NSZ] [License] [En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154647.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Guitar Hero Van Halen (2009) [PS3] [USA] 3.01 [Cobra ODE / E3 ODE PRO ISO] [Lice
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153769.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Terraria (2013) [PSVita] [EUR] 3.60 [HENkaku][License] [En]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153086.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ MX vs. ATV: Reflex (2010) [PS3] [EUR] 3.01 [Cobra ODE / E3 ODE PRO ISO] [License
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152993.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Super Smash Bros. Ultimate (2018) [Switch] [Region Free] 6.0 [eShop] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152961.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Grid Autosport (2019) [Switch] [USA] 9.0.1 [NSZ] [License / DLC / 1.5_46790] [Ru
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152718.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ FIFA 19 Legacy Edition / FIFA 19 Издание Legacy (2018) [PS3] [EUR] 4.82 [
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151969.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Motorstorm: Pacific Rift [PS3] [PAL] [RUSSOUND] [2.42] [Cobra ODE / E3 ODE PRO I
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151423.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ MotorStorm: Apocalypse [PS3] [PAL] [RUSSOUND] [3.56] [Cobra ODE / E3 ODE PRO ISO
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151378.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ R.U.S.E. (2010) [PS3] [EUR] 3.41 [Cobra ODE / E3 ODE PRO ISO] [License] [En] [MO
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151041.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Back To The Future: The Game (2012) [PS3] [EUR] 4.01 [Cobra ODE / E3 ODE PRO ISO
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150983.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ I am Setsuna (2016) [PSVita] [JAP] 3.60  [HENkaku] [Unofficial] [Ru]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149016.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ The Order 1886 (2015) [PS4] [EUR] 5.05 [License] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148476.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Halo: Combat Evolved Anniversary (2011) [Xbox360] [Region Free] FreeBoot [Unoffi
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148073.jpg" />
 </div>
 
 

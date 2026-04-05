@@ -1,3 +1,55 @@
+###  Публикация: 1427761   (153026) от 23.12.2020
+
+Неприятности с Мэгги Коул / The Trouble with Maggie Cole (2020) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-6 из 6) Ozz [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153026.jpg" />
+</div>
+
+
+###  Подробнее
+
+kогда у Мэгги Коул берут радиоинтервью об истории её родного городка, она ненароком делится сплетнями о местных жителях. В результате Мэгги сталкивается с неприятными последствиями, которые целиком меняют жизнь всего города.Производство: Великобритания / ITV Studios, Genial ProductionsЖанр: драма, комедияРежиссер: Бен ГрегорАктеры: Марк Хип, Дон Френч, Emily Reid, Джули Хесмондал, Вики Пеппердин, Rocco Padden, Hollie Edwin, Гвинет Киворт, Артур Макбейн, Джо Лэйтон, и др.Перевод: Профессиональный (многоголосый закадровый) OzzСубтитры: Русские, английскиеПродолжительность: ~00:45:00 серияРеклама: Присутствует звуковая (два раза в начале и конце по 10 сек.)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C14BB5715E33719E6565676A8593CA19BA7EF59A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429207   (152991) от 23.12.2020
+
+Селена / Selena: The Series  (2020) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-9 из 9) OMSKBIRD [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет сериала основан на автобиографии известной исполнительницы Селены Кинтанильи-Перес. Эта женщина стала известна и популярна в широких кругах благодаря своему невероятному исполнительскому таланту. Она представляла жанр техано. Столь нераспространенная в наших землях народная мексиканская музыка находит свое отражение и популярность в Латинской Америке и Штатах. (   Читать дальше...   )Производство: Мексика, США /  Baja Studios, Netflix, Campanario EntertainmentЖанр: Драма, биография, музыкаРежиссер: Хироми КаматаАктеры: Кристиан Серратос, Гэбриел Чаварриа, Рикардо Чавира, Ноеми Гонзалез, Сейди Лопес, Hunter Reese Peña, Carlos Alfredo Jr., Хулио Масиас, Gladys Bautista, Джесси ПозиПеревод: Многоголосый закадровый (OMSKBIRD)Язык озвучки: русскийСубтитры: Русские (на песни)Продолжительность: ~00:41:00 серияРеклама: Релиз содержит рекламные видео, аудио вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:096AC1B4CF12D02FC7F37AB382D225E1D8242934
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328228   (152714) от 22.12.2019
 
 Ван Хельсинг / Van Helsing (2019) WEBRip [H.264/1080p-LQ] (сезон 4, серия 1-13 из 13) LakeFilms [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152714.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152318.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152312.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152305.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152299.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151100.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151081.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149369.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148841.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148790.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148728.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148687.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146197.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146165.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145764.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145708.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145638.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145601.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145434.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144849.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144620.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144081.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144014.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143941.jpg" />
 </div>
 
 
@@ -619,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43ABB216DBC2EAC582146218F93A44B63CD87610
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339052   (143917) от 27.12.2019
-
-Ради всего человечества / For All Mankind (2019) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-10 из 10) AMS [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это увлекательная альтернативная версия истории о космической гонке, в которой человечество все еще одержимо мечтами о покорении космоса. Представьте себе мир, в котором космическая гонка так и не закончилась. С первых минут нам демонстрируют альтернативную историю, в которой СССР первой высадилась на Луну, а американцы проиграли, но не сдаются. Главные герои драматического (   Читать дальше...   )Производство: США / Sony Pictures Television, Tall Ship ProductionsЖанр: фантастика, драмаРежиссер: Аллен Култер, Сет Гордон, Мира МенонАктеры: Юэль Киннаман, Майкл Дорман, Джоди Бальфур, Ренн Шмидт, Сара Джонс, Шантель Ван Сантен, Кристофер Бауэр, Артуро дель Пуэрто, Соня Уолгер, Крис Маршалл и др.Перевод: Многоголосый профессиональный - AMS (Adiós Muchachos Studio)Субтитры: русские, английскиеПродолжительность: ~01:05:00 серияРеклама: присутствуют аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6F987CE8D87D795C6842BCC2ED313BFE1117770
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078290   (143509) от 28.12.2016
-
-Берлинская резидентура (Берлинский отдел / База "Берлин") / Berlin Station (2016) HDTVRip (сезон 1, серии 1-10 из 10) SunshineStudio [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой сериала Даниэль Мейер, недавно получивший должность следователя, прибывает в резидентуру ЦРУ в Берлине, чтобы раскрыть источник утечки, который снабжает информацией доносчика. Под руководством опытного следователя-ветерана Гектора ДеЖана — упрямого агента с мрачным очарованием, который работает на шефа резидентуры Стивена Фроста — Дэниел учится правилам (   Читать дальше...   )Производство: США, Германия / Paramount Television, Anonymous ContentЖанр: триллерРежиссер: Джузеппе Капотонди, Джон Дэвид Коулз, Михаэль Р. РоскамАктеры: Ричард Армитедж, Ричард Диллэйн, Мишель Форбс, Рис Иванс, Эрл Винсент Шервуд II, Ричард Дженкинс, Лиленд Орсер, Роджер Рингроуз, Бернхард Шюц, Тэмлин Томита и др.Перевод: Многоголосый закадровый, любительский | SunshineStudioПродолжительность: ~00:55:00 серияРеклама: присутствуют аудио и видео вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BAD504F05393D650B1B24D945BBF2DCF51B4E8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

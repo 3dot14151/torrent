@@ -1,3 +1,29 @@
+###  Публикация: 476260   (1027658) от 06.03.2021
+
+Пожизненно лишенные свободы: Отцы и дети (2010) DVDRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027658.jpg" />
+</div>
+
+
+###  Подробнее
+
+На сегодняшний день в России насчитывается свыше трех с половиной тысяч человек, приговоренных к пожизненному заключению. И все они внимательно, как никто другой, следят за развернувшейся в обществе дискуссией об отмене моратория на смертную казнь. Внимательно, потому что даже если смертная казнь будет восстановлена, им придется оставаться за решеткой до конца своих (   Читать дальше...   )Жанр: Документальный, КриминалРежиссер: Bахтанг МикеладзеАктеры: нетПеревод: ОтсутствуетПродолжительность: 02:02:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E69896D1EBF3759128A93BB5587D1FD77C02EDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452604   (1027594) от 07.03.2021
 
 Чудо техники с Сергеем Малозёмовым (07.03.2021) SATRip
@@ -6,7 +32,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027594.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027577.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027565.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027533.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026854.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026786.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026774.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026627.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026431.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026405.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025667.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025474.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025308.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024264.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024243.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024071.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022821.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021812.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021795.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021619.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020852.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020672.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020500.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020289.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019645.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F81D9551F1F7A73F3D056A0E07C428DA524A52A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464926   (1019499) от 24.04.2021
-
-Живая еда с Сергеем Малозёмовым (24.04.2021) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скоро Пасха — пора печь куличи. Каким должен быть идеальный кулич и можно ли сделать его полезным? Как сэкономить на еде без вреда для здоровья? Можно ли «верить» акциям в магазинах? Безопасны ли красители для яиц? Рецепт недели — необычный кулич.Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BF26FC76F615BF370E2F1D2293ECD8C06D9A7FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

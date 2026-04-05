@@ -1,3 +1,29 @@
+###  Публикация: 1362710   (948120) от 24.02.2020
+
+Макс Фрай | Не мешки (2020) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Название этой книги отсылает нас к общеизвестной непечатной поговорке, смысл которой сводится к тому, что вербальный труд легче физического. Не хотелось бы вот так сразу соглашаться с народной мудростью, но знаете, положа руку на сердце, всё-таки – да. В книгу включены дневниковые записи и фрагменты из переписки с друзьями, сделанные в течение последних полутора (   Читать дальше...   )Жанр: Публицистика, Современная русская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA46FED6A424451F2F71C43552269973138DFA5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 982275   (948076) от 03.02.2016
 
 Йэн Ашер | Человек, который продал жизнь на eBay (2014) [EPUB, FB2, RTF]
@@ -6,7 +32,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948076.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946625.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943750.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943634.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942918.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942065.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941412.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941028.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941027.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941026.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941010.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940675.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938007.jpg" />
 </div>
 
 
@@ -354,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937957.jpg" />
 </div>
 
 
@@ -380,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937855.jpg" />
 </div>
 
 
@@ -406,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937823.jpg" />
 </div>
 
 
@@ -432,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937744.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937735.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937014.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936810.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936405.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935212.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934909.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933908.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933734.jpg" />
 </div>
 
 
@@ -656,34 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66EAE697EC69366C7799CD1A45EFCD618C36D341
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364974   (933557) от 05.03.2020
-
-Максим Семеляк | Ленинград. Невероятная и правдивая история группы. 20 лет (2017) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933557.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2017 году возрожденному «Ленинграду» исполняется 20 лет. Десятки альбомов, сотни видеоклипов, миллионы просмотров и скачиваний. «Ленинград» создает хиты и мемы. Творчество Сергея Шнурова обсуждают и осуждают, хвалят и ругают. Его любят и ненавидят, но равнодушных к песням Шнура просто нет.
-
-В книге «Ленинград». Невероятная и правдивая история» писатель и журналист, (   Читать дальше...   )Жанр: Биографии и Мемуары, Музыка, ПублицистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:973E3877507E206E5B0685523115DFC38DC89D4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

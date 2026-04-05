@@ -1,3 +1,56 @@
+###  Публикация: 854927   (642940) от 09.06.2015
+
+The Wolf Among Us (2013) [Ru/En] (1.0) SteamRip Let'sPlay
+
+>>След.
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642940.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Wolf Among Us позволяет погрузиться в мир комиксов DC серии Fables. Главным героем выступает Волк Бигби, работающий шерифом среди сказаний – существ из сказок, которым пришлось перебраться в реальный мир после апокалипсиса в их родном месте обитания. Сюжет повествует о событиях, которые начинают привлекать внимание обычных людей – если градус достигнет критической (   Читать дальше...   )Тип издания: SteamRipРазработчик: Telltale GamesЖанр: Adventure / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFBD7E812E1C61C8377AA9F988A092EC41762CC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 873289   (642939) от 09.06.2015
+
+Dragon Ball Xenoverse (2015) [Ru/Multi] (1.0.7.00/dlc) SteamRip Let'sPlay
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642939.jpg" />
+</div>
+
+
+###  Подробнее
+
+ВПЕРВЫЕ ВСЕЛЕННАЯ DRAGON BALL ПРИХОДИТ В STEAM!
+Благодаря настраиваемому аватару, сражающемуся плечом к плечу с Транксом и множеством других персонажей, DRAGON BALL XENOVERSE позволит вам заново посетить знаменитые битвы серии. Будет ли этого союза достаточно для того, чтобы вмешиваться в драки и восстановить известную нам историю Dragon Ball? Новые особенности включают (   Читать дальше...   )Тип издания: SteamRipРазработчик: DIMPSЖанр: Arcade (Fighting) / 3DЯзык озвучки: Английский, японскийЯзык субтитров: Русский, английский, французский, итальянский, немецкий, испанский, японский, польскийЯзык интерфейса: Русский, английский, французский, итальянский, немецкий, испанский, японский, польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D30F8CD8E8B52F75E356B0A5641FEC46B1F07FE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1265450   (642357) от 31.03.2019
 
 HITMAN 2 (2018) [Ru/Multi] (2.20/dlc) Repack xatab [Gold Edition]
@@ -6,7 +59,7 @@ HITMAN 2 (2018) [Ru/Multi] (2.20/dlc) Repack xatab [Gold Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642357.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ The Chronicles of Narnia: Prince Caspian [Wii] [PAL] [France] (2008)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641813.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641311.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ Hoodwink [Multi8\+] (RePack/1.0) 2012 | R.G. ReCoding
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640842.jpg" />
 </div>
 
 
@@ -116,7 +169,7 @@ Tom Clancy's Ghost Recon: Future Soldier (RePack/1.2) [Ru/En] 2012 l Seraph1
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640465.jpg" />
 </div>
 
 
@@ -142,7 +195,7 @@ Northgard (2018) [Ru/Multi] (1.6.12610/dlc) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638701.jpg" />
 </div>
 
 
@@ -168,7 +221,7 @@ The Walking Dead: Episode 1,2 (RePack) [Ru/En] 2012 l Audioslave {обновля
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638540.jpg" />
 </div>
 
 
@@ -194,7 +247,7 @@ Dead Space Дилогия [Ru/En] (RePack) 2008-2011 | VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638537.jpg" />
 </div>
 
 
@@ -220,7 +273,7 @@ Double Dragon: Neon (2014) [En] (1.0 upd2) SteamRip Let'sРlay
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637960.jpg" />
 </div>
 
 
@@ -247,7 +300,7 @@ The Banner Saga (2014) [Ru/Multi] (2.6.61/3dlc) SteamRip R.G. Игроманы
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637951.jpg" />
 </div>
 
 
@@ -273,7 +326,7 @@ Breach & Clear: Deadline (2015) [Ru/Multi] (1.09) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637542.jpg" />
 </div>
 
 
@@ -299,7 +352,7 @@ Gas Guzzlers Extreme (2013) [Ru/Multi] (1.8.0.0/dlc) License PROPHET [Gold Pack]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635549.jpg" />
 </div>
 
 
@@ -325,7 +378,7 @@ Shank 2 (RePack/1.0dc120305) [Ru/En] 2012 l VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635216.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ E.Y.E: Divine Cybermancy [En/Fr] (Steam-Rip/1.37) 2011 | R.G. Игроманы
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634707.jpg" />
 </div>
 
 
@@ -380,7 +433,7 @@ Shank 2 [Ru] (RePack/1.0dc120305) 2012 l SEYTER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634618.jpg" />
 </div>
 
 
@@ -407,7 +460,7 @@ Syberia 3 / Сибирь 3 (2017) [Ru/Multi] (2.0) SteamRip Let'sPlay [Deluxe Ed
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634578.jpg" />
 </div>
 
 
@@ -433,7 +486,7 @@ Lost Sea (2016) [Ru/Multi] (1.0.3) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633803.jpg" />
 </div>
 
 
@@ -459,7 +512,7 @@ Warparty (2019) [Ru/Multi] (1.0.2) Repack R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633229.jpg" />
 </div>
 
 
@@ -485,7 +538,7 @@ Dead Island Game of The Year Edition [Ru/En] (RePack/1.3) 2012 | VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632685.jpg" />
 </div>
 
 
@@ -517,7 +570,7 @@ Tom Clancy's Ghost Recon: Future Soldier (RePack/1.2) [Ru] 2012 l kuha
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632669.jpg" />
 </div>
 
 
@@ -543,7 +596,7 @@ Endless Space (L) [Multi3/-] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632568.jpg" />
 </div>
 
 
@@ -569,7 +622,7 @@ Wargame: European Escalation + 2 DLC (Repack/12.07.02.470000075) [Ru] 2012 | R.G
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630452.jpg" />
 </div>
 
 
@@ -598,7 +651,7 @@ Banished (2014) [En] (1.0.3 b140620) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630155.jpg" />
 </div>
 
 
@@ -627,7 +680,7 @@ Cocoto Kart Racer 2 [Wii] [PAL] [Multi 6] (2011)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630145.jpg" />
 </div>
 
 
@@ -638,66 +691,6 @@ Cocoto Kart Racer 2 [Wii] [PAL] [Multi 6] (2011)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54ABFA2EC59AF86FB01C1A919ADD0CE319F615F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682885   (629421) от 23.07.2013
-
-The Raven: Legacy of a Master Thief (Episode 1) (2013) [Multi] (1.0) License RELOADED
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629421.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Raven — Legacy of a Master Thief — это увлекательное криминальное приключение протяженностью в три эпизода от создателей незабываемой The Book of Unwritten Tales. Полный неожиданных сюжетных поворотов, этот квест погрузит игрока в запутанную историю, вобравшую в себя все самые лучшие черты детективных романов.
-
-Париж, 1960-й год. Таинственный вор по прозвищу Ворон держит в напряжении всю Европу. Ему удается осуществлять самые немыслимые преступления, оставаясь безнаказанным. Но и на такого умелого и изворотливого злодея находится свой охотник. Молодой сыщик Николя Легранд сумел поймать Ворона и посадить его за решетку.
-
-Спустя четыре года после этих событий, жизнь Лондона потрясает грандиозная кража. Из музея пропадает рубин «Глаз Сфинкса». На месте преступления детективы находят перо (такой символ оставлял и Ворон). Неужели у легендарного вора появился последователь? Теперь следствию предстоит ответить и на этот вопрос.
-
-В это же время в Цюрихе раздается звонок. Констебль Джейкоб Зеллнер пробирается к телефону через горы бумаг. Он даже не подозревает, что лежит в банковском хранилище, расположенном всего в нескольких сотнях метрах от полицейского участка. Когда он возьмет трубку, его жизнь ждут большие перемены...(   Читать дальше...   )Тип издания: ЛицензияРазработчик: KING ArtЖанр: Adventure / 3D / 3rd PersonЯзык озвучки: Английский / НемецкийЯзык субтитров: Английский / НемецкийЯзык интерфейса: Английский / Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6523E48155D86AABEF39693D663E13B1087CC4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 348804   (629175) от 13.06.2011
-
-Dungeon Siege 3 [En] (L) 2011 | RELOADED
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_629175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитая серия ролевых игр DUNGEON SIEGE, полюбившаяся миллионам поклонников жанра, обретает долгожданное продолжение. За разработку третьей части игры отвечает студия Obsidian Entertainment – творцы потрясающих фантастических вселенных Neverwinter Nights 2 и Star Wars: Knights of the Old Republic 2. Контроль над процессом находится в надежных руках создателя и вдохновителя серии Криса Тейлора. А за мировой релиз отвечает еще один гранд современной игровой индустрии – компания Square Enix!
-
-Игроков ожидают невероятные приключения в королевстве, погрязшем в хаосе и анархии. Вместе с отрядом уникальных героев вам предстоит совершить отчаянные подвиги, уничтожить бесчисленные орды чудовищ и вернуть жителям страны надежду на счастливое будущее. При этом предусмотрены не только одиночные странствия и приключения в мире, где сошлись в сражении острые клинки и могущественные заклинания, но и совместное прохождение игры по сети.Тип издания: ЛицензияРазработчик: Obsidian EntertainmentЖанр: RPG (Rogue/Action) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

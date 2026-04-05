@@ -1,135 +1,3 @@
-###  Публикация: 1272653   (142613) от 28.12.2018
-
-Л. Ямпольский | Воронение. Практическое руководство по химическому окрашиванию железного металла (1929) [FB2]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Воронение железа относится к процессам, которые в совокупности именуются химическим окрашиванием металлов. Воронение представляет одну из отраслей техники химического окрашивания металлов и, как таковое, сопряжено с препаративными химическими работами. Общие принципы воронения и разнообразные рецепты даны в данной книге.Жанр: Практическое руководствоФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E872BE3062E38A0F08D03E856934DB2CADD63274
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272590   (142608) от 28.12.2018
-
-Александр Малко | Практика оздоровления (2018) [PDF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142608.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представленная работа автора А.В. Малко, посвященная оздоровлению массажно-тепловым оборудованием в домашних условиях, являет собой важный и перспективный процесс как в лечении, так и в профилактике многих заболеваний. Идея ресурсной медицины и, соответственно, ресурсного оздоровления, носителем которого является автор, в значительной степени способствует продлению (   Читать дальше...   )Жанр: Медицина и здоровьеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6422207962D409F8ECB75CC3D693C6A087F31B31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970076   (142585) от 29.12.2015
-
-Екатерина Шагалова | Самый новейший толковый словарь русского языка XXI века (2011) [FB2]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142585.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Словаре описано около 1500 слов, появившихся в русском языке в первом десятилетии XXI века и еще не зафиксированных толковыми словарями русского языка. В основном это заимствования из английского, реже немецкого и французского языков. Словарь поможет читателю лучше ориентироваться в этом море названий. В нем представлена максимально полная информация о новом слове: (   Читать дальше...   )Жанр: Языкознание, Справочники, СловариФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18A417EC2215E8C9A59D12F9BFCC573C2FA162FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087517   (142569) от 29.12.2016
-
-Э. Геккель | Мировые загадки (1937) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142569.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Мировые загадки» Геккеля принадлежат к числу популярных естественнонаучных произведений мировой известности. Книга эта является блестящей попыткой подвести итог и дать материалистический синтез всех естественнонаучных знаний XIX в. и по всем вопросам естествознания противопоставить позиции поповщины научное решение.
-
-Борьба вокруг «Мировых загадок» нашла широкий (   Читать дальше...   )Жанр: История, философия, науковедение, естествознание, медицина, анатомия, физиология, психология, религиоведение, этика, искусство, политология, астрономия, геология, физика, химия, биология, антропологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68D2DAC894EFCC109E215ED6ABED5E4FF2262415
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195478   (142463) от 29.12.2017
-
-Н.Н. Михайлов и др. | Наша великая Родина (1946) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интереснейшая книга, содержащая краткое описание истории СССР с самого появления славян до героического восстановления народного хозяйства страны в послевоенную пятилетку. Также интересны в начале книги описание географии страны, богатств наших недр, данные о всех республиках, входящих в состав Союза. В конце дается основы политической грамотности: что такое социализм, (   Читать дальше...   )Жанр: История, политология, экономика, культурология, искусствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5124D9380A493017D68CE488FF9584637773F1F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 590564   (142377) от 17.12.2012
 
 Джованни Ребора | Происхождение вилки. История правильной еды [2007] [DJVU]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142377.jpg" />
 </div>
 
 
@@ -164,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141891.jpg" />
 </div>
 
 
@@ -190,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141856.jpg" />
 </div>
 
 
@@ -216,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141845.jpg" />
 </div>
 
 
@@ -242,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141837.jpg" />
 </div>
 
 
@@ -268,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141768.jpg" />
 </div>
 
 
@@ -294,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141760.jpg" />
 </div>
 
 
@@ -321,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141745.jpg" />
 </div>
 
 
@@ -349,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141735.jpg" />
 </div>
 
 
@@ -375,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141645.jpg" />
 </div>
 
 
@@ -403,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141614.jpg" />
 </div>
 
 
@@ -429,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141567.jpg" />
 </div>
 
 
@@ -455,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141542.jpg" />
 </div>
 
 
@@ -481,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141533.jpg" />
 </div>
 
 
@@ -507,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141476.jpg" />
 </div>
 
 
@@ -533,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141466.jpg" />
 </div>
 
 
@@ -559,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141446.jpg" />
 </div>
 
 
@@ -585,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141435.jpg" />
 </div>
 
 
@@ -611,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141424.jpg" />
 </div>
 
 
@@ -637,7 +505,7 @@ Anna Gandrabura | Grammar Phrasebook (2023) [PDF]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141412.jpg" />
 </div>
 
 
@@ -664,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141410.jpg" />
 </div>
 
 
@@ -675,6 +543,141 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A91F5676B2E6CD7355A8885B853835451EEE0590
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970310   (141408) от 30.12.2015
+
+К. Д. Секачева | Стив Джобс. Тот, кто думал иначе (2015) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141408.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джобс интересен не только как предприниматель, который покорял рынок год за годом, но и как невероятно эксцентричная и противоречивая личность. Для него не существовало середины, было либо "очень плохо", либо "очень хорошо". Он был одним из тех немногих людей, которые никогда не могли сидеть без дела, из него был неиссякаемый поток любознательности (   Читать дальше...   )Жанр: Биографии и мемуарыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71D87272300F8B1801E4FF72E10D4590CAE8EEB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520448   (141405) от 28.12.2021
+
+Александра Баркова | Славянские мифы. От Велеса и Мокоши до птицы Сирин и Ивана Купалы (2022) [EPUB, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141405.jpg" />
+</div>
+
+
+###  Подробнее
+
+Долгожданное продолжении серии «Мифы от и до», посвященное славянской мифологии.
+
+Древние славяне, в отличие от греков, египтян, кельтов и многих других народов, не оставили после себя мифологического эпоса. В результате мы не так уж много доподлинно знаем об их мифологии, и пробелы в знаниях стремительно заполняются домыслами и заблуждениями. Автор этой книги Александра (   Читать дальше...   )Жанр: Культурология, Мифы / легенды / эпосФормат: EPUB, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15F7A61DA4F8F0723A898201C2422DDB1AA916AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435767   (141395) от 29.12.2020
+
+Платон | Законы (2020) [EPUB]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Платон Афинский – древнегреческий философ-идеалист, ученик Сократа, учитель Аристотеля. Именно с Платона философия формируется как система знания.
+Что такое законы и почему их нужно выполнять?
+Зачем они нужны и на каких философских учениях должны быть основаны?
+Кому, по мнению Платона, предстоит воплотить эти законы и стать идеальным правителем?(   Читать дальше...   )Жанр: Античная литература, Книги по философииПеревод: А. Егунов, С. Ананьин, С. Шейнман-ТопштейнФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:257676E39DCF2D4F7AE8123460E4DA897913EFE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272780   (141317) от 29.12.2018
+
+И.Ф. Пунанов и др. | Высоковольтный наносекундный пробой конденсированных сред (2018) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее учебное пособие посвящено описанию физических принципов и механизмов, которые определяют поведение жидких и твердых диэлектриков при воздействии на них мощных импульсов напряжения. Явление пробоя диэлектриков нашло широкое применение в импульсной энергетике, в частности, на его основе созданы двигатели малой тяги для космических аппаратов. Стремительное (   Читать дальше...   )Жанр: Электроника, электрорадиоматериалыФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24B866CF67DE82B6812B84D38FDA0F5A6352EA5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970428   (141316) от 30.12.2015
+
+Карл Густав Юнг и др. | Человек и его символы (2006) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемая книга является последним прижизненным трудом прославленного психоаналитика, а также единственным популярным изложением его теории, адресованным самым широким кругам читателей. Используя метод «аналитической психологии» Юнга, его ближайшие сподвижники и ученики наглядно демонстрируют влияние подсознания, опосредованное символами, на древние мифы и современное (   Читать дальше...   )Жанр: ПсихологияПеревод: И. Н. Сиренко, С. Н. Сиренко, Н. А. СиренкоФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B020D053F24618803C70BAC3360A37AF2BB92C9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

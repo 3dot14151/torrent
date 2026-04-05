@@ -1,3 +1,58 @@
+###  Публикация: 542311   (498997) от 02.09.2012
+
+Alan Wake Дилогия [Ru] (Repack) 2012 | {AVG}
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498997.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alan Wake's American Nightmare - экшен с элементами хоррора, разработанный студией Remedy. События игры не являются продолжением или приквелом к оригинальному Alan Wake. American Nightmare расширяет и углубляет вселенную игры, добавляя ранее неизвестных персонажей и события.
+В этот раз Алан Уэйк сразится с мистером Скрэтчем, вестником тьмы! Новый захватывающий сюжет, орды ужасающих врагов, серьезное оружие и прекрасные пейзажи Аризоны, а также увлекательный новый режим станут настоящим подарком для фанатов Алана Уэйка, а для всех остальных — отличной возможностью познакомиться с историей писателя.(   Читать дальше...   )Тип издания: RepackЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 537883   (498848) от 02.09.2012
+
+Darksiders II: Death Lives [Ru] (Repack/Upd.2) 2012 | R.G. Element Arts
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498848.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пробужденный концом света, Смерть, самый страшный из легендарных Четырех Всадников, отправляется в путь, чтобы восстановить человечество и очистить имя брата. По пути всадник узнает, что есть вещи похуже земного Апокалипсиса, и что древняя вражда может угрожать всему Созиданию...
+
+События второй части развиваются параллельно событиям первой. Война все еще заточен в тюрьме и теперь нам предстоит узнать историю второго всадника Апокалипсиса - Смерти. Он пытается разобраться в заговоре между адом и раем за право обладания Землей и найти и наказать тех, кто подставил Войну. .(   Читать дальше...   )Тип издания: RepackЖанр: Action (Slasher) / 3D / 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E0915A86D2120C9E47AFF626F9298B26E764D8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 542064   (498785) от 02.09.2012
 
 Hitman: Blood Money / Hitman: Кровавые деньги [Ru] (Repack) 2006 | Corsar
@@ -6,7 +61,7 @@ Hitman: Blood Money / Hitman: Кровавые деньги [Ru] (Repack) 2006 |
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498785.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ Fallout: New Vegas Ultimate Edition + 6 DLC [Ru] (Repack/1.4.0.525) 2010 | R.G. 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498781.jpg" />
 </div>
 
 
@@ -64,7 +119,7 @@ Fallout: New Vegas Ultimate Edition + 6 DLC [Ru/En] (Repack/1.4.0.525) 2010 | {A
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498777.jpg" />
 </div>
 
 
@@ -94,7 +149,7 @@ The Basement Collection [En] (Steam-Rip/1.0) 2012 | R.G. Игроманы
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497976.jpg" />
 </div>
 
 
@@ -124,7 +179,7 @@ Transformers: Fall of Cybertron [Ru/En] (RePack/1.0) 2012 | TERRAN
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496985.jpg" />
 </div>
 
 
@@ -151,7 +206,7 @@ The Ball / The Ball: Оружие мертвых [Ru] (RePack/1.0.6698.0) 2010 |
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496977.jpg" />
 </div>
 
 
@@ -178,7 +233,7 @@ I Am Alive [En] (Lossless RePack) 2012 | kuha
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496951.jpg" />
 </div>
 
 
@@ -204,7 +259,7 @@ The Darkness 2 [ENG] [PAL] (2012) [PS3]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496948.jpg" />
 </div>
 
 
@@ -230,7 +285,7 @@ Transformers: Fall of Cybertron [Ru] (Rip/1.0) 2012 | R.G. World Games
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496946.jpg" />
 </div>
 
 
@@ -257,7 +312,7 @@ Minecraft (L/12w34b) [Ru/Multi56] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495110.jpg" />
 </div>
 
 
@@ -283,7 +338,7 @@ Amnesia: The Dark Descent / Амнезия: Призрак Прошлого [Ru/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494884.jpg" />
 </div>
 
 
@@ -312,7 +367,7 @@ Victor Vran (2015) [Ru/Multi] (2.07/dlc) Repack R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493603.jpg" />
 </div>
 
 
@@ -338,7 +393,7 @@ I Am Alive [Ru/En] (Repack) 2012 | R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490563.jpg" />
 </div>
 
 
@@ -364,7 +419,7 @@ Transformers: War for Cybertron / Трансформеры: Битва за Ки
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490549.jpg" />
 </div>
 
 
@@ -391,7 +446,7 @@ Kingdoms of Amalur: Reckoning [En/Ru] (RePack/1.0.0.2) 2012 l R.G. Механи�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490531.jpg" />
 </div>
 
 
@@ -418,7 +473,7 @@ Serious Sam 2 / Крутой Сэм 2 [Rus] (L) 2005
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490441.jpg" />
 </div>
 
 
@@ -446,7 +501,7 @@ Firewatch (2016) [Ru/Multi] (1.03) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487302.jpg" />
 </div>
 
 
@@ -472,7 +527,7 @@ Densha de Go! (Let's Go By Train Shinkansen EX) [Wii] [NTSC-J] [JPN] (2007)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486875.jpg" />
 </div>
 
 
@@ -498,7 +553,7 @@ Call of Juarez: The Cartel / Call of Juarez: Картель [Ru] (RePack/1.1) 20
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486360.jpg" />
 </div>
 
 
@@ -524,7 +579,7 @@ Pro Evolution Soccer 2016 / PES 2016 (2015) [PS3] [USA] 4.75+ [License] [En]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485286.jpg" />
 </div>
 
 
@@ -550,7 +605,7 @@ WWE 12 [PS3] [ENG] [PAL] [3.55 Kmeaw] (2011)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484241.jpg" />
 </div>
 
 
@@ -577,7 +632,7 @@ Darksiders 2 Death Lives [Ru/En] (RePack/u3) 2012 | R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484151.jpg" />
 </div>
 
 
@@ -603,7 +658,7 @@ Titan Quest: Anniversary Edition (2016) [Ru/En] (1.45) Repack Mizantrop1337
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483625.jpg" />
 </div>
 
 
@@ -629,7 +684,7 @@ The Universim (2018) [Ru/Multi] (0.0.26.19542) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483574.jpg" />
 </div>
 
 
@@ -640,60 +695,6 @@ The Universim, симулятор бога, в котором успех ваш�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D9757FCA0F548E53B059C35DE10EB9CB4B0BDE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938074   (483178) от 17.09.2015
-
-Skyshine's BEDLAM (2015) [En] (1.0) License CODEX
-
->>След.
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Постапокалиптическая пошаговая ролевая роуглайк-стратегия, разработка которой была вдохновлена такими проектами, как The Banner Saga, FTL, XCOM. Игрокам предстоит возглавить команду крепости на колесах, которая держит путь к таинственному городу Aztec City через пустошь под названием BEDLAM. Вам придется заниматься распределением ресурсов, совершенствовать крепость, (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Skyshine GamesЖанр: RPG (Rogue/Action)Язык озвучки: -/-Язык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:519B2653C6064AAC34AD77122F007F2A7855A7F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545247   (482758) от 11.09.2012
-
-The Darkness II - Limited Edition [Ru] (RePack/1.0) 2012 | TimkaCool
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482758.jpg" />
-</div>
-
-
-###  Подробнее
-
-И придет Тьма…
-В продолжении популярного мистического экшена 2007 года игрокам вновь предстоит исполнить роль Джеки Эстакадо — главы преступного клана Нью-Йорка и носителя древней силы, известной под названием Тьма.
-Со времен событий The Darkness прошло два относительно мирных года. Но после того как на Джеки было совершено покушение, в нем вновь пробудилась Тьма… Лишь пройдя до конца по кровавому пути отмщения, он узнает, кто стоял за нападением и чего добивается скрытая в нем сила. (   Читать дальше...   )Тип издания: RePackЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E176E115DD37CEE7D2357F2C0B1E914B63A36585
 ```
 
 https://mybot314.ru/tekegram_catalog/

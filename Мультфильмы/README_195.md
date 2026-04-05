@@ -1,3 +1,133 @@
+###  Публикация: 1318662   (492293) от 07.08.2019
+
+Королевский корги / The Queen's Corgi (2019) HDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любимая порода собак у очень богатых и влиятельных людей — это корги. Маленькие собачки полностью погружены в жизнь своих больших хозяев. Спасаясь от политических интриг, любимец Британской Королевы вынужден покинуть Букингемский дворец. Теперь ему предстоит не только познакомиться с тайной жизнью улиц Лондона, но и доказать, что он настоящий Королевский Корги…Производство: Бельгия / Belga Productions, nWave PicturesЖанр: Мультфильм, комедия, семейныйРежиссер: Винсент Кестелут, Бен СтассенПеревод: Дублированный (iTunes)Субтитры: отсутствуют.Продолжительность: 01:25:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6E9290F2C0D2BC0771763C32DAB7DD4DB2DA5D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318676   (492284) от 07.08.2019
+
+Королевский корги / The Queen's Corgi (2019) BDRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любимая порода собак у очень богатых и влиятельных людей — это корги. Маленькие собачки полностью погружены в жизнь своих больших хозяев. Спасаясь от политических интриг, любимец Британской Королевы вынужден покинуть Букингемский дворец. Теперь ему предстоит не только познакомиться с тайной жизнью улиц Лондона, но и доказать, что он настоящий Королевский Корги…Производство: Бельгия / Belga Productions, King Dom Productions, The MontecitoЖанр: Мультфильм, Комедия, СемейныйРежиссер: Винсент Кестелут, Бен СтассенПеревод: ДублированныйСубтитры: Русские (Full), АнглийскиеПродолжительность: 01:25:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99F82A0B190680776967BFE588D698DDA917A89D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318722   (492282) от 07.08.2019
+
+Норм и Несокрушимые: Большое путешествие / Norm of the North: King Sized Adventure (2019) WEB-DL [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492282.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ледяных горах Арктики терпит крушение самолет, управляемый археологом Джином. Аварию подстроил его коварный напарник, который похищает бесценную нефритовую статуэтку китайского божества — ключ к несметным сокровищам. На помощь Джину приходит король Арктики Норм. В компании с леммингами он отправляется в смертельно опасное путешествие. На этот раз обаятельный и (   Читать дальше...   )Производство: США, Индия, Корея Южная, Китай /  Assemblage, Dream Factory Group, Splash EntertainmentЖанр: Приключения, Комедия, ДетскийРежиссер: Ричард И. Финн, Тим МолтбиПеревод: Дублированный (iTunes)Субтитры: отсутствуютПродолжительность: 01:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B444DFEF8C2287A477A4946FDD21FC8FECF69E3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318614   (492281) от 07.08.2019
+
+Маугли дикой планеты / Terra Willy: Planete inconnue (2019) WEB-DL [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Попав в метеоритный дождь, юный космический исследователь Вилли оказывается на неизвестной планете. С помощью робота Бака он должен выжить здесь до прибытия спасательной миссии его родителей. Но батарея Бака быстро садится, и, чтобы спасти Бака и вернуться домой, Вилли придется найти новых друзей и научиться жить по законам джунглей дикой планеты.Производство: Франция, TAT Productions, Bac Films, France 3 CinémaЖанр: Мультфильм, фантастика, комедия, приключенияРежиссер: Эрик ТостиАктеры: Тимоте Фон Дорп, Эдуард Баэр, Мари-Южени Марешаль, Гийом Лебон, Барбара Тиссье, Джейсон КаннингПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:26:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79C1883678551164F51DFD9C7170E525410AF436
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565537   (492194) от 24.07.2022
+
+Паучок и его удивительные друзья / Spidey and His Amazing Friends (2021) WEB-DLRip (сезон 1, серии 1-25 из 25)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юному Питеру Паркеру, привыкшему работать в одиночку, предстоит узнать, что по-настоящему непобедимым он может стать только в команде с другими героями. Паучок и его друзья Майлз Моралес и Гвен Стейси, у которых тоже появились суперспособности после укуса паука, объединяют силы с Халком, Чёрной Пантерой и Мисс Марвел. Ведь только все вместе они смогут одолеть таких (   Читать дальше...   )Производство: США / Marvel Animation, Atomic CartoonsЖанр: мультфильм, фантастика, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Даррен Бачински, Крис Джиллигэн, Крис МореноПеревод: Дублированный (Невафильм)Субтитры: отсутствуютПродолжительность: ~00:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E8FE2C7183501B6E5EF6298DAFECECE791B0FCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1054193   (491952) от 20.09.2016
 
 Ниндзяго: Мастера Кружитцу / Ninjago: Masters of Spinjitzu (2012) HDRip [H.264] (сезон 2, серии 1-13 из 13) [MP4|1024x576]
@@ -6,7 +136,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491952.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491948.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491805.jpg" />
 </div>
 
 
@@ -87,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491801.jpg" />
 </div>
 
 
@@ -113,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491800.jpg" />
 </div>
 
 
@@ -139,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491790.jpg" />
 </div>
 
 
@@ -165,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491737.jpg" />
 </div>
 
 
@@ -191,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_491359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_491359.jpg" />
 </div>
 
 
@@ -218,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491330.jpg" />
 </div>
 
 
@@ -244,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491306.jpg" />
 </div>
 
 
@@ -270,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491105.jpg" />
 </div>
 
 
@@ -296,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489746.jpg" />
 </div>
 
 
@@ -322,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489552.jpg" />
 </div>
 
 
@@ -348,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489549.jpg" />
 </div>
 
 
@@ -374,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489541.jpg" />
 </div>
 
 
@@ -400,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489518.jpg" />
 </div>
 
 
@@ -426,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489464.jpg" />
 </div>
 
 
@@ -452,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489430.jpg" />
 </div>
 
 
@@ -478,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489372.jpg" />
 </div>
 
 
@@ -504,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489119.jpg" />
 </div>
 
 
@@ -530,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489079.jpg" />
 </div>
 
 
@@ -541,136 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8899FAD00BEC3DD1D83F24ECAAD574D40372E237
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404885   (489068) от 27.08.2020
-
-Смерть и возвращение Супермена / The Death and Return of Superman (2019) BDRip [H.264/1080p-LQ] [MVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кларк Кент подумывает о том, чтобы раскрыть возлюбленной, Лоис Лэйн, свой самый большой секрет - что он является Суперменом. В это же время на Землю прибывает страшное чудовище Думсдэй, обладающее невероятной силой и злобой. Все супергерои в составе Лиги справедливости с трудом сдерживают монстра, поэтому Супермену придётся отложить свои личные дела и постараться (   Читать дальше...   )Производство: США / DC EntertainmentЖанр: Приключения, ФэнтезиРежиссер: Джейк КасторенаПеревод: Многоголосый профессиональныйСубтитры: русские (полные), английские (полные)Продолжительность: 02:46:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8635D9E8849EEAA4093813E8B2B290CE89EE0C84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544502   (489048) от 08.09.2012
-
-Вирус атакует: Холодная месть / Virus Attack (сезон 1, 13 серий из 13) (2011) DVDRip
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Земля захвачена чудовищными вирусами, которые уничтожают все вокруг. К счастью, у пяти подростков обнаружили состав крови с необычной ДНК, дающей невероятные возможности: благодаря формуле, созданной гениальным ученым, они могут превращаться в Антивирус и бороться за спасение Земли.Жанр: МультфильмРежиссер: Орландо КоррадиСубтитры: ОтсутствуютПродолжительность: 13 x 00:13:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70BF1E10A76A4D3E98A5CE754BD434D9A61E4A0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 228265   (488075) от 26.07.2022
-
-Кот-рыболов (1964) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добрый Кот пошел на рыбалку, а к нему в компанию напросились лесные звери, желающие полакомиться на дармовщину.Производство: СССР, СоюзмультфильмЖанр: Детский, Рисованная анимацияРежиссер: Владимир ПолковниковАктеры: Ольга Аросева, Эраст Гарин, Евгений Леонов, Анатолий ПапановСубтитры: ОтсутствуютПродолжительность: 00:09:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32046F3118B8A6F5046AAB0BD864C411E03C9FBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 397067   (488073) от 26.07.2022
-
-Дед Мороз и Серый волк (1978) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старый добрый советский мультфильм про то, как злой волк и его подружка ворона хотели помешать Деду Морозу подарить на Новый год подарки детям.Производство: СССР / "Союзмультфильм"Жанр: Мультфильм, КороткометражкаРежиссер: Витольд БордзиловскийПродолжительность: 00:16:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90F29AF3AE65211F22CFF4D598A49163AA37F314
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 391575   (488071) от 26.07.2022
-
-Архангельские новеллы (1986) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488071.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультипликационный фильм по сказкам Степана Писахова состоит из двух новелл «Перепелиха» и «Апельсин», которые в дальнейшем войдут в полнометражный фильм с тем же названием. Сказки Писахова, отражающие народную фантазию, мудрость и оптимизм, рассказаны ярко, с добрым юмором.Производство: СССР, СоюзмультфильмЖанр: Детский, Рисованная анимацияРежиссер: Леонид НосыревАктеры: Евгений Леонов, Кира Смирнова, Анатолий Баранцев, Семён СамодурСубтитры: ОтсутствуютПродолжительность: 00:15:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50D672AE437C77C3A560D951E594FD41A0AFB85A
 ```
 
 https://mybot314.ru/tekegram_catalog/

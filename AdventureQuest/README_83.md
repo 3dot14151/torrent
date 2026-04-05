@@ -1,3 +1,81 @@
+###  Публикация: 1740958   (47884) от 04.08.2024
+
+Shift 87 (2024) [Ru/Multi] (1.0f9) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47884.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shift 87 – самая необычная рабочая смена ждет вас, в данной хорроре вам предстоит найти аномалии, находящиеся на 3 уровнях. Ходите по мрачным кабинетам и коридорам, проявляйте максимальную внимательность, ведь вам необходимо обнаружить все 66 аномалий, которые отличаются друг от друга и некоторые сложно заметны.Тип издания: LicenseРазработчик: PixelsplitЖанр: Приключенческие игры, Казуальные игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Испанский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6636B88D5872F2392357860B7092BEAA5CF8A3AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740896   (47872) от 04.08.2024
+
+realMyst (2000) [En] (1.11) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ремастированная версия самой продаваемой приключенческой игры Myst. Теперь со свободным движением на 360°, улучшенными анимациями и многими другими вещами! Именно так создатели этой игры хотели, чтобы она выглядела с самого начала! Поэтому погасите свет, включите колонки и приготовьтесь к одному из самых захватывающих и сюрреалистичных впечатлений в вашей жизни!Тип издания: LicenseРазработчик: Cyan WorldsЖанр: Adventure, Puzzle, Mystery, 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ED9BBB88A6DA080D6EBA9F119B6DDB92EFEC688
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741105   (47783) от 05.08.2024
+
+Thank Goodness You're Here! (2024) [Ru/Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Thank Goodness You're Here! – перенесет вас в Англию, в город Барнсворт, где забавный и мелкий коммивояжер решил наведаться к местному мэру, но не рассчитал время и явился слишком рано, теперь у него есть много времени на прогулку по городку, с этого и начинаются приключения. Жители городка очень странные люди, и при общении они обязательно попросят вас о каком-то (   Читать дальше...   )Тип издания: SceneРазработчик: Coal SupperЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCBCF56AC4FADDE8DD569E4E2B8198641A53AE1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702752   (47780) от 05.08.2024
 
 My Lovely Wife (2022) [Ru/Multi] (1.1.14f2) License GOG
@@ -6,7 +84,7 @@ My Lovely Wife (2022) [Ru/Multi] (1.1.14f2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47780.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Minds Beneath Us (2024) [Multi] (1.0.1) Scene Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47733.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Subnautica: Below Zero (2019) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47709.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Setteeh / Сэттээх (2024) [Ru/En] (Build 15264138) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47704.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47679.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Sylvio: Black Waters (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47568.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Conscript (2024) [Ru/Multi] (1.0.0.2/dlc) Repack FitGirl [Officer Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47559.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Etera (2024) [En] (1.0.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47549.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ SCHiM (2024) [Ru/Multi] (1.0.3.a) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47548.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Cursed Bet (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47538.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Nine Noir Lives (2022) [Multi] (1.0.3.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47512.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Kanon (2024) [Multi] (1.2.0.3) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47460.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Zombie Police: Christmas Dancing with Police Zombies (2024) [Multi] (1.0) Scene 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47359.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Universe For Sale (2023) [Multi] (1.3.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47280.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Blacklist Mafia (2024) [Ru/En] (Build 15226435) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47277.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Moonless Moon (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47255.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Eternal Escape: castle of shadows (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47033.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ A Space for the Unbound (2023) [Multi] (1.0.35.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47007.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ The Bathhouse (2024) [Multi] (1.03) Repack FitGirl [Restored Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46873.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Snufkin: Melody of Moominvalley / Снусмумрик: Мелодия Муми-
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46785.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ The Star Named EOS (2024) [Ru/Multi] (1.0.0_04) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46644.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ DREDGE (2023) [Ru/Multi] (1.5.1/dlc) Repack Other s [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46558.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ MoonFire: A Seeker's Saga (2024) [En] (1.3.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46536.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ MoonFire: A Seeker's Saga (2024) [En] (1.3.2) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:101AF4A3F61AD8A36543F6BAD0EF35250F2B712A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743747   (46527) от 17.08.2024
-
-Guayota (2024) [Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46527.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вдохновлённая легендами Канарских островов и мифологией гуанчей, игра Guayota рассказывает о группе исследователей, отправленных Королевством Испания на поиски заветного острова святого Брендана. Вы вскоре поймёте, что остров, который считают раем на Земле, на самом деле скрывает мрачные тайны. Погрузитесь в захватывающую головоломку, вдохновлённую легендой о святом (   Читать дальше...   )Тип издания: SceneРазработчик: Team DelusionЖанр: Приключенческие игры, ИндиЯзык субтитров: Английский, Французский, Испанский, Китайский и другиеЯзык интерфейса: Английский, Французский, Испанский, Китайский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D93E62B8D2C4F218EB32CC38B06A35C655EFD23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743647   (46514) от 17.08.2024
-
-DREDGE (2023) [Ru/Multi] (1.5.1/dlc) Scene DOGE
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46514.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключение DREDGE предлагает игроку путешествовать по глубинам и постепенно раскрывать их тайны, параллельно занимаясь ловлей рыбы. По мере прохождения главному герою предстоит улучшать свое судно и тщательнее исследовать дно, чтобы раздобыть давно погребенные секреты. Событие разворачивается посреди таинственного архипелага островов, где сокрыто множество загадок (   Читать дальше...   )Тип издания: SceneРазработчик: Black Salt GamesЖанр: Adventure (Open World), RPG, Simulation, Horror, 3DЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D485C622EAAB11075F54F3A7D0DAA323FEDA9311
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743760   (46478) от 17.08.2024
-
-Welcome to Elk (2020) [Multi] (1.22.2) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Welcome to Elk – это биографическое приключение, действие которого происходит на уникальном острове, где каждому персонажу, с которым вы повстречаетесь, будет что рассказать. От странных и чудесных до мрачных и отчаянных - все сказки, что поведают вам на Эльке, основаны на реальных историях из жизни на нехоженых тропах. Вы играете за Фригг, молодую девушку-плотника, (   Читать дальше...   )Тип издания: LicenseРазработчик: Triple ToppingЖанр: Приключенческие игры, ИндиЯзык субтитров: Английский, Немецкий, Французский, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31CA6A148F9315A793DB418117DD5B1DFBDF57F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

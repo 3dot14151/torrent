@@ -1,3 +1,32 @@
+###  Публикация: 1574303   (385781) от 05.09.2022
+
+Сурогат - 2 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сурогат Now! [00:01:02]
+02. Позор [00:04:01]
+03. Мёртвая любовь [00:04:09]
+04. Двигайся [00:04:32](   Читать дальше...   )Жанр: Alternative Rock, ElectronicПродолжительность: 2 CD, 00:38:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1685DF8A4E5FDEBE5C6DD858C31DF58420EBD9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574442   (385780) от 05.09.2022
 
 Whitespade - Whitespade (2022) [FLAC|Lossless|WEB-DL|tracks] <Speed Metal, Hard 'n' Heavy>
@@ -6,7 +35,7 @@ Whitespade - Whitespade (2022) [FLAC|Lossless|WEB-DL|tracks] <Speed Metal, Hard 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385780.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Gone Cosmic - 2 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, St
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385779.jpg" />
 </div>
 
 
@@ -62,7 +91,7 @@ Entheogen - Transmogrify (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385778.jpg" />
 </div>
 
 
@@ -91,7 +120,7 @@ Kull Trigger - Primal Abilities (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385777.jpg" />
 </div>
 
 
@@ -120,7 +149,7 @@ Endigna - Otherside (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385711.jpg" />
 </div>
 
 
@@ -149,7 +178,7 @@ Leafblade - Merlin, Child of the Merrymoon (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385709.jpg" />
 </div>
 
 
@@ -178,7 +207,7 @@ The Butterfly Effect - IV (2022) [MP3|320 Kbps] <Alt.Rock, Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385708.jpg" />
 </div>
 
 
@@ -207,7 +236,7 @@ Infantry - Terminal Society (2022) [MP3|320 Kbps] <Thrash, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385707.jpg" />
 </div>
 
 
@@ -236,7 +265,7 @@ Criminal Element - Abuse of Power (2022) [FLAC|Lossless|WEB-DL|tracks] <Technica
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385704.jpg" />
 </div>
 
 
@@ -265,7 +294,7 @@ Iron Savior - Reforged - Ironbound (2022) 2xCD [FLAC|Lossless|image + .cue] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385703.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385701.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Constancia - Finаl Сurtаin (2015) Limitеd Еditiоn [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385626.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ Yacobs - Beautiful (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385625.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ Touche Amore - Lament (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Melodic Hardc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385624.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ Bloodbather - Silence (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385623.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ Touche Amore - 3 Albums (2016-2020) [MP3|320 Kbps] <Post Hardcore, Emo, Screamo>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385618.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ Dark Millennium - Midnight in the Void (2016) [FLAC|Lossless|image + .cue] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385606.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Peyton Parrish - Rise of Vikingr (2022) [MP3|320 Kbps] <Alternative, Nu Metal, F
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385600.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ Simon & Garfunkel - The Concert In Central Park (Japan SICP 1540) (1982) [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_385583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_385583.jpg" />
 </div>
 
 
@@ -560,7 +589,7 @@ Five Finger Death Punch - A Decade Of Destruction Vol. 2 (2020) [FLAC|Lossless|W
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385507.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ Martin Barre - 50 Years of Jethro Tull (2020) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385506.jpg" />
 </div>
 
 
@@ -618,7 +647,7 @@ The Doors - Morrison Hotel (1970) 50th Anniversary Deluxe Edition, Rhino/Elektra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385502.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385453.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Starsailor - Love is Here (2001) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385446.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Behemoth - I Loved You at Your Darkest (2018) Limited Edition [FLAC|Lossless|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385440.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Behemoth - I Loved You at Your Darkest (2018) Limited Edition [FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B8B807947788A5B09245D5A2BB6562600D04566
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253060   (385438) от 08.10.2018
-
-Roger Waters - Pros & Cons Of New York - The Classic 1985 Broadcast (2017) [MP3|320 Kbps] <Rock, Progressive & Art-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome To The Machine 8:30
-02. Set The Controls For The Heart Of The Sun 9:55
-03. Money 8:10
-04. If 4:01(   Читать дальше...   )Жанр: Rock, Progressive & Art-RockПродолжительность: 02:12:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:296AD4ADC99FF1D0DBD8340CA24D4F868819E338
 ```
 
 https://mybot314.ru/tekegram_catalog/

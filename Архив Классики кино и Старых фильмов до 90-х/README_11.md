@@ -6,7 +6,7 @@
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_576741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_576741.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574490.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569197.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568985.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568669.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567986.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567400.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566761.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565505.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564586.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562668.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560328.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558441.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556884.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553790.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546364.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541202.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540600.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540475.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540438.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539942.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538258.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538207.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536693.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535756.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534856.jpg" />
 </div>
 
 

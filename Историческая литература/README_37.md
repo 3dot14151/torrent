@@ -1,31 +1,3 @@
-###  Публикация: 1286498   (711220) от 03.03.2019
-
-П. Н. Амосов и др. (сост.) | Октябрьская революция и фабзавкомы [3 книги] (1927-1929) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711220.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роль фабрично-заводских комитетов в развитии и углублении русской революции от Февраля до Октября 1917 г. и в укреплении ее завоеваний после октября настолько значительна, что в истории революции их деятельности по справедливости должна быть отведена одна из крупнейших глав.
-
-С первого дня своего возникновения после февральского переворота и вплоть до полного слияния (   Читать дальше...   )Жанр: История, политология, публицистика, документалистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C3CF3FEC37EC5460C579BE0F4E35AE2B024F267
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131099   (710795) от 04.05.2017
 
 В. Мюнценберг | Социалистические организации молодежи до и во время войны (1922) [PDF]
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710795.jpg" />
 </div>
 
 
@@ -60,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710738.jpg" />
 </div>
 
 
@@ -86,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710673.jpg" />
 </div>
 
 
@@ -112,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710524.jpg" />
 </div>
 
 
@@ -138,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709719.jpg" />
 </div>
 
 
@@ -167,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709014.jpg" />
 </div>
 
 
@@ -193,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708789.jpg" />
 </div>
 
 
@@ -219,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707525.jpg" />
 </div>
 
 
@@ -245,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707404.jpg" />
 </div>
 
 
@@ -272,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706979.jpg" />
 </div>
 
 
@@ -298,7 +270,7 @@ Willard M. Oliver | The Birth of the FBI / Рождение ФБР (2019) [PDF] 
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705617.jpg" />
 </div>
 
 
@@ -324,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705516.jpg" />
 </div>
 
 
@@ -350,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705413.jpg" />
 </div>
 
 
@@ -378,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705226.jpg" />
 </div>
 
 
@@ -404,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704712.jpg" />
 </div>
 
 
@@ -432,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703294.jpg" />
 </div>
 
 
@@ -458,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703187.jpg" />
 </div>
 
 
@@ -486,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703042.jpg" />
 </div>
 
 
@@ -514,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702940.jpg" />
 </div>
 
 
@@ -540,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702551.jpg" />
 </div>
 
 
@@ -568,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702549.jpg" />
 </div>
 
 
@@ -596,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702548.jpg" />
 </div>
 
 
@@ -624,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702433.jpg" />
 </div>
 
 
@@ -650,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702305.jpg" />
 </div>
 
 
@@ -676,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701893.jpg" />
 </div>
 
 
@@ -687,6 +659,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E66152E9AA1174A370419BB56A2FFE79F768ADB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287663   (701891) от 08.03.2019
+
+А. Рязанова | Профсоюзы и работница. Работница в производстве [Выпуск 1] (1922) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Условия труда в современной промышленности — хищническое отношение к рабочей силе, длинный утомительный рабочий день, отсутствие необходимого отдыха, низкий уровень жизни, антигигиеническая обстановка фабричных помещений и промышленного труда — все это пагубно отражается на здоровье рабочего класса, и в особенности на женщинах работницах. Ни в одной области промышленной (   Читать дальше...   )Жанр: История, политология, экономика, публицистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17BFBB2CD6D0D01C15ACFBD66655B78C2BAA17A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

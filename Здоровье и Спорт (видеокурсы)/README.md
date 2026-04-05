@@ -7,7 +7,7 @@ TutorPlace, Ильяc Азимов | Шахматы с нуля (2025) WEB-DL [R
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062696.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061294.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060892.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ vabrain, Вячеслав Дубынин | Нейромедиаторы радо
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060555.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ vabrain, Вячеслав Дубынин | Уровни любви: от ген�
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060554.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060553.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ vabrain, Вячеслав Дубынин | Нейрофизиология при
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060552.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060549.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ vabrain, Вячеслав Дубынин | Физиология здоровог
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060548.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060206.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060203.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059682.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ TutorPlace, Юлия Подорова | Тренировки для рельеф
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058954.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ TutorPlace, Ксения Шушарина | Сам себе тренер (2025) 
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058940.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048050.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030546.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030542.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027817.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026566.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026492.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Udemy, Orsi Yoga Pilates | Home and Travel Fitness Workout  (2021) PCRec [En / E
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023236.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008778.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994629.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988316.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985186.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985154.jpg" />
 </div>
 
 

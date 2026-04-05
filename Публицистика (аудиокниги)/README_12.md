@@ -1,3 +1,138 @@
+###  Публикация: 1687937   (125345) от 28.12.2023
+
+Евгения Гинзбург | Крутой маршрут (2022) [MP3, Галина Тюнина]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125345.jpg" />
+</div>
+
+
+###  Подробнее
+
+1937 год. Жернова сталинских репрессий работают на полную мощь. За один только год большевиками расстреляно более трёхсот тысяч человек, почти по тысяче в день… Любой в одночасье мог быть признан врагом народа: по надуманному обвинению, клевете или анонимному доносу. Именно это произошло и с корреспондентом «Литературной газеты», работником образования, членом партии (   Читать дальше...   )Жанр: Биографии и мемуары, РоманИздательство: СОЮЗПродолжительность: 30:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25ADBE2E444EB062023633B8B8539412B0818E7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688303   (125186) от 29.12.2023
+
+Терри Вулф | Гений наносит ответный удар (2023) [MP3, Егор Браун]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125186.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение книги «Кодзима – гений».
+Хидео Кодзима раздвигает границы возможного!
+Книга «Кодзима – гений» описывала события начиная с молодости Кодзимы и заканчивая разработкой METAL GEAR SOLID 2: SUBSTANCE. В этом продолжении Терри Вулф познакомит вас с самыми яркими и мрачными главами карьеры японского гейм-дизайнера и объяснит, как на него повлияли обстоятельства, (   Читать дальше...   )Жанр: Зарубежная публицистикаИздательство: БОМБОРА, ЭКСМОПродолжительность: 13:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFBFF160DFC72119538DEFB82E0885C81B8E1EB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688727   (125051) от 30.12.2023
+
+Мэри Бирд | SPQR. История Древнего Рима (2023) [MP3, Александра Максимова]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы встречаемся с образами и историей Древнего Рима в науке, литературе, искусстве. Но насколько близки к реальности наши представления об эпохе, на которую опирается вся западная цивилизация?
+
+Ведущий мировой специалист по древней истории Мэри Бирд в своей книге «SPQR: История Древнего Рима» объясняет, почему нам так важна римская история, каким образом маленький, (   Читать дальше...   )Жанр: античная история, научно-популярная литератураПеревод: Дарья ПоповаИздательство: Альпина ДиджиталПродолжительность: 17:02:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E209097D8DE66FC5C84661F9C20C9FE8CC2A1B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689796   (124359) от 04.01.2024
+
+Лев Лурье | Лекция «Москва – Петербург. 13 отличий» (2019) [MP3, Лев Лурье]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124359.jpg" />
+</div>
+
+
+###  Подробнее
+
+На лекции Льва Лурье, посвящённой различиям Петербурга и Москвы, вы узнаете, чем так гордятся петербуржцы, что теряют москвичи, а также о том, каковы истоки этого вечного противостояния. Так уж сложилось, что два этих главных города нашей родины всё время противопоставлялись друг другу и конкурировали между собой. Везло то одному, то другому по очереди, в зависимости (   Читать дальше...   )Жанр: Публицистика, культурология, историяИздательство: Лекторий "Прямая Речь"Продолжительность: 01:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49E5581449A5D26B7EA170DD4B750301006BAF61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691008   (123541) от 10.01.2024
+
+Эрван Лафлериэль | Fallout. Хроники создания легендарной саги (2023) [MP3, Александр Гаврилин]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123541.jpg" />
+</div>
+
+
+###  Подробнее
+
+От хаоса Пустошей к великой игре!
+Мир Fallout – это смесь ретро-футуризма и постапокалипсиса, где время и радиация неспешно пожирают следы человеческих мечтаний о счастливом будущем. Идеи, заложенные в игру, пришлись по вкусу миллионам геймеров. Fallout постоянно развивается и меняется, и выход каждой новой части становится громким событием в игровой индустрии. Эта (   Читать дальше...   )Жанр: ПублицистикаИздательство: БОМБОРА, ЭКСМОПродолжительность: 07:47:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F31F13BCB8DB33369D8C862BD6D22160409D8CB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1237817   (122078) от 19.01.2024
 
 Александр Митта | Кино между адом и раем (2018) [MP3]
@@ -6,7 +141,7 @@
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122078.jpg" />
 </div>
 
 
@@ -35,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121017.jpg" />
 </div>
 
 
@@ -61,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121016.jpg" />
 </div>
 
 
@@ -87,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116392.jpg" />
 </div>
 
 
@@ -114,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116229.jpg" />
 </div>
 
 
@@ -140,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113993.jpg" />
 </div>
 
 
@@ -167,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112604.jpg" />
 </div>
 
 
@@ -193,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111546.jpg" />
 </div>
 
 
@@ -219,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108243.jpg" />
 </div>
 
 
@@ -245,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107711.jpg" />
 </div>
 
 
@@ -273,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107349.jpg" />
 </div>
 
 
@@ -299,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107250.jpg" />
 </div>
 
 
@@ -326,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104478.jpg" />
 </div>
 
 
@@ -352,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104286.jpg" />
 </div>
 
 
@@ -378,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70468.jpg" />
 </div>
 
 
@@ -406,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70104.jpg" />
 </div>
 
 
@@ -432,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68864.jpg" />
 </div>
 
 
@@ -460,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68586.jpg" />
 </div>
 
 
@@ -486,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67641.jpg" />
 </div>
 
 
@@ -514,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67410.jpg" />
 </div>
 
 
@@ -540,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66096.jpg" />
 </div>
 
 
@@ -551,146 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E83A772DEA9B32E65438611ABB6129AE9C6676E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802775   (65992) от 19.06.2025
-
-Мария Благушина | Бразилия изнутри. Как на самом деле живут в жаркой стране карнавалов? (2024) [MP3, Анна Османова]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65992.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что вы знаете о Бразилии?
-
-Наверняка вы слышали о ярких и красочных карнавалах, которые здесь проводятся с особым размахом, хоть раз видели культовые бразильские сериалы вроде «Рабыни Изауры» или «Клона» и точно знаете про главную визитную карточку Рио-де-Жанейро – статую Христа-Искупителя, которая входит в список Новых семи чудес света. Это пятая страна в мире по (   Читать дальше...   )Жанр: ПублицистикаИздательство: БОМБОРАПродолжительность: 05:13:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:013A19FAE946ECBD01E723C67AFCCDA2EB5947BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802770   (65991) от 19.06.2025
-
-Виктория Станкеева | Австралия изнутри. Как на самом деле живут в стране вверх тормашками? (2022) [MP3, Екатерина Булгару]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что мы знаем об Австралии?
-
-Это страна, которая расположилась на отдельном материке и где пустыни занимают почти половину площади. Здесь опаснейшие животные соседствуют с милыми кенгуру и коалами, а также находится Большой Барьерный риф – крупнейший живой организм на Земле, который виден даже из космоса! Но Австралия – это намного больше, чем знаковые достопримечательности (   Читать дальше...   )Жанр: ПублицистикаИздательство: БОМБОРАПродолжительность: 04:42:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8257504C37F39FE38BA032989CF669B122A819D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802767   (65990) от 19.06.2025
-
-Дарья Кириенко | Малайзия изнутри. Как на самом деле живут в стране вечного лета, дурианов и райских пляжей? (2022) [MP3, Марина Тропина]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65990.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга «Малайзия изнутри» посвящена всем, кому не хватает ярких летних пейзажей, фестивалей и праздников. Тем, кто хочет узнать больше о невероятной стране контрастов и проникнуться неповторимой атмосферой.
-
-Дарья Кириенко знает все о жизни в Малайзии и сможет поделиться своим опытом, впечатлениями и советами.
-(   Читать дальше...   )Жанр: ПублицистикаИздательство: БОМБОРАПродолжительность: 08:39:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F48B01D63E843C8BA8C4B96C1C1E3BF4E0A408F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808011   (65061) от 22.07.2025
-
-Яков Миркин | Потрясенные общества. Правила жизни в эпоху перемен (2025) [MP3, Алексей Воскобойников]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы все знаем выражение «общественные потрясения». Но как жить в «потрясенном» обществе, как сохранить в нем имущество, достоинство, душевное равновесие – и саму жизнь? Как выдержать первый удар, когда привычный мир вдруг рухнул? Как выйти из кризиса умудренным и окрепшим? Кто, как не Россия, даст ответы на эти вопросы, ведь нас столетиями кидает из крайности в крайность.Жанр: Публицистика, Философские притчиИздательство: АзбукаПродолжительность: 11:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97133A7F5CC9F36499CCE3D498681CDCFBF652DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808683   (64889) от 26.07.2025
-
-Захар Прилепин | Имя рек. 40 причин поспорить о главном (2020) [MP3, Денис Макаренко]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быть может, у меня ничего не получилось, но я так не думаю.
-Перед вами – итоги моих болезненных размышлений о нашем с вами Отечестве.
-Чтоб понять, кто мы и зачем, нужно было заново пересобрать все представления, и я бережно, с тщанием ребёнка, пересобрал.
-В какой точке бытия находимся мы и куда следуем. Что есть Родина. Какое отношение мы имеем к Древней Руси. Насколько (   Читать дальше...   )Жанр: ПублицистикаИздательство: АСТПродолжительность: 06:02:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9B8532E15D1F066254F43B4281DC2053B592A6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

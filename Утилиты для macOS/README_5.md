@@ -1,3 +1,30 @@
+###  Публикация: 973737   (978941) от 09.01.2016
+
+Reflector 2.4.0 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978941.jpg" />
+</div>
+
+
+###  Подробнее
+
+С помощью приложения Reflector пользователи iPhone, iPad или iPod Touch могут использовать преимущества технологии AirPlay для трансляции фото и видео контента с экрана мобильного устройства на компьютер в режиме видеоповтора.
+Программа активирует функцию AirPlay Mirroring, что позволяет превратить ваш iДевайс в настоящий центр компьютерных развлечений. Для этого (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 07 января 2016Разработчик: Squirrels LLCПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41E3FA4ED4410C3116E6B7063EE7D2283B5FD124
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358233   (969480) от 07.02.2020
 
 Disk Drill Enterprise 3.8.965 [Multi/Ru]
@@ -6,7 +33,7 @@ Disk Drill Enterprise 3.8.965 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969480.jpg" />
 </div>
 
 
@@ -34,7 +61,7 @@ Disk Order 3.2.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968886.jpg" />
 </div>
 
 
@@ -62,7 +89,7 @@ Disco 1.0.3 [Rus] (2008)
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968215.jpg" />
 </div>
 
 
@@ -89,7 +116,7 @@ Wizard Pro 1.9.36 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966279.jpg" />
 </div>
 
 
@@ -116,7 +143,7 @@ Nvidia Web Driver for 10.11.3 346.03.05f01 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965594.jpg" />
 </div>
 
 
@@ -143,7 +170,7 @@ Nvidia Web Driver for 10.11.4 346.03.06b01 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965415.jpg" />
 </div>
 
 
@@ -170,7 +197,7 @@ DropDMG 3.5.10 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965229.jpg" />
 </div>
 
 
@@ -197,7 +224,7 @@ Xcode 7.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964384.jpg" />
 </div>
 
 
@@ -225,7 +252,7 @@ Back-In-Time 5 v5.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961935.jpg" />
 </div>
 
 
@@ -252,7 +279,7 @@ Flexiglass 1.7.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961934.jpg" />
 </div>
 
 
@@ -279,7 +306,7 @@ Paragon ExtFS for Mac 11.3.30 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961750.jpg" />
 </div>
 
 
@@ -307,7 +334,7 @@ Paragon Camptune X v10.13.433 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959081.jpg" />
 </div>
 
 
@@ -333,7 +360,7 @@ Forecast Bar 2.1.8 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957349.jpg" />
 </div>
 
 
@@ -363,7 +390,7 @@ Elimisoft App Uninstaller 2.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957131.jpg" />
 </div>
 
 
@@ -389,7 +416,7 @@ iconXprit 3.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955158.jpg" />
 </div>
 
 
@@ -418,7 +445,7 @@ Deskovery 3 v3.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952440.jpg" />
 </div>
 
 
@@ -446,7 +473,7 @@ Watts 2.0.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951821.jpg" />
 </div>
 
 
@@ -473,7 +500,7 @@ Leech 2.2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951498.jpg" />
 </div>
 
 
@@ -500,7 +527,7 @@ Moom 3.2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951407.jpg" />
 </div>
 
 
@@ -527,7 +554,7 @@ Disk Drill Media Recovery 3.8.953 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949348.jpg" />
 </div>
 
 
@@ -555,7 +582,7 @@ TokenLock 4.71 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949159.jpg" />
 </div>
 
 
@@ -583,7 +610,7 @@ ProCommander 1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948266.jpg" />
 </div>
 
 
@@ -612,7 +639,7 @@ MacAppBlocker 2.8.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948143.jpg" />
 </div>
 
 
@@ -641,7 +668,7 @@ DriveDx 1.5.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946832.jpg" />
 </div>
 
 
@@ -667,7 +694,7 @@ Display Maestro 3 v3.0.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946628.jpg" />
 </div>
 
 
@@ -680,33 +707,6 @@ Display Maestro - простая утилита, которая дает вам 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0ECA2F82E39B6BD50C66EEF475057680C335AB1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362946   (946566) от 25.02.2020
-
-MacPilot 11 v11.0.9 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лёгкое включение и отключение скрытых функций Mac OS X, оптимизация и ремонт вашей системы, выполнение множества рутинных процедур по обслуживанию системы путём простого нажатия на кнопку!
-Независимо от того, профессионал вы или начинающий пользователь, теперь вы сможете повысить производительность компьютера несколькими кликами мыши. В приложении предусмотрено выполнение (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.02.2020Разработчик: Koingo Software, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1F8066FB0F5684D51237D45DB03A185430A1224
 ```
 
 https://mybot314.ru/tekegram_catalog/

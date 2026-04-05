@@ -1,3 +1,81 @@
+###  Публикация: 1748063   (44250) от 08.09.2024
+
+Unstoppable: Breakout (2024) [Ru/Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследовательница просыпается одна, запертая в тёмном комплексе. Не помня, как она сюда попала, и руководствуясь голосом коллеги, она должна сражаться с нечеловеческими экспериментами, чтобы выжить. По мере того, как ночь продолжается, враги становятся всё страшнее, а ужасные секреты выходят на свет! Unstoppable: Breakout - это захватывающее приключение в жанре хоррор, (   Читать дальше...   )Тип издания: SceneРазработчик: FunnylocksЖанр: Экшены, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Корейский, Японский и другиеЯзык интерфейса: Русский, Английский, Корейский, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1A0FE9015C7D60BC3FCCEF8FBCEA118DB4C8DD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748080   (44184) от 08.09.2024
+
+Love Spell: Written In The Stars - a magical romantic-comedy otome (2020) [En] (1.0/dlc) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44184.jpg" />
+</div>
+
+
+###  Подробнее
+
+После спасения жизни таинственной старухи молодая девушка получает в дар волшебную книгу заклинаний, способную заставить любого, чье имя она впишет в нее, безумно влюбиться в нее до следующего полнолуния. Не зная о секрете книги, она идет по своим делам и переживает ряд паршивых событий, которые приводят к долгому, утомительному дню. Чтобы утопить свои печали и забыть (   Читать дальше...   )Тип издания: SceneРазработчик: Great Gretuski StudiosЖанр: Казуальные игры, Инди, СимуляторыЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A90CAE4A8E6651719CE3455DE7893EFF4FF29CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748060   (44179) от 08.09.2024
+
+Tobla - Divine Path (2024) [Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра-головоломка, где вы окажетесь в царстве Богов. Тобла, Бог логического мышления, выбирает вас, прошлого смертного, для важного дела. Теперь от ваших действий зависит, дойдет ли коллекция божественных головоломок до точки назначения, и вы точно не хотите знать, какие ожидают вас последствия в случае неудачи. Отправляйтесь в потустороннее путешествие и познайте (   Читать дальше...   )Тип издания: SceneРазработчик: Nementic GamesЖанр: Приключенческие игры, ИндиЯзык озвучки: Английский, Немецкий, Французский, ЯпонскийЯзык субтитров: Английский, Немецкий, Французский, Итальянский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:951F276F9C8B6FDBA149353F9FDBC5518942B87C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1749113   (43709) от 13.09.2024
 
 Dreamlike Love with Seira (2024) [Multi] (1.0) Scene Tenoke
@@ -6,7 +84,7 @@ Dreamlike Love with Seira (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43709.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Caravan SandWitch (2024) [Multi] (1.12.71.00/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43697.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Caravan SandWitch (2024) [Multi] (1.12.71.00/dlc) Repack FitGirl [Digital Collec
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43638.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ LUNARiA -Virtualized Moonchild- (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43586.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Everlasting Flowers - Where there is a will, there is a way (2024) [Multi] (1.0)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43582.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Justin Wack and the Big Time Hack (2022) [Multi] (3.2.3) License GOG [Deluxe Edi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43533.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Dave the Diver (2023) [Ru/Multi] (1.0.2.1474/dlc) Repack Wagner
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43444.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Fears to Fathom: Woodbury Getaway (2024) [Ru/Multi] (1.3) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43416.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Granny Remake (2023) [Ru/Multi] (3.5.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43398.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Fears to Fathom: Woodbury Getaway (2024) [Ru/Multi] (1.3/1.8) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43310.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Abnormal1999: The Compass and the Sand / Аномалия1999: Компас и �
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43196.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ The Plucky Squire / Отважный паж (2024) [Ru/Multi] (1.10.3) Scene DOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43099.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ The Plucky Squire / Отважный паж (2024) [Ru/Multi] (1.10.3) Repack Fi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43023.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Subnautica (2018) [Ru/Multi] (71288) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43010.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15667197/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43006.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ The Gunk (2021) [Ru/Multi] (1014.1.6.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42893.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Smells Like a Mushroom (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42885.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ AMEDAMA (2024) [Multi] (2.0.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42842.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Life is Strange 2 (2018) [Ru/Multi] (build 4874667/dlc) Repack dixen18 [Complete
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42805.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Portal Reloaded (2021) [En] (1.0.1HF) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42795.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ DREDGE (2023) [Ru/Multi] (2879/dlc) License GOG [Digital Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42792.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Gym Nights (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42763.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Spiral (2024) [Multi] (20240920PC-01) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42684.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Spiral - это сюжетная игра от третьего лица, в к�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C5A1143DA11F4EA3254A964AADCA2D9212BC58C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751298   (42588) от 24.09.2024
-
-Copycat (2024) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42588.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключения в Copycat позволяют взглянуть на мир через призму кошачьего восприятия. Игроки возьмут под управление кота, которым нужно управлять от третьего лица и отправятся на приключения. Проект направлен на создание созидательного и одинокого путешествия. Через которое проходят представители семейства кошачьих. Главным героем выступит Дон, избалованный домашний (   Читать дальше...   )Тип издания: RepackРазработчик: Spoonful Of WonderЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Японский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C45DB335420E1DC40454C62BE061F22D6273914F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751266   (42543) от 24.09.2024
-
-Abnormal1999: The Compass and the Sand / Аномалия1999: Компас и песок (2024) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42543.jpg" />
-</div>
-
-
-###  Подробнее
-
-Abnormal1999:The Compass and the Sand - это загадочная головоломка, в которой геймеры погружаются в роль Энн, персонажа, изгнанного мистическим компасом. Тут юзерам предстоит раскрыть секреты изгнанной земли и активировать компас, чтобы спастись. Повествование разворачивается в далекой и незнакомой стране, где Энн движет непоколебимая решимость найти дорогу назад.Тип издания: RepackРазработчик: QZQ StudioЖанр: Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Китайский, Французский и другиеЯзык интерфейса: Русский, Английский, Китайский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C465A2E7ED2C74A69CACF01C908D946851BC2E85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751270   (42541) от 24.09.2024
-
-Three Alpha One Nine (2024) [En] (1.2.5.2) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Three Alpha One Nine – это сложный и одновременно ультрасовременный платформинг, приправленный приключениями. Где скорость, точность и любопытство будут вознаграждены! Ну, а, вам здесь предстоит примерить роль робота ЗА19 и вместе с ним проложить себе путь сквозь разнообразные локации. Попросту говоря, вам необходимо перевоплотиться в специализированного робота, (   Читать дальше...   )Тип издания: RepackРазработчик: BlackLPЖанр: Приключенческие игры, Казуальные игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBFBCAD01DA8C08E8EE76E4E4BAA1634540DDE45
 ```
 
 https://mybot314.ru/tekegram_catalog/

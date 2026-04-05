@@ -1,29 +1,3 @@
-###  Публикация: 457045   (77878) от 23.02.2012
-
-Н. Петрова | Старая Москва XIX века [1972] [PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплект 16 открыток.  Художественные  изображения возрожденной, обновленной Москвы после Отечественной войны 1812 года. Выполненные в новой для того времени графической технике – литографии, - они становятся очень популярными во всех слоях общества. Описание на русском и английском языках.1972Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E2BD6DA97EE98FA6C9E71E354BE0F5E41E1CEF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 457034   (77874) от 23.02.2012
 
 Л. Корнешев | "Москва златоглавая"  в старых фотографиях и гравюрах 19 столетия [1989] [PDF]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77874.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76346.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75121.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60978.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59841.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59690.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59665.jpg" />
 </div>
 
 
@@ -218,7 +192,7 @@ Rob Houston (editor) | How Food Works (2017) [PDF] [EN]
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54367.jpg" />
 </div>
 
 
@@ -244,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49227.jpg" />
 </div>
 
 
@@ -270,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49037.jpg" />
 </div>
 
 
@@ -296,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47652.jpg" />
 </div>
 
 
@@ -322,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46025.jpg" />
 </div>
 
 
@@ -350,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46003.jpg" />
 </div>
 
 
@@ -376,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43312.jpg" />
 </div>
 
 
@@ -402,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43276.jpg" />
 </div>
 
 
@@ -428,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41999.jpg" />
 </div>
 
 
@@ -454,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39002.jpg" />
 </div>
 
 
@@ -481,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38995.jpg" />
 </div>
 
 
@@ -507,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36033.jpg" />
 </div>
 
 
@@ -533,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35218.jpg" />
 </div>
 
 
@@ -560,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34941.jpg" />
 </div>
 
 
@@ -586,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32817.jpg" />
 </div>
 
 
@@ -612,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32546.jpg" />
 </div>
 
 
@@ -638,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32498.jpg" />
 </div>
 
 
@@ -664,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31811.jpg" />
 </div>
 
 
@@ -675,6 +649,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAE3DAD8A8493BDEB50F41D526168C2A543D074B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771987   (31536) от 09.01.2025
+
+Стив Брусатти | Эра млекопитающих: Из тени динозавров к мировому господству (2025) [FB2, RTF]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31536.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мнению известного палеонтолога Стива Брусатти, млекопитающие — самые обаятельные и любимые людьми существа на планете. Возможно, дело в том, что многие из них милые и пушистые, но отчасти также и в том, что, по сути, мы сами к ним относимся и узнаем в них себя. Поэтому нам особенно интересно знать подробности того, как все они — и мы — появились на Земле, пережили (   Читать дальше...   )Жанр: Научная литератураИздательство: Альпина нон-фикшнФормат: FB2, RTFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:923B9FBD076A4B61C06D1B96EBF4EAAF57895177
 ```
 
 https://mybot314.ru/tekegram_catalog/

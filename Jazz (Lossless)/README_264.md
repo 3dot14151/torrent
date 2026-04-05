@@ -6,7 +6,7 @@ Eddie Higgins - Romantic Higgins (2009) Venus Records [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221427.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Papik & Alfredo Bochicchio - Cocktail Guitar, Vol.2 (2022) [FLAC|Lossless|WEB-DL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221375.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ V.A. - Bossa & Latin Flavours (2021) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nova, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221350.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Herbie Nichols - Love, Gloom, Cash, Love (1957) 1994, Bethlehem [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221319.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Sam Rucker - In Position, The Album (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221277.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Patrick Yandall - Dance in the Rain (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221270.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Everett B Walters - Funkin Under the Chicago Skyline (2023) [FLAC|Lossless|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221263.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Thom Rotella - Say Hey! (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221233.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Jazzin' (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221161.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Babylon Circus - La Belle Etoile (2009) [WavPack|Lossless|tracks + .cue] <Ska-Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221033.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ The Thad Jones / Mel Lewis Orchestra - The Complete Solid State Recordings of Th
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220977.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Bill Evans - Trio 64 (1963) 1997, Verve Records [FLAC|Lossless|tracks + .cue] <M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220922.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Marian McPartland - On 52nd Street (1953) 2002, Savoy Jazz [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220833.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Sergio Mendes & Bossa Rio - Voce Ainda Nao Ouviu Nada! (1964) 2002, Dubas Musica
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220698.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Low Kick Collective - Coma Berenices (2022) [FLAC|Lossless|Web-DL|tracks] <Dark 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220648.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Alessio Menconi - Standard Trio (2005) Abeat Records [FLAC|Lossless|image + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220270.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Hampton Hawes - The Sermon (1958) 2002, Original Jazz Classics [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_220267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_220267.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Woody Herman & His Thundering Herd - Ready-Get Set-Jump (1953 - 1958) 1992, Lase
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220117.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ P.J. Perry - Worth Waiting For (1991) The Jazz Alliance [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220105.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Jimmy Forrest - Out Of The Forrest (1961) 1994, Original Jazz Classics [APE|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220095.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Ian McDougall - Songs & Arias (1997) Self-Released [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220085.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ P.J. Perry - My Ideal (1989) Unity Records [FLAC|Lossless|tracks + .cue] <Hard B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220077.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Black Art Jazz Collective - Armor Of Pride (2018) HighNote [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220069.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Freddie Hubbard - Classic Recordings 1960-1962 (2015) 4CD, Enlightenment [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220061.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Astrud Gilberto - The Silver Collection (1965 - 1970) 1991, Verve [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219990.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Eddie Higgins Trio - Jazz Standards Essential Best (2009) Venus Records [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219772.jpg" />
 </div>
 
 

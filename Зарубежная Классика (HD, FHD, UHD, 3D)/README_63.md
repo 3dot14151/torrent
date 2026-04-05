@@ -1,3 +1,107 @@
+###  Публикация: 583992   (309885) от 03.12.2012
+
+Декамерон / The Decameron / Il Decameron  [The Criterion Collection] (1970) [1080p] BDRemux
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Художник Джотто странствует по дорогам Италии эпохи зарождающегося Ренессанса в поисках гармонии и истины. Джотто становится свидетелем самых разных жизненных историй и жадно вбирает в себя во впечатления от изменяющейся, многоликой реальности. Эта реальность — веселая или печальная, суровая или фривольная наполнена мощной стихией любви и жажды жизни, торжествующих (   Читать дальше...   )Жанр: Комедия, драмаРежиссер: Пьер Паоло ПазолиниВ ролях: Франко Читти, Нинетто Даволи, Йован Йованович, Винченцо Амато, Анжела Луче, Джузеппе Зигайна, Габриэлла Франкель, Винченцо Кристо, Пьер Паоло Пазолини, Патриция Каппарелли, Сильвана МанганоПеревод: Многоголосый закадровыйСубтитры: Английские, РусскиеПродолжительность: 01:51:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F69DE6E161EAC6F8A717128EF7431D73933BBDC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 418738   (308774) от 04.12.2011
+
+Бегущий по лезвию / Blade Runner (1982) BDRip [H.264/720p-LQ] [International Theatrical Cut]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Недалекое будущее. Декард - полицейский в отставке, бывший "бегущий по лезвию" - охотник на репликантов - андроидов, созданных корпорацией "Тайрелл". Репликанты были объявлены на Земле вне закона, но группа репликантов серии Nexus-6 завладела шаттлом и, перебив команду и пассажиров, вернулась на Землю из колонии. Декарда вызвали для того, чтобы (   Читать дальше...   )Жанр: Фантастика, Боевик, ТриллерРежиссер: Ридли Скотт / Ridley ScottАктеры: Харрисон Форд, Рутгер Хауэр, Шон Янг, Дэрил Ханна, Брайон Джеймс, Эдвард Джеймс Олмос, Джоанна КэссидиПеревод: Дубляж Варус-Видео, Многоголосый Киномания, Многоголосый Tycoon, Одноголосый А.Гаврилов , Одноголосый А.Гаврилов  VHS, Одноголосый Л.Володарский, Одноголосый В.ГорчаковаЯзык субтитров: Русские (3вида), АнглийскиеПродолжительность: 01:57:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE312EFAE50659FB08F846F57F143E07DFE58E61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 418020   (308531) от 04.12.2011
+
+Апокалипсис сегодня (Режиссерская версия) / Apocalypse Now (Redux version) (1979/2000) BDRemux [H.264/1080p]
+
+>>След.
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время войны во Вьетнаме спецагент отправляется вверх по реке в Камбоджу с приказом найти и убить полусумасшедшего полковника, создавшего в отдаленном районе нечто вроде собственного королевства насилия. По пути мы видим почти сюрреалистический мир ужасов войны.Производство: СШАЖанр: Драма, ВоенныйРежиссер: Фрэнсис Форд КопполаАктеры: Марлон Брандо, Мартин Шин, Роберт Дювалл, Харрисон Форд, Деннис Хоппер, Лоренс Фишбёрн, Фредерик Форрест, Сэм Боттомс, Альберт Холл, Г.Д. СпрэдлинПеревод: Многоголосый закадровый, АвторскийСубтитры: Английские, Английские (SDH), Русские (СОЮЗ), Русские (Дмитрий Пучков)Продолжительность: 03:16:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416810   (307964) от 09.11.2020
+
+Индиана Джонс: В поисках утраченного ковчега / Raiders of the Lost Ark (1981) BDRip [H.265/1080p] [10-bit]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный археолог и специалист по оккультным наукам доктор Джонс получает опасное задание от правительства США. Он должен отправиться на поиски уникальной реликвии - священного Ковчега. Но Индиана и не подозревает, что аналогичный приказ уже получили тайные агенты Адольфа Гитлера.Производство: США / Lucasfilm Ltd., Paramount PicturesЖанр: Боевик, приключенияРежиссер: Стивен СпилбергАктеры: Харрисон Форд, Карен Аллен, Пол Фримен, Рональд Лейси, Джон Рис-Дэвис, Денхолм Эллиотт, Альфред Молина, Вольф Калер, Энтони Хиггинс, Вик ТэблианПеревод: Профессиональный многоголосый, профессиональный двухголосый, авторскийСубтитры: Русские, английскиеПродолжительность: 01:55:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C482FBCE9DA73FE4946CB818901D773ADC7FA3DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253911   (306928) от 09.11.2018
 
 Крылышко или ножка / L'aile ou la cuisse / The Wing or The Thigh? (1976) BDRip [H.264/1080p]
@@ -6,7 +110,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306928.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306923.jpg" />
 </div>
 
 
@@ -60,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306556.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306094.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305201.jpg" />
 </div>
 
 
@@ -139,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305139.jpg" />
 </div>
 
 
@@ -165,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304077.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303975.jpg" />
 </div>
 
 
@@ -218,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303038.jpg" />
 </div>
 
 
@@ -246,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302900.jpg" />
 </div>
 
 
@@ -272,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302732.jpg" />
 </div>
 
 
@@ -298,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302721.jpg" />
 </div>
 
 
@@ -328,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301792.jpg" />
 </div>
 
 
@@ -359,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300722.jpg" />
 </div>
 
 
@@ -386,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298556.jpg" />
 </div>
 
 
@@ -412,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298517.jpg" />
 </div>
 
 
@@ -439,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298516.jpg" />
 </div>
 
 
@@ -465,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296708.jpg" />
 </div>
 
 
@@ -491,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295595.jpg" />
 </div>
 
 
@@ -517,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294795.jpg" />
 </div>
 
 
@@ -544,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294424.jpg" />
 </div>
 
 
@@ -570,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292889.jpg" />
 </div>
 
 
@@ -584,113 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A793C43F2B49A5525B4237A8A70312D8BC9B1169
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259859   (292790) от 16.11.2018
-
-Египтянин / The Egyptian (1954) BDRip [H.264/720p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Египет, XIV век до нашей эры. Страной правит фараон Аменхотеп IV, решивший изменить религию многобожия на поклонение единому божеству Атону. Культ Атона не был принят ни священнослужителями, ни жителями Египта и вызвал огромное негодование.
-В это же время молодой египтянин Синух выбирает профессию врача, и волею судьбы назначается лекарем самого Фараона. Он становится (   Читать дальше...   )Производство: США / 20th Century Fox FilmЖанр: Драма, Биография, ИсторияРежиссер: Майкл КёртицАктеры: Джин Симмонс, Виктор Мэтьюр, Джин Тирни, Майкл Уайлдинг, Белла Дарви, Питер Устинов, Эдмунд Пурдом, Джудит Эвелин, Генри Дэниелл, Джон КэррединПеревод: Многоголосый закадровый, двухголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 02:19:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01F8CB3B3A4077A71D670AEDBA87B7558843DDE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 730976   (292580) от 09.12.2013
-
-Повелитель мух / Lord of the Flies (1963) Blu-ray [H.264/1080p] [Criterion Collection]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292580.jpg" />
-</div>
-
-
-###  Подробнее
-
-По одноименному роману нобелевского лауреата, писателя Уильяма Голдинга.
-Самолет терпит аварию, все взрослые гибнут. Океан без конца и без края. Необитаемый островок. Жара, пальмы, бананы, кабаны, родник чистой пресной воды и таинственная пещера... Именно на этот островок попадает отряд из сорока мальчишек из привилегированной частной школы, оставшихся в живых после (   Читать дальше...   )Производство: Великобритания, Two Arts LtdЖанр: триллер, драма, приключенияРежиссер: Питер БрукАктеры: Джеймс Обри, Том Чэпин, Хью Эдвардс, Роджер Элвин, Том Геймен, Роджер Аллан, Дэвид Бранджис, Питер Дави, Кент Флетчер, Николас ХэммондПеревод: Многоголосый закадровый, Двухголосый закадровыйСубтитры: Английские, Русские (R5, Petrov - 1st Version, Petrov - 2st Version), Украинские (R5)Продолжительность: 01:30:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5D12280C722A964ACC207D6C89503CC23BAEE7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961082   (292394) от 05.12.2015
-
-Чингачгук – Большой Змей / Chingachgook, die grosse Schlange (1967) BDRip [H.264/720p-LQ]
-
->>След.
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292394.jpg" />
-</div>
-
-
-###  Подробнее
-
-1740 год. Английские войска пытаются отбить у французов их североамериканские колонии и втягивают в эту войну индейцев. В руки гуронов, которых французы натравили на делаваров, попадает Ватава, дочь вождя, обещанная Чингачгуку. Он собирается освободить ее с помощью своего друга Зверобоя. Неподалеку от лагеря гуронов они сталкиваются с охотниками за скальпами. Чингачгук (   Читать дальше...   )Производство: Германия (ГДР) / Киностудия ДефаЖанр: Приключения, Драма, Мелодрама, ВестернРежиссер: Рихард ГрошоппАктеры: Гойко Митич, Рольф Рёмер, Хельмут Шрайбер, Юрген Фрорип, Лило Гран, Андреа Драхота, Йоханнес Книттель, Адольф Петер Хоффманн, Хайнц Клевенов мл., Милан ЯблонскиПеревод: Дублированный (киностудия «Союзмультфильм», с вставками Ю.Сербина)Субтитры: ОтсутствуютПродолжительность: 01:27:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CBA706319AED6518575FB706BAE776CAB96FD58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 798155   (291652) от 07.12.2014
-
-Зануда / L'emmerdeur (1973) BDRip [H.264/720p-LQ] [Hi10P]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291652.jpg" />
-</div>
-
-
-###  Подробнее
-
-В город Монпелье прибыл юрист Луи Рандони, чтобы выступить с сенсационными разоблачениями на судебном процессе против боссов мафии, а следом за ним – киллер Ральф Милан, нанятый для устранения смелого правдоруба. Убийца с профессиональной дотошностью подготовился к исполнению заказа. И, несмотря на беспрецедентные меры по защите свидетеля, Рандони был обречен.
- Но (   Читать дальше...   )Жанр: КомедияРежиссер: Эдуар МолинароАктеры: Лино Вентура, Жак Брель, Каролин Селлье, Жан-Пьер Даррас, Нино Кастельнуово, Анджела Кардиле, Микеле Гаммино, Ксавье Депра, Франсуа Дирек, Жан-Луи ТристанПеревод: Дублированный, АвторскийЯзык субтитров: ФранцузскийПродолжительность: 01:24:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3124210DD90D11BEB2C300E4A34026379B24D8EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,159 +1,3 @@
-###  Публикация: 1597468   (166343) от 14.12.2022
-
-Джош Фишер, Нин Ван | Грокаем стриминг (2023) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166343.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стриминговые системы позволяют сократить до минимума время между событием и обработкой информации, чтобы вы получали результаты в реальном времени. В приложениях для финансовой сферы, в вопросах безопасности и IoT важна каждая миллисекунда, поэтому без стриминговых систем не обойтись. А еще — это модно и приносит деньги и IoT  Неслучайно специалисты в Spark, Heron (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62817E1A552838AC005C32B1265E7B15B8BD5067
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516428   (165962) от 11.12.2021
-
-Марк Блау | Удивительный интернет (2016) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интернет - одно из самых выдающихся достижений человеческой мысли, без которого невозможно представить современную цивилизацию. Миллионы людей сегодня пользуются им как в профессиональной деятельности, так и в повседневной жизни. Но большинство пользователей Всемирной сети имеет о ней очень поверхностное представление. Автор, специалист по информационным технологиям (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:140835B434B410221A9D1BD51C14B767C9767A67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431814   (165902) от 15.12.2020
-
-Л. Белл и др. | Безопасность разработки в Agile-проектах (2018) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165902.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гибкая (agile) разработка по-прежнему остается самой распространенной методологией создания программного обеспечения в мире, но она, вообще говоря, не интегрирована с традиционными способами управления безопасностью. И большинство специалистов по безопасности не торопятся разобраться в гибкой разработке и применить ее на практике. Чтобы перебросить мост через пропасть, (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E80AAAF31A9697E47DC7ACB807C0927521CA5CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584066   (165648) от 31.10.2023
-
-А.Н. Васильев | Серия "Российский компьютерный бестселлер" [12 книг] (2017-2023) [PDF](Обновляемая)
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165648.jpg" />
-</div>
-
-
-###  Подробнее
-
-В серию "Российский компьютерный бестселлер" вошли самоучители Алексея Васильева, доктора физико-математических наук и автора более пятнадцати книг по программированию. Все издания основаны на уникальной авторской методике обучения, которая помогла тысячам читателей освоить языки C, C++, Java, jаvascript и другие.Жанр: Компьютерная литератураИздательство: ЭксмоФормат: PDFКачество: Различное
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D21D7026D62F2129DCA27529BDE20714FC0BFCB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597531   (165628) от 15.12.2022
-
-Hans-Georg Schumann | Python für Kids: Programmieren lernen ohne Vorkenntnisse / Python для детей: учитесь программировать без каких-либо предварительных знаний (2023) [EPUB] [Ger]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Язык программирования Python настолько популярен, потому что он четко структурирован, современен и мощен. В этой книге Ханс-Георг Шуман покажет вам, как легко с его помощью воплощать идеи в программы. Вы научитесь писать простые программы с помощью множества маленьких и двух больших игр и быстро поймете, что такое циклы, классы, ветви и функции. Объектно-ориентированное (   Читать дальше...   )Жанр: ПрограммированиеЯзык: НемецкийФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E863188E394CE81050A35BD6132CB2B4C843785D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673398   (165061) от 01.11.2023
-
-Jeffrey L. Brewer, Kevin C. Dittman | Methods of IT Project Management, 4th Edition (2022) [PDF][EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165061.jpg" />
-</div>
-
-
-###  Подробнее
-
-В тексте читатели знакомятся со всеми концепциями, техниками, артефактами и методами, которые можно найти в ведущих справочниках по управлению проектами и современных методологиях разработки (agile, гибридной и традиционной), а также получают практические знания, которые могут быть немедленно применены в реальных условиях. В отличие от других книг в этой области, (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Purdue University PressФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2744E0C690224BA290DF9723CFEF374469EF13D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673405   (164813) от 01.11.2023
 
 Mark Simon | Leveling Up with SQL (2023) [PDF][EN]
@@ -162,7 +6,7 @@ Mark Simon | Leveling Up with SQL (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164813.jpg" />
 </div>
 
 
@@ -188,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164632.jpg" />
 </div>
 
 
@@ -216,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164147.jpg" />
 </div>
 
 
@@ -242,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163797.jpg" />
 </div>
 
 
@@ -268,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>2D графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163630.jpg" />
 </div>
 
 
@@ -294,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163494.jpg" />
 </div>
 
 
@@ -321,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163270.jpg" />
 </div>
 
 
@@ -348,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163242.jpg" />
 </div>
 
 
@@ -374,7 +218,7 @@ Olatunde Adedeji | Full-Stack Flask and React (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163015.jpg" />
 </div>
 
 
@@ -400,7 +244,7 @@ Viorel Rudareanu, Daniil Baturin | Linux for System Administrators (2023) [PDF][
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163005.jpg" />
 </div>
 
 
@@ -426,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162373.jpg" />
 </div>
 
 
@@ -453,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162072.jpg" />
 </div>
 
 
@@ -479,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161994.jpg" />
 </div>
 
 
@@ -506,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161640.jpg" />
 </div>
 
 
@@ -532,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161588.jpg" />
 </div>
 
 
@@ -560,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161577.jpg" />
 </div>
 
 
@@ -586,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161529.jpg" />
 </div>
 
 
@@ -612,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161441.jpg" />
 </div>
 
 
@@ -638,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161437.jpg" />
 </div>
 
 
@@ -664,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161105.jpg" />
 </div>
 
 
@@ -675,6 +519,162 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA80D6C8DC93C7F00388A8A4FB8BD68254BF02C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674688   (160756) от 06.11.2023
+
+Raghav Kandarpa, Shivangi Saxena | Data Wrangling with SQL (2023) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга начинается с ознакомления с основами SQL и посвящена основным принципам и методам работы с данными. Затем вы познакомитесь с такими продвинутыми концепциями SQL, как агрегатные функции, оконные функции, CTE и подзапросы. В следующей главе Вы рассмотрите различные функции в SQL-запросах, которые приводят к задержкам в преобразовании данных, и поможем понять, (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Packt PublishingФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F598B222537DC0679586677E942AD65347150A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674680   (160735) от 06.11.2023
+
+Dr. Gabriel N. Schenker | The Ultimate Docker Container Book, 3rd Edition (2023) [PDF][EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вначале вы освоите такие практические навыки, как настройка окружения Docker, работа с компонентами, имеющими состояние, выполнение и тестирование кода в контейнерах, управление образами Docker. Вы также узнаете, как адаптировать унаследованные приложения к контейнеризации и понять архитектуру распределенных приложений. Далее вы узнаете о сетевой модели Docker, программно-определяемых (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Packt PublishingФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA823C77CF68D2BE444DF37E0C4A01D8CBA2089B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674715   (160709) от 06.11.2023
+
+Дмитрий Колисниченко | Командная строка Linux (2023) [PDF, DJVU]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены задачи, которые выполняются из командной строки операционной системы Linux. Объясняется, как попасть в командную строку, работать в консоли, настраивать систему с помощью программ, обладающих только текстовым интерфейсом. Описаны особенности файловой системы Linux, наиболее полезные команды для работы с текстом, сетью и Интернетом, а также команды системного (   Читать дальше...   )Жанр: АдминистрированиеИздательство: БХВ-ПетербургФормат: PDF, DJVUКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E1C059E30AD35502F3D5BCF0786E9F3452D9666
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674848   (160508) от 07.11.2023
+
+Брюс Шнайер | Взломать всё. Как сильные мира сего используют уязвимости систем в своих интересах (2023) [FB2]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классический образ хакера – это специалист ИТ высочайшего класса, который знает несколько языков программирования, разбирается в устройстве систем безопасности и в два счета подберет пароль к вашему почтовому ящику. Он изучает системы для того, чтобы найти в них уязвимости и заставить работать в своих интересах. Однако взламывать можно не только компьютеры, но и (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: Михаил БелоголовскийИздательство: Альпина ПаблишерФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54472E60B07C306BD444812D1F0C2C3A66C15E64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675121   (160368) от 08.11.2023
+
+Andreas Deja | Уроки от "Девятки диснеевских стариков":  Изучаем техники и вдохновляемся работами великих аниматоров студии Дисней (2015) [PDF]
+
+>>Компьютерная литература
+>>2D графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уолт Дисней сгоряча назвал команду своих ведущих аниматоров «Девятка диснеевских стариков», но это прозвище вошло в историю. «Девятка» прославилась не только знаменитыми творениями – они сформулировали 12 базовых принципов анимации. Позвольте великому аниматору, легенде студии Дисней, Андреасу Дежа познакомить вас с мировоззрением, принципами и методами работы выдающихся (   Читать дальше...   )Жанр: АнимацияИздательство: Taylor and FrancisФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5502CFC1B8F824B2B996E0B187BA4360F0280F3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675378   (160193) от 09.11.2023
+
+В.П. Дьяконов | MATLAB R2006/2007/2008 + Simulink 5/6/7. Основы применения (2017) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга является вторым изданием первого тома 5-томной серии книг по системе MATLAB+Simulink. Впервые в одной книге описаны новейшие версии этой системы MATLAB R2006*/2007*/2008 и ее главного расширения Simulink (версии 5, 6 и 7), выполняющего блочное ситуационное моделирование. Эти, системы лидируют в численных расчетах и в математическом, блочном имитационном и ситуационном (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Солон-ПрессФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67D85B0A295D712E2AA1638A01F7E5B2DCAAA3B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

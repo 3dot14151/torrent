@@ -6,7 +6,7 @@ I Am Your God - The Resurrection (2020) [MP3|320 Kbps] <Melodic Death Metal, Pow
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189398.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ I Am Your God - SINister (2023) [MP3|320 Kbps] <Melodic Death Metal, Power Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189386.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Manntra - Venera (2015) [MP3|320 Kbps] <Folk Metal, Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188266.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Manntra - Horizont (2012) [MP3|320 Kbps] <Folk Metal, Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188264.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Manntra - Meridian (2017) [MP3|320 Kbps] <Folk Metal, Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188262.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Manntra - Oyka! (2019) [MP3|320 Kbps] <Folk Metal, Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188254.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Crypt Dweller - 4 Albums (2020-2022) [MP3|320 Kbps] <Doom Metal, Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187823.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Shedfromthebody - 3 Albums (2020-2022) [MP3|320 Kbps] <Doomgaze, Alternative Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187819.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Shamanic Ritual - 4 Albums (2019-2022) [MP3|320 Kbps] <Doom, Stoner, Sludge Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187570.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Mantric Momentum - Trial by Fire (2022) [Mp3|320 kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187549.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Cannibal Corpse - Chaos Horrific (2023) [MP3|320 Kbps] <Brutal Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187134.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Threshold - Dividing Lines (2022) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186915.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Nir Nakav - The Nir-Death Experiment (2020) [MP3|320 Kbps] <Progressive Metal, D
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185600.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Grymheart - Hellish Hunt (2023) [MP3|320 Kbps] <Melodic Death, Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184880.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Within Temptation - Live In Hell (2023) [MP3|320 Kbps] <Symphonic Rock, Symphoni
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184668.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Broken Lock - Postmodern Songs (2022) [MP3|320 Kbps] <Stoner, Sludge Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184648.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Innerforce - 2 Albums (2017, 2022) [Mp3|320 kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183946.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Whirlwind - 1714 (2022) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183141.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Coal and Steel - Miners for Real (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182498.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Spellmaster - Unearthed Arcana (2020) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182379.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Within Temptation - Ritual (2023) [MP3|320 Kbps] <Symphonic Rock, Symphonic Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182154.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Till Lindemann - Zunge (2023) Single [MP3|320 Kbps] <Industrial metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181314.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Iron Savior - Skycrest (2020) Japanese Edition [MP3|320 Kbps] <Heavy Metal, Powe
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180060.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Foreign - The Symphony Of The Wandering Jew Part II (2020) [MP3|320 Kbps] <Progr
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179272.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ Majestica - A Christmas Carol (2020) [MP3|320 Kbps] <Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179206.jpg" />
 </div>
 
 
@@ -727,7 +727,7 @@ L' impero delle ombre - I compagni di Baal (2011) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179044.jpg" />
 </div>
 
 

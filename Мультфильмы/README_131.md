@@ -1,3 +1,133 @@
+###  Публикация: 1399583   (725164) от 02.08.2020
+
+Навигатор / Fetiche en voyage de noces / The Navigator (1936) DVDRip [H.264] [FR] [hand made colored]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультфильм про то, как две собачки в свой медовый месяц совершали свадебное путешествие на корабле. Во время шторма корабль затонул, но молодая чета выжила и попала на райский остров.Производство: ФранцияЖанр: Кукольный, СказкаРежиссер: Ирен Старевич, Владислав СтаревичПеревод: отсутствуетСубтитры: нетПродолжительность: 00:09:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:003990CC164597C96B82EDA7A764783953EC984E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399770   (725080) от 02.08.2020
+
+Царь Дурандай (1934) TVRip [H.264] [hand made colored]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725080.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам народной сказки про царя Дурандая, который хотел жениться на царице Тетёхе, а для этого нужно было три её задания выполнить. Но был у царя помощник - кузнец Сила, который всё за него делал...Производство: СССР, Мультфабрика МежрабпомфильмЖанр: Рисованная анимация, СказкаРежиссер: Валентина Брумберг, Иван Иванов-Вано, Зинаида БрумбергСубтитры: отсутствуютПродолжительность: 00:20:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B06487CEC871AFB689C5FC6316C9961E4A4066CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399729   (724522) от 02.08.2020
+
+Нэчжа / Ne zha zhi mo tong jiang shi (2019) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724522.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небо и земля породили Жемчужину Хаоса, обладающую огромной силой, и образовавшийся демон сразу начал бушевать. Небесный владыка усмирил существо, разделил жемчужину на две - Жемчужину Духа и Жемчужину Демона - и заточил обе в цветок лотоса. А также наказал бессмертному Тайи проследить, чтобы Жемчужина Духа переродилась в третьего сына правителя Ли Цзына, которого (   Читать дальше...   )Производство: Китай / Coco Cartoon, Horgos Coloroom PicturesЖанр: Фэнтези, КомедияРежиссер: Ян ЮйПеревод: Двухголосый любительский, Многоголосый любительскийСубтитры: АнглийскиеПродолжительность: 01:50:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B7D16621C5FCFCAFDD420875E857B84FFC10916
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531029   (724270) от 14.02.2022
+
+Роботех: Теневые хроники / Robotech: The Shadow Chronicles (2006) DVDRip [H.264] [VO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724270.jpg" />
+</div>
+
+
+###  Подробнее
+
+К 2044 году человечество входит в эру роботехнологий и начинает освоение космоса. По возвращении из долгой межзвездной экспедиции основной флот людей обнаруживает, что Землю оккупировала инопланетная раса инвидов. Землянами были предприняты несколько безрезультатных попыток вернуть себе родную планету. А когда людям удается получить в свое распоряжение новые технологии (   Читать дальше...   )Производство: США, Harmony GoldЖанр: аниме, мультфильм, фантастикаРежиссер: Ли Дон-ук, Томми ЙунПеревод: Любительский одноголосыйСубтитры: отсутствуютПродолжительность: 01:28:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9C643C790DD5448BEBC1850260D27227671A735
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 326600   (724165) от 22.04.2011
+
+Дедушкина дудочка (1985) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Кукольный, ДетскийРежиссер: Галина ТургеневаПродолжительность: 00:10:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEBB51D7DECA7F270C77AFCC5F9A873852F49FE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 326769   (724160) от 22.04.2011
 
 Домовой и хозяйка (1988) DVDRip
@@ -6,7 +136,7 @@
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724160.jpg" />
 </div>
 
 
@@ -34,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724122.jpg" />
 </div>
 
 
@@ -61,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724029.jpg" />
 </div>
 
 
@@ -87,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724020.jpg" />
 </div>
 
 
@@ -113,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723919.jpg" />
 </div>
 
 
@@ -142,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723909.jpg" />
 </div>
 
 
@@ -168,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723758.jpg" />
 </div>
 
 
@@ -194,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723699.jpg" />
 </div>
 
 
@@ -220,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723647.jpg" />
 </div>
 
 
@@ -246,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723458.jpg" />
 </div>
 
 
@@ -273,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723445.jpg" />
 </div>
 
 
@@ -300,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723148.jpg" />
 </div>
 
 
@@ -326,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723147.jpg" />
 </div>
 
 
@@ -352,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723133.jpg" />
 </div>
 
 
@@ -378,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723128.jpg" />
 </div>
 
 
@@ -404,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723127.jpg" />
 </div>
 
 
@@ -430,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722962.jpg" />
 </div>
 
 
@@ -456,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722926.jpg" />
 </div>
 
 
@@ -482,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_722812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_722812.jpg" />
 </div>
 
 
@@ -508,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722550.jpg" />
 </div>
 
 
@@ -534,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722548.jpg" />
 </div>
 
 
@@ -545,137 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3EF33FF818EEA005CC71BB9588192CF5F20E79B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531506   (722489) от 15.02.2022
-
-Как утенок-музыкант стал футболистом (1978) WEB-DLRip [H.264/1080p-LQ] [Remastered AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722489.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о том, как утенок хотел доказать девочке, которая ему понравилась, что он может не только замечательно играть на трубе, но и ради нее научиться играть в футбол.Производство: СССР / СоюзмультфильмЖанр: мультфильм, короткометражкаРежиссер: Витольд БордзиловскийСубтитры: ОтсутствуютПродолжительность: 00:09:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D6BE8BDF312D27E779395BE5B8ECDC5D05F4A45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285187   (722430) от 25.02.2019
-
-Ральф против интернета / Ralph Breaks the Internet (2018) UHD BDRip [H.265/2160p-LQ] [10-bit]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722430.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этот раз Ральф и Ванилопа фон Кекс выйдут за пределы зала игровых автоматов и отправятся покорять бескрайние просторы Интернета, который может и не выдержать сокрушительного обаяния громилы.Производство: США, Walt Disney Animation Studios, Walt Disney PicturesЖанр: Мультфильм, Приключения, Комедия, Семейный, ФентезиРежиссер: Фил Джонстон, Рич МурПеревод: Дублированный (iTunes)Субтитры: Русские(Forced, Full), английские(Full,SDH)Продолжительность: 01:52:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AE6521E9A91FC28393758CAB8B6EE32C617D258
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453763   (722350) от 15.02.2022
-
-Достаточно Близко / Close Enough (2021) WEB-DL [H.264/1080p-LQ] (сезон 2, серии 1-8 из 8) NewStation
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет повествует о непростой жизни молодежи между 20 и 30 годами и об обычных проблемах, которые имеют место быть - работа, друзья, тусовки, дети, клоуны-стриптизеры, монстры, галлюцинации и прочее. Не правда ли, самый что ни на есть обычный набор бытовых проблем?Производство: США, Cartoon Network Studios,Жанр: Мультсериал для взрослых, фантастика, фэнтези, драма, комедияРежиссер: Дж.Дж. КуинтелАктеры: Брайан А. Миллер, Дженнифер Пелфри, Дж.Дж. Куинтел, Габриэль Уолш, Джессика ДиЧикко, Джеймс АдомианПеревод: Многоголосый профессиональный (NewStation)
-Присутствует ненормативная лексика!Субтитры: русские (MWT), английскиеПродолжительность: ~00:23:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:240D68134983C8DA13248F34B17DFEC062325B99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 327327   (722069) от 23.04.2011
-
-Как козлик землю держал (1974) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ДетскийРежиссер: Владимир ПолковниковРоли озвучивают: Рина Зеленая, Алексей Грибов, Тамара Дмитриева, Мария Виноградова, Мария БабановаПродолжительность: 00:09:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC07C4BDFE89F3A9A6048AE43BC11026BDBB60D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 790426   (722057) от 27.05.2014
-
-Бэмби / Bambi (1942) DVDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722057.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды утром на маленькой, освещенной весенним солнцем, лесной полянке родился олененок. На нового лесного принца сбежались и слетелись посмотреть все звери и птицы. Олененка назвали Бэмби. Когда Бэмби научился ходить и разговаривать он обзавелся друзьями — кроликом Тампером и скунсом Цветочком. А однажды на лугу, куда привела его мама, Бэмби познакомился с маленькой (   Читать дальше...   )Жанр: КомедияРежиссер: Джеймс Элгар, Сэмюэл Армстронг, Дэвид Хэнд, Грэхэм Хейд, Билл Робертс, Пол Сэттерфилд, Норман РайтПерсонажи: Харди Олбрайт, Стэн Александр, Бобетт Одри, Питер Бен, Тельма Бордман, Джанет Чэпман, Джинн Кристи, Долин Брэмстон Кук, Мэрион Дарлингтон, Тим Дэвис, Донни Данаган, Сэм Эдвардс, Энн Гиллис, Отис Хэрлан, Эдди Холден, Стерлинг Холлоуэй, Джек Хорнер, Тельма Хаббард, Кэмми Кинг, Мэри Лэнсинг, Маргарет Ли, Кларенс Нэш, Бабс Нельсон, Сандра Ли Ричардс, Франческа Санторо, (   Читать дальше...   )Перевод: ДублированныйПродолжительность: 01:09:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BC7D079696A2BA3CF262034365DDFFEBE527AC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

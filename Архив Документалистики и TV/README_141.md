@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666065.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ History Channel: Невероятные проекты древнего мира
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665940.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665793.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665792.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665740.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665726.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665725.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665720.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665719.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665648.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664963.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664909.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664898.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664896.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664895.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664692.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664567.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664490.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664487.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ History Channel: Поворот-наворот / Counting Cars (2014) HDTVRip [H
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664130.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664010.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663748.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663732.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ History Channel: Невероятные проекты древнего мира
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663706.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663098.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662926.jpg" />
 </div>
 
 

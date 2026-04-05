@@ -1,81 +1,3 @@
-###  Публикация: 1689100   (124910) от 31.12.2023
-
-Хо-Хо-Хо / Ho Ho Ho (2009) DVD9 [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Горацио уже 2 года живёт без отца. Задёрганная мать не успевает купить ему подарок на Рождество. В оправдание она говорит сыну, что Дед Мороз предложил ему самому выбрать подарок и везёт мальчика в торговый центр, возле которого их старенькая машина ломается. Мама оставляет его в кафе центра и возвращается на стоянку ждать бригаду ремонтников. В кафе Горацио знакомится (   Читать дальше...   )Производство: Румыния / Media Pro PicturesЖанр: драма, комедия, семейныйРежиссер: Хесус дель СерроАктеры: Штефан Бэникэ мл., Богдан Янку, Алина Кивулеску, Павел Бартос, Валентин Теодосию, Дэниэл Попеску, Гэбриел Костин, Юлия Лазар, Раиса Михай, Ралука АпродуПеревод: Одноголосый профессиональный, любительскийЯзык озвучки: Русский, румынскийСубтитры: Английские, испанскиеПродолжительность: 01:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4B56FD61F82809290FA4C43390E2747DA8B1799
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689349   (124828) от 01.01.2024
-
-Большая вода / Golemata voda / The Great Water (2004) DVD9 [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124828.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старый коммунист вспоминает перед смертью свое детство, проведенное в специальном лагере для сирот в послевоенной Югославии.Производство: Македония, Чехия, США, Германия / Artis 3, Castor Productions, Kaval Film, Lara Entertainment, World Circle FoundationЖанр: драма, военныйРежиссер: Иво ТрайковАктеры: Saso Kekenovski, Maja Stankovska, Митко Апостоловски, Верика Недеска, Ристо Гоговский, Николина Куяка, Мето Йовановски, Александр Рибак, Vladimir Svetiev, Петар МирчевскиПеревод: одноголосый любительский (den904)Язык озвучки: русский, английский, македонскийСубтитры: русские, английские, французскиеПродолжительность: 01:33:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE9102CBC019C9091B114A03DDCC42A28329C036
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689278   (124801) от 01.01.2024
-
-Охотники на монстров / Monsterjaegerne / Monster Busters (2009) DVD9 [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дедушка 12-летнего Оливера любил рассказывать истории из своего прошлого о том, как он охотился на монстров, но внук не очень-то верил деду. Когда же родители Оливера резко меняются в своем поведении, мальчик вместе с младшим братом Лассе обнаруживает, что из подвала, где дед хранил все самое ценное, исчез разбуженный от долгой спячки грозный монстр. И именно этот (   Читать дальше...   )Производство: Дания / M&M ProductionsЖанр: семейныйРежиссер: Мартин ШмидтАктеры: Карл Уинтер, Токе Бьярке, Матиас Мандруп Ларсен, Сара Меринг, Lærke Janken, Петер Мюгинд, Метта Агнета Хорн, Кьельд Норгаард, Джошуа Берман, Роберт ХансенПеревод: одноголосый любительский (Вячеслав Прошин)Язык озвучки: русский, датскийСубтитры: русские, датские, финские, норвежские, шведские, английскиеПродолжительность: 01:24:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A2AF8CDBEDE99A2D93FE343E104F0AF61DAD245
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689450   (124709) от 02.01.2024
 
 Война Марио / La Guerra di Mario / Mario's War (2005) DVD9 [DVO]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124709.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113307.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113300.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_99452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_99452.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_99435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_99435.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_99253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_99253.jpg" />
 </div>
 
 
@@ -240,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_97895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_97895.jpg" />
 </div>
 
 
@@ -266,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90574.jpg" />
 </div>
 
 
@@ -292,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90343.jpg" />
 </div>
 
 
@@ -318,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90295.jpg" />
 </div>
 
 
@@ -344,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89932.jpg" />
 </div>
 
 
@@ -370,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89689.jpg" />
 </div>
 
 
@@ -396,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89505.jpg" />
 </div>
 
 
@@ -422,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89487.jpg" />
 </div>
 
 
@@ -448,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89466.jpg" />
 </div>
 
 
@@ -474,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89095.jpg" />
 </div>
 
 
@@ -500,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88934.jpg" />
 </div>
 
 
@@ -527,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88280.jpg" />
 </div>
 
 
@@ -553,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87671.jpg" />
 </div>
 
 
@@ -579,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87577.jpg" />
 </div>
 
 
@@ -606,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87193.jpg" />
 </div>
 
 
@@ -632,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87068.jpg" />
 </div>
 
 
@@ -658,13 +580,93 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87059.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Специальный агент отряда «Миссия невыполнима» Итан Хант и его коллеги несправедливо обвинены в причастности к взрыву Кремля. Президент инициирует «Протокол Фантом», в результате которого спецподразделение ликвидировано, и Итан остается без какой-либо поддержки. Он намерен очистить свое доброе имя и предотвратить новую атаку, но делать это ему придется вместе с командой коллег, истинных мотивов которых он до конца не знает.Жанр: Боевик, Триллер, ПриключенияРежиссер: Брэд БёрдПродюсер: Джей Джей Абрамс, Брайан Берк, Том КрузАктеры: Том Круз, Пола Пэттон, Саймон Пегг, Джереми Реннер, Микаэл Нюквист, Владимир Машков, Самули Эдельманн, Иван Шведов, Анил Капур, Леа СейдуПеревод: ДублированныйЯзык субтитров: АнглийскийПродолжительность: 02:07:30
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479200   (86886) от 06.04.2012
+
+На грани / Man on a Ledge (2012) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экс-полицейский, обвиняемый в преступлении, которого он якобы не совершал, собирается покончить жизнь самоубийством, сбросившись с крыши одного из отелей на Манхэттене. С ним в переговоры вступает психолог нью-йоркской полиции. Напряжение нарастает с каждой минутой, на площадь стягиваются наряды спецподразделений, толпа оглашается женскими криками. А в это время на месте происшествия, прямо под носом у полиции, совершается грандиозное ограбление века: неизвестные похищают уникальные бриллианты…Жанр: Триллер, криминалРежиссер: Асгер ЛетАктеры: Сэм Уортингтон, Элизабет Бэнкс, Джейми Белл, Энтони Маки, Генезис Родригез, Эд Харрис, Эдвард Бёрнс, Мэнди Гонзалес, Барбара Марино, Дж. Смит-КамеронПеревод: ДублированныйПродолжительность: 01:38:15
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478764   (86799) от 06.04.2012
+
+Отпуск по обмену / The Holiday (2006) DVD5
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Айрис Симпкинс, автор популярной свадебной колонки в лондонской «Daily Telegraph», живет в очаровательном коттедже в английской провинции. Она влюблена в мужчину, который любит другую. Далеко от нее в Южной Калифорнии живет Аманда Вудс, владелица процветающего рекламного агентства, занимающегося созданием роликов для фильмов. Она вдруг обнаруживает, что любимый человек ей изменяет.
+
+Две незнакомые друг с другом женщины, живущие на расстоянии 10 000 километров друг от друга, оказываются в сходной ситуации. И они находят друг друга. В Интернете, на сайте обмена жильем на время отпуска. Перед Рождеством Айрис и Аманда решают отдохнуть от своих проблем, договорившись поменяться континентами и пожить друг у друга в течение двух недель. Айрис переезжает в дом Аманды в солнечной Калифорнии, а Аманда приезжает в засыпанную снегом английскую провинцию…Жанр: Мелодрама, КомедияРежиссер: Нэнси МайерсАктеры: Кэмерон Диаз, Джуд Лоу, Кейт Уинслет, Джек Блэк, Эдвард Бернс, Руфус СьюэллПеревод: ДублированныйЯзык субтитров: английский, испанский, французскийПродолжительность: 02:15:32
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478560   (86775) от 06.04.2012
+
+Город волков / Wolf Town (2010) DVD5
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кайл, застенчивый студент колледжа с тремя друзьями оказываются пойманными в ловушку стаей свирепых волков, в старом заброшенном городе. Теперь он должен преодолеть свои страхи и противостоять волкам, что бы спасти себя и своих друзей…Жанр: Ужасы, ТриллерРежиссер: Джон РебелАктеры: Алисия Циглер, Джош Келли, Макс АдлерПеревод: Двуголосый закадровыйЯзык субтитров: русскийПродолжительность: 01:24:47
 
 ## Скачать торент
 ```bash

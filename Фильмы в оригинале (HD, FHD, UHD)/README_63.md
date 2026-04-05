@@ -1,3 +1,29 @@
+###  Публикация: 1800025   (16127) от 31.05.2025
+
+Игра вдовы / La viuda negra / A Widow's Game (2025) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Безупречный образ женщины дает трещину, когда ее мужа находят мертвым. Этот триллер о тайной двойной жизни основан на реальных событиях.Производство: Испания / Bambú ProduccionesЖанр: драма, криминалРежиссер: Карлос СедесАктеры: Ивана Бакеро, Тристан Ульоа, Кармен Мачи, Марта Беленгер, Джоэль Санчез, Педро Касабланк, Пабло Молинеро, Пепе Осио, Инма Санчо, Хуан Мануэль БаррейроПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, Английские (Forced, Full, SDH)Продолжительность: 02:02:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED16ADA8A9021791F04D9E06CDD040362B515749
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800843   (15530) от 06.06.2025
 
 Хищник: Убийца убийц / Predator: Killer of Killers (2025) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
@@ -6,7 +32,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15530.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13640.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12890.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11564.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8481.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8323.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7952.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7384.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6943.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6720.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5879.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5725.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5613.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4861.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4351.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3659.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2632.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1999.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1209.jpg" />
 </div>
 
 

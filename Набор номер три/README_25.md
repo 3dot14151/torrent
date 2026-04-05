@@ -1,3 +1,163 @@
+###  Публикация: 146232   (1027785) от 05.03.2021
+
+Shpongle - Discography 31 Releases (1998-2021) Twisted Records [FLAC|Lossless|tracks+.cue, tracks]<Psychill, Tribal, Downtempo, Ambient, Psy-Trance>
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ineffable Mysteries (10:14)
+ 02. Beija Flor (06:12)
+ 03. Dorset Perception (08:13)
+ 04. Periscopes Of Consciousness (03:27)(   Читать дальше...   )Тип издания: CD, Web, Vinyl •Жанр: Psychill, Tribal, Downtempo, Ambient, Psy-Trance •Продолжительность: 28:54:11 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9851E4DF95CF377E305CDF2532D970C6FE7C7BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344590   (1027782) от 05.03.2021
+
+Transport Fever 2 (2019) [Ru/Multi] (31994) License GOG
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Transport Fever 2 – классический симулятор транспорта, продолжающий традиции серии, в котором вам предстоит построить собственную транспортную бизнес-империю. Откройте для себя совершенно новый мир, управляя транспортными маршрутами на суше, воде и в воздухе. Добейтесь прогресса, и путь к успеху гарантирован.Тип издания: LicenseРазработчик: Urban GamesЖанр: Simulator, StrategyЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53AA52DDCD7B2C4AD6C3CFD3E5EE936BC3ED1046
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278796   (1027781) от 05.03.2021
+
+Microsoft Office Word 2007 SP3 Standard 12.0.6798.5000 Portable by Spirit Summer [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из всего пакета офисных программ Microsoft — Office Word является одной из самых популярных и полезных. Word 2007 – это надежный и проверенный временем редактор, обладающий отличным функциональным наполнением для создания и редактирования текстовых документов.
+Несмотря на относительно давний срок его выпуска, софт по-прежнему популярен среди пользователей. Простой (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E6DF6A7CCF4DE3110CB804D4EB178C68B10B93B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444447   (1027780) от 05.03.2021
+
+Отпуск (2021) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-19 из 19 + Фильм о сериале)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027780.jpg" />
+</div>
+
+
+###  Подробнее
+
+Геленджик. Семья северян в одиннадцатый раз приезжает отдыхать в гестхаус к семье южан. Саша - старший сын северян, хочет сделать предложение Люсе - дочери южан, с которой он дружит с детства. Но Саша еще не знает, что у нее есть парень. Сашина мама Лариса, устав от выходок непутевого мужа Севы, решает развестись. У Севы есть время до конца отпуска, чтобы сохранить (   Читать дальше...   )Производство: Россия / 123 Продакшн, Телеканал ТНТЖанр: комедияРежиссер: Александр БойковАктеры: Демис Карибидис, Павел Майков, Юлия Подозерова, Кузьма Сапрыкин, Татьяна Догилева, Катрин Асси, Валентина Карнаухова, Арарат Кещян, Альбина Кабалина, Сергей Епишев и др.Продолжительность: ~00:29:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECD141D8B45A40DFAC36677EAEC2D3E6D768DBD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452044   (1027638) от 06.03.2021
+
+Учёные открыли новую элементарную частицу
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российские ученые из МФТИ, МИФИ и ФИАН, работающие в составе международной коллаборации CMS (англ. Compact Muon Solenoid) на Большом адронном коллайдере в ЦЕРН, объявили об обнаружении новой элементарной частицы. Впервые открыто орбитальное возбуждение (резонанс) Ξb(6100)– прелестно-странного бариона. Оно распадается на основное состояние Ξb– («кси бэ минус (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451915   (1027630) от 06.03.2021
+
+Jeep  готов отказаться от бренда Cherokee
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027630.jpg" />
+</div>
+
+
+###  Подробнее
+
+Руководство группы компаний Stellantis заявило о готовности убрать слово «Cherokee» из названия ряда моделей Jeep после недавней критики со стороны вождя североамериканского племени индейцев чероки. Как сообщает The Wall Street Journal, в настоящее время Stellantis ведет переговоры с племенем чероки в штате Оклахома по поводу использования слова «Cherokee» в названии (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452466   (1027610) от 06.03.2021
 
 Symantec Endpoint Protection 14.3 RU1 MP1 (14.3.3580.1100) [Ru/En]
@@ -6,7 +166,7 @@ Symantec Endpoint Protection 14.3 RU1 MP1 (14.3.3580.1100) [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027610.jpg" />
 </div>
 
 
@@ -32,7 +192,7 @@ Civilization VI + Mod Unlocked v1.2.0 b2140962 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027609.jpg" />
 </div>
 
 
@@ -58,7 +218,7 @@ Breathedge (2021) [Ru/En] (1.0.0.0) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027606.jpg" />
 </div>
 
 
@@ -84,7 +244,7 @@ Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.1
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027604.jpg" />
 </div>
 
 
@@ -110,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027601.jpg" />
 </div>
 
 
@@ -136,7 +296,7 @@ Microsoft Office 2007 SP3 Standard 12.0.6798.5000 (Excel + PowerPoint + Word) Po
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027600.jpg" />
 </div>
 
 
@@ -165,7 +325,7 @@ Proton близок к полноценной поддержке 7000 Windows-и
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027461.jpg" />
 </div>
 
 
@@ -191,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027447.jpg" />
 </div>
 
 
@@ -217,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>20
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027424.jpg" />
 </div>
 
 
@@ -244,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027423.jpg" />
 </div>
 
 
@@ -270,7 +430,7 @@ Age of Empires III (3): Definitive Edition (2020) [Ru/Multi] (100.12.14825.0/dlc
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027422.jpg" />
 </div>
 
 
@@ -296,7 +456,7 @@ Microsoft Office 2007 SP3 Enterprise (Access + Excel + PowerPoint + Publisher + 
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027421.jpg" />
 </div>
 
 
@@ -325,7 +485,7 @@ SnowRunner (2020) [Ru/Multi] (12.1/dlc) Repack xatab [Premium Edition]
 >>29
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027420.jpg" />
 </div>
 
 
@@ -351,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027273.jpg" />
 </div>
 
 
@@ -377,7 +537,7 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая охота (2015) [Ru/Mu
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027264.jpg" />
 </div>
 
 
@@ -403,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027263.jpg" />
 </div>
 
 
@@ -429,7 +589,7 @@ The Sims 2 Ultimate Collection (2004-2008) [Ru/Multi] (1.17.0.66/dlc) License
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027262.jpg" />
 </div>
 
 
@@ -455,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027261.jpg" />
 </div>
 
 
@@ -481,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027131.jpg" />
 </div>
 
 
@@ -508,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027125.jpg" />
 </div>
 
 
@@ -519,163 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A3797C8654796542FD4FD29A1ECAD77483BAE08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336123   (1027122) от 09.03.2021
-
-Андрей Васильев | Собрание произведений [50 книг] (2013-2021) [FB2] [Обновляемая]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Андрей Александрович Васильев родился 31 июля 1973 года в Москве, где и вырос. Получил педагогическое и юридическое образование. Работает в банковской сфере. Женат, воспитывает сына. Увлекается букинистикой: коллекционирует издания серии «Библиотека приключений и научной фантастики».
-Писательством занялся спонтанно в 2013 году.Жанр: Фантастика, Фэнтези, ЛитРПГ, Боевая фантастика, Героическая фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34713D3EEF70363927B1262B5B0F28003DC08AAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173960   (1027121) от 09.03.2021
-
-Децентрализация как ответ беспределу: система доменных имен, которые невозможно разделегировать (nnm-club.lib и другие)
-
->>3
->>15
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027121.jpg" />
-</div>
-
-
-###  Подробнее
-
-С момента создания в 2009 году, распределённая децентрализованая денежная система Bitcoin приобрела широкое распространение. И далеко не в последнюю очередь вследствие того, что людям не нравится, когда за них решают, как распоряжаться их деньгами.Если Роскомнадзор ранее только блокировал сайты на территории РФ, а иностранные пользователи могли получить доступ беспрепятственно, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453008   (1027038) от 10.03.2021
-
-Компания Apple планирует выпустить  шлем, очки и даже линзы дополненной реальности
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027038.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Apple планирует выпустить гарнитуру смешанной реальности «в середине 2022 года», а очки дополненной реальности — в 2025 году. Кроме того, в следующем десятилетии Apple представит контактные линзы с возможностями устройств дополненной реальности. Об этом пишет ресурс MacRumors со ссылкой на прогноз авторитетного аналитика Мин-Чи Куо (Ming-Chi Kuo).Аналитик (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452835   (1027000) от 10.03.2021
-
-Откуда взялись элементы?
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все, что когда-либо существовало или когда-либо будет существовать, стало возможным благодаря некоторой перестановке или комбинации элементов, найденных в периодической таблице. Этот красочный набор элементов содержит целую вселенную информации. Таблица Менделеева делает нашу жизнь намного проще, но в то же время и труднее!Это не только помогает нам помнить и понимать (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453293   (1026820) от 11.03.2021
-
-С 10 марта Роскомнадзор будет замедлять скорость работы соцсети Twitter в России
-
->>3
->>10
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роскомнадзор решил замедлить скорость работы соцсети на 100% мобильных и 50% стационарных устройств в связи с нарушением ресурсом российского законодательства«В Twitter в период с 2017 года по настоящее время не удаляется контент, склоняющий несовершеннолетних к совершению самоубийств, содержащий детскую порнографию, а также информацию об использовании наркотических (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453614   (1026818) от 11.03.2021
-
-Adobe Photoshop 2021 22.3.0.49 (x64) RePack by SanLex [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026818.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop — лучшее в мире ПО для графического дизайна и обработки изображений, которое воплотит в реальность любые ваши идеи. Создавайте и улучшайте фотографии, иллюстрации и графические 3D-объекты. Разрабатывайте дизайн веб-сайтов и мобильных приложений. Редактируйте видео, моделируйте живые картины и т. д. Теперь у вас есть все необходимое для реализации (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8AB8867099D631263B50C62D37DCFBC5BDE29F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

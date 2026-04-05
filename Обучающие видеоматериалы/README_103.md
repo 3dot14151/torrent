@@ -1,3 +1,31 @@
+###  Публикация: 1392020   (770294) от 23.06.2020
+
+Polygon Runway | Стань 3D иллюстратором в Blender 2.8 / Become a 3D illustrator in Blender 2.8 by Roman Klco (2020) PCRec [H.264/1080p-LQ] [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучите стили иллюстраций, которые помогли мне достичь аудитории 100k+. Поднимитесь на борт и раскройте свой творческий потенциал уже сегодня!
+Со мной вы сразу же переходите к действию и в течение первого часа Вы получите свою первую 3D-иллюстрацию! Позвольте мне показать вам образ, который создал один из студентов. Один час урока - это все, что потребовалось!
+Я (   Читать дальше...   )Производство: Polygon RunwayЖанр: 3D моделированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 20:34:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3446BF416ACD2521D15C460CFBF5755294D4296
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1016458   (770002) от 14.05.2016
 
 ITVDN | Видео курс Выполнение домашнего задания по курсу C# Стартовый (2016) PCRec
@@ -6,7 +34,7 @@ ITVDN | Видео курс Выполнение домашнего задани
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770002.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ ITVDN | Unity 3D User Interface (2016) PCRec [H.264/720p]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769998.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ Udemy | Web приложение - IShop: Servlets, JSP, JSTL, Custom tags (2016
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769641.jpg" />
 </div>
 
 
@@ -86,7 +114,7 @@ CGMA | Mastering Destruction in Houdini (2019) PCRec[En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769018.jpg" />
 </div>
 
 
@@ -113,7 +141,7 @@ Udemy | Макет интернет магазина - IShop: HTML, CSS, JS, Boo
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769014.jpg" />
 </div>
 
 
@@ -140,7 +168,7 @@ Udemy | Основы программирования - Крестики-нол�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769011.jpg" />
 </div>
 
 
@@ -166,7 +194,7 @@ Udemy | Web приложение - My Blog: Servlets, JSP, JSTL, JDBC, Eclipse (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768867.jpg" />
 </div>
 
 
@@ -193,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768846.jpg" />
 </div>
 
 
@@ -219,7 +247,7 @@ Udemy | Web приложение - My Resume на базе фреймворка 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768838.jpg" />
 </div>
 
 
@@ -247,7 +275,7 @@ V-Stock | Торговля опционами (2015) PCRec
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768642.jpg" />
 </div>
 
 
@@ -273,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768503.jpg" />
 </div>
 
 
@@ -302,7 +330,7 @@ Lynda.com | Video Post Productivity Weekly (Updated5/1/2018) WEB-DL [H.264/720p-
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768285.jpg" />
 </div>
 
 
@@ -328,7 +356,7 @@ ProfIT | DBA Введение в профессию (2015) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768035.jpg" />
 </div>
 
 
@@ -354,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767530.jpg" />
 </div>
 
 
@@ -381,7 +409,7 @@ Lynda.com | Video Production and Post Tips (Updated3/31/2017) WEB-DL [H.264/720p
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767528.jpg" />
 </div>
 
 
@@ -407,7 +435,7 @@ CreativeLive.com | Cinematographer's Preparation (2016) WEB-DL [H.264/720p-LQ] [
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767467.jpg" />
 </div>
 
 
@@ -433,7 +461,7 @@ Udemy | Корпоративное приложение Myphotos: JEE 7, NetBean
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767460.jpg" />
 </div>
 
 
@@ -459,7 +487,7 @@ Lectrum | Продвинутый онлайн-курс по Backend (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767423.jpg" />
 </div>
 
 
@@ -486,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767264.jpg" />
 </div>
 
 
@@ -514,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767156.jpg" />
 </div>
 
 
@@ -540,7 +568,7 @@ ITVDN | Angular Advanced (2017) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767155.jpg" />
 </div>
 
 
@@ -566,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766774.jpg" />
 </div>
 
 
@@ -593,7 +621,7 @@ Udemy | Хитрости работы с EXCEL (2017) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766658.jpg" />
 </div>
 
 
@@ -620,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766490.jpg" />
 </div>
 
 
@@ -646,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766351.jpg" />
 </div>
 
 
@@ -658,32 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393965   (766055) от 02.07.2020
-
-Lynda.com | Camera Movement for Video Productions (2014) WEB-DL [H.264/720p-LQ] [EN]
-
->>Обучающие видеоматериалы
->>Фотография и Видео (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кинопроизводство является понятием, основанным на движении: действие происходит не только в кадре, но также камера движется сама. Возможность придать камере движение – это то, что отделяет операторов-новичков от профессионалов. В данном курсе мастистый инструктор по продакшену объяснит важность движения камеры и пользу включения её в ваши видео-проекты. Уроки даются (   Читать дальше...   )Производство: Lynda.comЖанр: Видеоурок, туториалЯзык озвучки: АнглийскийПродолжительность: 0:46:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57CD7BF5D7DFAC48CC752FA2601B02ABF3CAA536
 ```
 
 https://mybot314.ru/tekegram_catalog/

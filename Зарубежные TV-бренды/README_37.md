@@ -6,7 +6,7 @@ BBC: Планеты / The Planets (1999) DVDRip (сезон 1, серии 1-8 и
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745124.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743873.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ BBC: История возникновения лекарств / BBC: Pain, Pus
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743450.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743334.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ NG: Птица-динозавр / Dino-Bird (2017) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743238.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743216.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ BBC: Тайны тёмной энергии / BBC: The Mysteries of Dark Energy 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743206.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ BBC: Антарктическая полярная станция / Ice Station 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742489.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ BBC: Чудеса живой природы / Nature's Great Events (2005) DVDRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742281.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742061.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Discovery: Природа Ближнего Востока / Wildest Middle East 
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742029.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Animal Planet: Загадочные животные острова Джао / T
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741938.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ BBC: Мир природы - Горы тропических дождей  / Nat
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740912.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ BBC: Живая Природа. Райские птицы / BBC: Natural World. 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740833.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Discovery: Разгневанная планета (Бушующая плане�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740647.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740309.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ BBC: Horizon. Что было до Большого взрыва / What Happened
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740094.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ NGW. Волчьи горы / The Wolf Mountains (2013) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739593.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Animal Planet: Дом для рептилий. Террариум в балий�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739591.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ PBS Nature: Тайная жизнь леопарда / Revealing the Leopard (20
 >>PBS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739518.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ NG. Черная мамба: поцелуй смерти / Black Mamba Kiss of D
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739515.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ NG: Дьяволы морских глубин / Devils of the Deep (2003) DVD5
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739410.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ NG: Реальность или фантастика / NG: Is it Real? [19 се�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739399.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ BBC: Серенгети / Serengeti II (2021) WEB-DL [H.264/1080p] (сезон 2
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738347.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ BBC. Брачная Игра / The Mating Game (2021) WEB-DL [H.265/2160p] [4K, 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738341.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Discovery. Аляска: Семья из леса / Alaskan Bush People (2021) H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738043.jpg" />
 </div>
 
 

@@ -1,3 +1,148 @@
+###  Публикация: 1009792   (807594) от 22.04.2016
+
+Агата Кристи - Коварство И Любовь (1991) 1995 Extraphone [FLAC|Lossless|tracks + .cue] <Art Rock, Goth Rock, Avantgarde>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Агата Кристи - Инспектор По... (2:30)
+02. Viva Kalman! (2:40)
+03. Африканка (3:01)
+04. Сытая свинья (4:24)(   Читать дальше...   )Жанр: Art Rock, Goth Rock, AvantgardeПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E562C8C592F39D3880E3EFCBCB0D3C4EA73300A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119366   (807493) от 28.03.2017
+
+Harakiri for the Sky - III: Trauma (2016) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calling the Rain
+02. Funeral Dreams
+03. Thanatos
+04. This Life as a Dagger(   Читать дальше...   )Жанр: Black MetalПродолжительность: 01:15:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6932BABEA809B6647B20053BA13726EB5414F6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009820   (807464) от 22.04.2016
+
+Агата Кристи - Позорная Звезда (1993) 1995 Extraphone [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Айлавью (4:16)
+02. Нисхождение (4:38)
+03. Сирота (4:19)
+04. Новый год (3:11)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:737D4F6AC8376D17243968BC2E655BBCCFC978A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119433   (807348) от 28.03.2017
+
+Ol' 55 - Take It Greasy (1976) Reissue, 1991, Mushroom [FLAC|Lossless|tracks + .cue] <50's Classic Rock, Rock'n'Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro: Summertime, Summertime
+02. The Iridiscent Pink Sock Blues
+03. I Wonder Why?
+04. Almost Grown(   Читать дальше...   )Жанр: 50's Classic Rock, Rock'n'RollПродолжительность: 00:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD958C943BC92669DE6012DD1331290B44781D7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119482   (807342) от 28.03.2017
+
+Billy Swan - I Can Help (1974) Reissue, 1985, Epic [FLAC|Lossless|tracks] <Soft Rock, Country, Rock'n'Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lover Please
+02. I Can Help
+03. I'm Her Fool
+04. I'd Like To Work For You(   Читать дальше...   )Жанр: Soft Rock, Country, Rock'n'RollПродолжительность: 00:34:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A50249ADC746E4531F2E6EF4AFDE4AABB77FFCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119500   (807339) от 28.03.2017
 
 Dreams In Stereo - Chapter 1 - Yesterday's Dreams (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive rock, Ambient, Experimental>
@@ -6,7 +151,7 @@ Dreams In Stereo - Chapter 1 - Yesterday's Dreams (2015) [FLAC|Lossless|WEB-DL|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807339.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ The Mavericks - Brand New Day (2017) [FLAC|Lossless|tracks + .cue] <Rock, Americ
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807338.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ B-Movie - The Age Of Illusion (2013) [FLAC|Lossless|image + .cue] <Electronic Po
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807334.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Agnostic Front - The American Dream Died (2015) [MP3|320 кб/с]<Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807198.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807094.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Electric Light Orchestra - Flashback (box set compilation) (2000) [MP3|320 kbps]
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807004.jpg" />
 </div>
 
 
@@ -177,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806963.jpg" />
 </div>
 
 
@@ -206,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806782.jpg" />
 </div>
 
 
@@ -235,7 +380,7 @@ Galahad Electric Company - Soul Therapy (2021) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806523.jpg" />
 </div>
 
 
@@ -264,7 +409,7 @@ Silent Opera - Reflections (2014) [FLAC|Lossless|image + .cue] <Symphonic Gothic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806521.jpg" />
 </div>
 
 
@@ -293,7 +438,7 @@ Winter Rose - Winter Rose (1989) Japanese Edition, Reissue, 1997, Victor [FLAC|L
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806512.jpg" />
 </div>
 
 
@@ -324,7 +469,7 @@ Little Gerard L'Her (ex. Rockets) - A Perfect World (2008) CD [MP3|320 Kbps] <El
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806511.jpg" />
 </div>
 
 
@@ -353,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806446.jpg" />
 </div>
 
 
@@ -382,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806442.jpg" />
 </div>
 
 
@@ -411,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806439.jpg" />
 </div>
 
 
@@ -443,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806437.jpg" />
 </div>
 
 
@@ -469,7 +614,7 @@ Catalyst Crime - Catalyst Crime (2021) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Symphon
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806428.jpg" />
 </div>
 
 
@@ -498,7 +643,7 @@ Unreverse - Atomic Race (2011) [MP3|320 Kbps] <Electronic, Rock, Pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806398.jpg" />
 </div>
 
 
@@ -527,7 +672,7 @@ Ozzy Osbourne - Down To Earth (2001) 20th Anniversary Expanded Edition, Reissue,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806397.jpg" />
 </div>
 
 
@@ -556,7 +701,7 @@ Rockets LBM Project - Universe One (2019) CD [MP3|320 Kbps] <Electronic, Space R
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806388.jpg" />
 </div>
 
 
@@ -585,7 +730,7 @@ Pink Floyd - A Saucerful of Secrets (1968) Remastered 2011, Pink Floyd Records [
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806387.jpg" />
 </div>
 
 
@@ -599,148 +744,6 @@ Pink Floyd - A Saucerful of Secrets (1968) Remastered 2011, Pink Floyd Records [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA22FF6ADF3946FD7D868B3883B28E35DC7FCE4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504891   (806380) от 26.10.2021
-
-Pink Floyd - The Piper at the Gates of Dawn (1967) Remastered 2011, Pink Floyd Records [FLAC 2.0|192/24|WEB-DL|tracks] <Psychedelic rock, Experimental rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Astronomy Domine (4:12)
-02. Lucifer Sam (3:07)
-03. Matilda Mother (3:08)
-04. Flaming (2:46)(   Читать дальше...   )Жанр: Psychedelic rock, Experimental rockПродолжительность: 00:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:757D9C246C7478D9AD854B611395A5127B561C8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198590   (806365) от 12.01.2018
-
-Сруб - Скорбь (2018) [MP3|320 Kbps] <Post-Punk, Dark Folk, Occult Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806365.jpg" />
-</div>
-
-
-###  Подробнее
-
-"...Когда я возвратился, в маленьком доме царила мертвая тишина, покойник, по русскому обычаю, лежал на столе в зале, поодаль сидел живописец Рабус, его приятель, и карандашом, сквозь слёз, снимал его портрет; возле покойника молча, сложа руки, с выражением бесконечной грусти, стояла высокая женская фигура; ни один артист не сумел бы изваять такую благородную (   Читать дальше...   )01. По Ягоды
-02. Вспять
-03. В чаще, где пал крест
-04. Храни(   Читать дальше...   )Жанр: Post-Punk, Dark Folk, Occult PunkПродолжительность: 00:41:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAA100D633261FDDF82EB4E22F7B0F5601E84C3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198620   (806361) от 12.01.2018
-
-Black Rebel Motorcycle Club - Wrong Creatures (2018) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Garage Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DFF (01:54)
-02. Spook (03:45)
-03. King Of Bones (03:56)
-04. Haunt (05:50)(   Читать дальше...   )Жанр: Blues Rock, Garage Rock, Indie RockПродолжительность: 00:59:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C0BEC71296A1E0A1B65DF401F64F5EED1BCE6A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198592   (806360) от 12.01.2018
-
-7Б - 13 декабрь (2018) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806360.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 13 декабрьЖанр: RockПродолжительность: 00:03:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1CB87752BD3AC063C50A0ED8FA7900E83654E1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384178   (806352) от 18.05.2020
-
-Taurus 5 - Taurus 5 (1980) LP [MP3|320 Kbps] <Hard Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Haine Des Gens (4:56)
-02. La Fille Du Diable (3:56)
-03. Toujours Ce Meme Reve (3:43)
-04. Quand Je Te Vois (5:03)(   Читать дальше...   )Жанр: Hard Rock, Prog RockПродолжительность: 00:34:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ADF2985896D01B4DBD7BA39944B5EA092D1E4BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

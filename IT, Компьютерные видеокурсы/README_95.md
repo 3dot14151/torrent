@@ -1,30 +1,3 @@
-###  Публикация: 1432252   (164861) от 16.12.2020
-
-IAmTimCorey, Tim Corey | Изучение C#: Blazor WebAssembly / Exploring C#: Blazor WebAssembly (2020) PCRec [En]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Появляются новые технологии, и все об этом говорят. Но как этому научиться? Вы не можете найти никаких хороших руководств. Вы смотрите на примеры, но не знаете, с чего начать. Конечно, вы хотите изучить Blazor WebAssembly. Я собираюсь научить вас пяти ключевым темам Blazor WebAssembly.
-Но как насчет следующей новинки, которая выйдет? Вам не просто нужно, чтобы кто-то (   Читать дальше...   )Производство: IAmTimCoreyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 06:15:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4987D6207E846A464A51FDDB90A379659CADDAA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516886   (164119) от 13.12.2021
 
 Александр Ожгибесов | Семантическое ядро для СНГ и Западных рынков (2021) PCRec
@@ -33,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164119.jpg" />
 </div>
 
 
@@ -59,7 +32,7 @@ Udemy, Stephen Ulibarri | Unreal Engine C++ The Ultimate Game Developer Course (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163981.jpg" />
 </div>
 
 
@@ -88,7 +61,7 @@ Erick Wendel | Mastering Node.js Streams with Erick Wendel (2022) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163919.jpg" />
 </div>
 
 
@@ -115,7 +88,7 @@ SkillUP | Тестировщик ПО с гарантией трудоустро
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163894.jpg" />
 </div>
 
 
@@ -141,7 +114,7 @@ JUG Ru Group | HolyJS 2022 Autumn. Конференция для JavaScript‑р
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163877.jpg" />
 </div>
 
 
@@ -167,7 +140,7 @@ JUG Ru Group | Joker 2022. Конференция для опытных Java-р�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163802.jpg" />
 </div>
 
 
@@ -193,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163624.jpg" />
 </div>
 
 
@@ -222,7 +195,7 @@ GeekBrains | Факультет веб-разработки (2021) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163097.jpg" />
 </div>
 
 
@@ -250,7 +223,7 @@ Softwaretesting , Наталья Руколь | Школа тест-менедж
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162726.jpg" />
 </div>
 
 
@@ -279,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162522.jpg" />
 </div>
 
 
@@ -308,7 +281,7 @@ Udemy, Visadi Khalikov | Этичный хакинг с Metasploit для нач
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162508.jpg" />
 </div>
 
 
@@ -334,7 +307,7 @@ HTML Academy | JavaScript. Архитектура клиентских прил�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162486.jpg" />
 </div>
 
 
@@ -361,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162197.jpg" />
 </div>
 
 
@@ -387,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161827.jpg" />
 </div>
 
 
@@ -415,7 +388,7 @@ Udemy, Luis Ramirez Jr | Complete Modern PHP Developer Course in 2023 (2023) WEB
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161725.jpg" />
 </div>
 
 
@@ -444,7 +417,7 @@ Udemy, Banza Academy | SQL для нетехнических специалис�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161688.jpg" />
 </div>
 
 
@@ -473,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161652.jpg" />
 </div>
 
 
@@ -499,7 +472,7 @@ Community Traders, Сергей Привалов | Программируем т
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161634.jpg" />
 </div>
 
 
@@ -528,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161360.jpg" />
 </div>
 
 
@@ -555,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161353.jpg" />
 </div>
 
 
@@ -582,7 +555,7 @@ JUG Ru Group | Heisenbug 2023 Autumn. Конференция по тестиро
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161051.jpg" />
 </div>
 
 
@@ -610,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161032.jpg" />
 </div>
 
 
@@ -637,7 +610,7 @@ JUG Ru Group | Joker 2023. Конференция для опытных Java‑�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160978.jpg" />
 </div>
 
 
@@ -663,7 +636,7 @@ Udemy, Happy Rawat | JavaScript Interview Masterclass: Top 200 Questions & Answe
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160967.jpg" />
 </div>
 
 
@@ -692,7 +665,7 @@ Self-Learning, Виталий Трунин | Курс по SQL для начин
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160894.jpg" />
 </div>
 
 
@@ -705,6 +678,35 @@ Self-Learning, Виталий Трунин | Курс по SQL для начин
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D44729687F68B8C8CC6BFF49DC17B09572B868C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674740   (160746) от 06.11.2023
+
+Proglib.Academy, Наталья Кайда, Александр Пупышев | Основы IT для непрограммистов (2022) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начните понимать, о чем с вами говорят работодатели, заказчики и клиенты.
+Сфера IT уже давно включает в себя специалистов по разным направлениям, которые куда шире, чем программирование.
+
+- Какими базовыми знаниями нужно обладать специалистам, реализующим IT-продукты?(   Читать дальше...   )Производство: Proglib.AcademyЖанр: ПрограммированиеЯзык озвучки: РусскийПродолжительность: 17:58:03Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA20CE33CD25BD65A63E3B30A5E63C25B25E38E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

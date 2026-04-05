@@ -1,3 +1,55 @@
+###  Публикация: 393314   (275163) от 21.12.2011
+
+Терра Нова / Terra Nova (сезон 1, серии 1-13 из 13) (2011) WEB-DLRip (Первый канал)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275163.jpg" />
+</div>
+
+
+###  Подробнее
+
+2149 год. Земля перенаселена. Большинство растений и животных уже исчезли с её лица. Будущее человечества под сомнением, единственную надежду на выживание ученые видят в прошлом. Неожиданно обнаруженный ими пространственно-временной портал позволяет претворить в жизнь самый смелый план — переселить людей на 85 миллионов лет назад с целью повторного восстановления (   Читать дальше...   )Жанр: Приключения, Фантастика, ДрамаРежиссер: Алекс ГрейвзАктеры: Джейсон О’Мара, Кристин Адамс, Байрон Дж. Брочманн, Джоэль Амос Бернс, Джейсон Чонг, Шелли Конн, Эка Дарвилл, Айша Ди, Дин Гейер, Мидо Хамада, Симона Кессель, Стивен Лэнг, Лэндон Лбуарон, Эллисон Миллер, Дэн Мор, Сэм Парсонсон, Роми Полье, Тоня Рени, Наоми Скотт, Валентино Дель Торо, Дэмиан Уолш-Хаулинг, Лаура УитноллПеревод: Профессиональный перевод (Первый канал)Продолжительность: 01:26:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 356440   (274963) от 27.11.2018
+
+Grotesque Tactics: Evil Heroes / Grotesque Tactics: Настоящие негодяи (2011) [Ru] (1.0) Repack Fenixx
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274963.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Grotesque Tactics: Настоящие негодяи" - это ироничная фэнтезийная РПГ с интересным сценарием и тактическими элементами. Юный призывник Дрейк проваливается на экзамене в Военную академию, и поэтому ему отказывают в праве сражаться за королевство Глория. Униженный и расстроенный, он ищет способ броситься в пасть беспощадного плотоядного гриба. Но вдруг Дрейк (   Читать дальше...   )Тип издания: RepackРазработчик: Silent DreamsЖанр: StrategyЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7795C41F5CBE5015E1F3ECD983FB655D900A9166
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 269506   (274958) от 27.11.2018
 
 Elemental: War of Magic / Elemental: Войны магов (2010) [Ru] (1.09) Repack R.G. ReCoding
@@ -6,7 +58,7 @@ Elemental: War of Magic / Elemental: Войны магов (2010) [Ru] (1.09) Re
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274958.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274951.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274950.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ Diablo & Diablo: Hellfire (1997) [Ru] (1.0) Unofficial
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274949.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ Sid Meier’s Civilization III Полное собрание (2010) [Ru] (1.29f/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274944.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274943.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ Adobe Premiere Pro 2020 (14.0.0.571) Portable by XpucT [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274284.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ Need for Speed: SHIFT 2 Unleashed (2011) [Ru] (1.0.2.0/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274281.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274280.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ Internet Download Manager 6.27 Build 2 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274224.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ Newblue Titler Pro Ultimate CE 6.0 build 171030 RePack by Team V.R [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274105.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274088.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274082.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ Command & Conquer 4: Tiberian Twilight / Command & Conquer 4: Эпилог (2010
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273835.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273789.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_273464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_273464.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_273387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_273387.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273274.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ Nik Collection 2 By DxO 2.0.8 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273256.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ Corona Renderer 4 (Hotfix 1) for 3ds Max 2013-2020 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273255.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273044.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ TV Control v2.1.2 Full [Ru] - Программа телепередач на And
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272939.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_272854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_272854.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272727.jpg" />
 </div>
 
 
@@ -621,61 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EC6ED78DFE0A1BAB940C758AC1AC91528DD0633
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196084   (272726) от 29.11.2018
-
-Paravis Flash ver:Assay 11.2018 [UEFI | x86/x64 | RU/EN]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка содержит следующие компоненты:
-1. Загрузка Windows 8 Native, 8, 10 Sergei Strelec v14.11.2018 x86/x64
-2. Загрузка Windows 7 PE BootPass 4.2.8
-3. Установка Windows 7, 10, 10 LTSC x86/x64 (оригинальные образы, обновления по 11.2018)(   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C4EEE3E93E2D6FF4B9A94AC3BF090D02853838C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156773   (272722) от 29.11.2018
-
-Hellblade: Senua's Sacrifice (2017) [Ru/Multi] (1.03) Repack xatab
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая игра от создателей Heavenly Sword, Enslaved: Odyssey to the West и DmC: Devil May Cry о путешествии в глубины легенд и безумия. В эпоху викингов измученная кельтская воительница отправляется в ужасную страну мертвых, чтобы сразиться за душу погибшего возлюбленного.Тип издания: RepackРазработчик: Ninja TheoryЖанр: Action (Slasher), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCABCA6BA475022043326E490FCBCB36208BC36E
 ```
 
 https://mybot314.ru/tekegram_catalog/

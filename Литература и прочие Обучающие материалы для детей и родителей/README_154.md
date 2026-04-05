@@ -1,3 +1,31 @@
+###  Публикация: 1523260   (753161) от 10.01.2022
+
+Андрей Шляхов | Генетика на пальцах (2022) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753161.jpg" />
+</div>
+
+
+###  Подробнее
+
+Генетику принято считать трудной для понимания, но на самом деле все логичное понять легко, если двигаться в правильном направлении – от простого к сложному. Эта книга как раз так и написана. Она познакомит вас с основами генетики и многочисленными способами ее практического применения, а также даст научные ответы на имеющиеся у вас вопросы.
+
+Чем ДНК отличается от (   Читать дальше...   )Жанр: Генетика, Детская познавательная и развивающая литература, Научно-популярная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3240E6D4A517C2FDED697C0D8425572C4B5DEE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1019089   (752420) от 22.05.2016
 
 Виктор Корюкин | Свистунишка (1954) [FB2]
@@ -6,7 +34,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752420.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752418.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752416.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752413.jpg" />
 </div>
 
 
@@ -110,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752411.jpg" />
 </div>
 
 
@@ -138,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752342.jpg" />
 </div>
 
 
@@ -164,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752337.jpg" />
 </div>
 
 
@@ -190,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752333.jpg" />
 </div>
 
 
@@ -218,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752330.jpg" />
 </div>
 
 
@@ -244,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752327.jpg" />
 </div>
 
 
@@ -270,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752269.jpg" />
 </div>
 
 
@@ -296,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752264.jpg" />
 </div>
 
 
@@ -322,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752182.jpg" />
 </div>
 
 
@@ -349,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752181.jpg" />
 </div>
 
 
@@ -375,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752156.jpg" />
 </div>
 
 
@@ -401,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752069.jpg" />
 </div>
 
 
@@ -428,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751986.jpg" />
 </div>
 
 
@@ -455,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751974.jpg" />
 </div>
 
 
@@ -483,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751869.jpg" />
 </div>
 
 
@@ -511,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751855.jpg" />
 </div>
 
 
@@ -539,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751827.jpg" />
 </div>
 
 
@@ -566,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751742.jpg" />
 </div>
 
 
@@ -592,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_751688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_751688.jpg" />
 </div>
 
 
@@ -620,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750982.jpg" />
 </div>
 
 
@@ -648,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные материалы для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_750528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_750528.jpg" />
 </div>
 
 
@@ -659,32 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 782582   (750459) от 01.05.2014
-
-Ю.А. Ларионова (сост.) | Фразеологический словарь современного русского языка (2014) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фразеология — раздел языкознания, который изучает устойчивые обороты речи и выражения. Фразеологизмы — устойчивые по составу и структуре, лексически не делимые по значению словосочетания и предложения, которые выполняют функцию отдельной словарной единицы — составляют огромный пласт русского языка. Без них устная и письменная речь была бы бедна и невыразительна. (   Читать дальше...   )Жанр: СловарьФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71C03EDFE1E6F89195955C21221DDF984DBF800A
 ```
 
 https://mybot314.ru/tekegram_catalog/

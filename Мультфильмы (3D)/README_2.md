@@ -1,29 +1,3 @@
-###  Публикация: 1366668   (921586) от 12.03.2020
-
-Холодное сердце 2 / Frozen II (2019) BDRip 3D [H.264/1080p-LQ] [вертикальная анаморфная стереопара] [hand made 16:9]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анна, Эльза, Кристоф, его верный олень Свен и никогда не унывающий снеговик Олаф должны будут покинуть уютное королевство Эренделл и отправиться ещё дальше на север, в путешествие, которое приведет их к истокам древних легенд и поможет раскрыть тайны, касающиеся прошлого их родной страны.Производство: США, Walt DisneyЖанр: мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Крис Бак, Дженнифер ЛиПеревод: Дублированный (iTunes)Субтитры: русские (полные), английские (полные)Продолжительность: 01:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F906E0B7AE3957B802E2E07243FCF8589F80A9C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988384   (920691) от 20.02.2016
 
 Иудейский лев / The Lion of Judah (2011) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920691.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917759.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917631.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913637.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913623.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910383.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910262.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910221.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906257.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904427.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904275.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904203.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904130.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901623.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901449.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900578.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899387.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899190.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896072.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895918.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889993.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888327.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885873.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882422.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882164.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32E3E3A5A0FD2A0D0E1297F907861E4D61505FD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996741   (878677) от 14.03.2016
+
+Снежная королева 2: Перезаморозка (2014) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара] [hand made 16:9]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тщеславный тролль Орм давно мечтает о лаврах героя, и наконец получает этот шанс: северный ветер грозит миру вечной зимой и похищает Марибель. Рука принцессы и королевство троллей достанутся тому, кто вызволит ее из снежного плена. Однажды Орм победил зиму с помощью друзей, теперь он хочет действовать в одиночку. На нем доспехи из сковородок, за ним — отряд трусливых (   Читать дальше...   )Производство: Россия / Базелевс Продакшн, Wizart AnimationЖанр: Мультфильм, Фэнтези, Приключения, СемейныйРежиссер: Алексей ЦицилинАктеры: Иван Охлобыстин, Нюша Шурочкина, Анна Хилькевич, Александр Уман, Игорь Бортник, Алексей Лихницкий, Роман Юнусов, Александр Гудков, Михаил ТихоновПродолжительность: 01:18:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CC8B690851B91ECD17382C66CB86BEF41A54208
 ```
 
 https://mybot314.ru/tekegram_catalog/

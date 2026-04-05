@@ -1,29 +1,3 @@
-###  Публикация: 1388169   (789989) от 04.06.2020
-
-Джуманджи: Новый уровень / Jumanji: The Next Level (2019) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789989.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пытаясь спасти Спенсера, снова попавшего в игру, туда же отправляются и остальные. К их удивлению, правила Джуманджи изменились, и более того — на этот раз в игру затянуло дедулю Спенсера и его престарелого друга Майло. Чтобы выполнить задания и вернуться домой, друзьям предстоит отправиться в путешествие по ранее неизведанным и таинственным уголкам Джуманджи — от (   Читать дальше...   )Производство: США / Sony, 7 Bucks Productions, Matt Tolmach ProductionsЖанр: Фэнтези, боевик, комедия, приключенияРежиссер: Джейк КэзданАктеры: Дуэйн Джонсон, Джек Блэк, Кевин Харт, Карен Гиллан, Ник Джонас, Аквафина, Риз Дэрби, Дэнни ДеВито, Дэнни Гловер, Морган ТернерПеревод: Дублированный (лицензия)Субтитры: Русские, английские, датские, эстонские, финские, латышские, литовские, норвежские, испанские, шведские, украинскиеПродолжительность: 01:58:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BE6F5ED308DE3D8713229E7BD6BF5CFB91086A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1387915   (789968) от 04.06.2020
 
 Достать ножи / Knives Out (2019) DVD9 [Custom]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789968.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789741.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789588.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789267.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789231.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789224.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788976.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787975.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786815.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786808.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786805.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786796.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786780.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786634.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786040.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786030.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781938.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780367.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780365.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780363.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780360.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780352.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780332.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780331.jpg" />
 </div>
 
 
@@ -658,13 +632,40 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774640.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Конец января 1953 года. Прорыв сразу нескольких дамб и сильный шторм на море вызвали колоссальное наводнение в Голландии. Хлынувшее море затопило сотни километров земли. Фермерский дом матери-одиночки Юлии снесен потоками воды, ее маленький ребенок пропадает в этом страшном водовороте. Саму женщину от гибели спасает молодой лейтенант военно-воздушных сил, который (   Читать дальше...   )Производство: НидерландыЖанр: ДрамаРежиссер: Бен СомбогаартАктеры: Сильвия Хукс, Барри Атсма, Дирк Руфтхуфт, Моник Хендрикс, Элса Май Аврилл, Катя Херберс, Лотти Хеллингман, Бас Кейзер, Бас Кейзер, Санне ден, Эверт Де Ягер, Бетти Шюрман, Серж Прайс, Сара Йонкер, Хюс Дам, Миха Хулсхоф и др.Перевод: Профессиональный (многоголосный, закадровый)Язык субтитров: РусскийФормат: DVD9Продолжительность: 01:32:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 659899   (774542) от 23.05.2013
+
+Поймай меня, если сможешь / Catch Me If You Can (2002) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фрэнк Эбэгнейл успел поработать врачом, адвокатом и пилотом на пассажирской авиалинии – и все это до достижения полного совершеннолетия в 21 год.
+Мастер в обмане и жульничестве, он также обладал искусством подделки документов, что в конечном счете принесло ему миллионы долларов, которые он получил по фальшивым чекам. Агент ФБР Карл Хэнрэтти отдал бы все, чтобы схватить (   Читать дальше...   )Производство: СШАЖанр: Драма, комедия, криминал, биографияРежиссер: Стивен СпилбергАктеры: Леонардо ДиКаприо, Том Хэнкс, Кристофер Уокен, Мартин Шин, Натали Бэй, Эми Адамс, Джеймс Бролин, Брайан Хау, Фрэнк Джон Хьюз, Стив Истин, Крис Эллис, Джон Финн, Дженнифер Гарнер, Нэнси Ленехан, Эллен Помпео и др.Перевод: ДублированныйЯзык субтитров: Русский, английский, шведский, датский, норвежский, финский, исландский, литовский, латышский, эстонскийФормат: DVD9Продолжительность: 02:14:57
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,138 @@
+###  Публикация: 560795   (406631) от 15.10.2012
+
+Журнал | Лечим без лекарств №10 Желудок [2012] [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трудно себе представить человека, у которого никогда не было проблем с желудком.
+Традиционно считалось, что люди сами доводят себя до гастрита и язвы неправильным питанием и вредными привычками. Однако не так давно ученые открыли, что язвенная болезнь имеет инфекционное происхождение, а также наследственную предрасположенность. Поэтому важно иметь крепкий иммунитет, который поставит надежный заслон на пути микробам и не даст проявиться болезням, заложенным в генах.
+Как сохранить здоровье желудка и избежать проблем с пищеварением с помощью фитотерапии, рационального питания, физических упражнений, расскажет очередной выпуск газеты.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C826D81DEE1E4B5663ECE14962B4BE9739D28AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561391   (406416) от 16.10.2012
+
+Журнал | Энциклопедия здоровья №17 [сентябрь 2012] [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это издание своего рода настольная энциклопедия здоровья, в каждом выпуске которого вы найдете информацию посвященную лечению и профилактике наиболее распространенных заболеваний.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB341B6F44EFB6C8AEA1EE513C395F3001F061B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561129   (406380) от 16.10.2012
+
+Газета | Северная правда № 42 [1 марта 1951] [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совет Министров Союза ССР и ЦК ВКП(б) приняли решение о новом (четвертом по счету) снижении розничных цен на товары массового потребления. Это постановление свидетельствует о дальнейшем укреплении экономического могущества нашей великой Родины, о повышении материального благосостояния трудящихся.
+ Ответим на заботу партии и правительства новыми успехами в строительстве коммунизма.
+
+В номере 4 страницы, собственный скан.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27CD6580530652890C73883C161174D646BE09C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559285   (406378) от 16.10.2012
+
+Журнал | Патрон №10 [октябрь 2012] [PDF]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обо всем, что интересует мужчин – машины, техника, фильмы, обзоры книг, музыки и игр, новости моды, уход за внешностью, напитки, шутки, великолепные женщины в сочетании с рассказами о жизни знаменитых мужчин, научно-популярные статьи, история. Динамичный дизайн, великолепные тексты и настоящий юмор.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:933791B004B2720A173738F61121A0F8B5063EE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561187   (406351) от 16.10.2012
+
+Журнал | Компьютер Пресс №9 [2012] [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ежемесячный компьютерный журнал «Компьютер Пресс» выпускается с 1989 г. Сегодня на страницах журнала «Компьютер Пресс» находится практически вся информация о компьютерах и обо всем, что с ними связано. Актуальность данного журнала не только в том, что он очень своевременно реагирует на все новые веяния и тенденции компьютерной моды, но и в том, что это издание имеет практическую направленность и является ценным практическим руководством в самых различных ситуациях. Журнал адресован в первую очередь специалистам в области информационных технологий. Подавляющее большинство материалов написано отечественными авторами, и это говорит о том, что «Компьютер Пресс» ориентирован прежде всего на российских пользователей ПК.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6504BA76829AFD623E00FD725F1F7C292C12BB65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 561563   (406221) от 17.10.2012
 
 Журнал | Здоровье в доме №41 [2012] [PDF]
@@ -6,7 +141,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406221.jpg" />
 </div>
 
 
@@ -34,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406200.jpg" />
 </div>
 
 
@@ -60,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406195.jpg" />
 </div>
 
 
@@ -94,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406184.jpg" />
 </div>
 
 
@@ -122,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406140.jpg" />
 </div>
 
 
@@ -148,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405943.jpg" />
 </div>
 
 
@@ -174,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405926.jpg" />
 </div>
 
 
@@ -200,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405858.jpg" />
 </div>
 
 
@@ -226,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405625.jpg" />
 </div>
 
 
@@ -252,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405618.jpg" />
 </div>
 
 
@@ -278,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405603.jpg" />
 </div>
 
 
@@ -304,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405592.jpg" />
 </div>
 
 
@@ -330,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405588.jpg" />
 </div>
 
 
@@ -356,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405553.jpg" />
 </div>
 
 
@@ -382,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405544.jpg" />
 </div>
 
 
@@ -408,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405508.jpg" />
 </div>
 
 
@@ -435,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405294.jpg" />
 </div>
 
 
@@ -461,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405280.jpg" />
 </div>
 
 
@@ -487,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405080.jpg" />
 </div>
 
 
@@ -513,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404992.jpg" />
 </div>
 
 
@@ -539,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404759.jpg" />
 </div>
 
 
@@ -553,137 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31A3F2FD03D3D90753A7A1614FC68595A2EF1B88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 397841   (404669) от 08.10.2011
-
-Журнал | Desire [October 2011] [PDF]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заграничный журнал с красивыми девушками-моделями. Кроме того в журнале представлены новинки рынка аксессуаров, эксклюзивные автомобили и мотоциклы. В журнале много рекламы ночных VIP-клубов и предложений аналогичных услуг (город Тампа, штат Флорида).Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9150A222685BCE0B7564CBCDDD7C05EC523D2444
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 563269   (404581) от 21.10.2012
-
-Подборка журналов | Наша История. 100 Великих Имен (66/100) + описание коллекции [2010 - 2011] [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русская история полна загадок, умолчаний и таинственных совпадений. Знаем ли мы, зачем Павел I хотел завоевать Индию? Действительно ли Александра I похоронили в 1825 году под его именем? Насколько психически здоров был Гоголь, в какой-то момент вообразивший себя спасителем страны? В чем секрет непобедимого Суворова? Новая биографическая серия «DeAgostini» «Наша история. 100 Великих Имен» знакомит читателя с подробностями жизни знаменитых людей России. Политики и философы, полководцы и ученые, гении и авантюристы – все они, так или иначе, определили развитие нашей страны. Достоверные факты, снабженные многочисленными иллюстрациями, позволяют узнать о разных сторонах жизни людей, имена которых на слуху у каждого. Каждый выпуск передает атмосферу определенной эпохи и проливает свет на истинное лицо героя. Читая нашу серию, вы «вживую» познакомитесь с историей России.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AB7178A7C456CA0ADD2D517967DAAFC23B4AFA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 712343   (404253) от 18.10.2013
-
-Журнал | Любимая дача. Спецвыпуск №10 (ноябрь 2013) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специальные выпуски журнала «Любимая дача» — это красочные издания, полные интересных идей и практических советов. Они охватывают круг тем, близких разным поколениям дачников, отвечают на животрепещущие вопросы подробно, с практической точки зрения. Каждый специальный выпуск посвящен конкретной теме, касающейся строительства, благоустройства дачи или участка. Материалы (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C56FC43E905540BFC66D1436EB67D9B88E60F0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 712380   (404242) от 18.10.2013
-
-Подшивка журналов | ShopNotes №131, 132 (сентябрь-декабрь 2013) [PDF] [En]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал ShopNotes издается для столяров, плотников, как начинающих так и профи и это видно из оформления самого журнала. В каждом номере: много подробной практической информации по деревообработке, а также много проектов, которые прекрасно проиллюстрированы подробными чертежами и схемами, на которых шаг за шагом, показан весь этап изготовления.
-Если вы новичок в деревообработке (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0DA0F0C24220E74637EBC74BF3C72186A87B9C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 712125   (404211) от 18.10.2013
-
-Журнал | Идеи вашего дома [Россия] №10 (177) (октябрь 2013) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Идеи вашего дома — ежемесячный журнал, посвященный вопросам ремонта и обустройства интерьера. Заинтересует людей, планирующих реконструкцию, ремонт, дизайн интерьера своего жилья. Журнал предлагает большое количество планировочных и оформительских решений, обзоры ремонтно-строительных материалов, мебели, техники и оборудования.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9112C12B65662926ADF54BC59DC7898E6F83257C
 ```
 
 https://mybot314.ru/tekegram_catalog/

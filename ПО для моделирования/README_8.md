@@ -1,3 +1,81 @@
+###  Публикация: 1807619   (10933) от 20.07.2025
+
+Cinema4D 2024.2.0 + Redshift 3.5.23 + RedGiant bundle 2024.0.1 [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10933.jpg" />
+</div>
+
+
+###  Подробнее
+
+MAXON CINEMA 4D – простая в использовании профессиональная программа для 3D-моделирования, анимации, рендеринга и визуальных эффектов. Отличается интуитивным интерфейсом, стабильной работой и мощными инструментами для motion-дизайна, архитектурной визуализации и кино. Широко используется в индустрии благодаря тесной интеграции с After Effects и поддержке Redshift. (   Читать дальше...   )Язык интерфейса: Ангийский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22A702EF2E4B2953229EF45E055C168EDAFFBB41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807875   (10806) от 21.07.2025
+
+Chief Architect Premier X17 Build 27.1.0.54 [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chief Architect Premier - мощная программа для дизайна интерьеров, удачно сочетающая удобный интерфейс, легкость в освоении и богатую библиотеку клипартов. Каждый элемент, помещенный в план обычно используется по умолчанию, чтобы сделать процесс разработки эффективным и продуктивным. При создании элементов дизайна, программа автоматически создает 3D-модель и генерирует (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:093EB87770B757061D462AE9EE853A7207D2D44C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811486   (8716) от 10.08.2025
+
+Room Arranger 10.1.0.716 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Room Arranger - программа специально предназначенная для создания, разработки, анализа интерьеров или дизайна помещений. Она будет реально полезна и поможет вам, если вы решили перенести стены, сделать перепланировку или простую перестановку и размышляете, что и куда передвинуть. Room Arranger позволяет визуально наглядно передвигать, вращать, менять размеры и цвет, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:453353219C38FCFBAEA579500DFB06120BEFC6DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1811900   (8321) от 12.08.2025
 
 V-Ray 7.20.00 for 3ds Max 2021-2026 [En]
@@ -6,7 +84,7 @@ V-Ray 7.20.00 for 3ds Max 2021-2026 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8321.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6190.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ Room Arranger 10.2.0.732 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5273.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ AMS Мой Дом 3D 4.0 [Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5237.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3947.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3064.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ AMS Дизайн Интерьера 3D 12.0 [Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3037.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ ZBrush 2026.0 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3028.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ AMS Ландшафтный Дизайн 3D 10.0 [Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3026.jpg" />
 </div>
 
 
@@ -244,7 +322,7 @@ Cinema 4D 2026.0 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2838.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ Chaos Vantage 3.0.1 beta [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1993.jpg" />
 </div>
 
 
@@ -296,7 +374,7 @@ Agisoft Metashape Pro 2.2.2 Build 21287 Repack (& Portable) by elchupacabra [Mul
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_343.jpg" />
 </div>
 
 

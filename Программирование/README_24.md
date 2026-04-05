@@ -1,82 +1,3 @@
-###  Публикация: 1235872   (556491) от 14.07.2018
-
-Дэвид Гриффитс, Дон Гриффитс | Head First. Программирование для Android. 2-е изд. (2018) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Система Android покорила мир. Все хотят иметь планшет или смартфон, а устройства на базе Android - самые популярные в мире. В этой книге мы научим вас разрабатывать и запускать приложения. Вам уже пришла в голову гениальная идея? Дело за малым - воплотить ее в жизнь.  Вы научитесь правильно формировать структуру приложений, проектировать гибкие и интерактивные интерфейсы, (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76496E8802C373601A4B631D569E86DC9DABCD33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557018   (556322) от 12.06.2022
-
-Уолтер Шилдс | SQL: быстрое погружение (2022) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что общего между самыми востребованными профессиями и стремительным увеличением количества информации в мире? Ответ: язык структурированных запросов (SQL). SQL – рабочая лошадка среди языков программирования, основа основ для современного анализа и управления данными. Книга «SQL: быстрое погружение» идеальна для всех, кто ищет новые перспективы карьерного роста; (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6E6D31FF42652A28362EB54A619C6513EAD8778
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307393   (554968) от 09.06.2019
-
-Грэхем Селлерс | Vulkan. Руководство разработчика (2017) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Следующее поколение спецификаций OpenGL, Vulkan, было разработано с нуля, давая приложению прямой контроль над графическим процессором (GPU) для беспрецедентного быстродействия и предсказуемости. Данная книга является официальным руководством по этому новому стандарту и предназначена для опытных программистов GPU.
-Один из разработчиков Vulkan API Грэхем Селлерс представляет (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52DD51CAFA103F93847CB8E36C5F86BB4F67061E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1307830   (554560) от 11.06.2019
 
 Carmine Noviello | Mastering STM32 (release 0.26) (2018) [PDF] [En]
@@ -85,7 +6,7 @@ Carmine Noviello | Mastering STM32 (release 0.26) (2018) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554560.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552805.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550852.jpg" />
 </div>
 
 
@@ -163,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549790.jpg" />
 </div>
 
 
@@ -189,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547826.jpg" />
 </div>
 
 
@@ -215,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546767.jpg" />
 </div>
 
 
@@ -241,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543544.jpg" />
 </div>
 
 
@@ -267,7 +188,7 @@ Carmine Noviello | Mastering STM32 (2017) [PDF]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540176.jpg" />
 </div>
 
 
@@ -293,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539725.jpg" />
 </div>
 
 
@@ -320,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537866.jpg" />
 </div>
 
 
@@ -346,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535987.jpg" />
 </div>
 
 
@@ -372,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535956.jpg" />
 </div>
 
 
@@ -399,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535806.jpg" />
 </div>
 
 
@@ -427,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535805.jpg" />
 </div>
 
 
@@ -454,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535732.jpg" />
 </div>
 
 
@@ -480,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535701.jpg" />
 </div>
 
 
@@ -506,7 +427,7 @@ Kyle Simpson | You Don't Know JS: Scope & Closures (2014) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535057.jpg" />
 </div>
 
 
@@ -532,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533017.jpg" />
 </div>
 
 
@@ -558,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533012.jpg" />
 </div>
 
 
@@ -584,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532305.jpg" />
 </div>
 
 
@@ -610,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531948.jpg" />
 </div>
 
 
@@ -636,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531510.jpg" />
 </div>
 
 
@@ -662,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531336.jpg" />
 </div>
 
 
@@ -673,6 +594,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96917E58E127EDED6746418AD628D1C896BC4E70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926735   (530915) от 11.08.2015
+
+Стивен Прата | Язык программирования С. Лекции и упражнения. 6-е издание [+ Примеры] (2015) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530915.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга представляет собой тщательно проверенное, хорошо продуманное и всеобъемлющее учебное пособие, предназначенное для программистов и разработчиков. Ставшая классикой в области вычислений, она обучает принципам программирования, в том числе структуризации кода и нисходящему проектированию. Автор и преподаватель Стивен Прата создал поучительное, ясное и проницательное (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:456B4A3B12CD6DB6E00CF0333ED9C03540693B72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533882   (530483) от 11.08.2012
+
+М.П.Левин | Параллельное программирование с использованием OpenMP [2012] [DJVU]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530483.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящее время технология OpenMP является основным средством программирования для компьютеров с общей памятью. В учебном пособии изложены сведения о параллельном программировании с использованием ОрепМР для современных параллельных высокопроизводительных вычислительных систем с общей памятью. Книга включает в себя описание большинства основных директив, функций и переменных окружения стандарта OpenMP с примерами их применения, а также практические сведения, которые могут потребоваться при написании реальных программ.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42FFFB5FB20ABCFF1B763581CAA013AE3EAF4AC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312390   (530445) от 05.07.2019
+
+А.В. Боресков | Программирование компьютерной графики (2019) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная книга посвящена алгоритмическим основам современной компьютерной графики. Описаны базовые математические понятия, такие как матрицы и кватернионы. Детально рассматривается физика освещения, включая физически-корректное освещение. Отдельные главы посвящены методу трассировки лучей и современному OpenGL. Дается реализация ряда специальных эффектов при помощи (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C3F59AE84793535C5398B04604B0C1FBC9750E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

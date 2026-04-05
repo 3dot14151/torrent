@@ -1,3 +1,32 @@
+###  Публикация: 1352624   (243144) от 15.01.2020
+
+Exit North - Book of Romance and Dust (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Art Rock, Atmospheric, Singer-Songwriter>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bested Bones (05:20)
+02. Short Of One Dimension (05:54)
+03. Sever Me (04:24)
+04. Passenger's Wake (03:58)(   Читать дальше...   )Жанр: Alternative, Art Rock, Atmospheric, Singer-SongwriterПродолжительность: 00:46:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52E84D24858D95AF764D79892C0EFE8AF90D0425
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1079446   (243132) от 04.12.2016
 
 Aphyxion - Aftermath (2016) [MP3|320 Kbps] <Modern Melodic Death Metal>
@@ -6,7 +35,7 @@ Aphyxion - Aftermath (2016) [MP3|320 Kbps] <Modern Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243132.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243128.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Ellende - Ellenbogengesellschaft (2022) [FLAC|Lossless|WEB-DL|tracks] <Ambient P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243119.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Ben Sollberger Project - I Hate to Say (2021) [FLAC|Lossless|WEB-DL|tracks] <Mod
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243117.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Tank - Re-Ignition (2019) [FLAC|Lossless|tracks + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243100.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Aviator - Aviator (1986) Reissue, 1997, Escape [MP3|320 Kbps] <Melodic Hard Rock
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243096.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Outpost 11 - 4 Albums (2018-2023) [MP3|320 Kbps] <electro-industrial, EBM>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243094.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Mike Tramp - Songs of White Lion (2023) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243088.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Misery - Risk It All (1992) Reissue, 2023, Eonian Records [FLAC|Lossless|WEB-DL|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243083.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Mystic Prophecy - Hellriot (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243074.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Jason Bieler And The Baron Von Bielski Orchestra - Postcards from the Asylum (20
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243069.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Esoctrilihum - Consecration of the Spiritus Flesh (2022) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243067.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Esse - Letanias al Verdugo (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243059.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Angellore - Premieres Liturgies - Soupirs D'Aurore (2012) Compilation, Limited E
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243054.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Arjen Lucassen's Supersonic Revolution - Golden Age Of Music (2023) [FLAC|Lossle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_243052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_243052.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Alcatrazz - Take No Prisoners (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243045.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Angellore - Errances (2013) [FLAC|Lossless|image + .cue] <Doom Metal, Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243044.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Riddlemaster - Bring The Magik Down (2017) [FLAC|Lossless|tracks + .cue] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243043.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Rooms Of Ruin - The Hollow Dark (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Ston
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243035.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Eddie B - I'm Holding On (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243030.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Heidevolk - De Strijd Duurt Voort (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Pagan
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243024.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Winds of Tragedy - Hating Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243016.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Cold Eternity - Холодная Вечность (2023) [FLAC|Lossless|WEB-DL|t
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243002.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242988.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Riverside - Riverside 20 The Shorts & The Longs (2021) 2xCD [MP3|320 Kbps] <Prog
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242981.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Disc 1 - Vol.1 - The Shorts:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FCF0BE7B9388E594639A94CB6DC469B9A777F36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624063   (242978) от 04.04.2023
-
-Uburen - And the Mountains Weep (2019) [FLAC|Lossless|WEB-DL|tracks] <Black, Viking Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Oskoreia (04:17)
-02 - Remembrance (05:20)
-03 - Entrance to Valhalla (04:12)
-04 - Fimbul (05:04)(   Читать дальше...   )Жанр: Black, Viking MetalПродолжительность: 00:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5607CD8211D244B4639AC4073C1A323ABD926F4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

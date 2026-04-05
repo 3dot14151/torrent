@@ -1,3 +1,55 @@
+###  Публикация: 1383266   (812974) от 14.05.2020
+
+Е.П. Ильчинская, И.А. Толмачева | Let’s Learn English with Pleasure. English Grammar in Use (2020) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие содержит правила и упражнения по основным разделам грамматики. Основная цель — развитие активных навыков использования грамматических форм, необходимых как в письменной речи, так и для устного общения на английском языке, что позволит в дальнейшем успешно работать в выбранной сфере деятельности, расширить кругозор, совершенствовать профессиональные (   Читать дальше...   )Жанр: Иностранный языкФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C83E581A8C90A8832088A1F6920179ED403636A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197930   (811604) от 09.01.2018
+
+Оуэн Бишоп | Электронные схемы и системы (2017) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга была написана как пособие для начальных курсов по электронике. Ее содержание тщательно согласовано с основными программами образования в Великобритании, но затрагиваемые темы и глубина их рассмотрения были выбраны так, чтобы получившийся материал был доступен для большинства студентов во всем мире. Единственным требуемым знанием являются основы математики (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B54966A2CB3EBFE69CD2419A69D874600E42A9E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1383384   (811572) от 15.05.2020
 
 А.А. Дурнаков | Физические основы микро- и наноэлектроники (2020) [PDF]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811572.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811274.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809982.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809974.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809847.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809703.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808147.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806010.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805122.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804332.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804315.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_804179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_804179.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802717.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802606.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801595.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800487.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800460.jpg" />
 </div>
 
 
@@ -457,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800434.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800304.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800300.jpg" />
 </div>
 
 
@@ -538,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800229.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800216.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800070.jpg" />
 </div>
 
 
@@ -617,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799771.jpg" />
 </div>
 
 
@@ -628,58 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B994329048FF296AB35AA5AABF4778E8DE05D8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506781   (799375) от 01.11.2021
-
-Кристофер М. Бишоп | Распознавание образов и машинное обучение (2020) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот совершенно новый учебник отражает современные достижения распознавания образов и машинного обучения и представляет собой всеобъемлющее введение в эту область. Он предназначен для студентов старших курсов и аспирантов первого года обучения, а также исследователей и практиков. От читателей не требуется предварительных знаний в области распознавания образов и машинного (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: Д.А. КлюшинФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8FF2A71EACD211F476964058E5D96B05CFFDF8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273669   (799369) от 03.01.2019
-
-С.И. Макаренко | Проектирование электрооборудования объектов гражданского назначения (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799369.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии изложены цели, задачи и методика проектирования; сформулированы требования к содержанию расчетной, текстовой и графической частям проекта, к оформлению электротехнической проектной документации в соответствии с требованием государственных нормативных документов по состоянию на 01.01.2019г; рассмотрены основные этапы расчета и выбора элементов системы электроснабжения (   Читать дальше...   )Жанр: Строительство, электротехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE018890A68278E8C06295BF91C1ECAD08054A4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

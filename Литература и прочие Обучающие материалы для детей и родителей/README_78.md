@@ -1,3 +1,30 @@
+###  Публикация: 857459   (952977) от 08.01.2015
+
+М.В. Вербицкая и др. | Тексты для аудирования к книге: Репетиционные варианты. Английский язык. ЕГЭ 2015 (2015) [MP3] [En, RU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952977.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие предназначено для самостоятельной подготовки выпускников общеобразовательных школ к единому государственному экзамену (ЕГЭ) 2015 года по английскому языку и на занятиях по подготовке к экзамену в школе. Оно может быть использовано также для проведения внутришкольных репетиционных экзаменов в 11 классах.
+Данное пособие содержит 6 вариантов экзаменационной (   Читать дальше...   )Жанр: ОбразованиеПродолжительность: 02:48:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBE390306B982AA8EB1A700C914FEBA569272EC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 749849   (952950) от 26.01.2014
 
 Иван Новиков | Конопель-конопелька (1926) [PDF]
@@ -6,7 +33,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952950.jpg" />
 </div>
 
 
@@ -35,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952878.jpg" />
 </div>
 
 
@@ -61,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952869.jpg" />
 </div>
 
 
@@ -90,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952807.jpg" />
 </div>
 
 
@@ -116,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952764.jpg" />
 </div>
 
 
@@ -142,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952543.jpg" />
 </div>
 
 
@@ -170,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952154.jpg" />
 </div>
 
 
@@ -196,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952025.jpg" />
 </div>
 
 
@@ -222,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951995.jpg" />
 </div>
 
 
@@ -248,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951927.jpg" />
 </div>
 
 
@@ -274,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951892.jpg" />
 </div>
 
 
@@ -301,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951684.jpg" />
 </div>
 
 
@@ -327,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951161.jpg" />
 </div>
 
 
@@ -353,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951138.jpg" />
 </div>
 
 
@@ -379,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950945.jpg" />
 </div>
 
 
@@ -407,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950922.jpg" />
 </div>
 
 
@@ -433,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950770.jpg" />
 </div>
 
 
@@ -459,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950734.jpg" />
 </div>
 
 
@@ -485,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950732.jpg" />
 </div>
 
 
@@ -511,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950723.jpg" />
 </div>
 
 
@@ -537,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950705.jpg" />
 </div>
 
 
@@ -563,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950510.jpg" />
 </div>
 
 
@@ -589,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950471.jpg" />
 </div>
 
 
@@ -616,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950469.jpg" />
 </div>
 
 
@@ -642,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950230.jpg" />
 </div>
 
 
@@ -653,33 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55FCBFFF1F461B5B5E1481192B4F5EBAC53C216D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981906   (949977) от 02.02.2016
-
-Максимилиан Дюбуа | Приключения графа де Грюйера [3 книги] (2014) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949977.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отель «Танатос»
-Графу де Грюйеру, самой проницательной мыши Мышиного королевства, становится известно, что сразу нескольким обитателям мышиной столицы выпал первый приз в лотерее. Победителям предстоит провести несколько дней в одном из шикарнейших отелей в пригороде Маусвиля. Уж не ловушка ли это? Чтобы ответить на этот вопрос, граф отправляется в отель со странным (   Читать дальше...   )Жанр: Детская остросюжетнаяФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF303E69CC487A3DBCCBA61612CF1CBC14C358AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

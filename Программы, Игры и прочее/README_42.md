@@ -1,3 +1,108 @@
+###  Публикация: 1367225   (915226) от 16.03.2020
+
+SHAREit - Connect & Transfer v5.3.52_ww [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное приложение создано компанией Lenovo и впервые появилось на смартфонах и планшетах компании. Теперь оно доступно всем Android-пользователям. Благодаря SHAREit вы можете передавать любые файлы на устройства, где установлена такая же программа.
+Данное приложение выгодно отличает тот факт, что в подключении к Интернету оно не нуждается, а также может похвастаться (   Читать дальше...   )Тип издания: Mod (Вырезана реклама / Ad Free)Релиз состоялся: 10.03.2020Разработчик: SHAREit Technologies Co.Ltd ЕЩЁ!Поддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC6198C619CE9AD5B4E7186195776D499A30B82D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367213   (915212) от 16.03.2020
+
+LIMBO v1.18 [Ru/En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915212.jpg" />
+</div>
+
+
+###  Подробнее
+
+LIMBO - мультиплатформенная компьютерная игра разработанная Датской студией Playdead и впервые увидевшей свет еще в 2010 году. Первая версия LIMBO была выпущена для игровых консолей и в последствии, в связи небывалой популярностью, портирована на большинство игровых платформ в том числе и на Андроид устройства. По своим техническим характеристикам игры является 2D (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 13.11.2019Разработчик: PlaydeadПоддерживаемая ОС: Android 4.4+Жанр: АркадыЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CBEB37C53C63CA3BC9FE7B871BD48C107FF9502
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481902   (915018) от 22.08.2021
+
+ipTView v1.9.5 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915018.jpg" />
+</div>
+
+
+###  Подробнее
+
+ipTView - простейший плеер для просмотра онлайн TV. Размер программы 85 килобайт, используются только встроенные возможности устройства, на котором установлена программа. Не требуется ни каких регистраций и других действий, для просмотра видеоконтента. Имеет возможность добавлять как свои плей-листы так и ссылки на каналы.Тип издания: Пиратка (Mod)Релиз состоялся: 18.08.2021Разработчик: GSeeMe.comПоддерживаемая ОС: Android 2.0+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE9A8AEADF4B210FE89EC7187BE3957F99DB4B8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097186   (914991) от 26.01.2017
+
+iGO Primo NextGen 9.18.27.682862 pongo skin [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>Навигация для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Навигационное ПО iGO Primo NextGen версии 9.18.27.682862 со скином от pongo + дополнительными плагинами для PDA/PNA устройств и ГУ автомобиля под управлением операционной системы Android.Тип издания: ПираткаРелиз состоялся: 14.12.2016/23.01.2017 (skin)Разработчик: NNGПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:800739ED45D33638214B8852591EF28DEFF10E61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367223   (914975) от 16.03.2020
 
 Hola Premium VPN Proxy v1.165.475 [Ru/En]
@@ -6,7 +111,7 @@ Hola Premium VPN Proxy v1.165.475 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914975.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914965.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ Piano Companion PRO: аккорды v1.8.3.2 + v6.29.315 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913827.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913330.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ YoWindow Weather 2.16.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910518.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ Very Little Nightmares 1.1.4 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910134.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909428.jpg" />
 </div>
 
 
@@ -191,7 +296,7 @@ Kitchen Book / Кухонная книга v26.0.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908856.jpg" />
 </div>
 
 
@@ -217,7 +322,7 @@ Garmin TOPO U.S. 100K 5.0 [Карта] (Garmin)
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908754.jpg" />
 </div>
 
 
@@ -244,7 +349,7 @@ SD Card Test Pro 1.8.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906809.jpg" />
 </div>
 
 
@@ -270,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905740.jpg" />
 </div>
 
 
@@ -297,7 +402,7 @@ Deezer 6.1.22.49 MOD [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904664.jpg" />
 </div>
 
 
@@ -323,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904314.jpg" />
 </div>
 
 
@@ -352,7 +457,7 @@ VivaCut v2.5.4 [Ru/Multi] - видеоредактор (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903640.jpg" />
 </div>
 
 
@@ -378,7 +483,7 @@ Edge Screen S10 1.6.4.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903581.jpg" />
 </div>
 
 
@@ -404,7 +509,7 @@ Group Ringtone 1.0.9 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903429.jpg" />
 </div>
 
 
@@ -430,7 +535,7 @@ Easy Currency Converter Pro 3.5.9 [Rus/Multi] - Курс и конвертер �
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902939.jpg" />
 </div>
 
 
@@ -456,7 +561,7 @@ XEFX v2.4.9 [Ru/Multi] - оживить фото и Живые обои и Фо�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902070.jpg" />
 </div>
 
 
@@ -482,7 +587,7 @@ Garmin: City Navigator Middle East and North Africa 2017.20 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898958.jpg" />
 </div>
 
 
@@ -508,7 +613,7 @@ Blackmart 2020.1.7 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898001.jpg" />
 </div>
 
 
@@ -534,7 +639,7 @@ Ancleaner Pro, Android cleaner 3.30 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897167.jpg" />
 </div>
 
 
@@ -560,7 +665,7 @@ CountThings from Photos v3.23.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897099.jpg" />
 </div>
 
 
@@ -573,110 +678,6 @@ CountThings from Photos v3.23.1 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82EC453A02AAE5C6D418820F34DB6E51EC595533
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101110   (895700) от 06.02.2017
-
-Garmin: City Navigator Thailand 2016.40 (Dual) [En/Th]
-
->>Программы, Игры и прочее
->>Карты для навигационного ПО
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Карта Таиланда для навигаторов Гармин.Тип издания: карты заблокированы (таблетки есть в комплекте)Релиз состоялся: октябрь 2016Разработчик: Garmin / ESRI / NostraПоддерживаемая ОС: GarminЯзык интерфейса: Английский, Тайский (см. "Дополнительная информация")Формат: .IMG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:701A8ECAB1EBABB75EC426A0991F9F593CA5C69B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101772   (893985) от 07.02.2017
-
-YouTube Детям 2.07.1 [En]
-
->>Программы, Игры и прочее
->>Всё для детей и родителей для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Официальное приложение YouTube для детей.Тип издания: FreeРелиз состоялся: 07.02.2017Разработчик: Google IncПоддерживаемая ОС: Android: 4.1+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBFA149A2FD41F7FE570BAE6A47BAF540EAE0F70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993837   (893117) от 06.03.2016
-
-PortraitPro v15.0 [En] - редактор портретных фотографий
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893117.jpg" />
-</div>
-
-
-###  Подробнее
-
-PortraitPro позволяет любому с легкостью улучшить портретные фотографии . Все аспекты фотографии могут быть улучшены с помощью простого и интуитивно понятного управления. Эксклюзивная технология Clearskin4 ™ автоматически распознает и исправляет дефекты кожи, с ручной подкраски кистью, позволяющей тщательно контролировать, где это необходимо. Применить фото-реалистичный (   Читать дальше...   )Тип издания: Пиратка (Full с Маркета)Релиз состоялся: 16.02.2016Разработчик: Anthropics TechnologyПоддерживаемая ОС: Android 4.2+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7F8E70AD6B58939D89135590C86B207ED94431A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371149   (891663) от 30.03.2020
-
-Equalizer FX Pro 1.3.2 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любите слушать музыку? Так почему бы не насладиться ее отличным качеством? Приложение Equalizer FX Pro можно использовать для любого медиаплеера и даже на Вашем Android для регулирования громкости и улучшения качества звука, чтобы насладиться песнями различных исполнителей самых популярных жанров. Также оно визуализирует спектры и даёт возможность выбрать 1 из 6 (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 28.03.2020Разработчик: HowarJranПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84A6C9AB3A07607D41CE0863829ACD26697CF7DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

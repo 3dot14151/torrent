@@ -1,135 +1,3 @@
-###  Публикация: 1143154   (639338) от 16.06.2017
-
-Виктор Степаков | Русские диверсанты против "кукушек" (2004) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639338.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя: В этой книге на основе ранее недоступных документов описывается история противостояния специальных диверсионных подразделений СССР и Финляндии в годы "зимней" и Великой Отечественной войны. Рейды советских командос вглубь финской территории, подрыв мостов и складов с оружием, похищения важных финских "шишек". Ответные карательные (   Читать дальше...   )Жанр: военная историяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11F9252DA3C887F52F84CBE08F3634B959C354D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906665   (639321) от 11.06.2015
-
-Дж. Бордмэн, Н.-Дж.-Л. Хэммонд (ред.) | Кембриджская история древнего мира. Том III, Часть 3. Расширение греческого мира. VII-VI века до н. э. (2007) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кембриджская история древнего мира» («The Cambridge Ancient History») представляет собой самое авторитетное из всех существующих на сегодняшний день комплексных многотомных трудов, рассматривающих в единстве конкретную историю стран древнего Востока, греческих полисов и римского Средиземноморья. Первое издание, состоявшее из двенадцати томов, осуществлялось с 1924 (   Читать дальше...   )Жанр: историяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89C6E67CF9565B3B04BA3E271E3A9C30AAB3616E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142838   (639227) от 16.06.2017
-
-А. Куско, М. Томпсон | Сети электроснабжения. Методы и средства обеспечения качества энергии (2010) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639227.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге на основе материалов Института инженеров по электротехнике и радиоэлектронике (IEEE) рассмотрены примеры влияния динамических изменений напряжения сети на различное оборудование и основные методы и средства обеспечения качества поставляемой энергии.
-Обсуждаются международные стандарты по качеству электроэнергии, искажения напряжения, вызываемые несинусоидальностью (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4ED8E29FE42237B113EDD5127E7906AF58AFBEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142821   (639224) от 16.06.2017
-
-С.Н. Чижма | Электроника и микросхемотехника (2012) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639224.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены элементы электронных устройств, аналоговые электронные устройства, устройства цифровой и импульсной электроники, основные схемы включения и применение электронных компонентов в различных режимах работы.
-Изложены принципы построения современных устройств электронных систем, предназначенных для формирования, генерирования и обработки информационных сигналов. (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFE3BB16AE602E04B9A9C3066D0C7F62DD86B3D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143156   (639216) от 16.06.2017
-
-Вольфганг Акунов | Танковый корпус "Великая Германия" (2008) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639216.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя: Впервые на русском языке!  Панцергренадерская дивизия "Гроссдойчланд", развернутая к концу войны в танковый корпус, стала одним из самых опасных противников Красной Армии на Восточном фронте.  Рядовые и офицеры этого соединения были подлинной элитой вооруженных сил Третьего Рейха. Обученные для войны в любых, самых тяжелых условиях, оснащенные (   Читать дальше...   )Жанр: военная историяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E804319769A4812BD782C270D321A0D3E64048C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1293089   (639203) от 02.04.2019
 
 Г. Чудаков | Пролетарская революция и буржуазная культура [статьи 1918-1919 гг.] (1920) [PDF]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639203.jpg" />
 </div>
 
 
@@ -167,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639201.jpg" />
 </div>
 
 
@@ -193,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639173.jpg" />
 </div>
 
 
@@ -219,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639069.jpg" />
 </div>
 
 
@@ -245,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639016.jpg" />
 </div>
 
 
@@ -271,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639009.jpg" />
 </div>
 
 
@@ -299,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638928.jpg" />
 </div>
 
 
@@ -325,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638900.jpg" />
 </div>
 
 
@@ -352,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638826.jpg" />
 </div>
 
 
@@ -378,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638824.jpg" />
 </div>
 
 
@@ -404,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638811.jpg" />
 </div>
 
 
@@ -430,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638770.jpg" />
 </div>
 
 
@@ -458,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638764.jpg" />
 </div>
 
 
@@ -485,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638638.jpg" />
 </div>
 
 
@@ -512,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638329.jpg" />
 </div>
 
 
@@ -538,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638319.jpg" />
 </div>
 
 
@@ -564,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638087.jpg" />
 </div>
 
 
@@ -592,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638077.jpg" />
 </div>
 
 
@@ -618,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638072.jpg" />
 </div>
 
 
@@ -644,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638040.jpg" />
 </div>
 
 
@@ -671,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637986.jpg" />
 </div>
 
 
@@ -683,6 +551,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E93A218A498903EB20C80E2DA8FF2F4A8CE49647
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907703   (637985) от 12.06.2015
+
+Борис Сергеев | Ступени эволюции интеллекта (1986) [PDF, DOCX, EPUB]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена эволюции мозга и его высших функций, т. е. развитию психики. В ней рассказано об основных этапах функционального и отчасти структурного становления центральной нервной системы от самых примитивных организмов до человека, о соотношении врожденных и приобретаемых в индивидуальной жизни механизмах организации поведения и о все возрастающей роли последних. (   Читать дальше...   )Жанр: БиологияФормат: PDF, DOCX, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03FB3AFD9DF919ECDD62F834DBC57AE3690EBAEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907736   (637984) от 12.06.2015
+
+И. И. Срезневский | Мысли об истории русского языка (1887) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637984.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга известного отечественного языковеда И.И.Срезневского "Мысли об истории русского языка" явилась первым опытом последовательного изложения основных этапов истории русского языка.
+Прекрасное знание древних памятников и славянских древностей, свободное владение всеми славянскими языками позволили автору всесторонне осветить вопросы русского языкознания. (   Читать дальше...   )Жанр: ИсторияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15BAC91D53C4C50922B59F98A3BFC73E49DD4CB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907803   (637977) от 12.06.2015
+
+Б. В. Казанский | Приключения слов (2008) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637977.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор - известный филолог, исследователь классических текстов, театрального искусства и пушкинского наследия. В этой занимательной книге он рассказывает, почему вещи называются именно так, а не иначе, объясняет, откуда появляются новые слова, и как они приживаются в языке. В своих рассуждениях автор использует фольклор и библейские изречения. Материалы, подобранные (   Читать дальше...   )Жанр: ЯзыкознаниеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADBC5A5D0C2C2407A7ED8E1932D1689717D0648C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907758   (637973) от 12.06.2015
+
+В. М. Мокиенко | Образы русской речи (1986) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637973.jpg" />
+</div>
+
+
+###  Подробнее
+
+В монографии в живой и доступной форме рассматривается история и этимология многих русских образных выражений: печки-лавочки, заморить червячка, во всю ивановскую, на чем свет стоит и т. п. Особое внимание уделяется языковым загадкам, требующим специального комментария: уйти восвояси, мозги набекрень, тютелька в тютельку, на карачках и т. п.Жанр: Русский язык, История и теория русского языкаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0722C61A123ADB7B4A42CD378B1300DE2700938B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907604   (637971) от 12.06.2015
+
+М. Гуттъ | Самоучитель или полная российская азбука (1831) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самоучитель, или полная российская азбука, составленная по новейшей методе и с новыми, до сих пор неизвестными облегчениями к изучению чтения.Жанр: АзбукаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31BF693FF095498651DD3529C537213A1D1E1541
 ```
 
 https://mybot314.ru/tekegram_catalog/

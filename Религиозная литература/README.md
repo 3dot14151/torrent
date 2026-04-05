@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1862639   (1063520) от 
+
+диакон Андрей Кураев | Священные войны православного мира (2025) [FB2, EPUB, PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга протодиакона Андрея Кураева «Священные войны православного мира» посвящена исследованию феномена религиозного насилия и оправдания войны в истории и богословии православия. Автор рассматривает, как церковь на протяжении веков относилась к войнам – от Византии и Древней Руси до новейшего времени. В центре внимания – противоречие между евангельской заповедью (   Читать дальше...   )Жанр: ПравославиеИздательство: BAbookФормат: FB2, EPUB, PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CF52BDCD32131CE43422909FDDFFC83267A2593
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1862068   (1062983) от 
 
 Наталия Куцаева | Первая православная энциклопедия (2025) [PDF]
@@ -7,7 +33,7 @@ https://t.me/izofen
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062983.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062982.jpg" />
 </div>
 
 
@@ -51,32 +77,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861615   (1062772) от 
-
-СЗКЭО (изд.) | Библия изложенная для семейного чтения (2026) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Библия на протяжении всей человеческой истории остается главным источником познания Бога и Его творения — видимого и невидимого миров. Тысячи поколений изучают это Божественное Откровение, чтобы найти в нем ответы на главные вопросы бытия, чтобы отличать добро от зла и познать истину существования. «Библия, изложенная для семейного чтения» — это адаптированный пересказ (   Читать дальше...   )Жанр: Религиозная литература. Книги Священного Писания. БиблияИздательство: Издательство Сретенского монастыря и СЗКЭОФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6522FD9780316AB81860D1F22F8B55BA96CB3E95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857978   (1060191) от 08.03.2026
 
 Святитель Григорий Двоеслов | Диалоги о жизни италийских отцов и о бессмертии души. В четырех книгах (2025) [PDF]
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060191.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051488.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051147.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051146.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051144.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051125.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051121.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051034.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051022.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051021.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051020.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051019.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051018.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051013.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051012.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050991.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1050643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050643.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050222.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046436.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046431.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046342.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046036.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046033.jpg" />
 </div>
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 125533   (734814) от 01.02.2022
+
+Мария Каллас / Maria Callas - 100 Best Classics (2006) [FLAC|LossLess]<Вокал>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ВокалПродолжительность: Disc 1 - 01:16:54
+Disc 2 - 01:18:36
+Disc 3 - 01:16:37
+Disc 4 - 01:17:24(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A1B3C3DC76898C12D9836C26B4BC77C37A1C012
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1529003   (733524) от 04.02.2022
 
 VA - 30 Most Beautiful Pieces of Classical Music (2022) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -6,7 +35,7 @@ VA - 30 Most Beautiful Pieces of Classical Music (2022) [FLAC|Lossless|WEB-DL|tr
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733524.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Полные собрания сочинений (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733480.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Antonio Vivaldi - The Masterworks (2004) 40CD Box Set [FLAC|Lossless|tracks + .c
 >>Полные собрания сочинений (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733476.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Maxence Cyrin - Melancholy Island (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern C
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733160.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Julien Marchal - INSIGHT III (2017) [FLAC|Lossless|WEB-DL|tracks] <Neoclassical,
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732052.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Julien Marchal - INSIGHT IV (2019) [FLAC|Lossless|WEB-DL|tracks] <Neoclassical, 
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731953.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Yann Tiersen - ALL (2019) Mute Artists Ltd. [FLAC|Lossless|WEB-DL|tracks] <Neocl
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731940.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Mario Lanza (Марио Ланца) - Welterfolge/Mein Herz Singt Nur Für Dich!
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728586.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Sofiane Pamart - LETTER (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, 
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727815.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - Great Romantic Symphonies (2012) Naxos 25th Anniversary. The Great Classics
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726770.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Paul McCartney - Ocean's Kingdom (Studio and Live Audio) (2011) [FLAC 2.0 24/96|
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725524.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - Great Baroque Masterpieces (2012) Naxos 25th Anniversary. The Great Classic
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723260.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Bruno Sanfilippo - Claroscuro (2014) [MP3|320 Kbps] <Neoclassical, Ambient>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721268.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Bruno Sanfilippo - Piano Textures 1 (2007) [MP3|320 Kbps] <Neoclassical, Experim
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721264.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Catherine Jones - Boccherini & Cirri: Cello Sonatas (2014) [FLAC|Lossless|WEB-DL
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720324.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ VA - 20 Classic Christmas Carols (2004) Promo, Cardsleeve [FLAC|Lossless|image +
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718802.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Sergei Rachmaninov - The Complete Works (2014) Decca Records, 32CD [FLAC|Lossles
 >>Полные собрания сочинений (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716432.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Johann Sebastian Bach - Ouvertures - Zefiro, Alfredo Bernardini (2016) [FLAC|Los
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716150.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Khachaturian - Spartacus, Gayaneh (excerpts) – Bournemouth SymphoKirill Karabi
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708580.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ VA - Beach Dating (2018) [MP3|320 Kbps] <Vocal, Indie, Acoustic>
 >>Вокал
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707907.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Johannes Bornlof - The 50 Greatest Epic Piano Pieces (2018) [MP3|320 Kbps] <Clas
 >>Фортепиано
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705893.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Vanessa Mae - My New Classic (2012) [MP3|320 кб/с]<Pop, Classical>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704258.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Vivaldi J.S. Bach A. Marcello Telemann-Concertos for oboe and orchestra Vladimir
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702271.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ David Garrett - Caprice (2014) [FLAC|Lossless]<Classical Crossover>
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700854.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Narcis - Narcis (2016) Limited Edition [FLAC|Lossless|tracks + .cue] <Pop, Class
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700213.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Narcis - Narcis (2016) Limited Edition [FLAC|Lossless|tracks + .cue] <Pop, Class
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4097508498F6D41143C2D896012330FCB5747582
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133137   (696787) от 11.05.2017
-
-Jackie Evancho - Two Hearts (2017) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, Vocal Pop>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caruso
-02. Attesa
-03. How Great Thou Art
-04. Mama(   Читать дальше...   )Жанр: Classical Crossover, Vocal PopПродолжительность: 01:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58B025A1FD4D75FC3C047409632DD5758C0063D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

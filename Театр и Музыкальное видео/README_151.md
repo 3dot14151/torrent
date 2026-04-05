@@ -6,7 +6,7 @@ Cinderella - In Concert: (1991) Remastered Edition! (2011) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46652.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Grand Funk & Mark Farner (2005) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46651.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Styx -Counght In The Akt- 1984 (2007) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46641.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ LIVING LOUD - Live Sydney Fox Studios (2004) DVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46635.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Led Zeppelin - Celebration Day (Live at London O2 Arena 2007) (2012) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46578.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Ritchie Blackmore's Rainbow - Black Masquerade (1995) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46575.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ The Doors - 30 Years Commemorative Edition  (2001) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46571.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Rainbow - Live In Munich (1977) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46551.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ VA - Live At Knebworth (2002) DVD9 + DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46548.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46544.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ The Doors - Live In Europe - 1968 (DVD5)
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46440.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ The Doors - Live At The Isle Of Wight Festival '1970 (2018) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46342.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46042.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46040.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46029.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46028.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46021.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Depeche Mode - Personal Jesus (1990) HDTV [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45963.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45959.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Guns N' Roses - Use Your Illusion Ultimate (1998) 2 x DVD9/5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45955.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45944.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45929.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Rainbow - Live In Japan 1984 (2015) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45927.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45853.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Deep Purple - History, Hits & Highlights '68-'76 (1968-1976) 2*DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45847.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ Pink Floyd. The Wall (1982) DVD9
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45844.jpg" />
 </div>
 
 

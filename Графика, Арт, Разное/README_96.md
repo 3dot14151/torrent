@@ -1,3 +1,29 @@
+###  Публикация: 1246654   (460894) от 11.09.2018
+
+Футажи - Москва урбанистическая [MOV]
+
+>>Графика, Арт, Разное
+>>Интернет-творчество
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460894.jpg" />
+</div>
+
+
+###  Подробнее
+
+8 роликов, снятых в Москве: дороги, пробки, движение, стояние. Снято мной в надежде, что может кому-то пригодиться :)Формат: MOVРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5BA01E87F4192CAA1945CC612B5047FCE7E736A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 549778   (460581) от 21.09.2012
 
 [Wallpapers] Neo-Paris 2084
@@ -6,7 +32,7 @@
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460581.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ Artworks by LUKYANOV [Графика]
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460430.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460018.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459658.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459547.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459314.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459313.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ Hd mix wallpapers (22.09.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458236.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Artworks by Renato Guttuso [Графика]
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457790.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457778.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Peter Mohrbacher — американский художник — иллюст�
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457765.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457466.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457220.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457137.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456944.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456943.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456927.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456847.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456736.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455866.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455859.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455752.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455601.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455445.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453562.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:757150A7CFBF1636124C53AD89282418039F8279
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942636   (453243) от 01.10.2015
-
-Картинки - Авиация в картинках. Часть 2. Воздушная техника СССР. 7680x4320 - 73 шт [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая часть сборника арт-обоев формата 8К с изображениями "железных птиц" и "стрекоз" военного, транспортного и многоцелевого назначения. Посвящена советской воздушной технике - от учебно-тренировочной до космической.Формат: JPGРазрешение файлов: 7680х4320
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C19EF3C2F2D2688B52D8187866B48264DA0216E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

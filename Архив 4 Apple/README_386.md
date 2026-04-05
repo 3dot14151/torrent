@@ -6,7 +6,7 @@ ScreenFlow 8.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428612.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Bartender 3 Beta v.3.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428516.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Layouts for Keynote 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428384.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ VMware Fusion Pro 11.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428225.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Boinx mimoLive 2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428213.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Tower 2.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428210.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ ExactScan Pro 16.10.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428209.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ NoteBurner iTunes DRM Audio Converter 2.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428177.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ KeyFlow Pro 1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428060.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Polarr Photo Editor 3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428055.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Coda 2.5.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427908.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ iMazing 2.0.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427763.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427644.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ PhoneClean Pro 4.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427499.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Remote Desktop Manager Enterprise 2020.2.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427346.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ BlueHarvest 6.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427302.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Unibox 1.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427254.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Bartender 2.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427251.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Downcast 2.9.35 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427199.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Temp Monitor 1.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427192.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ SnippetsLab 1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427188.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ PDFelement Express 0.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427184.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ SQLPro Studio 1.0.302 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427182.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Butler 4.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427115.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Pixellu SmartAlbums 2 v2.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426985.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Espresso 5.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426977.jpg" />
 </div>
 
 

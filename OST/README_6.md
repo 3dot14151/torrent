@@ -1,32 +1,3 @@
-###  Публикация: 1119709   (805005) от 29.03.2017
-
-Brad Fiedel - Terminator 2: Judgment Day / Терминатор 2 Судный день (Original Soundtrack Recording) (2017) Remastered 2016 [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Title Terminator 2 Theme (01:57)
-02. Sarah On The Run (02:33)
-03. Escape From The Hospital (04:36)
-04. Desert Suite (03:27)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:53:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:599F7DA1C0FE4B50D09778150BF6ED5C8285500E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120683   (802092) от 31.03.2017
 
 Harry Gregson-Williams - Live by Night / Закон ночи (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
@@ -35,7 +6,7 @@ Harry Gregson-Williams - Live by Night / Закон ночи (Original Motion Pi
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802092.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Ghost in the Shell / Призрак в доспехах (Music Inspired by 
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801881.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Nick Cave & Warren Ellis - Hell or High Water / Любой ценой (Original 
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800552.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800503.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Benjamin Wallfisch - A Cure for Wellness / Лекарство от здоров�
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800500.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ David Arnold and Michael Price - Sherlock / Шерлок (Collection Original Te
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800494.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ VA - The Young Pope / Молодой Папа (Unofficial Soundtrack) (2016) [MP
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800424.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Mark Mancina, VA - Moana / Моана (Оригинальный саундтре
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800324.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Brian Tyler - Now You See Me 2 / Иллюзия обмана 2 (Original Motion 
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800022.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Ola Strandh - Tom Clancy's The Division Survival (Original Game Soundtrack) (201
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799196.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Ola Strandh - Tom Clancy's The Division (Original Game Soundtrack) (2016) [MP3|3
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799183.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Samuel Sim, VA - The Halcyon / Алкион (Original Music from the Television 
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798852.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Alexandre Desplat - The Shape of Water / Форма воды (Original Motion Pi
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793960.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Henry Jackman - Первый мститель Противостояние / Cap
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793453.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ VA, Ilan Eshkeri - Collide / Автобан (Original Soundtrack) + (Original Sc
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793430.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Thomas Cappeau - Commando Ninja / Коммандос-ниндзя (Original Moti
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788587.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ VA - Going in Style / Уйти красиво (Original Motion Picture Soundtrac
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785910.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Cris Velasco & Sascha Dikiciyan - The Long Dark Soundtrack 2 (2020) [MP3|320 Kbp
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784247.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ VA - Fifty Shades Freed (Original Motion Picture Soundtrack) (2018) [MP3|320 Kbp
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783770.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781784.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Ludwig Goransson - Чёрная пантера / Black Panther (Original Motion 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778944.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ Audiomachine - Life (2017) [MP3|320 Kbps] <Soundtrack, Trailer music, Classical 
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776673.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Audiomachine - Volturnus (2018) [MP3|320 Kbps] <Soundtrack, Trailer music, Class
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776661.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ Peter Kater - Heart of the World - Colorado's National Parks (2016) [MP3|320 к�
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774993.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ VA - The Fate of the Furious / Форсаж 8 (The Album) (2017) [MP3|320 кб/�
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768590.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ VA - The Fate of the Furious / Форсаж 8 (The Album) (2017) [MP3|320 кб/�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:208FB825F5C00E334256B41DC93FDC1435C30043
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278573   (768478) от 26.01.2019
+
+Atom Music Audio - Vortex (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mistake [02:33]
+02. In the Dark Rise [02:29]
+03. Vortex [02:05]
+04. Eternity [02:36](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:23:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC0C7C4E896D58F9D3BF4B6015463AF86D86E7F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

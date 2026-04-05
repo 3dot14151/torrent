@@ -1,3 +1,32 @@
+###  Публикация: 1569890   (447303) от 15.08.2022
+
+Хаме-леоН - Крики! (2022) [MP3|320 Kbps] <Heavy Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Утро мёртвых [00:01:08]
+02 - Бежать! [00:04:42]
+03 - Navigator [00:06:38]
+04 - Я знаю имя [00:05:18](   Читать дальше...   )Жанр: Heavy Power MetalПродолжительность: 00:54:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DDA0CBD33E25B791FBB0E11415252D9F8DA82BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569898   (447299) от 15.08.2022
 
 Age Of Darkness - As Essence Left Your Soul (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Death Metal>
@@ -6,7 +35,7 @@ Age Of Darkness - As Essence Left Your Soul (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447299.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Space Of Variations - Imago (2022) Scene [FLAC|Lossless|tracks] <Metalcore, Post
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447298.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ The Brave - Gravedigger (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447297.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Space Of Variations - Imago (2022) [MP3|320 Kbps] <Metalcore, Post-Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447290.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Heart Of A Coward - Deliverance (2015) [MP3|320 кб/с]<Progressive Metalcore, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447215.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ EVO - 2 Relises (2021-2022) [MP3|320 Kbps] <Alternative, Trancecore, Post-Hardco
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447205.jpg" />
 </div>
 
 
@@ -181,7 +210,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447201.jpg" />
 </div>
 
 
@@ -210,7 +239,7 @@ Amon Amarth - The Great Heathen Army (2022) [FLAC|Lossless|WEB-DL|tracks] <Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447197.jpg" />
 </div>
 
 
@@ -239,7 +268,7 @@ Slowjoint - 6 Relises (2012-2022) [MP3|320 Kbps] <Sludge, Stoner, Doom>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447188.jpg" />
 </div>
 
 
@@ -268,7 +297,7 @@ Smokie - Gold (2020) [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447135.jpg" />
 </div>
 
 
@@ -297,7 +326,7 @@ Trivium - Silence In The Snow (2015) Special Edition [FLAC|tracks|WEB-DL]<New Wa
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447125.jpg" />
 </div>
 
 
@@ -326,7 +355,7 @@ Stam1na - 6 альбомов (2005 - 2014) Дискография [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447120.jpg" />
 </div>
 
 
@@ -355,7 +384,7 @@ Chris Norman - Crossover (2015) [FLAC|image+.cue]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447115.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ Tarja Turunen - Ave Maria - En Plein Air (2015) [FLAC|image+.cue]<Neo-Classical,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447110.jpg" />
 </div>
 
 
@@ -413,7 +442,7 @@ Atlantis - 5 albums (1972-2019) [FLAC|Lossless|image + .cue | tracks + .cue] <Pr
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447102.jpg" />
 </div>
 
 
@@ -442,7 +471,7 @@ Frumpy (8 Days In April / Inga Rumpf) - 10 albums, 14 CD (1970-2021) [FLAC|Lossl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447097.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ Sigue Sigue Sputnik - Flaunt It (1986) [FLAC|Lossless]<Post-Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_447051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_447051.jpg" />
 </div>
 
 
@@ -500,7 +529,7 @@ Accept - Heavy Ballads (2015) 2CD|bootleg [FLAC|tracks]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446804.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ Aposento - Aposento (2014) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446760.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ Alberto Rionda Alquimia - Alquimia (2013) Japanese Ed.  2016 Reissue [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446755.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446653.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ Toxic Ruin - Subterranean Terror (2016) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446613.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ Zuriaake - Gu Yan (2015) Digipak [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446610.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ Toundra - IV (2015) [FLAC|Lossless|image + .cue] <Instrumental Post-Rock, Post-M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446609.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ Serious Black - Mirrorworld (2016) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446607.jpg" />
 </div>
 
 
@@ -717,35 +746,6 @@ Serious Black - Mirrorworld (2016) Japanese Edition [FLAC|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFC3D4064C22A899CCA7834CB0FEA0CFBEE235D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322509   (446581) от 30.08.2019
-
-Fly Pan Am - C'est ca (2019) [FLAC|Lossless|tracks + .cue] <Post-rock, Experimental, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avant-Gardez Vous (01:19)
-02. Distance Dealer (04:09)
-03. Bleeding Decay (05:36)
-04. Dizzy Delusions (01:50)(   Читать дальше...   )Жанр: Post-rock, Experimental, Indie RockПродолжительность: 00:38:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEB243BF940CC36E078143E9E5D632762D6DF42B
 ```
 
 https://mybot314.ru/tekegram_catalog/

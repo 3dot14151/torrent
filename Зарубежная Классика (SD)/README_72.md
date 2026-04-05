@@ -1,3 +1,57 @@
+###  Публикация: 133999   (478285) от 08.09.2011
+
+Убийцы / The Killers (1964) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478285.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прекрасный триллер по рассказу Хемингуэя о двух жестоких профессиональных убийцах, которые решили узнать правду, почему они были наняты, чтобы устранить их жертву. Прекрасная сцена с ограблением броневика, хитроумно сплетенные обманы и предательство. Все актеры играют великолепно, особенно хорош бывший президент США Роналд Рейган в роли коррумпированного разработчика (   Читать дальше...   )Жанр: Детектив, ДрамаРежиссер: Дон СигелАктеры: Ли Марвин, Энджи Дикинсон, Джон Кассаветес, Клу Гулагер, Клод Экинс, Норман Фелл, Рональд Рейган, Вирджиния Кристин, Дон Хэггерти, Роберт Филлипс, Кэтлин О'Мэлли, Тед Жак, Ирвин Мосли, Джимми Джойс, Дэвис Робертс, Барт Мастин, Питер Хоббс, Тайлер МакВей, Сеймур Кэссел, Ричард Лэйн, Берт СтевенсПеревод: Двухголосый закадровыйПродолжительность: 01:34:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 546532   (478128) от 13.09.2012
+
+Индиана Джонс: В поисках утраченного ковчега / Raiders of the Lost Ark (1981) [H.264] BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный археолог и специалист по оккультным наукам доктор Джонс получает опасное задание от правительства США. Он должен отправиться на поиски уникальной реликвии — священного Ковчега. Но Индиана и не подозревает, что аналогичный приказ уже получили тайные агенты Адольфа Гитлера…
+
+Этим потрясающим фильмом продюсер Джордж Лукас и режиссер Стивен Спилберг положили начало саги о странствиях благородного доктора Джонса по всевозможным уголкам земного шара.Жанр: Боевик, ПриключенияРежиссер: Стивен СпилбергАктеры: Харрисон Форд, Карен Аллен, Пол Фримен, Рональд Лейси, Джон Рис-Дэвис, Денхолм Эллиот, Альфред Молина, Вольф Калер, Энтони Хиггинс, Вик Тэблиан, Дон Феллоуз, Уильям Хуткинс, Билл Рэймбуд, Фред Соренсон, Патрик Даркин, Мэтью Скарфильд, Малкольм Уивер, Санни Каодинез, Энтони Чинн, Пэт Роуч, Тутте Лемков, Ишак Бакс, Киран Шах, Соуад Мессоуди, Терри Ричардс, Стив Хэнсон, Фрэнк Маршалл, Мартин Крейдит, Джордж Харрис, Эдди Тэгоу, Джон Рис, Тони Фогель, Тед ГроссманПеревод: Многоголосый закадровый (Киномания), Многоголосый закадровый (НТВ+), Авторский, одноголосый закадровый (А. Гаврилов)Продолжительность: 01:55:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45492F8E945DAA62895512D50F065CB5373F471A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 935420   (477669) от 20.09.2015
 
 Верная рука - друг индейцев / Old Surehand (1965) BDRip
@@ -6,7 +60,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477669.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_477545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_477545.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_477132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_477132.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477117.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476805.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476675.jpg" />
 </div>
 
 
@@ -162,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475868.jpg" />
 </div>
 
 
@@ -188,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475668.jpg" />
 </div>
 
 
@@ -214,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475655.jpg" />
 </div>
 
 
@@ -244,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475053.jpg" />
 </div>
 
 
@@ -270,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474930.jpg" />
 </div>
 
 
@@ -296,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474922.jpg" />
 </div>
 
 
@@ -323,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474920.jpg" />
 </div>
 
 
@@ -350,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474513.jpg" />
 </div>
 
 
@@ -377,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474061.jpg" />
 </div>
 
 
@@ -405,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473968.jpg" />
 </div>
 
 
@@ -432,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473859.jpg" />
 </div>
 
 
@@ -458,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473667.jpg" />
 </div>
 
 
@@ -485,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473661.jpg" />
 </div>
 
 
@@ -512,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473450.jpg" />
 </div>
 
 
@@ -540,7 +594,7 @@ James Bond 007. Шпион, который меня любил / The Spy Who Lov
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473447.jpg" />
 </div>
 
 
@@ -567,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473329.jpg" />
 </div>
 
 
@@ -593,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473325.jpg" />
 </div>
 
 
@@ -619,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473112.jpg" />
 </div>
 
 
@@ -632,59 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABC63335CAA8096E155657E0627E279CCDF481C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 823313   (473005) от 21.09.2014
-
-Муха / The Fly (1986) HDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Талантливый и немного эксцентричный ученый Сет Брандл изучает проблемы телепортации. Начав с перемещения в пространстве неодушевленных предметов, гений от науки решает поэкспериментировать с живыми существами.
- Воодушевленный удачным результатом опыта по телепортации обезьяны, он сам хочет стать объектом эксперимента. Но по воле случая в стерильную камеру залетает (   Читать дальше...   )Производство: США, Великобритания, Канада / Brooksfilms, SLM Production GroupЖанр: Ужасы, Фантастика, ДрамаРежиссер: Дэвид КроненбергАктеры: Джефф Голдблюм, Джина Дэвис, Джон Гец, Джой Баушел, Лесли Карлсон, Джордж Чувало, Майкл Коупмен, Дэвид Кроненберг, Кэрол Лазар, Шон ХьюитПеревод: Многоголосый закадровый, авторскийПродолжительность: 01:35:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B830BE71A04977FB187C0C68C15FEF3FF9F1EB12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 386745   (471718) от 11.09.2011
-
-Смертельная охота / Death Hunt (1981) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Боевик, Триллер, КриминалРежиссер: Питер Р. ХантАктеры: Чарльз Бронсон, Ли Марвин, Эндрю Стивенс, Карл Уэзерс, Эд Лотер, Энджи Дикинсон, Скотт ХайлендсПеревод: Русский профессиональный (многоголосый, закадровый)Продолжительность: 01:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CFBCAC8A4ED1A5FECEA6FD39847171341B24B25
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Peter Richard - Frozen Red (1983) [MP3|320 Kbps] <Electronic, Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444698.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ A Taste Of Honey - 4 Albums (1978-1982) Reissue CD [MP3|320 Kbps] <Funk, Soul, D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444108.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Raf - Raf (1984) LP [MP3|320 Kbps] <Electronic, Italo-Disco, Synth-pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442226.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Lady Lily - Get Out Of My Life (1987) [MP3|320 Kbps] <Disco,Europop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441687.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - I Love Disco! (2012) [MP3|320 кб/с]<Pop, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441089.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Modern Talking - Let's Talk About Love - The 2nd Album (1985) Vinyl-rip [OGG|485
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440357.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Mike Mareen - 2 Albums, 4 Singles (1977-1988) HQ Vinyl Collection [MP3|320 Kbps]
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439671.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Radiorama - Desires And Vampires (1986) [OGG|485 Kbps] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438180.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ VA - Золотые Хиты Дискотек (Golden • Disco • Hits) (2001-
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436394.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ London Boys - The Twelve Commandments Of Dance (1988) [OGG|485 Kbps] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436121.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ John Davis & The Monster Orchestra - 4 Albums (1976-1979) LP [MP3|320 Kbps] <Ele
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435725.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Milkways - Milkways (1978) Reissue LP (2012) [MP3|320 Kbps] <Electronic, Space-D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434833.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Alicia Bridges - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Electronic, Funk Soul,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433872.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Aural Exciters - Spooks In Space (1979) Reissue CD, ZE Records, 2010 [MP3|320 Kb
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433448.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Gregg Diamond (Bionic Boogie) - 5 Albums (1977-1979) [MP3|320 Kbps] <Electronic,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432371.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ The Max Him - Danger Danger (1986) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429713.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Cruisin' Gang - 2 Albums (1984, 1986) LP [MP3|320 Kbps] <Electronic, Italo-Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429608.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ C.C.Catch - Welcome To The Heartbreak Hotel (1986) [OGG Vorbis|485 Kbps] <Electr
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423524.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ C.C.Catch - Big Fun (1988) [OGG Vorbis|485 Kbps] <Electronic, Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423522.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ C.C.Catch - Like A Hurricane (1987) [OGG Vorbis|485 Kbps] <Electronic, Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423516.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Tony Rallo And The Midnite Band - Burnin' Alive (1979) LP [MP3|320 Kbps] <Electr
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422654.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Tim Maia - Disco Club (1978) Reissue CD, Atlantic, 2018 [MP3|320 Kbps] <Disco, F
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422641.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ VA - Decade of the Synth  Vol.1 (2016) [MP3|320 Kbps] <Disco, Nu Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421763.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Pisces - Disco 6 (1977) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419328.jpg" />
 </div>
 
 
@@ -709,7 +709,7 @@ Galaxis - I Want More & Space Rangers (1978) LP [MP3|320 Kbps] <Electronic, Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419209.jpg" />
 </div>
 
 
@@ -736,7 +736,7 @@ VA - New Italo Disco Top 25 Compilation Vol. 14 (2020) [MP3|320 Kbps] <Italo-Dis
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418195.jpg" />
 </div>
 
 

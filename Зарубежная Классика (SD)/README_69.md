@@ -1,3 +1,55 @@
+###  Публикация: 537492   (510529) от 22.08.2012
+
+Хондо / Hondo (1953) HDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американский бойскаут Хондо Лэйн, оказывается на расположенном вдалидорог и населенных пунктов ранчо, где он встречает госпожу Энжи Лоу и ее маленького сына Джонни. Глава семьи Эд Лоу давно покинул дом и ферма приходит в упадок. Хондо решает оказать поддержку покинутой семье, и остается поднять развалившееся хозяйство, тем более госпожа Лоу хороша собой, и симпатизирует ему. Проходят дни спокойной размеренной жизни, но они не долги. Хондо предстоит поездка в расположении армейского поста за время которой он узнает, что за негодяй Эд Лоу, оставивший свою семью. В это время начинается противостояние регулярной армии и вышедших на тропу войны индейских племен…Жанр: Боевик, Драма, Вестерн, Мелодрама, ВоенныйРежиссер: Джон ФэрроуАктеры: Джон Уэйн, Джеральдин Пейдж, Уорд Бонд, Майкл Пэйт, Джеймс Арнесс, Родольфо Акоста, Лео Гордон, Том Айриш, Пол Фикс, Чак Роберсон, Морри Огден, Фрэнк МакГрат, Рэйфорд БарнсПеревод: Профессиональный многоголосый (5 канал Санкт-Петербург) / Профессиональный многоголосый (ООО "Светла")Продолжительность: 01:24:05
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 537088   (510448) от 22.08.2012
+
+Виридиана / Viridiana (1961) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510448.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ДрамаРежиссер: Луис БунюэльАктеры: Сильвия Пиналь, Франсиско Рабаль, Фернандо Рей, Хосе Кальво, Маргарита Лосано, Хосе Мануэль Мартин, Виктория Дзинни, Луис Эредия, Хоакин Роа, Лола ГаосПеревод: Одноголосый закадровыйПродолжительность: 01:31:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C221082824685CE31EDD368542B37E02A65B18B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 376395   (510211) от 17.08.2011
 
 Идиот в Париже / Un idiot a Paris (1967) DVDRip
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510211.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509977.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509948.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509081.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508046.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508032.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507974.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507789.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507091.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506977.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506579.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504524.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504330.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504115.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503683.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503474.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500032.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499662.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499389.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499299.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498984.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498515.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498262.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497278.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:023A6FC166EF79B1ABF7A344C4F3B6B0353B20D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933448   (497277) от 10.09.2015
-
-Сабата / Ehi amico... c'е Sabata. Hai chiuso! (1969) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несколько преступников грабят банк на сто тысяч долларов, они думают, что все уже позади, но по их следу пускается бесстрашный ковбой Сабата, мастер оружия, который преподнесет бандитам хороший урок.Производство: Италия / Produzioni Europee Associati (PEA)Жанр: ВестернРежиссер: Джанфранко ПаролиниАктеры: Ли Ван Клиф, Вильям Бергер, Игнацио Спалла, Альдо Канти, Франко Рессель, Антонио Градоли, Линда Верас, Клаудио Ундари, Джанни Риццо, Спартако КонверсиПеревод: Двуголосый закадровый, авторскийСубтитры: ОтсутствуютПродолжительность: 01:46:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F93399F5EA85195B66C0DADEAFE32581621E2B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933403   (497211) от 10.09.2015
-
-Новые центурионы / The New Centurions (1972) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новичок Рой Фехлер приходит в полицию и принимается за работу с рвением, приводящим к развалу собственной семьи. В напарники ему достается опытный и принципиальный коп — настоящий матерый волк. Каждый раз, выезжая на дежурство, они балансируют на грани жизни и смерти, строго придерживаясь в своей деятельности главного лозунга: «Защищать и служить».Производство: США / Chartoff-Winkler ProductionsЖанр: Боевик, Триллер, Драма, КриминалРежиссер: Ричард ФлайшерАктеры: Джордж К. Скотт, Стейси Кич, Джейн Александр, Скотт Уилсон, Розалинд Кэш, Эрик Эстрада, Клифтон Джеймс, Ричард Е. Кальк, Джеймс Сиккинг, Беверли Хоуп ЭткинсонПеревод: Дублированный, двуголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:43:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA9ED35F8793F27EE4F90E81F71D4A2B99D32FE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

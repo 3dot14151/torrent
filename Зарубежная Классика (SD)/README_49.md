@@ -1,3 +1,56 @@
+###  Публикация: 1536281   (659947) от 23.03.2022
+
+Следствие закончено, забудьте / L'istruttoria è chiusa: dimentichi (1971) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Архитектора Ванци поместили на время следствия в тюрьму. Его подозревают в том, что он сбил человека на пешеходном переходе. Попав в тюрьму, Ванци знакомится с её обитателями – матерыми уголовниками, убийцами, сумасшедшими, жестокими надзирателями и крупным чиновником Сальваторе Роза, который сел, чтобы прикрыть махинации своих начальников.
+И здесь этот человек чувствует (   Читать дальше...   )Производство: ИталияЖанр: Драма, ТриллерРежиссер: Дамиано ДамианиАктеры: Франко Неро, Риккардо Куччолла, Жорж Вильсон, Джон Стайнер, Ферруччо Де Череза, Антонио Казале, Даниэле Дублино, Пьеро Нути, Луиджи Дзербинатти, Патриция Адиутори, Рената Дзаменго, Кристина Перуцци, Винченцо БасилеПеревод: Дублированный, Одноголосый любительскийСубтитры: отсутствуютПродолжительность: 01:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE97205F031958F65E962958727EE13D102936F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135186   (659904) от 02.06.2017
+
+Ричард Львиное Сердце / King Richard and the Crusaders (1954) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация исторического романа Вальтера Скотта «Талисман». 1191 год. Король Англии Ричард возглавляет третий крестовый поход на Святую землю, чтобы освободить ее от власти коварного султана Саладина — искусного военачальника и мастера хитрых ловушек. Но не все ладно в лагере крестоносцев: предатель выпустил в короля отравленную стрелу. Кузина раненого короля Эдит (   Читать дальше...   )Производство: СШАЖанр: Приключения, исторический, экранизацияРежиссер: Дэвид БатлерАктеры: Рекс Харрисон, Вирджиния Майо, Джордж Сандерс, Лоуренс Харви, Роберт Даглас, Майкл Пэйт, Пола Рэймонд, Лестер Мэттьюз, Энтони Юстрел, Рэй ПаттерсонПеревод: Профессиональный двухголосый, профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:49:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F204F8519AE926B187919B110F16D526C627155
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223488   (659538) от 16.05.2018
 
 Обнажённая виолончель / Il merlo maschio (1971) DVDRip [H.264] [VO]
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659538.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658907.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658789.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657604.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657153.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657064.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656545.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656519.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656255.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655787.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655653.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655134.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654402.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_654167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_654167.jpg" />
 </div>
 
 
@@ -373,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654125.jpg" />
 </div>
 
 
@@ -399,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653933.jpg" />
 </div>
 
 
@@ -426,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653677.jpg" />
 </div>
 
 
@@ -452,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653314.jpg" />
 </div>
 
 
@@ -481,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653154.jpg" />
 </div>
 
 
@@ -507,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653095.jpg" />
 </div>
 
 
@@ -533,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653061.jpg" />
 </div>
 
 
@@ -559,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652801.jpg" />
 </div>
 
 
@@ -585,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652318.jpg" />
 </div>
 
 
@@ -612,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651482.jpg" />
 </div>
 
 
@@ -623,61 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24687982815699821AA93B9702FED8617E1FE15B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029214   (651377) от 04.07.2016
-
-Беги, человек, беги / Corri uomo corri (1968) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бежав из тюрьмы, Кучильо и Рамирез направляются в город, в котором бандит Риза ищет спрятанное золото. За ними по пятам идут два французских агента, тоже имеющих виды на сокровище.Производство: Италия, Франция / Chretien, MancoriЖанр: Комедия, Приключения, ВестернРежиссер: Серджо СоллимаАктеры: Томас Милиан, Дональд О’Брайэн, Джон Айрленд, Линда Верас, Марко Гульельми, Хосе Торрес, Лучано Росси, Нелло Паццафини, Джанни Риццо, Данте МаджиоПеревод: Одноголосый закадровый, любительский (echnathon)Субтитры: ОтсутствуютПродолжительность: 02:00:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:551AB16F1D94F88F54F2017973AB23FCEDCE7461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 344882   (651278) от 02.06.2011
-
-Филадельфийская история / The Philadelphia Story (1940) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651278.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Филадельфийская история", выйдя на экраны, сразу покорила сердца зрителей всего мира,
-комедийные ситуации и великолепно сыгранные роли героев восхищают нас и сегодня.
-
-Холодная красавица миссис Трейси разведена и готовится вновь выйти замуж за Джорджа, управляющего нефтяной компанией ее отца.(   Читать дальше...   )Жанр: Комедия, МелодрамаРежиссер: Джордж КьюкорАктеры: Кэри Грант, Кэтрин Хепберн, Джеймс Стюарт, Рут Хасси, Джон Ховард, Роланд Янг, Джон Холлидэй и др.Перевод: Многоголосый, закадровый + Оригинальная дорожкаСубтитры: Русские ( отдельным файлом)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2B6CEB00CB143149F7AEF8F4F4D2E96DD7214EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

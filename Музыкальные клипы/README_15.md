@@ -6,7 +6,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721372.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720705.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ VA - Magical Flight vol. 2 (2CD) (2008) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717497.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Kalwi & Remi feat. Mr X - Girls (Uncensored) (2011) WEBRip [H.264/720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717388.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ DJ Phoenix - The Legend Club (Uncensored) (2013) WEBRip [H.264/720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717386.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713563.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Gregorian - Masters Of Chant In Santiago De Compostela (2001) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710865.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Gregorian - Masters Of Chant - Moments Of Peace In Ireland (2001) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710863.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Gregorian - Masters Of Chant Chapter III (2002) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710701.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ VH1 All Classics Hits (2005) 10xDVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709212.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708721.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ VA - Millenium Melody 6 (2016) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705582.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Moby - My Only Love; Power Is Taken; Power Is Taken (Moby's Old School Remix) (2
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703392.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Cher - Woman's World (Live On The Voice) (2013) HDTV [H.264/1080i] <Pop>
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702674.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702539.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Anaal Nathrakh - Endarkenment (2020) WEBRip [VP9/2160p] <Grindcore>
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699693.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Scorpions - The Best Is Yet To Come - Live in Prague (2010) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699526.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Lady Gaga - Judas (2011) HDTVRip [720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695625.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685990.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Evanescence - Live at Verizon Arena (2012) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683179.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678568.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Britney Spears - Till The World Ends (Dance Version) (2011) HDTVRip 1080p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676544.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ DVJ Bazuka - Anything [Без цензуры] (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676508.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ DVJ Bazuka - Don't Get Around (2012) [720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672568.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Millenium Extended (2012) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670648.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670309.jpg" />
 </div>
 
 

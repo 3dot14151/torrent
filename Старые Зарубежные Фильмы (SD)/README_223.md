@@ -1,3 +1,133 @@
+###  Публикация: 1740769   (47957) от 03.08.2024
+
+Приди узреть рай / Come See the Paradise (1990) DVDRip  [МVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47957.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1936 году киномеханик Джек МакГанн приехал с Восточного побережья в Лос-Анджелес, где случай помог ему устроиться на работу в маленький кинотеатрик, которым владел японский иммигрант Кавамура. Через несколько дней Джек познакомился с Лили Кавамура, дочерью своего хозяина, которая потом вышла замуж за МакГанна. Тогда они еще не знали, что впереди - вторая мировая (   Читать дальше...   )Производство: США / 20th Century Fox Film CorporationЖанр: драма, мелодрама, военныйРежиссер: Алан ПаркерАктеры: Дэннис Куэйд, Тэмлин Томита, Саб Симоно, Сидзуко Хоси, Стэн Эги, Рональд Ямамото, Акеми Нишино, Наоми Накано, Брэйди Цурутани, Элизабет ГиллиамПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:12:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2845C106087F2FF493A0D9E9E432EF3AD9B1FF07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741379   (47646) от 06.08.2024
+
+Школа для негодяев / School for Scoundrels (1960) BDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47646.jpg" />
+</div>
+
+
+###  Подробнее
+
+Генри Палфри трудно произвести впечатление на кого бы то ни было и на девушку в частности, тем более что его всегда обходит Делони. Он обнаруживает колледж, которым управляет "профессор" Поттер и узнаёт, что там учатся тайнам успеха. Ему надо только следовать этим грубым и дерзким рекомендациям…Производство: Великобритания / Associated British Picture Corporation (ABPC), Guardsman FilmsЖанр: комедияРежиссер: Роберт Хеймер, Хэл Э. Честер, Сирил ФранкельАктеры: Йен Кармайкл, Терри-Томас, Аластер Сим, Джанетт Скотт, Дэннис Прайс, Питер Джонс, Эдвард Чэпман, Джон Ле Мезюрье, Айрин Хэндл, Кинастон Ривз, Хью Паддик, Джералд Кэмпион, Монте Лэндис, Джереми Ллойд, Чарльз ЛамбПеревод: авторскийЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:932DEF96AE69A45E17C21876C3FB9B1ADD5F7EB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741314   (47636) от 06.08.2024
+
+Нападение / Assault / In the Devil's Garden (1971) BDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47636.jpg" />
+</div>
+
+
+###  Подробнее
+
+После того как случается изнасилование одной ученицы и убийство другой, школьная учительница решает использовать себя в качестве приманки, чтобы вычислить преступника.Производство: Великобритания / George H. Brown ProductionsЖанр: ужасы, драма, криминал, детективРежиссер: Сидни ХайерсАктеры: Сьюзи Кендалл, Фрэнк Финлей, Фредди Джонс, Джеймс Лоренсон, Лесли-Энн Даун, Тони Бекли, Энтони Эйнли, Дилис Хэмлетт, Джеймс Космо, Патрик ДжорданПеревод: Авторский (Вадим Назаров)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:31:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8AD854088B15A8753641442720B9071D85BE34B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741353   (47633) от 06.08.2024
+
+Сто дней в Палермо / Cento giorni a Palermo (1984) BDRip [H.264] [Итальянская версия]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47633.jpg" />
+</div>
+
+
+###  Подробнее
+
+В конце 70-х - начале 80-х годов многочисленные убийства государственных чиновников в Сицилии потрясли всю Италию. Ещё никогда с такой наглостью мафия не демонстрировала свою силу перед лицом бездействующей власти... Честного и принципиального генерала Карло Делакьеза назначают префектом в Палермо, где он будет бороться с сицилийской преступностью...Производство: Италия, Франция / TV Cine 2000, Compania Lavoratori del Cinema e del Teatro, Ombre et LumièreЖанр: драма, криминал, биографияРежиссер: Джузеппе ФеррараАктеры: Лино Вентура, Джулиана Де Сио, Лино Троизи, Стефано Сатта Флорес, Арнольдо Фоа, Адальберто Мария Мерли, Андреа Аурели, Аккурсио ди Лео, Анита Дзагария, Альдо СаруллоПеревод: дублированныйЯзык озвучки: русский, итальянскийСубтитры: русские (на места без перевода), английские, итальянскиеПродолжительность: 01:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AA452C059620CFF4A5948B856D73F7B6A65FAA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742035   (47333) от 09.08.2024
+
+Капитан Кейт / Captain Kate (1911) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47333.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшой фильм о приключениях американцев (или европейцев?) в Африке. Современному искушенному зрителю он конечно покажется простоватым, но когда-то, сто лет назад, все это выглядело весьма круто и увлекательно.Производство: США / Selig Polyscope CompanyЖанр: короткометражный, драма, приключения, немое киноРежиссер: Френсис Боггс, Отис ТернерАктеры: Кэтлин Уильямс, Чарльз Клэри, Фрэнк Уид, Фрэнк Смит, Том Микс, Том АндерсонПеревод: немой с интертитрамиСубтитры: немецкие (интертитры), русские отдельным файломПродолжительность: 00:13:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05A7F87B48743FE028974705AB069759EDC4DB71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1742621   (47018) от 12.08.2024
 
 Папочка вступил в Сопротивление / Papy fait de la resistance (1983) BDRip [H.264] [VO]
@@ -6,7 +136,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47018.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47013.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46939.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46384.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46203.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46200.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46174.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46125.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46103.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45969.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45756.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45335.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45141.jpg" />
 </div>
 
 
@@ -345,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44840.jpg" />
 </div>
 
 
@@ -371,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44712.jpg" />
 </div>
 
 
@@ -397,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44638.jpg" />
 </div>
 
 
@@ -423,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44403.jpg" />
 </div>
 
 
@@ -449,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44075.jpg" />
 </div>
 
 
@@ -475,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43969.jpg" />
 </div>
 
 
@@ -501,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43862.jpg" />
 </div>
 
 
@@ -527,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43785.jpg" />
 </div>
 
 
@@ -538,137 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C77D7D5A7C723F3090EDE20D330F3A9F675486CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749439   (43551) от 14.09.2024
-
-Великий инквизитор / Witchfinder General (1968) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сценарий основан на романе Рональда Бассетта 1966 года "Генерал-искатель ведьм"... В 1645 году, во время гражданской войны в Англии, Мэтью Хопкинс, оппортунистический охотник на ведьм, пользуясь нарушением общественного порядка, пытается установить царство террора в Восточной Англии. Хопкинс и его помощник Джон Стерн посещают различные деревни, чтобы пытками (   Читать дальше...   )Производство: Великобритания / Tigon British Film Productions, American International ProductionsЖанр: ужасы, драмаРежиссер: Майкл РивзАктеры: Винсент Прайс, Иэн Огилви, Руперт Дейвис, Хилари Хит, Роберт Рассел, Никки Хенсон, Тони Шелби, Бернард Кэй, Майкл БейнтПеревод: любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:26:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAD151CCFFE7641F9743D09909939330FDA99552
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750023   (43264) от 17.09.2024
-
-Строптивая девчонка / Cette sacree gamine (1956) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43264.jpg" />
-</div>
-
-
-###  Подробнее
-
-В одном из ночных клубов Парижа имеют хождение фальшивые деньги. Полиция видит главного виновника в Поле Лятуре, владельце самого клуба. Когда Поль узнаёт о подозрениях, он решает на время покинуть город. Не решаясь брать с собой дочь, он оставляет её на попечение работнику клуба Жану Клери. Последний, занятый отношениями со своим психоаналитиком Лили, даже не подозревает, (   Читать дальше...   )Производство: Франция / Lutetia, SLPF, Selb-FilmЖанр: мелодрама, комедия, мюзиклРежиссер: Мишель БуаронАктеры: Брижит Бардо, Жан Пуарэ, Мишель Серро, Бернар Ланкре, Дарри Кауль, Жан Лефевр, Миша Ауэр, Франсуаза Фабиан, Жан Бретонньер, Раймон Бюссьер, Авазу, Жерар Роллан, Венсан Юри, Жо Девре, Жак МаренПеревод: профессиональный двухголосый, любительский одноголосыйЯзык озвучки: русский, французскийСубтитры: русские (перевод И. Митто), английскиеПродолжительность: 01:23:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B6CA4A780930D6BD3CFC84F16E6DFB2A3159E26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750086   (43174) от 18.09.2024
-
-Бойня номер пять / Slaughterhouse-Five (1972) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43174.jpg" />
-</div>
-
-
-###  Подробнее
-
-По роману Курта Воннегута.
-Главный герой ленты Билли Пилигрим, слегка «отмороженный» джентльмен, совершающий путешествия во времени и пространстве. Мы увидим его приключения на войне, умильную пенсионную прострацию и появление на загадочной планете Тральфамадор, где таинственные пришельцы наблюдают за жизнью Билли из своего четвертого измерения!Производство: США / Universal Pictures, Vanadas ProductionsЖанр: фантастика, драма, комедия, военный, экранизацияРежиссер: Джордж Рой ХиллАктеры: Майкл Сакс, Рон Лайбмен, Юджин Роч, Шэрон Гэнс, Валери Перрайн, Холли Нир, Перри Кинг, Кевин Конуэй, Фридрих фон Ледебур, Эккехардт БеллеПеревод: Двуголосый профессиональный (НТВ+), профессиональный многоголосый (R5 с DVD "Настроение Video")Язык озвучки: русский, английскийСубтитры: русские, английские (full, SDH)Продолжительность: 01:43:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBEE148B27B25AD230B17B11CCE29C90CE668AA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750186   (43163) от 18.09.2024
-
-Бьянка / Bianca (1983) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43163.jpg" />
-</div>
-
-
-###  Подробнее
-
-Микеле Аричелла — молодой учитель математики. У него имеется большое количество комплексов и маний. Он следит за своими соседями и составляет на каждого из них досье, записывая их слова и поступки. Когда одного из соседей убивают, поведение Микеле привлекает внимание инспектора полиции. Позже Микеле Аричелла влюбляется в коллегу Бьянку, но не может продемонстрировать (   Читать дальше...   )Производство: Италия / Faso Film S.r.l.б ReteitaliaЖанр: драма, комедияРежиссер: Нанни МореттиАктеры: Нанни Моретти, Лаура Моранте, Роберто Веццози, Ремо Ремотти, Клаудио Бигальи, Энрика Мария Модуньо, Винченцо Салемме, Маргерита СеститоПеревод: любительский одноголосыйЯзык озвучки: русский, итальянскийСубтитры: русские, английские, французскиеПродолжительность: 01:37:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8465E3368C7D39AFF2630075DFC3DB14C7F0D2DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751042   (42739) от 22.09.2024
-
-Гавана / Havana (1990) HDTVRip [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42739.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джек Уайл - игрок. Причем, из тех игроков-профессионалов, что никогда не размениваются на детали, а играют всегда по-крупному. Джек планирует организовать настоящую «большую» игру в столице Карибского острова. Уайл хорошо знает, что делает: он давно усвоил главное правило - не верить никому. Но Джеку суждено встретить загадочную женщину, которая перевернет его жизнь, (   Читать дальше...   )Производство: США / Mirage EnterprisesЖанр: драма, мелодрама, военныйРежиссер: Сидни ПоллакАктеры: Роберт Редфорд, Лена Олин, Алан Аркин, Томас Милиан, Дэниэл Дэвис, Тони Плана, Бетси Брэнтли, Лизе Каттер, Ричард Фарнсуорт, Марк РайделлПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:18:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A4A41B4E7472DEB9EC67C85256EE1124E5D25CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

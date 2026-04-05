@@ -1,3 +1,134 @@
+###  Публикация: 1774408   (30204) от 21.01.2025
+
+Тоботы. Детективы Галактики / Tobot Galaxy Detectives (2020) WEB-DL [H.264/720p] (Сезон 1, серии 1-52) [PR]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30204.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обыкновенный мальчик Тайлер присоединяется к отважной команде инопланетных машин-трансформеров Тоботов. Вместе они расследуют загадочные преступления и противостоят космическому злу. Красочный южнокорейский мультсериал о новых приключениях команды фантастических роботов.
+Начинающий детектив Тайлер Кинг обожает разгадывать тайны. Правда, пока у него немного работы: (   Читать дальше...   )Производство: Южная Корея, Ocean Group, Studio Button, Young ToysЖанр: детский, компьютерная анимацияРежиссер: Хорак КимАктеры: Трэвис Тернер, Остин Эбелл, Коул Ховард, Джесси Инокалла, Анна Каммер, Брайан Добсон, Майкл Адамуэйт, Кейтлин Бэйрстоу, Роджер Родс, Камилль Дивайн МакКритПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:12:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42F252F8C59F4E9D7CF7522F81F6D55FD8A178F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774388   (30196) от 21.01.2025
+
+Лабиринт. Подвиги Тесея (1971) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30196.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам древнегреческих мифов о Тесее и Минотавре.Производство: СССР / СоюзмультфильмЖанр: мультфильм, фэнтези, короткометражка, драма, приключения, семейныйРежиссер: Александра Снежко-БлоцкаяАктеры: Алексей Консовский, Александр Граве, Виктор Кольцов, Яков Беленький, Анатолий Папанов, Юрий Андреев, Наталья Кустинская, Софья Зайкова, Лев Фричинский и другиеСубтитры: отсутствуютПродолжительность: 00:19:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED56D20B0584605D04C99DD2F4A931EBD470DC86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 343083   (30179) от 22.01.2025
+
+Ловушка для кошек / Macskafog (1986) DVDRip [H.264]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кошачьи банды, объединившись в преступные группировки, готовятся к решающей битве с мышами. Мыши, узнав об этом, сначала загрустили, но потом стало известно, что некий профессор Фусимиси изобрел аппарат, позволяющий сделать кошек беспомощными. В путь к профессору отправляется лучший мышиный агент. Коты через своих осведомителей получают сведения об опасности, и за (   Читать дальше...   )Производство: Венгрия, Канада, Германия (ФРГ) / Pannónia FilmmstúdióЖанр: рисованная анимация, детский, сказка, приключенияРежиссер: Бела ТерновскиАктеры: Миклош Бенедек, Дьюла Бодроги, Илона Береш, Петер Хауманн, Андраш Керн, Ференц Каллаи, Янош Кёрменди, Иштван Мико, Карой Меч, Вера Пап и др.Перевод: Дублированный (Дубляжная группа киностудии «Союзмультфильм»)Субтитры: отсутствуютПродолжительность: 01:31:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99292B99504DF6650EE2004B6070D3F3BB64FE52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774654   (30166) от 22.01.2025
+
+Полный расколбас: Пищевая утопия / Sausage Party: Foodtopia (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) Jaskier
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сосиска Фрэнк и его товарищи живут в Пищевой утопии — райском месте, где им ничего не угрожает. Однако после ужасного наводнения им приходится искать общий язык с людьми, чтобы окончательно не исчезнуть с лица земли.Производство: США, Канада / Amazon Studios, Annapurna Animation, Annapurna TelevisionЖанр: минисериалРежиссер: Конрад ВернонАктеры: Сет Роген, Кристен Уиг, Эдвард Нортон, Майкл Сера, Сэм Ричардсон, Грэй Гриффин, Уилл Форте, Андре Сольюццо, СонВон Чо, Дэниэл ХэйгэнПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: Русский, АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: ~00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:549EE71F52358F3C52D7B554F79100E053FC5AC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774627   (30152) от 22.01.2025
+
+Ловушка для кошек 2: Кот Апокалипсиса / Catcher: Cat City 2 / Macskafogo 2 - A satan macskaja (2007) DVDRip [H.264]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30152.jpg" />
+</div>
+
+
+###  Подробнее
+
+События происходят через много лет после событий, описанных в первом фильме. Журналист Стенли Маус хочет найти известное по легендам древнее племя котов, затерянное в Африке. Он находит их, и мышиная цивилизация оказывается под угрозой. Специальный агент Ник Грабовский снова должен будет спасти мир…Производство: Венгрия / Pannónia FilmmstúdióЖанр: рисованная анимацияРежиссер: Бела ТерновскиАктеры: Ласло Шинко, Петер Рудольф, Миклош Бенедек, Петер Хауманн, Дьёрдь Дёрнер, Бела Штенцер, Петер Балаж, Матьяш Устич, Габор Ревицки, Иван Дарваш и другиеПеревод: ДублированныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:30:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D85DC1CAEB41E91248C052002F3042DE6ED48B79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1774607   (30120) от 22.01.2025
 
 Ловушка для кошек / Macskafogo / Cat City (1986) DVDRip
@@ -6,7 +137,7 @@
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30120.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30045.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30006.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29990.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29982.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29829.jpg" />
 </div>
 
 
@@ -162,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29688.jpg" />
 </div>
 
 
@@ -189,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29621.jpg" />
 </div>
 
 
@@ -215,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29601.jpg" />
 </div>
 
 
@@ -241,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29575.jpg" />
 </div>
 
 
@@ -267,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29570.jpg" />
 </div>
 
 
@@ -293,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29552.jpg" />
 </div>
 
 
@@ -319,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29532.jpg" />
 </div>
 
 
@@ -345,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29435.jpg" />
 </div>
 
 
@@ -371,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29431.jpg" />
 </div>
 
 
@@ -397,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29393.jpg" />
 </div>
 
 
@@ -423,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29272.jpg" />
 </div>
 
 
@@ -449,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29206.jpg" />
 </div>
 
 
@@ -475,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29200.jpg" />
 </div>
 
 
@@ -501,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29036.jpg" />
 </div>
 
 
@@ -527,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29025.jpg" />
 </div>
 
 
@@ -538,137 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E89DFD180C1BA67CABF140A9BE571A91FED00DA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776105   (29000) от 01.02.2025
-
-В гостях у сказки. Выпуск II (1948-1977) DVDRip [H.264] [Крупный план. Полная реставрация]
-
->>Мультфильмы
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29000.jpg" />
-</div>
-
-
-###  Подробнее
-
-В гостях у сказки. Выпуск II. (Новогодняя ночь, Гуси-лебеди, Петя и Красная Шапочка, Топтыжка, Дед Мороз и лето, Серебряное копытце)Производство: СССР / СоюзмультфильмЖанр: мультфильм, детский, короткометражка, комедияРежиссер: Ольга Ходатаева, Александра Снежко-Блоцкая, Иван Иванов-Вано, Борис Степанцев, Евгений Райковский, Федор Хитрук, Валентин КараваевАктеры: Георгий Милляр, Сергей Филиппов, Сергей Мартинсон, Валентина Сперантова, Валентина Туманова, Мария Бабанова, Вера Орлова, Елена Понсова, Евгений Шутов, Евгений Весник и другиеСубтитры: отсутствуютПродолжительность: ~00:10:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EA376DEC549035D23824E32D0A3021D64EC4D86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776361   (28981) от 01.02.2025
-
-Возьми Мой Маффин / Take My Muffin (2021) WEB-DL [H.264/1080p] (сезон 1, серии 1-10 из 10)
-
->>Мультфильмы
->>Отечественные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28981.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о единороге, который потерял память, но обладает суперспособностью спонтанно выдавать гениальные идеи стартапов. Чтобы вернуть воспоминания, герой начинает работать с экстравагантным бизнесменом — трёхглазым котом по имени Рок.Производство: США, Кипр, Бразилия, Россия, Студия «Тунбокс»Жанр: рисованная анимацияРежиссер: Владимир ПономаревОзвучка: Профессиональный (двухголосый закадровый)Субтитры: ОтсутствуютПродолжительность: ~00:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1CD1D59A9066A74CB3242399C1D00A2639A8448
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 61605   (28960) от 02.02.2025
-
-Сказка сказок (1979) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Название из стихов Назыма Хикмета — Сказка сказок. В фильме использованы произведения Баха и Моцарта, а также популярные мелодии 30-х годов.
-Когда-то в заявке к «Сказке» Норштейн и Петрушевская написали: «Это должен быть фильм о памяти. Белье на веревках, бык с кольцом в ноздре, полный ужасных гибельных страстей... Все это может быть организовано в простой сюжет, (   Читать дальше...   )Производство: СССР, СоюзмультфильмЖанр: мультфильм, детский, короткометражкаРежиссер: Юрий НорштейнАктеры: Александр КалягинСубтитры: отсутствуютПродолжительность: 00:29:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:502D57E8CA74F0617740D92FC473B9476D2BA603
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776939   (28856) от 03.02.2025
-
-Мемуары улитки / Memoir of a Snail (2024) BDRemux [H.264/1080p] [MVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Австралия, 1970-е. В городе Кранберри живёт одинокая женщина по имени Грейс Пудл. Она любит читать любовные романы и коллекционировать декоративных улиток. Однажды в её жизни появляется Пинки — пожилая и эксцентричная женщина, с которой они становятся близкими подругами. С этого момента жизнь Грейс снова наполняется радостью и яркими красками.Производство: Австралия / Arenamedia, Screen Australia, Snails Pace FilmsЖанр: мультфильм, драмаРежиссер: Адам Бенжамин ЭллиотАктеры: Джеки Уивер, Сара Снук, Charlotte Belsey, Agnes Davison, Mason Litsos, Daniel Agdag, Эрик Бана, Saxon Wright, Доминик Пинон, Selena BrennanПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:34:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AC32A5630890DD00B06413F3FFE3A1F189B9A68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776934   (28834) от 03.02.2025
-
-Иван Царевич и Серый Волк 6 (2024) WEBRip [H.264/1080p]
-
->>Мультфильмы
->>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28834.jpg" />
-</div>
-
-
-###  Подробнее
-
-По щучьему велению, по царскому хотению Иван и его верные друзья отправляются на волшебную выставку чудес со всего сказочного мира — других посмотреть и себя показать. На кону честь Тридевятого царства, а исполняющая желания Щука — как назло, возьми да исчезни. Спасать положение, как всегда, приходится Ивану, Серому Волку и Василисе. Там, на неведомых дорожках, им (   Читать дальше...   )Производство: Россия, Кинокомпания CTB / СТВ, Анимационная студия «Мельница»Жанр: мультфильм, приключения, фэнтезиРежиссер: Дарина Шмидт, Константин ФеоктистовВ ролях: Никита Ефремов, Александр Боярский, Татьяна Бунина, Михаил Боярский, Константин Бронзит, Максим Сергеев, Дмитрий Высоцкий, Мария Цветкова-Овсянникова, Алиса Боярская, Олег КуликовичПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:21:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A11BE9237C2B9AAB6FE9CA7EB1A8DCE912A55C8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

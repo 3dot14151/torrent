@@ -1,136 +1,3 @@
-###  Публикация: 1723575   (56390) от 16.05.2024
-
-С.Л. Вальдгард | Занимательная электротехника (1961) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56390.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге в популярно-занимательной форме излагаются понятия об электричестве и его применении в различных производствах, в автоматике; приводятся интересные примеры, сопоставления, факты из различных областей электротехники; рассказывается о технике будущего. Содержание книги основано на современных достижениях науки в области физики и электротехники.
-Книга рассчитана (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: ПрофтехиздатФормат: DJVUКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AEA6621BF22FA4E9C7CA1FF78B1A1E18096DBB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723801   (56230) от 17.05.2024
-
-П.А. Ионкин, В.С. Пантюшин, В.А. Смирнов | Сборник задач и упражнений по общей электротехнике (1951) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие для неэлектротехнических вузов и факультетов.Жанр: ЭлектротехникаИздательство: Советская наукаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CBA7AB9B108DC8AE7630202AACD47C8FB0A0FDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724277   (56100) от 19.05.2024
-
-С.В. Архиреев | Начальная военная подготовка (2-е изд.) (2024) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Готовность гражданина защищать свою Родину предполагает наличие у него соответствующей минимально необходимой специальной подготовки. Именно поэтому в советских школах старшеклассникам преподавали учебную дисциплину «Начальная военная подготовка» (НПВ). Начальной военной подготовкой принято называть курс занятий, на которых знакомят с оружием, учат оказывать первую (   Читать дальше...   )Жанр: Военное делоИздательство: ООО НПП «НОК»Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC233742B1DEFF906451AA16C1A140507C99E06E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724550   (55843) от 21.05.2024
-
-Moore Martin | Oxford Grammar for Schools 1. Student's Book (2013) [PDF] [EN]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55843.jpg" />
-</div>
-
-
-###  Подробнее
-
-A 5-level series with clear explanations and communicative activities to help young learners and teenagers understand and practise grammar. Oxford Grammar for Schools gives students the opportunity to explore grammar for themselves and encourages them to be aware of their progress through regular self-evaluation and review. As students activate their grammar through (   Читать дальше...   )Жанр: УчебнаяЯзык: английскийИздательство: Oxford University PressФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CC4C2D3965F1402124DBD89A8CAF9836906514D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724996   (55765) от 22.05.2024
-
-Г.С. Ландсберг | Элементарный учебник физики. Том 1. Механика. Теплота. Молекулярная физика (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из лучших курсов элементарной физики, завоевавший огромную популярность. Достоинством курса является глубина изложения физической стороны процессов и явлений в природе и технике.
-
-Для старшеклассников и учителей общеобразовательных и средних специальных заведений, а также лиц, занимающихся самообразованием и готовящихся к поступлению в ВУЗ.Жанр: Учебная литература по физикеИздательство: ФИЗМАТЛИТФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DF7F9CC09FE1C9DD55D4AE7DBB0BC80467E0060
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1725004   (55764) от 22.05.2024
 
 Г.С. Ландсберг | Элементарный учебник физики. Том 2. Электричество и магнетизм (2023) [PDF]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55764.jpg" />
 </div>
 
 
@@ -167,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55741.jpg" />
 </div>
 
 
@@ -193,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55625.jpg" />
 </div>
 
 
@@ -221,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55511.jpg" />
 </div>
 
 
@@ -247,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55510.jpg" />
 </div>
 
 
@@ -273,7 +140,7 @@ Carl W. Hart | The Ultimate Phrasal Verb Book: For ESL and EFL Students (2017) [
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55389.jpg" />
 </div>
 
 
@@ -300,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55314.jpg" />
 </div>
 
 
@@ -326,7 +193,7 @@ Dorling Kindersley | Ultimate Visual Dictionary (2017) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55212.jpg" />
 </div>
 
 
@@ -353,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55209.jpg" />
 </div>
 
 
@@ -379,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55202.jpg" />
 </div>
 
 
@@ -406,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55201.jpg" />
 </div>
 
 
@@ -432,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55115.jpg" />
 </div>
 
 
@@ -458,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55108.jpg" />
 </div>
 
 
@@ -484,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55033.jpg" />
 </div>
 
 
@@ -510,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55030.jpg" />
 </div>
 
 
@@ -537,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55018.jpg" />
 </div>
 
 
@@ -563,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55013.jpg" />
 </div>
 
 
@@ -590,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55004.jpg" />
 </div>
 
 
@@ -616,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54970.jpg" />
 </div>
 
 
@@ -642,7 +509,7 @@ Adrian Wallwork | English for Writing Research Papers (2017) [PDF] [EN]
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54907.jpg" />
 </div>
 
 
@@ -668,7 +535,7 @@ Rachel Smith | American English Pronunciation (2015) [PDF] [EN]
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54896.jpg" />
 </div>
 
 
@@ -680,6 +547,141 @@ Learn concepts together: The problem with many English pronunciation books is th
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4F42F92C41F824B89407FAB99A4974AD478DDC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726838   (54892) от 30.05.2024
+
+В.Н. Шитов | Пакет прикладных программ (2021) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54892.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии описаны методы эффективной работы с прикладными программными продуктами: текстовыми редакторами, электронными таблицами, редакторами презентаций, системами управления базами данных, а также основами программирования в среде Visual Basic for Applications. Предложено более 40 практических и самостоятельных работ. Может быть использовано при освоении (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Инфра-МФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD49AF74E291C6041034035C37A81D511103B770
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726852   (54882) от 30.05.2024
+
+Adrian Wallwork | Jokes: Have a Laugh and Improve Your English (2017) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Jokes are a perfect format for learning vocabulary, idiomatic expressions, and grammar.
+The book also contains exercises designed to reveal whether you have understood the joke or not:
+A joke is presented to you but with the paragraphs mixed up. Your task is to put them in the correct order.
+Several two-line jokes are presented together. The task is to match the (   Читать дальше...   )Жанр: учебная литератураЯзык: английскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F0C8B10CACA9783AE7E843C22F10698452DAF11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726784   (54876) от 30.05.2024
+
+Э.В. Фуфаев, Л.И. Фуфаева | Пакеты прикладных программ (2013) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описаны методы эффективной работы с прикладными программными продуктами: текстовыми редакторами, системами управления базами данных, электронными процессорами, системами автоматизированного конструирования и технологического проектирования, коммуникационными программными системами.
+Содержит опыт преподавательской и практической деятельности авторов, а также результаты (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: АкадемияФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4408982B13A4A536643E91F882A30A2824512C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726925   (54797) от 31.05.2024
+
+Jean Yates | Practice Makes Perfect English Vocabulary for Beginning ESL Learners. Practice Makes Perfect (2021) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54797.jpg" />
+</div>
+
+
+###  Подробнее
+
+The go-to guide for learning and reinforcing American English vocabulary for beginning ESL learners—now enhanced with audio recordings through the McGraw-Hill Language Lab app
+English Vocabulary for Beginning ESL Learners helps you develop your vocabulary and comprehension skills with practice in word building, analyzing new words, and using them in conversation. (   Читать дальше...   )Жанр: учебникЯзык: английскийИздательство: McGraw-HillФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E3BE40541807CF9D0FBAA1ACD0A5E25B54278B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726919   (54768) от 31.05.2024
+
+Н.М. Эмануэль, Г.Б. Сергеев | Экспериментальные методы химической кинетики (1971) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54768.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии в сжатой и доступной форме изложены основы ряда методов, применяемых при исследовании кинетики и механизма химических реакций. Это видимая и ультрафиолетовая спектрофотометрия, инфракрасная спектрометрия, люминесценция, хемилюминесценция, электронный парамагнитный резонанс, ядерный магнитный резонанс, газожидкостная хроматография, аналоговые вычислительные (   Читать дальше...   )Жанр: ХимияИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D09001B7BB109DA4077DF1788CFA3DB0B40792B
 ```
 
 https://mybot314.ru/tekegram_catalog/

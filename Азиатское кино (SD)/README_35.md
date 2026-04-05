@@ -1,3 +1,55 @@
+###  Публикация: 1404612   (491183) от 26.08.2020
+
+Девушки идут навстречу ветру / Musume-tachi wa kaze ni mukatte (Советская прокатная копия) (1972) Screener [Dub]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хозяева завода фирмы "Одежда Дайто" под предлогом банкротства сообщили о ликвидации производства. Девушки-работницы, объявив забастовку, заняли завод и продолжали выполнять незначительные заказы, которые им устраивали товарищи из других профсоюзов. Друзья снабжали их одеждой и пищей, одобряли морально. Не все из них смогли выдержать три года и семь месяцев (   Читать дальше...   )Производство: Япония, Мингэй ЭйгааяЖанр: ДрамаРежиссер: Мицуо ВакасугиАктеры: Хироко Ногава, Томоко Куримото, Кёко Хисабара, Судуэ Мори, Фудзи Фукудзава, Коити Ока, Ёити Ямамото, Итио Имото, Дзюкити УноПеревод: Дублированный (Киностудия им. М. Горького)Субтитры: отсутствуютПродолжительность: 01:25:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF15F880A9CB5DBE2B96A9DEC4D4890870A5540A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404278   (491107) от 26.08.2020
+
+Если бы я жил с мамой / Haha to kuraseba / Nagasaki: Memories of My Son (2015) HDRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491107.jpg" />
+</div>
+
+
+###  Подробнее
+
+9 августа 1948 года. Нобуко, акушерка из Нагасаки, ошеломлена внезапным визитом своего Кодзи, который, как она думала, умер три года назад в результате сброса на город атомной бомбы. В этот самый день, стоя у его могилы, ога сказала себе: «В тот момент его не стало. Пора мне его отпустить...» Вместе они вспоминают о старых добрых временах. Эти счастливые моменты, (   Читать дальше...   )Производство: Япония, Asahi Broadcasting Corporation (ABC), GyaO, Hakuhodo DY Media PartnersЖанр: Драма, фэнтезиРежиссер: Ёдзи ЯмадаАктеры: Саюри Ёсинага, Кадзунари Ниномия, Хару Куроки, Таданобу Асано, Исао Хасидзумэ, Юрико Хироока, Мию Хонда, Кэнити Като, Нэндзи Кобаяси, Кристофер МакКомбсПеревод: Двуголосый любительский (Храм Дорам); одноголосый любительский (visanti-vasaer)Субтитры: английские, русские - отдельными файламиПродолжительность: 02:10:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEDD94897471CEB27A0D2C8CC2831F22DA961A41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 544236   (490977) от 07.09.2012
 
 Цветы войны / The Flowers of War (2011) HDRip
@@ -6,7 +58,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490977.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490421.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490016.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488023.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487128.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486779.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486715.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486290.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485011.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484657.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484527.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484335.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482958.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481298.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481265.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481247.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481040.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480439.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479909.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478219.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477348.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474807.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473751.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472641.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4AD04F8560D4BF30D17DAE9929299CCD6753B461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547933   (469431) от 17.09.2012
-
-Смертельный удар / Shen long (1978) DVDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в одной китайской провинции где свирепствуют банды под руководством известного и опасного лидера,мастера кунг фу и непобедимого бойца. В этой провинции постоянно погибает полицейское начальство.Пока однажды в провинцию не прислали крутого мастера кунг фу(Брюс Лай) назначенного на должность начальника полиции.Тот недолго думая разрабатывает план уничтожения банды.Для этого он освобождает опаснейших преступников из полицейской тюрьмы.Каждый из них обладает узкими боевыми навыками.Метатель ножей,мастер хлыста и человек с мощными руками и другие колоритные личности. По ходу фильма прежде чем добраться до главаря им предстоит пройти сложный и долгий путь через горы.Буквально через каждые несколько километров на них нападают разные крутые бандиты.Жанр: Боевик, Боевые искусстваРежиссер: Вон Фэй ЛунАктеры: Хо Тзонг Тао (Брюс Ли), Чан Сиу Синг, Дэвид Тэнг Вэй, Зе Чунг Тьен, Лунг Фей , Чой Хонг,Джули ЧуПеревод: Одноголосый закадровыйПродолжительность: 01:27:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8520AA8CC2658B9B2B97A0856A9FCE3B6E1E5A96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407123   (468377) от 06.09.2020
-
-Приходи за поцелуем в полночь / Gozen 0-ji, Kiss shi ni Kite / Kiss Me at the Stroke of Midnight (2019) HDRip [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная героиня, Ханадзава Хинана, кажется всем одноклассникам примерной ученицей старших классов. Она умна, серьезна, входит в студенческий совет. Но никто не знает, что в тайне она мечтает о настоящей любви с красавчиком-принцем. Вместо заумных книжек она читает романы и на выходные выбирается не в библиотеку, а в кино на мелодрамы. И вот однажды случается невероятное. (   Читать дальше...   )Производство: Япония, ShochikuЖанр: Комедия, мелодрамаРежиссер: Такэхико СиндзёАктеры: Канна Хасимото, Рёта Катаёсэ, Кэнъити Эндо, Гордон Маэда, Суитиро Наито, Рихито Нода, Саэ Окадзаки, Вакана Сакаи, Кацухиро Судзуки, Такума УсаПеревод: Многоголосый любительский (HelloMickey Production)Субтитры: Английские - отдельным файломПродолжительность: 01:52:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9626CC0EE4845469804D327DF2287D11DEC3404
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1274629   (793053) от 07.01.2019
+
+Umami - In Exchange For Everything (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ghostnote (5:40)
+ 02. Terra Mount feat. Monolink (7:34)
+ 03. Behind The Wheel (7:24)
+ 04. Number Of The Beast (4:58)(   Читать дальше...   )Жанр: Deep House, Tech House, DowntempoПродолжительность: 01:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26554B75B0A9EE7D3F89CB596F76F223CAE710D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274470   (792992) от 07.01.2019
+
+Voiski - The Bat Who Wanted To See The Sun (2019) Dolly [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taking Flight (06:14)
+02. The Valley of Nothingness (04:53)
+03. The Parrot's Excuse (05:44)
+04. Simorgh in Persia's Sky (05:41)Жанр: TechnoПродолжительность: 00:22:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:163018409CBEE3C28A0602F86B6D78C28C2986BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509810   (792934) от 14.11.2021
 
 VA - Black Hole Trance Music 11-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -6,7 +64,7 @@ VA - Black Hole Trance Music 11-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792934.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Quiet Day: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Baleari
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792901.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Lost In House (25 Groovy Dancefloor Tunes) Vol.1 (2018) [MP3|320 Kbps] <Hou
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792884.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - True Hits Vol.2 (2018) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792880.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Hed Kandi: Back To Love (2017) [FLAC|Lossless|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792879.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Lounge Affair Vol.2 (2018) [MP3|320 Kbps] <Lounge,Chillout>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792878.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Emotions Music - Autumn Vol. 1 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792876.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Hed Kandi Beach House (2016) [FLAC|Lossless|tracks] <Funky House, Club Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792875.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ David Nize (Sons Of Melancholia, (RE)NEW(ED), OZKA) Collection 5 Releases (2011-
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792810.jpg" />
 </div>
 
 
@@ -266,7 +324,7 @@ Schiller - Epic (2021) 2CD Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Chillou
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792776.jpg" />
 </div>
 
 
@@ -295,7 +353,7 @@ Suicide Commando - Forest Of The Impaled (2017) Limited Edition 4CD Box [MP3|320
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792725.jpg" />
 </div>
 
 
@@ -324,7 +382,7 @@ VA - Vocal Trance Hits 2018 Vol.1 (2018) [MP3|320 Kbps] <Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792691.jpg" />
 </div>
 
 
@@ -353,7 +411,7 @@ VA - Club House Spring '17 (2017) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792534.jpg" />
 </div>
 
 
@@ -382,7 +440,7 @@ VA - Relax Sensation Lounge & Chill Music 2020 [MP3|320 Kbps] <Balearic, Downtem
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792513.jpg" />
 </div>
 
 
@@ -411,7 +469,7 @@ VEiiLA - Discography 16 Releases (2016-2020) Wormhole World [FLAC|Lossless|WEB-D
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792506.jpg" />
 </div>
 
 
@@ -437,7 +495,7 @@ VA - Goa Culture Vol.24 (2017) [MP3|320 Kbps] <Trance, Psy-Trance, GOA>
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792484.jpg" />
 </div>
 
 
@@ -466,7 +524,7 @@ Freescha - Discography 12 Releases (1999-2016) Attacknine [FLAC|Lossless|tracks+
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792483.jpg" />
 </div>
 
 
@@ -493,7 +551,7 @@ VA - Jazz House Instrumental: Jazzy Soulful Tracks and Instrumental Club Tunes (
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792482.jpg" />
 </div>
 
 
@@ -522,7 +580,7 @@ Mint (Biotron Shelf) - Discography 20 Releases (2004-2015) Boltfish Recordings, 
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792472.jpg" />
 </div>
 
 
@@ -551,7 +609,7 @@ Roly Porter - Discography 6 Releases (2011-2020) Subtext [FLAC|Lossless|tracks+.
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792464.jpg" />
 </div>
 
 
@@ -580,7 +638,7 @@ David Guetta - United At Home: Fundraising Live From New York City, United State
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792435.jpg" />
 </div>
 
 
@@ -609,7 +667,7 @@ VA - Milchbar - Seaside Season 9 (Compiled by Blank & Jones) (2017) [MP3|320 Kbp
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792421.jpg" />
 </div>
 
 
@@ -638,7 +696,7 @@ Alphaville - Strange Attractor (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792407.jpg" />
 </div>
 
 
@@ -667,7 +725,7 @@ Alphaville - Strange Attractor (2017) [MP3|320 Kbps] <Synthpop, New Wave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792406.jpg" />
 </div>
 
 
@@ -681,61 +739,6 @@ Alphaville - Strange Attractor (2017) [MP3|320 Kbps] <Synthpop, New Wave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BFDC8B29D7ACB52400DD00C5F08E8FB0BE8FF63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100888   (792349) от 31.05.2020
-
-Sraunus - Discography 20 Releases (2010-2020) [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ruoduo (09:44)
- 02. Slunce Radar (06:52)
- 03. Glaxomi III (08:54)
- 04. Juliona Kabli (05:15)(   Читать дальше...   )Тип издания: CD, WEBЖанр: Dub Techno, Ambient, Minimal •Продолжительность: 17:24:50 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1208E3DC9A01372BAF1B15B4206ADD20510056C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117561   (792319) от 31.05.2020
-
-Robot Koch (Dreaming Of Ghosts, Robots Don't Sleep) - Discography 49 Releases (2008-2020) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Glitch-Hop, Tech House, Chillwave, Dubstep, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The First One (03:23)Жанр: Chillwave/AmbientПродолжительность: 16:54:05 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2385B8D2717F80D86901A4A593A833380B9707DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,160 @@
+###  Публикация: 982076   (949245) от 02.02.2016
+
+Kaspersky Internet Security 2016 16.0.1.445 MR1 Final [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kaspersky Internet Security 2016 - комплексный Антивирус Касперского, который предлагает расширенные возможности: Безопасные платежи, Виртуальная клавиатура, Родительский контроль и Контроль программ. Новая версия обеспечивает комплексную защиту от всех видов вредоносных программ и интернет-угроз за счет комбинации облачных, проактивных и антивирусных технологий, (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F14B7E91FEA5E93AADAF09F904317775BB5E3923
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979828   (949243) от 02.02.2016
+
+The Witness (2016) [Ru/Multi] (1.0/upd9) Repack Let'sРlay
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949243.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Witness — игра для одного пользователя, разнообразный открытый мир с более чем пятью сотнями загадок. Игра исходит из того, что с ней взаимодействует умный человек, время которого ценно. Ни одна загадка не служит просто для усложнения; каждая несет мысль. Вся игра насыщена смыслом. Вы просыпаетесь в одиночестве на острове, полном сложных и удивительных загадок.Тип издания: RepackРазработчик: Thekla, Inc.Жанр: Adventure (Puzzle), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:364729A9A000021E16A50269502E82D8EACB4935
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981866   (949242) от 02.02.2016
+
+NetDrive 2.6.4. build 715 [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949242.jpg" />
+</div>
+
+
+###  Подробнее
+
+NetDrive позволяет подключить удаленные (облачные) хранилища данных, в том числе FTP, в виде локального диска, для осуществления доступа через обычный проводник. Утилита будет полезна пользователям, которые очень часто работают с данными удаленно. Интуитивно понятный интерфейс и хороший набор функций делают ее понятной и простой в использовании.
+Просмотр видео, прослушивание (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3DAA7F3E7494B59D5BB7679861D662BE4D259D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981837   (949241) от 02.02.2016
+
+Главный (2015) WEBRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все знают, что Сергей Королев запустил в космос и Первый искусственный спутник Земли, и Лайку, и Гагарина, и вывел в открытый космос Алексея Леонова. Но никто не знает, насколько ему было трудно преодолеть и косность партийного руководства, и недоверие коллег. Но, как сказал один из его соратников, что у Королева все получалось потому, что ему верили и знали, что (   Читать дальше...   )Производство: РоссияЖанр: история, драмаРежиссер: Юрий КараАктеры: Валерий Гришко, Борис Щербаков, Лидия Арефьева, Алексей Богачук, Федор Лавров, Георгий Солдатов, Борис Каморзин, Анатолий Котенёв, Вадим Андреев, Александр КузнецовПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BE2838CFFE7CC1C537E1F8BA67F3FBDD8DAB374
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981849   (949240) от 02.02.2016
+
+Дочь Бога / Exposed (2016) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949240.jpg" />
+</div>
+
+
+###  Подробнее
+
+С женщиной, которая стала свидетелем чуда, начинают происходить странные вещи. А в это время полицейский детектив пытается разобраться в том, что привело к смерти его напарника.Производство: США, Company Films, Emmett/Furla Films, Fortitude International, Palm-Star Entertainment, Remark FilmsЖанр: ДрамаРежиссер: Деклан ДэйлАктеры: Ана де Армас, Мира Сорвино, Биг Дэдди Кэйн, Кристофер МакДональд, Лаура Гомез, Melissa Linton, Киану Ривз, Клара Вонг, Майкл Рисполи, Дения БрачеПеревод: Двуголосый закадровый, любительскийЯзык субтитров: АнглийскийПродолжительность: 01:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61BB52973F49E733FBCC8F966E22BC934AC904A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977980   (949239) от 02.02.2016
+
+Шпионский мост / Bridge of Spies (2015) BDRip [H.264/720p-LQ]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма происходит на фоне серии реальных исторических событий и рассказывает о бруклинском адвокате Джеймсе Доноване, который оказывается в эпицентре холодной войны, когда ЦРУ отправляет его на практически невозможное задание — договориться об освобождении захваченного в СССР американского пилота самолета-разведчика U2.Производство: США, Индия, ГерманияЖанр: Триллер, драма, биографияРежиссер: Стивен СпилбергАктеры: Том Хэнкс, Алан Алда, Эми Райан, Остин Стоуэлл, Билли Магнуссен, Ив Хьюсон, Марк Райлэнс, Доменик Ломбардоззи, Себастьян Кох, Майкл ГэстонПеревод: Дублированный (iTunes)Субтитры: вшитые отключаемыеЯзык субтитров: Русский (iTunes -> форс. + полные), АнглийскийПродолжительность: 02:21:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC055A72BEFC4AC32C57F375A41998EAF05028ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362004   (949131) от 23.02.2020
 
 Начался перевод плавучего космодрома "Морской старт" из США в Россию
@@ -6,7 +163,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949131.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949015.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949010.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ Windows 10 Enterprise LTSB (v. 1607) (x64) Elgujakviso Edition (v.18.02.20) [Ru]
 >>10
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949007.jpg" />
 </div>
 
 
@@ -113,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948906.jpg" />
 </div>
 
 
@@ -139,7 +296,7 @@ Tomb Raider [XBOX360] [PAL] [RUSSOUND] [LT+1.9] (XGD2/15574) (2013) | R.G. X360C
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948592.jpg" />
 </div>
 
 
@@ -170,7 +327,7 @@ Neverwinter Nights - Diamond Edition [En/Ru] (RePack/1.6.9) 2002 | R.G. Catalyst
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948588.jpg" />
 </div>
 
 
@@ -200,7 +357,7 @@ Tixati 2.51 + Portable [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948489.jpg" />
 </div>
 
 
@@ -226,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948474.jpg" />
 </div>
 
 
@@ -253,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948434.jpg" />
 </div>
 
 
@@ -280,7 +437,7 @@ Diskeeper 16 Professional 19.0.1214.0 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948397.jpg" />
 </div>
 
 
@@ -306,7 +463,7 @@ This Is the Police (2016) [Ru/Multi] (1.0.50) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948391.jpg" />
 </div>
 
 
@@ -332,7 +489,7 @@ BELOFF 2016.12 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948388.jpg" />
 </div>
 
 
@@ -358,7 +515,7 @@ Paragon Migrate OS to SSD 5.0 v10.1.28.154 Boot Medias [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948387.jpg" />
 </div>
 
 
@@ -384,7 +541,7 @@ ParAAvis Flash ver:Freedom 01.2017 [UEFI | x86/x64 | RU/EN]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948386.jpg" />
 </div>
 
 
@@ -413,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948384.jpg" />
 </div>
 
 
@@ -439,7 +596,7 @@ Arrow Killer 1.0 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948253.jpg" />
 </div>
 
 
@@ -465,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948189.jpg" />
 </div>
 
 
@@ -491,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948171.jpg" />
 </div>
 
 
@@ -523,169 +680,13 @@ Windows 10 начинает автоматически устанавливат�
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947902.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Windows 10 начинает автоматически устанавливаться на ПК пользователейС 1 февраля статус обновления Windows 7 и Windows 8.1 до Windows 10 стал не опциональным, а рекомендованным. Это означает, что на некоторых компьютерах теперь может начинаться автоматическая установка Windows 10, что может вызвать некоторое раздражение пользователей.Автоматически установка будет (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982422   (947894) от 03.02.2016
-
-Adguard 6.0.183.953 RC3 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adguard - одно из известных приложений разработчика программных продуктов компании Инсофт, предназначенное для блокирования рекламных баннеров и всплывающих окон при работе в сети Интернет. Данная утилита поддерживает фильтрацию при работе с такими браузерами, как Internet Explorer, Google Chrome, Mozilla Firefox, Safari, Opera, Maxthon, Avant Browser, Netscape Navigator, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:197A10784129849AE829E128827188E99AA4225D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982407   (947808) от 03.02.2016
-
-Антифашистский художественный фильм «Россия 88» заблокирован по решению Нарьян-Марского городского суда
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роскомнадзор внес в реестр запрещенных сайтов и тем самым заблокировал на территории России  антифашистский художественный фильм «Россия 88» 2009 года выпуска.Режиссер данного фильма — Павел Бардин. В главной роли сыграл известный российский актер Пётр Фёдоров, в фильме также снялся Андрей Мерзликин.Данный фильм был награжден такими наградами, как премия «Ника» в (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982014   (947788) от 03.02.2016
-
-Стив Джобс / Steve Jobs (2015) WEB-DL [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947788.jpg" />
-</div>
-
-
-###  Подробнее
-
-История жизни одного из самых выдающихся умов планеты, основателя компании Apple, Стива Джобса.Производство: США, ВеликобританияЖанр: Драма, биографияРежиссер: Дэнни БойлАктеры: Майкл Фассбендер, Сет Роген, Джефф Дэниелс, Кейт Уинслет, Майкл Стулбарг, Кэтрин Уотерстон, Перла Аней-Жардине, Рипли Собо, Макензи Мосс, Сара СнукПеревод: Многоголосый закадровый, любительскийОзвучка / Автор перевода: ColdFilmПродолжительность: 02:02:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E8B98DB6F25CDE470332B3C5EDA5C2506EFCBFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981885   (947787) от 03.02.2016
-
-S.T.A.L.K.E.R.: Тень Чернобыля - Альтернатива (2016) [Ru] (1.0004/1.3) Mod N.S.A.
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947787.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это Ваша история. В моде Альтернатива, игрок играет сам за себя. Игра стартует после событий, которыми заканчивается Сталкер Тень Чернобыля. Перед игроком будут возникать ситуации, от выбора которых будет зависеть конец игры. В данный момент в игре присутствует две концовки и они не в одном месте. Оригинальный сюжет игры вырезан. Флэшка Стрелка теперь содержит другую (   Читать дальше...   )Тип издания: ModРазработчик: GSC Game WorldЖанр: Action (Shooter), Survival, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA8DE4AD96F53B5CCA998E00F7A2346C7B0F153E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362000   (947683) от 24.02.2020
-
-Просто в космос: в России создадут ракету для бюджетных запусков
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сверхлегкая многоразовая ракета, которую разрабатывают российские ученые, доставит на 200-километровую орбиту Земли микро- и наноспутники. Стоимость отправки одного килограмма груза составит $10-20 тыс., что заметно дешевле, чем у ближайших конкурентов. Этого удалось добиться за счет упрощенной одноступенчатой конструкции носителя и инновационного метанового двигателя (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362590   (947624) от 24.02.2020
-
-Microsoft оградит от вирусов и хакеров пользователей Linux
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft адаптирует антивирусную платформу Defender Advanced Threat Protection под Linux, и первая публичная бета выйдет в ближайшие дни. Также компания портирует ее на iOS и Android, а под macOS она вышла в марте 2019 г.Антивирус для LinuxКомпания Microsoft сообщила о ведущейся разработке особой версии своего антивирусного ПО Defender Advanced Threat Protection (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

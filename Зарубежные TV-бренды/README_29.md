@@ -6,7 +6,7 @@ History Channel: Убийца Зодиак: дело закрыто? / The Hunt 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779880.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NG: Самурайский лук / Samurai Bow (2009) HDTVRip [H.264/720p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779623.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NGW: Дикая природа Китая / China's wild side (2017) WEB-DLRip [
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_779467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_779467.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NGW: Человек среди гепардов / Man among cheetahs (2017) HDTV
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779249.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NGW: Самый знаменитый в мире тигр / The world's most fam
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779232.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NGW: Чудо-гепард / The miracle cheetah (2017) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779224.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ NGW: Пингвинопалуза / Penguin palooza (2017) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778838.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778819.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ NGW: Ужас тигровой акулы / Tiger shark terror (2017) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778669.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ NGW: Потерянные акулы острова Пасхи / Lost sharks of 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778506.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ NGW: Год диких животных: Сибирь / Siberia's wild year (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778485.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ BBC. Сокровища Инда / Treasures of the Indus (2014) HDTV  [H.264/10
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778083.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Nat Geo Wild: Фантастические существа Мадагаскар
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778065.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Discovery. Ледяное золото / Ice Cold Gold (2014) HDTVRip [H.264/108
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777433.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ BBC: Венера без прикрас / Venus Uncovered: Ancient Goddess of Lo
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777113.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Discovery: Курс выживания с Беаром Гриллсом / Bear G
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777088.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777042.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Discovery. Секреты подземелья / Secrets of the Underground (201
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776989.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ NG: Инстинкт выживания. Моря-убийцы / Primal survivor
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776716.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ NG: Инстинкт выживания / Primal Survivor (2017) WEBRip (Сез�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776343.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ NG: Инстинкт выживания / Primal Survivor (2015) SATRip (Сез�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776339.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ NG: Тайны корабля-сокровищницы династии Тан /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775733.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ NGW: Спасение слонёнка / Baby Elephant Rescue (2018) HDTV [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775088.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ NG: Как устроен интернет. 50 лет онлайн / Inside the 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774937.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774935.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ NGW: Рожденные в Африке. Опасная игровая площ�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774233.jpg" />
 </div>
 
 

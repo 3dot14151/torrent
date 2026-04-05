@@ -6,7 +6,7 @@ No King - Roadside Rhythms - No King - Roadside Rhythms (2025) [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67422.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Steve Howell & The Mighty Men - Yeah Man (2025) [FLAC 24/96|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67385.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Damn Truth - The Damn Truth (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Cl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67384.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Skyla Owen - In My Dreams (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67383.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Travellin' Blue - Take The Edge Off (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67380.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ Sister Suzie - Honestly? (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67376.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ William Wallace Band - Worn Thin (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67374.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Will Wilde - Blues Is Still Alive (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67373.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Sean Chambers - LIVE FROM DARYL'S HOUSE CLUB (Live) (2025) [FLAC 24/48|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67369.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Shinyribs - Leaving Time (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Country, Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67365.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Billy Idol - Dream Into It (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Punk Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67343.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ The Double Vision - Demons Dance (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67277.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Blue Cheer - Junk - Blue Cheer - Junk (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67270.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Redemption - The Hard Way (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67258.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Prost - Believe Again (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67257.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ The Riven - Visions of Tomorrow (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67249.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Fenson - Cattitude (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67233.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Wednesday 13 - Mid Death Crisis (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Heav
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67208.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Christopher Cross - Christopher Cross (1979) Expanded Edition, 2025, Warner Reco
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67077.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Tom Wax - The Future Is Now (2025) [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <Tec
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67060.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Hate - Bellum Regiis (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Death Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67045.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Froglord - Metamorphosis (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Sludge, d
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67044.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Chontaraz - Phantom Of Reality (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67043.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Paradise Slaves - With Hell In His Eyes (2025) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67041.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Gypsy Pistoleros - Welcome To The Church Of The Pistoleros (2025) [FLAC 24/48|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67035.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Bowers Foreman - The Boy Who Learned To Fly (2025) [FLAC 24/48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67011.jpg" />
 </div>
 
 

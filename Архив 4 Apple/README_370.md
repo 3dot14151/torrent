@@ -6,7 +6,7 @@ RapidWeaver 7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462109.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Default Folder X 5.0.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461976.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Downie 2.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461975.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Cocktail 10.0.1 (Sierra Edition) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461974.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Fission 2.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461964.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Wondershare Filmora 7.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461828.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ iCash 7.5.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461822.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Little Snitch 3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461670.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ iSkysoft iPhone Data Recovery 4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461537.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461341.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461202.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Beyond Compare 4.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461197.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461052.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Boom 3D v1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460909.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ SnapNDrag Pro 4.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459864.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Moom 3.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459725.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Temps 1.13.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459694.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Xversion 1.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459689.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Serial Box 10-2016 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459566.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Aimersoft Video Converter Ultimate for Mac 5.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459451.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Boom 2 v1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459297.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Data Guardian 3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459276.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ TinkerTool System 5.63 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459216.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Reflector 2.5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459197.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Hardware Monitor 5.53 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459155.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ Canary Mail 1.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459154.jpg" />
 </div>
 
 

@@ -1,177 +1,3 @@
-###  Публикация: 1077265   (308724) от 27.11.2016
-
-Петр Лещенко - Petr Lescenco singt (2001) [MP3|320 Kbps] <Ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Все, что было (Everything that was) [2:50]
-02. Барселона (Barcelona) [2:45]
-03. Андрюша (Andryusha) [2:51]
-04. Караван (Caravan) [3:29](   Читать дальше...   )Жанр: РетроПродолжительность: 00:44:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:450350F774961EC792416442C5728E0BA431FDF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077285   (308608) от 27.11.2016
-
-VA - Незабытые танго (2010) [MP3|320 Kbps] <Эстрада, советская песня, ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Аргентина (Ф.Гордон (Ф.Квятковская)) - Н.Арполин, Оркестр п/у П.Годвина
-02. Снилось мне (О.Строк) - К.Сокольский, Оркестр "Беллакорд"
-03. Ответ на чёрные глаза (О.Строк) - М.Белорусов, Оркестр п/у М.Вебера
-04. Где твоё сердце (автор неизвестен) - М.Белорусов, Оркестр "Беллакорд"(   Читать дальше...   )Жанр: Эстрада, Cоветская песня, PетроПродолжительность: 01:17:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50FAD3551006A55812596BE523F84410B9C04914
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422564   (308565) от 09.11.2020
-
-Workout Music Tv - Best Happy Pop Hits 2020 For Jogging [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baby Baby - Workout Remix 128 Bpm (4:30)
-02. What A Man Gotta Do - Workout Remix 128 Bpm (4:00)
-03. Boyfriend - Workout Remix 128 Bpm (3:45)
-04. Stupid Love - Workout Remix 128 Bpm (3:30)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:57:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F8D5C274CF2E4C2A8440F9ABA55CAAD4EC27C79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422559   (308561) от 09.11.2020
-
-Workout Music Tv - 40 Happy Aerobic & Cardio Hits 2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Got Love - Workout Remix 128 Bpm (4:33)
-02. Take Your Time - Workout Remix 128 Bpm (5:50)
-03. Faith - Workout Remix 128 Bpm (5:39)
-04. Good As Hell - Workout Remix 128 Bpm (4:05)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:54:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E78D94341BF9D6142072AF3ABF3D9C093A0C2AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422581   (308560) от 09.11.2020
-
-Workout Music Tv - Running Fall Hits 2020 Session [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Firework - Workout Remix 160 Bpm (4:12)
-02. Locked Out Of Heaven - Workout Remix 160 Bpm (4:12)
-03. Warrior - Workout Remix 160 Bpm (3:36)
-04. Crazy Train - Workout Remix 160 Bpm (4:00)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:58:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:699BFF582C5B21F82CB23DB2C1B8615348648544
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960539   (307887) от 28.11.2015
-
-Cyndi Lauper - The Body Acoustic (2005) [FLAC|image+.cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Money Changes Everything (with Adam Lazzara) 05:14
- 02. All Through The Night (with Shaggy) 04:40
- 03. Time After Time (with Sarah McLachlan) 04:17
- 04. She Bop 04:16(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5AFD73F3551621D444CDD4150444E97D86928D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1183092   (307861) от 14.11.2017
 
 Roxi Drive - Girl on the TV (2017) [MP3|320 Kbps] <Synthpop>
@@ -180,7 +6,7 @@ Roxi Drive - Girl on the TV (2017) [MP3|320 Kbps] <Synthpop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307861.jpg" />
 </div>
 
 
@@ -209,7 +35,7 @@ Ten Sharp - You (Single) (1991) [FLAC|Image+cue]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307823.jpg" />
 </div>
 
 
@@ -238,7 +64,7 @@ Adriano Celentano - Il Migliore (2012) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307596.jpg" />
 </div>
 
 
@@ -273,7 +99,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307497.jpg" />
 </div>
 
 
@@ -302,7 +128,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307458.jpg" />
 </div>
 
 
@@ -331,7 +157,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307296.jpg" />
 </div>
 
 
@@ -360,7 +186,7 @@ Mireille Mathieu - Mes classiques (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Cla
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307287.jpg" />
 </div>
 
 
@@ -389,7 +215,7 @@ Britney Spears - 7 альбомов + Singles Collection Deluxe + 4 Compilations
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_307216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_307216.jpg" />
 </div>
 
 
@@ -424,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307115.jpg" />
 </div>
 
 
@@ -453,7 +279,7 @@ Fancy - 37 альбомов + 35 синглов (1985 - 2011) [MP3|320kbps]<Euro
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_306858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_306858.jpg" />
 </div>
 
 
@@ -479,7 +305,7 @@ VA - Club House Culture: Indie Dance & Nu Disco Meets Deep House (2016) [MP3|320
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306792.jpg" />
 </div>
 
 
@@ -508,7 +334,7 @@ Anna German - Tanczace Eurydyki (1966, 2013) [FLAC|Lossless]<Retro, Pop>
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306677.jpg" />
 </div>
 
 
@@ -537,7 +363,7 @@ Magazine 60 - Costa Del Sol (1985) LP [MP3|320 Kbps] <Electronic, Synth-pop, Dis
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306585.jpg" />
 </div>
 
 
@@ -566,7 +392,7 @@ Lx24 - Зависимость (2016) [MP3|320 Kbps] <Pop, R&B, Hip-Hop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306434.jpg" />
 </div>
 
 
@@ -595,7 +421,7 @@ VA - Generation Italo Disco Collection Vol.1 (2016) [MP3|320 Kbps] <Disco, Synth
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306426.jpg" />
 </div>
 
 
@@ -624,7 +450,7 @@ Ace Of Base - Classic Remixes (Extended) (2008) [FLAC|Lossless|WEB-DL|tracks] <E
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306200.jpg" />
 </div>
 
 
@@ -653,7 +479,7 @@ VA - New Year 2021 (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306040.jpg" />
 </div>
 
 
@@ -682,7 +508,7 @@ Mirko Hirsch - Power of Desire (2015) [MP3|320 кб/с]<Italo Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305448.jpg" />
 </div>
 
 
@@ -711,7 +537,7 @@ Sarah Brightman - Hymn (2018) [MP3|320 Kbps] <Pop, Classical Crossover>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305336.jpg" />
 </div>
 
 
@@ -740,7 +566,7 @@ Cigarettes After Sex - Cry (2019) [FLAC|Lossless|WEB-DL|tracks] <Dream Pop, Indi
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305259.jpg" />
 </div>
 
 
@@ -754,6 +580,180 @@ Cigarettes After Sex - Cry (2019) [FLAC|Lossless|WEB-DL|tracks] <Dream Pop, Indi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F481A578CADDE397028D9256EDBB014C0C7D642F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261232   (305204) от 10.11.2018
+
+VA - 80s Symphonic (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Bowie – Let’s Dance
+02. a-ha – Take On Me
+03. Simple Minds – Alive & Kicking
+04. Ultravox – Vienna(   Читать дальше...   )Жанр: PopПродолжительность: 01:07:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59E675B7629C000E39B635D60443FD662C98DE6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960638   (305151) от 29.11.2015
+
+VA - Golden Memories - The...Gold Party Collection (2012) 4CD [FLAC|image + .cue]<Pop, Blues, Oldies, Retro>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whatever Will Be, Will Be (02:08)
+02. Magic Moments (02:43)
+03. Sway (02:45)
+04. Nel Blu, Dipinto Di Blu (02:04)(   Читать дальше...   )Жанр: Pop, Blues, Oldies, RetroПродолжительность: 03:00:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DC0BC2B7C2D2A3BFB1F50A997651872D271BC78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960832   (304812) от 29.11.2015
+
+Mylene Farmer - The Best Of (2007) [FLAC|image + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Les Mots (04:52)
+ 02. Fuck Them All (04:39)
+ 03. Sans Contrefacon (04:20)
+ 04. Xxl (04:29)(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDFF995EFF3CB20A032D17A96FA56C0554BEFD9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078112   (304633) от 29.11.2016
+
+VA - Hits of the 80s, Vol. 2 (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Graham Blvd - Dancing in the Dark [3:46]
+02. Knightsbridge - Pour Some Sugar On Me [4:26]
+03. Ellis Wright - You Drive Me Crazy [2:40]
+04. Chateau Pop - Take On Me [3:46](   Читать дальше...   )Жанр: PopПродолжительность: 01:14:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AAB0907AEC40AB50E274C80A43A3CC2434FA00F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078091   (304630) от 29.11.2016
+
+VA - Hits Of The 80s, Vol. 1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Graham Blvd - Everywhere [3:18]
+02. Fresh Beat MCs - Rapper's Delight [3:57]
+03. The Overseers - Boys (Summertime Love) [3:09]
+04. Silver Disco Explosion - Fame [3:54](   Читать дальше...   )Жанр: PopПродолжительность: 01:14:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0206334E83C5AED66D16A0658DE297390501407
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078012   (304465) от 29.11.2016
+
+Italoconnection - Remixes (2016) [FLAC|Lossless|image + .cue] <Italo-Disco, Italodance, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Rocca & Fred Ventura - Looking For Love (Italoconnection Remix) 4:05
+02. Fred Ventura - The Years (Go By) (Italoconnetion Remix 2) 5:10
+03. Out Of Limbo - Cold Stars (Italoconnection Remix) 5:48
+04. Ryvon - Fade Out The Lights (Italoconnection Remix) 5:18(   Читать дальше...   )Жанр: Italo-Disco, Italodance, Nu-DiscoПродолжительность: 01:14:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CA7DEDE7E6076972B093F4ACE00AAA627E090AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

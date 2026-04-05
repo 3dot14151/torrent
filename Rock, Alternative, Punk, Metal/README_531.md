@@ -1,3 +1,119 @@
+###  Публикация: 1047725   (548267) от 31.08.2016
+
+Wonderworld - 2 альбома: Wonderworld, II (2014,2016) [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forever Is A Lie
+02. Remember My Words
+03. Elements
+04. It´s Not Over Yet(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:45:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:896D57C5524645FDD82BB666734C48A17E19DE01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044363   (548255) от 31.08.2016
+
+Blackfoot - Southern Native (2016) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Need My Ride
+02 Southern Native
+03 Everyman
+04 Call Of A Hero(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A1E31234940450FAD9C336E529094D1D8961868
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047818   (548250) от 31.08.2016
+
+Sick Puppies - Fury (2016) Best Buy Edition [FLAC|Lossless|tracks] <Alternative Metal, Hard Rock, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black & Blue
+02. Stick To Your Guns
+03. Let Me Live
+04. Where Do I Begin(   Читать дальше...   )Жанр: Alternative Metal, Hard Rock, Post-GrungeПродолжительность: 00:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4233240DD13A4A6DA5480687B1A286C25A1FB25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047812   (548198) от 31.08.2016
+
+I See Stars - Treehouse (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronicore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calm Snow
+02. Break
+03. White Lies
+04. Everyone's Safe in the Treehouse(   Читать дальше...   )Жанр: ElectronicoreПродолжительность: 00:50:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A287D607866B2E8377720B6D6F7E4D81CD28DA52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047703   (548147) от 31.08.2016
 
 Billy Joel - The Hits (2010) Compilation, Remastered [FLAC|Lossless|tracks + .cue] <Rock, Pop Rock>
@@ -6,7 +122,7 @@ Billy Joel - The Hits (2010) Compilation, Remastered [FLAC|Lossless|tracks + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548147.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Dave Mason - Dave Mason / Split Coconut (2008) [FLAC|Lossless|image + .cue] <roo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547968.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Ducktails - Watercolors (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547864.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Ducktails - The Flower Lane (2013) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547863.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Ducktails - III: Arcade Dynamics (2011) [FLAC|Lossless|tracks + .cue] <Indie Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547861.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Ducktails - St. Catherine (2015) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547858.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ She Pleasures Herself - XXX (2019) [FLAC|Lossless|tracks + .cue] <Post-Punk, Col
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547686.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Dio - Singles Box Set (2012) Anthology [MP3|320 кб/с]<Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547610.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Strained Nerve - The New Dawn (2015) [FLAC|Lossless|image + .cue] <Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547475.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Anomalie - Between The Light (2014) [FLAC|Lossless|image + .cue] <Post-Black Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547473.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Dudley Taft - Skin and Bones (2015) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547468.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Vicious Rumors - Concussion Protocol (2016) Japanese Edition [MP3|320 Kbps] <Hea
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547425.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Cosmograf - The Unreasonable Silence (2016) [FLAC|Lossless|tracks + .cue] <Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547419.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Kuolemanlaakso - M. Laakso - Vol. 1: The Gothic Tapes (2016) [MP3|320 Kbps] <Got
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547418.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Jeremiah Johnson Band - Blues Heart Attack (2016) [FLAC|Lossless|image + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547407.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Ace Frehley - Origins Vol. 1 (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547361.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Long Distance Calling - Trips (2016) Bonus Tracks Version [FLAC|Lossless|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547358.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Crystal Ball - Deja-Voodoo (2016) [MP3|320 Kbps] <Melodic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547348.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ The Veils - Total Depravity (2016) [FLAC|Lossless|tracks] <Alternative Rock, Ind
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547275.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547268.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Seance - Fornever Laid To Rest (1992) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547139.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Rosicrucian - Silence (1992) [FLAC|Lossless|image + .cue] <Thrash-Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547137.jpg" />
 </div>
 
 
@@ -629,121 +745,6 @@ Rosicrucian - Silence (1992) [FLAC|Lossless|image + .cue] <Thrash-Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4881660C10212DF3DABF1A3EA12AED5ECF8E4FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047923   (547134) от 01.09.2016
-
-LP (Laura Pergolizzi) - Death Valley (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Alternative/Indie Rock, Pop Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Muddy Waters (3:49)
-02. Lost On You (4:28)
-03. Strange (3:55)
-04. Death Valley (2:52)(   Читать дальше...   )Жанр: Alternative/Indie Rock, Pop Rock, Folk RockПродолжительность: 00:19:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0650F568CAC384877532C6BA316D24DBBA3F7B1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238299   (547131) от 29.07.2018
-
-Kataklysm - Meditations (2018) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guillotine
-02. Outsider
-03. The Last Breath I'll Take Is Yours
-04. Narcissist(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:38:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5BCD883C5FB97684857B95808025C4CDF8895C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238341   (547075) от 29.07.2018
-
-Icon - 4 альбома (1984 - 1989) [FLAC|Lossless|image + .cue|tracks + .cue] <Hard Rock, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Icon - американская группа heavy metal / glam metal, созданная в 1979 году, расформированная в 1990 году. Ревормировалась в 2008 году, в настоящее время состоит из трех участников классического состава: Dan Wexler (guitar), Stephen Clifford (lead vocals) и John Aquilino (guitar), а также Dave Henzerling (bass) и Gary Bruzzese (drums). Началось все в 1981 году со (   Читать дальше...   )1984 - Icon
-1985 - Night Of The Crime
-1987 - An Even More Perfect Union (2009)Жанр: Hard Rock, GlamПродолжительность: 03:16:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFC8198F6D928DD3947FA44A608662049F3AD433
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238409   (547070) от 29.07.2018
-
-King Company - Queen Of Hearts (2018) Japanese Edition [MP3|320 Kbps] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547070.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Queen Of Hearts (4:12)
- 2. One Day Of Your Life (4:14)
- 3. Stars (4:24)
- 4. Living In A Hurricane (3:58)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF141B02DEED605AF92E7B83421F066037054794
 ```
 
 https://mybot314.ru/tekegram_catalog/

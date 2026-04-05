@@ -1,159 +1,3 @@
-###  Публикация: 1182499   (314257) от 11.11.2017
-
-Шантану Бхадориа, Рубен Олива Рамос / Shantanu Bhadoria, Ruben Oliva Ramos | Raspberry Pi 3: проекты домашней автоматизации /Raspberry Pi 3 Home Automation Projects (2017) [EPUB] [En]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга призвана помочь вам интегрировать различные микроконтроллеры, такие как Arduino, ESP8266 Wi-Fi модуль, Particle Photon и Raspberry Pi 3 в реальный мир, используя лучшие из этих плат для разработки некоторых интересных проектов для домашней автоматизации. Вы сможете использовать эти проекты в повседневных задачах, делая жизнь проще и удобнее. Мы начнем с (   Читать дальше...   )Жанр: Компьютерная литератураФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2733ED2EFB9E81DF622E33067093FD9365A85F62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182314   (314040) от 11.11.2017
-
-Ф.Л. Сиротин и др. | Программирование микроконтроллеров. Лабораторный практикум [В 2-х частях] (2014,2016) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314040.jpg" />
-</div>
-
-
-###  Подробнее
-
-Излагаются основные сведения о микроконтроллерах AVR семейства Mega, их программировании на языке СИ, описывается стенд для реализации различных программ управления электродвигателем на основе микроконтроллера Atmega 8,Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2E83FE6F4C14536FD851EE683BBF040A32F555F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959601   (313831) от 25.11.2015
-
-Николай Прохоренок, Владимир Дронов | Python 3. Самое необходимое [+ приложение] (2016) [PDF, DOC]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Описан базовый синтаксис языка Python 3: типы данных, операторы, условия, циклы, регулярные выражения, встроенные функции, классы и объекты, итераторы и перечисления, обработка исключений, часто используемые модули стандартной библиотеки. Даны основы SQLite, описан интерфейс доступа к базам данных SQLite и MySQL, в том числе посредством ODBC. Рассмотрена работа с (   Читать дальше...   )Жанр: Языки и системы программированияФормат: PDF, DOC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC7F5BDB24A2DB4BDA92F8198B39EE1707521963
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182474   (313725) от 11.11.2017
-
-Пол Бэрри | Изучаем программирование на Python (2017) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313725.jpg" />
-</div>
-
-
-###  Подробнее
-
-Надоело продираться через дебри малопонятных самоучителей по программированию? С этой книгой вы без груда усвоите азы Python и научитесь работать со структурами и функциями. В ходе обучения вы создадите свое собственное веб-приложение и узнаете, как управлять базами данных, обрабатывать исключения, пользоваться контекстными менеджерами, декораторами и генераторами. (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3403DECA1E92AA71279C206EADDEBE5214DF796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076559   (312892) от 25.11.2016
-
-Алексей Васильев | Программирование на C++ в примерах и задачах (2017) [PDF, DJVU]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга включает в себя полный набор сведений о языке C++, необходимых для успешного анализа и составления эффективных программных кодов. Материал излагается последовательно и дополняется большим количеством примеров, практических задач и детальным разбором их решений. К каждому разделу прилагается обширный список задач для самостоятельного решения.Жанр: Программирование на C++Формат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7260170536C3F90F397DB6F9F1E4A18308FBD50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 579029   (311580) от 02.12.2012
-
-Lucky Blake | Сборник уроков по фотошопу [2012] [PDF](Обновляемая)
-
->>Компьютерная литература
->>2D графика
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_311580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник уроков по работе с  Adobe Photoshop CS5.  В каждый сборник входит 50 иллюстрированных уроков в формате PDF + бонусы.Формат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1332793   (310979) от 21.10.2019
 
 Мехди Меджуи и др. | Непрерывное развитие API (2020) [PDF]
@@ -162,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310979.jpg" />
 </div>
 
 
@@ -188,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310437.jpg" />
 </div>
 
 
@@ -216,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309531.jpg" />
 </div>
 
 
@@ -242,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>2D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308915.jpg" />
 </div>
 
 
@@ -268,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307953.jpg" />
 </div>
 
 
@@ -294,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307233.jpg" />
 </div>
 
 
@@ -322,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306851.jpg" />
 </div>
 
 
@@ -348,7 +192,7 @@ Autocad MEP 2012. Руководство пользователя [2011 г.] [PD
 >>3D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306834.jpg" />
 </div>
 
 
@@ -374,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306639.jpg" />
 </div>
 
 
@@ -400,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305124.jpg" />
 </div>
 
 
@@ -427,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305038.jpg" />
 </div>
 
 
@@ -453,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305006.jpg" />
 </div>
 
 
@@ -479,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304646.jpg" />
 </div>
 
 
@@ -505,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303730.jpg" />
 </div>
 
 
@@ -531,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301742.jpg" />
 </div>
 
 
@@ -559,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301679.jpg" />
 </div>
 
 
@@ -585,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300573.jpg" />
 </div>
 
 
@@ -612,7 +456,7 @@ Photodex | Proshow Producer версия 4.1. Руководство на рус
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300423.jpg" />
 </div>
 
 
@@ -640,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299447.jpg" />
 </div>
 
 
@@ -668,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298344.jpg" />
 </div>
 
 
@@ -680,6 +524,166 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4F4460DC2EEB04151804DB23894DE2CD251B667
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 84664   (298253) от 27.10.2019
+
+Энтони Боланте | Adobe After Effects 7.0. Спецэффекты и создание видеокомпозиций [2007] [DJVU]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая книга написана профессионалом в области видеодизайна и видеомонтажа на основании личного опыта преподавания и является одним из самых полных руководств по программеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A78E51C461C183845969FFA200ADDF612E0E0F12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334233   (296661) от 28.10.2019
+
+А.А. Петровский (ред.) | Анализаторы речевых и звуковых сигналов. Методы, алгоритмы и практика (с MATLAB примерами) (2009) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296661.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данной книге обобщен многолетний опыт сотрудников НИЛ 3.1 «Мультипроцессорные системы реального времени» БГУИР проектирования различных компонентов систем мультимедиа таких как субполосное кодирование аудио- и речевых сигналов, подавление шумов окружающей среды в речевом сигнале, компенсация акустического и электрического эхосигналов, и т.д.
+Главные направления (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9579EFAD90D50227651C76E66A9C6B064BE1A92D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261818   (296522) от 14.11.2018
+
+Рафаэль Херцог и др. | Kali Linux от разработчиков (2019) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296522.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге предложен краткий курс работы с командной строкой Linux и ее концепциями, описаны типичные сценарии установки Kali Linux. Прочитав эту книгу, вы научитесь конфигурировать, отлаживать и защищать Kali Linux, а также работать с мощным менеджером пакетов дистрибутива Debian. Научитесь правильно устанавливать Kali Linux в любых окружениях, в том числе, в крупных (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ED6B5CEBA999B80D5DB4471C7D667E7E71E6700
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424162   (295453) от 15.11.2020
+
+Фабиан Уэске, Василики Калаври | Потоковая обработка данных с Apache Flink (2021) [EPUB]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начните работу с Apache Flink, фреймворком с открытым исходным кодом, на котором основаны многие крупнейшие в мире системы для обработки потоковых данных. В данной книге вы изучите фундаментальные понятия параллельной потоковой обработки и узнаете, чем эта технология отличается от традиционной пакетной обработки данных. Ф. Уэске и В.Калаври, занятые в проекте Apache (   Читать дальше...   )Жанр: Компьютерная литератураФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E21D9F85211D461228857E35186EF1282FD79BF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 268590   (295431) от 10.12.2010
+
+С.В.Гордейчик, В.В.Дубровин | Безопасность беспроводных сетей [2008] [DJVU]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлен подробный анализ причин возникновения уязвимостей и типичных ошибок, допускаемых при развертывании беспроводных сетей. Описываются этапы построения защищенной беспроводной сети - от создания политики безопасности до настройки систем обнаружения беспроводных атак и проведения тестов на проникновения.
+ Рассматриваются современные средства и технологии защиты, такие как 802.1Х, PEAP, SSL, IPSec, WPA и 802.11. Отдельный раздел посвящен защите мобильных устройств на основе ОС Windows Mobile.
+ Рассматривается реализованная в Windows Mobile модель безопасности, а также приводятся рекомендации по использованию встроенных защитных механизмов для безопасного доступа к корпоративным ресурсам.
+ Для системных администраторов, инженеров, специалистов в области информационной безопасности.2008Жанр: Безопасность в ИнтернетеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F2D4186AC5CE15DBB0AFF5B337544FDD8B5046B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424141   (295320) от 15.11.2020
+
+Фабиан Уэске, Василики Калаври | Потоковая обработка данных с Apache Flink (2021) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начните работу с Apache Flink, фреймворком с открытым исходным кодом, на котором основаны многие крупнейшие в мире системы для обработки потоковых данных. В данной книге вы изучите фундаментальные понятия параллельной потоковой обработки и узнаете, чем эта технология отличается от традиционной пакетной обработки данных. Ф. Уэске и В.Калаври, занятые в проекте Apache (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F141E23CA600D51D363993E143B07825E07AE75
 ```
 
 https://mybot314.ru/tekegram_catalog/

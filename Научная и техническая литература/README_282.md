@@ -1,134 +1,3 @@
-###  Публикация: 912155   (612905) от 25.06.2015
-
-Семен Резник | Вл. Ковалевский (1978) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всего четыре года из своей сорокалетней жизни (1842 - 1883) отдал Владимир Ковалевский своим научным исследованиям, но этого оказалось достаточно, чтобы его имя навечно осталось в памяти человечества. Выдающийся ученый-дарвинист, он положил эволюционную теорию в основу науки об ископаемых организмах. Благодаря его открытиям исчезнувшее миллионы лет назад население (   Читать дальше...   )Жанр: Биографии российских знаменитостейФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CA69CAA2621B995816A9A4D062821A33DA0322B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912164   (612892) от 25.06.2015
-
-Константин Ковалев | Бортнянский (1989) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выдающимся композитором России "доглинковского" периода по праву считается Д.С. Бортнянский. Он - один из основоположников русской национальной классической композиторской школы. В наше время все чаще звучат его знаменитые духовные хоровые концерты, в театрах и концертных залах исполняются его оперы, камерные и симфонические инструментальные произведения, (   Читать дальше...   )Жанр: Биографии российских знаменитостейФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0162AC3F626404B13CAF6152F2CDE0AEB2DEADBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146666   (612852) от 30.06.2017
-
-Л.Л. Клюев | Теория электрической связи (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612852.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебнике изложены теоретические основы электрической связи (электросвязи), которые являются базовыми для подготовки инженеров по специальностям: «Инфокоммуникационные технологии (по направлениям)», «Инфокоммуникационные системы», «Защита информации в телекоммуникациях».
-Изложена теория электрической связи, включающая основы теории сигналов, теории информации, теории (   Читать дальше...   )Жанр: СвязьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFD298CBD2021A1A7E7FCBEAC1091A0AE7A7CE42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 524564   (612830) от 18.07.2012
-
-А.Г. Кручина | Портреты русских писателей [1981] [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплект  из  32-х  цветных открыток.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4D0DA5AB9442845432A8B76B082E62A96635BD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912311   (612808) от 25.06.2015
-
-Вячеслав Козляков | Царица Евдокия (2014) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Последняя московская царица, отвергнутая жена царя Петра I, монахиня Елена, заточенная сначала в Суздальском Покровском монастыре, а затем в бастионе Шлиссельбургской крепости, и, наконец, "государыня-бабушка", считавшаяся важной и влиятельной персоной во время короткого царствования ее внука, императора Петра II, — это всё разные стороны биографии царицы-инокини (   Читать дальше...   )Жанр: Биографии российских знаменитостейФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BD56346FC11B34CDAE7FA8D8E87F7DF5B05A62C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912146   (612800) от 25.06.2015
 
 Михаил Лобанов | Сергей Тимофеевич Аксаков (1987) [DJVU]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612800.jpg" />
 </div>
 
 
@@ -163,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612796.jpg" />
 </div>
 
 
@@ -190,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612694.jpg" />
 </div>
 
 
@@ -216,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612689.jpg" />
 </div>
 
 
@@ -242,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612688.jpg" />
 </div>
 
 
@@ -268,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612687.jpg" />
 </div>
 
 
@@ -294,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612686.jpg" />
 </div>
 
 
@@ -321,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612681.jpg" />
 </div>
 
 
@@ -348,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612618.jpg" />
 </div>
 
 
@@ -374,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612601.jpg" />
 </div>
 
 
@@ -407,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612594.jpg" />
 </div>
 
 
@@ -433,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612589.jpg" />
 </div>
 
 
@@ -459,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612574.jpg" />
 </div>
 
 
@@ -486,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612573.jpg" />
 </div>
 
 
@@ -512,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612570.jpg" />
 </div>
 
 
@@ -538,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612569.jpg" />
 </div>
 
 
@@ -564,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612524.jpg" />
 </div>
 
 
@@ -591,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612523.jpg" />
 </div>
 
 
@@ -617,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612522.jpg" />
 </div>
 
 
@@ -644,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612510.jpg" />
 </div>
 
 
@@ -671,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612508.jpg" />
 </div>
 
 
@@ -683,6 +552,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55A3F61C22EA41F09F9625538C3B0913EA8614AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912423   (612507) от 25.06.2015
+
+Андрей Банников, Максим Морозов | История военного флота Рима и Византии (2014) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612507.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассматриваются процесс возникновения и эволюция римского регулярного флота, а также его роль в структуре вооруженных сил сначала Римской, а в последующем и Византийской империи. После победы Рима над всеми крупными морскими державами Средиземноморья его флот лишь в слабой степени принимал участие в расширении и поддержании римского могущества. Гораздо более (   Читать дальше...   )Жанр: ИсторияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C57F3D9C1C59BF79ACF955BD63846A6FE54DD719
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912239   (612506) от 25.06.2015
+
+Алексей Карпов | Великий князь Владимир Мономах (2015) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга рассказывает о князе Владимире Всеволодовиче Мономахе - одном из наиболее ярких правителей в истории России. Временем его княжения по существу завершается эпоха Киевской Руси, и именно ему пришлось вырабатывать те принципы, которые легли в основу нового политического устройства страны. На основе скрупулёзного разбора всех сохранившихся источников автор воссоздаёт (   Читать дальше...   )Жанр: Биографии российских знаменитостейФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EB160ECDB0EA774670142C6A4AE3F0753D0C941
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911638   (612443) от 25.06.2015
+
+П. Н. Дьячков | Электронные свойства и применение нанотрубок (2012) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612443.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монография всеобъемлюще отражает самые последние сведения в области изучения и применения нанотрубок за последние двадцать лет. Приведена информация о методах их получения, структуре, электронных, оптических, механических, магнитных и эмиссионных свойствах. Описаны во многом удивительные изобретения, полученные с помощью этих новых материалов: одноэлектронный, полевой (   Читать дальше...   )Жанр: Техническая литература, Физика, Общие работы по физикеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B9AB7913B3A5FCC9CDB178FC522F47BBB368DB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911858   (612437) от 25.06.2015
+
+Дж. Лакофф, М. Джонсон | Метафоры, которыми мы живем (2004) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612437.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге Дж.Лакоффа и М.Джонсона "Метафоры, которыми мы живем" излагаются основы когнитивного подхода к метафоре - языковому, когнитивному и культурному феномену. Обсуждаются как научные аспекты изучения этого феномена в лингвистике и философии, так и роль метафоры в современном обществе, в повседневном общении между людьми. Особое внимание обращается на (   Читать дальше...   )Жанр: Культурология, ЛитературоведениеПеревод: Анатолий Баранов, А. МорозоваФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:215BBBBC2FC34891A87F83209E5ACB0BCF6E4552
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911197   (612436) от 25.06.2015
+
+Н. Моисеев | Экология человечества глазами математика (1988) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612436.jpg" />
+</div>
+
+
+###  Подробнее
+
+О коэволюции (сосуществовании) природы и человечества - новом направлении в науке, занимающемся комплексными вопросами сохранения окружающей среды, необходимой для жизни людей. Издание рассчитано на самые широкие круги читателей.Жанр: Естественные науки, Экология, Человек и окружающая средаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBCFAF3DEC8F55CF007876BAE27F247B7C362CB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

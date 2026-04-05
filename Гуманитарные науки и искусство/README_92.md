@@ -1,83 +1,3 @@
-###  Публикация: 956661   (327659) от 17.11.2015
-
-Ю. В. Воронцов | Операция «Брейнуошинг» (1971) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга посвящена исследованию средств массовой коммуникации Соединенных Штатов Америки, показу их пагубного воздействия на широкие слои населения этой страны, особенно молодежь, изощренной научно разработанной системе «брейнуошинг» - «промывание мозгов» - дезинформации читателей, радиослушателей, телезрителей, просто учащихся.
-
-Автор книги, доктор философских (   Читать дальше...   )Жанр: История, политология, психология, социология, культурологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB20282102ECC4EEC75BDDB25183B6EF1305094D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957285   (327632) от 17.11.2015
-
-С. Я. Шейнман-Топштейн | Платон и ведийская философия (1978) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327632.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой опыт сравнительного исследования учения великого греческого мыслителя Платона и древнеиндийского учения упанишад. В приложении к книге даются авторский перевод сочинения Платона «Политик» и отрывки из «Бхагавадгиты» в переводе Б. Л. Смирнова.Жанр: История, философия, онтология, космология, этика, социология, гносеология, эстетикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3124F8835F350EF92511A562DDBA9C12651C8244
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956863   (327630) от 17.11.2015
-
-Томас Венцлова | Вильнюс: город в Европе (2012) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327630.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге известного поэта и филолога, профессора Йельского университета Томаса Венцловы столица Литвы предстает многослойной, как ее 700-летняя история. Фантастический сплав языков, традиций и религий, существовавших на территории к востоку от Эльбы независимо от политических границ, породил совершенно особый ореол города. Автор повествует о Вильнюсе, ставшем ныне (   Читать дальше...   )Жанр: История отдельных зарубежных стран, КультурологияПеревод: Мария ЧепайтитеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF8CD1ACB46E776AE715E40306F75ADC525CCF0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 956868   (327609) от 17.11.2015
 
 Марио Якоби | Встреча с аналитиком. Феномен переноса и реальные отношения (1996) [DJVU]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327609.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327606.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327595.jpg" />
 </div>
 
 
@@ -165,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327553.jpg" />
 </div>
 
 
@@ -191,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327300.jpg" />
 </div>
 
 
@@ -217,7 +137,7 @@ Katie Derham | The classical music book: big ideas simply explained (2018) [EPUB
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326242.jpg" />
 </div>
 
 
@@ -244,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325876.jpg" />
 </div>
 
 
@@ -270,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325875.jpg" />
 </div>
 
 
@@ -296,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325874.jpg" />
 </div>
 
 
@@ -322,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325831.jpg" />
 </div>
 
 
@@ -348,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325829.jpg" />
 </div>
 
 
@@ -375,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324958.jpg" />
 </div>
 
 
@@ -401,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323952.jpg" />
 </div>
 
 
@@ -429,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323538.jpg" />
 </div>
 
 
@@ -455,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323366.jpg" />
 </div>
 
 
@@ -482,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322018.jpg" />
 </div>
 
 
@@ -508,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321973.jpg" />
 </div>
 
 
@@ -534,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321968.jpg" />
 </div>
 
 
@@ -560,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321870.jpg" />
 </div>
 
 
@@ -586,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321850.jpg" />
 </div>
 
 
@@ -612,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321446.jpg" />
 </div>
 
 
@@ -638,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321280.jpg" />
 </div>
 
 
@@ -664,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320804.jpg" />
 </div>
 
 
@@ -675,6 +595,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87350F29EFACEF3CB6B112701D59DC11D3B8A573
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075058   (320799) от 22.11.2016
+
+Е. А. Ножин | Основы советского ораторского искусства (1973) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга дает систематическое представление о советском ораторском искусстве как прикладной и теоретической дисциплине. В основе ее — учет данных языкознания, философии, логики, психологии, а также анализ ораторской практики выдающихся ораторов.Жанр: История, философия, искусство, психология, филология, риторика, логикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37A68D8B698A71A6011F478213DFF75AD7CB7DC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181936   (320614) от 08.11.2017
+
+П.Д. Волкова | Великие художники: большая книга мастеров и эпох (2017) [PDF, FB2]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга «Великие художники: большая книга мастеров и эпох» объединяет в себе два заключительных тома серии «Мост через бездну» – легендарного цикла лекций Паолы Волковой – и рассказывает нам об эволюции живописи – от заката Ренессанса до наших дней, от идеального образа до сиюминутного впечатления. Паола Дмитриевна приглашает нас в долгое путешествие по мосту над бездной (   Читать дальше...   )Жанр: ИскусствоведениеФормат: PDF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A30D4D9BABD90B2EF2C3CE287E8675E15AE1002
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075493   (320592) от 22.11.2016
+
+Елена Дмитриевна Мелешко | Христианская этика Л.Н. Толстого (2006) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320592.jpg" />
+</div>
+
+
+###  Подробнее
+
+В монографии исследуется этика Л.Н. Толстого как искусство жизни в соответствии с принципами христианского вероучения - любви, непротивления и неделания. По мнению автора, великий писатель видел основу философствования в сознании всеобщего духовного начала - Бога. Религия для Толстого есть первое, аксиоматическое жизнеощущение, в силу чего именно она должна задавать (   Читать дальше...   )Жанр: Этика, философия, монографияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C007886C170DE04F745373E42037489BA64AB4AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

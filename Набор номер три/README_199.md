@@ -1,3 +1,160 @@
+###  Публикация: 1206389   (782352) от 13.02.2018
+
+Adobe Photoshop CC 2018 19.1.1.42094 RePack by KpoJIuK  [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop - это комплексное решение для профессиональной обработки цифровых изображений, которое содержит самые современные инструменты для работы с изображениями и новые возможности для реализации творческих идей, которые позволяют значительно повысить производительность. Редактируйте изображения с исключительной точностью, используйте новые интуитивно понятные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2351CB38214112450B785173BD97442B58CFD5DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205969   (782348) от 13.02.2018
+
+Total Commander PowerUser 69 Portable by HA3APET от 11.02.2018 [Ru/En]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощнейший инструмент для системных администраторов и продвинутых пользователей, в котором грамотно подобраны программы и плагины. Всё это качественно интегрировано в оболочку Total Commander.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1A0008BBEEBE2B540971B2000C8F25B7833FDF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 800677   (782346) от 13.02.2018
+
+SA Contacts (старое название Excel <-> Contacts) v2.8.10 [Ru/Multi] - импорт и экспорт контактов
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782346.jpg" />
+</div>
+
+
+###  Подробнее
+
+SA Контакты это лучший способ переноса ваших контактов с вашего телефон или на него! Ни одно приложение не позволит так просто управлять контактами вашего телефона.Тип издания: Пиратка / FullРелиз состоялся: 23.01.2018Разработчик: samappПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19DFFE56C6265C102DB850D6197CE5C83760442D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169158   (782345) от 13.02.2018
+
+Звёздный путь: Дискавери / Star Trek: Discovery (2017) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-15 из 15) OmskBird [AD]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782345.jpg" />
+</div>
+
+
+###  Подробнее
+
+За 10 лет до начала истории оригинального сериала «Star Trek», экипаж корабля USS Discovery NCC-1031 отправляется в путешествие, чтобы изучать глубокий космос, открывая новые миры и цивилизации.Производство: США, CBS Television Studios, Living Dead Guy Productions, Paramount Television, Roddenberry Entertainment, Secret HideoutЖанр: фантастикаРежиссер: Акива Голдсман, Адам Кэйн, Ли РоузАктеры: Джейсон Айзекс, Даг Джонс, Шазад Латиф, Сонекуа Мартин-Грин, Молик Панчоли, Энтони Рэпп, Мишель Йео, Кеннет Митчелл, Дэймон Рунян, Терри Серпико и др.Перевод: Многоголосый закадровый, профессиональный - OmskBirdСубтитры: английскиеПродолжительность: ~00:44:00 серияРеклама: присутствуют аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1442B79D05BB45D18B617325C7F2748CA6374C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 199664   (782277) от 11.05.2010
+
+Парад Победы 2010 г. Красная Площадь (2010) IPTVRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782277.jpg" />
+</div>
+
+
+###  Подробнее
+
+Парад на Красной площади в честь Дня Победы. Военный парад в честь 65-летия Победы в Великой Отечественной войне станет рекордным за последние годы.
+В параде 9 мая 2010 года принимают участие 161 единица военной техники, а в небе над Москвой пролетят 127 самолетов и вертолетов. Торжественным маршем по Красной площади пройдет около 10,5 тысяч российских военнослужащих (   Читать дальше...   )Телекомпания: Первый КаналЖанр: Телепередача, ДокументальныйПродолжительность: 01:14:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390626   (782173) от 17.06.2020
+
+Microsoft  Windows 7 Ultimate Ru x86-x64 SP1 NL3 by OVGorskiy® 06.2020 2DVD
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782173.jpg" />
+</div>
+
+
+###  Подробнее
+
+32-х и 64-х битные ОС Windows® 7™ с интегрированными обновлениями, оформлением в светло-голубом стиле и ручной установкой на 2 DVD. Содержит в себе набор программ, тем оформления, картинок рабочего стола, гаджетов и пр., т.е. почти все для начала работы с системой после установки, а так же предоставляет возможность проверить компьютер перед установкой. Сборка содержит (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:778E703A92EBF378CD396BA2044252C30ED79189
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 533662   (782169) от 17.06.2020
 
 Aqua Mail Pro 1.25.0-1610 [Ru]
@@ -6,7 +163,7 @@ Aqua Mail Pro 1.25.0-1610 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782169.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782004.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781975.jpg" />
 </div>
 
 
@@ -86,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781961.jpg" />
 </div>
 
 
@@ -112,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781960.jpg" />
 </div>
 
 
@@ -138,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781959.jpg" />
 </div>
 
 
@@ -164,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781747.jpg" />
 </div>
 
 
@@ -193,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781550.jpg" />
 </div>
 
 
@@ -220,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781538.jpg" />
 </div>
 
 
@@ -246,7 +403,7 @@ The Evil Within 2 (2017) [Ru/Multi] (1.0.4/upd3/dlc) Repack =nemos=
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781537.jpg" />
 </div>
 
 
@@ -272,7 +429,7 @@ APKPure APK v2.7.3 Ad-Free Mod [Ru/Multi] - независимое  от Google 
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781535.jpg" />
 </div>
 
 
@@ -298,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781534.jpg" />
 </div>
 
 
@@ -324,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781473.jpg" />
 </div>
 
 
@@ -350,7 +507,7 @@ Colin McRae: DiRT Коллекция [Ru/En] (RePack) 2007-2009 | R.G.ReCoding
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781466.jpg" />
 </div>
 
 
@@ -378,7 +535,7 @@ Hard Truck / Ex Machina Антология [Ru] (L) 2008
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781463.jpg" />
 </div>
 
 
@@ -404,7 +561,7 @@ Tubedigger 6.8.8 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781350.jpg" />
 </div>
 
 
@@ -430,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>10
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781348.jpg" />
 </div>
 
 
@@ -456,7 +613,7 @@ Windows 10 Pro 2004 b19041.331 x64 ru by SanLex (edition 2020-06-19) [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781344.jpg" />
 </div>
 
 
@@ -482,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781339.jpg" />
 </div>
 
 
@@ -508,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781124.jpg" />
 </div>
 
 
@@ -520,162 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206827   (781109) от 16.02.2018
-
-Три билборда на границе Эббинга, Миссури / Three Billboards Outside Ebbing, Missouri (2017) BDRip [H.264/1080p] [PR]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781109.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя несколько месяцев после убийства дочери Милдред Хейс преступники так и не найдены. Отчаявшаяся женщина решается на смелый шаг, арендуя на въезде в город три биллборда с посланием к авторитетному главе полиции Уильяму Уиллоуби. Когда в ситуацию оказывается втянут еще и заместитель шерифа, инфантильный маменькин сынок со склонностью к насилию, офицер Диксон, (   Читать дальше...   )Производство: Великобритания, США / Blueprint Pictures, Film 4, Fox Searchlight PicturesЖанр: Криминал, ДрамаРежиссер: Мартин МакДонаАктеры: Фрэнсис МакДорманд, Вуди Харрельсон, Сэм Рокуэлл, Джон Хоукс, Питер Динклэйдж Калеб, Лэндри Джонс, Лукас Хеджес, Эбби Корниш, Керри Кондон, Даррел Бритт-ГибсонПеревод: Дублированный (Лицензия BD CEE), Одноголосый закадровый, авторский (Михаил Яроцкий) (Субтитры: Русские, Украинские, АнглийскиеПродолжительность: 01:55:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA56545CD5D3CDCE02C518B8FD7664D59A8D1B19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207002   (781108) от 16.02.2018
-
-Photodex ProShow Producer 9.0.3793 RePack (& portable) by KpoJIuK + Effects Pack 7.0  [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781108.jpg" />
-</div>
-
-
-###  Подробнее
-
-ProShow Producer – новая версия приложения для создания профессиональных презентаций, которая включает в себя сотни новых функций и обновленный интерфейс. Программа поддерживает работу со слоями и дает возможность использовать неограниченное число слоев для каждого слайда. Программа поддерживает прозрачность для файлов PSD, PNG, TIFF и GIF, дает возможность использовать (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7D0A4933B4064F5D0AB157186C57B8284063C14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 200922   (781047) от 14.05.2010
-
-Глухарь в кино (2010) DVDRip
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_781047.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два друга детства работают в одном отделении милиции. Сергей Глухарев — следователь, Денис Антошин — оперативник. Вечер, который они проводят с друзьями в ресторане, преподносит им ужасный сюрприз. Случайная ссора с одним из посетителей, после которого его находят убитым, переворачивает всю жизнь Глухарева и Антошина. Друзья объявлены в розыск как опасные преступники. (   Читать дальше...   )Производство: Россия, DIXI-TVЖанр: Комедия, Криминал, ДетективРежиссер: Владимир ВиноградовАктеры: Максим Аверин, Денис Рожков, Юрий Чурсин, Павел Басов, Вячеслав Манучаров, Борис Химичев, Любава Аристархова, Алексей Серебряков, Владимир Фекленко, Мария РассказоваПеревод: ОригинальныйПродолжительность: 01:26:05
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 200971   (781046) от 14.05.2010
-
-Туман (2010) [H.264] DVDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_781046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отряд молодых бойцов Российской Армии отрывается от основного строя во время марш-броска, дабы сократить путь, бежит наперерез, но попадает в туман, который переносит его в прошлое, в годы Великой Отечественной войны. Ребята, видевшие войну только в кино, попадают в лапы безжалостных событий того времени. Все на грани: храбрость, страх, любовь, ненависть, жизнь, (   Читать дальше...   )Производство: РоссияЖанр: Драма, ВоенныйРежиссер: Иван Шурховецкий, Артем АксененкоАктеры: Игорь Шмаков, Василий Ракша, Артем Крестников, Григорий Калинин, Евгений Куршинский, Дмитрий Росляков, Вячеслав Буцков, Светлана Устинова, Алексей Марков, Илья Глинников, Родион Галюченко, Дмитрий Сергин, Иван Лапин, Алексей ИльинПеревод: ОригинальныйПродолжительность: 02:31:16
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391158   (780925) от 20.06.2020
-
-МВД требует от «Т-платформ» заменить 9 тыс. «некондиционных» ПК на «Байкалах»
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_780925.jpg" />
-</div>
-
-
-###  Подробнее
-
-По решению суда процессоры «Байкал» будут исследованы в специализированной лаборатории, которая даст заключение о соответствии их частотных характеристик заявленных производителем параметрам. Выводы экспертов послужат ответом на вопрос, вправе ли МВД требовать от компании «Т-платформы» замены свыше 9 тыс. компьютеров, которые министерство считает не отвечающим требованиям (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391430   (780921) от 20.06.2020
-
-Beyond: Two Souls (2019) [Ru/Multi] (Build 5117920) Repack Other s
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780921.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уникальный психологический экшен-триллер Beyond: Two Souls с участием голливудских суперзвезд голливудских суперзвезд Эллен Пейдж и Виллема Дефо уносит вас в увлекательное путешествие по всему миру, в котором вы проживете часть удивительной жизни Джоди Холмс. Джоди не такая как все: с рождения она обладает связью с таинственным существом с невероятными способностями. (   Читать дальше...   )Тип издания: RepackРазработчик: Quantic DreamЖанр: Adventure (Interactive Movie), Action, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38B188AE7AE8444FB75AB4D59419FFC02F247186
 ```
 
 https://mybot314.ru/tekegram_catalog/

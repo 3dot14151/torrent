@@ -1,3 +1,30 @@
+###  Публикация: 904135   (655136) от 02.06.2015
+
+Журнал | Шпиль! №5 (май 2015) [PDF]
+
+>>Журналы
+>>Игровые журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655136.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Шпиль!» – культовый игровой журнал нового поколения, созданный для энергичной и активной молодежи – поклонников видеоигр, киберспорта, компьютерной техники и мобильной связи. Это помощник в выборе аппаратных средств, мобильных телефонов, это Интернет-навигатор и, конечно, проводник в мире компьютерных игр.
+«Игровой журнал нового поколения» - так определяют создатели (   Читать дальше...   )Жанр: Игровой журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D28A552FC968644E23A1CEE4A221627EEA1EB027
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1293228   (638921) от 02.04.2019
 
 Журнал | Навигатор игрового мира №2 (февраль 2019) [PDF]
@@ -6,7 +33,7 @@
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638921.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627134.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613843.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610403.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606067.jpg" />
 </div>
 
 
@@ -136,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586864.jpg" />
 </div>
 
 
@@ -162,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579796.jpg" />
 </div>
 
 
@@ -188,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554225.jpg" />
 </div>
 
 
@@ -214,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554006.jpg" />
 </div>
 
 
@@ -240,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548942.jpg" />
 </div>
 
 
@@ -266,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518334.jpg" />
 </div>
 
 
@@ -292,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518288.jpg" />
 </div>
 
 
@@ -318,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518208.jpg" />
 </div>
 
 
@@ -344,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504081.jpg" />
 </div>
 
 
@@ -370,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483766.jpg" />
 </div>
 
 
@@ -396,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455149.jpg" />
 </div>
 
 
@@ -422,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407833.jpg" />
 </div>
 
 
@@ -448,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402961.jpg" />
 </div>
 
 
@@ -474,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367190.jpg" />
 </div>
 
 
@@ -500,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364804.jpg" />
 </div>
 
 
@@ -526,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347186.jpg" />
 </div>
 
 
@@ -552,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337825.jpg" />
 </div>
 
 
@@ -578,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320096.jpg" />
 </div>
 
 
@@ -604,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314075.jpg" />
 </div>
 
 
@@ -630,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301001.jpg" />
 </div>
 
 
@@ -641,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF8E6C51C2DB1CE9802B9C54651533A6E0888D05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185649   (290885) от 22.11.2017
-
-Журнал | Игромания №12 (243) (декабрь 2017) [PDF]
-
->>Журналы
->>Игровые журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290885.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Игромания» — российский компьютерно-игровой, ежемесячный журнал, распространяющийся главным образом в России и странах СНГ. В основу создания «Игромании» поставлена доступность и понятность описываемой информации, с тем, чтобы тексты мог понять самый широкий круг читателей.Жанр: Игровой журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BF00D2E5438FAF50D7CF80C6AC61482EF5892D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

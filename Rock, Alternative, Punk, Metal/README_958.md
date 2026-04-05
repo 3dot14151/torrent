@@ -1,3 +1,32 @@
+###  Публикация: 1436686   (210806) от 05.01.2023
+
+Mechina - 3 Albums (2021-2023) [MP3|320 Kbps] <Epic, Symphonic, Industrial, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2021 - Siege
+2022 - Venator
+2023 - CenotaphЖанр: Epic Symphonic Industrial Death MetalПродолжительность: 3 CD, 02:53:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0644E13B37ADDA43EF3243A6E63630D9B26C8B20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641333   (210797) от 22.06.2023
 
 The Who - Back At The Fillmore (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, New Wave, Post-Punk>
@@ -6,7 +35,7 @@ The Who - Back At The Fillmore (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, New W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210797.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Iggy Pop - Every Loser (2023) [MP3|320 Kbps] <Alternative, Jazz- Rock, Pop>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210796.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Eloy - Echoes from the past (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210730.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210634.jpg" />
 </div>
 
 
@@ -124,7 +153,7 @@ Scorpions & Berliner Philharmoniker - Moment Of Glory (2000) [OGG Vorbis|480 Kbp
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210614.jpg" />
 </div>
 
 
@@ -153,7 +182,7 @@ VA - Полигон Records. Лучшее 2022 [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210530.jpg" />
 </div>
 
 
@@ -182,7 +211,7 @@ Elegant Weapons - Horns For A Halo (2023) [FLAC|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210511.jpg" />
 </div>
 
 
@@ -211,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210503.jpg" />
 </div>
 
 
@@ -240,7 +269,7 @@ Elo OMEGA - Kisstadion ’77 (2023) 2CD [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210483.jpg" />
 </div>
 
 
@@ -269,7 +298,7 @@ Hellish War - Wine Of Gods (2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210405.jpg" />
 </div>
 
 
@@ -298,7 +327,7 @@ Levania - Fukushima (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210401.jpg" />
 </div>
 
 
@@ -327,7 +356,7 @@ Element Eighty - A.D. (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal, Nu Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210373.jpg" />
 </div>
 
 
@@ -356,7 +385,7 @@ Chris Angels - Chaos - The War of the Worlds (2023) [MP3|320 Kbps] <Progressive 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210278.jpg" />
 </div>
 
 
@@ -385,7 +414,7 @@ The Hu - Rumble of Thunder (Deluxe) (2023) [FLAC|Lossless|WEB-DL|tracks] <Mongol
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210177.jpg" />
 </div>
 
 
@@ -414,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210168.jpg" />
 </div>
 
 
@@ -443,7 +472,7 @@ Sinner - 24 albums (1982-2022) 36 CD [FLAC|Lossless|image + .cue] <Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210077.jpg" />
 </div>
 
 
@@ -472,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210061.jpg" />
 </div>
 
 
@@ -501,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210043.jpg" />
 </div>
 
 
@@ -530,7 +559,7 @@ VA - Лучшие хиты: Рок 1970-х (2022) [MP3|320 Kbps] <Rock, Classic 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209985.jpg" />
 </div>
 
 
@@ -559,7 +588,7 @@ Vehemence - The Thoughts From Which I Hide (2000) [FLAC|Lossless|tracks + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209982.jpg" />
 </div>
 
 
@@ -588,7 +617,7 @@ VA - Лучшие хиты: Рок 1990-х (2022) [MP3|320 Kbps] <Rock, Classic 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209974.jpg" />
 </div>
 
 
@@ -617,7 +646,7 @@ Creedence Clearwater Revival - Chronicle: The 20 Greatest Hits (1976) Remastered
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209973.jpg" />
 </div>
 
 
@@ -646,7 +675,7 @@ Creedence Clearwater Revival - Chronicle: The 20 Greatest Hits (1976) Remastered
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209964.jpg" />
 </div>
 
 
@@ -675,7 +704,7 @@ VA - Лучшие хиты Рок 1980-х (2021) [MP3|320 Kbps] <Rock, Classic R
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209958.jpg" />
 </div>
 
 
@@ -704,7 +733,7 @@ The Hu - Rumble of Thunder (2022) Deluxe, Reissue, 2023, Better Noise Music [FLA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209936.jpg" />
 </div>
 
 
@@ -718,35 +747,6 @@ The Hu - Rumble of Thunder (2022) Deluxe, Reissue, 2023, Better Noise Music [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:117D0B6BB718BBD55F1DFD36914A274198A1E100
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643719   (209844) от 03.07.2023
-
-ZZ Top - Degüello (1979) Remastered, 2013, Rhino - Warner Records [FLAC 2.0|24/192|WEB-DL|tracks] <Hard Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Thank You [00:03:25]
-02. She Loves My Automobile [00:02:23]
-03. I'm Bad, I'm Nationwide [00:04:52]
-04. A Fool for Your Stockings [00:04:16](   Читать дальше...   )Жанр: Hard Blues RockПродолжительность: 00:34:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A4C0C08BF8BD5023EA4033F99FBA3F02CBE2667
 ```
 
 https://mybot314.ru/tekegram_catalog/

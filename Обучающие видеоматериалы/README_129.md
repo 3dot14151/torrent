@@ -1,3 +1,30 @@
+###  Публикация: 1546751   (604258) от 25.04.2022
+
+Skillshare, Joshua Davis | Processing - Programming Graphics III: Painting with Sound (2015) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы будем работать с отличной библиотекой для Processing под названием minim и использовать FFT (Fast Fourier Transform) для считывания звукового спектра из аудиофайлов или живого звука с микрофона или линейного входа и будем приминять эти аудиоданные для управления чем-то на экране, например анимацией или освещением.
+Этот курс основан на двух моих предыдущих курсах.Производство: SkillshareЖанр: Генеративное искусствоЯзык озвучки: АнглийскийПродолжительность: 05:34:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B7E8B6832A006264D48311B41A69F61E7EB701E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1546744   (604240) от 25.04.2022
 
 Udemy, Serhii K | Practical OpenGL and GLSL shaders fundamentals with C++ (2019) PCRec [EN]
@@ -6,7 +33,7 @@ Udemy, Serhii K | Practical OpenGL and GLSL shaders fundamentals with C++ (2019)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604240.jpg" />
 </div>
 
 
@@ -34,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604222.jpg" />
 </div>
 
 
@@ -62,7 +89,7 @@ Levelup.Digital, Phil Liu | Creating a Fantasy Trim Texture (2020) PCRec [EN, RU
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603311.jpg" />
 </div>
 
 
@@ -89,7 +116,7 @@ ArtStation, Amir Kabiri | 8 Facade Material: Building Material + Tutorials (2021
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603310.jpg" />
 </div>
 
 
@@ -116,7 +143,7 @@ MIX Training, Varomix | The Nature of Vex (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603305.jpg" />
 </div>
 
 
@@ -143,7 +170,7 @@ SideFX, Delano Athias | Character Animation in Houdini (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603300.jpg" />
 </div>
 
 
@@ -170,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602838.jpg" />
 </div>
 
 
@@ -196,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602384.jpg" />
 </div>
 
 
@@ -222,7 +249,7 @@ CGcircuit, Steven Knipping​ | Applied Houdini Rigids I version 2.0 (2019) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602373.jpg" />
 </div>
 
 
@@ -248,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600125.jpg" />
 </div>
 
 
@@ -274,7 +301,7 @@ Dede Barbanti | BBX Hardcore (2011) DVDRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599984.jpg" />
 </div>
 
 
@@ -300,7 +327,7 @@ Artstation, Tyler Smith | Intro to UE4 VFX: Smoke and Dust (2014) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599850.jpg" />
 </div>
 
 
@@ -326,7 +353,7 @@ ArtStation, Tyler Smith | Intro to UE4 VFX: Waterfall (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599581.jpg" />
 </div>
 
 
@@ -354,7 +381,7 @@ Artstation, Jonas Ronnegard | Substance Masters Vol.1 (2020) Blu-ray [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599580.jpg" />
 </div>
 
 
@@ -380,7 +407,7 @@ Udemy, Mrawan Hussain | BLENDER: Learn how to create old realistic cannon (2022)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599578.jpg" />
 </div>
 
 
@@ -407,7 +434,7 @@ FlippedNormals | Sculpting a Realistic Female Face in ZBrush (2019) PCRec [EN, R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599307.jpg" />
 </div>
 
 
@@ -434,7 +461,7 @@ Artstation, Henry Chervenka | Hard Surface ZBrush Tutorial / Modeling A UH-60 Ro
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599305.jpg" />
 </div>
 
 
@@ -462,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598974.jpg" />
 </div>
 
 
@@ -489,7 +516,7 @@ Allegorithmic, Wes McDermott | Substance with Unity (2014) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597897.jpg" />
 </div>
 
 
@@ -516,7 +543,7 @@ Allegorithmic, Wes McDermott | Substance Designer Intermediate-Advanced Tutorial
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597895.jpg" />
 </div>
 
 
@@ -543,7 +570,7 @@ Andrew Smith | DOTA 2 Workshop (2014) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597764.jpg" />
 </div>
 
 
@@ -569,7 +596,7 @@ CGcircuit, Steven Knipping | Applied Houdini Volumes IV (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597760.jpg" />
 </div>
 
 
@@ -595,7 +622,7 @@ ArtStation, Maria Yue | Lighting Theory for Games (2020) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597758.jpg" />
 </div>
 
 
@@ -621,7 +648,7 @@ Allegorithmic, Wes McDermott | Substance for Unity 5 Creating PBR textures (2016
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597587.jpg" />
 </div>
 
 
@@ -650,7 +677,7 @@ Jojo Mayer | Secret Weapons For The Modern Drummer (русские субтит�
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596791.jpg" />
 </div>
 
 
@@ -661,32 +688,6 @@ Jojo Mayer | Secret Weapons For The Modern Drummer (русские субтит�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C10DDE86C77A963E719B6E7891A5FE7DBB043C0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 21378   (594670) от 14.07.2017
-
-Камасутра: Чувственное искусство любви / Kama Sutra: The Sensual Art of Lovemaking (2006) DVDRip
-
->>Обучающие видеоматериалы
->>Другие видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм представляет собой очень откровенное, красивое и романтичное повествование о сокрытом в камасутре искусстве любви. Профессиональные сексологи раскрывают суть поз и приемов близости, а великолепное исполнение актеров возводит секс на уровень гармонии любви мужчины и женщины.Жанр: *Документальный* Обучающий * Эротика *В ролях: Тавни Робертс,  Рик Робертс,  Сабрина Маюя,  Дональд Джеймс,  Лорна Пэйн,  Джейсон Грид.Перевод: Двухголосый, Закадровый.Продолжительность: 00:52:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B912DBF1932A9D50094B9DE4A17D1AF9CB6198E
 ```
 
 https://mybot314.ru/tekegram_catalog/

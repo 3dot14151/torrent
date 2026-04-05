@@ -1,3 +1,60 @@
+###  Публикация: 515066   (653364) от 28.06.2012
+
+Krater: Collector's Edition [En] (RePack/1.0.4/DLC) 2012 l R.G. Catalyst
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ролевая экшн-игра, шведский ответ знаменитой серии пост-апокалиптических RPG Fallout. Действие игры разворачивается в далеком будущем, в котором Земля стала бесплодной и выжженной пустыней из-за падения метеорита. На месте падения, на территории Швеции, образовалась воронка, где вскоре образовались новые поселения. Также как и все местные обитатели, вы начинаете свой путь здесь, в поисках редких материалов и высокотехнологичных артефактов.
+Разработчики приложили немало усилий, дабы игрок на самом деле проникся фантастическим антуражем погибающей планеты. Эта тема в свое время была отлично обыграна в культовой Fallout 3 и Fallout: New Vegas. Так вот, амбиции Krater совершенно грандиозные - это подвинуть знаменитый Фоллаут с места и занять трон короля жанра постапокалиптических игр. По сюжету Кратера нам предстоит возглавить некую группу вооруженных наймитов, каким со временем предстоит приобрести славу и знаменитость в игровом мире. Длительная и хорошо спланированная сюжетная кампания рассчитана на 12 часов безостановочного прохождения. А если приплюсовать сюда еще и дополнитеьные миссии, то получаются почти сутки реального времени. В вашем распоряжении имеется три разносторонне развитых персонажа, которыми можно командовать по очередности. Благодаря встроенной системе прокачки всякий из бойцов Krater превращается в уникального, неповторимого героя. Подобная специализация окажется просто необходимой в многочисленных боевых столкновениях: снайпер может снять издали наиболее опасного врага, а прокачанный для ближнего боя персонаж раскидает тех, кто помельче и послабее, зачистив, так сказать, территорию. При этом стоит учитывать, что всякое ранение или даже смерть одного из персонажей, существенно меняет игровой сюжет Krater. Любителям коллективного прохождения игр, также будет чем себя развлечь благодаря поддержке мультиплеера.(   Читать дальше...   )Тип издания: RePackРазработчик: FatsharkЖанр: RPG (Rogue/Action) / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8D25E5A226FE5EC99BF3D93881D596941D28ACE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516245   (653231) от 28.06.2012
+
+Spec Ops: The Line (RePack) [Ru/En] 2012 l Seraph1
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Spec Ops: The Line — необычный кинематографичный шутер от третьего лица, который заставит вас вступить в противостояние не только с реальными противниками, но даже с собственными принципами. Приготовьтесь оказаться в мире, где нет места понятию «нравственность» и на каждом шагу приходится выбирать — кому жить, а кому умереть.
+
+Дубай был стер с лица Земли ужасающим катаклизмом. Небывалая песчаная буря превратила некогда роскошный город в руины. И теперь вам в роли капитана отряда Delta Force Мартина Уокера предстоит отправиться на заброшенную территорию, чтобы найти и вернуть домой полковника Джона Конрада.
+
+Примите участие в спецоперации и сразитесь с противниками, которых не пугает даже смерть. Чтобы выжить и добиться успеха, придется использовать различные тактики ведения боя, разнообразную аутентичную военную технику и особенности ландшафта. Уникальная система Dynamic Sand станет вам и надежным союзником, и коварным врагом. Песку все равно, кто прав, а кто виноват, — удачный выстрел может обрушить кремниевые (   Читать дальше...   )Тип издания: RePackРазработчик: Yager DevelopmentЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: Русский (Только видео), АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5827EA0F47F1FC97D6DEFE49214D3BCC8671A369
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 515959   (653133) от 28.06.2012
 
 Tom Clancy's Ghost Recon: Future Soldier (NoDVD/vv1.1) [EN] 2012 | SKIDROW
@@ -6,7 +63,7 @@ Tom Clancy's Ghost Recon: Future Soldier (NoDVD/vv1.1) [EN] 2012 | SKIDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653133.jpg" />
 </div>
 
 
@@ -32,7 +89,7 @@ Spec Ops: The Line (L) [Multi5/-] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653114.jpg" />
 </div>
 
 
@@ -60,7 +117,7 @@ Kingdoms of Amalur: Reckoning [Ru/En] (RePack/1.0.0.2) 2012 l a1chem1st
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653036.jpg" />
 </div>
 
 
@@ -88,7 +145,7 @@ Kingdoms of Amalur: Reckoning [Ru] (RePack/1.0.0.2) 2012 l R.G. ReCoding
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652902.jpg" />
 </div>
 
 
@@ -116,7 +173,7 @@ Spec Ops: The Line (RePack/1.0.6890.0) [Ru/En] 2012 l R.G. Revenants
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652857.jpg" />
 </div>
 
 
@@ -144,7 +201,7 @@ Ice Age: Continental Drift (RePack/1.0) [En] 2012 | R.G. Repacker's
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652112.jpg" />
 </div>
 
 
@@ -170,7 +227,7 @@ Generation Zero (2019) [Ru/Multi] (1.0) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652075.jpg" />
 </div>
 
 
@@ -196,7 +253,7 @@ Krater. Shadows over Solside - Collector's Edition (Lossless RePack/1.0.4/DLC) [
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651433.jpg" />
 </div>
 
 
@@ -223,7 +280,7 @@ Spec Ops: The Line (RePack) [Ru/En] 2012 | Mailchik
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651420.jpg" />
 </div>
 
 
@@ -253,7 +310,7 @@ Spec Ops: The Line (RePack/1.0.6890.0) [Ru/En] 2012 l SEYTER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651419.jpg" />
 </div>
 
 
@@ -283,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_651315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_651315.jpg" />
 </div>
 
 
@@ -315,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651169.jpg" />
 </div>
 
 
@@ -342,7 +399,7 @@ LEGO Batman 2 : DC Super Heroes (RePack/1.0) [Ru] 2012 l R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651058.jpg" />
 </div>
 
 
@@ -370,7 +427,7 @@ LEGO Batman 2 : DC Super Heroes (RePack/1.0) [Ru/En] 2012 l VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650975.jpg" />
 </div>
 
 
@@ -398,7 +455,7 @@ Spec Ops: The Line (RePack) [Ru/En] 2012 | VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650961.jpg" />
 </div>
 
 
@@ -428,7 +485,7 @@ Spec Ops: The Line (RePack) [Ru] 2012 | R.G. World Games
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650955.jpg" />
 </div>
 
 
@@ -458,7 +515,7 @@ LEGO Batman 2 : DC Super Heroes (RePack) [Ru] 2012 l UltraISO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650862.jpg" />
 </div>
 
 
@@ -486,7 +543,7 @@ Tom Clancy's Ghost Recon: Future Soldier (RePack/1.0.120.531) [Multi11/+] 2012 l
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650859.jpg" />
 </div>
 
 
@@ -514,7 +571,7 @@ Quantum Conundrum (RePack/1.0dc120625) [En] 2012 | R.G. Recoding
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650857.jpg" />
 </div>
 
 
@@ -540,7 +597,7 @@ Gemini Rue / Gemini Rue: Заговор на Барракусе [Ru] (P) 2011
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650856.jpg" />
 </div>
 
 
@@ -566,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650850.jpg" />
 </div>
 
 
@@ -593,7 +650,7 @@ Magic: The Gathering - Duels of the Planeswalkers 2013 (Lossless Repack/1.0) [Ru
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650795.jpg" />
 </div>
 
 
@@ -619,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_650786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_650786.jpg" />
 </div>
 
 
@@ -645,7 +702,7 @@ Sid Meier’s Civilization V: GOTY + 10 DLC [Ru] (RePack/1.0.1.674) 2010 | R.G. 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650735.jpg" />
 </div>
 
 
@@ -658,63 +715,6 @@ Sid Meier’s Civilization V: GOTY + 10 DLC [Ru] (RePack/1.0.1.674) 2010 | R.G. 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8EA872365431587CDB4C4B4C796A0546969411B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515906   (650734) от 29.06.2012
-
-Salvation Prophecy [En] (L) 2012 | SKIDROW
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Salvation Prophecy — это футуристический научно-фантастический симулятор, где нам предстоит поучаствовать в космических баталиях и межпланетных вторжениях; заняться созданием новых космических станций и дополнительных войск; исследовать новые планеты, находящихся на самых отдаленных задворках галактики.
-Пророчество гласит, что придет древнее зло, которое будет пожирать все человечество и их потомков. Вместе с ним пробудятся древние существа — хранители магических рун. Возможно на этих чужеродных планетах хранится секрет нашего спасения.
-Salvation Prophecy — это очень амбициозный и стоящий проект, создаваемый всего одним человеком на протяжении уже четырех лет. В игре существует четыре фракции: Wyr (сумасшедшие ученые-андроиды), Drone Unity (боевые роботы), Free Nations (остатки человеческой цивилизации) и Salvation (раса мутировавших людей, верящих в пророчество).Тип издания: ЛицензияЖанр: Action / Simulator / ShooterЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:970A34AE50955D108B836A5135109E25DBBA4FA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514357   (650714) от 29.06.2012
-
-Tom Clancy's Ghost Recon: Future Soldier (LossLess RePack/1.2/DLC) [Ru/En/Multi12] 2012 l R.G. Revenants
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ghost Recon: Future Soldier обещает выйти за рамки серии военных игр Ghost Recon и представить нам совсем новый игровой процесс. В игре вас ждут передовые технологии, прототипы высокотехнологического оружия, современный однопользовательский и многопользовательские режимы.
-
-«Призраки», элитные бойцы в составе сил специального назначения, готовы выполнить поставленную задачу в любой точке земного шара. Их работа – борьба с терроризмом, нейтрализация вражеских агентов и уничтожение превосходящих сил противника. Со временем этот легендарный отряд перестал быть просто одним из подразделений спецназа и превратился в идеальный инструмент, способный изменить судьбу человечества.
-Оснащенные по последнему слову техники, снабженные лучшими разработками военных технологий, эти специалисты составят вам компанию в целом ряде особых боевых операций. Вас ждут раскаленные пески Африки и антарктические льды, миссии по скрытному проникновению и битвы на выживание. В роли одного из бойцов вам предстоит сражаться бок о бок с лучшими оперативниками отряда. Пришло время продемонстрировать, на что способны настоящие профессионалы!(   Читать дальше...   )Тип издания: RePackРазработчик: Ubisoft ParisЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский, Бразильский, Датский, Голландский, Французский, Немецкий, Итальянский, Норвежский, Польский, Испанский, Шведский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBE1D4403129F8DDD6FA5BC76F3220BA16E6AECD
 ```
 
 https://mybot314.ru/tekegram_catalog/

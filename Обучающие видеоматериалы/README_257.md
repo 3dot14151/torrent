@@ -1,3 +1,29 @@
+###  Публикация: 1675640   (159800) от 10.11.2023
+
+Mokosmed, Мария Моргунова | МАКРО-, МИКРО- И УЛЬТРАмикроэлементы в превентивной медицине (2022) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Здоровье и Спорт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159800.jpg" />
+</div>
+
+
+###  Подробнее
+
+А знаете ли Вы, что при ишемической болезни сердца, хронической коронарной недостаточности, заболеваниях органов пищеварения содержание ультрамикроэлемента бария в тканях снижается? А в организме взрослого человека содержится около 10 мг золота, причем примерно половина от этого количества сконцентрировано в костях? Известно, что золото может входить в состав металлопротеидов, (   Читать дальше...   )Производство: MokosmedЖанр: ЗдоровьеЯзык озвучки: РусскийПродолжительность: 08:36:39Реклама: Наложение на видео, видео вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EF6C86F112A72837D140F11283A83123D61CA76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1675743   (159769) от 10.11.2023
 
 Udemy, Gary Hiebner | Mastering Your Drums in Studio One (2023) WEB-DL [AD] [EN, RU / EN, RU Sub]
@@ -6,7 +32,7 @@ Udemy, Gary Hiebner | Mastering Your Drums in Studio One (2023) WEB-DL [AD] [EN,
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159769.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ Domestika, Mina Barrio | Профессиональные селфи и виде
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159511.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159506.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159502.jpg" />
 </div>
 
 
@@ -117,7 +143,7 @@ BodyCoach, Александр Бурлаков, Анна Берекетова и
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159495.jpg" />
 </div>
 
 
@@ -146,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159483.jpg" />
 </div>
 
 
@@ -174,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159464.jpg" />
 </div>
 
 
@@ -202,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159462.jpg" />
 </div>
 
 
@@ -228,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159454.jpg" />
 </div>
 
 
@@ -256,7 +282,7 @@ Udemy, Андрей Бегишев | Большой курс Чжун Юань �
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159441.jpg" />
 </div>
 
 
@@ -282,7 +308,7 @@ Kalachevaschool, Анна Чайникова | Рассвет акрила. Та
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159221.jpg" />
 </div>
 
 
@@ -311,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159178.jpg" />
 </div>
 
 
@@ -340,7 +366,7 @@ Skillshare, Iva Mikles | Drawing Colorful Room Scene in Procreate: Practice Pers
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159176.jpg" />
 </div>
 
 
@@ -367,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159171.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ CGcircuit, Florian Girardot | Mastering Nuke Vol 1 – 10 (2021) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159159.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159157.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ Domestika, Liya | Manga Illustration with Procreate (2023) WEB-DL [DE / RU Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159147.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ Udemy, Akhil Vydyula | The Complete 2023 SQL Bootcamp : Go from Zero to Hero (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159137.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ Software-testing.ru, Ольга Назина | Регулярные выраже
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159131.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159115.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ Solid Factory, Антон Ильин | SolidWorks. Продвинутый кур
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159103.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ Skillshare, Paulo Dichone | Unlock AI: Master Prompt Engineering with ChatGPT (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159096.jpg" />
 </div>
 
 
@@ -620,7 +646,7 @@ OTUS, Владимир Кунаев | DevOps 1С. Автоматизация п�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159076.jpg" />
 </div>
 
 
@@ -648,7 +674,7 @@ Udemy, Laura Hitchcock | Work Smart With Nuke! Episode 1: Channels & Roto (2021)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158894.jpg" />
 </div>
 
 
@@ -675,7 +701,7 @@ Udemy, Arijit Datta | Nuke Full Comprehensive Course For Absolute Beginners Part
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158887.jpg" />
 </div>
 
 
@@ -689,32 +715,6 @@ Udemy, Arijit Datta | Nuke Full Comprehensive Course For Absolute Beginners Part
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9D23C74E97CB674E5C652587BA0376137619F27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676361   (158886) от 12.11.2023
-
-Udemy, Francis Gorman | AI Security Essentials (2023) WEB-DL [AD] [RU, EN / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158886.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Основы безопасности искусственного интеллекта» — это онлайн-курс, предназначенный для людей, стремящихся глубже понять вопросы обеспечения безопасности систем искусственного интеллекта (ИИ). В этом курсе вы отправитесь в образовательное путешествие, которое исследует увлекательный мир искусственного интеллекта и предоставит вам знания и навыки для защиты моделей (   Читать дальше...   )Производство: UdemyЖанр: БезопасностьЯзык озвучки: Английский, РусскийПродолжительность: 02:41:51Реклама: Наложение на видео, видео вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2B9D9678C26D2E626A2F0FC51A9BA4FFBAA8A64
 ```
 
 https://mybot314.ru/tekegram_catalog/

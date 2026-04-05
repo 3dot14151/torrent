@@ -6,7 +6,7 @@ Buck Lucky - The American Way (2015) [MP3|320 Kbps] <Traditional American Pop, C
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410177.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Gram Rabbit - Miracles & Metaphors (2010) [MP3|256 Kbps] <Alternative Pop, Psych
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409931.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Shut Up And Dance (2016) 3CD [MP3|320 Kbps] <Electronic, Reggae, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409907.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Mariah Carey - The Rarities (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409575.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - The Best Of Christmas Hits (2016) [MP3|320 Kbps] <Pop, Jazz, Easy Listening
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409528.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - 101 Hits - Long Hot Summer (2018) 5CD [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409096.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Sandra - Stay In Touch (2012), (2CD) [OGG Vorbis|485 Kbps] <Electronic, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408740.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Fergie - Double Dutchess (2017) Target Exclusive [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408727.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Michael Sembello - Bossa Nova Hotel (1983) LP [MP3|320 Kbps] <Electronic, Pop, S
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408702.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Sad Songs 2020 [MP3|320 Kbps] <Pop, Ballads, Other>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408431.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ James Arthur - Back from the Edge (2016) Deluxe Edition [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408121.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ The D-Lights - She's Coming From Mars! (2014) LP [MP3|320 Kbps] <Electronic,  Di
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407998.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - School Days - The Ultimate Collection (2018) 5CD [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407980.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Caro - 2 Albums (1980, 1983) LP [MP3|320 Kbps] <Electronic, Pop Rock, Disco, New
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407507.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - 90s Retro Dance Grooves (2019) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407416.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - 90s Dance Hits, Vol.4 (2019) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407415.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Silent Circle - The Maxi-Singles Collection (2006) [MP3|320 кб/с]<Italo-Disco
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406365.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Baby's Gang - Child Disco (1989) [MP3|192 кб/с]<Italo-Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406344.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Fifth Harmony - Fifth Harmony (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405054.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ D.C. LaRue - 4 Albums (1976-1980) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405052.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Shania Twain - Now (2017) Deluxe Edition [MP3|320 Kbps] <Pop, Country>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401430.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Michael Jackson - Scream (2017) Compilation [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401227.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Magic Mail - Magic Mail (1981) LP [MP3|320 Kbps] <Electronic, Pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398685.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Miley Cyrus - Younger Now (2017) [MP3|320 Kbps] <Pop, Country>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398453.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ Blue System - The History Of (2009) [MP3|320 кб/с]<Euro Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397854.jpg" />
 </div>
 
 
@@ -749,7 +749,7 @@ Hans Edler - Dirty Sally (1975) LP [MP3|320 Kbps] <Electronic, Pop Rock, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395759.jpg" />
 </div>
 
 

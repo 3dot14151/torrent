@@ -1,3 +1,29 @@
+###  Публикация: 818057   (1023933) от 28.03.2021
+
+М.Н. Ильина | Подготовка к школе: развивающие тесты и упражнения (2006) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023933.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге содержатся тесты и развивающие упражнения по различным аспектам психологической готовности ребенка к школе (мотивации, познавательным процессам, развитию мелкой ручной моторики и т.д.) В ней также предлагаются игры и упражнения для развития интеллекта и навыков общения. Книга предназначена для родителей, воспитателей детских дошкольных учреждений, учителей (   Читать дальше...   )Жанр: Психологические тесты для детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1D4E08DACD4F2243915A18F9256917589240B21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 361603   (1023931) от 28.03.2021
 
 И.В. Вачков | Психология для малышей, или Сказка о самой душевной науке (1996) [PDF]
@@ -6,7 +32,7 @@
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023931.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023922.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023855.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023803.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023802.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023801.jpg" />
 </div>
 
 
@@ -170,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023760.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023727.jpg" />
 </div>
 
 
@@ -223,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023724.jpg" />
 </div>
 
 
@@ -250,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023695.jpg" />
 </div>
 
 
@@ -278,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023693.jpg" />
 </div>
 
 
@@ -304,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023689.jpg" />
 </div>
 
 
@@ -332,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023687.jpg" />
 </div>
 
 
@@ -361,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023621.jpg" />
 </div>
 
 
@@ -387,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023608.jpg" />
 </div>
 
 
@@ -413,7 +439,7 @@ Foxford, Тимофей Хирьянов | Курс экспресс-подго�
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023568.jpg" />
 </div>
 
 
@@ -442,7 +468,7 @@ Disney/Pixar | Раскраска | Тачки 2 (2011) [PDF]
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023564.jpg" />
 </div>
 
 
@@ -468,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023517.jpg" />
 </div>
 
 
@@ -496,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023512.jpg" />
 </div>
 
 
@@ -522,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023509.jpg" />
 </div>
 
 
@@ -551,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023505.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023499.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023413.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023367.jpg" />
 </div>
 
 
@@ -660,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023320.jpg" />
 </div>
 
 
@@ -674,32 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E8E705410C30553228599B5B705D5F5CDDC1B7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459394   (1023309) от 01.04.2021
-
-Андрей Мерников | Как это устроено. Большая энциклопедия. Транспорт (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Транспорт в жизни современного человека играет важную роль - без него мы никуда! А задумывался ли ты над тем, как устроены эти  машины, без которых мы не обходимся ни один день? На страницах этой энциклопедии ты познакомишься со всеми видами транспорта: наземным, водным и воздушным, узнаешь, как устроены машины, которые помогают строить дома и дороги, познакомишься (   Читать дальше...   )Жанр: Энциклопедия/Познавательная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B34A05C77CCE165BB662ACC12EB21C40F4E091C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

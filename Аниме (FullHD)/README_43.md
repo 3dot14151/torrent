@@ -6,7 +6,7 @@ Muu no Hakugei | The White Whale of Mu | Белый кит континента 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252528.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Yahari Ore no Seishun LoveCome wa Machigatte Iru. Kan | OreGairu 3 | Как и �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251790.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ HEAVEN IS A PLACE ON EARTH / Gekijouban Hayate no Gotoku! Heaven is a Place on E
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250658.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Dan Da Dan | Дандадан [ТВ-1] [2024, TV, 12 из 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250472.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Ryuugajou Nanana no Maizoukin | Nanana's Buried Treasure | Сокровища Н
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250050.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Boku no Hero Academia 5 | My Hero Academia Season 5 | Моя геройская 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249703.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Egao no Daika | The Price of Smiles | Цена улыбки [2019, TV, 12 эп.]
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249647.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Getsuyoubi no Tawawa / Tawawa on Monday / Встречи с Тававой по 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249404.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Onegai Teacher / Пожалуйста! Учитель [2002, TV, 12 + OVA] BDrip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_249305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_249305.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Prima Doll / Прима-кукла [2022, TV, 12] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243756.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Fate/Grand Carnival | Судьба: Великий карнавал [2021, OVA, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243076.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Black Fox | Чёрная лиса [2019, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243008.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Hanebado! | Бадминтон Ханэсаки [2018, TV, 13 эп.] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242413.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Kaitou Queen wa Circus ga Osuki | Mirage QUEEN Prefers Circus | Королева
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242366.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Oushitsu Kyoushi Haine | The Royal Tutor | Королевский репетит
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241462.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Eiyuu Ou, Bu o Kiwameru Tame Tenseisu: Soshite, Sekai Saikyou no Minarai Kishi |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240061.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Tensei Shitara Ken Deshita | Reincarnated as a Sword | О моём переро�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240036.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Romantic Killer | Романтический убийца [2022, Web, 12 эп.] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239260.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Kobayashi-san Chi no Maidragon S + Mini Dragon | Miss Kobayashi's Dragon Maid S 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238895.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238382.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Kaiko Sareta Ankoku Heishi (30-dai) no Slow na Second Life | Неспешная 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238375.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Shenmue the Animation | Шэнму [2022, TV, 13 из 13] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237923.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Meitantei Conan: Hannin no Hanzawa-san | Detective Conan: The Culprit Hanzawa | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237676.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Princess Connect! Re:Dive 2 / PriConne 2 / Связь принцесс! Ново
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237419.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Azur Lane: Bisoku Zenshin! | Azur Lane: Slow Ahead! | Лазурный путь:
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234369.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Gekijouban Jujutsu Kaisen 0 | Магическая битва (фильм) [2021
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233659.jpg" />
 </div>
 
 

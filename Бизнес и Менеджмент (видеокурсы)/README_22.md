@@ -6,7 +6,7 @@ Vesperfin, Арина Веспер и др. | Личные финансы (2021)
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45012.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41546.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Skillbox, Павел Баракаев, Владислав Малыхин | Пр�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37634.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34151.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29956.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Skillbox, А. Гончаренко, А. Слуцкер, Н. Смерницкий
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29058.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Crypto Robotics | Криптовалюты - инструкция по прим�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28723.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27073.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Boosty, Антон Назаров | Осознанная Меркантильн�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26550.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Boosty, Антон Назаров | Осознанная Меркантильн�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26425.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Skillbox | Профессия Менеджер маркетплейсов (2024)
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25468.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ ProScalping, Игорь Максимов | Обучение скальпингу
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20765.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ f5game, Ольга Грищенко | 9 загадок Шерлока Холмс
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15878.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15416.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15381.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15364.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15362.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13789.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ owlsova | Авитолог 2025 (2025) WEB-DL [AD] [RU]
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12878.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12834.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ FIN-RA, Дмитрий Толстяков | Инвест-зарплата (Та�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12596.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8186.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7899.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7785.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ klerk, Елена Ярушкина | Персональные данные в 20
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7765.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ f5game, Ольга Грищенко | Wow-контент за 1 минуту (20
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7760.jpg" />
 </div>
 
 

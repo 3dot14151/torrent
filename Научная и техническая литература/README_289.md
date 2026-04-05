@@ -1,133 +1,3 @@
-###  Публикация: 1038306   (606457) от 28.07.2016
-
-Н.А. Кун | Мифы и легенды Древней Греции (2011) [PDF, DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга из серии «Подарочные издания. Классика в иллюстрациях». Из этой книги вы узнаете о греческих богах и героях, познакомитесь с мифами об аргонавтах, Троянской войне и путешествиях царя Одиссея. Мифы и легенды Древней Греции даны в пересказе Н. А. Куна, знакомом каждому с детства. Для широкого круга читателей.Жанр: ИсторияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:808C1B233C460C52BCA5ACFE272B44D82336AE5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296968   (606429) от 20.04.2019
-
-Е. Баранова, Н. Васильева, В. Федотов | Практическое пособие по высшей математике: Типовые расчеты (2013) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие по высшей математике для студентов и преподавателей технических и экономических вузов. Содержит справочный материал по разделам высшей математики, методические рекомендации по решению задач, типовые задания с подробными решениями и разбором характерных ошибок, варианты типовых заданий (типовых расчетов) по курсу высшей математики технического университета, (   Читать дальше...   )Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6B1C3108C10B7970F89ACCA691D0AB02DC1BB89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296851   (606415) от 20.04.2019
-
-Макс Тегмарк | Жизнь 3.0. Быть человеком в эпоху искусственного интеллекта (2019) [FB2]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Грядет эпоха жизни 3.0. Паниковать пока рано, но поводы для беспокойства есть. Человечество находится на пороге создания искусственного интеллекта, который будет превосходить человеческий и сможет не только самостоятельно обучаться, но и менять собственное строение, как физическое, так и программное. Макс Тегмарк, профессор Массачусетского технологического института (   Читать дальше...   )Жанр: Научно-популярная литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A286CC5DE3396F511FC24FA09CEF4E87D11DB07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297022   (606327) от 20.04.2019
-
-О.В. Миловзоров, И.Г. Панков | Электроника (6-е изд.) (2018) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606327.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассмотрены основные вопросы полупроводниковой электроники, аналоговой и цифровой схемотехники. Освещены типы и области применения электронных приборов и устройств; параметры современных полупроводниковых устройств: генераторов, вторичных источников питания, цифровых преобразователей, микропроцессорных управляющих и измерительных комплексов. Представлены (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15920D55FE700F7EE804315DF8E90B5A125009D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545616   (605813) от 24.04.2022
-
-Francis DK Ching | A Visional Dictionary of Architecture (1995) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Визуальный справочник различных архитектурных терминов. К приведенным в книге элементам прилагается рисунок (схема) и определение. Пригодится для начинающих освоение CAD, или программ архитектурного моделирования, не имеющих поддержки русского языка (например, Chief Architect). Также поможет расширить технический словарный запас по данной тематике.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:829EBF10153E32EB1CC0A26816281F7891170F11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1546413   (605687) от 24.04.2022
 
 Книжная серия | Без срока давности. преступления нацистов и их пособников против мирного населения  на оккупированной территории РСФСР в годы Великой Отечественной войны. [25 книг] (2020) [PDF]
@@ -136,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605687.jpg" />
 </div>
 
 
@@ -162,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605574.jpg" />
 </div>
 
 
@@ -190,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605569.jpg" />
 </div>
 
 
@@ -216,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605568.jpg" />
 </div>
 
 
@@ -245,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605362.jpg" />
 </div>
 
 
@@ -271,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605354.jpg" />
 </div>
 
 
@@ -297,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605352.jpg" />
 </div>
 
 
@@ -323,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605214.jpg" />
 </div>
 
 
@@ -349,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605208.jpg" />
 </div>
 
 
@@ -375,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605205.jpg" />
 </div>
 
 
@@ -401,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605123.jpg" />
 </div>
 
 
@@ -427,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605119.jpg" />
 </div>
 
 
@@ -454,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605117.jpg" />
 </div>
 
 
@@ -481,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605015.jpg" />
 </div>
 
 
@@ -507,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605012.jpg" />
 </div>
 
 
@@ -533,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605008.jpg" />
 </div>
 
 
@@ -559,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604933.jpg" />
 </div>
 
 
@@ -585,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604926.jpg" />
 </div>
 
 
@@ -611,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604922.jpg" />
 </div>
 
 
@@ -638,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604906.jpg" />
 </div>
 
 
@@ -664,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604891.jpg" />
 </div>
 
 
@@ -675,6 +545,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED5DCF4366D4B42AA4F36AB2466EE39440F2CEF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913440   (604873) от 29.06.2015
+
+Евгений Примаков | Россия. Надежды и тревоги (2015) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая книга Е. М. Примакова рассматривает ряд проблем, связанных со вторым сроком президентства В. В. Путина, деятельностью Д. А. Медведева в качестве президента России и состоянием дел в стране на тот момент. Автор анализирует события, которые произошли в последние годы в самой России и в мире в целом.Жанр: Политика   ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0748F0C2492E1B2F258F27A118C9E762320B471B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038870   (604842) от 29.07.2016
+
+В. П. Горбулин, А. Б. Качинский | Основы национальной безопасности Украины (2009) [PDF, DJVU] [UKR]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анализ профессиональной, в том числе зарубежной, литературы по проблемам национальной безопасности свидетельствует о том, что в настоящее время сложились различные теоретико-методологические подходы к исследованию этого сложного явления. В отечественной научной литературе до конца 1990-х годов рассматривались в основном вопросы государственной безопасности. Сейчас (   Читать дальше...   )Жанр: УчебникФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1E0E5975C2B74566F373090F3CFE0C605BE2D8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911574   (604795) от 29.06.2015
+
+А. Г. Гарбуз | Как правильно говорить с автоинспектором (2015) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ездить по российским дорогам – дело не дешевое. Ha каждом повороте вас ожидают современные соловьи-разбойники с полосатыми жезлами. Заплатить кругленькую сумму, потерять массу времени или даже лишиться прав – от этого вы не застрахованы, даже если не нарушаете Правила дорожного движения. K сожалению, среди сотрудников ГИБДД встречаются недобросовестные люди, а порой (   Читать дальше...   )Жанр: Автомобили и ПДДФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5540FE952E8C874053DFE36492F76D79D590427F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913581   (604791) от 29.06.2015
+
+Е. Е. Васильева, В. Ю. Васильев | Суперпамять для всех (2006) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604791.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Таблицу Менделеева запомнить невозможно", - так говорят очень многие. А вот для человека, владеющего мнемотехникой - это легче простого. Эта книга является учебником мнемотехники - искусства запоминания точной информации. Вы можете научиться запоминать любые таблицы, юридические и экономические статьи, энциклопедические сведения, сложные тексты и определения, (   Читать дальше...   )Жанр: Педагогика, общие работы по педагогикеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83B958E4047EECAD58649214AB92F1A4ED42FE62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038744   (604772) от 29.07.2016
+
+Анатолий Клесов, Константин Пензев | Арийские народы на просторах Евразии (2015) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарных Ариев нередко называют индоевропейцами. Но новейшие исследования в области ДНК-генеалогии показывают, что арийские народы шире индоевропейских языков. До времен, откуда пошли их предки, лингвистика, просто не дотягивается. Это носители гаплогруппы Rla, которые создали удивительные культуры и цивилизации по всей Евразии. Об этом рассказывается в новом (   Читать дальше...   )Жанр: Биология, История, ГенеалогияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD3854B1347EBD4D8A2D2B50B333E20923F9D1CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

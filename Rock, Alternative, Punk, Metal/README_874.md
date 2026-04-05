@@ -1,3 +1,32 @@
+###  Публикация: 1640974   (235733) от 20.06.2023
+
+Arjen Lucassen's Supersonic Revolution - Golden Age Of Music (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SR Prelude
+02. The Glamattack
+03. Golden Age Of Music
+04. The Rise Of The Starman(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:07:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B90BC679978E4EE7F5FC2BC8F5D927D7858E073
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1642037   (235732) от 26.06.2023
 
 The Flower Kings - The Sum Of No Evil (2007) Remaster, 2023, InsideOutMusic [FLAC|Lossless|WEB-DL|tracks] <Prog Rock>
@@ -6,7 +35,7 @@ The Flower Kings - The Sum Of No Evil (2007) Remaster, 2023, InsideOutMusic [FLA
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235732.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Scheitan - Berzerk 2000 (1998) [APE|Lossless|image + .cue] <Black Metal, Death '
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235731.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Guardian Singles - Feed Me To The Doves (2023) [FLAC 24/48|Lossless|WEB-DL|track
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235727.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Schysma - Schysma (2021) [MP3|320 Kbps] <Progressive Metal, Heavy Metal, Female 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235721.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Magnus Rosen Band - It's Time to Rock the World Again (2023) [FLAC|Lossless|WEB-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235719.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Glen Winters - When I Feel Like This (2021) [MP3|320 Kbps] <Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235713.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Midnight Noon - Dark Side of Memories (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235710.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Sidus Mortuorum - Endless Funeral (2010) [FLAC|Lossless|image + .cue] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235707.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ The Rainbird - Queen Takes King (2021) [MP3|320 Kbps] <Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235706.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Divinefire - Farewell (2008) Japanese Edition [FLAC|Lossless|image + .cue] <Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235692.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235688.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Over the Sacrifice - First Seal Broken (2023) [FLAC|Lossless|WEB-DL|tracks] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235687.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Divinefire - Into A New Dimension (2006) Japanese Edition [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235680.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Asnt - Bleed Like Us: Evolution of Sorrow (2021) [MP3|320 Kbps] <Hard Rock, Fema
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235678.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Aight Bet - Stop Playin (2023) [FLAC|Lossless|WEB-DL|tracks] <Hoodcore, Beatdown
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235677.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Oozing Wound - We Cater to Cowards (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235671.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Stillborn - Los Asesinos del Sur (2011) [FLAC|Lossless|image + .cue] <Blackened 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235665.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Necropanther - Betrayal (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235664.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Deceiver of the Blind - Heaven's Vengeance Boils in My Heart Part. I-II (2020-20
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235660.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Strigampire - Where Torments Drown (2009) [FLAC|Lossless|image + .cue] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235655.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Enshrined - The Grand Failure (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235653.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Purity - Animus (2021) EP [MP3|320 Kbps] <Nu-Metal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235651.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Hordagaard - Djeveldyrkar (2007) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235646.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Revlin Project - Trascender (2021) [MP3|320 Kbps] <Melodic Rock, AOR>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235644.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Sea of Disorder - Sea of Disorder (2012) [FLAC|Lossless|image + .cue] <Post Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235639.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Sea of Disorder - Sea of Disorder (2012) [FLAC|Lossless|image + .cue] <Post Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE25680B41780991F78F6D900505329978E31E0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617785   (235637) от 08.03.2023
-
-Abel Sequera - Soundscapes (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Beginning Of The End - The Departure (00:06:31)
-02 - Beyond Known Frontiers - Traveller Companion (00:07:51)
-03 - In The Steps Of Pioneers - Old Paths To Discovery (00:05:57)
-04 - Wreck Of Souls - The Storm (00:06:03)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:00:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E574799815918A5C4080D76516FCB84BB4BFAF21
 ```
 
 https://mybot314.ru/tekegram_catalog/

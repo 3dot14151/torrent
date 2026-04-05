@@ -1,3 +1,119 @@
+###  Публикация: 1346468   (157660) от 20.12.2019
+
+Acoustic Chill Out, Tantric Sexuality Masters - Sensual Night Chillout (2019) [MP3|320 Kbps] <Chillout, Easy Listening>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157660.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.New Smooth Chillout 2018 (4:59)
+2.Relaxing Place – Sensual Lounge (5:12)
+3.Workout Chillout Music (3:07)
+4.Electronic Native American Vibes (5:12)(   Читать дальше...   )Жанр: Chillout, Easy ListeningПродолжительность: 01:11:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:524E87226FB60161E638CA2D8BEE3A31758B7089
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346687   (157584) от 20.12.2019
+
+Koan - Muses & Poets: Incomprehensible Sonets (2019) Blue Tunes Chillout [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient, Drum & Bass, Breakbeat>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157584.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Obsidian Insight (Conjuring Poetry Mix) (5:11)
+ 02. Murky Avenues (Christine de Pizan Mix) (8:09)
+ 03. Annabel Lee (Blue Mix) (9:11)
+ 04. Commitment (Blue Mix) (10:40)(   Читать дальше...   )Жанр: Electronic, Ambient, Drum & Bass, BreakbeatПродолжительность: 01:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8A2CD66100D6085BE457E94ADB284984FDCA251
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968322   (157386) от 23.12.2015
+
+VA - Morning Glory (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spiritual Soul - Morning Breeze - Chill Mix [05:23]
+02. Collective Sound Members - Don't You Want Me to Be Real - Deephouse Mix [06:40]
+03. Mr. Thruout - Steps on Deep [06:44]
+04. Tamborista - Lovely Dog [07:09](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:17:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65289A30305DC96E611A6C25D06EEC500A315E70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 390616   (157284) от 18.12.2021
+
+Wolfgang Gartner - Weekend in America (2011) [FLAC|Lossless]<Electro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Em (feat. Eve)
+02. Space Junk
+03. Menage A Trois
+04. Circus Freaks (feat. Jim Jones & Cam'ron)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 00:46:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:672B1B7538F546E23EB7A188F81729AF7D860122
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346712   (157127) от 20.12.2019
 
 VA - Black Hole Trance Music (12-19) (2019) [MP3|320 Kbps] <Trance, UpliftingTrance>
@@ -6,7 +122,7 @@ VA - Black Hole Trance Music (12-19) (2019) [MP3|320 Kbps] <Trance, UpliftingTra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157127.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Sync24 - Comfortable Void (2012) Ultimae Records [FLAC|Lossless|WEB-DL|tracks] <
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157117.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Slow Dancing Society - Discography 25 Releases (2006-2018) [FLAC|Lossless|tracks
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157056.jpg" />
 </div>
 
 
@@ -90,7 +206,7 @@ VA - Fatum Presents: 20 Years Of Anjunabeats (2020) DJ Mix [FLAC|Lossless|WEB-DL
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156989.jpg" />
 </div>
 
 
@@ -119,7 +235,7 @@ VA - Horizon In Blue (Selected Chill Out & Lounge), Vol. 1 - 4 (2023) [MP3|320 K
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156962.jpg" />
 </div>
 
 
@@ -148,7 +264,7 @@ VA - Serenity Sexy Lounge & Chill Out Pearls Vol 1 (2015) [MP3|320 кб/с] <Dow
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156943.jpg" />
 </div>
 
 
@@ -177,7 +293,7 @@ Rautu - Sphere (2017) IMMINENT [FLAC 2.0|44.1/24|tracks|WEB-DL] <Future Garage, 
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156919.jpg" />
 </div>
 
 
@@ -206,7 +322,7 @@ VA - Deep and Loud (2016) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156833.jpg" />
 </div>
 
 
@@ -235,7 +351,7 @@ VA - Ocean Waves & Sea Sound Relax (2016) [MP3|320 Kbps] <Downtempo, Chillout, I
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156755.jpg" />
 </div>
 
 
@@ -264,7 +380,7 @@ VA - The Christmas Chillout (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156737.jpg" />
 </div>
 
 
@@ -293,7 +409,7 @@ VA - Vocal Trance 2018 (2017) [FLAC|Lossless|WEB-DL|tracks] <Vocal Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156682.jpg" />
 </div>
 
 
@@ -322,7 +438,7 @@ VA - Hed Kandi Anthems (2015) [MP3|320 кб/с] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156621.jpg" />
 </div>
 
 
@@ -348,7 +464,7 @@ E-Mantra - Raining Lights (2015) Altar Records [FLAC|Lossless|WEB-DL|24Bit|track
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156496.jpg" />
 </div>
 
 
@@ -377,7 +493,7 @@ Choir of King's College, Cambridge and Daniel Hyde - Carols From King's (2020 Co
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156476.jpg" />
 </div>
 
 
@@ -406,7 +522,7 @@ VA - Top 40 Ambient Tracks (2013) [FLAC|Lossless|WEB-DL]<Psybient, Ambient, Down
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156445.jpg" />
 </div>
 
 
@@ -432,7 +548,7 @@ VA - Christmas Dance Party 2018-2019 (Best of Dance, House & Electro) (2018) [MP
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156408.jpg" />
 </div>
 
 
@@ -461,7 +577,7 @@ VA - Anjunabeats Volume 12 (Mixed by Above and Beyond) (2015) [MP3|320 кб/с] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156353.jpg" />
 </div>
 
 
@@ -490,7 +606,7 @@ VA - Christmas & Chill, Vol. 2 (Have Yourself A Little Deep House Hangout) (2018
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155998.jpg" />
 </div>
 
 
@@ -519,7 +635,7 @@ VA - Nick Warren - The Soundgarden - Volume One (2014) Hope Recordings [FLAC|Los
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155974.jpg" />
 </div>
 
 
@@ -548,7 +664,7 @@ VA - Infrasonic: The Best Of 2018 (Mixed by Solis & Sean Truby) (2018) [MP3|320 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155962.jpg" />
 </div>
 
 
@@ -577,7 +693,7 @@ VA - Inner Harmony Vol.1 (Find The Inner Peace With These Super Calm Electronic 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155928.jpg" />
 </div>
 
 
@@ -606,7 +722,7 @@ Skye | Ross - Skye | Ross (2016) [FLAC|Lossless|tracks + .cue] <Trip Hop, Downte
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155874.jpg" />
 </div>
 
 
@@ -620,122 +736,6 @@ Skye | Ross - Skye | Ross (2016) [FLAC|Lossless|tracks + .cue] <Trip Hop, Downte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4554EEED4D264A5A2CD659BB189BD2B046596FF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518279   (155858) от 19.12.2021
-
-The Dreamhouse Orkestra - Synthesizer Dreamhouse Greatest Vol. 1 (1997) [MP3|320 Kbps] <Dream House, Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Killing Me Softly (3:29)
-02. I Like Chopin (3:35)
-03. Bilitis (3:50)
-04. Children (5:23)(   Читать дальше...   )Жанр: Dream House, TranceПродолжительность: 01:13:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F89F1C8AD8A5BE526D08D30716AE96C5BFFFF141
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518417   (155848) от 19.12.2021
-
-Armada Music - Trance Year Mix (2021-12-18) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scorz - That's Life
-02. ARTY - Hope (Eugenio Tokarev Remix)
-03. STANDERWICK - Apricus
-04. Ferry Corsten & Ruben de Ronde - Bloodstream(   Читать дальше...   )Жанр: TranceПродолжительность: 02:30:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AEE58F3B2C03AABB3C7D5C53D2ACA84DF9BBD0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194459   (155836) от 25.12.2017
-
-Forma Tadre - Discography 4 Releases (1997-2017) Off Beat [FLAC|Lossless|tracks+.cue, tracks] <Experimental, IDM, Ambient, Electro, Industrial>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue (02:38)
- 02. The Ascent (06:37)
- 03. Out Of The Spirit World (04:24)
- 04. Across A Dark River (05:01)(   Читать дальше...   )Тип издания: CD, WebЖанр: Experimental/Electro/Ambient/IndustrialПродолжительность: 00:50:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A29759F01AF6499CF13819528A5BADD76EDEC8B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194458   (155827) от 25.12.2017
-
-VA - Alpine Grooves Easy Beats 1 (Kristallhutte) (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Downtempo, Dub House>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Max Sedgley - Slowly (Original Mix) [05:25]
-02. Kraak & Smaak, Parcels - Stumble (Cinematic Way Version)[05:59]
-03. Silvia Bollnow, Riccicomoto - Only (Helly Larson Chill Out Remix)[06:39]
-04. Frankie, Hong Kong Syndikate - Too Much (HP.Hoeger & M. Lackmaier Mix)[04:00](   Читать дальше...   )Жанр: Electronic, Downtempo, Dub HouseПродолжительность: 02:53:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:369902F9899D98C588B54E91C65C57715684E813
 ```
 
 https://mybot314.ru/tekegram_catalog/

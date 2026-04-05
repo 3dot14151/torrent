@@ -1,160 +1,3 @@
-###  Публикация: 1754809   (40631) от 12.10.2024
-
-Эрик Манн | Рецепты PHP. Для профессиональных разработчиков (2025) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40631.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом сборнике рецептов разработчики на PHP найдут надежные и проверенные решения распространенных задач. PHP — удивительно простой язык программирования, что объясняет, почему на нем написано более 75 % веб-сайтов в Интернете. Но он также невероятно терпим к ошибкам программирования, что может привести к тиражированию сомнительного кода.
-Эрик Манн предлагает собственные (   Читать дальше...   )Жанр: ПрограммированиеПеревод: А. ЛаринИздательство: O'ReillyФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A98D01006E16F7621A97CEE230AD32C89C97AFFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756074   (39944) от 19.10.2024
-
-Евгений Андреев | Администрирование Astra Linux (2024) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39944.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрена установка Astra Linux, настройка после установки, процесс загрузки системы, в том числе система инициализации systemd, основы командной строки, настройка сети, беспроводного и проводного соединения с Интернетом, установка ПО, настройка хранилища, работа с файловой системой, настройка  Samba (интеграция с Windows-сетью), Apache (веб-сервер), SSH, VNC (графический (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БХВ-ПетербургФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74AD952A087173D8D0B648E57056D33934BF8C21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756849   (39417) от 24.10.2024
-
-Г. Шапира, Т. Палино, Р. Сиварам и др. | Apache Kafka. Потоковая обработка и анализ данных, 2-е изд. (2023) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39417.jpg" />
-</div>
-
-
-###  Подробнее
-
-При работе любого enterprise-приложения образуются данные: это файлы логов, метрики, информация об активности пользователей, исходящие сообщения и т. п. Правильные манипуляции над всеми этими данными не менее важны, чем сами данные. Если вы — архитектор, разработчик или выпускающий инженер, желающий решать подобные проблемы, но пока не знакомы с Apache Kafka, то (   Читать дальше...   )Жанр: Анализ данных, Обработка данныхПеревод: С. ЧерниковИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBDF76E4D7C149BB9E31B707DC58EFCBA53BB534
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757220   (39233) от 26.10.2024
-
-Татьяна Никитина, Леонид Королев | Программирование. Основы Python для инженеров (2023) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие посвящено рассмотрению базовых конструкций языка Python, в частности, сначала приведены примеры простейших программ в императивном стиле программирования и примеры решения несложных задач линейной, разветвляющейся и циклической структуры, задач с последовательностями и файлами. Далее дана реализация в виде программ на Python алгоритмов методов вычислительной (   Читать дальше...   )Жанр: ПрограммированиеИздательство: Издательство «Лань»Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5F04380AC9ABC3B6D6FF9647379AB4D90496BE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757459   (39138) от 27.10.2024
-
-21 Draw | Illustrator's Guidebook [3 книги] (2016-2022) [PDF] [EN]
-
->>Компьютерная литература
->>2D графика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39138.jpg" />
-</div>
-
-
-###  Подробнее
-
-В наших учебниках по рисованию вы пройдете путь от новичка до профессионала, познакомившись с удивительными темами, включая дизайн персонажей, анатомию и многое другое! С уроками от легенд индустрии, которые работали в Disney, Marvel, DC, Dreamworks, Pixar и других. Это идеальное учебное пособие по искусству для начинающего художника или опытного профессионала.Жанр: Рисование, 2D графикаЯзык: АнглийскийИздательство: Самиздат (21 Draw)Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C56D8142182A142E651B3C2EA6C6E1E5A0137E4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757453   (39102) от 27.10.2024
-
-21 Draw | Mastering Digital Drawing (2023) [PDF] [EN]
-
->>Компьютерная литература
->>2D графика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39102.jpg" />
-</div>
-
-
-###  Подробнее
-
-РАСКРОЙТЕ СВОЕГО ВНУТРЕННЕГО ХУДОЖНИКА с помощью книги "Mastering Digital Drawing" - руководства для начинающих, которые хотят погрузиться в увлекательный мир цифрового рисования. Эта книга, созданная семью всемирно известными иллюстраторами и экспертами в области цифрового арта, станет вашим лучшим руководством по рисованию, которое превратит вас из новичка (   Читать дальше...   )Жанр: РисованиеЯзык: АнглийскийИздательство: Самиздат (21 Draw)Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:191D57454222FC9499A349C5F7A4FD934B2B53FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1757668   (38932) от 29.10.2024
 
 Коллин Маклин, Джон Шарп | Игры: дизайн и игровой опыт. Все об итеративной разработке игр (2024) [PDF]
@@ -163,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38932.jpg" />
 </div>
 
 
@@ -189,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38563.jpg" />
 </div>
 
 
@@ -215,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38456.jpg" />
 </div>
 
 
@@ -243,7 +86,7 @@ Kameron Hussain, Frahaan Hussain | Mastering JavaScript for Game Development (20
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37940.jpg" />
 </div>
 
 
@@ -269,7 +112,7 @@ Morten Barklund | React in Depth (2024) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37813.jpg" />
 </div>
 
 
@@ -295,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37623.jpg" />
 </div>
 
 
@@ -321,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37622.jpg" />
 </div>
 
 
@@ -347,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37268.jpg" />
 </div>
 
 
@@ -373,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36709.jpg" />
 </div>
 
 
@@ -399,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36389.jpg" />
 </div>
 
 
@@ -427,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36335.jpg" />
 </div>
 
 
@@ -453,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35598.jpg" />
 </div>
 
 
@@ -479,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35349.jpg" />
 </div>
 
 
@@ -505,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34951.jpg" />
 </div>
 
 
@@ -531,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>2D графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34719.jpg" />
 </div>
 
 
@@ -558,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34229.jpg" />
 </div>
 
 
@@ -584,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34109.jpg" />
 </div>
 
 
@@ -613,7 +456,7 @@ Daria Orlova, Esra Kadah, Jaime Blasco | Flutter Design Patterns and Best Practi
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33570.jpg" />
 </div>
 
 
@@ -639,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33539.jpg" />
 </div>
 
 
@@ -667,7 +510,7 @@ Stuart Butler, Tom Oliver | Game Development Patterns with Unreal Engine 5 (2023
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33385.jpg" />
 </div>
 
 
@@ -678,6 +521,162 @@ Stuart Butler, Tom Oliver | Game Development Patterns with Unreal Engine 5 (2023
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:249FF069CE629A392456C022C1F9C1A8F2161DC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766571   (33375) от 22.12.2024
+
+В. Молочков | Создание сайта, его SEO-продвижение и монетизация (2022) [PDF]
+
+>>Компьютерная литература
+>>Веб-дизайн
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33375.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подробно рассмотрено создание сайта с использованием CMS WordPress: выбор хостинга, подключение домена, установка шаблонов и плагинов. Рассказано о наполнении сайта контентом, о поисковой (SEO) оптимизации, подключении аналитических сервисов Яндекса и Google. Даны советы по бесплатному и коммерческому продвижению сайта в социальных сетях «ВКонтакте», «Одноклассники», (   Читать дальше...   )Жанр: Web-технологии, создание сайтовИздательство: БХВ-ПетербургФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3FBABAE6F13665F8D7D5192CE710D7B736DB378
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767568   (33374) от 22.12.2024
+
+Gema Socorro Rodríguez | Thriving in Android Development Using Kotlin (2024)  [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы получите практические навыки разработки под Android, создав приложение, аналогичное WhatsApp. Далее вы научитесь реактивно обрабатывать асинхронные сообщения, визуализировать их с помощью Jetpack Compose и перейдете к созданию и загрузке резервной копии этих сообщений. По мере продвижения вы разработаете Packtagram, приложение, вдохновленное Instagram, сфокусированное (   Читать дальше...   )Жанр: Компьютерная литература, программирование, Kotlin, разработка под AndroidЯзык: АнглийскийИздательство: Packt Publishing Ltd.Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:321EFA040C326C85396D58530AF1688CFE782C96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767604   (33369) от 22.12.2024
+
+Carl Fredrik Samson | Asynchronous Programming in Rust (2024) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33369.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы начнете с создания прочного фундамента асинхронного программирования и изучения различных стратегий моделирования потока программ. Затем книга проведет вас через реализацию языка, объясняя на практических примерах такие понятия, как epoll, stackfull coroutines, green threads и callbacks. Последний раздел посвящен языку Rust, в нем рассматриваются фьючерсы, генераторы (   Читать дальше...   )Жанр: Программирование, системное программирование, RustЯзык: АнглийскийИздательство: Packt Publishing Ltd.Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AA2ADFA667E8AA3C1325DB789B1D3B617798DEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767587   (33365) от 22.12.2024
+
+Neil Smyth | C# 13 Programming Essentials (2024) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга представляет собой всеобъемлющее руководство по освоению языка программирования C# 13 и .NET 9 SDK, обеспечивающее всестороннее изучение как для начинающих, так и для опытных разработчиков. Это руководство, состоящее из 31 подробной главы, 30 онлайн-тестов на знания и доступа к загружаемому коду проекта, структурировано таким образом, чтобы помочь вам пройти (   Читать дальше...   )Жанр: Программирование, С# 13, .NET 9Язык: АнглийскийИздательство: C# 13 Programming EssentialsФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C8578EEE99ABFD8487D92487AC55A2C80F710E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767578   (33363) от 22.12.2024
+
+Dennis Vroegop | Systems Programming with C# and .NET (2024) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание охватывает фундаментальные концепции, такие как низкоуровневые API, управление памятью и оптимизация производительности. Каждая глава содержит практические упражнения, направленные на освоение потоков, файлового ввода/вывода и сетевых протоколов. Особое внимание уделено отладке, профилированию и решению задач, связанных с многопоточностью и асинхронным кодом. (   Читать дальше...   )Жанр: Компьютерная литература, программирование, платформа .NET, C#Язык: АнглийскийИздательство: Packt Publishing Ltd.Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B91F62D88FEC7E27A44FCFFE8822BFBA5ECAFE07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767585   (33361) от 22.12.2024
+
+Alex Rios | System Programming Essentials with Go (2024) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33361.jpg" />
+</div>
+
+
+###  Подробнее
+
+С помощью практических проектов вы освоите такие основные понятия, как файловый ввод-вывод, управление процессами и межпроцессное взаимодействие, чтобы автоматизировать задачи и эффективно взаимодействовать с системой. Вы погрузитесь в сетевое программирование на Go и приобретете навыки создания надежных распределенных приложений. Эта книга выходит за рамки основ, (   Читать дальше...   )Жанр: Программирование, системное программирование, сетевое программирование, GoЯзык: АнглийскийИздательство: Packt Publishing Ltd.Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E94F3B0A7CD7BDEFC4A557A38E6D6DE82BCFF63A
 ```
 
 https://mybot314.ru/tekegram_catalog/

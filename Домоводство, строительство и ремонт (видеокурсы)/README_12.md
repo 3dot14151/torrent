@@ -6,7 +6,7 @@ Doug Stowe | Основы изготовления шкатулок (2007) DVDRi
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48581.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ George Vondriska | Техники работы с ручным фрезером 
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47995.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ George Vondriska | Основы работы с фрезерным столом 
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47949.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ George Vondriska | Настройка и использование фуганк
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47845.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Christopher Schwarz | Изготовление стульев без страх�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46686.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Mark | 5 Творческих проектов по деревообработк
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46504.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Kyle Kwiatkowski | Три основных соединения «ласточк
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46372.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45997.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Solid Factory, Антон Ильин | Основы инженерного ан�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45933.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Mike Siemsen | Скамейки и ящики (2020) WEBRip [EN, RU / EN Sub]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45781.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Bill Thomas | Изгиб и формирование (2023) WEBRip [EN, RU / EN 
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45663.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Christopher Schwarz | Верстак (2008) DVDRip [EN, RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44842.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Robert Spiece | Двери для шкафов и изысканной мебе�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44632.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Jim Heavey | Ящики для шкафов и изысканной мебели
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44386.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Cynthia Bleskachek | Начало работы с обивкой мебели (2
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44280.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Christopher Schwarz | Создайте походное кресло (2018) WEBR
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44227.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ pro-z.ru | Проектирование одноэтажного жилого д
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44045.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ pro-z.ru | Обследование конструкций зданий (2024) W
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44040.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ pro-z.ru | Проектирование стального каркаса скл
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44039.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44033.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44020.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ George Vondriska | Изготовление ящиков: «ласточкин �
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43452.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43318.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ George Vondriska | Основы изготовления мебели (2015) WEB
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42760.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ George Vondriska | Основы изготовления шкафа (2015) WEBRi
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42083.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41488.jpg" />
 </div>
 
 

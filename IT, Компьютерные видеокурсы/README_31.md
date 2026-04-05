@@ -1,29 +1,3 @@
-###  Публикация: 1368671   (908282) от 20.03.2020
-
-OTUS | Machine learning (2020) PCRec [H.264]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908282.jpg" />
-</div>
-
-
-###  Подробнее
-
-За 5 месяцев мы последовательно познакомимся с современными методами анализа данных. Курс позволит не просто поверхностно изучить принципы работы алгоритмов машинного обучения, а на профессиональном уровне освоить и применять в работе все этапы работы с данными, понимая, как, когда и зачем они используются.Жанр: ПрограммированиеПродолжительность: 54:59:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E545CA115E1FB0BB1C162BA6A5C596C3E7630E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368682   (908268) от 20.03.2020
 
 OTUS | Этичный хакинг. Практика тестирования на проникновение (2019) PCRec [H.264]
@@ -32,7 +6,7 @@ OTUS | Этичный хакинг. Практика тестирования н
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908268.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ OTUS | Архитектор программного обеспечения (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906360.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ OTUS | Математика для Data Science. Продвинутый курс
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906339.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ OTUS | Android-разработчик. Продвинутый курс (2019) PC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906311.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Solidprofessor | Подборка курсов по SolidWorks [2007-2013] PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905201.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903339.jpg" />
 </div>
 
 
@@ -192,7 +166,7 @@ javascript.ninja, Виталий Слободин, Илья Климов | CI/CD
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901784.jpg" />
 </div>
 
 
@@ -221,7 +195,7 @@ Udemy, Guillaume Duhan | Svelte.js & Firebase: Pokedex edition (2021) WEB-DL [En
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900590.jpg" />
 </div>
 
 
@@ -250,7 +224,7 @@ Udemy, Tim Buchalka's Learn Programming Academy, Jason Fedin | Advanced C Progra
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900166.jpg" />
 </div>
 
 
@@ -278,7 +252,7 @@ HTML Academy | Профессиональный онлайн‑курс HTML и 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899426.jpg" />
 </div>
 
 
@@ -304,7 +278,7 @@ Context Tools | Автоматизация контекстной рекламы
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898751.jpg" />
 </div>
 
 
@@ -332,7 +306,7 @@ Udemy | Ultimate AngularJS: Build a Real-World App from Scratch (2016) [EN] [H.2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898652.jpg" />
 </div>
 
 
@@ -359,7 +333,7 @@ Udemy, Bonnie Schulkin | React Query: Server State Management in React (2021) WE
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898647.jpg" />
 </div>
 
 
@@ -386,7 +360,7 @@ Robeen Dey | Udemy | The Complete Web Developer Bootcamp - Beginner to Expert (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898642.jpg" />
 </div>
 
 
@@ -413,7 +387,7 @@ Udemy, Chris Sikes | Red Team Ethical Hacking - Intermediate  (2021) WEB-DL [En 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898639.jpg" />
 </div>
 
 
@@ -441,7 +415,7 @@ Udemy, Stephane Maarek | Ultimate AWS Certified SysOps Administrator Associate 2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898585.jpg" />
 </div>
 
 
@@ -467,7 +441,7 @@ Udemy, Coding Minutes и др. | Python Programming Master Course (2021) WEB-DL 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898581.jpg" />
 </div>
 
 
@@ -494,7 +468,7 @@ Udemy, Tim Buchalka's Learn Programming Academy, Dr. Frank Mitropoulos | Beginni
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898563.jpg" />
 </div>
 
 
@@ -522,7 +496,7 @@ Udemy | Улучшение вашего рабочего процесса с Gul
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895126.jpg" />
 </div>
 
 
@@ -550,7 +524,7 @@ Udemy, Центр digital-профессий ITtensive | Основы прогр
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895106.jpg" />
 </div>
 
 
@@ -577,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895105.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894926.jpg" />
 </div>
 
 
@@ -635,7 +609,7 @@ Pluralsight.com | JavaScript Promises и Асинхронное программ
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893230.jpg" />
 </div>
 
 
@@ -661,7 +635,7 @@ OTUS | РНР для начинающих программистов (2020) PCRe
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891497.jpg" />
 </div>
 
 
@@ -687,7 +661,7 @@ OTUS | Android-разработчик. Базовый курс (2019) PCRec [H.2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891332.jpg" />
 </div>
 
 
@@ -698,6 +672,32 @@ OTUS | Android-разработчик. Базовый курс (2019) PCRec [H.2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E434863AF9E7193E0C8E1F8187095CE4567E0348
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371308   (891321) от 30.03.2020
+
+OTUS | Математика для Data Science. Базовый курс (2020) PCRec [H.264]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы освоите основные разделы высшей математики, необходимые для успешной работы в Data Science: математический анализ, линейную алгебру, теорию вероятности и статистику. После курса вы будете готовы к изучению машинного обучения.Жанр: Программирование, Data ScienceПродолжительность: 62:52:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:495AE708B3528CF4F73137B1DC211235F3FB949D
 ```
 
 https://mybot314.ru/tekegram_catalog/

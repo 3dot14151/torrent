@@ -1,3 +1,55 @@
+###  Публикация: 475056   (85861) от 01.04.2012
+
+[Антология] Angry Birds (RePack) [Ru/En] 2009-2012 | SomeOne
+
+>>След.
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Angry Birds Space - главная особенность новой игры - стрелять птичками нам придется в условиях нулевой гравитации. Впрочем, не совсем нулевой, ведь в Angry Birds Space будут и планеты, притягивающие к себе предметы. Так что на протяжении 60 уровней нас ждут и расчеты баллистической траектории, и даже орбитальные маневры. Как и всегда, в новой игре появились и новые птички, с которыми можно поэкспериментировать, а также бонусные уровни, спрятанные по всей игре.Тип издания: ПираткаЖанр: Arcade / Logic (Puzzle)Язык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61215BA81AC9A026F1A1954073C32A578A31E506
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476882   (85810) от 01.04.2012
+
+Warlords: Battlecry II \ Варлорды: Боевой клич 2 (RePack) [Ru] 2002 | Pilotus
+
+>>След.
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85810.jpg" />
+</div>
+
+
+###  Подробнее
+
+Погружение в фэнтезийный мир Warlords продолжается. Новые битвы ждут своих героев. Огромные армии рвутся в бой. И только опытный полководец сможет привести их к победе. Сражение за сражением вы пройдете через всю войну бок о бок со своими солдатами. Используя магические способности и боевые навыки героя, вы сыграете решающую роль в сражениях рас.Тип издания: RePackЖанр: Изометрическая  стратегияЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0515795ECCCB23AED0B429F64034ECA7AC8055A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 473068   (85628) от 31.03.2012
 
 [Repack] Rayman Origins {1.0.32504} [Ru] 2012 | Sash HD {обновлено 31.03.2012}
@@ -6,7 +58,7 @@
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85628.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85623.jpg" />
 </div>
 
 
@@ -62,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85603.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85573.jpg" />
 </div>
 
 
@@ -116,7 +168,7 @@ Men of War: Condemned Heroes / Штрафбат  (L) [Ru] 2012 | R.G. Игром
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85439.jpg" />
 </div>
 
 
@@ -148,7 +200,7 @@ Rayman Origins [Ru/En/Multi8] (L) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85422.jpg" />
 </div>
 
 
@@ -174,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85403.jpg" />
 </div>
 
 
@@ -200,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85360.jpg" />
 </div>
 
 
@@ -227,7 +279,7 @@ Rayman Origins [Ru] (RePack) 2012 | shidow
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85238.jpg" />
 </div>
 
 
@@ -254,7 +306,7 @@ Rayman Origins [Multi10\+] (RePack/1.0.32504) 2012 | z10yded
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85205.jpg" />
 </div>
 
 
@@ -281,7 +333,7 @@ World War Zero (Iron Storm) / Коммандос: В тылу враг [Ru/En] (
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85204.jpg" />
 </div>
 
 
@@ -307,7 +359,7 @@ Syphon Filter [PS1] [NTSC] [RUS] [Vector] (1999)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85138.jpg" />
 </div>
 
 
@@ -333,7 +385,7 @@ Deity (L) [En] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85080.jpg" />
 </div>
 
 
@@ -359,7 +411,7 @@ The Regiment / The Regiment. Британский спецназ [Ru] (P) 2006
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85023.jpg" />
 </div>
 
 
@@ -385,7 +437,7 @@ Burn Zombie Burn! (P) [Ru/En] 2010
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84933.jpg" />
 </div>
 
 
@@ -411,7 +463,7 @@ Total War: Shogun 2: Fall of the Samurai / Total War: Shogun 2: Закат Са�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84824.jpg" />
 </div>
 
 
@@ -441,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84603.jpg" />
 </div>
 
 
@@ -467,7 +519,7 @@ Burn Zombie Burn! [Ru] (RePack) 2010 | Naitro
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84577.jpg" />
 </div>
 
 
@@ -493,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84482.jpg" />
 </div>
 
 
@@ -520,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84463.jpg" />
 </div>
 
 
@@ -547,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84372.jpg" />
 </div>
 
 
@@ -573,7 +625,7 @@ Bulletstorm Limited Edition [Ru] (RePack/1.0.7147.0) 2011 | Naitro
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84219.jpg" />
 </div>
 
 
@@ -599,7 +651,7 @@ Voltage Racing / Voltage: Супергонки [Ru] (RePack) 2008 | Fenixx
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84161.jpg" />
 </div>
 
 
@@ -627,7 +679,7 @@ Nancy Drew: The Final Scene / Нэнси Дрю похищение в театр
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83988.jpg" />
 </div>
 
 
@@ -638,60 +690,6 @@ Nancy Drew: The Final Scene / Нэнси Дрю похищение в театр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:671FCCD7A0C4BE18689E0717FE666BB3CF666852
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471546   (83794) от 22.03.2012
-
-Deep Black Reloaded [Multi6/+] (RePack/1.5) 2012 | R.G. Shift
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83794.jpg" />
-</div>
-
-
-###  Подробнее
-
-Грандиозный фантастический экшен от третьего лица Deep Black: Reloaded предоставит вам уникальную возможность проникнуть в мистические глубины черной бездны, вооружившись мощнейшим sci-fi снаряжением, джет-паком, уникальным подводным оружием и другими высокотехнологичными изобретениями будущего. В игре Deep Black впервые проработана невероятная динамика сражений – как в мрачных пучинах океанских вод, так и на суше. Это стало возможным благодаря использованию современных реалистичных физических эффектов в подводном окружении. Игра покажет вам всю глубину страха перед океанской бездной и непредсказуемостью битвы за правое дело. Умопомрачительный интригующий сюжет перенесет вас в недалекое будущее – в мир нестабильности, хаоса, шпионажа, терроризма, ожесточенной борьбы за мировое господство и обладание новейшим биологическим оружием.
-
-(   Читать дальше...   )Тип издания: RePackРазработчик: Biart StudioЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, английский, французкий, итальянский, немецкий, испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0844617C50EBDF3A16F53EA88DAB81EE68E0FEA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471860   (83773) от 22.03.2012
-
-[RePack] Orcs Must Die! / Бей орков! {v 1.0r14 + 5 DLC} [Ru] 2011 | Naitro
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Орки наступают! Крепите оборону! В вашем распоряжении все необходимое, чтобы рубить, сплющивать, взрывать и испепелять зеленых наглецов в массовом количестве: это и хитроумные ловушки, и смертоносные заклинания, и разнообразное оружие. Веселитесь от души! Основная цель стратегического экшена четко отражена в его названии: игрокам придется заняться масштабной ликвидацией зеленой заразы — орд орков, пытающихся прорваться в наш мир через порталы в крепостях. В распоряжении защитников цитаделей впечатляющий арсенал средств для расправы с агрессорами: это и хитроумные ловушки, и смертоносные заклинания и разнообразное оружие.Рубить, сплющивать, взрывать и испепелять армии орков предстоит на протяжении более чем двадцати миссий. Orcs Must Die! – веселая смесь таких жанров, как экшен, стратегия и «башенки». События игры развиваются в вымышленном фэнтезийном мире, а в качестве главного героя выступает рыцарь, способный использовать меч, лук и различные магические заклинания.Тип издания: RePackЖанр: Action / Strategy (Real-time) / 3D / 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00D09207963C79C5BEE7A05B67D01EAEDFC32D83
 ```
 
 https://mybot314.ru/tekegram_catalog/

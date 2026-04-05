@@ -1,3 +1,148 @@
+###  Публикация: 1097853   (910532) от 29.01.2017
+
+Mors Principium Est - Embers Of A Dying World (2017) [MP3|320 Kbps] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910532.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Genesis
+2. Reclaim The Sun
+3. Masquerade
+4. Into The Dark(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:45:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E38A81C2D34F745F4724F9E6F58099C32243EB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098248   (910517) от 29.01.2017
+
+Sweet Mary Jane - Winter in Paradise (2017) [MP3|320 Kbps] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire in Your Eyes [4:32]
+ 02. No Retreat, No Surrender [3:14]
+ 03. Winter in Paradise [4:58]
+ 04. Madeleine [2:25](   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:39:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80DF8E4BFB4C705E5F530B1CBE517486401F05AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098174   (910431) от 29.01.2017
+
+Russkaja - 4 albums, 2 EP, 4 singles (2006-2015) [MP3|128-320 Kbps] <Ska Punk, Folk Rock >
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2006. Dawai, Dawai! (EP)
+2007. Dope Shit (Single)
+2008. Kasatchok Superstar(   Читать дальше...   )Жанр: Ska Punk, Folk RockПродолжительность: 04:57:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B9E04AC53745C8E7F7F3DA3528E36665064F2F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098140   (910422) от 29.01.2017
+
+Гражданская Оборона - Долгая Счастливая Жизнь (2004) Reissue, 2016, Выргород [FLAC|Lossless|tracks + .cue] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание альбома с необрезанными 1 и 8 треком. Бонусом к изданию - CD-версия альбома, подготовленная Егором для «упрощённого» издания 2004 года с сокращённой длительностью треков 1 и 8.01. На
+02. Без Меня
+03. Извне
+04. P.S.Сам (айя)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 01:45:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7357A1DB5ACD6B1B3D65533954675540DEFCE173
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 294183   (910382) от 29.01.2017
+
+Faces - 5 Albums (1970-1976) Japanese Limited Release, Reissue, Remastered, 2010, Warner Music [FLAC|Lossless|tracks + .cue]<Rock, Blues-rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pool Hall Richard (4:26)
+02. Cindy Incidentally (2:37)
+03. Ooh La La (3:32)
+04. Sweet Lady Mary (5:44)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 03:27:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93E730CFCD0FC64D211392BFD4475830C3DD101A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 235771   (910293) от 05.02.2011
 
 The Beatles - Коллекция концертных записей (1962-1994) [MP3|160-320 kbps]<Rock>
@@ -6,7 +151,7 @@ The Beatles - Коллекция концертных записей (1962-1994)
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910293.jpg" />
 </div>
 
 
@@ -32,7 +177,7 @@ Sirenia - Дискография (2002-2011) [FLAC|Lossless]<Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910138.jpg" />
 </div>
 
 
@@ -62,7 +207,7 @@ Helloween - Keeper Of The Seven Keys (Parts I & II)(US 1-st press) (1987, 1988) 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910059.jpg" />
 </div>
 
 
@@ -91,7 +236,7 @@ Sinbreed - Master Creator (2016) [MP3|320 кб/с] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910012.jpg" />
 </div>
 
 
@@ -120,7 +265,7 @@ Now Or Never - II (2016) [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909885.jpg" />
 </div>
 
 
@@ -149,7 +294,7 @@ The New Black - A Monster's Life (2016) [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909854.jpg" />
 </div>
 
 
@@ -178,7 +323,7 @@ Bad Company - The Original Bad Company Anthology (1999) 2CD, Compilation [MP3|32
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909721.jpg" />
 </div>
 
 
@@ -207,7 +352,7 @@ Killswitch Engage - Killswitch Engage (2009) Special Edition [FLAC|Lossless|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909262.jpg" />
 </div>
 
 
@@ -236,7 +381,7 @@ Killswitch Engage - Disarm The Descent (2013) Special Edition [FLAC|Lossless|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909257.jpg" />
 </div>
 
 
@@ -265,7 +410,7 @@ Killswitch Engage - The End Of Heartache (2004) Reissue, 2005, Roadrunner Record
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909250.jpg" />
 </div>
 
 
@@ -294,7 +439,7 @@ Geisha - Youth Stand Tall (2017) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909232.jpg" />
 </div>
 
 
@@ -323,7 +468,7 @@ Harem Scarem - Change The World (2020) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909129.jpg" />
 </div>
 
 
@@ -352,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909092.jpg" />
 </div>
 
 
@@ -381,7 +526,7 @@ Killswitch Engage - Incarnate (2016) Special Edition [FLAC|Lossless|tracks + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909069.jpg" />
 </div>
 
 
@@ -410,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908975.jpg" />
 </div>
 
 
@@ -439,7 +584,7 @@ The Apple Pie Motherhood Band - The Apple Pie Motherhood Band (1968) Remastered,
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908968.jpg" />
 </div>
 
 
@@ -468,7 +613,7 @@ Never-Trust - Bras De Fer (2014) [FLAC|Lossless|image + .cue] <Thrash Metal, Har
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908950.jpg" />
 </div>
 
 
@@ -497,7 +642,7 @@ Apple Pie Motherhood Band - Apple Pie (1969) Remastered, 2004, Estrella Rockera 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908934.jpg" />
 </div>
 
 
@@ -526,7 +671,7 @@ Wild Rose - Four (2016) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908928.jpg" />
 </div>
 
 
@@ -555,7 +700,7 @@ Andy Rock - This Time (2016) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908926.jpg" />
 </div>
 
 
@@ -584,7 +729,7 @@ Banchee - Banchee / Thinkin' (1969/1971) Remastered, 2001, Lizard Records [MP3|3
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908924.jpg" />
 </div>
 
 
@@ -598,151 +743,6 @@ BANCHEE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2627A5F3317F0937DAE542B5615FCAC641453EB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491579   (908916) от 26.08.2021
-
-Feinstein - Hail And Farewell (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Prophet Is Born
-02. March Of The Elves
-03. Give It To Them Hard
-04. Chasing Rainbows(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FFECFF648102813B7FD3D4B94038A616454D6AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491672   (908904) от 26.08.2021
-
-Metamorphosis - I'm Not A Hero (2021) [FLAC|Lossless|image + .cue] <Progressive Rock, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark World
-02. I'm Not A Hero
-03. Little Stars Desintegrate
-04. When Life Starts Again(   Читать дальше...   )Жанр: Progressive Rock, Symphonic RockПродолжительность: 00:56:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E42C647F6A6618291EDD0C02620AE36790A21E1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098444   (908847) от 30.01.2017
-
-David A Saylor - Ship To Nowhere (2016) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908847.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tempest (Opening Instrumental) - 1:57
-2. Ship To Nowhere - 4:23
-3. We Won't Sacrifice - 4:33
-4. Open Door - 5:38(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:55:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EE3C5450574B3123E67721D399767D59C37BA52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635277   (908792) от 26.03.2013
-
-Fleetwood Mac - Rumours (1977) 35th Anniversary 3CD Set Deluxe Edition /Reissue 2013, Warner Bros. Records/ [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Second Hand News (Early Take) (2:27)
-02. Dreams (Take 2) (5:35)
-03. Never Going Back Again (Acoustic Duet) (2:20)
-04. Go Your Own Way (Early Take) (4:05)(   Читать дальше...   )Жанр: RockПродолжительность: 02:45:34
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491674   (908756) от 26.08.2021
-
-Pestilence - Exitivm (2021) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Omnibvs (Intro)
-02. Morbvs Propagationem
-03. Deificvs
-04. Sempiternvs(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:38:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72628863431962F8F47BE4816D62A6F3CEADD8BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

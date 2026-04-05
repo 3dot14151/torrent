@@ -1,30 +1,3 @@
-###  Публикация: 1465601   (1019126) от 26.04.2021
-
-Ольга Хорошилова | Русские травести в истории, культуре и повседневности (2021) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иллюстрированная история русской травести-культуры в разных ее аспектах: от легкомысленных придворных карнавалов до женских военных формирований Первой мировой и непростых историй людей, чей биологический пол не совпадал с психологическим.
-Автор показывает, как на протяжении трех веков трансвестизм существовал во всех сферах жизни. Книга написана на обширном архивном (   Читать дальше...   )Жанр: История, Культурология, ИскусствоведениеФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70326E39824D1B25AA3557AB47A4578F622C84BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1465430   (1019092) от 26.04.2021
 
 Кэтрин Флетчер | Красота и ужас. Правдивая история итальянского Возрождения (2021) [FB2]
@@ -33,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019092.jpg" />
 </div>
 
 
@@ -59,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018060.jpg" />
 </div>
 
 
@@ -86,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016396.jpg" />
 </div>
 
 
@@ -113,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014355.jpg" />
 </div>
 
 
@@ -140,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014196.jpg" />
 </div>
 
 
@@ -167,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013663.jpg" />
 </div>
 
 
@@ -194,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013658.jpg" />
 </div>
 
 
@@ -220,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013359.jpg" />
 </div>
 
 
@@ -248,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011582.jpg" />
 </div>
 
 
@@ -274,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011445.jpg" />
 </div>
 
 
@@ -300,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010770.jpg" />
 </div>
 
 
@@ -326,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010645.jpg" />
 </div>
 
 
@@ -352,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008564.jpg" />
 </div>
 
 
@@ -378,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008258.jpg" />
 </div>
 
 
@@ -404,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007284.jpg" />
 </div>
 
 
@@ -430,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007182.jpg" />
 </div>
 
 
@@ -456,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007154.jpg" />
 </div>
 
 
@@ -482,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006729.jpg" />
 </div>
 
 
@@ -509,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006375.jpg" />
 </div>
 
 
@@ -537,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005582.jpg" />
 </div>
 
 
@@ -563,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005181.jpg" />
 </div>
 
 
@@ -589,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004594.jpg" />
 </div>
 
 
@@ -615,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004581.jpg" />
 </div>
 
 
@@ -641,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004551.jpg" />
 </div>
 
 
@@ -667,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004227.jpg" />
 </div>
 
 
@@ -678,6 +651,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57BAC7C9D0DEACF9B2F8F430F57353B471D350FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349833   (1004032) от 03.01.2020
+
+Джим Хаттон | Меркьюри и я. Богемская рапсодия, любовь и котики (2019) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фредди Меркьюри — культовый артист, чьи невероятные сценические образы и неповторимая манера выступления до сих восхищают слушателей по всему миру. Но каким он был вне ослепительного света софитов? В 1983 году судьба случайно сводит Фредди Меркьюри с Джимом Хаттоном в одном из лондонских баров. С этого момента начинается удивительная история любви простого ирландского (   Читать дальше...   )Жанр: Биографии деятелей культуры и искусства, Музыкальные коллективыФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF73CF601DD069279A6FAAE107EB070FA5393009
 ```
 
 https://mybot314.ru/tekegram_catalog/

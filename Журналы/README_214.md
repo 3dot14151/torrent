@@ -1,3 +1,107 @@
+###  Публикация: 1289344   (688286) от 15.03.2019
+
+Журнал | Приготовь №5 (104) (май 2018) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ежемесячный кулинарный журнал. В каждом номере - мастер-классы и рецепты от шеф-поваров известных ресторанов и читателей. Рецепты несложные и доступны. Используя их, вы сможете порадовать и удивить своих близких. Все подобрано так, чтобы было вкусно и полезно. А представленные фотографии готовых блюд на страницах журнала помогут вам правильно и красиво оформить стол.Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F84CC582D1E3A6744BA94AD19BB817A2DEBAC7E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289381   (688284) от 15.03.2019
+
+Газета | Твоё здоровье №1 (22) (2019) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сосуды нс стареют за один день, за месяц или даже за один год. «Замусоренными» сосуды становятся на протяжении многих лет. Сначала возникает атеросклероз. В это время сосуды намекают о своих проблемах, просят о помощи. но симптомы столь неприметны, что человек этого не замечает. И вот сосуды изрываются от гнева, проявляясь более сложными заболеваниями: гипертонией, (   Читать дальше...   )Жанр: здоровьеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DE5C2FF40E7E40EFAFA9ABDD833B51E92D127BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 674960   (688279) от 02.07.2013
+
+Журнал | Playboy [Россия] №7 (июль 2013) [PDF]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688279.jpg" />
+</div>
+
+
+###  Подробнее
+
+Playboy (Плейбой) — имя, ставшее легендой. Популярнейший во всем мире глянцевый мужской журнал появился в России в 1995 году и очень быстро стал самым востребованным изданием в своей категории. Playboy охватывает очень широкий тематический спектр: самые красивые женщины мира, эффектные пикториалы и эксклюзивные съемки знаменитостей, яркие фоторепортажи со светских (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61B77D765CB555426ABB4AC9198F4DF268FE41F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028437   (688233) от 23.06.2016
+
+Журнал | Игромания №7 (226) (июль 2016) [PDF]
+
+>>Журналы
+>>Игровые журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688233.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Игромания» — российский компьютерно-игровой, ежемесячный журнал, распространяющийся главным образом в России и странах СНГ. В основу создания «Игромании» поставлена доступность и понятность описываемой информации, с тем, чтобы тексты мог понять самый широкий круг читателей.Жанр: Игровой журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65657315295D53F0E81FEBE1F9C3B41B80A27BEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 506673   (688194) от 06.06.2012
 
 Журнал | Бизнес журнал №6 [2012 июнь] [PDF]
@@ -6,7 +110,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688194.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688136.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688001.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687562.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687214.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687138.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687091.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687056.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686952.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686770.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686758.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686645.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686635.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686634.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686512.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686263.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686209.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686143.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686141.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686139.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686128.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686099.jpg" />
 </div>
 
 
@@ -565,111 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:030EDCF4A58CC704229F3B8F10E9587A5DE5F6A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 507076   (685852) от 07.06.2012
-
-Журнал | Знание-сила №6 [июнь 2012] [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685852.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Знание-сила» мыслит себя как «мост между наукой и обществом». Основной своей задачей он видит разговор с думающими людьми всех возрастов и специальностей о новых тенденциях в науке и обществе, о связях между разными областями науки и мысли и главное – выявления человеческого смысла всякого знания. Журнал «Знание-сила» был основан в январе 1926 года.июнь 2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD579B0EA5AA543432E150837A4CC1634A2FFF3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 507178   (685851) от 07.06.2012
-
-Журнал | Сервисный центр №4 [2012] [DJVU]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сервисный центр призван ликвидировать существующий "информационный голод" у специалистов ремонтных служб вычислительных центров, специалистов АСУ предприятий и организаций России. Благодаря журналу, Вы познакомитесь с современными методиками и методами диагностирования и ремонта сложной вычислительной техники и оргтехники. С помощью журнала Вы сможете изучить принципы построения и работу сложных устройств вычислительной техники, схемотехнику системных плат, мониторов, различного вида принтеров, устройств внешней памяти, UPS, блоков питания, устройств копировальной техники различного типа. В справочном разделе Вы найдете информацию по современной электронной элементной базе применяемой в современных устройствах. Опытные специалисты смогут расширить свой кругозор и углубить свои знания по многим вопросам. Один из разделов журнала будет знакомить Вас с современными сетевыми технологиями, с принципами организации, работы, эксплуатации и диагностирования современных компьютерных сетей. Вы познакомитесь с (   Читать дальше...   )2012Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00410D453FDA532BD7AD191DF859DCE2E0FFC516
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 507169   (685675) от 07.06.2012
-
-Журнал | Digital Photo №6 [июнь 2012] [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685675.jpg" />
-</div>
-
-
-###  Подробнее
-
-Digital Photo - лучший российский ежемесячный журнал о цифровой фотографии и фототехнике. Издание отличается европейским уровнем подачи материалов и уникальными материалами на основе собственных тестов. Журнал ориентирован как на новичков, только открывающих для себя удивительный мир цифровой фотографии, так и на опытных фотолюбителей.2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDFE0A81765E3B1CB3DDBCC3FA120664431637C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 507311   (685285) от 07.06.2012
-
-Подшивка журналов | Солдат удачи + спецвыпуски [все 177 номеров] [1994-2009] [PDF]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685285.jpg" />
-</div>
-
-
-###  Подробнее
-
-В журнале «Солдат удачи» вы сможете ознакомиться с откровениями сотрудников спецслужб и спецподразделений России, США и других стран, с рассказами профессиональных солдат, руководителей служб безопасности и охраны, экспертов и разработчиков оружия и спец средств, авантюристов и искателей приключений.
-Журнал для тех, чья профессия защищать. К сожалению после 2009 (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABC240097DE9E232BCF7C0816835151BFAF03490
 ```
 
 https://mybot314.ru/tekegram_catalog/

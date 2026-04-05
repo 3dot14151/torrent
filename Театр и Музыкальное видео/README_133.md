@@ -6,7 +6,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81791.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Grace Jones - Live At Avo Session Basel, Switzerland 13th November (2009) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81697.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81287.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81224.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Yanni - Live At El Morro, Puerto Rico (2011) HDTV [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81105.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81068.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80883.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80757.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80694.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ ZZ Top - Live From Texas  (2008) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80643.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80619.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80047.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Pirate party The Best Videoclip (2010-2012) HDTVRip 1080p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79575.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Ringo Starr and the Roundheads - Live (2005) BDRip[720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79558.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79182.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Sigue Sigue Sputnik – Live In Tokyo (2003) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78740.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Emma Hewitt - Colours (Armin van Buuren Remix) (2012) HDRip [1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78735.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ NikitA - Машина (2009) HDRip [720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78394.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Deep purple - Machine Head Live 1972 (1999) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78214.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Ozzy Osbourne-The Ultimate Ozzy (1986) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78198.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Millenium Sexy vol.3 - Сборник видеоклипов (2011) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78191.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Lee Ritenour & Dave Grusin - Jazzfestival Montreux 2011 (2011) HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77580.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Adele: Live at the Royal Albert Hall (2011) [1080i] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77221.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Foreigner: Greatest Hits/Soundstage (2008)[720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77184.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77057.jpg" />
 </div>
 
 
@@ -724,7 +724,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76986.jpg" />
 </div>
 
 

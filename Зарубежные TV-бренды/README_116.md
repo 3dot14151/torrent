@@ -6,7 +6,7 @@ Viasat History: BBC: Железные дороги в годы Первой ми
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151059.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150383.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Discovery: Чикаго времен Аль Капоне / Al Capone's Chicago (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150118.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149790.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Animal Planet: Спасение слонов с Яо Мином / Saving Africa'
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149785.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ NG. Затерянная гробница царя Ирода / Herod's Lost Tom
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149334.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ NG: Человечество из космоса / Mankind from Space (2015) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149113.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ NG. Королевство белых медведей / Kingdom of the Polar Be
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148974.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Nat Geo Wild: По следам мифических чудовищ: Кошма�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148546.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ NGW: Динорыба / Dinofish (2011) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148541.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148358.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ NG: Помпеи. Тайны мёртвых (Последние беженцы �
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147015.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146947.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ NG: Майкл Пэйлин в Северной Корее / North Korea: Michae
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146899.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ BBC. Настоящий доктор Живаго / The Real Doctor Zhivago (201
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146886.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146679.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ NGW: Испытания в дикой природе / Trials of the Wild (2018)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146383.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146290.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ NGW: Братья сафари / Safari Brothers (2016) HDTV [H.264/1080i-LQ] (�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145663.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ BBC: Земля: Мощь планеты / Earth: The Power of the Planet (2007)
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145365.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ BBC: Атлантида в джунглях / Jungle Atlantis (2014) HDTVRip [H.
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145116.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144999.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ BBC. Гарри Поттер: История Магии / Harry Potter: A Histor
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144647.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144420.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ NGW: Выжить несмотря ни на что / Extreme Survivors (2014) H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144016.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ NGW: Дикий рай Индии / India's Wild Edens (2016) HDTVRip [H.264/720
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143841.jpg" />
 </div>
 
 

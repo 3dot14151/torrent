@@ -1,32 +1,3 @@
-###  Публикация: 1859144   (1060846) от 14.03.2026
-
-Азиза - 4 Albums (1989-2019) [MP3|320 Kbps] <Russian Pop Music>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1989 - Азиза - Aziza
-2014 - Азиза - Рай неземной-2CD
-2019 - Азиза - The Best(   Читать дальше...   )Жанр: Russian Pop MusicФормат: MP3 (tracks)Продолжительность: 5 CD, 05:31:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E29B6E7098D4DB695E187CB397977E658DF655B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1858607   (1060632) от 11.03.2026
 
 Discobra - Italo-Disco In My Veins (2026) [FLAC|Lossless|WEB-DL|tracks] <Italo Disco, Disco>
@@ -35,7 +6,7 @@ Discobra - Italo-Disco In My Veins (2026) [FLAC|Lossless|WEB-DL|tracks] <Italo D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060632.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - KuschelRock: Always & Forever (Wedding Edition) (2011) 3 x CD, Compilation 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060547.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Harry Styles - Kiss All The Time. Disco, Occasionally. (2026) [FLAC 24/96|Lossle
 >>Pop (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060308.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Kim Wilde - Premium Gold Collection (1996) [FLAC|Lossless|tracks+.cue] <New Wave
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060273.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA - Kuschelrock Rock Hymnen (2010) 2 x CD, Compilation, Special Edition [FLAC|L
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060246.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ VA - KuschelRock Special Edition - Lovesongs Of The 80's (2009) 2 x CD, Compilat
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060245.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Salvatore Adamo - Mes Plus Grands Succes (1981) 1992, Compilation [MP3|320 Kbps]
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060173.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060099.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Julio Iglesias - Starry Night (1990) [FLAC|Lossless|tracks + .cue] <Electronic, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060039.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ DJ Slon (Александр Альберт) - В Яблочко (2025) [FLAC|Los
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060019.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059686.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Robyn - Robyn Is Here (1997) [FLAC|Lossless|tracks + .cue] <Pop, Synth-pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059684.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Ryan Paris - The Best Songs (2026) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059586.jpg" />
 </div>
 
 
@@ -409,7 +380,7 @@ VA - 100 Greatest Seventies (2017) 5 x CD, Compilation [FLAC|Lossless|tracks + .
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059446.jpg" />
 </div>
 
 
@@ -438,7 +409,7 @@ VA - Best Of The 90's (2017) 3 x CD, Compilation [FLAC|Lossless|tracks + .cue] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059445.jpg" />
 </div>
 
 
@@ -467,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059260.jpg" />
 </div>
 
 
@@ -496,7 +467,7 @@ VA - Seventies Top 100 Vol. 2 (2007) 5 x CD, Compilation, Remastered [FLAC|Lossl
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058928.jpg" />
 </div>
 
 
@@ -525,7 +496,7 @@ VA - Seventies Top 100 (2007) 5 x CD, Compilation, Remastered [FLAC|Lossless|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058774.jpg" />
 </div>
 
 
@@ -554,7 +525,7 @@ VA - 100 Hits 70s Heart Throbs (2016) 5 x CD, Compilation, Box Set [FLAC|Lossles
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058773.jpg" />
 </div>
 
 
@@ -583,7 +554,7 @@ VA - Greatest Ever! Smooth (The Definitive Collection) (2007) 3 x CD, Compilatio
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058772.jpg" />
 </div>
 
 
@@ -612,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058750.jpg" />
 </div>
 
 
@@ -641,7 +612,7 @@ VA - Top 10's 100 Greatest (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058484.jpg" />
 </div>
 
 
@@ -670,7 +641,7 @@ VA - Retro Gold (2025) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058218.jpg" />
 </div>
 
 
@@ -699,7 +670,7 @@ VA - 70's Styles (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Disco, Eurodance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058149.jpg" />
 </div>
 
 
@@ -728,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057913.jpg" />
 </div>
 
 
@@ -742,6 +713,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9149A6761730A23E6EF910538669D3025256AFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855336   (1057912) от 22.02.2026
+
+Игорь Истуканов - То, что вы искали. Песни на стихи Сергея Миронова (2026) AI-generated content [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Блюз цвета глаз [00:02:58]
+02 - Остров [00:04:33]
+03 - Держись, брат [00:05:17]
+04 - Летняя ночь [00:07:01](   Читать дальше...   )Жанр: PopПродолжительность: 00:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D91CEF8AB42BB736540D6E63BD6B311F72F75980
 ```
 
 https://mybot314.ru/tekegram_catalog/

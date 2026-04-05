@@ -1,3 +1,30 @@
+###  Публикация: 1354488   (987827) от 22.01.2020
+
+Microsoft Windows 10.0.17763.973 Version 1809 (January 2020 Update) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987827.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1809 Build 17763.973.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD8D7342CB0D4BC1C69A2260E21FD26C568364F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1354479   (987819) от 22.01.2020
 
 Windows Server, Version 1903 (10.0.18362.592) - Оригинальные образы от Microsoft MSDN [En/Ru]
@@ -6,7 +33,7 @@ Windows Server, Version 1903 (10.0.18362.592) - Оригинальные обр�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987819.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Microsoft Windows 10.0.18362.592 Version 1903 (January 2020 Update) - Ориги
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987818.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ Microsoft Windows 10.0.17763.973 Version 1809 (January 2020 Update) - Ориги
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987762.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ Windows Server, Version 1909 (10.0.18363.592) - Оригинальные обр�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987701.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ Windows Server 2019 LTSC 1809 Build 17763.973 (Updated January 2020) Ориги�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987698.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ Microsoft Windows 10.0.18363.592 Version 1909 (January 2020 Update) - Ориги
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987620.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ Microsoft Windows 10.0.18363.592 Version 1909 (January 2020 Update) - Ориги
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987608.jpg" />
 </div>
 
 
@@ -192,7 +219,7 @@ Microsoft Windows 10.0.18362.592 Version 1903 (January 2020 Update) - Ориги
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986739.jpg" />
 </div>
 
 
@@ -219,7 +246,7 @@ Microsoft Windows 7 N SP1 Updated 13.05.2011 - Оригинальные обра
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975927.jpg" />
 </div>
 
 
@@ -245,7 +272,7 @@ Microsoft Windows 2000 Small Business Server SP3 [En]
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972956.jpg" />
 </div>
 
 
@@ -271,7 +298,7 @@ Microsoft Windows 2000 Advanced Server Build 2195 [En]
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972885.jpg" />
 </div>
 
 
@@ -298,7 +325,7 @@ Microsoft Windows NT Server 4.0 Build 1381 Service Pack 1 [En]
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968203.jpg" />
 </div>
 
 
@@ -325,7 +352,7 @@ Microsoft BackOffice Server 4.5 4.0.1381.1 [En]
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967528.jpg" />
 </div>
 
 
@@ -351,7 +378,7 @@ Recovery USB-Flash for Lenovo IdeaPad 100-15IBY / Windows 8.1 (х64) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963165.jpg" />
 </div>
 
 
@@ -380,7 +407,7 @@ Windows PowerShell 5.1 [Ru]
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961716.jpg" />
 </div>
 
 
@@ -406,7 +433,7 @@ Windows Embedded 8.1 with Update [November 2014] - Оригинальные об
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954286.jpg" />
 </div>
 
 
@@ -432,7 +459,7 @@ Microsoft Windows 10.0.17763.1039 Version 1809 (February 2020 Update) - Ориг
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934425.jpg" />
 </div>
 
 
@@ -459,7 +486,7 @@ Microsoft Windows 10.0.18362.657 Version 1903 (February 2020 Update) - Ориг�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934422.jpg" />
 </div>
 
 
@@ -486,7 +513,7 @@ Microsoft Windows 10.0.18363.657 Version 1909 (February 2020 Update) - Ориг�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934398.jpg" />
 </div>
 
 
@@ -513,7 +540,7 @@ Microsoft Windows 10.0.17763.1039 Version 1809 (February 2020 Update) - Ориг
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933095.jpg" />
 </div>
 
 
@@ -540,7 +567,7 @@ Microsoft Windows Server 2016 RTM Version 1607 Build 10.0.14393.447 (Updated Jan
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932993.jpg" />
 </div>
 
 
@@ -566,7 +593,7 @@ Windows Server, Version 1903 (10.0.18362.657) - Оригинальные обр�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932954.jpg" />
 </div>
 
 
@@ -592,7 +619,7 @@ Microsoft Windows 10.0.18362.657 Version 1903 (February 2020 Update) - Ориг�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932951.jpg" />
 </div>
 
 
@@ -619,7 +646,7 @@ Windows Server, Version 1909 (10.0.18363.657) - Оригинальные обр�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932949.jpg" />
 </div>
 
 
@@ -645,7 +672,7 @@ Microsoft Windows 10.0.18363.657 Version 1909 (February 2020 Update) - Ориг�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932865.jpg" />
 </div>
 
 
@@ -657,32 +684,6 @@ Microsoft Windows 10.0.18363.657 Version 1909 (February 2020 Update) - Ориг�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69C4112C306CE7963FB9A2F95EF68CAACFAA10E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364827   (931484) от 06.03.2020
-
-Windows Server 2019 LTSC 1809 Build 17763.1039 (Updated February 2020) Оригинальные образы от Microsoft MSDN [Ru/En]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Операционные системы в канале LTSС ориентированы на традиционные рабочие нагрузки (файловые сервера, сервера приложений, инфраструктурные роли и т.п.). Текущей редакцией для канала LTSC является Windows Server 2019. Выпуски LTSC доступны всем пользователям, независимо от применяемой модели лицензирования. Установка системы возможна в режиме ядра (Server Core) и в (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F55569B15B0023BD262068C803636855DFCADD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

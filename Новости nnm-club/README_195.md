@@ -1,3 +1,55 @@
+###  Публикация: 1071956   (353619) от 12.11.2016
+
+Adobe Photoshop CC 2017.0.0 2016.10.12.r.53 (x64) RePack by Pooshock [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353619.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop - это комплексное решение для профессиональной обработки цифровых изображений, которое содержит самые современные инструменты для работы с изображениями и новые возможности для реализации творческих идей, которые позволяют значительно повысить производительность. Редактируйте изображения с исключительной точностью, используйте новые интуитивно понятные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F729039EF9BFCCE8F825C9BF07D5FF326BC56E44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070455   (353612) от 12.11.2016
+
+Navitel / Навител Навигатор v9.7.1950 RePack by Hymen [Ru/Мульти] для карт релиза Q3-2016 v9.7.1950 [Ru/Multi]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка сборок от Hymen.Тип издания: ПираткаРелиз состоялся: 04.11.16Разработчик: NAVITEL ®Поддерживаемая ОС: Android 2.0 и вышеЯзык интерфейса: Мульти / Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9B4EE5117D5D075B8731E502E45D09E040183CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1178538   (353006) от 29.10.2017
 
 В России могут ввести обязательный страховой полис от кибервирусов
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_353006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_353006.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ Windows 10 Pro 2009 b19042.508 x64 ru by SanLex (edition 2020-10-21) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352674.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352660.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351938.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_351767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_351767.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ Adobe Premiere Pro CC 2019 v13.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351557.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_350857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_350857.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350719.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ Total Commander 8.52a Extended Full | Lite 15.11 RePack (&Portable) by BurSoft [
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350550.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350540.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350536.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_350534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_350534.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ Sword Art Online: Hollow Realization (2017) [Multi] (1.00) License CODEX [Deluxe
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350515.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350512.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350511.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ Google просит отдать свой голос против цензуры
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_349788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_349788.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349511.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349386.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349385.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349071.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ Tales of Zestiria (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unoffici
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348283.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ Tor Browser Bundle 5.0.4 Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348280.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ Borderlands: The Pre-Sequel (2014) [Ru/En] (1.0.7/dlc) Repack R.G. Games [Comple
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348274.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ JetBrains PhpStorm 2020.2.3 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348233.jpg" />
 </div>
 
 
@@ -623,58 +675,6 @@ PhpStorm – это интегрированная среда разработк
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CABF9BEE3B0780DB046F38A2D6553AE950F20E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329854   (347306) от 07.10.2019
-
-Алюминиевые батарейки оказались намного лучше литий-ионных
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_347306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Физики утверждают, что аккумуляторы на основе ионов алюминия намного эффективнее и безопаснее для экологии, чем популярные сегодня литиевые батареи.Прогресс невозможно остановить, и сегодня все мы зависим от батареек, нравится нам это или нет. Все, от смартфонов до автомобилей, требует для работы аккумулятор. Однако современные литий-ионные обладают рядом очевидных (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 579619   (347072) от 23.11.2012
-
-Патруль / End of Watch (2012) HDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Они были лучшими копами Лос-Анджелеса. Бесстрашные и везучие напарники, они стали друг другу как братья. Но однажды парни залезли в самое логово преступного мира города, по-глупому подставились и сами стали мишенью… Кто успеет первым разрядить обойму?Производство: Crave Films / Exclusive Media Group / Emmett/Furla Films / Envision Entertainment CorporationЖанр: Триллер, драма, криминалРежиссер: Дэвид ЭйрАктеры: Джейк Джилленхол, Майкл Пенья, Анна Кендрик, Натали Мартинез, Америка Феррера, Фрэнк Грилло, Дэвид Харбор, Кле Шахид Слоун, Джейм Фицсаймонс, Коуди ХорнПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:48:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A68A21FD9B44DC334CBD29609CA9AA904CDF8A46
 ```
 
 https://mybot314.ru/tekegram_catalog/

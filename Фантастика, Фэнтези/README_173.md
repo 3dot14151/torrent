@@ -1,31 +1,3 @@
-###  Публикация: 1068633   (379854) от 01.11.2016
-
-Константин Калбазов | Враг почти не виден (2016) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй роман цикла «Несгибаемый».
-
-О чем в первую очередь подумает наш современник, будучи хорошим автослесарем и оказавшись в мире, где балом правит пар? Правильно. Он решит создать двигатель внутреннего сгорания. Конечно, будет нелегко и даже опасно. Но ведь и удачу нельзя сбрасывать со счетов. Пару-тройку раз едва не отправился на тот свет? Ерунда. Зато стал золотодобытчиком (   Читать дальше...   )Жанр: Героическая фантастика, ПопаданцыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02A685F33EF22C4112C6C70CA64A48385BD43E4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253757   (379435) от 11.10.2018
 
 Дженнифер Броуди | Возрождение ковчегов (2018) [FB2]
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379435.jpg" />
 </div>
 
 
@@ -62,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379257.jpg" />
 </div>
 
 
@@ -88,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378656.jpg" />
 </div>
 
 
@@ -114,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378655.jpg" />
 </div>
 
 
@@ -141,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378651.jpg" />
 </div>
 
 
@@ -167,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378648.jpg" />
 </div>
 
 
@@ -193,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378492.jpg" />
 </div>
 
 
@@ -221,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378472.jpg" />
 </div>
 
 
@@ -249,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378464.jpg" />
 </div>
 
 
@@ -277,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378360.jpg" />
 </div>
 
 
@@ -306,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378122.jpg" />
 </div>
 
 
@@ -333,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377727.jpg" />
 </div>
 
 
@@ -361,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377618.jpg" />
 </div>
 
 
@@ -389,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377243.jpg" />
 </div>
 
 
@@ -416,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377231.jpg" />
 </div>
 
 
@@ -444,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377161.jpg" />
 </div>
 
 
@@ -472,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376929.jpg" />
 </div>
 
 
@@ -500,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376740.jpg" />
 </div>
 
 
@@ -528,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376620.jpg" />
 </div>
 
 
@@ -557,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376376.jpg" />
 </div>
 
 
@@ -583,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376367.jpg" />
 </div>
 
 
@@ -612,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376265.jpg" />
 </div>
 
 
@@ -641,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376233.jpg" />
 </div>
 
 
@@ -668,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376122.jpg" />
 </div>
 
 
@@ -694,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376017.jpg" />
 </div>
 
 
@@ -707,6 +679,34 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D12F04C1B153FC388EDB81EEB769A0F0DE095124
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175756   (376006) от 19.10.2017
+
+Марина Суржевская | Риверстейн (2017) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла «Ветер Севера».
+
+Я выросла в заснеженном Северном Королевстве, в суровом замке Риверстейн. В приюте для девочек-сирот. Я не знаю, кто я, и как оказалась у стен этой страшной крепости, окруженной вековыми соснами. Мне предстоит стать послушницей Ордена, а после посвящения — его просветительницей... Но вся моя жизнь лишь иллюзия. И однажды я услышала (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5C3622DC99F875FB600516A688CF723020BF4EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Kerbal Space Program (1.7.0/dlc) (2019) [En/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602624.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Allavsoft Video Downloader Converter 3.24.6.8147 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602463.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ FxFactory Pro 8.0.0 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602416.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ PDF Reader Pro Edition 2.8.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602381.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Airmail 3 v3.5.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602332.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ DxO PhotoLab ELITE Edition 1.2.0.75 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602256.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Folx Pro 5.5.13723 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602240.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ ScreenFlow 7.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602207.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Valentina Studio Pro 12.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602046.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ NCH ClickCharts Diagram Pro 6.62 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602028.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602003.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ ON1 Resize AI 2022.1 v16.1.1.12258 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602001.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ TotalFinder 1.14.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601996.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Total War: WARHAMMER II v1.0.2 (2018) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601785.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Renamer 5.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601594.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Serial Box (iSerial Reader 2.0.12 or Serial Seeker 1.3.8) 08-2013 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601366.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Deliver Express 2.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601089.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Chain Timer 8.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601088.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Script Debugger 8 v8.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601087.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ BBEdit 14.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601007.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ The Unarchiver - Unzip RAR ZIP 3.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600947.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ JustStream PRO 2.4 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600942.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ iMap Builder: Organisation 11.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600910.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Corel Painter 2018 (18.0.0.600) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600906.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ SQLPro Studio 2022.29 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600894.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ SQLPro for Postgre 2022.31 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600890.jpg" />
 </div>
 
 

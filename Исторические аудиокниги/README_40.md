@@ -1,56 +1,3 @@
-###  Публикация: 1824531   (128824) от 15.10.2025
-
-Татьяна Богданович | Холоп-ополченец (2024) [OGG, Всеволод Кузнецов]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начало XVII века. Войско Лжедмитрия I вторгается в Россию, переживающую к этому времени глубокий кризис, вызванный опричниной, Ливонской войной, голодом и эпидемиями. Начинается так называемое Смутное время, продлившееся без малого два десятилетия.
-В этот тяжелый для России период, самая незавидная участь была у холопов, которые из-за происходящих событий находились (   Читать дальше...   )Жанр: Борьба за независимость, Время и судьбы, Историческая литература, Исторические личности, Исторические приключения, Исторические романы, Исторические события, Исторические факты, История Руси, Литература 20 века, Русская литература, Русский патриотизм, Смутное время, Становление герояИздательство: СОЮЗПродолжительность: 19:20:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C57A67EEE03E845E866414B945EEC976BB1F02CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683674   (128242) от 12.12.2023
-
-Иннокентий Смоктуновский | Меня оставили жить (1997) [MP3, Вячеслав Герасимов]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128242.jpg" />
-</div>
-
-
-###  Подробнее
-
-В октябре 1996 года в журнале "Октябрь" была впервые напечатана автобиографическая повесть Иннокентия Смоктуновского "Меня оставили жить" - воспоминания о детстве и военных годах автора, времени, когда ему неоднократно угрожала гибель - отсюда и название повести. Озвучена книга по этой публикации в следующем, 1997 году. Так же в данную аудиокнигу (   Читать дальше...   )Жанр: Проза, автобиографияИздательство: Нигде не купишьПродолжительность: 06:55:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25C883B1FF1FA99C2BCFC5DE1E5685B7E2D1ECB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1685407   (127322) от 18.12.2023
 
 Борис Акунин | История Российского государства (Том 8, художественное дополнение 2). 1881 (2023) [MP3, Анна Блинова, Иван Волков]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127322.jpg" />
 </div>
 
 
@@ -87,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127049.jpg" />
 </div>
 
 
@@ -114,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124662.jpg" />
 </div>
 
 
@@ -140,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122852.jpg" />
 </div>
 
 
@@ -166,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122850.jpg" />
 </div>
 
 
@@ -194,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122849.jpg" />
 </div>
 
 
@@ -223,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122847.jpg" />
 </div>
 
 
@@ -251,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122844.jpg" />
 </div>
 
 
@@ -279,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122814.jpg" />
 </div>
 
 
@@ -306,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122813.jpg" />
 </div>
 
 
@@ -334,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122528.jpg" />
 </div>
 
 
@@ -362,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120840.jpg" />
 </div>
 
 
@@ -391,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120826.jpg" />
 </div>
 
 
@@ -417,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120809.jpg" />
 </div>
 
 
@@ -445,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120735.jpg" />
 </div>
 
 
@@ -473,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120363.jpg" />
 </div>
 
 
@@ -500,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119539.jpg" />
 </div>
 
 
@@ -526,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119488.jpg" />
 </div>
 
 
@@ -552,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119465.jpg" />
 </div>
 
 
@@ -580,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119258.jpg" />
 </div>
 
 
@@ -606,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119257.jpg" />
 </div>
 
 
@@ -633,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119251.jpg" />
 </div>
 
 
@@ -660,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119125.jpg" />
 </div>
 
 
@@ -689,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119122.jpg" />
 </div>
 
 
@@ -701,6 +648,62 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:897F4E9B266D61A52834918A549C92D0068EFE86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697205   (119116) от 05.02.2024
+
+Василий Ян | Финикийский корабль (2012) [MP3, Евгений Терновский]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Василий Григорьевич Ян (1875–1954) – русский советский писатель, публицист, поэт и драматург, сценарист, педагог. Автор популярных исторических романов.
+Основой книги «Финикийский корабль» послужили записки одного моряка о его удивительных приключениях на разных морях. Записки эти были на глиняных табличках найденных на раскопках на восточном берегу Средиземного (   Читать дальше...   )Жанр: Русская литература, историческая повестьИздательство: Нигде не купишьПродолжительность: 05:20:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8770DD8DF1F5FF06261E8A32E3964396C8CCD81B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 306594   (116622) от 20.02.2024
+
+Вс.Н. Иванов | Иван III. Ночь царя Петра (2005) [MP3, Вячеслав Герасимов]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Историческая библиотека.
+Всеволод Никанорович Иванов (1888–1971) – русский писатель, автор исторических повестей.
+В книгу Всеволода Иванова включены две повести о русской старине, воскрешающие для современного читателя некоторые поворотные моменты истории становления и этапов развития русской государственности.
+В «Иване Третьем» изображено время конца (   Читать дальше...   )Жанр: Русская историческая литература, повестьПродолжительность: 07:21:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8872E11B654A686A839BB8FB1613AB6AA5304559
 ```
 
 https://mybot314.ru/tekegram_catalog/

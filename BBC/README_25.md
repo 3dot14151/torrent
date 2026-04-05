@@ -6,7 +6,7 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176495.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BBC: Чудеса Солнечной Системы / Wonders of the Solar Syste
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176142.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ BBC: 80 чудес света / Around the World in 80 Treasures (2005) [DVDRip]
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176104.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175993.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ BBC. Секреты древних. Каменные головы Ольмеко
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175421.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ BBC: Мир природы: Болота. В ад и обратно / The Natura
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174904.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ BBC. Параллельные Вселенные / BBC: Parallel Universes (2002
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174818.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ BBC: Горизонт. Что такое реальность? / Horizon. What i
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171678.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ BBC: Живой мир. Осьминог в моём доме / BBC Natural Worl
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170265.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ BBC. Великие географические открытия / Voyages of D
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170022.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169946.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ BBC. Становление континентов / Rise of the Continents (201
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167472.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ BBC: Западня: что сталось с мечтой о свободе? / 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167419.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167085.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ BBC: Археология. Тайная история / Archaeology: A Secret H
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165571.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ BBC: Планета Земля 2. Мир чудес / Planet Earth II: A World o
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164093.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163837.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162385.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160009.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ BBC. Замёрзшая планета 2 / Frozen Planet II (2022) WEB-DLRip [H.
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159543.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ BBC. Horizon: Богу конец? Гид от Horizon по науке и рел
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158011.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ BBC: Чудеса Солнечной системы / Wonders of the Solar Syste
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158008.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ BBC. Замёрзшая планета 2 / Frozen Planet II (2022) WEB-DLRip [H.
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157062.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156038.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ BBC: Зачем нам Луна? / Do We Really Need the Moon? (2012) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155568.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ BBC. Horizon: Конопля: вредная трава? / Canabis: The Evil Wee
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155416.jpg" />
 </div>
 
 

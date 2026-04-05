@@ -1,3 +1,57 @@
+###  Публикация: 949914   (374363) от 24.10.2015
+
+Fidelia 1.6.5 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fidelia — проигрыватель для сверхкачественного звука
+Главное достоинство программы — удивительная всеядность, естественно необходимая такому плееру. Fidelia помимо стандартного mp3 без проблем понимает AIFF, WAV, CAF, MP3, AAC, ALAC, Ogg Vorbis и FLAC. Кроме того, поддерживаются треки высокого разрешения, вплоть до 192КГц и глубиной в 32-бит с плавающей точкой. В (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23 октября 2015Разработчик: Audiofile Engineering, LLCПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:833D36E068E7CE0DB89344AA183FEB1CBC47A73F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327574   (374089) от 25.09.2019
+
+Caramba Switcher 2019.09.16 (beta) [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Caramba Switcher - это новый, понятный автоматический переключатель раскладки клавиатуры, предназначенный для работы с русским, английским и немецким языками.
+Дополнительная информация:Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Sergey MoskalevПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F33E20A5789B37AC159ED5980FA7EFDA8E02A99F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1327203   (374088) от 25.09.2019
 
 Mixed In Key 8 v8.5.3 [En]
@@ -6,7 +60,7 @@ Mixed In Key 8 v8.5.3 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374088.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Templates Lab for MS Office 3.2.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374067.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ Adobe Photoshop Lightroom Classic CC 2019 v8.4.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373974.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ World Clock 1.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373776.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ FSMonitor 1.1 (116) [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372542.jpg" />
 </div>
 
 
@@ -143,7 +197,7 @@ Entity 1.3.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372134.jpg" />
 </div>
 
 
@@ -169,7 +223,7 @@ Toast Titanium 14.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372058.jpg" />
 </div>
 
 
@@ -195,7 +249,7 @@ ChatMate for WhatsApp 4.2.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371904.jpg" />
 </div>
 
 
@@ -222,7 +276,7 @@ Bundle for iWork 5.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371543.jpg" />
 </div>
 
 
@@ -251,7 +305,7 @@ Microsoft Office Standard 2019 for Mac v16.42 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371156.jpg" />
 </div>
 
 
@@ -279,7 +333,7 @@ Recordam 1.3.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370969.jpg" />
 </div>
 
 
@@ -307,7 +361,7 @@ Mirror for Philips TV 2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370967.jpg" />
 </div>
 
 
@@ -336,7 +390,7 @@ Mirror for Panasonic TV 3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370954.jpg" />
 </div>
 
 
@@ -365,7 +419,7 @@ Mirror for Sony TV 2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370827.jpg" />
 </div>
 
 
@@ -394,7 +448,7 @@ Mirror for Samsung TV 3.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370687.jpg" />
 </div>
 
 
@@ -423,7 +477,7 @@ Unibox 1.9.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370378.jpg" />
 </div>
 
 
@@ -449,7 +503,7 @@ VideoProc (former MacX Video Converter Pro) 3.9 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369656.jpg" />
 </div>
 
 
@@ -477,7 +531,7 @@ Business Templates 3.0.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369644.jpg" />
 </div>
 
 
@@ -505,7 +559,7 @@ Graphic Styles 3.0.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369142.jpg" />
 </div>
 
 
@@ -533,7 +587,7 @@ Adobe Muse CC 2018.0.0.685 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369098.jpg" />
 </div>
 
 
@@ -560,7 +614,7 @@ Corporate Packs for Pages 3.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369006.jpg" />
 </div>
 
 
@@ -588,7 +642,7 @@ CalendarPro for Google 3.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368297.jpg" />
 </div>
 
 
@@ -617,7 +671,7 @@ KCNcrew Pack 10-15-20 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367834.jpg" />
 </div>
 
 
@@ -643,7 +697,7 @@ Visual Studio Code 1.50.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367339.jpg" />
 </div>
 
 
@@ -654,60 +708,6 @@ Visual Studio Code предоставляет разработчикам нов�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30EDEAA364CC2A8153F411C91BD28732ECBD430B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950849   (367219) от 27.10.2015
-
-Capture One Pro 8.3.4 [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367219.jpg" />
-</div>
-
-
-###  Подробнее
-
-Capture One Pro один из самых мощных профессиональных конверторов цифровых фотографий в формате RAW с поддержкой широкого модельного ряда современных фотокамер. Программа позволяет в одиночном и пакетном режимах конвертировать "на лету" файлы в полноразмерный TIFF (RGB / CMYK) и JPG форматы, корректировать баланс белого, эффективно обрабатывать "пересвеченные" (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 27 октября 2015Разработчик: Phase OneПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Русский, Английский, Немецкий и др.
-* язык интерфейса программы зависит от дефолтного языка операционной системы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBC9F22537D71B17B646356785F2F5FE090E5CD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070499   (366777) от 07.11.2016
-
-Photo Size Optimizer (was IMAGEmini) 1.71 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Size Optimizer (Ранее известный как IMAGEmini) - изменение размера и оптимизация фотографий
-Если вы чувствуете, что на вашем Mac явно не хватает свободного пространства, задумайтесь – нужны ли вам внушительная коллекция фотографий в максимальном качестве? Приложение Photo Size Optimizer поможет сжать фотографии с минимальными потерями качества, но при этом (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 12 октября 2016Разработчик: EffectMatrix Inc.Поддерживаемая ОС: OS X 10.6.6 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19A828771A561A40611849C6323A4C18F38E10D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

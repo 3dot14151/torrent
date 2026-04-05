@@ -1,3 +1,57 @@
+###  Публикация: 1447483   (1031823) от 13.02.2021
+
+Rohan Dalvi | User interfaces and motion graphics part 2 (2014) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031823.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель данного урока - провести вас через процесс создания анимации motion-графики, показанной в промо-ролике.
+Идея курса состоит в том, чтобы создать множество элементов пользовательского интерфейса и графических элементов, используя SOP-ы (surface-операторы), частицы и CHOP-ы (channel-операторы). Также будут рассмотрены настройки материалов, рендеринг и финальный (   Читать дальше...   )Производство: Rohan DalviЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 02:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:601847B9578BAB90F37E03EAEC26FAAF3B3724D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447484   (1031816) от 13.02.2021
+
+Rohan Dalvi | User interfaces and motion graphics part 3 (2014) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель данного урока - провести вас через процесс создания анимации motion-графики, показанной в промо-ролике.
+Идея курса состоит в том, чтобы создать множество элементов пользовательского интерфейса и графических элементов, используя SOP-ы (surface-операторы), частицы и CHOP-ы (channel-операторы). Также будут рассмотрены настройки материалов, рендеринг и финальный (   Читать дальше...   )Производство: Rohan DalviЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 02:17:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFD6F917B70D7F43A8D88824CDFB174EE3168133
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447481   (1031774) от 13.02.2021
 
 Rohan Dalvi | User interfaces and motion graphics part 1 (2014) PCRec [En, Ru]
@@ -6,7 +60,7 @@ Rohan Dalvi | User interfaces and motion graphics part 1 (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031774.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ Matt Kohr | New Lessons Digital Painting with Matt Kohr Part 2 (2014-2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031604.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ Matt Kohr | New Lessons Digital Painting with Matt Kohr Part 1 (2014-2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031584.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ Matt Kohr | New Lessons Digital Painting with Matt Kohr Part 3 (2014-2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031558.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ Gumroad, Dejan Pejacki | Твердотельное моделирование S
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031532.jpg" />
 </div>
 
 
@@ -137,7 +191,7 @@ Gumroad, Danar Worya | Введение в продвинутый дизайн �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031501.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ Skillshare, Darrin Lile | Создание анимированного перс
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031260.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ Sean Hewitt | Rigging for Games (2020) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030818.jpg" />
 </div>
 
 
@@ -220,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030411.jpg" />
 </div>
 
 
@@ -246,7 +300,7 @@ CG Fast Track | Быстрый путь в Blender 2.80: Создание сце
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030369.jpg" />
 </div>
 
 
@@ -272,7 +326,7 @@ Gumroad, Jose Moreno (Parabox) | Скульптинг персонажа в Blen
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030356.jpg" />
 </div>
 
 
@@ -299,7 +353,7 @@ Skillshare, Joe Baily | Процедурное текстурирование в
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030181.jpg" />
 </div>
 
 
@@ -325,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030156.jpg" />
 </div>
 
 
@@ -354,7 +408,7 @@ Skillshare, Joe Baily | Скульптинг в Blender 2.91 часть 1.2 - С
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030143.jpg" />
 </div>
 
 
@@ -380,7 +434,7 @@ John Moncrief | Introduction to Collisions in Houdini (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030018.jpg" />
 </div>
 
 
@@ -407,7 +461,7 @@ Andreas Vrhovsek | Creating Cloudscape in Houdini (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030007.jpg" />
 </div>
 
 
@@ -434,7 +488,7 @@ Kurt Jones | Indie Game Development Pipeline Volume 2 (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029999.jpg" />
 </div>
 
 
@@ -462,7 +516,7 @@ John Moncrief | Introduction to Materials in Houdini (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029997.jpg" />
 </div>
 
 
@@ -490,7 +544,7 @@ SideFX | Houdini 15 Masterclass Crowds (2016) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029995.jpg" />
 </div>
 
 
@@ -516,7 +570,7 @@ SideFX | Houdini 15 Masterclass Distributed Simulations (2016) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029987.jpg" />
 </div>
 
 
@@ -542,7 +596,7 @@ Rohan Dalvi | Houdini Rocket Ship (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029985.jpg" />
 </div>
 
 
@@ -569,7 +623,7 @@ Alan Thorn | Advanced Game Mechanics In Unity 5 Volume 3 (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029982.jpg" />
 </div>
 
 
@@ -595,7 +649,7 @@ SideFX | Houdini 15 Masterclass FLIP Workflow Enhancements (2016) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029979.jpg" />
 </div>
 
 
@@ -621,7 +675,7 @@ Moritz Schwind | New in Houdini 18 (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029975.jpg" />
 </div>
 
 
@@ -632,60 +686,6 @@ Moritz Schwind | New in Houdini 18 (2019) PCRec [EN, RU]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D079E75883DE986B07C0E4249B0AB7FB9B70F034
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449275   (1029972) от 21.02.2021
-
-Alan Thorn | Advanced Game Mechanics In Unity 5 Volume 2 (2015) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс "Расширенные игровые механики в Unity" поможет пользователям перейти на новый уровень владения Unity. В этом курсе инструктор Алан Торн рассматривает множество мощных функций Unity 5, от инструментов отладки и контроля версий до двухмерных спрайтов и пользовательских интерфейсов. Узнайте, как быстро начать писать полезные скрипты и функции для создания (   Читать дальше...   )Производство: 3DMotiveЖанр: Создание видеоЯзык озвучки: Английский, РусскийПродолжительность: 01:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09FDCC8901BA8637953617419D74D5F015BC32E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449282   (1029968) от 21.02.2021
-
-Kurt Jones | Indie Game Development Pipeline Volume 1 (2014) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс разработки игровых инди проектов ориентирован на независимых разработчиков и покажет вам полный процесс создания уровня сражения с боссом с ярким двухмерным фоном и трехмерными героями.
-Мы начнем со стадии создания концептов, в которой мы заложим основу всего проекта: разработаем концепты и идеи для героя игры, босса уровня и фона.
-На этой стадии мы обсудим (   Читать дальше...   )Производство: Digital TutorsЖанр: Создание видеоЯзык озвучки: Английский, РусскийПродолжительность: 02:17:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2839911930838D78EFDAA1EF1E7243C9D4412FC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

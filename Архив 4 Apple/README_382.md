@@ -6,7 +6,7 @@ Resolutionator 1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434834.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Waltr 2.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434419.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ BlueHarvest 8 v8.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434059.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ doubleTake 2.6.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434046.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Yate 6.10.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434042.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Boxy SVG 3 v.3.89.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434041.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ SQLPro Studio 2022.52 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433954.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Valentina Studio Pro 12.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433949.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Ulysses 17 (51691) CR2 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433683.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Receipts 1.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433613.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Twitterrific 5 for Twitter 5.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433610.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Espresso 5.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433607.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ PDF Squeezer 3.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433606.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ EtreCheck Pro 5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433604.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ App Tamer 2.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433600.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Acorn 6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433599.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Things 3.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433458.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ EdgeView 2 v2.40 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433456.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Cloud Outliner 2 Pro: Outline your Ideas & Plans 2.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433453.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ AnyTrans 4.7.2 (20151010) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433440.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ GPG Suite 2018.4 (1.4.5) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433318.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ QuarkXPress 2015 v11.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433268.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ JRiver Media Center 24.0.53 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432980.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ A Better Finder Rename 10.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432943.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Bartender 3 Beta v.3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432937.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ MediaInfo 0.7.991 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432927.jpg" />
 </div>
 
 

@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1863336   (1063916) от 
+
+Денежный герой / Kaesyeoro (2025) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8) LE-Production
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой государственный служащий неожиданно приобретает сверхспособности, которые позволяют ему быть на страже добра и справедливости. Однако по неизвестной причине его силы напрямую зависят от количества денег: чем больше он геройствует, тем быстрее опустошается его банковский счет. Чтобы упорядочить свои стремительно растущие расходы, он обращается за помощью к (   Читать дальше...   )Производство: Корея Южная / Netflix, Studio LuluLalaЖанр: Фантастика, боевик, комедияРежиссер: Ли Чхан-минАктеры: Ли Джун-хо, Ким Хе-джун, Ким Бён-чхоль, Ким Хян-ги, Кан Хан-на, Ли Чхэ-мин, Ким И-сон, Ким Гук-хи, Щин Су-хён, Кан Сан-джунПеревод: Многоголосый любительский (LE-Production)Язык озвучки: Русский, корейский, английскийСубтитры: Русские, английские, корейскиеПродолжительность: ~00:55:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C5BDC2B9575224AF3AF6CBAD789527A0F672B5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1862167   (1062994) от 
 
 Легенда о Шэнь Ли / Yu Feng Xing  / The Legend of ShenLi (2024) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] (сезон 1, серии 1-39 из 39) DubLikTV
@@ -7,7 +33,7 @@ https://t.me/izofen
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062994.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062608.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062597.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060291.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1059967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1059967.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059250.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059075.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052946.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048296.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047627.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045620.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045457.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045371.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044724.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044691.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044398.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043822.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043807.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043792.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043707.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043516.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043515.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042489.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042452.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042345.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8797C33D59174DD285102750E9D4A6F91B444266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610712   (1042090) от 08.02.2023
-
-Мастера пота и слёз / Sauna-Man: Ase ka Namida ka Wakaranai (2019) WEBRip [H.264/1080p] (сезон 1, серии 1-30 из 30) Русский Репортаж
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Общественная сауна «Намида-ю», куда заходил Ёситомо Куроянаги — уникальное заведение, работающее под девизом: «Место, где можно потеть и плакать». Люди приходят поделиться романтическими переживаниями, пожаловаться на близких или рассказать истории из своего прошлого. Каждый, побывав в сауне, снимет душевный груз, выплеснет эмоции и просто поплачет. Ёситомо прожил (   Читать дальше...   )Производство: Япония / TV AsahiЖанр: комедия, драмаРежиссер: Масахидэ ИтииАктеры: Хидэкадзу Масима, Такаси Яманака, Такаси Нисина, Ёсиюки Морисита, Наоя Китагава, Рон Мидзума, Фуга Сибадзаки, Даити СаэкиПеревод: Двуголосый профессиональный (Русский Репортаж)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: ~ 00:10:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4D55DDF0604D975A6FDAAD22C3CBFC3746B84B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

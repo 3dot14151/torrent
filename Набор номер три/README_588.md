@@ -1,3 +1,216 @@
+###  Публикация: 1428835   (174623) от 08.12.2020
+
+Windows 10 Pro 20H2 b19042.631 x64 ru by SanLex (edition 2020-12-05) [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174623.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на официальном оригинал образе Windows_10_Pro_business_editions_20h2_Russian_x64 для более приватного / комфортного пользования. Отключены нежелательные службы, телеметрия, рекламные модули и всё что влияет на приватность (в пределах возможного). В остальном ничего лишнего не добавлялось как только убавлялось / отключалось / изолировалось.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE349214C70B939524567ADD33CFB96967767A0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430131   (174615) от 08.12.2020
+
+Adobe Photoshop 2021 22.1.0.94 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop 2021 - новая версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, коллажирования, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEDD9ED6A804843787F42EF0DB3B96081DF16ED5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595769   (174361) от 07.12.2022
+
+Очередное достижение: 2000 релизов от vitolinform!!
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_174361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередное достижение: 2000 релизов от vitolinform!!!Уважаемые одноклубники, рада сообщить Вам о возможности поздравить нашего товарища с преодолением рубежа в 2000 релизов! Так держать!
+От всей души поздравляем
+vitolinform(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667701   (174297) от 11.10.2023
+
+Владелец компании заменил всех работников ИИ-ботом: «Он в 100 раз умнее и в 100 раз дешевле»
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Индийский стартап Duukan летом 2023 г. уволил 90% персонала, заменив людей на ИИ, а теперь лишил работы оставшихся сотрудников. Это колл-центр, и отныне на все вопросы его клиентов отвечает робот. Владелец компании заявил, что ИИ в 100 раз умнее и во столько же раз дешевле живых сотрудников, к тому же работает он намного быстрее и эффективнее.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595600   (174245) от 07.12.2022
+
+История новогодних блюд: как оливье стал первым среди равных и почему селёдка носит шубу?
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_174245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как ни крути, новогодний стол в России — традиция особая, и у каждой семьи есть свои любимые рецепты. Но есть и такие блюда, чья история насчитывает не одну сотню лет, и их готовят в каждом доме в конце декабря. Откуда же пришли наши любимые оливье, селёдка под шубой и ещё несколько новогодних блюд рассказываем в статье.(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657104   (174222) от 11.10.2023
+
+Starfield (2023) [Multi] (1.7.36.0/dlc) Scene Rune [Premium Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Starfield - первая более чем за 25 лет новая игровая вселенная от Bethesda Game Studios, авторов The Elder Scrolls V: Skyrim и Fallout 4. В этой космической ролевой игре вы сможете создать любого персонажа и исследовать вселенную так, как вам этого хочется. Раскройте величайшую тайну человечества. В 2330 году люди осваивают планеты за пределами Солнечной системы. (   Читать дальше...   )Тип издания: SceneРазработчик: Bethesda Game StudiosЖанр: Action, RPGЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04478B65FE9F4CFBCF35F5BB71A355EDABFC8B01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585477   (174189) от 07.12.2022
+
+Периферийные устройства / The Peripheral (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) LostFilm, AlexFilm, HDRezka Studio, TVShows
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174189.jpg" />
+</div>
+
+
+###  Подробнее
+
+Недалёкое будущее. Флинн Фишер живёт в страдающем от безработицы американском захолустье. Её брат Бёртон — бывший морпех — получает пенсию по инвалидности и подрабатывает бета-тестером новой компьютерной игры. Однажды он просит сестру подменить его на сеансе. Так Флинн попадает в новую реальность и знакомится с технологией, неуловимо меняющей человеческое общество.Производство: США / Amazon Studios, Big Indie Pictures, Kilter Films, Warner Bros. TelevisionЖанр: фантастикаРежиссер: Винченцо Натали, Олрик РайлиАктеры: Хлоя Грейс Морец, Гари Карр, Джек Рейнор, Луис Хертэм, Крис Кой, Остин Райзинг, Элай Гори, Майлз Барроу, Мелинда Пейдж ХэмилтонПеревод: Многоголосый профессиональный (LostFilm, AlexFilm, HDRezka Studio, TVShows)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, Full), английские (full, SDH)Продолжительность: ~01:12:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:563E9FEC95913B3E2185EA0290E89C698198389B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 363945   (174186) от 07.12.2022
+
+Фильмография Луи де Фюнес / Louis de Funes Filmography (1964-1981) SATRip
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174186.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильмография Луи де Фюнеса (1964-1981)
+Louis de Funes Filmography (1964-1981)Дата рождения: 31 июля 1914 года
+Дата смерти: 27 января 1983 года(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:759319A0143024D21EB013854F113415580AC881
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1429688   (174020) от 09.12.2020
 
 Microsoft добавила рекламу в настройки Windows 10
@@ -6,7 +219,7 @@ Microsoft добавила рекламу в настройки Windows 10
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_174020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_174020.jpg" />
 </div>
 
 
@@ -32,7 +245,7 @@ Adobe Acrobat Pro DC 2020.013.20074 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173985.jpg" />
 </div>
 
 
@@ -58,7 +271,7 @@ PC Building Simulator (2018) [Ru/Multi] (0.9.3) Repack Other s
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173708.jpg" />
 </div>
 
 
@@ -84,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173682.jpg" />
 </div>
 
 
@@ -110,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_173560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_173560.jpg" />
 </div>
 
 
@@ -137,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_173545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_173545.jpg" />
 </div>
 
 
@@ -163,7 +376,7 @@ Adobe Acrobat Pro DC 23.006.20320 [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173509.jpg" />
 </div>
 
 
@@ -189,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_173389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_173389.jpg" />
 </div>
 
 
@@ -215,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173287.jpg" />
 </div>
 
 
@@ -241,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173277.jpg" />
 </div>
 
 
@@ -267,7 +480,7 @@ Nanatsu no Maken ga Shihai Suru / Reign of the Seven Spellblades / Семь гл
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173272.jpg" />
 </div>
 
 
@@ -293,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173271.jpg" />
 </div>
 
 
@@ -320,7 +533,7 @@ Windows 11 x64 Rus by OneSmiLe [22621.2428]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173073.jpg" />
 </div>
 
 
@@ -349,7 +562,7 @@ Lords of the Fallen (2023) [Ru/Multi] (1.1.184/dlc) Repack DjDI [Deluxe Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173071.jpg" />
 </div>
 
 
@@ -375,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173066.jpg" />
 </div>
 
 
@@ -401,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172960.jpg" />
 </div>
 
 
@@ -427,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172944.jpg" />
 </div>
 
 
@@ -455,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172908.jpg" />
 </div>
 
 
@@ -466,215 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CADD95279EC22E9E88DEE991CE52DED7EFD70D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668822   (172898) от 15.10.2023
-
-Искусственный интеллект создал странного ходячего робота: он не похож ни на что из существовавшего ранее
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172898.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа американских исследователей в публикации в Proceedings of the National Academy of Sciences рассказала о том, что искусственный интеллект по их запросу должен был разработать робота, способного ходить.В результате у него получился (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668906   (172883) от 15.10.2023
-
-Microsoft® Windows® 10 Enterprise LTSC 2021 x86-x64 21H2 RU by OVGorskiy 10.2023
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172883.jpg" />
-</div>
-
-
-###  Подробнее
-
-сборка на основе оригинальных русских образов операционной системы Windows 10 Enterprise (Корпоративная) LTSC x86-x64 (VLSC) от Microsoft с дополнительным материалом разных разрядностей в 2-х разных образах (x86 и x64). Установка полностью стандартная "вручную" с выбором параметров установки ОС. Интегрированы: обновления системы, небольшой набор самых необходимых (   Читать дальше...   )Язык интерфейса: Русский (Russian).
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B63A17274EE60C2E6FF3135BCA2E3B20469B746
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668922   (172729) от 16.10.2023
-
-Россия научила Америку плохому. Сотовый оператор из США насильно переводит клиентов на дорогие тарифы «ради их же выгоды»
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172729.jpg" />
-</div>
-
-
-###  Подробнее
-
-T-Mobile вынуждает абонентов переходить на новые более дорогие тарифы, утверждая, что они более выгодные. Разница в абоненткой плате – около 10%, притом не в пользу новых тарифов. Схожие рекламные уловки постоянно применяют российские операторы – их новые тарифы зачастую менее выгодны абонентам в сравнении со старыми, но это тщательно вуалируется.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669467   (172701) от 16.10.2023
-
-Adobe Photoshop Lightroom Classic 13.0.1.1 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lightroom объединяет фотографии в «коллекции» — виртуальные сборища файлов, по которым может быстро делать поиск. Он хранит информацию о ключевых словах, превью и метаданных не в каждом графическом файле, а в централизованной базе данных (движок SQLite). Поэтому к базе можно обращаться и по поводу фотографий, которые сейчас в архиве на DVD. Размер программы существенно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E8D307E183BF5EFE3944463DA1E75C52187D7B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669294   (172693) от 16.10.2023
-
-Lords of the Fallen (2023) [Ru/Multi] (1.1.191/dlc) Repack Other s
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lords of the Fallen представляет совершенно новое эпическое ролевое приключение в огромном и сложном мире, который как минимум в пять раз больше мира оригинальной игры. После эпохи жестокой тирании демон-бог Адыр наконец был побежден. Но боги не гибнут навеки. И теперь, века спустя, близится воскресение Адыра. Станьте одним из знаменитых Темных крестоносцев и отправляйтесь (   Читать дальше...   )Тип издания: RepackРазработчик: HEXWORKSЖанр: Adventure, Action, RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский (отдельно), Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский (отдельно), Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CE38E1FBFE1E40ACBD323F8154AC74F96E74356
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455820   (172691) от 16.10.2023
-
-English Galaxy v1.6.1 Mod by Alex.Strannik [Ru/Multi]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172691.jpg" />
-</div>
-
-
-###  Подробнее
-
-English Galaxy - уникальное приложение для тех, кто хочет выучить английский язык с нуля до продвинутого уровня по грамматике и словарному запасу одновременно. Наша система обучения разработана на основе уникального авторского курса, который не имеет аналогов. Данный авторский курс состоит из 6 разделов, где представлены уроки с нуля до продвинутого (A0 - C1). Данные (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 14.06.2023Разработчик: English GalaxyПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:694B2F730AB311C75B524558088CDA212EE7B868
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669572   (172528) от 17.10.2023
-
-Windows 10 22H2 + LTSC 21H2 (x64) 28in1 +/- Office 2021 by Eagle123 (10.2023) [Ru/En]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172528.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 v22H2 19045.3570 и Windows 10 Корпоративная LTSC v21H2 19044.3570, включающие в себя 5 редакций x64 с русским и английским интерфейсом и 2 облегченные x64 Lite-редакции, с обновлениями по 10.2023, дополнительными системными библиотеками (C++ Redistributable Package), с возможностью выбора опций установки и наличием MSDaRT. А также инсталляции Windows c (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE6F67AADFCF6BC8515ACF20E71ED52D36FD1A02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669475   (172414) от 18.10.2023
-
-Названа самая продаваемая игра в истории
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172414.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разработчики Minecraft рассказали о рекордных продажах игры. Об этом сообщает издание Windows Central.Во время мероприятия Minecraft Live представители студии Mojang заявили, что поставили новый рекорд по продажам игры. По их словам, тайтл распродали тиражом 300 миллионов копий. «Наше невероятное сообщество превратило Minecraft в то, чем оно является сегодня, и в (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

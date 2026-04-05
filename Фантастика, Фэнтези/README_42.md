@@ -1,30 +1,3 @@
-###  Публикация: 1115421   (827618) от 17.03.2017
-
-Джон Рональд Руэл Толкин | Властелин Колец. Часть 1. Братство Кольца (2014) [PDF]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трилогия «Властелин Колец» — одна из тех великих книг, встреча с которыми становится Событием. Эпическая красота повествования, вечная тема борьбы Добра и Зла, большой подвиг маленького героя и, самое главное, — тот фантастический и вместе с тем удивительно реальный мир, в котором хочется остаться навсегда.
-Издание, выполненное в переводе Владимира Грушецкого и Наталии (   Читать дальше...   )Жанр: ФэнтезиПеревод: Н. Григорьевой, В. ГрушецкогоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B79AAD6E18741ECA774697F4FB0506F5634F2219
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1115288   (827603) от 17.03.2017
 
 Дмитрий Распопов | Цикл «Сын галактики» [2 книги] (2010-2016) [FB2]
@@ -33,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827603.jpg" />
 </div>
 
 
@@ -59,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827536.jpg" />
 </div>
 
 
@@ -88,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826575.jpg" />
 </div>
 
 
@@ -119,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826535.jpg" />
 </div>
 
 
@@ -147,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826146.jpg" />
 </div>
 
 
@@ -174,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826123.jpg" />
 </div>
 
 
@@ -203,7 +176,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826029.jpg" />
 </div>
 
 
@@ -230,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826022.jpg" />
 </div>
 
 
@@ -257,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826021.jpg" />
 </div>
 
 
@@ -284,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825927.jpg" />
 </div>
 
 
@@ -312,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825879.jpg" />
 </div>
 
 
@@ -338,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825785.jpg" />
 </div>
 
 
@@ -364,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825701.jpg" />
 </div>
 
 
@@ -390,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825685.jpg" />
 </div>
 
 
@@ -418,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825440.jpg" />
 </div>
 
 
@@ -446,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825190.jpg" />
 </div>
 
 
@@ -474,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824702.jpg" />
 </div>
 
 
@@ -500,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824701.jpg" />
 </div>
 
 
@@ -526,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824686.jpg" />
 </div>
 
 
@@ -553,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824426.jpg" />
 </div>
 
 
@@ -579,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824227.jpg" />
 </div>
 
 
@@ -605,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823989.jpg" />
 </div>
 
 
@@ -631,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823969.jpg" />
 </div>
 
 
@@ -659,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823227.jpg" />
 </div>
 
 
@@ -685,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823141.jpg" />
 </div>
 
 
@@ -697,6 +670,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC8FAD9762AB3C1832AA3A0E30A2EFE9905A9B15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007409   (822841) от 14.04.2016
+
+Олег Таругин | Комбат. Вырваться из «котла»! (2016) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_822841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла «Комбат».
+
+XXIII век. Хотя Земля живет в мире уже несколько поколений, Россия продолжает «держать порох сухим». И каждый выпускник Военной Академии должен пройти стажировку в прошлом, на Великой Отечественной, ибо научиться воевать по-настоящему можно лишь на этой войне…
+(   Читать дальше...   )Жанр: Историческая фантастика, Боевая фантастика, ПопаданцыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AFB982F8DF3E211706823443EC26B871371B11B
 ```
 
 https://mybot314.ru/tekegram_catalog/

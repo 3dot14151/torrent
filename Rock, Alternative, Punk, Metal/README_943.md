@@ -1,3 +1,32 @@
+###  Публикация: 1084110   (219597) от 18.12.2016
+
+Nautilus Pompilius (Наутилус Помпилиус) - Архив. Цифровая реставрация оригинальных записей (1983-2001) 23CD [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219597.jpg" />
+</div>
+
+
+###  Подробнее
+
+1983 - Переезд (1997)
+1985 - Невидимка (1997)
+1986 - Разлука (1998)
+1987 - Подъем (Таллинн 87) (1997)Жанр: RockПродолжительность: 18:06:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF75C7BB770F5D4F7DFC8CF44FEA363A7D43B20C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652076   (219590) от 09.08.2023
 
 Woven Man - Revelry (In Our Arms) (2018) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner Metal>
@@ -6,7 +35,7 @@ Woven Man - Revelry (In Our Arms) (2018) [FLAC|Lossless|WEB-DL|tracks] <Heavy Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219590.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Who Killed Janis - 2 Albums (2022) [MP3|320 Kbps] <Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219571.jpg" />
 </div>
 
 
@@ -62,7 +91,7 @@ Mother of Graves - Where the Shadows Adorn (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219545.jpg" />
 </div>
 
 
@@ -91,7 +120,7 @@ Signs Of Truth - Signs Of Truth (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219529.jpg" />
 </div>
 
 
@@ -120,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219516.jpg" />
 </div>
 
 
@@ -149,7 +178,7 @@ Bon Jovi - 7800° Fahrenheit (1985) Reissue, Remastered, 1998, Mercury [OGG Vorb
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219507.jpg" />
 </div>
 
 
@@ -178,7 +207,7 @@ Meg Myers - Thank U 4 Taking Me 2 The Disco (2020) EP [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219492.jpg" />
 </div>
 
 
@@ -207,7 +236,7 @@ Pinkshift - Love Me Forever (2022) [MP3|320 Kbps] <Alt. Rock, Pop Punk, Female V
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219479.jpg" />
 </div>
 
 
@@ -236,7 +265,7 @@ Yesterdays - Saint-Exupery alma (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219472.jpg" />
 </div>
 
 
@@ -265,7 +294,7 @@ Fun Mode - Небеса (2021) [MP3|320 Kbps] <Alternative>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219460.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ Meg Myers - I'd Like 2 Go Home Now (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219430.jpg" />
 </div>
 
 
@@ -323,7 +352,7 @@ Bon Jovi - Slippery When Wet (1986) Reissue, Remastered, Repress, 1998, Mercury 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219423.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ Dry River - Cuarto Creciente (2022) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219414.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ Kiss - Dressed To Kill (1975) Remastered 2021, UMe Direct 2 [FLAC 2.0|96/24|trac
 >>Hard Rock (Hi Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219357.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ Papa Roach - Who Do You Trust? (2019) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219275.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ Taz Taylor Band - Nocturnal (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219247.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ VA - Metal (2022) [MP3|320 Kbps] <Rock, Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219207.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ Wreck of Time - From Sand - Part II (2022) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219145.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ DeathCollector - Death's Toll (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219137.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ Mirror - Mirror (2015) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219135.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ Nanaki - Dandelion Radio Session (2015) [FLAC|Lossless|WEB-DL|tracks] <Post-Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219132.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ December's Mourning - Desolate Shores (2023) [FLAC|Lossless|WEB-DL|tracks] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219129.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ Steelwolf - No One Gets Away (2012) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219128.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ Headcrash - Overdose on Tradition (1995) [FLAC|Lossless|tracks + .cue] <Industri
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219125.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ Cryptal Darkness - They Whispered You Had Risen (1999) [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219119.jpg" />
 </div>
 
 
@@ -714,35 +743,6 @@ Cryptal Darkness - They Whispered You Had Risen (1999) [FLAC|Lossless|image + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C7D96CCDCC57E5ED9EFD3955549D39DC6F4A668
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652102   (219112) от 10.08.2023
-
-Cryptal Darkness - Chapter II - The Fallen (2001) [FLAC|Lossless|image + .cue] <Atmospheric Gothic Death, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raven Dawn (00:41)
-02. My Eternal Hunger (07:37)
-03. A Dream of Beauty & Desire Lost (09:01)
-04. The Coldest Winter (08:35)(   Читать дальше...   )Жанр: Atmospheric Gothic Death, Doom MetalПродолжительность: 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:953E027BEB42DBCF55D5BB5845B88D5633363161
 ```
 
 https://mybot314.ru/tekegram_catalog/

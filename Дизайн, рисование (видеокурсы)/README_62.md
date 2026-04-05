@@ -1,3 +1,59 @@
+###  Публикация: 1564710   (212343) от 20.07.2022
+
+Руслан Темурзиев | ИZИGЭNG (2022) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212343.jpg" />
+</div>
+
+
+###  Подробнее
+
+ИZИGЭNG — это что?
+А можно же сразу заходить с козырей?
+Например, с вероятностью 99% этот курс проходил хотя бы 1 дизайнер, которого ты знаешь, за страницей или блогом которого ты следишь. Хотя, скорее всего, эта цифра намного больше, чем 1.
+Теперь давай более предметно. Что это за курс, какие задачи выполняет и чем он так полезен веб-дизайнеру любого уровня.(   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 45:43:31Реклама: Присутствуют сторонние вставки и наложения
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4CE54110BA398F2E412FFCBE281136F61C8D384
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565618   (212234) от 24.07.2022
+
+Break Your Crayons, Marc Whitelaw | Houdini - QUIXEL megascans workflow Rendered with Redshift (2020-2021) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212234.jpg" />
+</div>
+
+
+###  Подробнее
+
+1) Houdini: Quixel Megascans Workflow Rendered with Redshift
+В этом видео мы рассмотрим рабочий процесс, который я использовал для создания сцены с ночной пустыней в Houdini. Используя ресурсы Megascans и несколько простых приемов, мы рассредоточим и замаскируем области нашей сцены, чтобы лучше управлять изображением.Производство: Break Your CrayonsЖанр: 3D-моделированиеЯзык озвучки: РусскийПродолжительность: 01:34:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C343845FF0F02E8FDC5CB5F8E49741C250C52E2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565717   (212232) от 24.07.2022
 
 Pluralsight, Rob Brooks | Blueprint and C++ Integration in Unreal Engine 4 (2017) PCRec [EN, RU]
@@ -6,7 +62,7 @@ Pluralsight, Rob Brooks | Blueprint and C++ Integration in Unreal Engine 4 (2017
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212232.jpg" />
 </div>
 
 
@@ -33,7 +89,7 @@ Udemy, Jingtian Li | Introduction to Unreal Engine 4 Ability System Part 1 (2019
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212226.jpg" />
 </div>
 
 
@@ -59,7 +115,7 @@ ntCGi Ltd, Antony Ward | Face Rigging in Maya (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212009.jpg" />
 </div>
 
 
@@ -85,7 +141,7 @@ The VFX School, Tariq Kinani | Alien troop attack, crowds and ragdolls (2021) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211954.jpg" />
 </div>
 
 
@@ -111,7 +167,7 @@ The VFX School, Tariq Kinani | Metal bending in Houdini (2021) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211938.jpg" />
 </div>
 
 
@@ -137,7 +193,7 @@ Artefactoschool, Любовь Титова | Реалистичные котик
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211628.jpg" />
 </div>
 
 
@@ -165,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211576.jpg" />
 </div>
 
 
@@ -191,7 +247,7 @@ Gumroad, Rachel | Making a Boxbot in Blender 2.8 (2020) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211534.jpg" />
 </div>
 
 
@@ -217,7 +273,7 @@ Gnomon workshop, Eric Keller | Creature modeling with zbrush and marmoset toolba
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211487.jpg" />
 </div>
 
 
@@ -244,7 +300,7 @@ Udemy, Victory3D LLC | Facial Anatomy & Character Portrait for Blender Artists (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211480.jpg" />
 </div>
 
 
@@ -270,7 +326,7 @@ Udemy - Create a High Quality Asset in Blender and Substance Painter (2021) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211392.jpg" />
 </div>
 
 
@@ -296,7 +352,7 @@ Udemy, Nexttut, Daniel da Costa | Realistic Character Making in Blender 3.2 (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211233.jpg" />
 </div>
 
 
@@ -322,7 +378,7 @@ Filschool, Софья Филиппова | Курс по веб-дизайну �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211211.jpg" />
 </div>
 
 
@@ -351,7 +407,7 @@ Imagination, Ирина Пирогова | Fashion Иллюстрация Pro (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211091.jpg" />
 </div>
 
 
@@ -380,7 +436,7 @@ Udemy, Mitchell Nickerson | I use Blender - 3D Modeling - Stylized Tiki Mask (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210900.jpg" />
 </div>
 
 
@@ -408,7 +464,7 @@ Gumroad, Zak Boxall | REALISTIC Creature Texturing Painting Tutorial Using Mari 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210674.jpg" />
 </div>
 
 
@@ -434,7 +490,7 @@ Mackley Studios, Chris Tedin | Autodesk Maya Mythical Creature Animation (2017) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210637.jpg" />
 </div>
 
 
@@ -460,7 +516,7 @@ Skillshare, Darrin Lile | Create a Victorian Room with Blender and Substance Pai
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210628.jpg" />
 </div>
 
 
@@ -486,7 +542,7 @@ CGMA, Sean Mcewan | Procedural Modeling for Production in Houdini (2020) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210562.jpg" />
 </div>
 
 
@@ -512,7 +568,7 @@ The Art of Aaron Blaise, Aaron Blaise | How to Draw: Drawing Human Anatomy (2016
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210295.jpg" />
 </div>
 
 
@@ -538,7 +594,7 @@ Yiihuu, wingfox, Zaoeyo | Masterclass Motion Graphic Animation in Cinema 4D (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210275.jpg" />
 </div>
 
 
@@ -564,7 +620,7 @@ Vertex Workshop, Ackeem Durrant | Character Creation For Games by Ackeem Durrant
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210230.jpg" />
 </div>
 
 
@@ -592,7 +648,7 @@ Artstation Masterclasses, The Gnomon Workshop, Brian Recktenwald | Designing a M
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210191.jpg" />
 </div>
 
 
@@ -619,7 +675,7 @@ Yiihuu, WingFox | Movie CG Opening Concept Short Film: Ultrain-Ultrain (2021) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210188.jpg" />
 </div>
 
 
@@ -631,60 +687,6 @@ Yiihuu, WingFox | Movie CG Opening Concept Short Film: Ultrain-Ultrain (2021) PC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0AAE4DAFC587D8909ACD424C5F09609173AF5E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571575   (209935) от 22.08.2022
-
-Schoolism, Nathan Fowkes | Digital Landscape Painting Workout (2021) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209935.jpg" />
-</div>
-
-
-###  Подробнее
-
-Укрепите свои творческие мускулы с Натаном Фоуксом, концепт-художником и цветовым стилистом студии DreamWorks, Disney, Blue Sky Studios и многих других!
-Натан создал 30 демонстраций продолжительностью до часа каждая и предоставил все необходимые рекомендации, чтобы вы могли рисовать вместе с каждым упражнением каждый день в течение 30 дней.Производство: SchoolismЖанр: РисованиеЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 24:35:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D44BD259731CDEB00BAD2E165ECE3684D6460CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571970   (209803) от 24.08.2022
-
-Schoolism, Iain McCaig | Drawing Workout (2020) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быть художником - это не просто карьера, это образ жизни. Легендарный художник и визуальный рассказчик Иэн МакКейг продемонстрирует некоторые из художественных техник, которые он использует для оттачивания своего мастерства и воображения, а также расскажет то, как сохранять вдохновление и бесстрашие при встрече с пустой страницей.
-Художественные навыки МакКейга можно (   Читать дальше...   )Производство: SchoolismЖанр: РисованиеЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 09:20:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D50271B9AEE24EDA01800FD5543FFDB063F66A69
 ```
 
 https://mybot314.ru/tekegram_catalog/

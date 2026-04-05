@@ -1,3 +1,56 @@
+###  Публикация: 1569828   (449677) от 14.08.2022
+
+Лянсэ Фэнцзин | Волшебная экспресс-доставка. Судьба, распишитесь (2022) [FB2, EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юный Ся Итяо однажды обнаруживает, что обладает сверхспособностями, как у настоящего супергероя. Начав работать курьером, он стал доставлять неизвестные товары посреди ночи. Однажды Ся Итяо нечаянно обнаружил, что вещь, которую его просили доставить, оказалась таинственным пламенем – «Огнем жизни»… Возможно ли, что даже жизнь можно покупать и продавать? Сможет ли (   Читать дальше...   )Жанр: Детская литература, ФантастикаПеревод: Инна СиротинаФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E6DF268443D672D6511BC9A25720637C8392EC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569822   (449672) от 14.08.2022
+
+Д. Барри, К.Д. Ушинский, П. Стюарт, Э.А. Гранстрем | Читаем сами. «Эксмо» [5 книг] (2012-2020) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книги серии «Читаем сами» необходимы каждому дошкольнику и школьнику начальных классов для совершенствования техники чтения при переходе от чтения слогов к чтению целыми словами. Крупный шрифт оптимален для прочтения самим ребёнком. Слова с ударениями — выделение ударного слога помогает ребёнку избежать трудностей при определении места ударения.
+В серии собраны только (   Читать дальше...   )Жанр: Детская литература, СказкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7974F5677177BC765B3F67258CEEADA04EE98BC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569710   (449549) от 14.08.2022
 
 Роальд Даль | Мальчик. Рассказы о детстве (2016) [PDF, FB2, EPUB, MOBI]
@@ -6,7 +59,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449549.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449440.jpg" />
 </div>
 
 
@@ -61,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449411.jpg" />
 </div>
 
 
@@ -88,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449310.jpg" />
 </div>
 
 
@@ -115,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449148.jpg" />
 </div>
 
 
@@ -142,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449020.jpg" />
 </div>
 
 
@@ -168,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448699.jpg" />
 </div>
 
 
@@ -194,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448675.jpg" />
 </div>
 
 
@@ -222,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448646.jpg" />
 </div>
 
 
@@ -248,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448550.jpg" />
 </div>
 
 
@@ -274,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447479.jpg" />
 </div>
 
 
@@ -300,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447472.jpg" />
 </div>
 
 
@@ -326,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447470.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447465.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447221.jpg" />
 </div>
 
 
@@ -406,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447207.jpg" />
 </div>
 
 
@@ -432,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447193.jpg" />
 </div>
 
 
@@ -458,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447121.jpg" />
 </div>
 
 
@@ -484,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447022.jpg" />
 </div>
 
 
@@ -511,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447009.jpg" />
 </div>
 
 
@@ -537,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446995.jpg" />
 </div>
 
 
@@ -564,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446988.jpg" />
 </div>
 
 
@@ -591,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446924.jpg" />
 </div>
 
 
@@ -618,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446921.jpg" />
 </div>
 
 
@@ -630,59 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD398920202951309E409E13FFE4A2B5F854877A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061702   (446758) от 11.10.2016
-
-Юрий Бриль | Рядом с зоопарком (1987) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446758.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая книга свердловского литератора, известного читателю по книге «Не троньте лошадей», знакомит с миром подростка, с его увлечениями, интересами. Автор стремится помочь читателю определить грань, которая разделяет добро и зло, правду и неправду, творческое и потребительское отношение к жизни.Жанр: Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74F2E5C0B82A2454569504EFF35678039C7F64F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943773   (446476) от 04.10.2015
-
-А.Вертягина (ред.) | Англо-русский визуальный словарь для детей (2015) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446476.jpg" />
-</div>
-
-
-###  Подробнее
-
-астоящий словарь содержит более 1200 английских слов с переводом и транскрипцией русскими буквами. Слова сгруппированы по темам: Животные, Растения, Люди, Искусство, Книги, Спорт, Транспорт и т. п. Таким образом, представленная лексика охватывает практически все сферы деятельности человека, а также основные понятия, относящиеся к окружающему миру.
-В книге содержится (   Читать дальше...   )Жанр: Иностранный язык детямФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EC0A5204006772B3245B3E50844F6CAAA5B7FC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

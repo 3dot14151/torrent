@@ -6,7 +6,7 @@
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665937.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664793.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ ONUKA и НАОНИ (06.04.2017) WEB-DL [H.264/1080p-LQ] [UKR]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664095.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662031.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661920.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661771.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Bon Jovi: Live at Madison Square Garden (2009) BDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_661421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_661421.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Abel Almena feat Bearlin. Maybe Im Right (2012) [720p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660496.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660453.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660184.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Royal Hunt - 2016 (25 Anniversary) (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660000.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Ken Hensley: Blood On The Highway, Albert Hall (2007) [720] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_658693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_658693.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Lightning In a Bottle - A One Night History of the Blues (2003) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658266.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657969.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ VA - Official UK Top 40 Video Chart (30-05-2015) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657478.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657423.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ UK - Curtain Call (2015) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656684.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ DVJ Bazuka - Summer Love (2012) [720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656622.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655763.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ UK - Curtain Call (2015) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655737.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Rammstein - Paris (2017) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655608.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Rammstein - Paris (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654486.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Metallica: Orion Music Festival 2012: The Black Album (2012) [1080i] HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_654225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_654225.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653593.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653223.jpg" />
 </div>
 
 
@@ -716,7 +716,7 @@ Rammstein - Paris (2017) BDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651957.jpg" />
 </div>
 
 

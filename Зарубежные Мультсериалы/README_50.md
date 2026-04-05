@@ -1,3 +1,57 @@
+###  Публикация: 1432957   (161880) от 19.12.2020
+
+Остров летнего лагеря / Summer Camp Island (2018) WEB-DL, WEBRip [H.264/1080p-LQ] (Сезон 1-2, Серии 1-60 из ??) SDI Media
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оскар отправляется на лето в летний детский лагерь на острове. Однако остров оказывается волшебным, населённым ведьмами, волшебными монстрами, йети, привидениями, единорогами, говорящими животными и ожившими вещами. Оскар привыкает к новой обстановке вместе со своей лучшей подругой — Ёжик. Вместе они исследуют чудеса острова и должны противостоять компании ведьм, (   Читать дальше...   )Производство: США | «Cartoon Network Studios»Жанр: Приключения, Комедия, ФэнтезиРежиссер: Ники ЯнгПеревод: Дублированный (SDI Media Russia)Субтитры: русские форсированные (на непереведённые места), русские (AnCas), английские (SDH)Продолжительность: ~ 00:11:22 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03ED9EE6E460487B1AD356D67EFF5CFD78FA7A67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261276   (161581) от 04.11.2023
+
+Арчер / Archer (2009-2018) WEB-DLRip [H.264/720p-LQ] (Сезон 1-9, серии 1-101 из 101) Кубик в Кубе & БЯКО Рекордс
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161581.jpg" />
+</div>
+
+
+###  Подробнее
+
+В международном шпионском агентстве ISIS любой мировой кризис — лишь предлог для высококлассных секретных агентов посоревноваться между собой в обмане и предательстве. Главным героем мультсериала является спецагент Стерлинг Арчер, известный также под кодовым именем «Герцогиня». На службе Арчеру приходится мириться со своей эксцентричной мамашей/начальницей — Мэлори, (   Читать дальше...   )Производство: США / FX NetworkЖанр: Для взрослых, Шпионская комедияРежиссер: Брайан Фордни, Адам РидПеревод: Многоголосый закадровый, профессиональный (Кубик в Кубе & БЯКО Рекордс)Субтитры: Русские (Кроме 8 сезона)
+
+Внимание! Присутствует ненормативная лексика.Продолжительность: 101х ~00:20:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:729E144106ADC285235867EB6098BA55FE11832F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285563   (161231) от 17.12.2021
 
 Генлок / gen:Lock (2019) WEBRip (сезон 1, серии 1-8 из 8)  [H.264/1080p-LQ] NewStation
@@ -6,7 +60,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161231.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161229.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161069.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160740.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160538.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160509.jpg" />
 </div>
 
 
@@ -162,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160496.jpg" />
 </div>
 
 
@@ -188,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160333.jpg" />
 </div>
 
 
@@ -214,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160015.jpg" />
 </div>
 
 
@@ -240,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159692.jpg" />
 </div>
 
 
@@ -266,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159597.jpg" />
 </div>
 
 
@@ -292,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159549.jpg" />
 </div>
 
 
@@ -318,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158862.jpg" />
 </div>
 
 
@@ -344,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158744.jpg" />
 </div>
 
 
@@ -370,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158727.jpg" />
 </div>
 
 
@@ -396,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157993.jpg" />
 </div>
 
 
@@ -422,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157583.jpg" />
 </div>
 
 
@@ -448,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_157571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_157571.jpg" />
 </div>
 
 
@@ -474,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157430.jpg" />
 </div>
 
 
@@ -500,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157249.jpg" />
 </div>
 
 
@@ -526,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157158.jpg" />
 </div>
 
 
@@ -552,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157099.jpg" />
 </div>
 
 
@@ -578,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156978.jpg" />
 </div>
 
 
@@ -604,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156739.jpg" />
 </div>
 
 
@@ -615,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A828934B1FDEED3714243A09D601B8B29F27C0AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508540   (156633) от 18.12.2021
-
-Корпорация «Заговор» / Inside Job (2021) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-10 из 10) NewStation
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Люди-ящерицы? Правда. Высадка на Луне? Фикция. Нескладная учёная и ее незадачливая команда каждый день имеют дело с тайными сообществами и теориями заговора.Производство: США, Bento Box Entertainment, Neptoon Studios, Netflix AnimationЖанр: Для взрослых, фантастика, фэнтези, комедияРежиссер: Пит Мишелс, Виталий Строкоус, Майк ХоллингсвортАктеры: Уилл Блэгроув, Тиша Кэмпбелл, Лиззи Каплан, Эндрю Дэйли, Джон Ди Маджио, Кларк Дьюк, Бретт Гельман, Бобби Ли, Кристиан СлэйтерПеревод: Многоголосый профессиональный (NewStation) - Присутствует ненормативная лексика!Субтитры: русские, украинские, английские, испанские, норвежские, индонезийские, греческие, румынские, немецкие, тайские, японские, итальянские, португальские, китайские, финские, шведские, ивритские, арабские, голландские, датские, польские, турецкие, корейские, французскиеПродолжительность: ~00:30:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B55D0D56017B3E32D042B794157E5E72A7B34B44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508538   (156605) от 18.12.2021
-
-Корпорация «Заговор» / Inside Job (2021) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-10 из 10) NewStation
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Люди-ящерицы? Правда. Высадка на Луне? Фикция. Нескладная учёная и ее незадачливая команда каждый день имеют дело с тайными сообществами и теориями заговора.Производство: США, Bento Box Entertainment, Neptoon Studios, Netflix AnimationЖанр: Для взрослых, фантастика, фэнтези, комедияРежиссер: Пит Мишелс, Виталий Строкоус, Майк ХоллингсвортАктеры: Уилл Блэгроув, Тиша Кэмпбелл, Лиззи Каплан, Эндрю Дэйли, Джон Ди Маджио, Кларк Дьюк, Бретт Гельман, Бобби Ли, Кристиан СлэйтерПеревод: Многоголосый профессиональный (NewStation) - Присутствует ненормативная лексика!Субтитры: русские, украинские, английские, испанские, норвежские, индонезийские, греческие, румынские, немецкие, тайские, японские, итальянские, португальские, китайские, финские, шведские, ивритские, арабские, голландские, датские, польские, турецкие, корейские, французскиеПродолжительность: ~00:30:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E6D991DDAB58FB441E2D6B40D51DD8442A73796
 ```
 
 https://mybot314.ru/tekegram_catalog/

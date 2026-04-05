@@ -6,7 +6,7 @@ Viasat History. Рим: Первая сверхдержава / Rome: The World'
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786063.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NG: От колыбели до могилы / Cradle to Grave (2016) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785892.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785571.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785563.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ PBS: Истории из королевского гардероба Люси У
 >>PBS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785558.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Discovery: Забытая инженерия / Abandoned Engineering (2016) HDTV
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785494.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ NG: Тайна гималайских мумий / Mystery of the Himalayan Mumm
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785370.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784603.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784473.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Discovery. Астронавты SpaceX: первый полёт / Space Launch: 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784459.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Discovery. Законы акульего мира / The laws of Jaws (2018) HDTV
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784192.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Discovery. Астронавты SpaceX: первый полёт / Space Launch: 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784181.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Discovery. Астронавты SpaceX: первый полёт / Space Launch: 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784180.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ NGW: Королева скорости / Queen of the chase (2016) HDTVRip [H.26
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784032.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ NGW: Дикая Шотландия / Wild Scotland (2013-2016) HDTVRip [H.264/72
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783746.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ History Channel: В изоляции. Монголия / Alone. Mongolia (2018) 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782216.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782057.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ BBC: Краш-диета: Большой эксперимент / The Big Crash 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781819.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ History Channel: В изоляции. Один шанс на двоих / Alone 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781788.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ NG: Умные Крысы / Rat Genius  (2006) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_781187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_781187.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Animal Planet & BBC: Муравьи - убийцы /  Killer Ants (2002) TVRip
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_781104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_781104.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780926.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ NGW: Потерянные миры Индии / India's Lost Worlds (2015) HDTVR
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780520.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ History Channel: Китай. Тайны Запретного города / Secr
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780508.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ BBC: Как найти любовь по интернету / How to Find Love O
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780220.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779943.jpg" />
 </div>
 
 

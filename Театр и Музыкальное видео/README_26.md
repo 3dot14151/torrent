@@ -6,7 +6,7 @@ Anna Tatangelo - Occhio Per Occhio (2013) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909438.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ London Philharmonic Orchestra & Rowan Atkinson (2012) HDTV [H.264/1080i]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909339.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VA - Коллекция клипов Rock, Metal, Heavy Metal (2012 - 2015) DVDR
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909286.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908788.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Ozzy Osbourne - 4 Видеоклипа (2019-2020) WEB-DL [H.264, 1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908696.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Alisher - Money (2013) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907830.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Vocal Dj Esther - Crazy For You (2013) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907822.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Austin Mahone Say You're Just A Friend ft Flo Rida (2013) [H.264/1080p] WEB-DLRi
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907713.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Justin Timberlake Suit & Tie (Official video) ft JAY Z (2013) [H.264/1080p WEB-D
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907649.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Louna - Проснись и Пой! (live) (2013) 2*DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907461.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Коллекция клипов в авто (ZAP_part4) (2DIN) (2015 - 2016
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907446.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907183.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Lindsey Stirling - Crystallize (2012) [1080i] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907129.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906869.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ James Last - Live at the Royal Albert Hall (2007/2013) Blu-Ray->DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906721.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906622.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Lemmy - The Legend of Motorhead (2010) BDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906557.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Metallica -  Live Earth. London (2007) HDTV [MPEG-2/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906490.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906167.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ The Saturdays - What About Us (2013) WEB-DLRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906004.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ DJ Smash  DJ Miller feat. Anya - Angels (2013) WEB-DLRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905916.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Nicole Scherzinger - Boomerang (2013) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905871.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Aida Arami - Diamond (2013) WEB-DLRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905867.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Depeche Mode - Heaven (2013) WEB-DLRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905758.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Die Kreatur - Die Kreatur (2020) WEB-DLRip [VP9/2160p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905554.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904643.jpg" />
 </div>
 
 

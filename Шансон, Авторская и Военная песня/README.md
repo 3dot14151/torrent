@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1861236   (1063178) от 
+
+Пламенеющий феникс - Беспризорница (2026) AI-generated content [MP3|320 Kbps] <Chanson, Pop>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Беспризорница [00:03:40]
+02 - Оля [00:04:41]
+03 - Индийское диско [00:04:49]
+04 - Не дождалась [00:04:34](   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3239969EEE1E1DBB73BE4D8DCC8E484CB8998233
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860663   (1062258) от 
 
 Анатолий Таволжанский - Временно живой (2026) [MP3|320 Kbps] <Chanson, Pop>
@@ -7,7 +36,7 @@ https://t.me/izofen
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062258.jpg" />
 </div>
 
 
@@ -36,7 +65,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062256.jpg" />
 </div>
 
 
@@ -65,7 +94,7 @@ VA - 50 песен радио шансон, Часть 10 (2026) [FLAC|Lossless|
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061619.jpg" />
 </div>
 
 
@@ -94,7 +123,7 @@ VA - Новые хитовые песни 2026, Часть 3 (2026) [FLAC|Lossle
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061618.jpg" />
 </div>
 
 
@@ -123,7 +152,7 @@ VA - Шансон премьера 2026 март (Новые песни. Нов�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061607.jpg" />
 </div>
 
 
@@ -152,7 +181,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061286.jpg" />
 </div>
 
 
@@ -181,7 +210,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061214.jpg" />
 </div>
 
 
@@ -210,7 +239,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060842.jpg" />
 </div>
 
 
@@ -239,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060517.jpg" />
 </div>
 
 
@@ -268,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060515.jpg" />
 </div>
 
 
@@ -297,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060514.jpg" />
 </div>
 
 
@@ -326,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060512.jpg" />
 </div>
 
 
@@ -355,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060511.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060510.jpg" />
 </div>
 
 
@@ -413,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060509.jpg" />
 </div>
 
 
@@ -442,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059676.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059675.jpg" />
 </div>
 
 
@@ -500,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059674.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ VA - Волчий шансон: Сборник крутых песен otKOSTETa
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059601.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ VA - Колючий Шансон: Сборник крутых песен otKOSTE
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059598.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ VA - Новые хитовые песни 2026, Часть 2 (2026) [FLAC|Lossle
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059596.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ VA - Слушаем шансон (Лучшие песни), Часть 1 (2026) 
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059595.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ VA - Слушаем шансон (Лучшие песни), Часть 2 (2026) 
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059594.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ VA - Слушаем шансон (Лучшие песни), Часть 4 (2026) 
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059592.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ VA - Слушаем шансон (Лучшие песни), Часть 5 (2026) 
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059590.jpg" />
 </div>
 
 
@@ -717,35 +746,6 @@ VA - Слушаем шансон (Лучшие песни), Часть 5 (2026) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:675F44E06A3D2D9DC2B643517DEFD40E5826846F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857222   (1059589) от 04.03.2026
-
-VA - Шансон 90-х, Часть 4 (Избранные песни десятилетия) (2026) [FLAC|Lossless|WEB-DL|tracks] <Шансон, Поп, Русская Эстрада>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mikhail Krug - Фраер (Ремастеринг 2017) (2:54)
-02.  Иван Кучин - В таверне (4:22)
-03.  Катя Огонёк - Я ревную тебя (4:40)
-04.  Владимир Асмолов - Я иду в кабак (3:14)(   Читать дальше...   )Жанр: Шансон, Поп, Русская ЭстрадаПродолжительность: 02:10:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DE40583E8241F91E7228D5551A8740A1BB54944
 ```
 
 https://mybot314.ru/tekegram_catalog/

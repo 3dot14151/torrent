@@ -1,3 +1,61 @@
+###  Публикация: 1090245   (947690) от 06.01.2017
+
+VA - Deep House Christmas Selection (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Pirupa - I Can C through U (Original Mix) 6:17
+02.  Luca Elle - Tormento 5:58
+03.  Barbara Tucker - You Want Me Back (Paolo Madzone Zampetti 2015 Vibe Rmx) 6:41
+04.  Dennis Cialella - Don't Stop Movin' (feat. Andrea Carnell) (Vinnie Campisi Minimal Mix) 7:42(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:23:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF5DB3452FCABE5D21BAE451F6286F5105EC46DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090337   (947600) от 06.01.2017
+
+VA - Re-Fresh The 90s: Club Classics (2017) [MP3|320 Kbps] <House, Euro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lovestation - Teardrops (Flava 12' Mix) 6:31
+02.  Strike - U Sure Do (Guest List 12' Mix) 7:23
+03.  Serious Danger - Deeper (Pt. 1) 6:37
+04.  Mr Roy - Something About U 7:37(   Читать дальше...   )Жанр: House, Euro HouseПродолжительность: 06:23:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B27C2C0CA350B1586E49D5FD852A7ADE10EFEE07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090520   (947535) от 06.01.2017
 
 VA - Milano Fashion Week (Deep House Selection) (2017) [MP3|320 Kbps] <Deep House>
@@ -6,7 +64,7 @@ VA - Milano Fashion Week (Deep House Selection) (2017) [MP3|320 Kbps] <Deep Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947535.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Eric Prydz - Opus (2016) [MP3|320 кб/с] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946710.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - OPTICA (Mixed by Dj Бинокль) (2004) [MP3|320 Kbps] <House, Spanish T
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946631.jpg" />
 </div>
 
 
@@ -90,7 +148,7 @@ DJ Woofer - Deep & Sexy Vol.02 (2005) [MP3|320 Kbps] <House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946581.jpg" />
 </div>
 
 
@@ -116,7 +174,7 @@ VA - Armada Deep Top 10. January (2017) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946137.jpg" />
 </div>
 
 
@@ -145,7 +203,7 @@ VA - Winter 2017: Best Of Inception (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946093.jpg" />
 </div>
 
 
@@ -174,7 +232,7 @@ John Dahlback - Saga (2016) [MP3|320 кб/с] <Electro House, Progressive House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945548.jpg" />
 </div>
 
 
@@ -203,7 +261,7 @@ VA - Best of Aethereal 2016 (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943133.jpg" />
 </div>
 
 
@@ -232,7 +290,7 @@ Dj Бинокль - Смотри В Оба - Голос Клубного Дне�
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942657.jpg" />
 </div>
 
 
@@ -259,7 +317,7 @@ VA - Dj Бинокль - Housemission II (PlayOff) (2004) [MP3|320 Kbps] <House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942647.jpg" />
 </div>
 
 
@@ -288,7 +346,7 @@ Dj Бинокль - Dnepro House (2001) [MP3|320 Kbps] <House, Euro House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942637.jpg" />
 </div>
 
 
@@ -315,7 +373,7 @@ VA - Dj Бинокль - Love and Tears (2003) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942627.jpg" />
 </div>
 
 
@@ -344,7 +402,7 @@ Dj Бинокль - Housemission (2000) [MP3|320 Kbps] <House, Speed Garage, Pro
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942617.jpg" />
 </div>
 
 
@@ -371,7 +429,7 @@ VA - Dj Бинокль - Fucking Society (2002) [MP3|320 Kbps] <House, Euro Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942542.jpg" />
 </div>
 
 
@@ -400,7 +458,7 @@ VA - Waiting For Chillout (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940302.jpg" />
 </div>
 
 
@@ -429,7 +487,7 @@ VA - House Vip (09.02.10) [MP3|128 - 320 kbps]<Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939275.jpg" />
 </div>
 
 
@@ -464,7 +522,7 @@ VA - Best Release Of The Season (2016) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937425.jpg" />
 </div>
 
 
@@ -493,7 +551,7 @@ VA - House Seduction  Vol.11 (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937419.jpg" />
 </div>
 
 
@@ -522,7 +580,7 @@ Will Fast - The Greatest Hits (2017) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937417.jpg" />
 </div>
 
 
@@ -551,7 +609,7 @@ VA - Candybeach Compilation 2016 (2017) [MP3|320 Kbps] <House, Tech House, Deep 
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937411.jpg" />
 </div>
 
 
@@ -580,7 +638,7 @@ VA - Bodybuilding Girly Edition 2016 Top 50 (2016) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937328.jpg" />
 </div>
 
 
@@ -609,7 +667,7 @@ VA - Lifting Makes You Strong Check into the Gym (2020) [MP3|320 Kbps] <House, T
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936406.jpg" />
 </div>
 
 
@@ -638,7 +696,7 @@ VA - The Sound Of Trice (Mixed By Vigel) (2016) [MP3|320 Kbps] <House, Electro H
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934026.jpg" />
 </div>
 
 
@@ -667,7 +725,7 @@ VA - Jack The PlaceUp (2016) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934024.jpg" />
 </div>
 
 
@@ -681,64 +739,6 @@ VA - Jack The PlaceUp (2016) [MP3|320 Kbps] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCA6455BA934C98DEB1FDFC811C1BDCED46E668D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365082   (933811) от 05.03.2020
-
-VA - Urban Sports Music, Vol. 3 (2019) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hr. Troels - 6am (Radio Edit) [04:03]
-02. DualXess - Why Don't You (Radio Cut) [02:52]
-03. L4ndy - Feel the Force (Radio Edit) [02:53]
-04. Dacos and Lucas Crapanzano - Ronker (Lucas Likes This Radio Cut) [03:49](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:57:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91130C5E9476C30EB0D861B301F7CDE03DF11339
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365078   (933810) от 05.03.2020
-
-VA - Urban Sports Music, Vol. 1 (2019) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rayman Rave - My Freedom (Radio Edit) [03:15]
-02. Trillogee and Taw feat. Gemeni - Tnt (Happy Gangsters Remix Edit) [03:36]
-03. L4ndy - Party Animals (Radio Edit) [02:51]
-04. Edher Torres - If You Sexy (Radio Edit) [02:43](   Читать дальше...   )Жанр: HouseПродолжительность: 01:56:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:187BFCBF9D5F455979C89363367BA06DA0E60B62
 ```
 
 https://mybot314.ru/tekegram_catalog/

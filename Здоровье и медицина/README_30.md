@@ -1,29 +1,3 @@
-###  Публикация: 595459   (132650) от 28.12.2012
-
-О.Д.Барнаулов и др. | Лекарственные свойства пряностей [2001] [PDF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132650.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге подробно освещены целебные свойства более 50 видов пряноароматических растений от знакомых всем лука, чеснока, листа лавра благородного до менее известных, например, куркумы, аж-гона, галганта. Приведены рецепты сборов с использованием пряностей для лечения больных различными заболеваниями, примеры их применения в практике авторов.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3BE490D3517E86BB46D23E1615816BC68CC41BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 596850   (130830) от 31.12.2012
 
 Л.Рудницкий | Карманный справочник медицинских анализов [2012] [FB2]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130830.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130815.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127869.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124403.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123974.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123285.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102262.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102247.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89299.jpg" />
 </div>
 
 
@@ -269,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89178.jpg" />
 </div>
 
 
@@ -295,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88345.jpg" />
 </div>
 
 
@@ -321,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85281.jpg" />
 </div>
 
 
@@ -347,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85258.jpg" />
 </div>
 
 
@@ -374,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84915.jpg" />
 </div>
 
 
@@ -400,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83295.jpg" />
 </div>
 
 
@@ -426,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82652.jpg" />
 </div>
 
 
@@ -452,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81778.jpg" />
 </div>
 
 
@@ -479,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75817.jpg" />
 </div>
 
 
@@ -505,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70128.jpg" />
 </div>
 
 
@@ -531,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69458.jpg" />
 </div>
 
 
@@ -557,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65259.jpg" />
 </div>
 
 
@@ -584,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61973.jpg" />
 </div>
 
 
@@ -612,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61296.jpg" />
 </div>
 
 
@@ -639,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60489.jpg" />
 </div>
 
 
@@ -665,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59623.jpg" />
 </div>
 
 
@@ -677,6 +651,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B5C36BCE9EC6FBD883C6F0F9ADE4654BBBD0671
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180094   (58278) от 28.04.2024
+
+Ю.В. Гольдблат | Точечный и линейный массаж в неврологии (1989) [PDF, DJVU, DOCX]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58278.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены методики точечного и линейного массажа при лечении больных с нервными и психоневрологическими заболеваниями. Описаны приемы поиска точек акупунктуры тела и ушной раковины. Даны рекомендации по сочетанию массажа с другими видами лечения.
+Для массажистов, инструкторов ЛФК и медсестер кабинетов рефлексотерапии.Жанр: МедицинаИздательство: МедицинаФормат: PDF, DJVU, DOCXКачество: Удовлетворительный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBEAD05207888DC61D40F01D200F700C786FB8D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

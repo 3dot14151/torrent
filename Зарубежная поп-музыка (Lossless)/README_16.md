@@ -6,7 +6,7 @@ VA - Tulum Za Dusu Vol.9 - U Konobi (2012) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902719.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Weeknd - After Hours (2020) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <R'
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901507.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Hardstyle Top 200 The Giga - Hardstyle Megamix Collection Vol. 10 (2017) 4C
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899537.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Icehouse - The Best Of (2013) Compilation [FLAC|Lossless|tracks + .cue] <Synth-p
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899349.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Radio 538: Hitzone 80 (2017) 2CD [FLAC|Lossless|image + .cue] <Dance, pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897526.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Little Dragon - New Me, Same Us (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896915.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Lady Gaga - Dawn Of Chromatica (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895374.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Romantic Collection vol.1 (2000) [FLAC|Lossless|image + .cue] <Pop, Rock, E
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895232.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Smokey - Alice, Who The F*** Is Alice (Unknown) [FLAC|Lossless|image + .cue] <Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893855.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ ABBA - Still Have Faith In You, Don't Shut Me Down (2021) [FLAC|Lossless|WEB-DL|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893680.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Waxahatchee - Saint Cloud (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893513.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ VA - Radio 538: Hitzone 72 (2015) 2CD[FLAC|Lossless]<Pop, Dance, Top40>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892594.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Engelbert Humperdinck - Forgotten Promises [1967 – 1975] (2021) [FLAC|Lossless
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892323.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Johnny Hates Jazz - Tall Stories (1991) [FLAC|Lossless|image + .cue] <Pop Rock, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891574.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Gen X (Generation X) - Kiss Me Deadly (1981) Reissue, 2005, EMI [FLAC|Lossless|i
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891565.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ VA - Die Hit-Giganten - Partyklassiker (2005) 2CD, Compilation [FLAC|Lossless|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891546.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Eighth Wonder - Fearless (1988) Reissue, 2010, Cherry Pop [FLAC|Lossless|image +
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891442.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ VA - Die Hit-Giganten: Best of Disco (2013) Box Set, 3CD [FLAC|Lossless|image + 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891322.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ VA - BRAVO Hits 88 (2015) [FLAC|Lossless]<Pop, Rock, Dance, R&B>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890832.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ ABBA - Still Have Faith In You, Don't Shut Me Down (2021) [FLAC 2.0|96/24|tracks
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890494.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Alizee - 5 (2013) [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890268.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ The Twins - Hold On To Your Dreams (1987) Remastered, 2003, Passion Factory Reco
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889825.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Wax - A Hundred Thousand In Fresh Notes (1989) [FLAC|Lossless|WEB-DL|tracks] <Ne
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889795.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ VA - Die Hit-Giganten - Sommerhits (2007) 2CD, Compilation [FLAC|Lossless|tracks
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889641.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ Wax - Magnetic Heaven (1986) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Pop Rock, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889631.jpg" />
 </div>
 
 
@@ -727,7 +727,7 @@ Halsey - If I Can’t Have Love, I Want Power (Target Exclusive) (2021) [FLAC 2.
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888980.jpg" />
 </div>
 
 

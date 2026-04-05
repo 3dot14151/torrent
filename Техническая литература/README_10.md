@@ -1,3 +1,55 @@
+###  Публикация: 1023471   (713066) от 10.06.2016
+
+С.Б. Шмаков | Краткий справочник домашнего электрика (2015) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сегодня нужны современные подходы, новые решения и элементная база электросети квартиры, дачи, коттеджа, загородного дома. Эта практическая книга знакомит читателя с устройством, проектированием, монтажом, правилами безопасной эксплуатации, обслуживанием, ремонтом электросети современного жилища. Подробно описаны светодиодные лампы и ленты, элементы защиты, приборы (   Читать дальше...   )Жанр: ЭлектротехникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58D85A4F2257C59DDAF89BCBE189CAD15E657910
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 301859   (712493) от 02.03.2019
+
+В. Мелешин | Транзисторная преобразовательная техника (2005) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712493.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изложены принципы преобразований электрической энергии, выполняемых импульсными транзисторными устройствами. В книге учтены последние достижения в данной области техники, позволяющие создавать устройства и системы высокой надежности, малого объема, рассеивающих минимальную мощность и создающих благоприятные условия работы первичной сети. Приведено большое количество (   Читать дальше...   )Жанр: Радиоэлектроника, электротехникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03E14ACD57EB2DC324E53131A020970D6FEBDC19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 11145   (712408) от 02.03.2019
 
 Ремонт CD-проигрывателей. Мастерская радиолюбителя
@@ -6,7 +58,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712408.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712018.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711866.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710736.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710630.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710610.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710432.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710386.jpg" />
 </div>
 
 
@@ -222,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710363.jpg" />
 </div>
 
 
@@ -249,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709829.jpg" />
 </div>
 
 
@@ -276,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708621.jpg" />
 </div>
 
 
@@ -302,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708363.jpg" />
 </div>
 
 
@@ -328,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706785.jpg" />
 </div>
 
 
@@ -355,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706676.jpg" />
 </div>
 
 
@@ -381,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706672.jpg" />
 </div>
 
 
@@ -408,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706614.jpg" />
 </div>
 
 
@@ -434,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706464.jpg" />
 </div>
 
 
@@ -461,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706396.jpg" />
 </div>
 
 
@@ -488,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706319.jpg" />
 </div>
 
 
@@ -514,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706239.jpg" />
 </div>
 
 
@@ -540,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706227.jpg" />
 </div>
 
 
@@ -566,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704608.jpg" />
 </div>
 
 
@@ -593,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704598.jpg" />
 </div>
 
 
@@ -620,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704594.jpg" />
 </div>
 
 
@@ -632,59 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14EEB5157BBB98AF4FDD844EEBE0711F5F072C0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131926   (704528) от 07.05.2017
-
-И.В. Малеткин | Внутренние электромонтажные работы (2012) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704528.jpg" />
-</div>
-
-
-###  Подробнее
-
-Описывается весь цикл производства внутренних электромонтажных работ. Подробно рассмотрены все организационные мероприятия(планирование, контроль, техника безопасности, сдаточная документация и т.д.), а также все современные технологии, используемые в монтаже.
-   Книга предназначена для руководителей, инженерных работников и электромонтажников. Издание также будет полезно (   Читать дальше...   )Жанр: Строительство, ремонтФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47AABF12004D369EBEF22D64F876639F9D84BF1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132398   (702586) от 08.05.2017
-
-В.В. Штыков | Букварь молодого радиста или введение в радиоэлектронику (2012) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Излагаются современные представления о радиотехнике как средстве передачи, приема, обработки и хранения информации. Описаны исторические папы развития информационных технологий в их неразрывном единстве с развитием средств связи. Формируются начальные представления о сигнала и их математических моделях. Рассмотрены наиболее важные свойства гармонических колебаний (   Читать дальше...   )Жанр: РадиоэлектроникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DCE60DC549A7639A6B832F9867CB670082C6EFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

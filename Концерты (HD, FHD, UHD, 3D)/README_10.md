@@ -6,7 +6,7 @@ Jean-Michel Jarre - Welcome to the Other Side (Live In Notre Dame VR) (2021) BDR
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813680.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812882.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812728.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Nightwish - Vehicle of Spirits (2016) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812626.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811076.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810746.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ ZZ Top - Live From Texas (2008) [1080p] BDRemux
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810616.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810206.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Noize MC - Концерт на платформе МТС Live (2020) WEB-DLRip [
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809964.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809827.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Noize MC - Концерт на платформе МТС Live (2020) WEB-DLRip [
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809694.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808017.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807863.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Evanescence Live at The Tonight Show With Jay Leno & Evanescence Live at Conan  
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807559.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Metallica: Francais pour une nuit (2009) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806869.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Queen - Rock Montreal & Live Aid (1981) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802780.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Andrea Bocelli - Cinema (2016) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802029.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800116.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Yello - Live At Montreux Jazz Festival (2020) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798935.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Alice Cooper - A Paranormal Evening At The Olympia Paris (2021) WEBRip [H.264/72
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798670.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Yello - Live in Berlin (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798389.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797960.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797775.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797762.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Wink Live. ДДТ - История звука (22.05.2020) WEBRip [H.264/1080p-L
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795777.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795532.jpg" />
 </div>
 
 

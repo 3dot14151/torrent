@@ -6,7 +6,7 @@ Melody Gardot - Live at the Olympia Paris (2015) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727237.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727069.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726607.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726537.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Pink Floyd - Delicate Sound Of Thunder (1989) HDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726248.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725525.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724990.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724749.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724425.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724087.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Within Temptation - Mother Earth Tour (2002) DVDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723956.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723735.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Within Temptation - Black Symphony (2008) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723528.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723467.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722675.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722602.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ OneRepublic: One Night in Malibu (2021) WEBRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722600.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722584.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722476.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721725.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721613.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Lisa Stansfield - Live In Birmingham '1990 (1990) DVD5 [hand made]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721393.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721372.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Lisa Stansfield - Live At The Royal Albert Hall (1994) DVD5 [hand made]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721263.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721208.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720944.jpg" />
 </div>
 
 

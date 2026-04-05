@@ -1,3 +1,107 @@
+###  Публикация: 1457720   (1024393) от 26.03.2021
+
+YAATA SMS 1.44.10.21936 Mod by papasha55, unz1p, solokot, Uksus17, Mare12 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024393.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это SMS / MMS приложение, которое имеет много функций. Вы можете персонализировать и настроить это приложение станет вашим идеальным приложением. YAATA СМС является очень мощным, надежным и быстрым приложением которое находится на другом уровне. Даже с учетом всех захватывающих особенностей это приложение размером всего 3 МБ. Это приложение SMS очень удобное и удовлетворяет (   Читать дальше...   )Тип издания: Premium + ModsРелиз состоялся: 22.03.2021Разработчик: Kajo AndroDevПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF510E55C022A865BBF8C8BDC92F634C609A7526
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458123   (1024061) от 28.03.2021
+
+Церковные службы и молитвослов v7.0.3 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молитвослов — очень удобное подспорье для всех православных, желающих познать свою Веру. В этом приложении собрано огромное число различных молитв, служб и прочих религиозных канонических материалов.Тип издания: Mod (Premium версия)Релиз состоялся: 23 марта 2021 г.Разработчик: Алексей ГусевПоддерживаемая ОС: Android 4.0 и вышеЯзык интерфейса: Русский есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADC3D0758BE272324321E7D3779BB52221DFE70C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458215   (1024049) от 28.03.2021
+
+AutoResponder for WA / Автоответчик для WhatsApp v1.9.9 [Ru/Multi] (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024049.jpg" />
+</div>
+
+
+###  Подробнее
+
+При помощи этого бота вы сможете автоматически отвечать на индивидуальные полученные сообщения WhatsApp или WA Business. Вам предлагается множество возможностей настройки автоматических ответов в соответствии с потребностями. Установите обновление прямо сейчас бесплатно!Тип издания: Пиратка (Mod: получен PREMIUM, удалена реклама и аналитика)Релиз состоялся: 04.03.2021Разработчик: TK StudioПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D72A2B2CCA871D37152B1AA1A5874FBF8395EBB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458110   (1023997) от 28.03.2021
+
+Shadow of Death: Dark Knight - Stickman Fighting v1.100.0.0 [Ru/En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023997.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shadow of Death: Dark Knight - Stickman Fighting - стильный слэшер, в котором игроку нужно управлять рыцарем и убивать всякую нечисть. Вместе с главным героем пользователь отправится в мир, полный мрака и опасностей на каждом шагу.Тип издания: Пиратка (Mod)Релиз состоялся: 23 марта 2021 г.Разработчик: Bravestars GamesПоддерживаемая ОС: Android 5.0 и вышеЖанр: ЭкшенЯзык интерфейса: Русский есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:688017625F72B09A42C45F6B2DD082565D40234F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458114   (1023979) от 28.03.2021
 
 Robot Warfare v0.4.0 [Ru/En]
@@ -6,7 +110,7 @@ Robot Warfare v0.4.0 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023979.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023973.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023951.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Machinarium v2.5.6 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023917.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ ClockWork Tomato v3.7.0 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023799.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ AirDroid v4.2.6.6 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023716.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ Jeejen 3.1.20 Mod by Martin H3 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023656.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ Jasi Patcher 4.11 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023441.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ Tiny Scan: PDF Document Scanner 4.2.10 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023439.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ SwiftScan (Ранее Scanbot) 7.9.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023421.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ Hi-Q MP3 Voice Recorder 2.9.0 Mod by Balatan, Rainontheradio, vars0ug [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023412.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ Spotify Music 8.6.12.986 Mod by Balatan, Sentex, jwwwg [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023192.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023117.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023025.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ Family Coloring book v3.2.1 [En] (обновляемая)
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022879.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ Modern Combat 3: Fallen Nation 1.1.7g [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022346.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ Modern Combat 4: Zero Hour 1.2.3e [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022341.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ Perfect365 One-Tap Makeover v8.57.17 [Ru/Multi] - создание виртуа�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022328.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ Color Grab (Color Detection) 3.9.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022266.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ Alarm Clock Pro 2.9.9 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022242.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ Vimage 3.1.2.2 Mod by derrin, REALY [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022236.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ aCalendar - Android Calendar 2.5.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022235.jpg" />
 </div>
 
 
@@ -565,113 +669,6 @@ aCalendar+ Calendar & Tasks - Простой, и очень качественн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FEB967D24E8B7CB4CD3E97187C372A922E8AE3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460863   (1022224) от 07.04.2021
-
-MiXplorer 6.54.2-Silver Mod by VERGIL777, Mr. Ricatto [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022224.jpg" />
-</div>
-
-
-###  Подробнее
-
-MiXplorer – полнофункциональный менеджер файлов для устройств под операционной системой Android. В нем реализованы все нужные функции для такого рода приложений и еще чутка больше. К примеру, есть возможность работать с FTP и HTTP серверами. Это довольно нестандартные опции, так что они будут весьма полезны опытным пользователям. Для обычных же пользователей есть (   Читать дальше...   )Тип издания: Paid + ModificationsРелиз состоялся: 04.04.2021Разработчик: HOOTAN PARSAПоддерживаемая ОС: Android 2.2+Язык интерфейса: Русский, Английский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BAF09CFF10DA64357EA1EACF912F006264ADD66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461144   (1022073) от 08.04.2021
-
-Partitions Backup & Restore 2.3.0 Mod by mrfrost475 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Partitions Backup & Restore - Храните на смартфоне слишком много важных для вас данных? Не бойтесь их потерять, вместе с этим приложением, это станет практически нереальной задачей. Все что вам нужно, это запустить его, выбрать нужные пункты и создать резервную копию данных. Резервные копии можно хранить на другом устройстве или же карте памяти.Тип издания: Free + Mod (Rus)Релиз состоялся: 10.08.2020Разработчик: WanamПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:983E48661BE6AFCF92FCDE460BF226095C4C5AA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443461   (1021884) от 09.04.2021
-
-Moises v1.3.1 Premium [Ru] - Муз. платформа с ИИ + удалитель вокала
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021884.jpg" />
-</div>
-
-
-###  Подробнее
-
-Развивайте свое музыкальное творчество и практикуйте с помощью приложения Moises. Открывайте для себя секреты ведущих исполнителей с помощью приложения № 1 в мире для разделения музыкальных треков. Отделяйте или извлекайте голос и инструменты из любой песни. Изменяйте высоту тона и скорость в режиме реального времени и мгновенно создавайте метрономные дорожки для (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 30 марта 2021 г.Разработчик: Moises SystemsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7452FB1F87695047F265C4FF281406A7F1847F6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461413   (1021844) от 09.04.2021
-
-English Grammar in Use v1.11.40 [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021844.jpg" />
-</div>
-
-
-###  Подробнее
-
-МИРОВОЙ БЕСТСЕЛЛЕР
-Raymond Murphy’s English Grammar in Use.
-
-Официальное приложение English Grammar in Use, созданное Raymond Murphy. Одно приложение по английской грамматике для изучающих язык среднего уровня на все случаи жизни. Стартовый пакет состоит из шести грамматических разделов (настоящие и прошедшие времена) с объяснениями и интерактивными упражнениями, (   Читать дальше...   )Тип издания: Mod (Unlocked)Релиз состоялся: 14 сентября 2020 г.Разработчик: Cambridge Learning (Cambridge University Press)Поддерживаемая ОС: Android 4.1+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED923A907BBF227652A14CF361116BA493F3366C
 ```
 
 https://mybot314.ru/tekegram_catalog/

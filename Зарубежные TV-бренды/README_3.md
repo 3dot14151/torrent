@@ -6,7 +6,7 @@ BBC. Экватор с Воздуха / Equator from the Air (2020) HDTV [H.264/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018888.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ PBS: Природа. Природа секса / Nature. The Nature of Sex. Sex 
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018697.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ BBC. Google и всемирный мозг / Google and the World Brain (2013) W
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017185.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017178.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016207.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Animal Planet. Неизведанная Мексика / Wild Mexico (2014) HDTV
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014747.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014617.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ BBC: Шкала времени. Кто убил Сталина? / Time watch. Wh
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014263.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013940.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Discovery: Nasa и SpaceX: путешествие в будущее / NASA and S
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013450.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Discovery: Последние тайны долины Царей / Valley of the
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013429.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ NG. Путешествие на край Вселенной / Journey to the Edg
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011739.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011221.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Одиссея Жака Кусто
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010537.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ NGW. Змеи-убийцы / Killer snakes (2021) HDTV [H.264/1080i] [hand made 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010273.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ NGW: Самые смертоносные змеи в мире / World's deadlies
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010094.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ BBC: Символика церквей / Churches: How to Read Them (2010) SATRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010092.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010077.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009757.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ NG: Последствия: Когда Земля перестанет вращ�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009071.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ BBC: Горизонт. Хаббл. Открытие тайн космоса / Ho
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008925.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008665.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Discovery: На дне океана / Expedition Deep Ocean (2021) HDTV [H.264/1
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008646.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007547.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Discovery. Золотой прииск Фредди Доджа / Gold Rush: Fred
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007246.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007239.jpg" />
 </div>
 
 

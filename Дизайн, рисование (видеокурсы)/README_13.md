@@ -1,3 +1,55 @@
+###  Публикация: 1473061   (1013464) от 30.05.2021
+
+Michael Pavlovich | ZBrush 2018 Image Based Lighting (2018) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013464.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этом курсе вы научитесь использовать встроенный рендер Zbrush и разберетесь с созданием освещения на основе HDR изображений. Это обеспечит быстрый и качественный результат. Вы научитесь гибко настраивать свойства материалов, источников освещения и рендер-проходов, что в свою очередь обеспечит красивое финальное изображение при композитинге. Этот относительно короткий (   Читать дальше...   )Жанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 00:43:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABF59BF425B7C22C6284B06B395FEBE1A1809383
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473862   (1013369) от 31.05.2021
+
+Marek Okon | Part Two: Illustrating Colossus (2016) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013369.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во второй части моего цикла уроков под названием "Иллюстрация без границ" я сосредоточусь на создании Киберколосса и покажу вам мой полный процесс работы, через который я прохожу, когда создаю иллюстрации. С самого начала и до конца, со множеством комментариев и принципах дизайна и рисования. Плюс небольшой забавный бонус. Более 4 часов и 20 минут материала.Производство: GumroadЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 04:10:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3094F075A075895A69EF3E2187A71767141341F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1473859   (1013335) от 31.05.2021
 
 Maciej Kuciara | Environment for Video Games: Production Illustration (2014) PCRec [En, Ru]
@@ -6,7 +58,7 @@ Maciej Kuciara | Environment for Video Games: Production Illustration (2014) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013335.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ Jake Parker | How To Draw Everything (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013315.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ Trevor Kerr, Chad Ashley | Guide to Redshift (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013175.jpg" />
 </div>
 
 
@@ -89,7 +141,7 @@ Rich Nosworthy | learn Redshift for Cinema 4D: V02 (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013166.jpg" />
 </div>
 
 
@@ -118,7 +170,7 @@ Udemy, Mrawan Hussain | Создание реалистичного BMW 507 от
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013152.jpg" />
 </div>
 
 
@@ -145,7 +197,7 @@ Terryl Whitlatch | Creature Anatomy (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013135.jpg" />
 </div>
 
 
@@ -173,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012936.jpg" />
 </div>
 
 
@@ -201,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012924.jpg" />
 </div>
 
 
@@ -228,7 +280,7 @@ Digital tutors, Delano Athias | Introduction to Animation in Maya (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012864.jpg" />
 </div>
 
 
@@ -256,7 +308,7 @@ Dice Tsutsumi и Robert Kondo | Painting with Light and Color (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012862.jpg" />
 </div>
 
 
@@ -282,7 +334,7 @@ Daniel Arriaga | Characters for Animated Film (2014) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012861.jpg" />
 </div>
 
 
@@ -309,7 +361,7 @@ Sam Nielson | Fundamentals of Lighting (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012817.jpg" />
 </div>
 
 
@@ -335,7 +387,7 @@ Stephen Silver | Fundamentals of Character Design (2014) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012813.jpg" />
 </div>
 
 
@@ -363,7 +415,7 @@ Udemy, Rob Tuytel | Создание 3D окружения в Blender 2.81 / Cre
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012795.jpg" />
 </div>
 
 
@@ -390,7 +442,7 @@ Justin Marshall | Quick Start to Modeling in Maya.Volume 2 PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012664.jpg" />
 </div>
 
 
@@ -418,7 +470,7 @@ Alan Ayoubi | Мега-курс Adobe Illustrator - от новичка до п�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012613.jpg" />
 </div>
 
 
@@ -444,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012491.jpg" />
 </div>
 
 
@@ -470,7 +522,7 @@ Justin Marshall | Quick Start to Modeling in Maya. Volume 4 PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011959.jpg" />
 </div>
 
 
@@ -497,7 +549,7 @@ Gumroad, Olav3D Tutorials | Упрощённая разработка аддон
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011943.jpg" />
 </div>
 
 
@@ -523,7 +575,7 @@ Justin Marshall | Quick Start to Modeling in Maya.Volume 5 PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011922.jpg" />
 </div>
 
 
@@ -550,7 +602,7 @@ CG Boost, Zach Reinhardt | Blender 2.8 Стартовая площадка / Ble
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011554.jpg" />
 </div>
 
 
@@ -577,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011542.jpg" />
 </div>
 
 
@@ -603,7 +655,7 @@ Jake Parker | Light and Shadow (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010137.jpg" />
 </div>
 
 
@@ -629,7 +681,7 @@ David Malan | Drawing a Portrait (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010117.jpg" />
 </div>
 
 
@@ -640,58 +692,6 @@ David Malan | Drawing a Portrait (2015) PCRec [En, Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B7A3F80E6BAAB74AFD098BCAD32DBD5A761BF57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478764   (1010110) от 20.06.2021
-
-Jake Parker, Will Terry, Ty Carter | Painting Color and Light (2015) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010110.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три лучших художника индустрии научат вас основам теории света и тени покажут, как применить её на практике. На протяжении 8 уроков вы будете изучать техники мастеров цифровой живописи. Умение рисовать - это только первый шаг, добавление цвета и света сделает вашу иллюстрацию яркой и динамичной. Мастера продемонстрируют вам множество различных вариаций освещения (   Читать дальше...   )Производство: School of Visual StorytellingЖанр: Создание видеоПродолжительность: 12:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D7F2D0BF54803F5A5DCEA4B0D596183453E1C3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478721   (1010088) от 20.06.2021
-
-James Paick | Environment Design for Games and Film Vol 1-2 (2014) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010088.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой лекции Джеймс поделится с вами знаниями о композиции, о процессе изучения цветовых оттенков, миниатюрах, пайплайнах и рабочем процессе, о теории цвета, цветовых палитрах и о поиске вдохновения. Эта лекция даст вам уникальную возможность услышать мнение Джеймса о многих принципах и темах, которыми должен овладеть художник, чтобы поднять свою работу на новый (   Читать дальше...   )Производство: Concept Design WorkshopЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 06:01:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBF069E725F9AFFADF71B9678012A045E606A1B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440655.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Permute 3 v 3.9.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440645.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ FontLab 8 v 8.0.1.8249 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440625.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ ApolloOne - Photo Video Viewer 3.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440491.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ DjVu Reader Pro 2.6.7 [Ru/En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440482.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ iFinance 4.4.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440190.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Boinx FotoMagico 5.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440178.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Framer Studio v73 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440106.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Serial Box 10-2013 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440099.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Pacifist 3.5.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440095.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ iA Writer 5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440038.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Smultron 10.1.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440032.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Serial 1.3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440009.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ File Juicer 4.49 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439966.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ TextLab 1.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439901.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Shredo 1.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439874.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ WonderPen 1.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439869.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Audio Hijack 3.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439835.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ FileMaker Server 15.0.2.206 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439789.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Permute 2 v2.5.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439639.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Notability 2.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439606.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ MyBrushes - Sketch, Paint, Design 2.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439604.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Coda 2.5.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439599.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ iShowU Studio 2.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439502.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ VueScan Pro 9.5.85 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439350.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ Sidify Apple Music Converter 1.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439313.jpg" />
 </div>
 
 

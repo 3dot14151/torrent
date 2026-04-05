@@ -6,7 +6,7 @@ Sander Van Doorn & Mark Knight V Underworld - Ten (Director`s Cut) (2013) [H.264
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919808.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mylene Farmer - Je Te Dis Tout (2013) HDTV [H.264/1080i]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919480.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ The Beatles - Video Collection. Vol. 2 (2003) DVDRip [H.264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_919358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_919358.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The Beatles - Video Collection. Vol. 1 (2003) DVDRip [H.264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919301.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Beth Hart -  Live in Brezoi HIGH FIVE ROMANIA (2021) WEBRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918931.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Foreigner - Rockin' at the Ryman (2011) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918847.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918770.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918683.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Mylene Farmer/Милен Фармер – Live 2019 - Le Film (2019) UHD BDRemux
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918498.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ VA - Ultra Music Festival 2012 (Miami, USA) (2012) HDTVRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917991.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Ed Sheeran - Give Me Love (2012) [1080p] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917960.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Alizee - A Cause De L'automne (2012) HDTV [H.264/1080i]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917829.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Big Love Show. Грандиозный концерт ко Дню всех Влю
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917648.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Flyingdick - Китайский квартал (2020) WEB-DL [V9/2160p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917326.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916761.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Pink - The Truth About Love Tour (Live From Melbourne) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916610.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Led Zeppelin: The Song Remains The Same (2007) DVD9 + DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916598.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Led Zeppelin: 2*DVD9 (2003)
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916499.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915994.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Pyogenesis - 8 Music Videos (2015-2020) WEB-DL [VP9/H.264/2160p/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915656.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915564.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Lindemann - Live in St.Petersburg Sibur Arena (2020) WEB-DL [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915428.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Sabaton - 54 Music Videos (2006-2020) WEB-DL [h.264/V9/360p/480p/720p/1080p/2160
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915255.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915150.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915092.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914828.jpg" />
 </div>
 
 

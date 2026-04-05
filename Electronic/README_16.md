@@ -1,3 +1,61 @@
+###  Публикация: 1610378   (1042193) от 08.02.2023
+
+VA - Winter 2023 (2023) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hyunji-A - This Too Shall Pass (Hakan Ozurun Remix) [7:36]
+02. Manuelo & Joan Dik - High Skies (Tojogo Remix) [7:36]
+03. XSPANCE - Hope (Nic Rinaldi Remix) [6:56]
+04. Matías Delóngaro - Espuma En Sal (Maxi Welchen Remix) [7:50](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 03:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE62F475384C6FD629152E1522E990BEEB51CDCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610646   (1042191) от 08.02.2023
+
+VA - High Voltage 2022 Year Mix (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AzureZenith - Recovery (Orchestral Mix) (00:56)
+02. Pink Pig - Under the Moonlight (Original Mix) (08:36)
+03. Super Luminal - Polaris (Original Mix) (07:52)
+04. DJ Frost - Don't Leave Me (Original Mix) (07:48)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:09:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B1FE1DD62CC149461265F7E8CA9FCF848C5547D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610622   (1042187) от 08.02.2023
 
 VA - Top 10 January 2023 Emotional and Uplifting Trance (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -6,7 +64,7 @@ VA - Top 10 January 2023 Emotional and Uplifting Trance (2023) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042187.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Notes & Harmonies, Vol. 10 (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042155.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ ARGH - Night In The City (2014) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Electro
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042060.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Glenn Main - Back2basics (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwa
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042039.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Gui Boratto - Backstage (2020) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042038.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - HTE200 (Mixed by Lab4 & Nick The Kid) (2023) [MP3|320 Kbps] <Trance, Uplift
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041883.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Arika Lane - TopTrance Radioshow (2011-2021) [MP3|256 - 320 Kbps] <Uplifting Tra
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041866.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Kerala Dust - Light, West (2020) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Orga
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041729.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Running Music 2021 Explicit [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041707.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Pogo House Classics Vol. 10 (2023) CD, Compilation [MP3|320 Kbps] <Soulful,
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041677.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Hit Factory Vol. 1 (2023) CD, Compilation [MP3|320 Kbps] <Soulful, Tech Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041652.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Milk & Sugar Winter Sessions 2023 [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041420.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Markus Schulz - Global DJ Broadcast: Top 20 December (2020) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041194.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Menno De Jong - Collected Works (2021) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041189.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - NaHiM Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, Uplifting
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041178.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - The Sound Of 2023 Mix 2: Seoul (2023) [MP3|320 Kbps] <Trance, Progressive, 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041173.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Markus Schulz - Global DJ Broadcast (Deeper Shades) (2021) [MP3|320 Kbps] <
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041155.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Tiesto - SiriusXM Tiesto & Friends NYE Party (2020-12-31) [MP3|~245 Kbps (V0)] <
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041154.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - BEST OF NEON 2020 (2020) [FLAC|Lossless|WEB-DL|tracks] <Chillsynth, Chillwa
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041145.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Starsplash - Back By Popular Demand (2004) [FLAC|Lossless|image + .cue] <Trance,
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041118.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - A State of Trance: Year Mix (Mixed by Armin van Buuren) (2020) [MP3|320 Kbp
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041107.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Erotic Chillout Education (2021) Explicit [MP3|320 Kbps] <Chillout, Lounge,
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041063.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Han Beukers Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, Upl
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040947.jpg" />
 </div>
 
 
@@ -671,7 +729,7 @@ VA - Kiyoi & Eky Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, Upl
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040945.jpg" />
 </div>
 
 
@@ -685,64 +743,6 @@ VA - Kiyoi & Eky Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, Upl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05893712AEBD775E02F03D4DE8CE8A3CB2348281
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438534   (1040944) от 09.01.2021
-
-VA - DreamLife Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grande Piano - Monte Cassino (Intro Mix)
-02. Paul Cartwright - Just Be (Original Mix)
-03. Wayf4rer - Anemone (DreamLife Remix)
-04. Ajie Benno - Passion (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:24:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04C6EA971A636EB514A7ABF61C8C0BB57EB17A29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438681   (1040943) от 09.01.2021
-
-VA - Best Of FSOE Fables (2020) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dan Stone - Vice Versa (Extended Mix)
-02. Ferry Tayle & Elucidus - Fremont (Extended Mix)
-03. Metta & Glyde - Renaissance (Extended Mix)
-04. Maria Healy - Dreamer (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63F4154030AE4FE5F53A53C21707FDFA175E528A
 ```
 
 https://mybot314.ru/tekegram_catalog/

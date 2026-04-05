@@ -1,3 +1,32 @@
+###  Публикация: 1633914   (233803) от 18.05.2023
+
+VA - Rock Fun & Happy Songs (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Beach Boys - Fun, Fun, Fun (Remastered 2001) (2:05)
+02. The Rolling Stones - Let's Spend The Night Together (3:26)
+03. The Knack - My Sharona (4:52)
+04. The Preatures - Is This How You Feel (3:34)(   Читать дальше...   )Жанр: RockПродолжительность: 03:16:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D284BB94BFBEA0740FFD677AD5C24B82D5482DF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1623585   (233797) от 02.04.2023
 
 Timor et Tremor - Realm of Ashes (2022) [FLAC|Lossless|WEB-DL|tracks] <Pagan Black Metal>
@@ -6,7 +35,7 @@ Timor et Tremor - Realm of Ashes (2022) [FLAC|Lossless|WEB-DL|tracks] <Pagan Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233797.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Nazty Habit - Twist of My Soul (2011) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233796.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233793.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Samtar - Cryptic Tales From A Vision Obscured (2021) [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233788.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Rob Tyner - Blood Brothers (1990) [FLAC|Lossless|tracks] <Rock, Classic Rock, Ha
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233779.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Helgrind - Insurrection (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233761.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Hellish Form - 3 Albums (2020-2023) [FLAC|Lossless|WEB-DL|tracks] <Funeral drone
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233758.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Oh, Sleeper - Bloodied / Unbowed (2019) [FLAC|Lossless|WEB-DL|tracks] <Metalcore
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233756.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ The Black Harvest - Mortuary Dogma (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233751.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Aathma - Dust from a Dark Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233748.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Cry of the Nile - Invocation (2023) [MP3|320 Kbps] <Death Metal, Blackened>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233739.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Frank Zappa - Funky Nothingness (2023) 3 x CD [FLAC|Lossless|tracks + .cue] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233736.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Dead End Finland - Victory (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233726.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Lipid - The Perfect Killing Machine (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233719.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Def Leppard with the Royal Philharmonic Orchestra - Drastic Symphonies (2023) [M
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233711.jpg" />
 </div>
 
 
@@ -443,7 +472,7 @@ Lankester Merrin - Dark Mother Rises (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233701.jpg" />
 </div>
 
 
@@ -472,7 +501,7 @@ Necronomicon Beast - Hell Thrash War (2004) Release 2010, Iron Bonehead Prod. He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233691.jpg" />
 </div>
 
 
@@ -501,7 +530,7 @@ Wings Of Steel - Gates Of Twilight (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233684.jpg" />
 </div>
 
 
@@ -530,7 +559,7 @@ Boulevard - Blvd. (1988) [MP3|320 Kbps] <AOR, Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233663.jpg" />
 </div>
 
 
@@ -559,7 +588,7 @@ Oceanlord - Kingdom Cold (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Stone
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233630.jpg" />
 </div>
 
 
@@ -588,7 +617,7 @@ Acromizer - Reborn (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233607.jpg" />
 </div>
 
 
@@ -617,7 +646,7 @@ Def Leppard, Royal Philharmonic Orchestra - Drastic Symphonies (2023) [FLAC|96/2
 >>Hard Rock (Hi Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233594.jpg" />
 </div>
 
 
@@ -646,7 +675,7 @@ Ammotrack - Accelerate (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233585.jpg" />
 </div>
 
 
@@ -675,7 +704,7 @@ Moonshine Mojo - Mojolithic Vibrations (2023) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233577.jpg" />
 </div>
 
 
@@ -704,7 +733,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233574.jpg" />
 </div>
 
 
@@ -718,35 +747,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16A6423A51A374595342DE27B60D325BAE91AB49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626740   (233572) от 15.04.2023
-
-Ricochet - Kazakhstan (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Custodians 06:42
-02. King of Tales 04:38
-03. Farewell 09:38
-04. Interception 06:05(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:58:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CA5838EF922F5307898CDABFD80BDB640A666E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

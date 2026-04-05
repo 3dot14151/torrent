@@ -1,3 +1,38 @@
+###  Публикация: 464568   (81162) от 10.03.2012
+
+Heaven's Gate (Heavens Gate) - 3 альбома (1989-1992) [FLAC|Lossless]<Heavy/Power-metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under Fire
+02. Hell For Sale!
+03. He's The Man
+04. Starts 'N' Stripes
+05. America
+06. Atomic
+07. Rising Sun
+08. No Matter
+09. Up An' Down
+10. Don't Bring Me Down(   Читать дальше...   )1989-1992Жанр: Heavy/Power-metalПродолжительность: 02:43:05
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 465456   (81154) от 10.03.2012
 
 Alice Cooper - Halloween Night Of Fear (2011) [MP3|320 кб/с]<Hard Rock>
@@ -6,7 +41,7 @@ Alice Cooper - Halloween Night Of Fear (2011) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81154.jpg" />
 </div>
 
 
@@ -41,7 +76,7 @@ Sweet (The sweet) - 4 альбома (1974-1982) [FLAC|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81042.jpg" />
 </div>
 
 
@@ -71,7 +106,7 @@ Lacuna Coil - Dark Adrenaline (2012) [MP3|320 кб/с]<Gothic Metal, Alternative
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81007.jpg" />
 </div>
 
 
@@ -106,7 +141,7 @@ Status Quo - Gold (2005) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80980.jpg" />
 </div>
 
 
@@ -141,7 +176,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80880.jpg" />
 </div>
 
 
@@ -176,7 +211,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80838.jpg" />
 </div>
 
 
@@ -207,7 +242,7 @@ Fort Royal - 4 Альбома (2000-2010) [MP3|128-320 кб/с]<Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80805.jpg" />
 </div>
 
 
@@ -242,7 +277,7 @@ Cliff Lin - This Is War (2012) [MP3|192 кб/с]<Alternative rock/Industrial Met
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80794.jpg" />
 </div>
 
 
@@ -277,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80737.jpg" />
 </div>
 
 
@@ -312,7 +347,7 @@ Adrenaline Mob - Omerta (2012) [MP3|320 кб/с]<Alternative Metal / Heavy Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80571.jpg" />
 </div>
 
 
@@ -347,7 +382,7 @@ Epica - Requiem For The Indifferent (2012) [MP3|320 кб/с (Scene)]<Symphonic M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80398.jpg" />
 </div>
 
 
@@ -382,7 +417,7 @@ Whitesnake - Best Ballads (2000) [MP3|320 кб/с]<Hard/Glam Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80036.jpg" />
 </div>
 
 
@@ -417,7 +452,7 @@ Eloy - 18 альбомов (1971-2009) Not Remastered [FLAC|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79825.jpg" />
 </div>
 
 
@@ -446,7 +481,7 @@ Nightwish - Lokikirja (2009) Box Set, 8CD / Spinefarm Records / [FLAC|Lossless]<
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79800.jpg" />
 </div>
 
 
@@ -475,7 +510,7 @@ Manfred Mann's Earth Band - 2 Альбома (1976, 1978) [FLAC|Lossless]<Prog R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79571.jpg" />
 </div>
 
 
@@ -507,7 +542,7 @@ Xandria - Neverworld's End (Limited Edition) (2012) [FLAC|Lossless]<Power Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79551.jpg" />
 </div>
 
 
@@ -542,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79271.jpg" />
 </div>
 
 
@@ -577,7 +612,7 @@ Whitesnake - Here I Go Again: The Whitesnake Collection (2002) 2CD [FLAC|Lossles
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79149.jpg" />
 </div>
 
 
@@ -612,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79124.jpg" />
 </div>
 
 
@@ -641,7 +676,7 @@ Louna - Время Х (2012) [MP3|320 кб/с]<Alternative Rock / Post-Grunge / 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79069.jpg" />
 </div>
 
 
@@ -676,7 +711,7 @@ Dio - Holy Diver (1983) /2012, Audio Fidelity [FLAC|Lossless]<Heavy Metal / Hard
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79031.jpg" />
 </div>
 
 
@@ -705,7 +740,7 @@ David Gilmour - Greatest Hits (2006) [WavPack|Lossless]<Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79011.jpg" />
 </div>
 
 
@@ -740,7 +775,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78835.jpg" />
 </div>
 
 
@@ -775,7 +810,7 @@ Rockets - 6 Студийных альбомов (1976-1982) /2000-2003, Rockland
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78823.jpg" />
 </div>
 
 
@@ -804,7 +839,7 @@ Shovellica (Красная плесень) - The Symphony Of The Shovel (2011) [
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78543.jpg" />
 </div>
 
 
@@ -817,41 +852,6 @@ Shovellica (Красная плесень) - The Symphony Of The Shovel (2011) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3AF2B8F370FE0A5EBC3163808C8D75723563B51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 457539   (78361) от 25.02.2012
-
-VA - A Tribute to "Чёрный Обелиск" (2012) [MP3|192 кб/с]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78361.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Асферикс - Я остаюсь (04:13)
-02. Сад Грёз - Троянский конь (03:34)
-03. EverLost - Чёрный обелиск (04:37)
-04. Aella - Дом жёлтого сна (04:12)
-05. Колизей - Стена (03:41)
-06. HMR - Город в огне (03:09)
-07. Алексей Страйк - Аве, Цезарь (03:06)
-08. Ретрием - Здесь и сейчас (05:52)
-09. Путь Солнца - Убей их всех (03:17)(   Читать дальше...   )2012Жанр: Heavy MetalПродолжительность: 01:46:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BA1632E75E355A393923E46CD55BB236D318B88
 ```
 
 https://mybot314.ru/tekegram_catalog/

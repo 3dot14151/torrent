@@ -1,3 +1,499 @@
+###  Публикация: 1040981   (584377) от 07.08.2016
+
+Экшены - GraphicRiver - Dimensions - 3D Generator Action [ATN, ASL]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dimensions - 3D Generator - экшен для Вашего творчества.Формат: ATN, ASL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49B12A75CB19CE5C42376C6679313C4A80504F26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040971   (584327) от 07.08.2016
+
+Экшены - GraphicRiver - TechnicalArt Photoshop Action [ATN, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584327.jpg" />
+</div>
+
+
+###  Подробнее
+
+TechnicalArt - превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD0D6E6B0113B854D29E7B027F24081D77CF09DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041153   (584270) от 07.08.2016
+
+Экшены - GraphicRiver - Collage Art Photoshop Action [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Collage Art - превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2AE4FF8672E12E4CABE7DE2C9072D35D84A9FC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301744   (583893) от 12.05.2019
+
+Футажи - RocketStock - Lucent Ultra: 260 Vivid Lens Flares in 4K - RS3029 [MP4]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583893.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Lucent Ultra" - это коллекция световых бликов, снятых на объективы Zeiss Ultra Prime и Master Prime с фокусным расстоянием от 10 мм до 135 мм. Присутствие чёткой эстетики Zeiss придаст вашему видео яркий и неповторимый стиль.Формат: MP4Разрешение файлов: 4K Resolution: 3840х2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:564A05EC34AA37223C7786E40505510057B39A9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910080   (583673) от 18.07.2015
+
+Векторный клипарт - Пушистики / Bright pussies [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Яркие характерные персонажи в векторе наподобие смайлов.
+Превью в JPEG.Формат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0431C979C32CADA504E9E52B3092841D9062BA2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918821   (583609) от 18.07.2015
+
+Звуковые библиотеки - AudioJungle - Free file month [April - May - June 2015] [WAV, MP3]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Здесь представлены бесплатные файлы месяца за апрель, май и июнь 2015 года с площадки аудиоджангл! Скачка бесплатного файла месяца равносильна покупке стандартной музыкальной лицензии. Поддержка и обновления в бесплатном файле месяца не предусматриваются. Данного рода файлы используют для музыкального сопровождения проектов After Effects. Некоторые треки имеют различные (   Читать дальше...   )Формат: WAV, MP3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:905BB62C757E584CE034A866DA6E7583C71CDF9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041380   (583321) от 08.08.2016
+
+Экшены - GraphicRiver - Points Pixelate Generator Action Set [ATN, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Points Pixelate Generator - экшен для Вашего творчества.Формат: ATN, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:509ADE4BF43F344404C82F3C1487C6C2A34E225B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041386   (583316) от 08.08.2016
+
+Экшены - GraphicRiver - Vintage Metal Sign Photoshop Action [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vintage Metal Sign - экшен для Вашего творчества.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C2287B25282966DE4E70567B4ABDFFB1B55C8F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041371   (583313) от 08.08.2016
+
+Экшены - GraphicRiver - 15 Photo Effects [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583313.jpg" />
+</div>
+
+
+###  Подробнее
+
+15 Photo Effects - экшен для Вашего творчества.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:045A4F9265F28D99D8D89A3EB465728D1BC0D719
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041357   (583310) от 08.08.2016
+
+Экшены - GraphicRiver - Pro HDR Photoshop Action 3 [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pro HDR Photoshop Action 3 - экшен для Вашего творчества.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F90EC75458E40117BCF1B0D79BF209B505657B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301888   (583270) от 13.05.2019
+
+Растровый клипарт - Happy Easter #21 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт пасха для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 224x250-1500x1494
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDF10A75637A03EBA1729CDA64651C120F443FF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041427   (583258) от 08.08.2016
+
+Рамки - Романтическая рамка с нежными фиалками - Для самых милых и прекрасных [PSD, PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Романтическая рамка для Вашего творчества.
+Автор: KoaressФормат: PSD, PNG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A36E17AA881008ECC0BD1BA3B484C11CC300167
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041436   (583244) от 08.08.2016
+
+Экшены - GraphicRiver - Realistic Pencil Sketch Photoshop Action [ATN, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Realistic Pencil Sketch - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8705DD46546DF3EC749FFD3E5AF476DE9399DC1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301889   (583207) от 13.05.2019
+
+Растровый клипарт - Elements #10 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт элементы для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 260x400-9065x6420
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7281189FB0AED63CA4F1C265DF8BE5E16ECA9A3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041448   (583173) от 08.08.2016
+
+Текстуры - CreativeMarket - Bokeh Blur Backgrounds [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583173.jpg" />
+</div>
+
+
+###  Подробнее
+
+Премиум текстуры для вашего творчества.Формат: JPGРазрешение файлов: 4500х3000 / 300 dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7E6E5962FE0AC91C32BCC50948A46CAC34D7CA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041442   (583118) от 08.08.2016
+
+Текстуры - CreativeMarket - 169 Massive Premium Textures [JPG, PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583118.jpg" />
+</div>
+
+
+###  Подробнее
+
+Премиум текстуры для вашего творчества.Формат: JPG, PNGРазрешение файлов: 2000х1200 - 3000х2500 / 300 dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4463FDD0D6CC1F4979F12E59868859EDA9F6CC67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302011   (583077) от 13.05.2019
+
+Звуковые библиотеки - Epic Stock Media - Epic Movie Trailer [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583077.jpg" />
+</div>
+
+
+###  Подробнее
+
+Epic Movie Trailer -  сладкий и пряный кинематографический звуковой пакет SFX, который наполнен глубокими дозвуковыми ударами, прерывистыми басовыми ударами с гибридным кинематографическим звуком. Этот пакет готов подсластить Ваш следующий трейлер, игру, фильм и так далее.Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A5F00993F6BC0AD0267D0FA369C0FAE2C6522AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 359235   (582717) от 05.07.2011
+
+Растровый клипарт - Японские мечи, древнее холодное оружие и антикварные боевые веера [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Японское старинное оружие: цубы для мечей, мечи катана и вакидзаси, антикварные боевые веера японских самураев. Каждый на отдельном слое на двух листах, всего 54 предмета, слои отключены.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F50463BE8F2F9F34FC686B6867BC7FD5816F823F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919162   (582629) от 19.07.2015
+
+Boom Library - TROPICAL FORESTS [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582629.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tropical Forests - эта седьмая библиотека звуковых эффектов в экстраординарной серии качественных и увлекательных записей природы от звукорежиссера Gordon Hempton.Для компиляции этого уникального сокровища тропических лесов, Хемптон не жалел усилий, Он искал места на земном шаре более трех десятилетий, чтобы записать звуки природы в наиболее древнем аспекте, и собрать (   Читать дальше...   )Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:023C479AF14FF2285ACC434B725A8C05E00C953D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 919170   (582628) от 19.07.2015
 
 Boom Library - PRAIRIES [WAV]
@@ -6,7 +502,7 @@ Boom Library - PRAIRIES [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582628.jpg" />
 </div>
 
 
@@ -33,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582361.jpg" />
 </div>
 
 
@@ -59,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582345.jpg" />
 </div>
 
 
@@ -85,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582322.jpg" />
 </div>
 
 
@@ -111,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582212.jpg" />
 </div>
 
 
@@ -137,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582202.jpg" />
 </div>
 
 
@@ -163,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582196.jpg" />
 </div>
 
 
@@ -174,513 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8328634AFB74ECD25F94376C0507698AC2BF36D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302090   (582184) от 14.05.2019
-
-Растровый клипарт - Fantaisy #03 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт фентази для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 151x398-890x878
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B47C2CB6E34F55F741193108951EF7034602D821
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301890   (582152) от 14.05.2019
-
-Растровый клипарт - Elements #11 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт элементы для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 423x650-7314x3645
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D75F9CC9C853087392597903BC1EF2E93AA4B308
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302075   (582053) от 14.05.2019
-
-Звуковые библиотеки - Lens Distortions - Idyllic [WAV, MP3]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582053.jpg" />
-</div>
-
-
-###  Подробнее
-
-Melodic Underscore Library – Это библиотека мелодий предназначенная для того, чтобы вызвать определенные чувства в вашей сцене. Некоторые интроспективны и почтительны ... другие блаженны и чисты в радости.
-Поскольку мелодии записаны в нескольких вариантах, вы можете создавать свои собственные уникальные миксы для своих свадебных фильмов, повествовательных проектов (   Читать дальше...   )Формат: WAV, MP3
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C7AEE7092EA2383DF02A5BF6024BDB03A442C79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041699   (581421) от 10.08.2016
-
-Экшены - GraphicRiver - Energetic PS Action [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Energetic - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9358C424ACB939CCE5D4AB223EB736243A1C71E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041874   (581394) от 10.08.2016
-
-Экшены - GraphicRiver - ModernArt Photoshop Action [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581394.jpg" />
-</div>
-
-
-###  Подробнее
-
-ModernArt - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D43B440E2E313ADD72CD3C54425A5245FA6AE64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041865   (581390) от 10.08.2016
-
-Экшены - GraphicRiver - Fire Photoshop Action [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fire - экшен для Вашего творчества.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46A5F3C55F16BD9BD8E9E806FF56240AA58C389B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041869   (581386) от 10.08.2016
-
-Экшены - GraphicRiver - Burnt Paper with Fire Effects Photoshop Creator [ATN, ABR, ASL, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581386.jpg" />
-</div>
-
-
-###  Подробнее
-
-Burnt Paper with Fire Effects - экшен для Вашего творчества.Формат: ATN, ABR, ASL, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AFD27D85F2D557E3DA382EE17DBA68FE0467169
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041696   (581384) от 10.08.2016
-
-Экшены - GraphicRiver - Comic Art Style Hand Drawn Effect [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581384.jpg" />
-</div>
-
-
-###  Подробнее
-
-Comic Art Style Hand Drawn Effect - экшен для Вашего творчества.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:126EB7D328A69BF3DE24A1588BF80D307C41B4C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 359960   (580677) от 07.07.2011
-
-Mattias Westlund - Sonatina Symphonic Orchestra (2011)
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sonatina Symphonic Orchestra является свободной библиотекой сэмплов. SSO содержит сэмплы всех инструментов, необходимых для создания виртуального оркестра.
-Основано на: свободных/CC-лицензированных/находящихся в общественном достоянии инструментальных сэмплах: The University of Iowa MIS, MSLP, Philharmonia samples, OLPC project, The Complete K2000, ldk1609 violin, stamperadam Kelon Xylophone, Corsica_S Cello Pizzicato, davidjwoll cymbal rolls, Satoration Castanets, Thores Triangle, Mystified timpani, Eddie's English Horn and a variety of classic soundfonts by Campbell Barton, Nando Florestan and Ethan Winer.
-Лицензия: Creative Commons Sampling Plus 1.0
-
-Кодек: WAV, SFZ
-Битрейт: LosslessНазвание программы: Sonatina Symphonic OrchestraЯзык интерфейса: ML
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042105   (580147) от 11.08.2016
-
-3D модели - Evermotion - Archmodels Vol. 110 [V-Ray|*.max]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередной сборник 3d моделей от Evermotion!
-
-В данный сборник вошли 35 комплектов офисной мебели.Формат: V-Ray|*.max
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:892ED5739801FE4863EC6CB6D0065BC25042F4D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302555   (580117) от 16.05.2019
-
-3D модели - Daz 3D - Sanjay 8 Pro Bundle - 60829 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплект Sanjay 8 для DAZ 3D из категории People.
-Для Genesis 8Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D018CCDD19FA98F26EA775135571147805A9D19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302537   (580099) от 16.05.2019
-
-3D модели - Daz 3D - Tika 8 Pro Bundle - 59259 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплект Tika 8 для DAZ 3D из категории People.
-Для Genesis 8Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BC8AEDB4EB9693B59385E09AF7F0C82A4651ADC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302531   (580040) от 16.05.2019
-
-3D модели - KitBash3D - Steampunk [MAX, MA, OBJ, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580040.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создайте научные фантастические миры, хорошо детализированных зданий. Используйте уникальные гибридные комбинации британского викторианского или американского стиля Дикого Запада в сочетании с механическими, паровыми двигателями любой альтернативной истории, о которой вы только мечтали!Формат: MAX, MA, OBJ, FBX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1394AC94D2450EE2B0C9F1EC1439C7154856D32B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920147   (579709) от 22.07.2015
-
-Текстуры - Tenkei Kobo. Textures Series - CS16 (Sky) [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579709.jpg" />
-</div>
-
-
-###  Подробнее
-
-PSD клипарт для фотошопа облака и небо, облако на закате.
-
-Вам представляем 104 PSD слайда  со слоями.
-54 файлов - облака и небо днем;(   Читать дальше...   )Формат: PSDРазрешение файлов: 3500×2400
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A5BA5E10EC6ACD44AEE7B516729DBD207798D79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302803   (579324) от 17.05.2019
-
-3D модели - CGTrader - Dosch 3D - Heavy Machines [LWO]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продукт DOSCH 3D: Heavy Machines содержит 20 очень подробных и полностью текстурированных 3D-моделей автомобилей.Формат: LWO
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:449D88003EDF9FD1D598127FECBA04790A4E33C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302819   (579323) от 17.05.2019
-
-3D модели - CGTrader - Dosch 3D - Heavy Machines [LXO]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продукт DOSCH 3D: Heavy Machines содержит 20 очень подробных и полностью текстурированных 3D-моделей автомобилей.Формат: LXO
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7FCB53ACA9A523ACE2D4DF7EFB51F5E65C99F7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302807   (579321) от 17.05.2019
-
-3D модели - CGTrader - Dosch 3D - Heavy Machines [ATL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продукт DOSCH 3D: Heavy Machines содержит 20 очень подробных и полностью текстурированных 3D-моделей автомобилей.Формат: ATL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91036D31A970151825E4794C6E46F9B2CD08657F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302811   (579318) от 17.05.2019
-
-3D модели - CGTrader - Dosch 3D - Heavy Machines [DAE]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продукт DOSCH 3D: Heavy Machines содержит 20 очень подробных и полностью текстурированных 3D-моделей автомобилей.Формат: DAE
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD22A46604A54515A9A75351F831D72D0EECA3AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042509   (579310) от 12.08.2016
-
-Текстуры - Wall, gloomy background 2 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Текстуры объёмных стен для вашего творчества.Формат: JPGРазрешение файлов: 4500х2000 / 300 dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF27958D3947390CB03FDA9AD9B496F79A92051A
 ```
 
 https://mybot314.ru/tekegram_catalog/

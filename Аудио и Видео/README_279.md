@@ -6,7 +6,7 @@ VA - Dance Classics Vol. 1 (1998) [AAC|320 Kbps] <Electronic, Pop, Funk, Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71418.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Dance Classics Vol. 4 (1988) [AAC|320 Kbps] <Electronic, Hip Hop, Funk, Dis
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71402.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Dance Classics Vol. 2 (1988) Reissue, 2000, Roadrunner Arcade Music [AAC|32
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71321.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Dance Classics Vol. 3 (1988) Reissue, 2000, Roadrunner Arcade Music [AAC|32
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71297.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Italo Strikes Back (1997) [AAC|320 Kbps] <Electronic, Pop, Euro House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71222.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Italo Strikes Back Vol. 2 (1998) [AAC|320 Kbps] <Electronic, Euro House, Sy
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71202.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - The Best Of Italo Disco Vol. 8 (1987) [AAC|320 Kbps] <Electronic, Pop, Ital
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71121.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - The Best Of Italo Disco Vol. 9 (1987) [AAC|320 Kbps] <Electronic, Pop, Ital
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70979.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - The Best Of Italo Disco Vol. 10 (1988) [AAC|320 Kbps] <Electronic, Pop, Ita
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70906.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Modern 80's - The Best Of Discopop Vol.4 (1999) [AAC|320 Kbps] <Electronic,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70132.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - I Love Tocata 80s (2012) [AAC|320 Kbps] <Italo-Disco, Euro-Disco, Hi NRG>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70063.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63330.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60513.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Secret Service - Top Secret* (*Greatest Hits) (2000) [AAC|320 Kbps] <Electronic,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31455.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ The Flirts - Castle Gold Collection, Vol. 18 (1991) [AAC|320 Kbps] <Electronic, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31047.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ The Flirts - The Best Of The Flirts (1991) [AAC|320 Kbps] <Electronic, Pop, Hi N
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30946.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Secret Service - Spotlight (1988) [AAC|320 Kbps] <Electronic, Pop, Synth-pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30938.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ VA - The Best Of Made Up Records Vol. 1 (1989) [AAC|320 Kbps] <Electronic, Synth
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30835.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ VA - The Best Of Made Up Records Vol. 2 (1999) [AAC|320 Kbps] <Electronic, Euro-
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30218.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ VA - Italo Dance Classics Volume 2 (1990) [AAC|320 Kbps] <Electronic, Pop, Italo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30001.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ VA - Italo Dance Classics Volume 1 (1990) [AAC|320 Kbps] <Electronic, Pop, Italo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30000.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ VA - Italo Dance Classics Volume 4 (1990) [AAC|320 Kbps] <Electronic, Pop, Italo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29894.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ VA - Dance Classics Gold (1991) [AAC|320 Kbps] <Electronic, Hip Hop, Funk, Disco
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29892.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ VA - Italo Dance Classics Volume 3 (1990) [AAC|320 Kbps] <Electronic, Pop, Italo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29890.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ VA - Dance Classics Vol. 5 (1988) [AAC|320 Kbps] <Electronic, Hip Hop, Funk, Dis
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29375.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ VA - Dance Classics Vol. 6 (1988) [AAC|320 Kbps] <Electronic, Hip Hop, Funk, Dis
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29372.jpg" />
 </div>
 
 

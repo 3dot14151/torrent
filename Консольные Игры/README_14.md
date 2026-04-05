@@ -6,7 +6,7 @@ Diablo III: Eternal Collection (2018) [Switch] [USA] 10.2.0 [NSP] [License / 2.7
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837627.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Racquet Sports  (2010) [PS3] [USA] 3.40 [Cobra ODE / E3 ODE PRO ISO] [License] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837622.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836032.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Battle vs. Chess: Королевские битвы [PS3] [EUR] [Ru] [3.56] [Cob
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832352.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Teenage Mutant Ninja Turtles: Turtles In Time Re-Shelled (2009) [Xbox360] [FreeR
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832059.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Super Mario 3D World (2013) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Ru/Mult
 >>Wii U
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831952.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Top Spin 4 [Wii] [PAL] [Multi 3] (2011)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831626.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Dragon Ball: Raging Blast 2 (2010) [PS3] [EUR] 3.42 [Cobra ODE / E3 ODE PRO ISO]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830271.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Nintendo Land (2012) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Ru/Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830269.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Art Academy: Atelier (Home Studio) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [
 >>Wii U
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830201.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ MultiMan Singstar L-Repack (2016) [PS3] [4.78.02] [Unofficial] [Ru/Multi]
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830195.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ ZombiU (2012) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Ru/Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830092.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Jet Set Radio (2012) [PS3] [USA] 3.55 [PSN] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826748.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Shift 2 Unleashed (2011) [Xbox360] [RegionFree] 12625 [FreeBoot] [License / 8 DL
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826440.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Just Dance 2017 (2016) [PS3] [USA] 4.80 [Cobra ODE / E3 ODE PRO ISO] [License] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825732.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Wii Fit U (2013) [WiiU] [USA] 5.3.2 [Loadiine GX2] [License] [En]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824789.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Yoru No Nai Kuni (2015) [PS3] [JAP] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficia
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822598.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Michael Jackson: The Experience (2011) [PS3] [EUR] 3.56 [Cobra ODE / E3 ODE PRO 
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822430.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ NHL 16: Legacy Edition (2015) [PS3] [EUR] 4.75 [Cobra ODE / E3 ODE PRO] [License
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822426.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Cars 3: Driven to Win / Тачки 3: Навстречу победе (2017) [PS
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822424.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Rayman Legends (2013) [PS3] [EUR] 4.46 [Cobra ODE / E3 ODE PRO ISO] [License] [R
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822420.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ NBA Ballers: Chosen One (2008) [PS3] [USA] 2.17 [Cobra ODE / E3 ODE PRO ISO] [Li
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_822174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822174.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Malicious (2012) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820906.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Wolf of the Battlefield: Commando 3 (2008) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE 
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820772.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Biohazard HD Remaster / Resident Evil HD Remaster (2014) [PS3] [JPN] 3.55 [Unoff
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820645.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Nintendo 3DS ROMPack (2011-2017) [3DS] [ALL] [Decrypted] [Unofficial] [Multi] (1
 >>Ромы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820304.jpg" />
 </div>
 
 

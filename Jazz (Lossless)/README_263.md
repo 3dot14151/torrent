@@ -6,7 +6,7 @@ The Christmas Swing Orchestra - Christmas Swing (1999) [FLAC|Lossless]<Jazz Holi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223801.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Milt Jackson - Ain't But A Few Of Us Left (1981) 1993, Original Jazz Classics [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223682.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Tom Bacon - The Flipside: Jazz Horn Solos (1989) Summit Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223516.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Bunny Berigan - 1938 - 1942 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223510.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Ted Sirota's Rebel Souls - Breeding Resistance (2004) Delmark Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223500.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Howard Rumsey's Lighthouse All-Stars - Lighthouse At Laguna (1955) 1989, Origina
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223494.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Rachel Caswell - We're All In The Dance (2018) Turtle Ridge Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223489.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Rosemary Clooney - 16 Most Requested Songs (1950-e - 1960-e) 1989, Columbia [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223479.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Ronnie Scott - Six Classic Albums Plus Bonus Singles (1956 - 1961) 4CD, 2015, Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223446.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Papik - Bossarama (2023) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nova, Easy Listeni
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223182.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Beaux J Poo Boo - All Things Are New (2005) Summit Records [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222904.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Miho Hazama - Imaginary Visions (2021) Edition Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222897.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ John Dankworth & Rochester Pops - Ellington: Echoes of Harlem (1988) ProJazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222884.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Art Farmer, Benny Golson, Jazztet - The Complete Argo-Mercury Sessions (1960 - 1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222860.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Tamara Kuldin - This May Only Be a Dream (2020) [FLAC|Lossless|tracks + .cue] <V
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222792.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Miles Davis - So What? (1947-1962) 3CD, 2014, Le Chant Du Monde[FLAC|tracks+.cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222727.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Beegie Adair - Best Of Beegie Adair: Jazz Piano Christmas Perform (2020) [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222722.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222694.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222511.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Horace Silver - Paris Blues (1962) 2002, Pablo [FLAC|Lossless|tracks + .cue] <Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222485.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Verve & Blue Note Today (2020) [FLAC|Lossless|tracks + .cue] <Jazz, Mainstr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222411.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ The Ian McDougall Sextet - Dry With A Twist (1999) Factor [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221713.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Andy Sheppard Quartet - Romaria (2018) ECM Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221702.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Beady Belle - Dedication (2018) Jazzland Recordings [FLAC|Lossless|WEB-DL|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221681.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Bob Belden - Black Dahlia (2001) Blue Note Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221590.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Ana Carla Maza - Alma (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221504.jpg" />
 </div>
 
 

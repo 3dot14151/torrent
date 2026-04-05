@@ -1,136 +1,3 @@
-###  Публикация: 1703032   (115346) от 27.02.2024
-
-С.И. Баскаков | Электродинамика и распространение радиоволн (1992) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115346.jpg" />
-</div>
-
-
-###  Подробнее
-
-Излагаются основы макроскопической электродинамики, теория плоских электромагнитных волн в различных средах, методы расчетов волноводных и колебательных систем, а также устройств излучения и приема электромагнитных волн. Рассмотрены вопросы компьютерного анализа электродинамических систем.
-Материал книги разбит на два раздела, один из которых содержит основную часть (   Читать дальше...   )Жанр: ФизикаИздательство: Высшая школаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83EE323BF66D2F7E9F36373F56ADF359263A1D96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702971   (115337) от 27.02.2024
-
-Н.Н. Мансуров, В.С. Попов | Теоретическая электротехника (1966) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115337.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассматриваются физические процессы, происходящие в электрическом и магнитном полях, в электрических линейных и нелинейных цепях постоянного и переменного тока. Излагаются основные методы расчета, принятые в электротехнике. Даны описания лабораторных работ. Изложение поясняется большим количеством примеров с решениями.
-Книга предназначается для лиц, изучающих (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: ЭнергияФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF94BC8727DDADC4160A091A3F4ADB730FE90DE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703026   (115336) от 27.02.2024
-
-А.П. Баскаков (ред.) | Теплотехника (1991) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изложены основы технической термодинамики и теории тепло- и массообмена. Приведены основные сведения по процессам горения, конструкциям топок и котельных агрегатов. Рассмотрены принципы работы тепловых двигателей, паровых и газовых турбин, двигателей внутреннего сгорания и компрессоров. Описаны компоновки и технологическое оборудование тепловых электрических станций, (   Читать дальше...   )Жанр: ТеплотехникаИздательство: ЭнергоатомиздатФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF8E0C1C98929A2587BB407C055499A862629604
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703030   (115179) от 28.02.2024
-
-С.И. Баскаков (ред.) | Сборник задач по курсу электродинамика и распространение радиоволн (1981) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга содержит систематизированный материал для упражнений. В каждой главе имеются краткие теоретические сведения, примеры решения типовых задач, а также задачи для самостоятельной работы, снабженные ответами.
-Предназначаются для студентов радиотехнических специальностей вузов. Может быть использована лицами, самостоятельно изучающими техническую электродинамику (   Читать дальше...   )Жанр: ФизикаИздательство: Высшая школаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C89E4668236F012BFCECB989A48D5A3626920AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703556   (115075) от 29.02.2024
-
-М.А. Журавков | Технологии искусственного интеллекта и интеллектуальные системы компьютерного моделирования и инженерных расчетов. Вводный курс (2024) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие представляет собой вводный курс в такое актуальное современное направление, как технологии искусственного интеллекта (ИИ) и их применение в интеллектуальных системах компьютерного моделирования и инженерных расчетов. В пособии рассматриваются основные определения, понятия технологий ИИ, составные части ИИ через собственное восприятие и интерпретацию (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БГУФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:360C3C14E59EBFFDCB185F93E10C58A9B078A8AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703575   (115033) от 29.02.2024
 
 И.М. Хайс, К. Мацек | Хроматография на бумаге (1962) [PDF]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115033.jpg" />
 </div>
 
 
@@ -165,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114881.jpg" />
 </div>
 
 
@@ -191,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114872.jpg" />
 </div>
 
 
@@ -217,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114444.jpg" />
 </div>
 
 
@@ -243,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114387.jpg" />
 </div>
 
 
@@ -269,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114353.jpg" />
 </div>
 
 
@@ -295,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112979.jpg" />
 </div>
 
 
@@ -321,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112762.jpg" />
 </div>
 
 
@@ -347,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112440.jpg" />
 </div>
 
 
@@ -373,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112301.jpg" />
 </div>
 
 
@@ -400,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111832.jpg" />
 </div>
 
 
@@ -426,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111634.jpg" />
 </div>
 
 
@@ -452,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111571.jpg" />
 </div>
 
 
@@ -479,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111459.jpg" />
 </div>
 
 
@@ -505,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110901.jpg" />
 </div>
 
 
@@ -531,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110315.jpg" />
 </div>
 
 
@@ -557,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109851.jpg" />
 </div>
 
 
@@ -584,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109223.jpg" />
 </div>
 
 
@@ -611,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109143.jpg" />
 </div>
 
 
@@ -637,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109068.jpg" />
 </div>
 
 
@@ -663,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109035.jpg" />
 </div>
 
 
@@ -675,6 +542,140 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF2E05BAD1A33F01CE5AC1DF15DFBEAD408B2CCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725422   (109028) от 24.05.2024
+
+А.И. Ахиезер, И.А. Ахиезер | Электромагнетизм и электромагнитные волны (1985) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109028.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии рассмотрены входящие в курс общей физики вопросы физики электромагнитных явлений, включая оптику и основы теории относительности. От аналогичных книг пособие отличается широтой охвата и методом изложения — один из авторов, академик АН УССР А. И. Ахиезер, известен своими фундаментальными теоретическими работами в области электродинамики. В первом и втором (   Читать дальше...   )Жанр: ФизикаИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4B14BE6C7550020E9D37823627AEFD9F6CD5FFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725720   (108964) от 25.05.2024
+
+Sandra N. Elbaum | Grammar in Context 3 (2015) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108964.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Sixth Edition of the best-selling Grammar in Context series, inspires learners through compelling stories, National Geographic images, and content, relevant to students' lives. Students learn more, remember more, and use language more effectively when they learn grammar in context.
+Sandra N. Elbaum was an ESL Instructor at Truman College, one of the City Colleges (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Heinle ELTФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B472457BE0A0326F54AE672900310E50AFBA1B13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726036   (108830) от 27.05.2024
+
+С. Бенсон | Термохимическая кинетика (1971) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108830.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга известного американского кинетика С. Бенсона посвящена проблемам, лежащим в пограничной области между химической кинетикой и термохимией, - направлению, интенсивно развивающемуся как в нашей стране, так и за рубежом. В книге рассматривается разработанный автором новый оригинальный метод, позволяющий рассчитывать кинетические параметры элементарных химических (   Читать дальше...   )Жанр: ХимияИздательство: МирФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCD3CB647C5ECC14475A5DA50028F6BA39EC0755
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725888   (108829) от 27.05.2024
+
+Diane Larsen-Freeman, Marti Anderson | Techniques and Principles in Language Teaching (2011) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108829.jpg" />
+</div>
+
+
+###  Подробнее
+
+This is an third edition of our popular introduction to language teaching methodology, which describes different methods and approaches in language teaching. Clear and jargon-free, it provides practical step-by-step guidance for new teachers, and introduces more experienced teachers to new approaches and teaching ideas. Includes a new chapter on the use of digital (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Oxford University PressФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5719691AEE22CCAB10F86697A3091DFEEC0E3CCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726399   (108770) от 28.05.2024
+
+Alex Forero | ESL Conversation Lessons (2016) [EPUB] [EN]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108770.jpg" />
+</div>
+
+
+###  Подробнее
+
+This book contains not only questions but also activities including, role-plays, board games, discussions and much more designed to get your students speaking effortlessly. Lessons are best suited to lower intermediate to advance level learners. Features:
+Instant lessons. Print and go type lessons inside.
+Easy to follow lessons.
+Online access- FREE Downloadable worksheets (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: CreateSpace Independent Publishing PlatformФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:940E9536FAA056F260E75F1E5E103DD034DF2C83
 ```
 
 https://mybot314.ru/tekegram_catalog/

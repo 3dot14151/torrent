@@ -1,32 +1,3 @@
-###  Публикация: 1596711   (169069) от 11.12.2022
-
-Audioslave - Studio Albums (3 releases) (2002 - 2006) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock, Post-Grunge>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Audioslave — супергруппа, состоявшая из бывших инструменталистов группы Rage Against the Machine Тома Морелло (гитарист), Тима Коммерфорда (бас-гитарист и сопровождающий вокал) и Брэда Уилка (ударные), а также Криса Корнелла (бывший ведущий вокалист и ритм-гитарист группы Soundgarden) в качестве ведущего вокалиста. Группа сформировалась после распада Rage Against (   Читать дальше...   )2002 - Audioslave
-2005 - Out Of Exile
-2006 - Revelations
-.Жанр: Hard Rock, Post-GrungeПродолжительность: 03:15:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81A4F82AD84BF0EB3C66DC0C808D4CC0E2CE0970
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1514954   (168973) от 07.12.2021
 
 ZZ Top - 5 Studio albums (1994-2012) hand made [restored, declipped] [FLAC|Lossless|16/44|tracks + .cue] <Blues Rock, Hard Rock>
@@ -35,7 +6,7 @@ ZZ Top - 5 Studio albums (1994-2012) hand made [restored, declipped] [FLAC|Lossl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168973.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Tarja (Nightwish) - Studio Albums (5 releases) (2007 - 2019) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168869.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168732.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Tangerine Dream - Stratosfear (1981) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Ele
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168724.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Nordic Union - Studio Albums (3 releases) (2016 - 2022) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168260.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Death - Symbolic (1995) [FLAC|24/96|tracks|Vinyl-Rip] <Death Metal, Progressive 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168088.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Death - Individual Thought Patterns (1993) [FLAC|24/96|tracks|Vinyl-Rip] <Death 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168063.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Death - The Sound of Perseverance (1998) Reissue 2016, Relapse Records [FLAC|24/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167985.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Bolt Thrower - Studio Albums (8 releases) (1988-2005) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167966.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Deep Purple - In Rock (1970) Remaster, 2018, Parlophone UK [FLAC 24/96|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167811.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167741.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ VA - Танец На Барабане. Поют Н. Гнатюк, Е. Голов
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166749.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Fozzy - Studio Albums (8 releases) (2000 - 2022) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166735.jpg" />
 </div>
 
 
@@ -413,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166534.jpg" />
 </div>
 
 
@@ -442,7 +413,7 @@ Dernesch, Kollo, Wiener Philharmoniker, Georg Solti - Wagner: Tannhäuser (1971)
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166089.jpg" />
 </div>
 
 
@@ -471,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165887.jpg" />
 </div>
 
 
@@ -500,7 +471,7 @@ Saltpig - Saltpig (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Psych Stoner Doom/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165484.jpg" />
 </div>
 
 
@@ -529,7 +500,7 @@ DGM - Tragic Separation (2020) [FLAC|24/192|tracks|Vinyl-Rip] <Progressive Power
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165417.jpg" />
 </div>
 
 
@@ -558,7 +529,7 @@ Bernie Marsden - And About Time Too (1979) [FLAC|24/192|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165395.jpg" />
 </div>
 
 
@@ -587,7 +558,7 @@ Electric Sun - Earthquake (1979) [FLAC|24/192|image + .cue|Vinyl-Rip] <Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165358.jpg" />
 </div>
 
 
@@ -616,7 +587,7 @@ In This Moment - Studio Albums (8 Releases) (2007-2023) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164935.jpg" />
 </div>
 
 
@@ -645,7 +616,7 @@ Stratovarius (Kotipelto, Cain's Offering) - Studio Albums (23 releases) (1989 - 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163795.jpg" />
 </div>
 
 
@@ -674,7 +645,7 @@ Riverside - Out of Myself (2003) Reissue 2021, Sony Music [FLAC|24/192|image + .
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163596.jpg" />
 </div>
 
 
@@ -703,7 +674,7 @@ Kontrust - madworld (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163556.jpg" />
 </div>
 
 
@@ -732,7 +703,7 @@ Riverside - ID.Entity (2023) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163549.jpg" />
 </div>
 
 
@@ -746,6 +717,35 @@ B1 - Post-Truth(   Читать дальше...   )Жанр: Progressive Rock, M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:246AEE83850E959DFF7A93C94D0DC7BF6B17688D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673723   (163419) от 03.11.2023
+
+Oasis - The Masterplan (1998) Remastered Edition, 2023, Big Brother Recordings Ltd [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Britpop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acquiesce (Remastered) (4:25)
+02. Underneath The Sky (Remastered) (3:21)
+03. Talk Tonight (Remastered) (4:21)
+04. Going Nowhere (Remastered) (4:40)(   Читать дальше...   )Жанр: BritpopПродолжительность: 01:06:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EF77D9943F5736E130153D53119BC50E23004FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

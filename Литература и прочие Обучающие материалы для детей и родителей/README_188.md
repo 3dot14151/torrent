@@ -1,3 +1,59 @@
+###  Публикация: 1142134   (646517) от 12.06.2017
+
+Алена Богдарович | Все, что нужно знать малышу. Развитие мышления и воображения (2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646517.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Все, что нужно знать малышу" - это серия развивающих книг для занятий с детьми дошкольного возраста. Красочные иллюстрации и множество занимательных заданий в легкой игровой форме помогут превратить процесс обучения вашего малыша в любимое занятие.
+
+Для занятий взрослых с детьми.Жанр: Обучение, развитиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A2CF90A56825BBE7B0D3E7D57BB2C95A262A37B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142133   (646514) от 12.06.2017
+
+Алена Богдарович | Все, что нужно знать малышу. Развитие мелкой моторики (2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646514.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Все, что нужно знать малышу" - это серия развивающих книг для занятий с детьми дошкольного возраста. Красочные иллюстрации и множество занимательных заданий в легкой игровой форме помогут превратить процесс обучения вашего малыша в любимое занятие.
+
+Для занятий взрослых с детьми.Жанр: Обучение, развитиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A14F54D5BA0619D2985781584D34A16F6F8B30D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 906250   (645773) от 08.06.2015
 
 Натан Натанов | Путешествие в страну летописей (1965) [FB2]
@@ -6,7 +62,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645773.jpg" />
 </div>
 
 
@@ -34,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645769.jpg" />
 </div>
 
 
@@ -60,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645692.jpg" />
 </div>
 
 
@@ -88,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645682.jpg" />
 </div>
 
 
@@ -114,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645657.jpg" />
 </div>
 
 
@@ -140,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645534.jpg" />
 </div>
 
 
@@ -166,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645433.jpg" />
 </div>
 
 
@@ -192,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645321.jpg" />
 </div>
 
 
@@ -218,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645239.jpg" />
 </div>
 
 
@@ -244,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645230.jpg" />
 </div>
 
 
@@ -270,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645197.jpg" />
 </div>
 
 
@@ -299,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645175.jpg" />
 </div>
 
 
@@ -325,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645119.jpg" />
 </div>
 
 
@@ -351,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645108.jpg" />
 </div>
 
 
@@ -378,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645060.jpg" />
 </div>
 
 
@@ -404,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645058.jpg" />
 </div>
 
 
@@ -431,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644924.jpg" />
 </div>
 
 
@@ -458,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644887.jpg" />
 </div>
 
 
@@ -485,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644883.jpg" />
 </div>
 
 
@@ -511,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644877.jpg" />
 </div>
 
 
@@ -537,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644848.jpg" />
 </div>
 
 
@@ -563,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644831.jpg" />
 </div>
 
 
@@ -589,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644815.jpg" />
 </div>
 
 
@@ -615,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644807.jpg" />
 </div>
 
 
@@ -629,61 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A061258A1A0714D1F5665B3589B17199C42AEF2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142303   (644602) от 13.06.2017
-
-Ольга Опанасенко | Никола Тесла (2017) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644602.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия «Удивительные личности для детей» – это уникальный проект для качественного досуга родителей и детей. Книги серии написаны в увлекательной и доступной форме, что делает сам процесс чтения не скучным и полезным.
-
-Главные герои книг – знаменитые личности, которые добились выдающихся результатов, благодаря упорному труду и неиссякаемой вере в себя. В конце каждой (   Читать дальше...   )Жанр: Познавательная литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C14FF85298CE3F29C376146A4512ECDD5D70833
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517984   (644562) от 02.07.2012
-
-О. Холодова | Юным умникам и умницам. Задания по развитию познавательных способностей. 4 класс [2011] [JPEG]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное издание является продолжением аналогичных методических пособий по развитию познавательных способностей младших школьников, предназначенных для 1 и 2 и 3 классов. Пособие представляет собой методические рекомендации по работе с рабочими тетрадями "Юным умникам и умницам. 9-10 лет (4 класс)". В нем раскрываются смысл и цели данных тетрадей и приведены подробные указания по проведению занятий по РТС (развитию познавательных способностей) с детьми 9-10 лет.
-Пособие адресовано учителям начальной школы, родителям, а также тем, кто интересуется развитием познавательных способностей детей 9-10 лет.Формат: JPEG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A7DAA164B4C1F9B5937D00B350C5BB988A5160B
 ```
 
 https://mybot314.ru/tekegram_catalog/

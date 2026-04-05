@@ -1,3 +1,32 @@
+###  Публикация: 1416652   (364958) от 17.10.2020
+
+Bruce Springsteen - Letter To You (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Minute You're Here [00:02:57]
+02. Letter To You [00:04:55]
+03. Burnin' Train [00:04:03]
+04. Janey Needs A Shooter [00:06:49](   Читать дальше...   )Жанр: RockПродолжительность: 00:58:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24FD95C14CFA21F3C9B4B3C0E9C179F42BD2F7E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390364   (364848) от 17.10.2020
 
 Tim Montana (feat. Billy F. Gibbons) - 2 albums (2016-2020) [FLAC|Lossless|image + .cue] <Country, Southern Rock>
@@ -6,7 +35,7 @@ Tim Montana (feat. Billy F. Gibbons) - 2 albums (2016-2020) [FLAC|Lossless|image
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364848.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Changing Yesterday - Alive (2016) [MP3|320 Kbps] <Alternative Metal, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364657.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364607.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Crazy N' Sane - This Mess (2016) EP [MP3|320 Kbps] <Nu Metal, Rapcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364554.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Dee Snider - We Are The Ones (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364478.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Semifer - Insane Death Cults (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364385.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Solar Storm - 3 Relises (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364380.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Shambles - Oneiric Visions (2022) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364374.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Innumerable Forms - 3 Albums (2013-2022) [FLAC|Lossless|WEB-DL|tracks] <Doom, De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364373.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Forgotten North - Ara II (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Folk Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364372.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Forgotten North - Ara II (2022) [MP3|320 Kbps] <Symphonic Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364370.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Moving Mountains - Foreword (2008) EP [FLAC|Lossless|tracks + .cue] <Rock, Post 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364369.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ SDI - 80s Metal Band (2020) [FLAC|Lossless|image + .cue] <Speed Metal, Thrash, H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364368.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ La Dispute - Somewhere At The Bottom Of The River Between Vega And Altair (2009)
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364367.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Polychrome - Equilibrium (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364366.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ The Magic Band - Back To The Front (2003) [FLAC|Lossless|tracks + .cue] <Alterna
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364365.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Audrey Horne - Devil's Bell (2022) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364362.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Sweet Oblivion Feat. Geoff Tate - Sweet Oblivion Feat. Geoff Tate (2019) [FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364360.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ The Mars Volta - The Mars Volta (2022) [MP3|320 Kbps] <Progessive Rock, Neo-Psyc
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364356.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Vrylnia - The Other World (2022) [MP3|320 Kbps] <Symphonic Power Metal, Female V
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364287.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Super Vintage - Guardians of Tradition (2022) [FLAC|Lossless|WEB-DL|tracks] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364284.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Rogue Sharks - In For The Kill (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364272.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Blues Traveler - Hurry Up & Hang Around (2018) [FLAC|Lossless|WEB-DL|tracks] <Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364267.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364261.jpg" />
 </div>
 
 
@@ -704,7 +733,7 @@ Witchsnake - Witchsnake (2022) [MP3|320 Kbps] <Heavy Psych, Stoner, Doom, Sludge
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364256.jpg" />
 </div>
 
 
@@ -718,36 +747,6 @@ Witchsnake - Witchsnake (2022) [MP3|320 Kbps] <Heavy Psych, Stoner, Doom, Sludge
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05A9B10D5B82FCFCF5B798A4423AF9615002666E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 253987   (364203) от 04.11.2010
-
-Ленинград - Последний Концерт Ленинграда (2010) [MP3|320 kbps]<Ска>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello, Moscow
-02. МДМ
-03. ИТД
-04. Паганини
-05. Когда нет денегЖанр: СкаПродолжительность: 01:07:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FB8F4BDDC4ADE8BF8F6214224FE452683974BCD
 ```
 
 https://mybot314.ru/tekegram_catalog/

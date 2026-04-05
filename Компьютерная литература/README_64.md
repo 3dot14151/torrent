@@ -1,159 +1,3 @@
-###  Публикация: 536905   (513232) от 19.08.2012
-
-Corrie Haffly | Photoshop CS6: Советы, трюки и приемы работы [2012] [PDF] [En]
-
->>Компьютерная литература
->>2D графика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513232.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге подробно рассмотрены приемы работы в Adobe Photoshop CS6. Основные направления: создание фонов, кнопок, работа с текстом, работа с графикой, оформление для вебсайта. Для продвинутых пользователей: создание gif-анимации и редактирование видео.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C70CAB0CAC4B0AE28899DA8C1002A114F6C13F4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536774   (513220) от 19.08.2012
-
-В.Котов | Adobe Lightroom для фотографов [2008] [PDF]
-
->>Компьютерная литература
->>2D графика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513220.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждому фотографу не раз приходилось задуматься - как же организовать свою работу с отснятым материалом? Как не запутаться в гигабайтах снимков и быстро найти нужную карточку? Как быстро обработать, распечатать, опубликовать в Интернете... Цель этой книги - рассказать о мощном и удобном инструменте для работы с цифровыми фотографиями - программе Adobe Lightroom. Эта программа позволяет выполнить все действия по обработке снимков, начиная с копирования с камеры и заканчивая печатью или публикацией в Интернете.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73F45703BA9559A224CA8C610093B6913D835860
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315491   (512560) от 20.07.2019
-
-А.П. Петренко, А.В. Куприянова| Привет, Excel! Мои первые вычисления, графики и таблицы (2019) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите научиться быстро и без длительного изучения выполнять вычисления в Excel? Вам нужно разобраться с таблицами по учебе или на работе? Всегда считали, что изучать Excel - это трудно и не для вас? Тогда с этой книгой мы идем к вам! При чтении нашей книги вам не понадобятся какие-то особенные навыки в обращении с компьютером, достаточно и самых простых азов. С (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1F27CF7F65A8C5F09ED2ECBFC6A3DE3F34753E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930826   (512494) от 25.08.2015
-
-Ларри Ульман | PHP и MySQL. Cоздание интернет-магазинов. 2-е издание [+ Примеры] (2015) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512494.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом исчерпывающем руководстве известный автор Ларри Ульман проведет вас через все этапы разработки интернет-магазина с использованием PHP и MySQL. Вы узнаете, как спроектировать визуальный интерфейс и создать базу данных сайта, как реализовать представление контента и сгенерировать онлайн-каталог, как управлять корзиной товаров и проводить платежи, как принимать (   Читать дальше...   )Жанр: Программирование, базы данныхФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47001FDC46B0E2A8FC4DACAA89F68DFCCD21D7D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537272   (512229) от 20.08.2012
-
-Elaine Marmel | Word 2010. Самоучитель [2010] [PDF] [En]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основные темы книги: управление документами, редактирование текста, форматирование текста, абзацев, страниц; печать документов, создание таблиц и диаграмм; работа с графикой; работа с интерфейсом, создание макросов; создание писем, конвертов; подготовка к размещению в интернете.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22832C9670209F69251DDCF05A1EC8A583351DBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537302   (512189) от 20.08.2012
-
-Faithe Wempen | Access 2007. Самоучитель [2007] [PDF] [En]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512189.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основные темы: ввод и редактирование данных; работа с таблицами и полями; связанные объекты, таблицы; поиск и фильтрация данных; создание простых и комплексных запросов; создание и редактирование форм; создание и форматирование отчетов; создание диаграмм; работа с внешними данными; обслуживание базы данных (бэкап).Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A69C0686DDE3DD8FDDE50D224115AD357E2CDE9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 537161   (512070) от 20.08.2012
 
 С.Кочан | Программирование на языке С [2007] [PDF]
@@ -162,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512070.jpg" />
 </div>
 
 
@@ -189,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512065.jpg" />
 </div>
 
 
@@ -215,7 +59,7 @@ Mike and Linda Wooldridge | HTML and CSS. Самоучитель [2008] [PDF] [E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511395.jpg" />
 </div>
 
 
@@ -241,7 +85,7 @@ William Wood | PowerPoint 2010. Самоучитель [2010] [PDF] [En]
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511306.jpg" />
 </div>
 
 
@@ -267,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511149.jpg" />
 </div>
 
 
@@ -294,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510402.jpg" />
 </div>
 
 
@@ -320,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509482.jpg" />
 </div>
 
 
@@ -346,7 +190,7 @@ Heydon Pickering, Andy Bell | Every Layout - Relearn CSS Layout By Example (3rd 
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508873.jpg" />
 </div>
 
 
@@ -374,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508373.jpg" />
 </div>
 
 
@@ -401,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507343.jpg" />
 </div>
 
 
@@ -427,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507267.jpg" />
 </div>
 
 
@@ -453,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507153.jpg" />
 </div>
 
 
@@ -479,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506876.jpg" />
 </div>
 
 
@@ -505,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506845.jpg" />
 </div>
 
 
@@ -531,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506728.jpg" />
 </div>
 
 
@@ -557,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506350.jpg" />
 </div>
 
 
@@ -584,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506285.jpg" />
 </div>
 
 
@@ -610,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506277.jpg" />
 </div>
 
 
@@ -636,7 +480,7 @@ Adobe Press | Adobe Photoshop CS6 Classroom in a Book [2012] [PDF] [En]
 >>2D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505242.jpg" />
 </div>
 
 
@@ -662,7 +506,7 @@ Martin Evening | Adobe Lightroom 4. Руководство фотографа [2
 >>2D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505239.jpg" />
 </div>
 
 
@@ -682,6 +526,165 @@ Martin Evening | Adobe Lightroom 4. Руководство фотографа [2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF35C5F4C59B3554902C81551F8242CABB78FB19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933371   (505204) от 02.09.2015
+
+Стивен Леви | Хакеры: Герои компьютерной революции (2001) [FB2]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505204.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как-то незаметно получилось, что за последние годы достаточно большое количество значений слова «хакер» («компьютерный гений – озорник – любитель – специалист – исследователь») постепенно сжалось до «компьютерного хулигана – преступника». Mожно только «порадоваться» за труды журналистов околокомпьютерных и не очень изданий во всем мире, а также голливудских режиссеров, (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: Алексей ЛукинФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F57C33F0856CFB70934DA7397698D71FE22E4DE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316650   (505072) от 27.07.2019
+
+Михаил Фленов | Transact-SQL (2006) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подробно рассмотрено использование языка Transact-SQL для администрирования и манипуляции данными СУБД Microsoft SQL Server. Материал сопровождается большим количеством практических примеров, написанных автором. Уделено внимание вопросам применения Transact-SQL при совместном использовании 1С и Microsoft SQL Server. Для программистов и администраторов СУБДЖанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBA2AA1C9EE76ECAC82F62D2FAAD9BD6CBC2EB10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540693   (502979) от 29.08.2012
+
+М.Моррисон  | Изучаем JavaScript [2012] [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы готовы сделать шаг вперед в своей практике веб-программирования и перейти от верстки в HTML и CSS к созданию полноценных динамических страниц? Тогда пришло время познакомиться с самым "горячим" языком программирования - JavaScript!
+С помощью этой книги вы узнаете все о языке JavaScript: от переменных до циклов. Вы поймете, почему разные браузеры по-разному реагируют на код и как написать универсальный код, поддерживаемый всеми браузерами. Вам станет ясно, почему с кодом JavaScript никогда не придется беспокоиться о перегруженности страниц и ошибках передачи данных. Не пугайтесь, даже если ранее вы не написали ни одной строчки кода, - благодаря уникальному формату подачи материала эта книга с легкостью проведет вас по всему пути обучения: от написания простейшего java-скрипта до создания сложных веб-проектов, которые будут работать во всех современных браузерах.
+Особенностью данного издания является уникальный способ подачи материала, выделяющий серию "Head First" издательства O'Reilly в (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5430A46080969C62A7DB0FD684D93DC5AF5543A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540694   (502978) от 29.08.2012
+
+Л.Бейли | Изучаем SQL [2012] [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502978.jpg" />
+</div>
+
+
+###  Подробнее
+
+В современном мире наивысшую ценность имеет информация, но не менее важно уметь этой информацией управлять. Эта книга посвящена языку запросов SQL и управлению базами данных. Материал излагается, начиная с описания базовых запросов и заканчивая сложными манипуляциями с помощью объединений, подзапросов и транзакций. Если вы пытаетесь разобраться в организации и управлении базами данных, эта книга будет отличным практическим пособием и предоставит вам все необходимые инструменты.
+Особенностью данного издания является уникальный способ подачи материала, выделяющий серию «Head First» издательства O’Reilly в ряду множества скучных книг, посвященных программированию.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B52B7FF1BCCD2C5821D17B71B9920142FF2FC09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316981   (502223) от 30.07.2019
+
+Анатолий Караваев и др. | Введение в программирование для инженеров-электронщиков (2016) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебно-методическое пособие оформлено в виде конспекта лекций. Пособие ориентировано на студентов и инженерно-технических работников, знакомых с языком Pascal, которые преследуют цель быстрого освоения основ популярного языка Си и получения базовых знаний и навыков программирования на языке ассемблера в объеме минимально достаточном для начала освоения специальных (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF565B0FD3338F0FA07D3CF0FB709CC216CEA054
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541149   (502185) от 30.08.2012
+
+Steve Johnson | Adobe Dreamweaver CS5 On Demand [2010] [PDF] [En]
+
+>>Компьютерная литература
+>>Веб-дизайн
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502185.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет из себя пошаговый иллюстрированный самоучитель. Охвачен весь процесс создания веб-страниц от планирования сайта до его публикации в сети. Подробно рассмотрен интерфейс программы Adobe Dreamweaver CS5. Знание языка - начальное.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB538B6F15ADF7D14107EA070FA44E7C0371E1F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

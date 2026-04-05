@@ -1,3 +1,81 @@
+###  Публикация: 1532688   (712667) от 20.02.2022
+
+Новый кинотеатр «Парадизо» / Nuovo Cinema Paradiso (1988) BDRemux [H.264/1080p] [Director's Cut] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сальваторе Ди Вита, ставший известным режиссёром, однажды поздно вечером, вернувшись домой, узнаёт от своей подруги, что звонила его мать и сообщила о смерти некоего Альфредо. Сальваторе возвращается в прошлое, к своему детству и юности... События фильма начинаются сразу после Второй мировой войны в провинциальном городке Джанкалдо на Сицилии. 6-летний Сальваторе (   Читать дальше...   )Производство: Италия, Франция / Cristaldifilm, Les Films Ariane, Rai Tre Radiotelevisione Italiana, TF1 Films Production, Forum PictureЖанр: драма, мелодрамаРежиссер: Джузеппе ТорнатореАктеры: Филипп Нуаре, Сальваторе Кашо, Марко Леонарди, Жак Перрен, Антонелла Аттили, Энцо Каннавале, Иза Даниэли, Лео Гульотта, Пупелла Маджио, Аньезе НаноПеревод: Авторский (Ю. Сербин, М. Чадов, Р. Янкилевич)Язык озвучки: Русский, украинский, английскийСубтитры: русские, английскиеПродолжительность: 02:53:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C32980556C4682FF4DF2B97CE6B308FD6AE1348
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130230   (712284) от 03.05.2017
+
+Я исповедуюсь / I Confess (1953) BDRip [H.265/1080p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отец Майкл Логан, казалось бы, — образец церковной добродетели, выслушивает исповедь убийцы. Показания свидетелей указывают на то, что главный подозреваемый — сам священник, но сан запрещает Логану разглашать тайну исповеди даже ради собственного алиби!Производство: США, Канада / Warner Bros. PicturesЖанр: Фильм-нуар, Триллер, КриминалРежиссер: Альфред ХичкокАктеры: Монтгомери Клифт, Энн Бакстер, Карл Молден, Брайан Ахерн, О.Э. Хассе, Роджер Дэнн, Долли Хаас, Чарльз Андре, Нэн Бордман, Генри КорденПеревод: Многоголосый закадровый (Film Prestige)Субтитры: английскиеПродолжительность: 01:34:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AF5B6458C04DF75EE35E8F1B458ECFDB038285E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 890436   (710614) от 30.04.2015
+
+Привидение / Призрак / Ghost (1990) BDRip [H.264/1080p]
+
+>>След.
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Счастливая парочка возвращается домой после вечера в театре. На тёмной аллее на них нападает грабитель... Защищаясь, Сэм погибает. Теперь он только призрак, но всё еще может помочь своей возлюбленной! Сэм-привидение узнаёт, что его смерть не была случайной, а над Молли нависла смертельная опасность! Но для Молли он теперь «человек-невидимка», которого она не видит (   Читать дальше...   )Производство: США / Paramount PicturesЖанр: Фэнтези, Триллер, Драма, Мелодрама, ДетективРежиссер: Джерри ЦукерАктеры: Патрик Суэйзи, Деми Мур, Вупи Голдберг, Тони Голдвин, Стэнли Лоуренс, Кристофер Дж. Кин, Сьюзэн Бреслау, Мартина Дэйнан, Рик Клебер, Мэка Фоли, Рик Авилес, Фил Лидз, Джон Хью, Sam Tsoutsouvas, Шарон Бреслау, Винсент Скиавелли, Анджелина Эстрада, Armelia McQueen, Гэйл Боггс, Том Керли, Стивен РутПеревод: Профессиональный (Многоголосый закадровый), Одноголосый закадровыйЯзык субтитров: Русский (Blu-ray CEE), Русский (А. Михалёв), Украинский, Эстонский, Латвийский, Литовский, Английский, Английский (SDH), Чешский, Французский, ИспанскийПродолжительность: 02:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CDCA22104920A34CB939C89359211026BECF53F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128864   (710393) от 04.05.2017
 
 Пэйтон Плейс / Peyton Place (1957) Blu-ray [H.264/1080p] [Custom]
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710393.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710304.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710091.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709637.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708738.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708734.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708703.jpg" />
 </div>
 
 
@@ -192,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707011.jpg" />
 </div>
 
 
@@ -219,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706480.jpg" />
 </div>
 
 
@@ -245,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705896.jpg" />
 </div>
 
 
@@ -271,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705882.jpg" />
 </div>
 
 
@@ -297,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705418.jpg" />
 </div>
 
 
@@ -325,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704813.jpg" />
 </div>
 
 
@@ -351,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702195.jpg" />
 </div>
 
 
@@ -377,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701794.jpg" />
 </div>
 
 
@@ -404,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_701671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_701671.jpg" />
 </div>
 
 
@@ -431,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701175.jpg" />
 </div>
 
 
@@ -457,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700889.jpg" />
 </div>
 
 
@@ -484,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700309.jpg" />
 </div>
 
 
@@ -510,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699858.jpg" />
 </div>
 
 
@@ -536,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697729.jpg" />
 </div>
 
 
@@ -563,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697685.jpg" />
 </div>
 
 
@@ -591,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696923.jpg" />
 </div>
 
 
@@ -602,84 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17995693321B26DF84E2D5A7200897F093BB92EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 628892   (696488) от 23.04.2018
-
-Стукач / The Finger Man / Le doulos (1962) WEB-DL [H.264/720p] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два лучших друга Сильяна занимают полярные позиции в обществе — Морис — вор, Сальяри — полицейский комиссар. А потому ему приходится бороться с желанием сообщить всё, что он знает и тому и другому. Но иногда он так и делает. Ведь он одновременно и преступник, и добровольный полицейский осведомитель. А за это рано или поздно может наступить расплата. И когда Морис (   Читать дальше...   )Жанр: Триллер, криминалРежиссер: Жан-Пьер МельвильВ ролях: Жан-Поль Бельмондо, Серж Реджани, Жан Дезайи, Рене Лефевр, Марсель Кювелье, Филипп Марш, Фабьен Дали, Моника Хеннесси, Кристиан ЛюдПеревод: Многоголосый закадровыйСубтитры: нетПродолжительность: 01:48:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDC4918405C340ADFC9E6B3A7344819274E4EEED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221220   (694684) от 24.04.2018
-
-Профессия: Репортер / Professione: reporter / The Passenger (1975) BDRemux [H.264/1080p] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журналист с философской фамилией Дэвид Локк приезжает делать материал в Северную Сахару, но работа не клеится. Очередной тягостно-жаркий день приносит неприятный сюрприз: умирает сосед, живущий в номере напротив. Повинуясь внезапному порыву, Локк забирает багаж покойного, переклеивает фотографию в паспорте и спешно покидает отель в смутном предчувствии новой жизни.Производство: Италия, Испания, ФранцияЖанр: Триллер, ДрамаРежиссер: Микеланджело АнтониониАктеры: Джек Николсон, Мария Шнайдер, Дженни Ранэйкр, Стивен Беркофф, Амброз Биа, Иан Хендри, Жан Баптист Тьемель, Манфред Спайс, Джеймс Кэмпбелл, Хосе Мария КаффарельПеревод: Многоголосый закадровыйСубтитры: русские, английскиеПродолжительность: 02:05:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17D7959FC31C042100C15F20DA18FCBC17690220
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532463   (694133) от 02.03.2022
-
-Новый кинотеатр «Парадизо» / Nuovo Cinema Paradiso (1988) BDRip [H.264/720p] [AVO] [Director's Cut]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сальваторе Ди Вита, ставший известным режиссёром, однажды поздно вечером, вернувшись домой, узнаёт от своей подруги, что звонила его мать и сообщила о смерти некоего Альфредо. Сальваторе возвращается в прошлое, к своему детству и юности... События фильма начинаются сразу после Второй мировой войны в провинциальном городке Джанкалдо на Сицилии. 6-летний Сальваторе (   Читать дальше...   )Производство: Франция, Италия, Cristaldifilm, Les Films Ariane, Rai Tre Radiotelevisione Italiana, TF1 Films Production, Forum PictureЖанр: драма, мелодрамаРежиссер: Джузеппе ТорнатореАктеры: Филипп Нуаре, Сальваторе Кашо, Марко Леонарди, Жак Перрен, Антонелла Аттили, Энцо Каннавале, Иза Даниэли, Лео Гульотта, Пупелла Маджио, Аньезе НаноПеревод: авторские (Юрий Сербин; Роман Янкелевич)Субтитры: русские, английскиеПродолжительность: 02:53:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D2F3406EF877315AFE10CCBDADDD090B63E5BBC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,59 @@
 https://t.me/izofen
+###  Публикация: 1861585   (1063372) от 
+
+Юкихиса Ямамото | Цветочная лавка на перекрестке судеб. Каждый цветок хранит чью-то историю (2026) [MP3, Анна Мосолова]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Терапевтический роман-бестселлер в Японии.
+В каждом букете чья-то история – о любви, потере или надежде.
+Тихая улочка Токио, скромная вывеска, ароматы тысячи цветов – здесь теперь работает Кикуко. Она набралась смелости, чтобы уволиться с нелюбимой офисной работы. Теперь будни Кикуко наполнены ароматами магнолий, сакуры и хризантем, но ее не отпускают сомнения и (   Читать дальше...   )Жанр: проза , современная зарубежная литератураИздательство: БОМБОРАПродолжительность: 08:12:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAB3D4802621BDFD50462E7E3D6BB7D07869D4ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862611   (1063301) от 
+
+Пу Сунлин | Рассказы Ляо Чжая о необычайном (2019) [MP3, Пожилой Ксеноморф]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый китайский писатель Пу Сунлин (1640—1715) был человеком громадного поэтического таланта, до тонкостей знающим все тайны китайского языка, начиная с самого древнего и кончая современным ему. Как писал академик В. М. Алексеев, Пу Сунлин «воскресил язык, извлек его из амбаров учености и пустил в вихрь жизни простого мира».
+Содержание его рассказов вращается (   Читать дальше...   )Жанр: приключения, фантастика, мистикаИздательство: ИНДИПродолжительность: 13:07:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0407E7C989667FBF74251BE1925498DD1E095EAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861689   (1062681) от 
 
 Анна Грин | Тайна мистера Сильвестра (2026) [MP3, Андрей Филиппак]
@@ -7,7 +62,7 @@ https://t.me/izofen
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062681.jpg" />
 </div>
 
 
@@ -33,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060736.jpg" />
 </div>
 
 
@@ -62,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059140.jpg" />
 </div>
 
 
@@ -88,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058836.jpg" />
 </div>
 
 
@@ -114,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057183.jpg" />
 </div>
 
 
@@ -142,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056868.jpg" />
 </div>
 
 
@@ -169,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056766.jpg" />
 </div>
 
 
@@ -195,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056100.jpg" />
 </div>
 
 
@@ -221,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056099.jpg" />
 </div>
 
 
@@ -247,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056098.jpg" />
 </div>
 
 
@@ -273,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055979.jpg" />
 </div>
 
 
@@ -299,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055794.jpg" />
 </div>
 
 
@@ -326,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055164.jpg" />
 </div>
 
 
@@ -352,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054310.jpg" />
 </div>
 
 
@@ -378,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054309.jpg" />
 </div>
 
 
@@ -404,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053838.jpg" />
 </div>
 
 
@@ -430,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053671.jpg" />
 </div>
 
 
@@ -459,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053561.jpg" />
 </div>
 
 
@@ -486,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053381.jpg" />
 </div>
 
 
@@ -512,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053367.jpg" />
 </div>
 
 
@@ -538,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053365.jpg" />
 </div>
 
 
@@ -564,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052770.jpg" />
 </div>
 
 
@@ -590,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052589.jpg" />
 </div>
 
 
@@ -617,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052473.jpg" />
 </div>
 
 
@@ -629,61 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19C979D2EBAF11E405BB5EA9B92B7B37F75504F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847727   (1052346) от 14.01.2026
-
-Ник Брэдли | Loft. Путешествие по Японии. Четыре сезона в Японии (2025) [MP3, Юрий Красиков]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052346.jpg" />
-</div>
-
-
-###  Подробнее
-
-От автора бестселлера «„Кошка и Токио“»
-ЧТО БУДЕТЕ ДЕЛАТЬ, ИСПОЛНИВ СВОЮ САМУЮ ЗАВЕТНУЮ МЕЧТУ?
-***
-Пережив момент триумфа, Фло впадает в апатию, но найденная в метро книга становится новой целью – она настолько перекликается с тем, что происходит в душе у девушки, что Фло решает во что бы то ни стало отыскать автора. Даже если придется ехать в далекую провинцию на (   Читать дальше...   )Жанр: Современная зарубежная литератураИздательство: INSPIRIA (Эксмо)Продолжительность: 13:23:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6D244AAA3CF29D156C63DDEDDACFAB399631BAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847542   (1052167) от 12.01.2026
-
-Майкл Крайтон | Пожиратели мёртвых [13-й воин] (2025) [MP3, Евгений Никитин]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вельможа и поэт Ахмад Ибн Фадлан, подданный арабского халифа, отправлен с поручением к богатому купцу. Но события складываются так, что Ахмад бежит из халифата и оказывается на Севере в плену у скандинавских викингов. Ночью во тьме появляются потомки неандертальцев — демоны с медвежьими головами и лапами львов, нападающие на людей, убивающие их и поедающие мертвых. (   Читать дальше...   )Жанр: Проза, история, приключенияИздательство: Аудиокнига своими рукамиПродолжительность: 07:37:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06B4F43ABF5DE528A33AAAF3B332229D452E780E
 ```
 
 https://mybot314.ru/tekegram_catalog/

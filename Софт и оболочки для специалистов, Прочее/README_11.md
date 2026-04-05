@@ -1,3 +1,107 @@
+###  Публикация: 1222488   (684556) от 29.04.2018
+
+Autodesk AutoCAD Plant 3D 2019 (M046.04)  [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684556.jpg" />
+</div>
+
+
+###  Подробнее
+
+САПР AutoCAD Plant 3D, предназначенная для проектирования технологических объектов, трубопроводов и КИП, помогает специалистам поддерживать производительность, добиваться высокого качества и выпускать скоординированные проекты. В основе продукта лежит хорошо известная платформа AutoCAD, к которой добавлены специализированные инструменты для инженеров, занимающихся (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:804CDDDE0EE711637D4BBE071125C7C50B1E0BA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222607   (684444) от 29.04.2018
+
+Autodesk AutoCAD Mechanical 2019 (23.0.46.0) [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684444.jpg" />
+</div>
+
+
+###  Подробнее
+
+AutoCAD Mechanical – это AutoCAD для машиностроительного проектирования. AutoCAD Mechanical является частью технологии цифровых прототипов Autodesk. Продукт объединяет в себе функциональность AutoCAD – мирового лидера среди 2D САПР – с преимуществами обширных библиотек стандартизированных компонентов и средств автоматизации, ускоряющих выполнение задач проектирования. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D5BA43A88737A779CC22F8541F9225F3C7685CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222561   (684442) от 29.04.2018
+
+Autodesk AutoCAD Electrical 2019 (16.0.49.0) [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684442.jpg" />
+</div>
+
+
+###  Подробнее
+
+AutoCAD Electrical — это AutoCAD для проектирования электрических систем управления, являющийся важной частью технологии цифровых прототипов Autodesk и позволяющий работать быстро, качественно и со значительно меньшими затратами в знакомой среде проектирования. Специализированные функции и обширные библиотеки условных обозначений позволяют повысить производительность, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0568A3ED71F7437BABFA2DD26FD98CF26C0DC755
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222574   (684434) от 29.04.2018
+
+Autodesk AutoCAD Architecture 2019.0.1 (8.1.60.0) [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684434.jpg" />
+</div>
+
+
+###  Подробнее
+
+AutoCAD Architecture — это версия AutoCAD, созданная специально для проектирования строительных объектов. Инструменты архитектурного черчения позволяют более эффективно проектировать и создавать документацию в привычной программной среде AutoCAD. Рост производительности труда в AutoCAD Architecture по сравнению с традиционными САПР наблюдается уже с первой минуты, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:938B52999B03EF1E674EF55A9B985EA96EDD381E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222718   (682335) от 30.04.2018
 
 Autodesk Advance Steel 2019 (1578) [Multi/Ru]
@@ -6,7 +110,7 @@ Autodesk Advance Steel 2019 (1578) [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682335.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ Autodesk Navisworks Manage 2019 (16.0.1326.55) [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682327.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ Autodesk AutoCAD MEP 2019 (8.1.48.0) [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682324.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ Windows Logon Editor 1.0 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_680674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_680674.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ Autodesk Robot Structural Analysis Professional 2019 (32.0.0.6490) [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680564.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676161.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ Atom 1.17.0 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668820.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ CST Studio Suite 2015.01 SP1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661748.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ Autodesk СПДС модуль 6.0 для продуктов семейства 
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658549.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ My Drivers Professional 5.1 Build 3808 RePack by Trovel [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656179.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ Graitec Advance Suite 2012 SP1 1.1.553 [Ru, Eng] x32 x64
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_654159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_654159.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ SAPIEN PrimalScript 2022 v8.0.161 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650467.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ Microsoft Visual C++ AIO Runtime Libraries Full Pack by Wilenty 20.03.2019 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650019.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649009.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646898.jpg" />
 </div>
 
 
@@ -401,7 +505,7 @@ Autodesk Navisworks Manage 2016 13.0.1240.52 (x64) [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644944.jpg" />
 </div>
 
 
@@ -427,7 +531,7 @@ Ghidra 9.0.1 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642553.jpg" />
 </div>
 
 
@@ -453,7 +557,7 @@ Advanced Installer 14.9 Build D1A66FF2F1 RePack by Alex Zaguzin [Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639135.jpg" />
 </div>
 
 
@@ -479,7 +583,7 @@ Qt cross-platform framework 5.7 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635530.jpg" />
 </div>
 
 
@@ -505,7 +609,7 @@ Chip BS Post Installer DVD v.2014 [Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634162.jpg" />
 </div>
 
 
@@ -533,7 +637,7 @@ VMware Workstation 16 Pro 16.2.3 Build 19376536 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625178.jpg" />
 </div>
 
 
@@ -559,7 +663,7 @@ Microsoft Office Online Server 2016 (Updated March 2017) [Ru/En]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622984.jpg" />
 </div>
 
 
@@ -572,110 +676,6 @@ Office Online Server — это серверный продукт Office, кот
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:689D0E9058B4E3185390085D600C5F671E305C15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146188   (615798) от 28.06.2017
-
-Microsoft Exchange Server 2016 (Cumulative Update 6) [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Серверное ПО
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615798.jpg" />
-</div>
-
-
-###  Подробнее
-
-Exchange Server 2016 позволяет выполнять множество задач и пользоваться обширным набором возможностей Outlook на телефонах, планшетах, компьютерах и в Интернете. Интеграция с Outlook, SharePoint и OneDrive для бизнеса расширяет возможности совместной работы: вы можете получать и изменять документы, а также делиться ими, не покидая Outlook. Новый поиск работает быстрее (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85B37463D176541A550A577C611525259E3A871C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036760   (615163) от 23.07.2016
-
-PLS-CADD 9.20 Portable [En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615163.jpg" />
-</div>
-
-
-###  Подробнее
-
-PLS-CADD является наиболее мощной программой проектирования ВЛ, представленной на рынке. PLS-CADD работает под Microsoft Windows и обладает легким в использовании графическим интерфейсом пользователя. Все аспекты проектирования линии соединены в единой автономной программе с простым, логичным и последовательным интерфейсом. Ни одна другая программа не может сравниться (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CC1EBC0C84BA901A17F9A95448705109A3599D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036842   (614873) от 23.07.2016
-
-Sprint-Layout 6.0 AIO Upd 06.06.2016 Repack (& Portable) by Robby [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sprint-Layout 6.0 - это простая программа для создания односторонних, двухсторонних и многослойных печатных плат. В программу включены многие функции, необходимые для разработки и изготовления печатных плат. Кроме того, она обладает и некоторыми возможностями присущими  профессиональным САПР, такими как экспорт файлов в форматах Gerber и HPGL.Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ADD176F3BA4A606E0261C9C395CB3C555A251B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295869   (614719) от 15.04.2019
-
-Collection of programs Video Downloader 19.04.14 [4in1] RePack (& Portable) by ZVSRus [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>WPI
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614719.jpg" />
-</div>
-
-
-###  Подробнее
-
-YTD Video Downloader позволяет загрузить нужный вам файл всего за один клик. Нужно просто добавить адрес с вашим роликом, который вы хотите загрузить, нажать кнопку скачать и остальное программа сделает самостоятельно. Из отличительных особенностей программы можно отметить следующее. Возможность конвертировать скачанные файлы прямо в программе. Например, вы можете (   Читать дальше...   )Язык интерфейса: Русский | Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0B92EB435622577A2F47E1F955EDF29F26E3C75
 ```
 
 https://mybot314.ru/tekegram_catalog/

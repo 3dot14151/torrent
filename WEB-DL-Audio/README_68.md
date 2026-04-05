@@ -6,7 +6,7 @@ Andreas Diehlmann Band - That Old Blues Again (2024) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104103.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Aetherwind - Ethereal Wind (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104102.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Patrick Bradley - Gratitude (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth J
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104100.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ LeSoir - Push Back The Horizon (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104099.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Dell Solano - Músicas Autorais (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Cont
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104098.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Bones Owens - Love out of Lemons (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104097.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Choca Blues - The Wind (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104096.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Klaus B. Jensen - In Memory of a Great Dane - The lost recordings (2024) [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104095.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Ed Neumeister - Covers (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporar
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104094.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Francesco Bearzatti, Stefano Risso and Mattia Barbieri - Behind Anatomy (2024) [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104093.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Lady Adrena - Recipe For The Blues (Deluxe Edition) (2024) [FLAC 24/96|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104091.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Dear Robin - Timebound (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104090.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Lovesick - Remember My Name (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104089.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Herb Alpert - 50 (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104088.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Greg Izor - Sustained Winds (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104087.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Doomsday Outlaw - Hard Times (Redux) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104086.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Hard-on Blues - Hard-on Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104085.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Duo Holistique - FUTURISTIQUE (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104084.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Cek & The Stompers - Mr. Red (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104080.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Dred Scott Trio - Cali Mambo (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemp
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104079.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Frankywright - Echoes of Sorrow (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104078.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Max Diller & Blossom - Solastalgia (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104073.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Eric Escanes - Near and Far (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contempo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104072.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Magnus Dauner - Portrait In Rhythm (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <C
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104071.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Forq - Big Party (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104070.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Ruben Bertrands - The Other Side Of The Coin (2024) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104069.jpg" />
 </div>
 
 

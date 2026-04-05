@@ -1,22 +1,22 @@
-###  Публикация: 1849178   (1053241) от 21.01.2026
+###  Публикация: 1850060   (1054011) от 08.02.2026
 
-Papercut Limited | Mac & MacOS Complete Manual. 14th Edition (2022) [PDF] [EN]
+Medalist (2026) | Медалистка ТВ-2 [2026, TV, 1 из 9] WEB-DL 1080p raw
 
->>Компьютерная литература
->>
+>>Аниме с субтитрами
+>>Онгоинги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054011.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Whether you’re new to the Mac or have been using one for a while, Mac ‒ The Complete Guide is for you. We show you how to set up your Mac out of the box, how to get to grips with its basic features, and how to use your Apple computer for productivity, email and the Internet, photography, communication, entertainment, and more.Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Papercut LimitedФормат: PDFКачество: Обработанный скан
+Цукаса Акэурадзи мечтал бороться за медали в фигурном катании, но профессиональный спорт не терпит тех, кто приходит к таким мечтам слишком поздно. Будущие чемпионы Японии встают на лёд уже в пять лет, поэтому Цукасе, который только в средней школе осознал своё желание, была дорога лишь в танцы на льду, которые и рядом не стояли с его мечтаниями о сольном катании. (   Читать дальше...   )Производство: ENGIЖанр: спортРежиссер: Ямамото ЯсутакаПеревод: Архив Субтитров (Donate)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: ТВ (9 эп.), 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:088206451851381230309B94A7B0C683B7A712A1
+magnet:?xt=urn:btih:93D63E8FFC87A858430293235B49E5A18B0B4F2F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,26 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849160   (1053240) от 21.01.2026
+###  Публикация: 1848324   (1054010) от 26.01.2026
 
-Журнал | Профиль №1 (270) (январь 2026) [PDF]
+Vayper - Песни на стихи Некрасова Н.А. (2026) [MP3|~190 Kbps (V2)] <Shanson, Powerful, Synthwave, Nu-metal, Theatrical rock>
 
->>Журналы
->>Другие журналы
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054010.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Актуальная и эксклюзивная информация, аналитические материалы, обзоры и рейтинги в области политики и общества, экономики и бизнеса, финансов и инвестиций.
-На страницах журнала вы найдете эксклюзивные репортажи, аналитические прогнозы, рейтинги и обзоры по различным темам (экономика, политика, финансы, бизнес, промышленность, инвестиции), социологические опросы и (   Читать дальше...   )Жанр: Деловой, аналитическийИздательство: ООО «ИДР»Формат: PDFКачество: Изначально электронное (ebook)
+Список альбомов:
+01 - Вино (Некрасов Н.А.
+02 - Внимая ужасам войны… (Некрасов Н.А.)
+03 - Генерал Топтыгин (Некрасов Н.А.)(   Читать дальше...   )Жанр: powerful, synthwave with nu-metal, Theatrical rock, Русский шансонПродолжительность: 9 CD, 01:43:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:70F6097FF1EFF935DEA4E5A66EA3300B8D3E4BBA
+magnet:?xt=urn:btih:1C0A6A7BD1A299F7F0A20C92C731E544FD21475C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -51,25 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849157   (1053239) от 21.01.2026
+###  Публикация: 1847558   (1054009) от 26.01.2026
 
-Журнал | Добрые советы. Люблю готовить! №2 (февраль 2026) [PDF]
+Vayper - Матерные частушки (Алексей Иванов) (2026) [MP3|~190 Kbps (V2)] <Russian Folk Pop>
 
->>Журналы
->>Кулинарные журналы
+>>Other Styles
+>>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054009.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал о вкусной еде, не похожий на другие кулинарные издания. Все опубликованные в нем рецепты присланы в редакцию самими читателями. Каждый рецепт прошел конкурсный отбор, а его автор получил денежный приз. Ежемесячно на страницах журнала — более 50 коронных блюд, которые многократно проверены опытными хозяйками и которые можно смело брать в свою коллекцию рецептов (   Читать дальше...   )Жанр: КулинарияИздательство: АО "Бренд Комьюнити Медиа"Формат: PDFКачество: Изначально электронное (ebook)
+01. Матерные частушки 01 (Алексей Иванов) MIX[00:02:47]
+02. Матерные частушки 02 (Алексей Иванов) MIX[00:02:41]
+03. Матерные частушки 03 (Алексей Иванов) MIX[00:03:25]
+04. Матерные частушки 04 (Алексей Иванов) MIX[00:04:22]Жанр: Russian Folk PopПродолжительность: 2 CD, 00:24:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E684EC67203552F4E3912BF2FA7C42A64C5825A1
+magnet:?xt=urn:btih:64CFB9D31FDEC22FD9BE35B4C69183026A63BC8C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -77,25 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849124   (1053238) от 21.01.2026
+###  Публикация: 1846965   (1054008) от 26.01.2026
 
-Виктор Ковалев | Геморрой. Излечение без операции (2025) [MP3, Нина Ермишина]
+Vayper - Dancing Music fo NY 2026 at Vayper@SWH (2025) [MP3|~190 Kbps (V2)] <Chanson, Pop>
 
->>Обучающие аудиоматериалы
->>Здоровье и Медицина (аудиоматериалы)
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054008.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Автор представляет вашему вниманию расширенную и дополненную версию своей книги «Геморрой и все-все-все». В ней доктор обстоятельно и доступно рассказывает о чрезвычайно распространенном недуге в деликатной области нашего тела. Вы узнаете о геморрое немало важного и любопытного: о сущности болезненного процесса; о симптомах и различных стадиях проявления; о современных (   Читать дальше...   )Жанр: Диагностика и лечение, Здоровье, Медицина, Практическая медицинаИздательство: Центрполиграф , ЛитРес: чтец , Нина ЕрмишинаПродолжительность: 05:42:42
+01. 12 месяцев (SWH, Disco) [00:06:04]
+02. 12 месяцев (SWH, Folk Rock) [00:05:15]
+03. Анчар (А.C. Пушкин, Synth Rock) [00:04:48]
+04. Иди на свет (SWH, Synth Rock) [00:03:58](   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 00:40:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:176C194C0C8E4E48C44E2254585D1FAF7A5E77C3
+magnet:?xt=urn:btih:7F93F4FBD3E9D465EA704174B0A24092835B9127
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -103,236 +111,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849121   (1053237) от 21.01.2026
+###  Публикация: 1849589   (1054007) от 26.01.2026
 
-Алексей Алёхин | Мясорубка. Как Россия полюбила кровавый спорт (2024) [MP3, Алексей Алёхин]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Здесь глотают кровь, ломают кости и теряют сознание, звезды вспыхивают за недели, а любой конфликт грозит перерасти в драку. Бои на голых кулаках, поп‑ММА и зарубы на Ютубе превратились в феномен, который раздражает многих, но на слуху у всех. Миллионы людей с азартом следят за судьбой уличных бойцов, блогеров, знаменитостей и отчаявшихся спортсменов, которые (   Читать дальше...   )Жанр: Боевые и спортивные единоборства, Документальная литература, Спорт / фитнесИздательство: IndividuumПродолжительность: 11:16:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5485A293161F0E8C803A01A32D28D2BE4CBD01E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849115   (1053236) от 21.01.2026
-
-Книжная серия | Книги-компиляции от издательства «Витовт». Часть 5 [231 книга] (2025) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пятая часть глобальной электронной библиотеки от издательства «Витовт». По прежнему только лучшие книги, циклы и авторы.Жанр: фантастика, приключения, историческая прозаИздательство: ВитовтФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F7C6CC6240EBA3BBFCD508716963B02D6B77888
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849109   (1053235) от 21.01.2026
-
-Книжная серия | Библиотека от Поручика [1000 книг] (1950-2025) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Библиотека от Поручика - сборник книг, которые знакомы многим, вы могли видеть их в детстве на книжных полках родителей, а у некоторых они стоят там до сих пор. Это электронные версии самых популярных советских книжных серий - приключенческих, фантастических, детских, детективных. Главные отличия этой библиотеки от многих других - это самый большой сборник книг подобного (   Читать дальше...   )Жанр: Фантастика, приключения, детские и др.Издательство: РазличныеФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62EF013CE0A1EE90E5D833D060745CAD491C1ACC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849107   (1053234) от 21.01.2026
-
-Книжная серия | Книжная полка «Дозора» [2023 книги] (2023-2026) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новейший сборник книг-омнибусов от интернет-издательства «News Dozor» посвящен в основном современной фантастике самых разных направлений от молодых российских авторов, но не только, есть и классики мировой фантастики и современные зарубежные авторы. Каждый омнибус это отдельный цикл и может содержать до 10 и более книг. Книги в сборнике отличаются качеством исполнения (   Читать дальше...   )Жанр: Бояръ-аниме, фэнтези, космоопера, попаданцыИздательство: РазличныеФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F47ACE115CC816343518A2AABC8B4429E1CD4DD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849106   (1053233) от 21.01.2026
-
-Книжная серия | Попaдaнцы. Быстрее, выше, сильнее [135 книг] (2000-2025) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник книг полностью посвящен попаданцам, выбравшим в прошлом карьеру спортсмена.Жанр: Попаданцы, приключения, спортИздательство: РазличныеФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85709F45EA1254B978F799DDBEA7A503260230E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849104   (1053232) от 21.01.2026
-
-Книжная серия | СССР XXI [64 книги] (2001-2025) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053232.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник книг в жанре альтернативной истории, в которых развитие Страны Советов по тем или иным причинам пошло по другому пути и СССР активно осваивает космическое пространство, а холодная война, периодически переходя в горячую фазу, продолжается, и противниками выступают то Соединенные Штаты, то Космический Рейх, Европейский Альянс или Сфера Сопроцветания. По расчетным (   Читать дальше...   )Жанр: Боевая фантастика, альтернативная история, попаданцыИздательство: РазличныеФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8CA1BBEDF47D478B2C414FBFDB2503F6FF856B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849097   (1053231) от 21.01.2026
-
-Chris Fregly | AI Systems Performance Engineering. Optimizing Model Training and Inference Workloads with GPUs, CUDA, and PyTorch (2025) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elevate your AI system performance capabilities with this definitive guide to maximizing efficiency across every layer of your AI infrastructure. In today's era of ever-growing generative models, AI Systems Performance Engineering provides engineers, researchers, and developers with a hands-on set of actionable optimization strategies. Learn to co-optimize hardware, (   Читать дальше...   )Жанр: Искусственный интеллект, Программирование, Компьютерная литератураЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D55DB6E4890C9A3D3886EB400CF6BDC22861A7BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849095   (1053230) от 21.01.2026
-
-Priyanka Vergadia, Valliappa Lakshmanan | Visualizing Generative AI. How AI Paints, Writes, and Assists (2025) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Generative AI has the potential to innovate and evolve business processes, but workers are still figuring out how to build with, optimize, and prompt GenAI tools to fit their needs. And of course, there are pitfalls to avoid, like security risks and hallucinations. Getting it right requires an intuitive understanding of the technology’s capabilities and limitations. (   Читать дальше...   )Жанр: Искусственный интеллект, Программирование, Компьютерная литератураЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD9D20864D3E05062088489C327A1CC836C32FA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849071   (1053229) от 21.01.2026
-
-Воровайки - Какие наши годы (2026) [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <Pop-Chanson>
+VA - Sounds of the 70s (2026) [MP3|320 Kbps] <Pop, Dance>
 
 >>Pop
->>Отечественная поп-музыка (Lossless)
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054007.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ой, тётя [00:03:00]
-02. Судьба жестокая [00:03:00]
-03. Марго [00:03:51]
-04. Дайте звука [00:02:52](   Читать дальше...   )Жанр: Pop-ChansonПродолжительность: 00:40:46
+01. December, 1963 (Oh What a Night!) - Frankie Valli & The Four Seasons  - (03:20)
+ 02. Feel like Makin’ Love (2015 Remaster) - Bad Company  - (05:15)
+ 03. Right down the Line - Gerry Rafferty  - (04:28)
+ 04. Right Back Where We Started From - Maxine Nightingale  - (03:12)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:41:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D62A11D94381893FA5189AD685A6AA9E671AAE50
+magnet:?xt=urn:btih:F4D53F162B83AE056F00B1EF291D9CE8EEC380EE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -340,27 +140,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849063   (1053228) от 21.01.2026
+###  Публикация: 1850084   (1054006) от 26.01.2026
 
-John Paul Mueller, Luca Massaron, Stephanie Diamond | Artificial Intelligence For Dummies. 3rd Edition (2025) [PDF, EPUB] [EN]
+Chris Dent | Mastering PowerShell Scripting. Automate repetitive tasks and simplify complex administrative tasks using PowerShell. 5th Edition (2024) [PDF, EPUB] [EN]
 
 >>Компьютерная литература
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054006.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Dive into the intelligence that powers artificial intelligence
-
-Artificial intelligence is swiftly moving from a sci-fi future to a modern reality. This edition of Artificial Intelligence For Dummies keeps pace with the lighting-fast expansion of AI tools that are overhauling every corner of reality. This book demystifies how artificial intelligence systems operate, (   Читать дальше...   )Жанр: Компьютерная литература, Искусственный интеллектЯзык: АнглийскийИздательство: John Wiley & Sons, Inc.Формат: PDF, EPUBКачество: Изначально электронное (ebook)
+Master PowerShell to automate real-world administrative tasks, streamline workflows, and enhance security across Windows environments
+Book Description
+Mastering PowerShell Scripting, Fifth Edition, is your comprehensive guide to harnessing PowerShell’s full potential. This edition introduces new chapters on debugging, troubleshooting, and creating GUIs while covering (   Читать дальше...   )Жанр: Windows Server Guides, Windows Administration, Microsoft OS GuidesЯзык: АнглийскийИздательство: Packt PublishingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E983CFAFA9AF08C686D459750E235881CBB152AE
+magnet:?xt=urn:btih:F6CE36992E4CC39F52E6A6C36099FEC7F636F92C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -368,26 +168,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849061   (1053227) от 21.01.2026
+###  Публикация: 1850082   (1054005) от 26.01.2026
 
-Chris Minnick | Artificial Intelligence All-in-One (2025) [PDF] [EN]
+Dan Gookin | Microsoft 365 Word For Dummies. 2nd Edition (2025) [PDF] [EN]
 
 >>Компьютерная литература
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054005.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A comprehensive roadmap to using AI in your career and in your life.
-Artificial Intelligence is everywhere. Major software organizations like Microsoft, Google, and Apple have built AI directly into products and invited the world to become part of the AI revolution. And it's impossible to use these tools to their fullest potential without understanding the basics (   Читать дальше...   )Жанр: Компьютерная литература, Искусственный интеллектИздательство: John Wiley & Sons, Inc.Формат: PDFКачество: Изначально электронное (ebook)
+Word, Microsoft's powerful and popular word processor, is capable of extraordinary things. From template building to fancy formatting and even AI-powered editing and proofing, your copy of Word stands ready to help you supercharge your productivity and save you time and energy. You just need to learn how it's done. And, thanks to this easy-to-understand book, learning (   Читать дальше...   )Жанр: Word Processing Books, Microsoft Word Guides, Software Suite BooksЯзык: АнглийскийИздательство: WileyФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD56D35BABA53A07DC8BA64218E695761D33F5AD
+magnet:?xt=urn:btih:3DB04A9B20D1F65B2A2FFD461BC3DD81E7A71ED2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -395,28 +194,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849050   (1053226) от 21.01.2026
+###  Публикация: 1850081   (1054004) от 26.01.2026
 
-Crystal Lim-Lange, Gregor Lim-Lange | Deep Human. Practical Superskills for a Future of Success. Third edition (2025) [EPUB] [EN]
+George Mount | Modern Data Analytics in Excel. Using Power Query, Power Pivot, and More for Enhanced Data Analytics (2024) [PDF, EPUB] [EN]
 
->>Разное (категория книг)
->>Популярная психология и саморазвитие
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054004.jpg" />
 </div>
 
 
 ###  Подробнее
 
-What separates you from the robots?
-
-How can you thrive in tomorrow’s workplace? Experts predict that within the next few years, you will need an extra 101 days of learning to remain relevant at work, but what skills should you hone?
-(   Читать дальше...   )Жанр: Саморазвитие, Личностный ростЯзык: АнглийскийИздательство: Epigram BooksФормат: EPUBКачество: Изначально электронное (ebook)
+If you haven't modernized your data cleaning and reporting processes in Microsoft Excel, you're missing out on big productivity gains. And if you're looking to conduct rigorous data analysis, more can be done in Excel than you think. This practical book serves as an introduction to the modern Excel suite of features along with other powerful tools for analytics. (   Читать дальше...   )Жанр: Business Intelligence Tools, Data Mining, Spreadsheet BooksЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6135C9097E736DD62905FDB006DDF78EE5804420
+magnet:?xt=urn:btih:007DC5BD07B780EF5E52BEE3E00237FA27C042FF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -424,27 +220,137 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848822   (1053225) от 21.01.2026
+###  Публикация: 1850080   (1054003) от 26.01.2026
 
-В.О. Шпаковский | Оружие мира. Винтовки и автоматы. История огнестрельного оружия в фотографиях, деталях, рассказах. Большой иллюстрированный атлас (2025) [PDF]
+Dick Kusleika | Microsoft 365 Excel VBA Programming For Dummies. 7th Edition (2025) [PDF] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054003.jpg" />
+</div>
+
+
+###  Подробнее
+
+Your step-by-step guide to doing more with Microsoft Excel
+
+Fully updated for the latest version of Office 365, Excel VBA Programming For Dummies will take your Excel knowledge to the next level. With a little background in Visual Basic for Applications (VBA) programming, you can go well beyond basic spreadsheets and functions. Learn the coding basics and syntax (   Читать дальше...   )Жанр: Microsoft VBA, Microsoft Excel Guides, Spreadsheet BooksЯзык: АнглийскийИздательство: John Wiley & SonsФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A51AD5B2DAF550C7A976E8B8D2E5B255C598C49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850076   (1054002) от 26.01.2026
+
+Хун Чжоу | Машинное обучение сквозь призму Excel. Примеры и упражнения (2025) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучение датамайнинга на примерах и упражнениях в этой книге позволит вам заглянуть за кулисы сложных методов и научиться эффективно работать с данными. По мнению автора, постигать датамайнинг и модели анализа данных лучше всего на практике, выполняя действия одно за другим. В отличие от большинства специализированных инструментов, которые работают по принципу «черного (   Читать дальше...   )Жанр: Компьютерная литература, ExcelИздательство: ДМК ПрессФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33BEF6E4441DB26AFC94ED5BD6FD4FC6D379F79C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850075   (1054001) от 26.01.2026
+
+А. Колоколов, М. Зеленский, К. Королева и др. | Азбука визуализации Power BI (2024) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга будет полезна и тем, кто уже работает с Power BI, а также для всех, кто хочет
+повысить свою визуальную грамотность. Power BI остается самым легким в освоении и
+бесплатным BI-инструментом, и продолжает работать на территории РФ. А если хотите
+еще глубже освоить дизайн дашбордов, их интерактивные сценарии и(   Читать дальше...   )Жанр: Компьютерная литература, Бизнес-аналитикаИздательство: Институт Бизнес-АналитикиФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7073129E39D444E3EAEEAFCAD7AA5191FC5756CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850074   (1054000) от 26.01.2026
+
+Chris Minnick | Microsoft Copilot For Dummies (2025) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Straightforward guidance on the AI tool that's built into Windows, Microsoft 365, and more
+
+Microsoft is enhancing all its most widely used productivity software―including Windows and apps like Word and Excel―with the power of AI. And now you can learn to make the most of this revolutionary new tool with Microsoft Copilot For Dummies!
+(   Читать дальше...   )Жанр: Microsoft Office Guides, Software Suite Books, Natural Language ProcessingЯзык: АнглийскийИздательство: WileyФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9453630C4CFA3744036AC64A60DE3E4D0E3C36FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850073   (1053999) от 26.01.2026
+
+А.В. Погорелов | Аналитическая геометрия (2019) [PDF]
 
 >>Научная и техническая литература
->>Военная литература
+>>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053999.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга «Оружие мира: винтовки и автоматы» является продолжением книги «Оружие мира: револьверы и пистолеты». В ней подробно прослеживается история боевого нарезного оружия – винтовок: сначала однозарядных, затем магазинных, и, наконец, автоматических самозарядных, которые сегодня состоят на вооружении практически всех армий мира.
-
-Особое внимание в книге уделено иллюстрациям. (   Читать дальше...   )Жанр: История, ЭнциклопедииИздательство: АСТФормат: PDFКачество: Обработанный скан
+Классический учебник по аналитической геометрии выдающегося ученого-математика с мировым именем А.В. Погорелова выдержал уже много изданий. За прошедший период книга совсем не устарела и остается лучшим и основным учебником. В предлагаемом курсе лекций излагаются основы метода аналитической геометрии в применении к простейшим геометрическим объектам. Учебник отличается (   Читать дальше...   )Жанр: МатематикаИздательство: Регулярная и хаотическая динамикаФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C3680A58943FE19866E2F8E878716756EBEBDD7D
+magnet:?xt=urn:btih:D42CABC9CD9942C9E488BF4D789424CFE66A70A3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -452,26 +358,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849197   (1053224) от 21.01.2026
+###  Публикация: 1850072   (1053998) от 26.01.2026
 
-Кобра Кай / Cobra Kai (2018) BDRip [H.265/1080p] [10-bit] (сезон 1, серии 1-10 из 10) VSI Moscow, TVShows, AlexFilm, Burton Jey
+И. Спира | Microsoft Excel и Word 2013. Учиться никогда не поздно (2014) [PDF]
 
->>Зарубежные сериалы
+>>Компьютерная литература
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053998.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Джонни Лоуренс, некогда проигравший Дэниелу ЛаРуссо, переживает жизненный кризис: он одинок, злоупотребляет алкоголем и едва сводит концы с концами. Случайно вступившись за подростка Мигеля Диаса, которого избивают хулиганы, Джонни решает возродить додзё «Кобра Кай», чтобы научить парня защищать себя.
-Успешный бизнесмен Дэниел ЛаРуссо, владелец сети автосалонов, (   Читать дальше...   )Производство: США / Counterbalance Entertainment, Heald Productions (II), Hurwitz & Schlossberg Productions, Overbrook Entertainment, Sony Pictures TelevisionЖанр: комедия, спорт, боевик, драмаРежиссер: Джон Харвитц, Хейден Шлоссберг, Джоэль НовоаАктеры: Ральф Маччио, Уильям Забка, Кортни Хенгелер, Шоло Маридуэнья, Тэннер Бьюкэнэн, Мэри Мэтилин Маусер, Джейкоб Бертран, Джанни Десенцо, Мартин Коув, Ванесса РубиоПеревод: профессиональный многоголосый (VSI Moscow, TVShows, AlexFilm), любительский одноголосый (Burton Jey)Язык озвучки: русский, украинский, английскийСубтитры: русские (full, forced), украинские (forced), английские (full, SDH)Продолжительность: ~00:30:00 серия
+Эта книга посвящена новым версиям Microsoft Word и Excel 2013. Она предназначена для тех, кто хочет научиться работать в этих популярных многофункциональных программах. В ней нет сложных определений и заумных терминов. Большое количество иллюстраций делает процесс обучения максимально наглядным, а практические примеры значительно ускоряют освоение материала. Прочитав (   Читать дальше...   )Жанр: Компьютерная литература, Excel, WordИздательство: ПитерФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:641A7F9A6769CB56FC1FD5A104E8086208A9C794
+magnet:?xt=urn:btih:BBBB3CFD9A4F230DD56EFBD4FC39F86154C7E85B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -479,25 +384,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849098   (1053223) от 21.01.2026
+###  Публикация: 1850071   (1053997) от 26.01.2026
 
-Простая случайность / Yek tasadef sadeh (2025) WEB-DL [H.264/720p] [VO]
+В.Д. Кильдишов | MS Excel и VBA для моделирования различных задач. Практическое руководство (2023) [PDF]
 
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053997.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Семейная пара с маленькой дочерью едет ночью домой, когда у них ломается машина. Пока местный житель помогает с починкой, его брат Вахид по скрипу протеза отца семейства узнаёт человека, пытавшего его в тюрьме, но чьего лица он не видел. Вахид похищает негодяя и уже почти хоронит живьём, но в последний момент начинает сомневаться, не ошибся ли он. Чтобы подтвердить (   Читать дальше...   )Производство: Иран, Франция, Люксембург / Arte France Cinéma, Bidibul Productions, Les Films PelléasЖанр: драма, триллер, криминал, детективРежиссер: Джафар ПанахиАктеры: Вахид Мобассери, Марьям Афшари, Эбрахим Азизи, Хадис Пакбатен, Маджид Панахи, Мохамад Али Эльясмер, Дельмаз Наджафи, Афсане Наджмабади, Джордж ХашемзадеПеревод: Одноголосый (Владимир Журавлёв 18+)Язык озвучки: Русский, ПерсидскийСубтитры: русские, английские (full, SDH)Продолжительность: 01:43:21
+Книга является практическим руководством по моделированию задач с использованием приложения MS Excel и VBA.
+Пособие предназначено для школьников, студентов и преподавателей, которые хотят быть знакомы с MS Excel и VBA «на Вы» и научиться моделированию, разработке моделей, алгоритмов и программ, а также приложений с формами.
+Прочитав эту книгу, Вы научитесь использовать (   Читать дальше...   )Жанр: Компьютерная литература, ExcelИздательство: СОЛОН-ПрессФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69C8F73D561F3C2D84C981BF90D4D52BF4912937
+magnet:?xt=urn:btih:C74CCFF62227E1A2370645EA04AA32DCF405F634
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -505,25 +412,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849144   (1053222) от 22.01.2026
+###  Публикация: 1850070   (1053996) от 26.01.2026
 
-Сто литров пива / 100 litraa sahtia / 100 Litres of Gold (2024) WEB-DL [H.264/1080p] [MVO]
+Jack McLarney | The Book of Batch Scripting. From Fundamentals to Advanced Automation (2024) [PDF, EPUB] [EN]
 
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053996.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Две сестры средних лет живут в небольшом финском посёлке и соглашаются сварить пиво для предстоящей свадьбы, уверяя всех, что праздник будет обеспечен лучшим напитком в округе. Но их привычка «проверять качество» оборачивается бедой: незаметно для себя они выпивают весь приготовленный запас, оставляя жениха и невесту без главного угощения. Осознание содеянного накрывает (   Читать дальше...   )Производство: Дания, Финляндия, Италия / All At Once, It's Alive Films, Smile EntertainmentЖанр: комедияРежиссер: Теэму НиккиАктеры: Элина Книхтиля, Пирьо Лонка, Вилле Тиихонен, Риа Катайя, Яри Пехконен, Пертти Свехольм, Элмер Бэк, Якоб Ёрман, Вилма Меласниеми, Рами РусиненПеревод: Многоголосый (Синема УС), Одноголосый (porcellus)Язык озвучки: Русский, ФинскийСубтитры: АнглийскиеПродолжительность: 01:27:30
+In this era of advanced programming languages, the simplicity, universality, and efficiency of Batch scripting holds undeniable value.
+
+Whether you’re maintaining legacy systems or seeking to understand the foundations of command line automation, The Book of Batch Scripting shows you how to become proficient with this tool included in every version of Windows.
+(   Читать дальше...   )Жанр: Computer Network Administration, Microsoft Programming, Computer Programming LanguagesЯзык: АнглийскийИздательство: No Starch PressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3519763B37537FEC76F4C76965A4CE80D61778D9
+magnet:?xt=urn:btih:BDD51282399CFEF77457E97EA2316E57CA9110F4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -531,25 +441,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849199   (1053221) от 21.01.2026
+###  Публикация: 1850067   (1053995) от 26.01.2026
 
-Кайф / Rush (1991) BDRip [H.264]
+Jen Stirrup, Thomas J. Weinandy | Artificial Intelligence with Microsoft Power BI. Simpler AI for the Enterprise (2024) [PDF, EPUB] [EN]
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053995.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фильм снят по роману Ким Возенкрафт... Рэйнор, молодой, но очень опытный секретный агент из отдела по борьбе с наркотиками, берёт себе новую напарницу Кристен, только что закончившую полицейскую академию. Секретные агенты живут под видом наркоманов, покупают наркотики. Беда в том, что во время покупки им самим слишком часто приходится пробовать приобретаемые наркотики, (   Читать дальше...   )Производство: США / Metro-Goldwyn-Mayer (MGM), The Zanuck CompanyЖанр: драма, мелодрама, криминал, триллерРежиссер: Лили Фини ЗанукАктеры: Джейсон Патрик, Дженнифер Джейсон Ли, Сэм Эллиотт, Макс Перлич, Грегг Оллмэн, Тони Фрэнк, Уильям Сэдлер, Спешиал К. МакКрей, Дэннис Леттс, Меррилл Конналли, Конни Купер, Томас Розалес-мл., Сюзанна Савой, Джерри КингПеревод: дублированный (Варус Видео), профессиональный двухголосый (HTB; НТВ+), авторский (Андрей Гаврилов)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 02:00:08
+Advance your Power BI skills by adding AI to your repertoire at a practice level. With this practical book, business-oriented software engineers and developers will learn the terminologies, practices, and strategy necessary to successfully incorporate AI into your business intelligence estate. Jen Stirrup, CEO of AI and BI leadership consultancy Data Relish, and (   Читать дальше...   )Жанр: Business Intelligence Tools, Data Processing, Artificial Intelligence & SemanticsЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:218349099778D185402BB0208D6CBF65B0650934
+magnet:?xt=urn:btih:D559D1F816E481CCD1CDDF4AC29FA81108A33224
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -557,28 +467,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849194   (1053220) от 21.01.2026
+###  Публикация: 1850066   (1053994) от 26.01.2026
 
-VA - Summer Hits of the 70's (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+Aaron Guilmette, Darryl Kegg, Ed Fisher | Microsoft 365 Administration Inside Out. 3rd Edition (2023) [PDF, EPUB] [EN]
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053994.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Seals and Crofts - Summer Breeze (3:26)
-02. Rod Stewart - Da Ya Think I'm Sexy (5:31)
-03. The Doobie Brothers - What a Fool Believes (3:40)
-04. Frankie Valli & The Four Seasons - Who Loves You (4:12)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:09:37
+Conquer Microsoft 365 administration, from the inside out!
+
+Dive into Microsoft 365 administration and harness the full power of cloud scaling, automation, and availability in Microsoft 365! This supremely well-organized reference packs hundreds of time-saving solutions, tips, and workarounds; all you need to continually enhance organizational agility, productivity, (   Читать дальше...   )Жанр: Client-Server Networking Systems, Software Suite Books, Microsoft Office GuidesЯзык: АнглийскийИздательство: Microsoft PressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:365E31416428424B17A4BD0FFA7395ADE54698DC
+magnet:?xt=urn:btih:C39E63F0F0D36C48D5BE5216AC0C4CBBF76728AB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -586,26 +495,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849152   (1053219) от 21.01.2026
+###  Публикация: 1850065   (1053993) от 26.01.2026
 
-Подшивка журнала | Квантик №8-12 [5 выпусков] (август-декабрь 2025) [PDF]
+В.С. Мхитарян, В.Ф. Шишов, А.Ю. Козлов | Анализ данных в MS Excel. Учебное пособие. Основные сведения о MS Excel. Статистические таблицы и графики. Статистические функции. Пакет анализа (анализ дан ...
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Журналы для детей и родителей
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053993.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Квантик» – ежемесячный иллюстрированный журнал для любознательных школьников самого разного возраста. Читайте на его страницах занимательные рассказы и задачи по математике, физике, лингвистике, биологии, химии…
-В журнале много интересных рубрик: «Оглянись вокруг», «Математические сюрпризы», «Опыты и эксперименты», «Игры и головоломки», «Своими руками», «Наглядная (   Читать дальше...   )Жанр: Развивающий журналИздательство: НОУ «Московский центр непрерывного математического образования»Формат: PDFКачество: Изначально электронное (ebook)
+Учебное пособие содержит подробное описание «Статистических функций» и средств анализа данных (инструментов) «Пакета анализа», входящих в настоящее время в MS Excel. В пособии также изложены сведения по основам работы в Excel, представлению первичной статистической информации в виде статистических таблиц и графиков; рассмотрены теоретические основы статистических (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: КУРСФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:653761508D23501159DD7916EA66EF22F6F3B74C
+magnet:?xt=urn:btih:09A9A29D66C65CB169E09CE057FB2AF2260D4A9B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -613,28 +521,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849143   (1053218) от 21.01.2026
+###  Публикация: 1850030   (1053992) от 26.01.2026
 
-Marianas Rest - Studio Albums (5 releases) (2016-2026) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Doom/Death Metal>
+Womanizer (2024) [Ru/Multi] (Build 20905236/dlc) Repack Let'sРlay [18+]
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Win Игры
+>>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053992.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Marianas Rest - метал-группа из города Котка, Финляндия, основана в 2013 году.2016 - Horror Vacui
-2019 - Ruins
-2021 - Fata Morgana
-2023 - AuerЖанр: Melodic Doom/Death MetalПродолжительность: 04:51:25
+Способен соблазнить любую девушку одним лишь взглядом, но перед ним стоит почти невыполнимая задача. Обаятельный сердцеед поспорил с лучшим другом, что в течение недели уложит в постель пятерых девушек из городской сборной по художественной гимнастике, недавно выигравшей национальные соревнования. Смогут ли звёздные спортсменки устоять перед опытным ловеласом?Тип издания: RepackРазработчик: kamtiЖанр: Приключeние, Визуальные новеллыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8FF6E73649C84AF8530CBDD1BF6A328FEA3694C
+magnet:?xt=urn:btih:9BC04400B5CA5767F9F59506BB460F973F63C56E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -642,26 +547,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849091   (1053217) от 21.01.2026
+###  Публикация: 1850005   (1053991) от 26.01.2026
 
-Газета | The Wall Street Journal №14 (17-18 января 2026) [PDF] [EN]
+Three Kingdoms Story: Conussia (2020) [Ru/Multi] (Build 17653291/dlc) Repack Let'sРlay [18+]
 
->>Журналы
->>Другие журналы
+>>Win Игры
+>>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053991.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The Wall Street Journal — ежедневная американская деловая газета на английском языке. Издаётся в Нью-Йорке компанией Dow Jones & Company, которая входит в холдинг News Corp, с 1889.
-WSJ прежде всего освещает события в США и международный бизнес, финансовые новости и проблемы.Жанр: НовостиЯзык: АнглийскийИздательство: Dow Jones & CompanyФормат: PDFКачество: Изначально электронное (ebook)
+"История трех королевств: Конуссия" - это история о Герое, оказавшемся втянутым в дворцовые интриги королевства Конуссия. Король пропал, Принцесса должна стать Королевой, но похоже этого не случится. Армия и маги уничтожены, жрецы и благородные претендуют на то, чтобы быть лучшими правителями, чем Принцесса. И все они в серьезной опасности, Силы тьмы непрерывно (   Читать дальше...   )Тип издания: RepackРазработчик: kamtiЖанр: Приключeние, Визуальные новеллыЯзык субтитров: Русский, Английский, Корейский, Японский и другиеЯзык интерфейса: Русский, Английский, Корейский, Японский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BD5BFF3A76DE977D09D0299F89C31275BA1A6CC3
+magnet:?xt=urn:btih:73519BF5798FF021FF2C27C9AC0007480A1231CA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -669,26 +573,141 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849090   (1053216) от 21.01.2026
+###  Публикация: 1850055   (1053990) от 26.01.2026
 
-Газета | The Wall Street Journal №15 (20 января 2026) [PDF] [EN]
+Максим Данилов | Одиночка (2025) [MP3, Роман Ефимов]
 
->>Журналы
->>Другие журналы
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053990.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The Wall Street Journal — ежедневная американская деловая газета на английском языке. Издаётся в Нью-Йорке компанией Dow Jones & Company, которая входит в холдинг News Corp, с 1889.
-WSJ прежде всего освещает события в США и международный бизнес, финансовые новости и проблемы.Жанр: НовостиЯзык: АнглийскийИздательство: Dow Jones & CompanyФормат: PDFКачество: Изначально электронное (ebook)
+Олег - простой парень, любящий машины и красивую беззаботную жизнь. Закоренелый холостяк, циничный, эгоистичный и дерзкий торговый в одночасье теряет всё под безжалостным шквальным ракетным огнём. Очнувшись от переживаний в избушке на опушке глухого леса, парень пытается выжить, изменяя свои жизненные принципы. Получится ли у городского пижона выжить на просторах (   Читать дальше...   )Жанр: Боевая фантастика, ПостапокалипсисИздательство: Аудиокнига своими рукамиПродолжительность: 10:22:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B82676953957604C8D7B55F241D55D39FD5282A6
+magnet:?xt=urn:btih:56957D0D4FF023AF8246D38619993459DD903663
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850037   (1053989) от 26.01.2026
+
+Poppy - Empty Hands (2026) [FLAC|Lossless|WEB-DL|tracks] <Alternative-Metal, Metalcore, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Public Domain [00:04:00]
+02. Bruised Sky [00:03:40]
+03. Guardian [00:03:14]
+04. Constantly Nowhere [00:00:28](   Читать дальше...   )Жанр: Alternative-Metal, Metalcore, ElectronicПродолжительность: 00:38:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3E200C54957DD7EF4709B0B2D3BA40DDD07D95B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850035   (1053988) от 26.01.2026
+
+Ai - No name compilation part 46 Slow Pop Rock Ballad (2026) [MP3|320 Kbps] <Slow Pop Rock Ballad>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Love Wasn’t Wrong (I Was)
+02 - All Your Love
+03 - You Whispered Forever
+04 - Midnight Caress    After the Lights Go Low(   Читать дальше...   )Жанр: Slow Pop Rock BalladПродолжительность: 00:40:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7328AC30A97698F808926E3B32DC411D50BFA8BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850033   (1053987) от 26.01.2026
+
+VA - No name compilation part 45 Electronic Assorted (2026) [MP3|320 Kbps] <Electronic, Eurodisco, Eurodance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Adex - Broken Code
+02 - Dova Music - Fading Winter Love
+03 - Hamidshax - You Are Gone
+04 - A-Sultan - Here I Am(   Читать дальше...   )Жанр: Electronic, Eurodisco, EurodanceПродолжительность: 01:52:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7210E10252E0BF7F2FDF09A01871730FE9AAFE19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850032   (1053986) от 26.01.2026
+
+VA - No name compilation part 44 Electronic Assorted (2026) [MP3|320 Kbps] <Electronic, Eurodisco, Eurodance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Nezon - New Horizon
+02 - Lynoria - After You
+03 - Mr Salama - Lies
+04 - Nezon - Future Love(   Читать дальше...   )Жанр: Electronic, Eurodisco, EurodanceПродолжительность: 01:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:751C9842A9A9EB8533A1BD6AB9EC1BD6802C0B63
 ```
 
 https://mybot314.ru/tekegram_catalog/

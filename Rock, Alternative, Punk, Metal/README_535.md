@@ -1,3 +1,119 @@
+###  Публикация: 1311199   (543614) от 28.06.2019
+
+Astral Doors - Astral Doors - 10 albums, 13CD (2003-2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Astral Doors — группа, которая берёт своё начало с 2002 года, именно тогда сложился коллектив и было выбрано название группы. С момента своего дебюта в "The Son And The Father" в 2003 году группа из шведского Borlnge успешно создала свою собственную форму ретро, ориентированных на классиков жанра таких легенд, как Rainbow, Dio и Black Sabbath, в сочетании (   Читать дальше...   )--------------------------
+
+01. Night of the Hunter (4:42)
+02. This Must Be Paradise (4:04)(   Читать дальше...   )Жанр: Heavy Metal |Продолжительность: 11:57:47 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34A5E434F9207CE1A406446E2A4D2AE80DFCB6AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924889   (543163) от 05.08.2015
+
+Zandelle - Perseverance (2015) [FLAC|image+.cue]<Heavy/Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Resurgence
+02. Unending Fortitude
+03. Lycanthrope
+04. Shadow Slaves(   Читать дальше...   )Жанр: Heavy/Power MetalПродолжительность: 00:59:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03DE9C67F840C768F76DE81BF6B4F3FA6436EB3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924874   (543162) от 05.08.2015
+
+Zandelle - Perseverance (2015) [MP3|320 кб/с]<Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Resurgence
+02. Unending Fortitude
+03. Lycanthrope
+04. Shadow Slaves(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:59:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:337351981278CA3ED9E631D2BDE5DA5E4DD76CC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925120   (543081) от 05.08.2015
+
+U.D.О - Navy Metal Night (2015) Live 2CD [FLAC|image+.cue]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543081.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+01. Intro (Das Boot)
+02. Das Boot
+03. Future Land(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:36:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FD8D53E3C0D4B25F63F77EE7D1E2454C6CDC521
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924892   (543080) от 05.08.2015
 
 Anzi - Black Dog Bias (2015) [MP3|192 кб/с]<Alternative, Industrial>
@@ -6,7 +122,7 @@ Anzi - Black Dog Bias (2015) [MP3|192 кб/с]<Alternative, Industrial>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543080.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Left In The Dark - Shadowglass (2015) [MP3|320 кб/с]<Alternative Metal, Progr
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543002.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Phil Rudd (AC/DC) - Head Job (2014) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542941.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Saralee - Darkness Between (2006) [MP3|320 кб/с]<Gothic Metal, Love Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542852.jpg" />
 </div>
 
 
@@ -128,7 +244,7 @@ Cult Of Endtime - In Charnel Lights (2015) [FLAC|Lossless|tracks + .cue] <Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542831.jpg" />
 </div>
 
 
@@ -157,7 +273,7 @@ Profound Less - Love Crusader (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542830.jpg" />
 </div>
 
 
@@ -186,7 +302,7 @@ Maylene and the Sons of Disaster (Dallas Taylor, vox ex-Underoath) - 7 Releases 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542829.jpg" />
 </div>
 
 
@@ -215,7 +331,7 @@ Stygian Oath - Midnight Flames (2022) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542826.jpg" />
 </div>
 
 
@@ -244,7 +360,7 @@ Sorrowful Winds - Deny Reality (2022) [MP3|235-244 kbps VBR (V0)] <Progressive P
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542819.jpg" />
 </div>
 
 
@@ -273,7 +389,7 @@ Avi Rosenfeld - Very Heepy Very Purple XIII (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542817.jpg" />
 </div>
 
 
@@ -302,7 +418,7 @@ The 69 Eyes - 3 Relise (1997-2013) [MP3|320 Kbps] <Gothic Industrial Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542813.jpg" />
 </div>
 
 
@@ -331,7 +447,7 @@ Mount Caravan - Demo (1998-2002) 2022, DAREDEVIL RECORDS [MP3|320 Kbps] <Heavy S
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542811.jpg" />
 </div>
 
 
@@ -360,7 +476,7 @@ Manafest - Stones (2017) [FLAC|Lossless|tracks] <Alternative Rock, Rap Rock, Chr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542779.jpg" />
 </div>
 
 
@@ -389,7 +505,7 @@ Evoken - Atra Mors (2012) [FLAC|Lossless]<Death Doom Metal/Funeral Doom>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542745.jpg" />
 </div>
 
 
@@ -422,7 +538,7 @@ The Levitation Hex - The Levitation Hex (2012) [FLAC|Lossless]<Progressive Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542736.jpg" />
 </div>
 
 
@@ -456,7 +572,7 @@ Doomsday Dementia - Mass Graves And System Slaves (2022) [MP3|320 Kbps] <Crust P
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542705.jpg" />
 </div>
 
 
@@ -485,7 +601,7 @@ Sleazy RoXxX - Trinity Junction (2022) [MP3|320 Kbps] <Glam Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542704.jpg" />
 </div>
 
 
@@ -514,7 +630,7 @@ Shaman's Harvest - Rebelator (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Al
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542703.jpg" />
 </div>
 
 
@@ -543,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542700.jpg" />
 </div>
 
 
@@ -572,7 +688,7 @@ Stray Gods - Storm The Walls (2022) [FLAC|Lossless|image + .cue] <Heavy Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542699.jpg" />
 </div>
 
 
@@ -601,7 +717,7 @@ Swörn (Sworn) - Keshan (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Stoner 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542698.jpg" />
 </div>
 
 
@@ -630,7 +746,7 @@ Maledictive Pigs - Bloodshed (2001) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542697.jpg" />
 </div>
 
 
@@ -644,122 +760,6 @@ Maledictive Pigs - Bloodshed (2001) [FLAC|Lossless|image + .cue] <Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADECFE9A86FC13B58920124303C7F7088AF9E131
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556957   (542585) от 14.06.2022
-
-Underoath (UnderØath) - 9 Albums (The Best of Oll) (2002-2022) [FLAC|Lossless|tracks + .cue|tracks] <Alternative Rock, Post-Hardcore, Christian Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Damn Excuses [00:02:37]
-02. Hallelujah [00:03:01]
-03. I’m Pretty Sure I’m Out of Luck and Have No Friends [00:03:45]
-04. Cycle (feat. Ghostemane) [00:04:13](   Читать дальше...   )Жанр: Alternative Rock, Post-Hardcore, Christian RockПродолжительность: 9 CD, 06:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1363C4FFA1365419BBE62597B2DDF5B656D2A66F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557299   (542582) от 14.06.2022
-
-Mac Walker - Picture (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Again & Again
-02. Sweet Angeline
-03. When I Get That Feelin'
-04. Somethin' 'bout You Girl(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D35FD116C125BDF1AE14A04AD512C696B975FEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154257   (542540) от 29.07.2017
-
-Mick Jagger - Gotta Get A Grip / England Lost (2017) 2 Single's [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542540.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. England Lost (feat. Skepta)
-2. Gotta Get A Grip (Seeb Remix)
-3. Gotta Get A Grip (Kevin Parker Remix)
-4. Gotta Get A Grip (Alok Remix)(   Читать дальше...   )Жанр: RockПродолжительность: 00:28:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56D8D34FBC914765EE6B8E74871899C8D7BBD54B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154152   (542518) от 29.07.2017
-
-Alice Cooper - Paranormal (2017) 2CD, Deluхе Editiоn [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542518.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Paranormal (4:11)
-2. Dead Flies (2:22)
-3. Fireball (4:49)
-4. Paranoiac Personality (3:12)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:07:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C134C1CF1DC27F2CAEA959B6C1E51F82630316B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

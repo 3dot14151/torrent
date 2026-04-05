@@ -1,3 +1,403 @@
+###  Публикация: 1816209   (4530) от 03.09.2025
+
+TechSmith Snagit 2025.3.1.7988 [Multi]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Snagit предлагает неограниченные возможности для захвата изображений - экран целиком, одно или сразу несколько окон и графических объектов (значки, экранные кнопки, панели, меню и т.д.), области произвольной или сложной формы (многоугольник, эллипс, прямоугольник со скругленными углами), полноэкранные окна DOS-программ и окна приложений DirectX (игры, видеопроигрыватели), (   Читать дальше...   )Язык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D0965522E10796D03806DC571B81B479C792B8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816437   (4340) от 05.09.2025
+
+StartAllBack 3.9.15 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by KpoJIuK [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4340.jpg" />
+</div>
+
+
+###  Подробнее
+
+StartAllBack - привычная для нас программа, которая возвращает в Windows 11 полнофункциональную кнопку запуска меню Пуск. StartAllBack существенно улучшает удобство использования рабочего стола и делает новый экран упорядоченным, наиболее удобным.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:772CDD20AFF84EB6A7ED4126DDEB6105BEA3E1E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816461   (4320) от 05.09.2025
+
+StartAllBack 3.9.15 build 5310 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4320.jpg" />
+</div>
+
+
+###  Подробнее
+
+StartAllBack - привычная для нас программа, которая возвращает в Windows 11 полнофункциональную кнопку запуска меню Пуск. StartAllBack существенно улучшает удобство использования рабочего стола и делает новый экран упорядоченным, наиболее удобным.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44E55ECA70FEB0A1A23090A5A9CC248FDCA5810C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817222   (3651) от 09.09.2025
+
+Wise Force Deleter 1.5.7.59 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа предназначена для устранения проблем удаления файла с помощью завершения процессов, использующих файл или снятия ограничений файлового доступа, которые препятствуют успешному удалению файла.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:096D9E4E297A197EF84CBEF0BE8BFB3E143D4860
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817663   (3247) от 12.09.2025
+
+Microsoft Activation Scripts (MAS) 3.7 portable [En]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Активатор Windows и Office с использованием методов активации HWID/Ohook/KMS38/OnlineKMS/TSforge с упором на открытый исходный код и меньшее количество обнаружений антивируса.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:823B14FD517A1E0819179F3E5A272A5008532D0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817853   (3022) от 13.09.2025
+
+GerbView 11.20 [En]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3022.jpg" />
+</div>
+
+
+###  Подробнее
+
+GerbView™ — это продвинутое, но простое в использовании приложение, которое позволяет просматривать, печатать и конвертировать Gerber , ODB++ , Adobe PDF , Excellon , HPGL/2 и другие форматы.
+
+GerbView поддерживает форматы Gerber RS-274D и RS-274X , и вы можете использовать его для преобразования старых Gerber-файлов в новый расширенный формат RS-274X. Новый расширенный (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2C21929AFDFF20C67157775CFA4E95FF7DA3995
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818145   (2821) от 14.09.2025
+
+SoftPerfect RAM Disk 25.8 RePack by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2821.jpg" />
+</div>
+
+
+###  Подробнее
+
+SoftPerfect RAM Disk - программа для создания виртуального диска в оперативной памяти. Так как память намного быстрее, чем физические жесткие диски, имеет смысл для достижения более высокой производительности хранить временные данные в быстродействующей оперативной памяти. Современные компьютеры оснащены большим количеством оперативной памяти, однако большую часть (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C888285419B26761A627B78BF318E471B8A39176
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818074   (2816) от 14.09.2025
+
+ASCOMP Screencapt 2.004 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Screencapt — лучший инструмент для записи экрана
+
+Откройте для себя Screencapt — мощную программу для записи экрана для Windows, которая позволяет точно и легко записывать любое действие на экране. Хотите ли вы создать обучающее видео, записать вебинар или просто записать видео любимых игр, Screencapt предоставит вам все необходимые инструменты.
+(   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:743B62C0F24F483D0CA349E62F28D12AFBDED02A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818072   (2786) от 14.09.2025
+
+TechSmith Camtasia  25.2.3 Build 11943 RePack by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Camtasia Studio - мощная утилита для записи изображения с экрана в видеофайлы различных форматов, имеется возможность редактирования видео, есть встроенные Macromedia Flash (SWF) и видео проигрыватели.
+Camtasia захватывает действия и звуки в любой части Windows-систем и сохраняет в файл стандарта AVI.
+Сделанное при помощи программы видео можно экспортировать в один (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFDC1116C92D9670F46FFC928FC20CC3C782AE73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818076   (2782) от 14.09.2025
+
+TechSmith Snagit 25.3.1 build 7988 (x64) RePack by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Snagit предлагает неограниченные возможности для захвата изображений - экран целиком, одно или сразу несколько окон и графических объектов (значки, экранные кнопки, панели, меню и т.д.), области произвольной или сложной формы (многоугольник, эллипс, прямоугольник со скругленными углами), полноэкранные окна DOS-программ и окна приложений DirectX (игры, видеопроигрыватели), (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9E8BE4B9DB122943ECC147175AB98CEB97E41B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818555   (2402) от 17.09.2025
+
+ThisIsMyFile 4.44 + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2402.jpg" />
+</div>
+
+
+###  Подробнее
+
+ThisIsMyFile — это небольшая, но эффективная программа для разблокировки и/или удаления заблокированных, или защищённых файлов и папок. Программа умеет создавать копию файлов до удаления, поддерживает удаление файлов при запуске системы, полезное в особо сложных случаях (потребуется перезагрузка).
+Вы можете перетащить файлы или папки в окно приложения или воспользоваться (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9821C95D80EB847A6267830DF15ECCE90515F23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818518   (2376) от 17.09.2025
+
+TweakNow WinSecret Plus! 7.2.0 [En]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2376.jpg" />
+</div>
+
+
+###  Подробнее
+
+TweakNow WinSecret Plus! - позволяет пользователям исследовать скрытые настройки в Windows 10/11.
+Приложение группирует множество настроек реестра и предлагает их с помощью простого и удобного пользовательского интерфейса.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F757FA3D2E21C6CA8A60FE8CD43E03BAA63CDD98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818910   (2063) от 19.09.2025
+
+Bandicam 8.2.2.2531  RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2063.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bandicam — это компактная программа записи экрана для Windows, которая может записывать все, что происходит на экране ПК, в формате высококачественного видео. Также можно выполнять запись определенной части экрана или игр, использующих графические технологии DirectX/OpenGL/Vulkan.
+Bandicam поможет вам сделать запись игры с высоким коэффициентом сжатия, сохраняя при (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5020D725A105B474C66907620A78BA4289C9014C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818868   (2020) от 19.09.2025
+
+Directory List & Print Pro 4.35 RePack (& Portable) by elchupacabra [Multi]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Directory List & Print – менеджер каталогов, предназначенный для просмотра и печати содержимого папок или каталогов. Программа дает возможность выбрать нужные файлы или папки и печатать их во время просмотра деталей. Directory List & Print способен открывать список файлов и папок в документах Word и Excel, сохранять в виде текстовых файлов, PDF, HTML и XML-таблицах (   Читать дальше...   )Язык интерфейса: Английский, немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:068806D50C886266EE5D25A1D679CECCDD0DF50F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818857   (1992) от 19.09.2025
+
+Aiseesoft Screen Recorder 3.1.36 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1992.jpg" />
+</div>
+
+
+###  Подробнее
+
+Получите самый простой, но профессиональный способ записывать экран и делать с него снимки. Aiseesoft Screen Recorder - лучшее программное обеспечение для записи экрана, позволяющее фиксировать любую активность на компьютере Mac или Windows. Он может работать как хороший рекордер видеоигр, захватывать видеозвонки и многое другое для захвата любой области экрана. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1B78B7AB852C5616BEBA74A5A3C6374FE01FC45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819191   (1661) от 21.09.2025
 
 Extreme Picture Finder 3.67.4.0 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -6,7 +406,7 @@ Extreme Picture Finder 3.67.4.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1661.jpg" />
 </div>
 
 
@@ -32,7 +432,7 @@ OBS Studio 31.1.2 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1488.jpg" />
 </div>
 
 
@@ -60,7 +460,7 @@ Trayy 2.0 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1474.jpg" />
 </div>
 
 
@@ -87,7 +487,7 @@ Bandicam 8.2.2.2531 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1315.jpg" />
 </div>
 
 
@@ -114,7 +514,7 @@ PIDKey Lite 1.64.4 b49 Portable by Ratiborus [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1222.jpg" />
 </div>
 
 
@@ -140,7 +540,7 @@ TreeSize Professional 9.6.1.2153 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1035.jpg" />
 </div>
 
 
@@ -166,7 +566,7 @@ Firefox Browser ESR 140.3.1 [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_547.jpg" />
 </div>
 
 
@@ -192,7 +592,7 @@ W10 Digital Activation v1.5.5.1 Portable by Ratiborus [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_442.jpg" />
 </div>
 
 
@@ -218,7 +618,7 @@ Rufus 4.10 (Build 2279) + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_427.jpg" />
 </div>
 
 
@@ -244,7 +644,7 @@ Volume2 1.1.9.470 Beta + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112.jpg" />
 </div>
 
 
@@ -270,7 +670,7 @@ Fan Control V241 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_95.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_95.jpg" />
 </div>
 
 
@@ -281,35 +681,6 @@ FanControl – свободно распространяемый продукт,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8340CB65791CF7D2216128ABCB889CE4E626D46A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820915   (81) от 29.09.2025
-
-Desktop Info 3.21.0 [Multi]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81.jpg" />
-</div>
-
-
-###  Подробнее
-
-Информация о системе в режиме реального времени у вас под рукой
-Desktop Info подключается к вашему рабочему столу и отображает информацию о системе в режиме реального времени.
-
-Идеально подходит для быстрой идентификации, мониторинга непосредственно на рабочем месте и простого удалённого мониторинга производственных серверов, тестовых ферм или ваших персональных (   Читать дальше...   )Язык интерфейса: Английский и Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52C581567A719E9E4F4144AEA67B67D3CDACB569
 ```
 
 https://mybot314.ru/tekegram_catalog/

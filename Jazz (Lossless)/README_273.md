@@ -6,7 +6,7 @@ Chet Baker & Dick Twardzik Quartet - Chet & Dick (1955, 1956) 2016, Jazz Images 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185552.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Akiko Grace - New York Style (2003) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185464.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ James Moody - 1949-1950 (2001) Classics [FLAC|Lossless|tracks + .cue] <Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184944.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Robert Lakatos Trio - So In Love (2005) Atelier Sawano [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184938.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ James Moody - Moody And The Brass Figures (1966) 2004, Original Jazz Classics [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184914.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Maya - Love Potion No. 9 (2005) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184844.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Maya - Kiss of Fire (2006) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184789.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Maya - Maya (2004) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184774.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Anat Fort Trio - Colour (2019) Sunnyside [FLAC|Lossless|tracks + .cue] <Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184620.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Jackie McLean - Eight Classic Albums (1957 - 1961) 4CD, 2012, Real Gone Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184604.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Brother Jack McDuff - Down Home Style (1969) 1997, Blue Note [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184567.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Swinging Classics (2006) [FLAC|Lossless|tracks + .cue] <Jazz, Classical>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184395.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Ralph Burns - Bijou (1955) 1999, Original Jazz Classics [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184071.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Kenny Drew Trio With Clark Terry - Serenity (1978) 1988, Alfa Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184031.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Winifred Atwell - The Winifred Atwell Collection (1994) BMG Australia [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184016.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Lori Williams - Behind the Smiles (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183895.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Kenny Dorham - Jerome Kern Showboat (1960) 1990, Bainbridge Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183577.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Asako Toki - Standards (2004) LD&K [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183336.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Sadao Watanabe - Dedicated To Charlie Parker (1969) 1989, Denon [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183329.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Asako Toki - Standards Gift (2005) LD&K [FLAC|Lossless|tracks + .cue] <Vocal Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183324.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Steve Turre - Fire And Ice (1988) Stash [WavPack|Lossless|image + .cue] <Hard Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183220.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Annette Lowman - Movies Memories (1992) Le Chant du Monde [APE|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183217.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Nicholas Payton - Relaxin' With Nick (2019) 2CD, Smoke Sessions Records [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183187.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Candy Dulfer - We Never Stop (2022) [FLAC|Lossless|image + .cue] <Jazz-Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183038.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Fred Hersch & Esperanza Spalding - Alive At The Village Vanguard (2018) 2023, Pa
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182590.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Ron Carter - Parade (1979) 2000, Original Jazz Classics [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182574.jpg" />
 </div>
 
 

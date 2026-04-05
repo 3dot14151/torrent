@@ -1,3 +1,55 @@
+###  Публикация: 1498277   (857419) от 26.09.2021
+
+Grand Tactician: The Civil War (1861-1865) (2021) [En] (1.0) License SKIDROW
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857419.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grand Tactician: The Civil War (1861-1865) - это стратегия в реальном времени, сочетающая стратегическую кампанию с тактической боевой игрой. Управляйте своей нацией, собирайте, управляйте и поддерживайте великие армии, а также маневрируйте ими, чтобы победить врага. Как только противоборствующие армии встретятся, командуйте своими войсками к победе в битвах на исторических (   Читать дальше...   )Тип издания: LicenseРазработчик: Oliver KeppelmüllerЖанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20052FA8CCE741F8EC86C025FCC1306D4667D298
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367583   (849332) от 23.04.2020
+
+Broken Lines (2020) [Ru/Multi] (1.0.3) Repack xatab
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Broken Lines — это тактическая ролевая игра с разветвленным сюжетом в сеттинге альтернативной истории Второй мировой войны. Играйте за группу из восьми солдат, потерпевших крушение за линией фронта. Помогите отряду выбраться и преодолеть ужасы войны. Самолет с отрядом солдат терпит крушение за линией фронта в самом сердце Восточной Европы.Тип издания: RepackРазработчик: PortaPlayЖанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FBEAF404224C11AF4C76DC195D3DF92CF6ACF38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1499310   (849196) от 01.10.2021
 
 Dicey Dungeons (2019) [Ru/Multi] (1.11.1) License GOG
@@ -6,7 +58,7 @@ Dicey Dungeons (2019) [Ru/Multi] (1.11.1) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849196.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ X-Com Classic Bundle (1994-2001) [En/Multi] (30.03.2016) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848216.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Sorcerer King - Rivals (2016) [En] (2.1.0.2) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835795.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Battle Realms (2001) [Multi] (1.0/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834538.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Worlds of Magic (2015) [Ru/Multi] (1.0) Repack xGhost
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831043.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Europa Universalis IV (2013-2016) [En/Multi] (1.16.1.0/60a9/dlc) License SKIDROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829989.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Victoria (2003) [En] (2.0.0.1/dlc) License GOG [Complete]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827479.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Tzar: The Burden of the Crown / Огнем и мечом (2000) [Multi] (1.01) L
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825815.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Monster Train (2020) [Ru/Multi] (12921/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815252.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Oriental Empires (2017) [Ru/Multi] (1.0.0.5) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814993.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ War for the Overworld (2015) [Ru/Multi] (1.5.2f4/dlc) SteamRip Let'sPlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810744.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Crusader Kings II/2 (2012) [Multi] (2.1.3/41dlc) SteamRip DWORD [Collection]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809867.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ Ultimate General: Gettysburg (2014) [En] (1.8mpfix2) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809739.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ Gnomoria (2016) [En] (1.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809095.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ Star Ruler 2 (2015) [En] (2.0.0/dlc) License SKIDROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805461.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ Space Empires IV / Space Empires 4 / Космическая Империя 4 (20
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801499.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ Humankind (2021) [Ru/Multi] (1.0.05.0517-S10/dlc) License CODEX [Digital Deluxe 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798328.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ Miner's Mettle (2021) [En] (1.0) License PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797828.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ Thea: The Awakening (2015) [Ru/Multi] (1.20.36220/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796780.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ Thea: The Awakening (2015) [Ru/Multi] (1.20.36220/dlc) Repack Other s
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796725.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ Warhammer 40000: Dawn of War – Dark Crusade (2006) [Ru/En] (1.2) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796476.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ Warhammer 40000: Dawn of War – Soulstorm (2008) [Ru/En] (1.2) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796471.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ Heroes of Might and Magic IV / Heroes of Might and Magic 4 (2004) [Ru/En] (3.0/d
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795740.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ Punk Wars (2021) [Ru/Multi] (1.0.6) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794606.jpg" />
 </div>
 
 
@@ -618,58 +670,6 @@ Punk Wars (2021) [Ru/Multi] (1.0.6) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8338C0F29622E921490B40DB6CBFCA80F4503AC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183083   (791355) от 26.01.2018
-
-Total War Anthology (2009-2013) [Ru/En] Repack R.G. Механики
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Идет 270 год нашей эры. Череда неумелых императоров и жаждущих власти узурпаторов привели Римскую империю к глобальному экономическому кризису. Такого упадка империя еще не знала.Тип издания: RepackРазработчик: The Creative AssemblyЖанр: Strategy (Real-time, Turn-based), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EE9ABBAB3C4FB2A8377D5D81CC622FD72F6D119
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184498   (789545) от 19.11.2021
-
-Europa Universalis IV / Europa Universalis 4 (2013) [Multi] (1.32/dlc) License CODEX
-
->>След.
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Europa Universalis 4 - стратегия, разрабатываемая студией Paradox Interactive. В Europa Universalis игроки встают во главе одной из цивилизаций, которую они должны привести к мировому господству. Игра охватывает временные промежутки с 1492 по 1792 года, акцентируя внимание на Европе в эпоху открытий.Тип издания: LicenseРазработчик: Paradox Development StudioЖанр: Strategy (Real-time, Grand strategy), 3DЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76EB9765044B9BFAFBDF7FC2B45B2C3E64434BAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

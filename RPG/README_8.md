@@ -1,3 +1,55 @@
+###  Публикация: 1088253   (954723) от 01.01.2017
+
+Kingdoms of Amalur: Reckoning (2012) [Ru/En] (1.0.0.2/dlc) Repack R.G. Механики
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Объединенные усилия лучшего автора New York Times Р. Э. Сальваторе, творца Спауна Тодда Макфарлейна и ведущего дизайнера The Elder Scrolls IV: Oblivion Кена Ролстона воплотились в создании уникального мира новой ролевой игры Kingdoms of Amalur: Reckoning. Создайте персонажа, о котором вы всегда мечтали, и постепенно развивайте его с помощью революционной системы (   Читать дальше...   )Тип издания: RepackРазработчик: Big Huge Games и 38 StudiosЖанр: RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A567ABCE3B495EB17D366959CC92785F7BDDA265
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220834   (953654) от 20.02.2020
+
+Ys VIII: Lacrimosa of DANA (2018) [Multi] (ph3 update/dlc) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хроники странствий красноволосого искателя приключений по имени Адол насчитывают полтора десятка игр, хотя почти половина из них это пересказ уже известных событий на новый лад. В какую бы часть мира (география которого весьма похожа на нашу с вами родную Землю) ни занесло героя, ему непременно предстоит столкнуться с отголосками древних цивилизаций, диковинными (   Читать дальше...   )Тип издания: LicenseРазработчик: Nihon Falcom CorporationЖанр: Ролевая игра, Экшн, ФэнтезиЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Японский, ФранцузскийЯзык интерфейса: Английский, Японский, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A92A9F2BF834AE1474D9C17C2EF05C75AB32DA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089314   (951378) от 03.01.2017
 
 The Witcher 3: Wild Hunt / Ведьмак 3: Дикая охота (2015) [Ru/Multi] (1.31/dlc) SteamRip Let'sРlay [Game of the Year Edition]
@@ -6,7 +58,7 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая охота (2015) [Ru/Mu
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951378.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Costume Quest + 1 DLC [Ru] (Repack/1.0.0.11) 2013 | Fenixx
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950348.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Divine Divinity / Divine Divinity. Рождение легенды (2002) [Ru/En
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949933.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Risen 3: Titan Lords (2015) [Ru/Multi] (3.0.30.0/dlc) License PLAZA [Enhanced Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948399.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Risen [Ru/En/Multi7] (L) 2009 | PROPHET
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946778.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ Icewind Dale Dilogy (2000-2002) [Ru/En] (1.42/02.01.016/dlc) Repack R.G. Catalys
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946438.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ Conglomerate 451 (2020) [Ru/Multi] (1.1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946293.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ Inquisitor / Инквизитор (2012) [Ru/En] (1.10.17) Repack R.G. Меха�
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943983.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ Beyond Divinity / Beyond Divinity: Оковы судьбы (2004) [Ru/En] (1.506
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943255.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ Divine Divinity / Divine Divinity. Рождение легенды (2002) [Ru/En
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943251.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ Mount & Blade: With Fire and Sword / Mount & Blade. Огнем и мечом - �
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942456.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ Fallout 2 (1998) [En] (1.02d) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939209.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ Darkest Dungeon (2016) [Ru/Multi] (16708) SteamRip Let'sPlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938098.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ Sword of the Stars: The Pit [En] (L) 2013 | COGENT
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936097.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ Transistor (2014) [Ru/Multi] (1.42500) SteamRip Let'sPlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934699.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ ARK: Survival Evolved (2017) [Ru/Multi] (306.41/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931490.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ Nioh (2017) [Ru/En] (1.21.06/dlc) Repack xatab [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928568.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ Torn Tales (2017) [En] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928408.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ Guild of Dungeoneering (2015) [En] (1.06) SteamRip Let'sРlay [Digital Deluxe Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923754.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ Stygian: Reign of the Old Ones (2019) [Ru/Multi] (1.1.6/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923365.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ Titan Quest (2016) [Ru/En] (2.9mphf/dlc) Repack xatab [Anniversary Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923196.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ God Eater 2: Rage Burst (2016) [Ru/Multi] (1.00) License CPY
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921934.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ Wasteland Remastered (2020) [Ru/Multi] (1.07) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921415.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ God Eater 2: Rage Burst (2016) [Ru/Multi] (1.00) Repack =nemos=
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920113.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ God Eater 2: Rage Burst является самостоятельным допо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8345E35A30EC5EC02AC1C76D508E411FC8C7B9D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430627   (919866) от 19.08.2021
-
-Cyberpunk 2077 (2020) [Ru/Multi] (1.3) License CODEX
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cyberpunk 2077 приключенческая ролевая игра, действие которой происходит в мегаполисе Найт-Сити, где власть, роскошь и модификации тела ценятся выше всего. Вы играете за V, наёмника в поисках уникального устройства, позволяющего обрести бессмертие. Вы сможете менять киберимпланты, навыки и стиль игры своего персонажа, исследуя огромный открытый мир, где ваши поступки (   Читать дальше...   )Тип издания: LicenseРазработчик: CD PROJEKT REDЖанр: Action, Cyberpunk, Open World, RPG, Futuristic, Sci-fiЯзык озвучки: Английский (остальные озвучки устанавливаются отдельно)Язык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EDF261FE85A5CB7138C04E446183750AF05765A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989907   (914583) от 23.02.2016
-
-Dragon's Dogma: Dark Arisen (2016) [En/Multi] (1.0.10.6911) Repack R.G. Origami
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бои игры Dragon’s Dogma: Dark Arisen разворачиваются в огромном открытом мире. Игроки отправляются в эпическое приключение по живописному краю с тремя ИИ-спутниками — «пешками». «Пешки» сражаются сами по себе, вырабатывая сноровку и боевое умение на основе черт, перенятых от того или иного игрока. Игроки могут публиковать своих «пешек», получая в обмен ценности, (   Читать дальше...   )Тип издания: RepackРазработчик: CapcomЖанр: Add-on (Standalone), RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ABD8D0AB8DC9CE69512491468E09065B5EFACC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

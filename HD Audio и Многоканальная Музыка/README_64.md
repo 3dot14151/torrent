@@ -1,32 +1,3 @@
-###  Публикация: 1665422   (182286) от 30.09.2023
-
-Ed Sheeran - Autumn Variations (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magical (3:14)
-02. England (3:47)
-03. Amazing (4:06)
-04. Plastic Bag (3:50)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDF4D5DEE1B9AC1D57B7A923200420D1DB6A629B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665293   (182262) от 30.09.2023
 
 Nancy Sinatra - Keep Walkin': Singles, Demos & Rarities 1965-1978 (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop>
@@ -35,7 +6,7 @@ Nancy Sinatra - Keep Walkin': Singles, Demos & Rarities 1965-1978 (2023) [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182262.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ LP (Laura Pergolizzi) - Love Lines (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182244.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Maneskin - Rush! (2023) [FLAC 24/44.1|WEB-DL|tracks] <Glam-rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_182242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_182242.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Martin Simson’s Destroyer of Death - Eternal Reign (2023) [FLAC 24/48|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182215.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Green Day - Dookie (1994) 30th Anniversary Deluxe Edition, 2023, Reprise [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_182129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_182129.jpg" />
 </div>
 
 
@@ -177,7 +148,7 @@ Atena - Subway Anthem (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181626.jpg" />
 </div>
 
 
@@ -206,7 +177,7 @@ October Falls - Tuoni (2003) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181613.jpg" />
 </div>
 
 
@@ -235,7 +206,7 @@ Dyecrest - Once I Had A Heart (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heav
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181600.jpg" />
 </div>
 
 
@@ -264,7 +235,7 @@ Sleeping With Sirens - Complete Collapse (2022) Deluxe Edition [FLAC 24/48|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181585.jpg" />
 </div>
 
 
@@ -293,7 +264,7 @@ Surrender The Crown - IV - The Healing (2023) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181583.jpg" />
 </div>
 
 
@@ -322,7 +293,7 @@ Psychework - Spark of Hope (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181570.jpg" />
 </div>
 
 
@@ -351,7 +322,7 @@ The Hirsch Effekt - Urian (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Mathcore
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181566.jpg" />
 </div>
 
 
@@ -380,7 +351,7 @@ Fat Freddy's Drop & Kings - Blackbird Returns (2023) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181557.jpg" />
 </div>
 
 
@@ -409,7 +380,7 @@ Bullant - Late Life Circ (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Techno, E
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181553.jpg" />
 </div>
 
 
@@ -438,7 +409,7 @@ Blackbriar - A Dark Euphony (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphoni
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181528.jpg" />
 </div>
 
 
@@ -467,7 +438,7 @@ Stam1na - X (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive, Thrash, H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181497.jpg" />
 </div>
 
 
@@ -496,7 +467,7 @@ KK's Priest - The Sinner Rides Again (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181468.jpg" />
 </div>
 
 
@@ -525,7 +496,7 @@ Nina & Ricky Wilde - Scala Hearts (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181450.jpg" />
 </div>
 
 
@@ -554,7 +525,7 @@ Orbital - Optical Delusion (2023) Deluxe Edition [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181438.jpg" />
 </div>
 
 
@@ -582,7 +553,7 @@ Smokie - Ансамбль «Смоуки» (1980) Reissue, Licensed From – EMI
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181262.jpg" />
 </div>
 
 
@@ -611,7 +582,7 @@ October Falls - Marras (2005) [FLAC|24/192|image + .cue|Vinyl-Rip]<Atmospheric B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180956.jpg" />
 </div>
 
 
@@ -640,7 +611,7 @@ Diablo (Diablo Brothers) - Studio Albums (8 releases) (2000-2022) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180860.jpg" />
 </div>
 
 
@@ -669,7 +640,7 @@ Warwolf - The Apocalyptic Waltz (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <He
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180753.jpg" />
 </div>
 
 
@@ -698,7 +669,7 @@ Portishead - Dummy (1994) 2008, Europe, Reissue [FLAC 2.0|96/24|tracks +.cue|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180664.jpg" />
 </div>
 
 
@@ -727,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180623.jpg" />
 </div>
 
 
@@ -741,6 +712,35 @@ CD-1 (45:42)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:195B308004824B301633075387620139447D9723
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428056   (180596) от 01.12.2020
+
+Massive Attack - Mezzanine  (1998) 2013, Europe, Reissue [FLAC 2.0|96/24|tracks +.cue|Vinyl-Rip] <Trip Hop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180596.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Angel
+A2 Risingson
+A3 Teardrop
+B1 Inertia Creeps(   Читать дальше...   )Жанр: Trip HopПродолжительность: 01:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F856FFF29F9FC2FC57918BCF9FF411AA729D221F
 ```
 
 https://mybot314.ru/tekegram_catalog/

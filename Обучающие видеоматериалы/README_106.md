@@ -1,3 +1,32 @@
+###  Публикация: 1017378   (760672) от 17.05.2016
+
+Алексей Каманин | AutoCAD + СПДС GraphiCS - проектирование деревянных конструкций (2016) WEBRip
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот видеокурс для Вас, если:
+Вы новичок в проектировании деревянных конструкций в AutoCAD и СПДС GraphiCS
+Вы уже проектировали конструкции, но хотите повысить скорость проектирования в 2-3 раза.
+Вы хотите автоматизировать составление ведомостей, спецификаций и чертежей.(   Читать дальше...   )Производство: autocad-prosto.ruЖанр: Дизайн, проектированиеПродолжительность: 01:45:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD56B0C6AAFC34F6A5470DF1CDD39DDC7C8A6C20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522320   (759914) от 06.01.2022
 
 FlippedNormals, Henning Sanden | Switching to Blender for Experienced Artists (2021) PCRec [EN]
@@ -6,7 +35,7 @@ FlippedNormals, Henning Sanden | Switching to Blender for Experienced Artists (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759914.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ CtrlPaint.com | Arena Design. Portfolio Builder (2016) PCRec [H.264/1080p-LQ] [R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759541.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ Udemy.com | Introduction to 3D Coat (2015) PCRec [H.264/720p-LQ] [RU/EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759452.jpg" />
 </div>
 
 
@@ -89,7 +118,7 @@ Lynda.com | 3D Printing with ZBrush (2014) PCRec [H.264/720p-LQ] [RU/EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759451.jpg" />
 </div>
 
 
@@ -118,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759263.jpg" />
 </div>
 
 
@@ -153,7 +182,7 @@ Shaun T | FOCUS T25 (2013) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759167.jpg" />
 </div>
 
 
@@ -181,7 +210,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758007.jpg" />
 </div>
 
 
@@ -210,7 +239,7 @@ Profileschool | Пленочная фотография: за и против (2
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756659.jpg" />
 </div>
 
 
@@ -236,7 +265,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755897.jpg" />
 </div>
 
 
@@ -262,7 +291,7 @@ Skillbox, Дмитрий Заец и др.  | Профессия Экономи�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754518.jpg" />
 </div>
 
 
@@ -291,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753332.jpg" />
 </div>
 
 
@@ -319,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752953.jpg" />
 </div>
 
 
@@ -347,7 +376,7 @@ Allan McKay | FX Technical Director Transformation Module 9 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751811.jpg" />
 </div>
 
 
@@ -375,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751568.jpg" />
 </div>
 
 
@@ -404,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751461.jpg" />
 </div>
 
 
@@ -431,7 +460,7 @@ Grant Warwick | Hard Surface Modeling Lessons 1 - 14 (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751456.jpg" />
 </div>
 
 
@@ -459,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751375.jpg" />
 </div>
 
 
@@ -485,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751373.jpg" />
 </div>
 
 
@@ -514,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751238.jpg" />
 </div>
 
 
@@ -543,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751179.jpg" />
 </div>
 
 
@@ -569,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751169.jpg" />
 </div>
 
 
@@ -595,7 +624,7 @@ OTUS | Pазработчик BigData (2018) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749459.jpg" />
 </div>
 
 
@@ -621,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749417.jpg" />
 </div>
 
 
@@ -647,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_749416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749416.jpg" />
 </div>
 
 
@@ -676,7 +705,7 @@ Profileschool | Я и фотолаборатория: правила взаим�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749272.jpg" />
 </div>
 
 
@@ -687,32 +716,6 @@ Profileschool | Я и фотолаборатория: правила взаим�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:478DA9AC65EB86C0DD9A44E38AB047B4E53F56FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396172   (748036) от 14.07.2020
-
-[Специалист] Перлин Владислав | QPT - PostgreSQL. Оптимизация запросов (2020) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748036.jpg" />
-</div>
-
-
-###  Подробнее
-
-PostgreSQL – одна из самых популярных свободно распространяемых реляционных СУБД. Это программное обеспечение полностью соответствует современным стандартам языка SQL. PostgreSQL позволяет создавать надежные хранилища для большого объема данных с возможностью расширения и репликации. В России PostgreSQL используют многие интернет-проекты: Рамблер, Яндекс, Mail.ru, (   Читать дальше...   )Производство: СпециалистЖанр: СУБД, QPT, PostgreSQLПродолжительность: 11:51:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE67C24F8EF6636413A0552AAD9DCA57A0B74074
 ```
 
 https://mybot314.ru/tekegram_catalog/

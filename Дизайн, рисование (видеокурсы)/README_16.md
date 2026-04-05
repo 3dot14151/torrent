@@ -1,3 +1,59 @@
+###  Публикация: 1487289   (1003794) от 04.08.2021
+
+ezracohen.tv, Ezra Cohen | Residual income for creatives (2019) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплексное руководство по созданию и маркетингу цифровых продуктов для получения пассивного дохода - для кинематографистов, фотографов, музыкантов, дизайнеров и многих других!
+Узнайте, как заработать деньги на том, что уже есть на вашем жестком диске и в вашем рабочем процессе.
+Узнайте, как создавать успешные органические презентации, не тратя при этом ни копейки... (   Читать дальше...   )Производство: ezracohen.tvЖанр: МаркетингЯзык озвучки: Русский (отдельным файлом)Продолжительность: 03:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37C4BB17009447D525786D8D4B5FAEBD6E243930
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487849   (1002750) от 08.08.2021
+
+unrealskills.ru, Лихоманов Даниил | Unreal Basics (2018) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если ты хочешь изучить движок, понять как работают создатели компьютерных игр и начать свой путь в GameDev’е или разработке трёхмерного ПО, то этот курс для тебя.
+
+Я не по наслышке знаю как сложно изучать громоздкие программы. Мне пришлось потратить много лет, чтобы освоить движок на высоком уровне, и я хочу, чтобы каждый, кто горит желанием делать игры или разрабатывать (   Читать дальше...   )Производство: unrealskills.ruЖанр: Создание видеоПродолжительность: 08:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48BA9925B0B57D8B1FFAE88C272CEFE9A55D4E94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1488052   (1002487) от 09.08.2021
 
 Daniel Krafft | 200+ Helpful Blender 3D Hacks in Under 1 Hour (2020) PCRec [RU, EN]
@@ -6,7 +62,7 @@ Daniel Krafft | 200+ Helpful Blender 3D Hacks in Under 1 Hour (2020) PCRec [RU, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002487.jpg" />
 </div>
 
 
@@ -34,7 +90,7 @@ Gumroad, Yu Cheng Hong | Armour tutorial (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002279.jpg" />
 </div>
 
 
@@ -63,7 +119,7 @@ Schoolism, Alex Woo | Gesture Drawing (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002214.jpg" />
 </div>
 
 
@@ -90,7 +146,7 @@ ArtNest, Вера Величко | Игровой арт (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002206.jpg" />
 </div>
 
 
@@ -116,7 +172,7 @@ Udemy.com | Adobe Illustrator Advanced Vector Artwork (2019) PCRec [H.264/720p-L
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002131.jpg" />
 </div>
 
 
@@ -142,7 +198,7 @@ Hourences.com, Sjoerd De Jong | The Solus project: Level Introduction (2014) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002031.jpg" />
 </div>
 
 
@@ -168,7 +224,7 @@ Hourences.com, Sjoerd De Jong | The Solus Project: Blueprint Introduction (2014)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002029.jpg" />
 </div>
 
 
@@ -196,7 +252,7 @@ MP4FM, Garrett Fry | Camera Projection Boot Camp Part 2 (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002020.jpg" />
 </div>
 
 
@@ -222,7 +278,7 @@ Proko, Stan Prokopenko | Anatomy of the Human Body: Legs (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001973.jpg" />
 </div>
 
 
@@ -248,7 +304,7 @@ Udemy, Pete Jepson | Blender Cyberpunk in Unity HDRP (2020) PCRec [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001697.jpg" />
 </div>
 
 
@@ -275,7 +331,7 @@ Side FX, Marc Tucker | Houdini 15 Masterclass Material Stylesheets (2016) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001439.jpg" />
 </div>
 
 
@@ -303,7 +359,7 @@ Side FX, Jeff Wagner | Houdini 15 Masterclass Loops (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001436.jpg" />
 </div>
 
 
@@ -329,7 +385,7 @@ CG Academy, Borislav Petrov “Bobo” | MaxScript Fundamentalis 1-2 Advanced (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001431.jpg" />
 </div>
 
 
@@ -355,7 +411,7 @@ Side FX, Andreas Glad | Flowmaps Houdini for games (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001430.jpg" />
 </div>
 
 
@@ -381,7 +437,7 @@ Side FX, Andreas Glad | Curvesweeper Houdini for games (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001426.jpg" />
 </div>
 
 
@@ -407,7 +463,7 @@ Side FX, Jeff Wagner | Geometry Workflows in Houdini 16 (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001423.jpg" />
 </div>
 
 
@@ -436,7 +492,7 @@ Side FX, Kai Stavginski | Houdini 16.5 Masterclass Fur & Hair Grooming Toolset (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001422.jpg" />
 </div>
 
 
@@ -462,7 +518,7 @@ Side FX, Ryan Goldade | Houdini 16 Flip Fluids (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001419.jpg" />
 </div>
 
 
@@ -489,7 +545,7 @@ Side FX, Jeff Wagner | Character FX & Cloth in Houdini 17 (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001416.jpg" />
 </div>
 
 
@@ -515,7 +571,7 @@ ENTAGMA, Manuel Casasola | Creating Geometry With VEX (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001409.jpg" />
 </div>
 
 
@@ -541,7 +597,7 @@ Udemy.com | Architectural Design & Animation in Blender (2019) PCRec [H.264/720p
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000983.jpg" />
 </div>
 
 
@@ -567,7 +623,7 @@ Udemy.com | Concept Art Masterclass. Create Conceptual Art from Scratch (2019) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000974.jpg" />
 </div>
 
 
@@ -595,7 +651,7 @@ Udemy.com | Concept Art Essentials. Digital Painting From Scratch (2019) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000963.jpg" />
 </div>
 
 
@@ -621,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997640.jpg" />
 </div>
 
 
@@ -640,58 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353555   (991623) от 18.01.2020
-
-Udemy | Создание Sci-Fi ассетов в Blender 2.81 и Substance Painter / Blender 2.81 - Substance Painter - Sci Fi Asset Creation (2019) PCRec [H.264/720p-LQ] [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991623.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом тренинге мы познакомимся с процессом создания научно-фантастических ассетов. Возьмем в качестве примера создание винтовки для видеоигр.Производство: UdemyЖанр: 3D моделированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 10:00:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF852F8A565C155D857F92530E97684AF64B6BDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 677014   (984137) от 04.01.2016
-
-Установка розеток на кафель [2013] DVDRip
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хрущёвка. Плитка положена... И тут встаёт вопрос: Как установить электророзетку на кафельную плитку? Об этом вы и узнаете,посмотрев это видео.Жанр: ОбучающийПродолжительность: 00:14:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63641A8512E0235B806FABDF2EDFC3CC56D44A6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

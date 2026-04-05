@@ -1,135 +1,3 @@
-###  Публикация: 970914   (988625) от 01.01.2016
-
-А. С. Хомяков | Сочинения в двух томах. Работы по историософии. Работы по богословию (1994) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Состав настоящего собрания включает основные философские труды Хомякова.
-В первом томе представлены работы по историософии: первая, собственно историософская, часть «Семирамиды» и примыкающие к ней полемические статьи и заметки.
-Второй том включает богословские сочинения и поздние философские трактаты.Жанр: ФилософияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCB0EC6BAE2117AAC03F843800EA8809FDBEED79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970757   (988624) от 01.01.2016
-
-Анри Бергсон | Творческая эволюция. Материя и память [сборник] (1999) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вниманию читателей предлагаются произведения Анри Бергсона (1859 — 1941), французского философа-идеалиста, представителя интуитивизма и философии жизни.Жанр: ФилософияПеревод: В. А. Флёрова, И. Г. Гольденберг, М. Булгаков, А. Баулер, Б. С. БычковскийФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24203D33607383B27C72AB65EE6E951815C8E5A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970774   (988623) от 01.01.2016
-
-Ханна Арендт | Лекции по политической философии Канта (2011) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга включает несколько текстов: «Лекции по политической философии Канта», прочитанные Ханной Арендт в Новой школе социальных исследований в Нью-Йорке, а также ряд дополнительных материалов, объединенных общей темой — исследованием способности суждения в связи с чувством вкуса и с элементами политической общности, возникающими вопреки вкусовой идиосинкразии. В центре (   Читать дальше...   )Жанр: Философия, ПолитикаПеревод: Алексей ГлуховФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F81FE19BE19F9A3375F61EB6829AAC3E06EFFBB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970928   (988622) от 01.01.2016
-
-М. Н. Вольф | Философский поиск: Гераклит и Парменид (2012) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988622.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследование посвящено малоразработанной проблеме — терминологии и характеру философского (эпистемического) поиска в раннегреческой философии. В центре внимания автора — творчество Гераклита и Парменида, которое рассматривается в широком историко-философском контексте. В основе исследования лежит детальный анализ семантического поля «поиска» — дидзесиса/дзетесиса. (   Читать дальше...   )Жанр: ФилософияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECC0DB0F2CE259A4E321B9F48537C8CA24734990
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970992   (988620) от 01.01.2016
-
-Илона Камад | Обрядовая сторона культов Древней Греции (2006) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мировоззрение человека древнего мира заключалось в восприятии жизни как единой последовательности всех происходящих процессов. С каждым новым периодом жизни древний грек восходил к духовному освящению, проходя религиозный церемониальный ритуал перехода — инициацию. В процессе прохождения инициации изживалось прежнее психологическое восприятие инициируемого с преломлением, (   Читать дальше...   )Жанр: ИсторияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A19C36C3EB7179131646760B678D25487295D85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970850   (988619) от 01.01.2016
 
 Е. Н. Трубецкой | Труды по философии права (2001) [DJVU]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988619.jpg" />
 </div>
 
 
@@ -165,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988618.jpg" />
 </div>
 
 
@@ -191,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988595.jpg" />
 </div>
 
 
@@ -217,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988592.jpg" />
 </div>
 
 
@@ -243,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988591.jpg" />
 </div>
 
 
@@ -269,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988589.jpg" />
 </div>
 
 
@@ -295,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988587.jpg" />
 </div>
 
 
@@ -321,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988586.jpg" />
 </div>
 
 
@@ -347,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988564.jpg" />
 </div>
 
 
@@ -373,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988562.jpg" />
 </div>
 
 
@@ -399,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988504.jpg" />
 </div>
 
 
@@ -425,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988502.jpg" />
 </div>
 
 
@@ -451,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988401.jpg" />
 </div>
 
 
@@ -477,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988296.jpg" />
 </div>
 
 
@@ -505,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988243.jpg" />
 </div>
 
 
@@ -533,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988056.jpg" />
 </div>
 
 
@@ -559,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987995.jpg" />
 </div>
 
 
@@ -585,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987948.jpg" />
 </div>
 
 
@@ -612,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987944.jpg" />
 </div>
 
 
@@ -639,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987884.jpg" />
 </div>
 
 
@@ -666,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987826.jpg" />
 </div>
 
 
@@ -678,6 +546,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD62E3D849CA0D0685F38FD30E6CAE668FC01A5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353826   (987757) от 22.01.2020
+
+Сергей Бубновский | Офис без риска для здоровья. Зарядка для офисного планктона (2020) [PDF, EPUB]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая книга известного врача-кинезитерапевта, доктора медицинских наук, профессора С. М. Бубновского адресована работникам офисов: менеджерам, бухгалтерам, руководителям компаний и их помощникам, IT специалистам, дизайнерам, проектировщикам, операторам, административным работникам и другим специалистам, которые проводят свои рабочие дни в офисе за компьютером. В (   Читать дальше...   )Жанр: Медицина и здоровьеФормат: PDF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:439602107AFB6248F908FD2D41798DEFEDBD562E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971247   (987588) от 02.01.2016
+
+Мария Павлова | Илья Фрэз (1985) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена творчеству народного артиста РСФСР, лауреата Государственной премии СССР Ильи Фрэза, известного мастера детского кино.
+
+Фильмы "Первоклассница", "Я купил папу", "Чудак из пятого "Б", "Я вас любил…", "Вам и не снилось…", "Карантин" и другие принесли ему широкую популярность у зрителей (   Читать дальше...   )Жанр: Биографии и Мемуары, КиноФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC92923C8AA67733AC6309326CED67FD233E4C05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971234   (987584) от 02.01.2016
+
+Виктор Кожемяко | Виктор Розов. Свидетель века (2013) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Виктор Сергеевич Розов – имя легендарное в отечественной культуре, особенно для старшего поколения. Пьесы «Вечно живые», «Её друзья», «В поисках радости», «Гнездо глухаря», снятые по его произведениям фильмы «Летят журавли», «Шумный день», «С вечера до полудня», «В добрый час» – это знаменательные вехи нашей литературы, театра и кино. Спектакли по пьесам В. Розова (   Читать дальше...   )Жанр: Биографии и Мемуары, Кино, ТеатрФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E3B4A09EF080F39325AE4794E7AF0F7CE5EEDD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971396   (987583) от 02.01.2016
+
+А. М. Курносов, Б. А. Розентретер | Лев Дмитриевич Шевяков (1973) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987583.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассказывается о жизни и деятельности видного советского ученого, горного инженера Льва Дмитриевича Шевякова, одного из основоположников важного раздела горной науки - теории проектирования угольных шахт. Авторы анализируют основные труды ученого, его научно-организационную работу в учреждениях Академии наук СССР, в научно-исследовательских институтах и в (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88DAB1497FB6B916E894081275F996533B11AE49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971226   (987581) от 02.01.2016
+
+Жан Лакруа | Избранное. Персонализм (2004) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жан Лакруа — один из ведущих представителей французского персонализма — рассматривал персонализм в качестве фундаментального проекта подлинно философского анализа. Персонализм, согласно Лакруа, — это некое вдохновение, интенция, его предмет — человечество в целом, «универсальное в человеке и человечестве». По Лакруа, современными концепциями, наиболее одухотворенными (   Читать дальше...   )Жанр: ФилософияПеревод: И. И. Блауберг, И. С. Вдовина, В. М. ВолодинФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0D5EBED6E2CEC5F2D4EC01723F1A995619DCB3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

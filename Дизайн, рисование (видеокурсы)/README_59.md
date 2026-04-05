@@ -1,3 +1,58 @@
+###  Публикация: 1556490   (230393) от 09.06.2022
+
+FlippedNormals, Tim Bergholz | Blender for Beginners & Blender Flashbang Grenade Tutorial - Tip Jar Edition (2021) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230393.jpg" />
+</div>
+
+
+###  Подробнее
+
+Привет всем! Это идеальное учебное пособие для тех, кто хочет начать работу с Blender.
+2–часовой вводный курс, а также еще 2 часа – создание светошумовой гранаты. В общей сложности более 4 часов уроков по Blender для начинающих, а также полчаса по запеканию, текстурированию и рендерингу в Marmoset Toolbag 4!Производство: FlippedNormalsЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 04:46:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEC926EB475DF35B0DF0960CF129F0F0D58C265F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556736   (230317) от 10.06.2022
+
+Skillshare, 3D Tudor | Substance Painter to Unreal Engine 5 Masterclass (2022) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Узнайте, как создавать игровые AAA ассеты в Substance Painter и Unreal Engine, в этом мастер-классе.
+Вы узнаете, как создать замысловатый стилизованный фургон, находящийся в сцене у костра, которая вдыхает жизнь благодаря дизайну и анимации.
+В этом курсе вы узнаете обо всех техниках, которые используют профессионалы, и о том, как они их используют. Интеграция с Unreal (   Читать дальше...   )Производство: SkillshareЖанр: 3D моделирование, ТекстурированиеЯзык озвучки: АнглийскийПродолжительность: 14:34:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:570065B9F8A558A18C17CA54B5AE8CA091CE83E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1556922   (230284) от 11.06.2022
 
 The Gnomon Workshop, Charleston Silverman | Unreal Engine Complete Material System Overview (2019) PCRec [RU]
@@ -6,7 +61,7 @@ The Gnomon Workshop, Charleston Silverman | Unreal Engine Complete Material Syst
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230284.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ Tim Bergholz | Ultimate Grenade Tutorial Hardsurface 3D Course (2015) PCRec [EN,
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230275.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230038.jpg" />
 </div>
 
 
@@ -87,7 +142,7 @@ Stan Air | AirHair Tutorial (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_229940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229940.jpg" />
 </div>
 
 
@@ -116,7 +171,7 @@ Hudozhnik Online, Полина Абдулаева | Черно-белый Нов
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229806.jpg" />
 </div>
 
 
@@ -144,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229672.jpg" />
 </div>
 
 
@@ -172,7 +227,7 @@ Udemy.com | Adobe Photoshop cc course from A-Z Beginner to Master (2019) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229553.jpg" />
 </div>
 
 
@@ -199,7 +254,7 @@ Enterclass, Илья Ибряев | Мачу-Пикчу (2023) WEB-DL [AD] [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227303.jpg" />
 </div>
 
 
@@ -225,7 +280,7 @@ lectoroom, Елена Базанова | Веточки яблони аквар�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227271.jpg" />
 </div>
 
 
@@ -253,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227256.jpg" />
 </div>
 
 
@@ -282,7 +337,7 @@ Ctrl + Paint, Matt Kohr | Custom Brush Design (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226965.jpg" />
 </div>
 
 
@@ -308,7 +363,7 @@ Ctrl + Paint, Matt Kohr | Vehicle Design Start To Finish (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226938.jpg" />
 </div>
 
 
@@ -335,7 +390,7 @@ Ctrl + Paint, Matt Kohr | Let's Paint (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226924.jpg" />
 </div>
 
 
@@ -361,7 +416,7 @@ Ctrl + Paint, Matt Kohr | Weapon Design (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226886.jpg" />
 </div>
 
 
@@ -387,7 +442,7 @@ Udemy, Neil Bettison | Создание научно-фантастическо�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226862.jpg" />
 </div>
 
 
@@ -413,7 +468,7 @@ Ctrl + Paint, Matt Kohr | Costume Design (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226831.jpg" />
 </div>
 
 
@@ -439,7 +494,7 @@ Ctrl + Paint, Matt Kohr | Digital Sketching 2: Refined Lines (2016) PCRec [En, R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226798.jpg" />
 </div>
 
 
@@ -465,7 +520,7 @@ Ctrl + Paint, Matt Kohr | Creating Realistic Surfaces (2013) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226760.jpg" />
 </div>
 
 
@@ -491,7 +546,7 @@ Ctrl + Paint, Matt Kohr | Digital Sketching 4: Technical Drawing (2016) PCRec [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226739.jpg" />
 </div>
 
 
@@ -517,7 +572,7 @@ Ctrl + Paint, Matt Kohr | Digital Sketching 1: Gesture (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226708.jpg" />
 </div>
 
 
@@ -543,7 +598,7 @@ Kantemir Bitokov | Курс по моделингу автомобиля кла�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226673.jpg" />
 </div>
 
 
@@ -572,7 +627,7 @@ CGEvent | Подборка мастерклассов по трехмерке К
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225385.jpg" />
 </div>
 
 
@@ -601,7 +656,7 @@ CGEvent | Подборка мастерклассов по трехмерке М
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225377.jpg" />
 </div>
 
 
@@ -630,7 +685,7 @@ CGEvent | Подборка мастерклассов по трехмерке П
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225185.jpg" />
 </div>
 
 
@@ -644,62 +699,6 @@ CGEvent | Подборка мастерклассов по трехмерке П
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB14B5E1FF1149AF273572782BD14D6994B4D551
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513220   (225168) от 28.11.2021
-
-CGEvent | Подборка мастерклассов по трехмерке Москва 2018 (2018) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка мастерклассов по трехмерке:
-Анимация. Игры (не) против мультфильмов
-Топология. Полисетки. Тела
-Особенсти gamedev-анимации(   Читать дальше...   )Производство: CGEventЖанр: МастерклассПродолжительность: 05:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96555C808496625A8232F16B32D4C13809B1959E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513213   (224786) от 28.11.2021
-
-Udemy, Charlie Grubel | 3D Animation Basics To Full Body and Creature Mechanics (2015) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в курс по 3D анимации: Основы механики тела персонажей. Автор курса – Чарли Грубель – студийный аниматор-фрилансер, преподаватель, разработчик игр и 3D-художник. У него за плечами годы работы с анимацией и теперь он готов поделиться приобретенными знаниями!
-В данном курсе мы рассмотрим все 12 принципов анимации, удары мяча, перехлест при анимации (   Читать дальше...   )Производство: UdemyЖанр: АнимацияЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 03:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3B8981DBB3F237DB032EA3C2DC4C1832F1B608F
 ```
 
 https://mybot314.ru/tekegram_catalog/

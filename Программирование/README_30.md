@@ -1,83 +1,3 @@
-###  Публикация: 1324422   (422927) от 10.09.2019
-
-Аллен Б. Дауни | Байесовские модели (2018) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы знаете, как программировать на Python, и немного знаете о теории вероятности, значит, вы готовы освоить байесовскую статистику. Эта книга расскажет вам, как решать статистические задачи с помощью языка Python вместо математических формул и использовать дискретные вероятностные распределения вместо непрерывной математики.
-Байесовские статистические методы (   Читать дальше...   )Жанр: Математика, ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:047FA4634B4ED01EE1EC9B473A2407EF855DB9E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324610   (422801) от 10.09.2019
-
-Д.Л. Осипов | Технологии проектирования баз данных (2019) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422801.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге обсуждаются роль и место баз данных в современных информационных системах, рассматриваются основные функции и архитектура СУБД, организация многопользовательского доступа к данным, обеспечение целостности данных, управление транзакциями, физическое хранение отношений, особенности построения индексов, основные черты коммерчески успешных моделей данных.
-Рассматривается (   Читать дальше...   )Жанр: Программирование, БДФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2402E85EC47E4438FF6C124073745D33CB8996FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324612   (422790) от 10.09.2019
-
-В.М. Лебедев | Программирование на VBA в MS Excel (2019) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассматриваются вопросы макропрограммирования в OpenOffice и среде MS Excel, а также возможности языка VBA, что позволяет создавать собственные макросы и приобрести базовое понимание парадигмы, лежащей в основе интегрированной среды разработки приложений в MS Excel и OpenOffice 4.1.1. Данное учебное пособие рассчитано на изучение и практическое освоение основ программирования (   Читать дальше...   )Жанр: Учебное пособие, ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:240736556ACE4ACDF23CFFDD26DA6A5D861A8D2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 557593   (421081) от 07.10.2012
 
 Jess Chadwick, Todd Snyder | Programming ASP.NET MVC 4: Developing Real-World Web Applications with ASP.NET MVC [2012] [PDF]
@@ -86,7 +6,7 @@ Jess Chadwick, Todd Snyder | Programming ASP.NET MVC 4: Developing Real-World We
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421081.jpg" />
 </div>
 
 
@@ -121,7 +41,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419787.jpg" />
 </div>
 
 
@@ -147,7 +67,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419779.jpg" />
 </div>
 
 
@@ -175,7 +95,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419775.jpg" />
 </div>
 
 
@@ -203,7 +123,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419772.jpg" />
 </div>
 
 
@@ -230,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419290.jpg" />
 </div>
 
 
@@ -256,7 +176,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416090.jpg" />
 </div>
 
 
@@ -282,7 +202,7 @@ Matthijs Hollemans / Мэттис Холлеманс| The iOS Apprentice (5th ed
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415773.jpg" />
 </div>
 
 
@@ -308,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415761.jpg" />
 </div>
 
 
@@ -334,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414201.jpg" />
 </div>
 
 
@@ -363,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412914.jpg" />
 </div>
 
 
@@ -389,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411184.jpg" />
 </div>
 
 
@@ -415,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411122.jpg" />
 </div>
 
 
@@ -442,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410964.jpg" />
 </div>
 
 
@@ -470,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410948.jpg" />
 </div>
 
 
@@ -497,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410431.jpg" />
 </div>
 
 
@@ -523,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410243.jpg" />
 </div>
 
 
@@ -549,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410121.jpg" />
 </div>
 
 
@@ -575,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410118.jpg" />
 </div>
 
 
@@ -601,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409098.jpg" />
 </div>
 
 
@@ -629,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404275.jpg" />
 </div>
 
 
@@ -656,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404262.jpg" />
 </div>
 
 
@@ -691,7 +611,7 @@ J. F. DiMarzio | Android. A Programmer’s Guide [2008] [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403518.jpg" />
 </div>
 
 
@@ -702,6 +622,86 @@ J. F. DiMarzio | Android. A Programmer’s Guide [2008] [PDF] [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F91424309FEB35D457E2114BAA6A1367DBC9DA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 564300   (402708) от 23.10.2012
+
+Чак Лэм | Hadoop в действии [2012] [DJVU]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обработка больших массивов данных с помощью традиционных СУБД может оказаться трудным делом. Apache Hadoop - это каркас для разработки приложении, предназначенных для выполнения в распределенном кластере, без применения SQL. Такие приложения прекрасно масштабируются и могут обрабатывать гигантские массивы данных. Если вам требуется произвести анализ данных, то Hadoop как раз то, что надо.
+Прочитав эту книгу, вы познакомитесь с предметом и научитесь писать программы в стиле MapReduce. После нескольких простых примеров автор быстро переходит к вопросу об использовании Hadoop для решения более сложных задач анализа данных. Описываются рекомендованные приемы и паттерны проектирования, полезные при программировании для MapReduce.
+Для чтения книги требуется знание основ языка Java. Некоторое знакомство с математической статистикой поможет разобраться в более сложных примерах.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AC52B9759D267561A74A8AF13845153E12B2DFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169776   (401989) от 28.09.2017
+
+Кей Хорстманн | Java. Библиотека профессионала. 10-е издание. В 2-х томах [2 книги] (2016) [DJVU]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401989.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это полностью обновленное по версии Java SE 8 издание представляет собой солидное справочное руководство по языку программирования Java для тех, кто разрабатывает реальные проекты на платформе Java. В этом надежном и полезном практическом руководстве описаны расширенные языковые средства, библиотеки и прикладные интерфейсы, проиллюстрированные тщательно подобранными (   Читать дальше...   )Жанр: ПрограммированиеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02375614834A4126F6BA5458E3A558E81E77B779
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 566685   (397501) от 28.10.2012
+
+Джон Уокенбах | Excel 2010. Профессиональное программирование на VBA + CD [2012] [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучите возможности языка VBA (Visual Basic for Applications), и вы получите в свое распоряжение практически безграничные ресурсы Microsoft Excel 2010. Джон Уокенбах, один из крупнейших специалистов в области электронных таблиц, щедро поделится с вами своими знаниями и поможет профессиональными советами, которыми буквально переполнена эта великолепная книга.  Даже для опытных пользователей Excel книга станет бесценным источником знаний. Вы ознакомитесь с инновационным подходом к изучению Excel и с этапами разработки приложений электронных таблиц. Вы научитесь разрабатывать процедуры и функции VBA, изучите передовые методики программирования и освоите ряд приемов, знание которых сделает вас подлинным гуру в области VBA-программирования. Если же вы осуществляете переход с одной из предыдущих версий Excel, то благодаря книге сможете легко и быстро освоить новые возможности Excel 2010.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48897B105FA1A02532B55C79B181EDE1B458B89D
 ```
 
 https://mybot314.ru/tekegram_catalog/

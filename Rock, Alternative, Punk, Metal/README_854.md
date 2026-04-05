@@ -1,3 +1,32 @@
+###  Публикация: 1547544   (238470) от 29.04.2022
+
+Rammstein - Zeit (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Industrial-Metal, Neue-Deutsche-Harte>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armee Der Tristen (3:26)
+02. Zeit (5:22)
+03. Schwarz (4:18)
+04. Giftig (3:08)(   Читать дальше...   )Жанр: Industrial-Metal, Neue-Deutsche-HarteПродолжительность: 00:44:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B6529C75129A0E36E4503B5AE995558557FD37F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1623613   (238465) от 02.04.2023
 
 Безрецепта - Упущенная выгода (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
@@ -6,7 +35,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238465.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Within Destruction - Lotus (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu Metalcore, E
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238448.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Kingsmen - Bones Don't Lie (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Mode
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238442.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Within Destruction - Lotus (2022) [MP3|320 Kbps] <Nu Metalcore, Electronic>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238436.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Rage - Spreading the Plague (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238428.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Roxster - Rising (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238421.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Scarlet Dorn - Queen of Broken Dreams (2022) [MP3|320 Kbps] <Dark Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238412.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Haliphron - Prey (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Death, Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238409.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Rage - Spreading the Plague (2022) EP [MP3|320 Kbps] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238405.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ nothing,nowhere. - Void Eternal (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238401.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Scarlet Dorn - Queen Of Broken Dreams (2022) [FLAC|Lossless|WEB-DL|tracks] <Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238398.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Boystown - Angels with Dirty Faces (1989) Remaster, 2005, Ironhorse Records [MP3
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238394.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Alkymenia - Meeting Before the Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238393.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Them Damn Kings - Rise Up (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238368.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Bob Dylan - Shadow Kingdom (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238367.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Astodan - 3 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238362.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Paralyzed - Heavy Road (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Stoner Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238358.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238356.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Carrion Vael - Abhorrent Obsessions (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238343.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Rule of Two - Pharaohmoans (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Blu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238337.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238334.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Def Leppard - Mirror Ball - Live & More (2011) (2 CD) [OGG Vorbis|484 Kbps] <Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238329.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Siren - A Mercenary's Fate (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238320.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Apoplexy - Infection (1997) [FLAC|Lossless|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238306.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Deer Creek - 2 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238296.jpg" />
 </div>
 
 
@@ -714,35 +743,6 @@ Deer Creek - 2 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C2327E29FB201FA504920D9117C2EC374184513
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639443   (238295) от 13.06.2023
-
-VA - Music for Running Are You Ready?!? (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pantera -- Cowboys from Hell (4:04)
-02. Disturbed -- Down with the Sickness (4:39)
-03. Billy Talent -- Rusted from the Rain (4:13)
-04. Linkin Park -- One Step Closer (2:37)(   Читать дальше...   )Жанр: RockПродолжительность: 02:22:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FC57F3EA06AE3A2501881D9476DB27795BF6918
 ```
 
 https://mybot314.ru/tekegram_catalog/

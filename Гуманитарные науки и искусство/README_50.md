@@ -1,82 +1,3 @@
-###  Публикация: 1291070   (652416) от 26.03.2019
-
-К. Маркс | Капитал [3 тома, 4 книги] (1933-1936) [DJVU, PDF] [UA]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Капитал - главный труд К. Маркса, в котором он, применив диалектико-материалистическую концепцию исторического процесса к исследованию капиталистического общественно-экономической формации, открыл экономический закон движения буржуазного общества и доказал неизбежность гибели капитализма и победы коммунизма.Жанр: История, политология, экономика, правоведение, социология, философия, публицистикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5169321733C39403423EEFA4208883C44279E276
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030889   (652147) от 04.07.2016
-
-Т. Д. Павлов | Ленинская теория отражения в свете развития науки и практики [Том 1] (1981) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящий труд создан коллективом видных советских и бол­гарских философов, крупных ученых —представителей естест­венных и общественных наук. Подготовкой этого труда завер­шаются начатые в 1963 г. совместные исследования,Жанр: История, философия, науковедение, естествознание, психология, гносеология, логикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:291BE982B84F01E7A2830C94DC2CC6178BB8460A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226830   (652029) от 23.05.2018
-
-Дана Арнольд | Говорит и показывает искусство. Что объединяет шедевры палеолита, эпоху Возрождения и перформансы (2018) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652029.jpg" />
-</div>
-
-
-###  Подробнее
-
-Невозможно понимать искусство, не изучив его историю. Но как им тогда наслаждаться? Как в нелепом наброске увидеть шедевр, как в абстракции найти смысл? Вы удивитесь, насколько по-разному воспринималось искусство в разные времена и как при этом оно одинаково действовало на людей. Научитесь видеть и слышать художников сквозь время и пространство.
-Эта книга расскажет (   Читать дальше...   )Жанр: Искусствоведение, История искусствФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6C07240F759A7778BBF93A41FA11EE0ACC4A6A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904904   (651924) от 05.06.2015
 
 В. Н. Шевченко | Н. Бухарин как теоретик исторического материализма (1990) [DJVU]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651924.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651738.jpg" />
 </div>
 
 
@@ -139,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651633.jpg" />
 </div>
 
 
@@ -165,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650690.jpg" />
 </div>
 
 
@@ -193,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650611.jpg" />
 </div>
 
 
@@ -219,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650380.jpg" />
 </div>
 
 
@@ -247,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649487.jpg" />
 </div>
 
 
@@ -273,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648514.jpg" />
 </div>
 
 
@@ -299,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646829.jpg" />
 </div>
 
 
@@ -325,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646828.jpg" />
 </div>
 
 
@@ -352,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646826.jpg" />
 </div>
 
 
@@ -379,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646824.jpg" />
 </div>
 
 
@@ -405,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646719.jpg" />
 </div>
 
 
@@ -431,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645857.jpg" />
 </div>
 
 
@@ -460,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645805.jpg" />
 </div>
 
 
@@ -486,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645796.jpg" />
 </div>
 
 
@@ -514,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645658.jpg" />
 </div>
 
 
@@ -540,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645540.jpg" />
 </div>
 
 
@@ -566,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645531.jpg" />
 </div>
 
 
@@ -592,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645506.jpg" />
 </div>
 
 
@@ -620,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645426.jpg" />
 </div>
 
 
@@ -647,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645425.jpg" />
 </div>
 
 
@@ -673,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645342.jpg" />
 </div>
 
 
@@ -684,6 +605,89 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07D4A8816E970392058B8B84430DDBB2690674E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292346   (644696) от 30.03.2019
+
+Елена Первушина | Думай, что говоришь (2019) [FB2]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга расскажет о том, как... правильно рассказывать. Всем нам время от времени приходится обращаться к людям, которые едва ли поймут нас с полуслова: писать письма, готовить доклады, выступать с речами, делать посты в социальных сетях. Эта книга расскажет о "маленьких секретах", к которым писатели — люди, профессионально работающие с языком, — обычно приходят (   Читать дальше...   )Жанр: Литературоведение, Русский язык, ЯзыкознаниеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E39C8DD916A4511C8AA4C556B219EB2C28589ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032151   (644003) от 08.07.2016
+
+Г. А. Багатурия | Размышления марксоведа (2013) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644003.jpg" />
+</div>
+
+
+###  Подробнее
+
+В работе выдающегося современного ученого-марксоведа Георгия Александровича Багатурия рассматриваются актуальные вопросы социально-политического учения марксизма.
+
+Для всех, кто интересуется политическим учением марксизма.Жанр: История, политология, философияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80B4CA45ADAF17AE40B75DB0C43B0CFE2F4BEC98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 345360   (643728) от 06.06.2011
+
+Юрий Андреев | НомоНомикон [NomoNomikon] [3 финальное издание] [2011] [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643728.jpg" />
+</div>
+
+
+###  Подробнее
+
+"НомоНомикон" - представляет из себя 3-ю часть главной книги автора – «МетаНомикон», - выделенную в самостоятельное произведение и дополненную при этом.
+Это произведение охватывает область философии естественного (т.е. присущего любому Индивиду по самому факту его существования) права, и написано оно  в жанре законодательного акта, или, выражаясь иначе, - «рамочной» законодательной системы.
+Собственно, именно этот жанр и диктуемые им нормы изложения делают это произведение самым схематичным по стилю изложения произведением автора.
+Необходимо отметить, что "НомоНомикон" был выделен в отдельное произведение из книги «МетаНомикон» еще тогда, когда «МетаНомикон» был лишь на половине пути своего создания, и в дальнейшем это произведение дорабатывалось параллельно с главной книгой автора.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ADF1F3CCA7750CB43F4C00E314E80C5B665A9F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

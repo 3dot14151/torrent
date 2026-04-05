@@ -1,160 +1,3 @@
-###  Публикация: 1555367   (570121) от 03.06.2022
-
-Khalil Stemmler | SOLID: The Software Design and Architecture Handbook (2022) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы когда-нибудь чувствовали, что ваш код со временем становится не лучше, а хуже? В этом руководстве профессиональные разработчики программного обеспечения узнают о передовых методах проектирования и архитектуры программного обеспечения, которым вас не научили в школе.Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FC769127648584FD854C6A664C445C965EA6DE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303804   (568479) от 23.05.2019
-
-Дмитрий Храмов | Сбор данных в Интернете на языке R (+code) (2017) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всё, что регистрирует человек и созданные им машины, может считаться данными. Фиксируя новое и переводя архивы в цифровую форму, мы с каждым днём производим всё больше данных. Часть из них находится в специальных хранилищах, готовые к использованию. Но гораздо чаще случается так, что данные разбросаны по всемирной сети на многочисленных страницах онлайновых магазинов, (   Читать дальше...   )Жанр: Информационные технологииФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7CB52F0F385860C75F6C480B2732A4D9811C280
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554187   (568261) от 04.06.2022
-
-Алексей Голобурдин | Типизированный Python для профессиональной разработки (2022) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель этой книги — помочь тебе научиться писать более красивые, надёжные и легко сопровождаемые программы на Python. То, о чём мы здесь будем говорить, это не начальный уровень владения языком, предполагается, что ты уже минимально умеешь программировать, но хочешь научиться делать это лучше.Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FD6F79E7C02C3D0325C6C61E7BB344F780F7AFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922379   (567791) от 29.07.2015
-
-М.В. Ляховец | Программирование в UNIX-системах (2011) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены практические аспекты использования средств операционных систем семейств UNIX. Произведено введение в среду выполнения системы UNIX в целом, способы обращения пользователей к ее различным частям.
-Представлены средства для практических каждодневных задач по сопровождению файлов - для копирования и сохранения файлов и для удаления ненужных файлов. Также (   Читать дальше...   )Жанр: Програмирование, информатика, учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2CDAFEC16314E600C1547DF937900BEB1448487
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234789   (567436) от 07.07.2018
-
-Джейсон Шрейер | Кровь, пот и пиксели. Обратная сторона индустрии видеоигр (2018) [PDF, RTF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567436.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшая книга об игровой индустрии от известного американского журналиста Джейсона Шрейера. Автор собрал сотни уникальных и захватывающих историй создания лучших компьютерных игр десятилетия, рассказанных ему самими создателями. Получилась жизненная и нетривиальная книга о том, что стоит за каждой культовой игрой современности и какой ценой ее разработчики выпускают (   Читать дальше...   )Жанр: Зарубежная деловая литература, Зарубежная компьютерная литература, Истории успехаФормат: PDF, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAD53E2513C7FBEB6C490D5BB536BCEE6E4FA193
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555714   (567019) от 05.06.2022
-
-Журнал | Linux Magazine №260 (2022) [PDF][En]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Linux Magazine - журнал, целиком посвященный операционной системе Linux. Редакционная политика — своевременное и полноценное информирование читательской аудитории о современном состоянии индустрии программного обеспечения с Открытым кодом, публикация обзоров о технологических новинках и обучающих программах, новости и интервью. Информационное наполнение журнала будет (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95BA42569A14FC3E7F2CC4E02D1A01991E826FD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152268   (566961) от 22.07.2017
 
 Ёсикадзу Суэмацу | Микрокомпьютерные системы управления. Первое знакомство (2010) [PDF]
@@ -163,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566961.jpg" />
 </div>
 
 
@@ -189,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566656.jpg" />
 </div>
 
 
@@ -215,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566529.jpg" />
 </div>
 
 
@@ -241,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566528.jpg" />
 </div>
 
 
@@ -267,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566524.jpg" />
 </div>
 
 
@@ -293,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566519.jpg" />
 </div>
 
 
@@ -319,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566289.jpg" />
 </div>
 
 
@@ -346,7 +189,7 @@ Tiffany B. Brown | CSS Master 2nd Edition (2018) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565014.jpg" />
 </div>
 
 
@@ -373,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564744.jpg" />
 </div>
 
 
@@ -399,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564375.jpg" />
 </div>
 
 
@@ -426,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563487.jpg" />
 </div>
 
 
@@ -454,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563278.jpg" />
 </div>
 
 
@@ -480,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562563.jpg" />
 </div>
 
 
@@ -506,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562390.jpg" />
 </div>
 
 
@@ -535,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562385.jpg" />
 </div>
 
 
@@ -563,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562217.jpg" />
 </div>
 
 
@@ -589,7 +432,7 @@ Wyken Seagrave | B4A: Быстрая разработка приложений �
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561911.jpg" />
 </div>
 
 
@@ -617,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561195.jpg" />
 </div>
 
 
@@ -644,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560405.jpg" />
 </div>
 
 
@@ -670,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560310.jpg" />
 </div>
 
 
@@ -681,6 +524,162 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39EA44932779FEC2703C73B4F861F9647BBF60C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 530960   (560120) от 03.08.2012
+
+К.Назар, Дж.Рихтер | Windows via C/C++. Программирование на языке Visual C++ [2009] [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это издание — практически новая книга, посвященная разработке серьезных приложений на Visual C++ с использованием функций Windows API. Гораздо глубже, чем в предыдущих изданиях, рассматриваются такие темы, как механизм User Account Control, взаимодействие с системой библиотеки C/C++ при реализации защитных механизмов и обработке исключений; представлены новые синхронизирующие механизмы. В это издание добавлены две совершенно новые главы: о механизмах ввода-вывода и о работе новой системы Windows Error Reporting, изменившей подходы к созданию отчетов об ошибках и восстановлению приложений после сбоев.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CB504E8BC2366C76909A2EE6253E8B7AF954234
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153281   (559556) от 26.07.2017
+
+Тимур Машнин | Язык программирования MQL5: Продвинутое использование торговой платформы MetaTrader 5 (2016) [PDF, FB2, RTF, EPUB, MOBI]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создание пользовательских индикаторов и советников для торговой платформы MetaTrader 5 с использованием языка программирования MQL5.Жанр: ПрограммированиеФормат: PDF, FB2, RTF, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CD5AC1967A044FDB6A33A7733DDC793B5CEF1E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044927   (558892) от 23.08.2016
+
+Бретт Маклафлин | PHP и MySQL. Исчерпывающее руководство, 2-е издание (2014) [PDF]
+
+>>Компьютерная литература
+>>Веб-дизайн
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если у вас есть опыт разработки сайтов с помощью CSS и JavaScript, то эта книга переведет вас на новый уровень — создания динамических сайтов на основе PHP и MySQL. Благодаря практическим примерам в книге вы узнаете все возможности серверного программирования. Вы прочитаете, как выстраивать базу данных, управлять контентом и обмениваться информацией с пользователями, (   Читать дальше...   )Жанр: WEB ДизайнФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FDC8E3A6AD94B5A74D25F29FC1015621E3D9C30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045345   (558891) от 23.08.2016
+
+Пол Дейтел и др. | Android для разработчиков [3-е издание] (2016) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558891.jpg" />
+</div>
+
+
+###  Подробнее
+
+От издателя: Добро пожаловать в динамичный мир разработки приложений для смартфонов и планшетов Android с использованием Android Software Development Kit (SDK), языка программирования Javа, а также новой и стремительно развивающейся среды разработки Android Studio. В основе книги лежит принцип разработки, ориентированной на приложения, - концепции показаны на примере (   Читать дальше...   )Жанр: Разработка программного обеспеченияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68249018513729F95F7E4C6DE02D2178518DA21F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044529   (558886) от 23.08.2016
+
+Леа Веру | Секреты CSS. Идеальные решения ежедневных задач (2016) [PDF]
+
+>>Компьютерная литература
+>>Веб-дизайн
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гибкий легкий код, соответствующий стандартам - его можно получить, если подойти к проблеме аналитически. Леа Веру познакомит вас с недокументированными приемами, позволяющими найти изящные решения для самого широкого круга задач веб-дизайна. В основу книги легли доклады автора на шестидесяти международных конференциях веб-разработчиков, так что она затрагивает самые (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26CFB389EE855184AEF3CFC77235058B83BDB26F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531146   (558488) от 04.08.2012
+
+Б.Пирс | Типы в языках программирования [2012] [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга, уже давно ставшая классической, содержит всестороннее введение в системы типов, применяемые в информатике. Среди рассматриваемых тем — нетипизированное лямбда-исчисление, простые системы типов, полиморфизм, вложение типов и рекурсивные типы. Каждая из рассматриваемых концепций сопровождается множеством примеров и задач, что позволяет закрепить теоретический материал.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA1C3A2476357526BEFDD28DAABEADE93E16ED5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

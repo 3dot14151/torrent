@@ -1,3 +1,61 @@
+###  Публикация: 1212904   (774468) от 14.03.2018
+
+VA - Nu Lounge Sounds Late Night Music Playlist (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giampaolo Cavallo - Sunset 3:27
+02. Marco Cimino - Momento Cumbre 3:09
+03. Andrea Cardillo - Sambando 4:10
+04. Crescenzo Vitiello - Blue Star 3:58(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:17:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCA4E15EAC8166FD85370A7923B05DEBFBD16081
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212959   (774453) от 14.03.2018
+
+VA - Ibiza Cafe Del Sol - Chill Lounge Club Sessions (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lea Perry  -  Dubby Sunset Sky At Cafe Del Mar (Ibiza Beach Mix)  5:14
+02.  Silver Beat  -  Time 2 Go (Isla Del Sol)  5:18
+03.  Rainman  -  Riding On A Cloud (Ibiza Mix)  4:05
+04.  Soleil Fisher  -  Lightbox (Ibiza Guitar Mix)  5:38(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:05:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51216573D39D60B9BEF3A3AC3F08FD55FB74DAFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212973   (774452) от 14.03.2018
 
 Prince of Denmark - 8 (2016) Forum [FLAC|Lossless|Vinyl|tracks] <Dub Techno, Techno, Ambient>
@@ -6,7 +64,7 @@ Prince of Denmark - 8 (2016) Forum [FLAC|Lossless|Vinyl|tracks] <Dub Techno, Tec
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774452.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Ness - Moving Through Illusions (2018) TGP [FLAC|Lossless|WEB-DL|tracks] <Techno
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774319.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Tea Leaves (2019) Compiled by DJ V ++ [FLAC|Lossless|WEB-DL|tracks] <Downte
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774315.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Vocal Dance Vol. 5 (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774312.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Ibiza Winter Island 2019 (2018) The Deep-House Edition [MP3|320 Kbps] <Deep
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774311.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - We Love House Music Vol. 1 (40 Sexy Tunes) (2016) [MP3|320 кб/с] <Dance,
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774280.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Lowering - Brooklyn (2018) [FLAC|Lossless|Web-DL|tracks] <Experimental, Dark Amb
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774241.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Hybrid Leisureland - Discography 9 Releases (2007-2016) Ultimae Records, Double 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774236.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Best Of Cafe De Anatolia (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774221.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Ricardo Donoso - Beginning Of The Shape (2014) [MP3|320 кб/с]<Experimental, A
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773817.jpg" />
 </div>
 
 
@@ -295,7 +353,7 @@ Germind - Thoughtform (2017) [MP3|320 Kbps] <Psybient, Ambient, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773540.jpg" />
 </div>
 
 
@@ -324,7 +382,7 @@ VA - Recoverworld Radio 009 (Mixed by Rich Smith) (2017) [FLAC|Lossless|WEB|trac
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773527.jpg" />
 </div>
 
 
@@ -353,7 +411,7 @@ Peter Bjargo - Animus Retinentia (2017) [MP3|320 Kbps] <Ambient>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773458.jpg" />
 </div>
 
 
@@ -382,7 +440,7 @@ Yaroslav Kulikov - Once In A Dream (2011) [FLAC|Lossless|WEB|tracks] <Uplifting 
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773451.jpg" />
 </div>
 
 
@@ -411,7 +469,7 @@ Scam. - Reminiscence (2018) Monolith Records [FLAC|Lossless|WEB-DL|tracks] <Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773356.jpg" />
 </div>
 
 
@@ -440,7 +498,7 @@ VA - Chilled House Session 9 (2018) 2CD [FLAC|Lossless|tracks + .cue] <Club Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773348.jpg" />
 </div>
 
 
@@ -469,7 +527,7 @@ VA - Armin van Buuren - A State of Trance 800 (The Official Compilation) (2017) 
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773317.jpg" />
 </div>
 
 
@@ -498,7 +556,7 @@ VA - Markus Schulz - Global DJ Broadcast (Two Hour Studio Mix) (2019) [MP3|320 K
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773299.jpg" />
 </div>
 
 
@@ -527,7 +585,7 @@ VA - Lazarus - Rise Above 363 (Yearmix) (2018) [MP3|320 Kbps] <Trance, Progressi
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773296.jpg" />
 </div>
 
 
@@ -556,7 +614,7 @@ VA - Fitness & Jogging Hits (2019) [FLAC|Lossless|WEB-DL|tracks] <House, Electro
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773293.jpg" />
 </div>
 
 
@@ -585,7 +643,7 @@ Memphidos - Discography 10 Releases (2009-2018) [FLAC|Lossless|WEB-DL]<IDM, Ambi
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773223.jpg" />
 </div>
 
 
@@ -614,7 +672,7 @@ VA - 2496, Vol. 1 (2019) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks] <Psybi
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773182.jpg" />
 </div>
 
 
@@ -643,7 +701,7 @@ Lowering - Happiness (2016) EP [FLAC|Lossless|Web-DL|tracks] <Experimental, Ambi
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773181.jpg" />
 </div>
 
 
@@ -672,7 +730,7 @@ Lustmord - First Reformed (Extended Motion Picture Soundtrack) (2019) [FLAC|Loss
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773175.jpg" />
 </div>
 
 
@@ -686,64 +744,6 @@ Lustmord - First Reformed (Extended Motion Picture Soundtrack) (2019) [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B8615720F25D7568A271A2567A8ABBADB00AEA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015692   (773159) от 12.05.2016
-
-RSN - Analog Memories (2015) [MP3|320 кб/с] <Trip Hop, Soul, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_773159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get on the Train
-02. Lucky Old You (feat. Kathrin deBoer)
-03. Aris 'n' Ricky
-04. Under the Ground (feat. Thaliah)(   Читать дальше...   )Жанр: Trip Hop, Soul, DowntempoПродолжительность: 00:40:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92295D7832A36A332E9CF7B2F5066DB7B03829CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015985   (773146) от 12.05.2016
-
-VA - GOA Vol.59 (2016) [MP3|320 кб/с] <Trance, Psy-Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tristan & Aardvarkk - Daws of Perception 6:39
-02. Microlin - The Only One 8:28
-03. Skyfall - Landscapes 8:39
-04. Shogan - Sunlight Shuffle 7:11(   Читать дальше...   )Жанр: Trance, Psy-TranceПродолжительность: 02:22:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC65EFF20CF9946D7D54CA1EFD1A3FEF3B47FDDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ The Architect: Paris (2021) [Ru/Multi] (0.8.2) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006216.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ StarCraft II: Heart of The Swarm [En] (Beta) 2013 | [Установленная]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998165.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Out of Reach (2015) [Ru/Multi] (0.24) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954799.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Empyrion - Galactic Survival (2015) [Ru/Multi] (5.0.3.0792) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945429.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Space Engineers (2013) [Ru/Multi] (01.169.001) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943972.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ RoboMatch (2017) [Ru/Multi] (GreenLight Demo) License
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936959.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ MadOut Open City (2015) [Ru/En] (08-02-2016) Unofficial [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936365.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Sheltered (2015) [Ru/Multi] (Update 8) Repack MasterDarkness [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929811.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Good Night, Knight (2021) [En] (0.6.2.04) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916827.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ The Last Look (2016) [Ru/Multi] (0.4.0) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916744.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Roguelands (2015) [En] (0.6.1) Repack By Trol80lvl
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914683.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ BeamNG.drive (2013) [En] (0.5.2.1) Unofficial
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914597.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Castle Story (2015) [En] (0.6.0) Repack John2s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_910960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_910960.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907958.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Dorfromantik (2021) [Ru/Multi] (0.2.0.2) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898428.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ World of Horror (2020) [En] (0.9.17h1) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897151.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Finding Bigfoot (2017) [Ru/Multi] (1.1.7) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882783.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ The Wild Eight (2017) [Ru/Multi] (09.02.2017) Unofficial VseTop
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882671.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Paint the Town Red (2016) [En] (0.4.2) Repack VseTop
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872792.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Warhammer 40,000: Space Wolf (2017) [Ru/Multi] (0.0.2) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870693.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Surviving the Aftermath (2019) [Ru/Multi] (1.17.0.3533/dlc) Repack Other s [Foun
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855692.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Life is Feudal: Forest Village (2016) [Ru/Multi] (0.9.6042) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853218.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Warshift (2015) [Ru/En] (1.3.7) SteamRip
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851615.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Endzone - A World Apart (2020) [Ru/En] (0.7.7412.34215) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849355.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Portal Knights (2016) [Ru/Multi] (Alpha 0.2.2) SteamRip MarkusEVO (R.G. Games)
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848105.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ The Forest (2014) [Ru] (0.35d) Repack SpaceX
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846338.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ EverWeb 3 v3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378791.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ MarsEdit 4 v4.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378790.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Unite 2.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378789.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Pastebot 2.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378787.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ MovieSherlock 6.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378786.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ TextBar 3 v3.2.182 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378785.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ TotalSpaces 2 v2.7.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378784.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ GlueMotion 1.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378783.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Grids for Instagram 5.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378782.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Mellel 4.2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378781.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ iClock Pro 5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378778.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VideoProc (former MacX Video Converter Pro) 3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378777.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ OS X El Capitan 10.11.1 (15B42) [Multi/Ru] (Installer)
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378734.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378644.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Wondershare PDFelement Pro 7.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378555.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ goPanel 1.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378443.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Adobe Zii 2019 - Universal Patcher v.4.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378211.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Sketch 47.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378182.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ AirServer 7.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378173.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Photo Mechanic 5.0 (17719) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378031.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377895.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ DaVinci Resolve Studio 12.5.3 + easyDCP [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377808.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377724.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ MacX MediaTrans 6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377627.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ EtreCheck 5 v5.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377524.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Boxy SVG 3.22.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377518.jpg" />
 </div>
 
 

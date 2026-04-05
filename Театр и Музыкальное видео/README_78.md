@@ -6,7 +6,7 @@ I Like a Beautiful Dream 2 (2014) WEBRip [H.264/720p-LQ], [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494349.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Rolling Stones - From The Vault - Hampton Coliseum - Live in 1981 (2014) BDR
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494179.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494118.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494101.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494096.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494024.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493971.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ The Rolling Stones - From The Vault - Hampton Coliseum - Live in 1981 (2014) BDR
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493857.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_493683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_493683.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Parazitii feat. Dan Lazar - Toate-s La Fel (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493594.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493561.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493031.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Tarja Turunen - Act 1 (2012) DVD9+DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492997.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492240.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ The Rolling Stones - From The Vault - Hampton Coliseum - Live in 1981 (2014) BDR
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492231.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ John Mayall & The Bluesbreakers And Friends - 70th Birthday Concert (2003) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491984.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491341.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490738.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489615.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ VA - Осенний марафон № 189 / Видеоклипы (Самые Т
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489563.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ James Last - Live at the Royal Albert Hall (2007/2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489551.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Madonna - MDNA World Tour (2013) HDTV [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489127.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Sting. A Winter's Night... Live From Durham Cathedral (2009) HDTVRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489017.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ MDS - Gold (Puro Oro) (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487700.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Alex Kenji ft. Ron Carrol - Good Time (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487697.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486785.jpg" />
 </div>
 
 

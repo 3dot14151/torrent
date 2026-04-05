@@ -1,3 +1,29 @@
+###  Публикация: 1309758   (549357) от 21.06.2019
+
+Обои - Desktop Wallpapers Full HD. Part (460) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34C582BD905083A09E5B1E4EAD488E3F0C63E479
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1309769   (549196) от 21.06.2019
 
 Современное искусство - Digital art by Trungbui42 [JPG, PNG]
@@ -6,7 +32,7 @@
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549196.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548002.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546347.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546305.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543830.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543826.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543784.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543782.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543778.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543774.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543771.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543716.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543713.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543680.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543517.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543458.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543408.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542908.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542812.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542678.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542034.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541796.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541791.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541715.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интернет-творчество
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541653.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE3AC6FBC174573B57024C83CC34D39DD00D6004
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925017   (541213) от 06.08.2015
-
-Обои - Eva Mendes [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Биография / общие сведения: Ева Мендес родилась в Майами в семье кубинских иммигрантов, но выросла в Лос-Анджелесе, штат Калифорния. Училась в средней школе имени Герберта Гувера в Глендейле, затем училась в Университете штата Калифорния в Нортридже на дизайнера интерьеров, но оставила обучение ради актёрской карьеры. Мендес начинала со съёмок в рекламе, видеоклипах (   Читать дальше...   )Формат: JPGРазрешение файлов: 1024х768-1920х1440
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3E67719C938F796A7C1CD9AD707CAE642CE4BB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Black Majesty - Oceans of Black (2025) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65335.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Relligary - Hearts and Minds (2025) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65334.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Anapilin - Dezintegracija (2021) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65288.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ As the Sea Parts - Psychosis (2025) [MP3|320 Kbps] <Doom, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65270.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Asphodelus - Sculpting from Time (2023) [MP3|320 Kbps] <Doom, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65100.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Axiom Chaos - Primacy Arrival (2025) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65090.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Serpent Crusher - Armored Saints (2025) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65027.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Bleeding Hands - Lost Integrity (2015) [MP3|320 Kbps] <Melodic Thrash, Groove Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65024.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Sculptured - The Liminal Phase (2021) [MP3|320 Kbps] <Progressive, Melodic Death
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65019.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Silent Deep Ocean - 2 Albums (2025) [MP3|320 Kbps] <Atmospheric Doom, Gothic Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64705.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Amaranthe - 20 Releases (2011-2024) [MP3|320 Kbps] <Melodic Modern Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63082.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Bless Her Evil - We Are Mystery.. (2024) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59297.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Accept - Humanoid (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58595.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Serj Tankian - Дискография (2007-2010) [MP3|192-320 kbps]<Alternative
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57593.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Bryan Ferry - Discography (1973..2009) [MP3|320 kbps]<Rock, Glam Rock, Art Rock,
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57557.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Holy Mother - Rise (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54137.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Gone til Winter - Hiding from the Sun (2024) [MP3|320 Kbps] <Gothic Metal, Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53733.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Axel Rudi Pell - Risen Symbol (2024) [MP3|320 Kbps] <Melodic Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53433.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52059.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Through Fire - Devil's Got You Dreamin' (2023) [MP3|320 Kbps] <Alternative Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51588.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Visions Of Atlantis - Pirates II Armada (2024) [MP3|320 Kbps] <Melodic, Symphoni
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51080.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Crematory - Inglorious Darkness (2022) [MP3|320 Kbps] <Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49964.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Gabriels - Fist of the seven stars act 4 Five Forces (2024) [MP3|320kbps|tracks]
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49505.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ HammerFall - Avenge The Fallen (2024) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47318.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ Rewind - I'm In Rewind (2024) Compilation [MP3|320 Kbps] <Hard 'n' Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47022.jpg" />
 </div>
 
 
@@ -725,7 +725,7 @@ Tokyo Blade - Night of the Blade ...The Night Before (2024) [MP3|320kbps|tracks]
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46100.jpg" />
 </div>
 
 

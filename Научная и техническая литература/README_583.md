@@ -1,134 +1,3 @@
-###  Публикация: 1682192   (131696) от 06.12.2023
-
-Э.Л. Мальц, Ю.Н. Мустафаев | Электротехника и электрические машины (2013) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие состоит из двух разделов. Первый раздел содержит сведения, относящиеся к фундаментальным основам электротехники, теории электрических цепей постоянного и переменного тока, а также магнитным цепям. Во втором разделе излагается принцип действия, вопросы теории, примеры расчета характеристик основных типов электрических машин: постоянного тока, асинхронных (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: Корона-ВекФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CDE5E46793DD6884EE083A44B5AEEE200C7CC1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596395   (131584) от 30.12.2012
-
-В.С. Андреев | Теория нелинейных электрических цепей [1982] [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассматриваются физические процессы в нелинейных и параметрических цепях, их общие особенности, основные математические методы, применяемые при расчете таких целей. Большое внимание уделено теории автогенераторов, машинным методам анализа нелинейных цепей, особенностям и характеристикам функциональных преобразователей ситна (модуляторов, детекторов, умножителей частоты, усилителей, устройств синхронизации и ФАПЧ и др.), передаваемых по системам связи, характеристикам этих сигналов.
-Для студентов вузов связи, обучающихся по специальностям: Радиосвязь и радиовещание», «Многоканальная электросвязь» и «Автоматическая электросвязь».Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2A56A1A03C123C2E990687CAFFB362D7CAF032E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596586   (131526) от 30.12.2012
-
-А.В.Васильченко | Загадочная экспедиция. Что искали немцы в Антарктиде? [2011] [DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга известного историка Третьего рейха А.Васильченко впервые подробно рассказывает о знаменитой Немецкой Антарктической экспедиции 1938-1939 гг., за подготовку и проведение которой отвечал рейхсмаршал Герман Геринг. Основываясь на документальном материале, автор развенчивает многочисленные мифы об Антарктическом рейхе, бегстве Гитлера в апреле 1945 г. на Южный полюс и загадочных подводных лодках и немецких летающих тарелках. Автор также уделяет внимание еще одной не менее известной военной экспедиции, "Высотный прыжок", американского адмирала Ричарда Берда. В приложении впервые публикуется вышедшая в Германии в 1941 г. книга одного из участников Немецкой Антарктической экспедиции, географа Эрнста Херрмана.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1C1001FE6C70177E4C14B1F72B107EE34D21918
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596599   (131516) от 30.12.2012
-
-Валерий Шамбаров | Казачество: спасители России [2010] [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131516.jpg" />
-</div>
-
-
-###  Подробнее
-
-В своей книге известный писатель-историк Валерий Шамбаров представляет читателю полную историю российского казачества, уделяя немало места его политической роли в судьбах России от древнейших времен до наших дней.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15BB058893C362E43001AD1FAB2A829089D6B2BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682420   (131468) от 07.12.2023
-
-С.И. Акунович | Специализированные информационные системы (2014) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие посвящено методологии моделирования и анализа сложных систем логического управления. В нем описаны основы разработки моделей, включая разработанные автором в рамках создания приложения ГИПЕРСИСТЕМА средства автоматического преобразования символьных форм описания СЛУ в графические программы на языках визуального технологического программирования стандарта (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БГТУФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21A03391D22A2B6128A77792FD7AD5DE381602F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 596355   (131464) от 30.12.2012
 
 Эллина Белик | Знания, доступные всем. Суперэнциклопедия [2011] [PDF]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131464.jpg" />
 </div>
 
 
@@ -163,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131457.jpg" />
 </div>
 
 
@@ -189,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131444.jpg" />
 </div>
 
 
@@ -215,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131433.jpg" />
 </div>
 
 
@@ -241,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131432.jpg" />
 </div>
 
 
@@ -267,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131415.jpg" />
 </div>
 
 
@@ -293,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131407.jpg" />
 </div>
 
 
@@ -319,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131395.jpg" />
 </div>
 
 
@@ -346,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131388.jpg" />
 </div>
 
 
@@ -373,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131350.jpg" />
 </div>
 
 
@@ -400,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131342.jpg" />
 </div>
 
 
@@ -427,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131319.jpg" />
 </div>
 
 
@@ -453,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131102.jpg" />
 </div>
 
 
@@ -479,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131094.jpg" />
 </div>
 
 
@@ -505,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131070.jpg" />
 </div>
 
 
@@ -532,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131042.jpg" />
 </div>
 
 
@@ -558,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131026.jpg" />
 </div>
 
 
@@ -584,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130841.jpg" />
 </div>
 
 
@@ -610,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130830.jpg" />
 </div>
 
 
@@ -636,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130815.jpg" />
 </div>
 
 
@@ -662,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130427.jpg" />
 </div>
 
 
@@ -673,6 +542,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67EA27737741EB124BA3BE814A3D49001C2AF439
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524580   (130364) от 18.01.2022
+
+Александр Соколов | Летопись крушенiй и пожаровъ судовъ русскаго флота отъ начала его по 1854 годъ (1855) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр Петрович Соколов (1816 - 1858) - историограф русского флота; по окончании курса Морского кадетского корпуса, служил во флоте и морском ведомстве. Соколов известен своим крупным трудом "Летопись крушенiй и пожаровъ судовъ русскаго флота отъ начала его по 1854 годъ". Эта книга и предлагается в раздаче. Справочник содержит подробную информацию о (   Читать дальше...   )Жанр: Справочники, историяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F33F32FF03619F750F8EDD3D47431CEF940A126C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682952   (129995) от 09.12.2023
+
+О.П. Ильина | Архитектура корпораций и информационных систем (2015) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129995.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии рассмотрены основные понятия, термины и определения, относящиеся к моделям архитектуры предприятия, методологии, стандарты и инструментальные методы разработки архитектуры предприятия и информационных систем.
+Пособие обеспечивает поддержку теоретической основы дисциплины «Архитектура корпораций и информационных систем» и предназначено для направления (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: СПбГЭУФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8463CBAC5C31EB5D8625E0D3ADE95A49832F46A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682904   (129942) от 09.12.2023
+
+И.Е. Егорова | Интеллектуальные информационные системы (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129942.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии представлены основные понятия и направления искусственного интеллекта, история их развития; приведена классификация интеллектуальных информационных систем. Подробно рассмотрены направления, широко применяемые в области экономики и управления, а именно: экспертные системы и интеллектуальный анализ данных. Особое внимание уделено типичным моделям (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ВГТУФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42C579B0B9977D0C261655625AE0ED8961E3768F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682981   (129905) от 09.12.2023
+
+Т.В. Калилец и др. | Эргономика информационных систем PDF (2018) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие содержит материалы к лабораторным занятиям, включающим вопросы и задания. Изложенные материалы способствуют приобретению студентами навыков проведения исследований юзабилити и эргономической экспертизы информационных систем различной сложности и назначения.Жанр: Компьютерная литератураИздательство: БГУИРФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A13B8AFA15073B69DAF5D10D13A65A33D4CBB60C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683018   (129898) от 09.12.2023
+
+С.Т. Касюк | Разработка программного обеспечение автоматизированной системы (2006) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129898.jpg" />
+</div>
+
+
+###  Подробнее
+
+Методическое руководство предназначено для студентов-дипломников специальности — «Управление и информатика в технических системах» дневной и заочной форм обучения, разрабатывающих программное обеспечение автоматизированной системы. В руководстве изложены основы знаний по всему комплексу мероприятий дипломного проектирования, которые помогут студентам: грамотно составить (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ЮУрГУФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13BFB731475D7468F7AF12B08C1510DF93F21444
 ```
 
 https://mybot314.ru/tekegram_catalog/

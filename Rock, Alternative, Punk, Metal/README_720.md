@@ -1,3 +1,32 @@
+###  Публикация: 1419462   (340113) от 28.10.2020
+
+Summoning - Minas Morgul (1995) Reissue, 2002, IROND [FLAC|Lossless|tracks + .cue] <Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Wandering (2:31)
+02. Lugburz (7:12)
+03. The Passing of the Grey Company (9:14)
+04. Morthond (6:42)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 01:07:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66F041B93646E9820E87C093891E754055D78390
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953572   (340106) от 08.11.2015
 
 Collapse 7 - In Deep Silence (2004) [FLAC|Lossless]<Melodic Death Metal>
@@ -6,7 +35,7 @@ Collapse 7 - In Deep Silence (2004) [FLAC|Lossless]<Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340106.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Unleashed - Warrior (1997) [FLAC|image +.cue]<Death Metal, Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340096.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_340058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_340058.jpg" />
 </div>
 
 
@@ -99,7 +128,7 @@ Summoning - Stronghold (1999) [FLAC|Lossless|tracks + .cue] <Black Metal, Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339986.jpg" />
 </div>
 
 
@@ -128,7 +157,7 @@ VA - Halloween Hits 2020 (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339978.jpg" />
 </div>
 
 
@@ -157,7 +186,7 @@ Bryan Adams - Ultimate (2017) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339882.jpg" />
 </div>
 
 
@@ -186,7 +215,7 @@ Sexy - Shout For Sexy! (2015) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339867.jpg" />
 </div>
 
 
@@ -215,7 +244,7 @@ Summoning - Oath Bound (2006) [FLAC|Lossless|tracks + .cue] <Atmospheric Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339863.jpg" />
 </div>
 
 
@@ -244,7 +273,7 @@ Emptyself (Eric Johanson) - 2 Альбома, 2 Сингла (2005-2013) [OGG| 4
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339861.jpg" />
 </div>
 
 
@@ -270,7 +299,7 @@ Billy Gibbons And The BFGs - Perfectamundo (2015) [FLAC|tracks|WEB-DL]<Blues Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339731.jpg" />
 </div>
 
 
@@ -299,7 +328,7 @@ Shocking Blue - Inkpot & Attila (1997) [FLAC|image+.cue]<Classic Rock, Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339730.jpg" />
 </div>
 
 
@@ -328,7 +357,7 @@ VA - 10 Лет Питерскому Рок-Клубу (2001) [MP3|320 кб/с]<R
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339703.jpg" />
 </div>
 
 
@@ -357,7 +386,7 @@ Irish Coffee - 5 albums (1971-2020) [FLAC|Lossless|image + .cue | tracks+.cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339585.jpg" />
 </div>
 
 
@@ -386,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339406.jpg" />
 </div>
 
 
@@ -415,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339352.jpg" />
 </div>
 
 
@@ -444,7 +473,7 @@ Big Thief - Two Hands (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339107.jpg" />
 </div>
 
 
@@ -473,7 +502,7 @@ Candiria - While They Were Sleeping (2016) [MP3|320 Kbps] <Progressive, Experime
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339012.jpg" />
 </div>
 
 
@@ -502,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339007.jpg" />
 </div>
 
 
@@ -531,7 +560,7 @@ Young Gun Silver Fox - Canyons (2020) Japanese Edition [FLAC|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339006.jpg" />
 </div>
 
 
@@ -560,7 +589,7 @@ UTO - Touch the Lock (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie, Alternative>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339005.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ Ed Wynne And Gre Vanderloo - Tumbling Through The Floativerse (2022) [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339004.jpg" />
 </div>
 
 
@@ -618,7 +647,7 @@ Storyteller - Corridor Of Windows (2000) [FLAC|Lossless|image + .cue] <Melodic R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339003.jpg" />
 </div>
 
 
@@ -647,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339002.jpg" />
 </div>
 
 
@@ -676,7 +705,7 @@ Def Leppard - On Through The Night (1980) [OGG Vorbis|484 Kbps] <Rock, Hard Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339001.jpg" />
 </div>
 
 
@@ -705,7 +734,7 @@ My Sleeping Karma - Atma (2022) [FLAC|Lossless|WEB-DL|tracks] <Psych, Stoner, Sp
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338999.jpg" />
 </div>
 
 
@@ -719,35 +748,6 @@ My Sleeping Karma - Atma (2022) [FLAC|Lossless|WEB-DL|tracks] <Psych, Stoner, Sp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE38D4C02077559DDC61FDE8C3273C25A1962CDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579297   (338997) от 26.09.2022
-
-Группа Че - 2 Albums (2019-2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Гимн космонавтам [00:04:30]
-02. Это Москва [00:04:04]
-03. Ночь [00:04:04]
-04. Серое небо [00:04:04](   Читать дальше...   )Жанр: RockПродолжительность: 2 CD, 00:42:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EDFDD2BD6C1A440774CDE458FF164EBF3EED41D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,58 @@
+###  Публикация: 1031709   (649425) от 05.07.2016
+
+Надежда Созонова, Екатерина Куцина | Грамматика для дошкольников (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное методическое пособие направлено на освоение ребенком грамматического строя русского языка. Работая с предлагаемым материалом, дети научатся:
+согласовывать существительные с притяжательными местоимениями и с прилагательными в роде и числе;
+правильно употреблять предлоги;
+составлять предложения по сюжетным картинкам и вопросам.(   Читать дальше...   )Жанр: Логопедия, грамматикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BDA6A386059A13CC1CB1261620BF3DB6DD1A69A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905494   (649168) от 06.06.2015
+
+Галина Шалаева | Кем мне стать? Большая книга профессий (2010) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649168.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сейчас появилось много новых профессий, например, бизнесмен, менеджер, банкир, дизайнер, политолог, визажист и др., всех и не перечислить, при этом появляются всё новые и новые. Даже взрослые не всегда знают, чем занимается человек той или иной профессии. Что же говорить о детях, которые порой не представляют, что обозначают названия профессий. А выбирать свое будущее (   Читать дальше...   )Жанр: Познавательная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62F96F1BF2095F7FE6FB0D5978405D1DAB7C6A59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541085   (648779) от 01.04.2022
 
 Марцин Мортка | Викинг Таппи и праздничный торт [Сборник] (2018) [PDF]
@@ -6,7 +61,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648779.jpg" />
 </div>
 
 
@@ -34,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648772.jpg" />
 </div>
 
 
@@ -61,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648709.jpg" />
 </div>
 
 
@@ -87,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648702.jpg" />
 </div>
 
 
@@ -115,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648696.jpg" />
 </div>
 
 
@@ -141,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648660.jpg" />
 </div>
 
 
@@ -168,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648659.jpg" />
 </div>
 
 
@@ -195,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648520.jpg" />
 </div>
 
 
@@ -222,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647825.jpg" />
 </div>
 
 
@@ -248,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647822.jpg" />
 </div>
 
 
@@ -274,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647689.jpg" />
 </div>
 
 
@@ -300,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647537.jpg" />
 </div>
 
 
@@ -326,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647532.jpg" />
 </div>
 
 
@@ -352,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647507.jpg" />
 </div>
 
 
@@ -378,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647447.jpg" />
 </div>
 
 
@@ -405,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647412.jpg" />
 </div>
 
 
@@ -431,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647410.jpg" />
 </div>
 
 
@@ -457,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647309.jpg" />
 </div>
 
 
@@ -485,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647248.jpg" />
 </div>
 
 
@@ -513,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647173.jpg" />
 </div>
 
 
@@ -540,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646836.jpg" />
 </div>
 
 
@@ -566,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646760.jpg" />
 </div>
 
 
@@ -592,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646647.jpg" />
 </div>
 
 
@@ -619,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646621.jpg" />
 </div>
 
 
@@ -632,62 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12C1FCB0FFB920E84B2167D966AA1888084F40DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142134   (646517) от 12.06.2017
-
-Алена Богдарович | Все, что нужно знать малышу. Развитие мышления и воображения (2015) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646517.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Все, что нужно знать малышу" - это серия развивающих книг для занятий с детьми дошкольного возраста. Красочные иллюстрации и множество занимательных заданий в легкой игровой форме помогут превратить процесс обучения вашего малыша в любимое занятие.
-
-Для занятий взрослых с детьми.Жанр: Обучение, развитиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A2CF90A56825BBE7B0D3E7D57BB2C95A262A37B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142133   (646514) от 12.06.2017
-
-Алена Богдарович | Все, что нужно знать малышу. Развитие мелкой моторики (2015) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646514.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Все, что нужно знать малышу" - это серия развивающих книг для занятий с детьми дошкольного возраста. Красочные иллюстрации и множество занимательных заданий в легкой игровой форме помогут превратить процесс обучения вашего малыша в любимое занятие.
-
-Для занятий взрослых с детьми.Жанр: Обучение, развитиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A14F54D5BA0619D2985781584D34A16F6F8B30D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

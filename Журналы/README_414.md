@@ -1,3 +1,136 @@
+###  Публикация: 1181061   (337999) от 05.11.2017
+
+Журнал | Le Figaro Histoire [French] №34 (октябрь-ноябрь 2017) [PDF] [Fr]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Waterloo: La chute de l'Aigle. Fouche et Tallerand rnenent le ball.
+La secrets de la Bataille.
+La tragedie des Sent-Jours.
+La crise de L'Empire Roman.(   Читать дальше...   )Жанр: Исторический журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85C5B135DEC21A07F0326D523FF4DE9080B23744
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 726845   (337949) от 25.11.2013
+
+Подшивка журналов | HolzWerken №20-25 (2010) [PDF] [De]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание адресовано тем, кто любит столярничать и плотничать. Обзоры и тесты инструментов, оборудования, материалов, новые технологии и оригинальные проекты бытовой и специальной мебели для мастерской, дачи, дома, квартиры, гаража - в каждом очередном или специальном выпуске. Периодичность выхода (с 2007 года) - 6 раз в год.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:734ECF5E83636D168C0202E28A3DE8E83B58D3B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 726787   (337937) от 25.11.2013
+
+Подшивка журналов | HolzWerken №8-13 (2008) [PDF] [De]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание адресовано тем, кто любит столярничать и плотничать. Обзоры и тесты инструментов, оборудования, материалов, новые технологии и оригинальные проекты бытовой и специальной мебели для мастерской, дачи, дома, квартиры, гаража - в каждом очередном или специальном выпуске. Периодичность выхода (с 2007 года) - 6 раз в год.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F701AF2FB5EBD59212A541C9CFD0F2D24C268FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 581430   (337931) от 27.11.2012
+
+Журнал | Forbes [Россия] №12 (декабрь 2012) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337931.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Forbes" является главным деловым журналом в мире, успех журнал получил благодаря своим дерзким расследованиям в мире бизнеса и справедливым оценкам событий. "Forbes" пишет об историях успеха и поражений предпринимателей, новых идеях для бизнеса и инвестиций, а также публикует ежегодные авторитетные рейтинги. Частично удалена реклама.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFAFE1E2D6AC59190A484D5CAAE010109392F0E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 581699   (337922) от 27.11.2012
+
+Журнал | National Geographic [Россия] №12 (декабрь 2012) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337922.jpg" />
+</div>
+
+
+###  Подробнее
+
+"National Geographic" - уникальный научно-популярный географический журнал, официальное издание американского Национального географического общества - публикует беспрецедентные и эксклюзивные материалы об истории, археологии, науке и культуре. Ядро журнала одинаково для всех стран, что делает "National Geographic" по-настоящему общемировым изданием.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E58A589466FF48A939F4F690FB83EF7265CB7C63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 581516   (337920) от 27.11.2012
 
 Журнал | Т3.Технологии третьего тысячелетия №11 (Украина) [ноябрь 2012] [PDF]
@@ -6,7 +139,7 @@
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337920.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337896.jpg" />
 </div>
 
 
@@ -58,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337895.jpg" />
 </div>
 
 
@@ -87,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337894.jpg" />
 </div>
 
 
@@ -113,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337889.jpg" />
 </div>
 
 
@@ -139,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337858.jpg" />
 </div>
 
 
@@ -165,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337825.jpg" />
 </div>
 
 
@@ -191,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337785.jpg" />
 </div>
 
 
@@ -217,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337779.jpg" />
 </div>
 
 
@@ -243,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337778.jpg" />
 </div>
 
 
@@ -269,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337767.jpg" />
 </div>
 
 
@@ -295,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337765.jpg" />
 </div>
 
 
@@ -321,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337764.jpg" />
 </div>
 
 
@@ -347,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337722.jpg" />
 </div>
 
 
@@ -373,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337669.jpg" />
 </div>
 
 
@@ -399,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337623.jpg" />
 </div>
 
 
@@ -425,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337621.jpg" />
 </div>
 
 
@@ -451,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337595.jpg" />
 </div>
 
 
@@ -477,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337513.jpg" />
 </div>
 
 
@@ -503,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337499.jpg" />
 </div>
 
 
@@ -529,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337496.jpg" />
 </div>
 
 
@@ -540,139 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8B359B423B1A72ECFB4FB1A640590884FF0B8AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954992   (337492) от 09.11.2015
-
-Газета  | Рождественский стол №1 (3) (2015) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Праздничные кушанья в Рождество могут быть самые различные, но обязательно должно быть одно центральное блюдо - гусь, индейка, утка, курица, рыба, запеченные целиком. Блюдо, которое станет символом единства всех собравшихся за праздничным столом. Рождественские блюда хоть и считаются традиционными, но весьма разнообразны. В меню, как правило, входит запеченное мясо, (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3AC802BD0298E153DEAD10E41405FA78C0517D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 726858   (337450) от 25.11.2013
-
-Подшивка журналов | HolzWerken №32-43 (2012-2013) [PDF] [De]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание адресовано тем, кто любит столярничать и плотничать. Обзоры и тесты инструментов, оборудования, материалов, новые технологии и оригинальные проекты бытовой и специальной мебели для мастерской, дачи, дома, квартиры, гаража - в каждом очередном или специальном выпуске. Периодичность выхода (с 2007 года) - 6 раз в год. Кроме журналов, в раздаче присутствует (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7154B5AA6C23C6C59F2A2C1197644ACD954E639
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589871   (337311) от 25.11.2013
-
-Подшивка журналов | Мой друг кошка (2010-2013) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_337311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал "Мой друг кошка" выходит с января 2010 года.
-Новый журнал о породистых и диких кошках, над которым трудится творческий коллектив, много лет работавший над журналом «Друг для тех, кто любит кошек».
-Журнал посвящен проблемам фелинологии. В каждом номере в рубрике «Порода номера» рассказывается об одной из пород, представлен ее стандарт.
-Другие рубрики: (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954991   (337190) от 09.11.2015
-
-Газета | 1001 совет и секрет. Спецвыпуск №159. Мультиварка может всё. Новый год без хлопот (ноябрь 2015) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337190.jpg" />
-</div>
-
-
-###  Подробнее
-
-В издании представлены практичные рецепты для мультиварки. Все блюда довольно просты в приготовлении, так что Вам не понадобится тратить много времени на кухне и прилагать больших усилий для того, чтобы доставить удовольствие семье от какого-нибудь нового блюда.Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CA9E407AE0933059CC5E101E9E195B15CD111B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955138   (337174) от 09.11.2015
-
-Газета | 1000 секретов. Готовим в мультиварке №10. Быстро и вкусно (2015) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337174.jpg" />
-</div>
-
-
-###  Подробнее
-
-У вас остается совсем немного времени для приготовления еды, а однообразные блюда, приготовленные на скорую руку, надоели? Не успеваете подготовиться к празднику и опасаетесь потерять репутацию хорошей хозяйки? Гости нагрянули внезапно, а так хотелось блеснуть поварским мастерством?Если в описанных ситуациях вы узнали свою, скорее прибегнете к помощи мультиварки, (   Читать дальше...   )Жанр: Домоводство, кулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2D3F03C6E8A6F3135423FF0FCC2D9BE9E9D8318
 ```
 
 https://mybot314.ru/tekegram_catalog/

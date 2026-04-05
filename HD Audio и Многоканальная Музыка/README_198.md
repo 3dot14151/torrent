@@ -1,32 +1,3 @@
-###  Публикация: 1792600   (67655) от 19.04.2025
-
-Confidence Man - 5AM (LA LA LA) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dance>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who Knows What You’ll Find? (Spriitzz Remix) [00:04:16]
-02. I Can’t Lose You (Airwolf Paradise Remix) [00:03:10]
-03. Control (Paige Tomlinson Remix) [00:05:31]
-04. So What (Prozak Remix) [00:04:01](   Читать дальше...   )Жанр: DanceПродолжительность: 01:10:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8764281EB7BCD45DEA34AFCD08A30D969FE308AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792148   (67625) от 20.04.2025
 
 Manowar - Fighting the World (1987) Reissue, 2024, Listenable Records [DSD128|image + .cue|Vinyl-Rip] <Heavy Metal>
@@ -35,7 +6,7 @@ Manowar - Fighting the World (1987) Reissue, 2024, Listenable Records [DSD128|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67625.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Slipknot - Slipknot (1999) Japan, Reissue, 2000, Roadrunner Records [DSD128|imag
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67621.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Photosphere, Unusual Cosmic Process - Mental Detachment (2025) [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67615.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Joachim Witt - Ich (2015) Remastered, 2025, Ventil [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67612.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Fontaines D.C. - Romance (2024) Deluxe Edition, 2025, XL Recordings [FLAC 24/44.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67608.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Laurenne / Louhimo - Falling Through Stars (2025) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67607.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Visionatica - Studio Albums (3 releases) (2016-2025) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67600.jpg" />
 </div>
 
 
@@ -237,7 +208,7 @@ Fear Factory - The Industrialist (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <De
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67592.jpg" />
 </div>
 
 
@@ -266,7 +237,7 @@ Samael - Worship Him (1991) Reissue, 2016, Osmose Productions [FLAC|24/192|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67591.jpg" />
 </div>
 
 
@@ -295,7 +266,7 @@ Rwake - The Return Of Magik (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Doom Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67590.jpg" />
 </div>
 
 
@@ -324,7 +295,7 @@ Soulfly - Soulfly (1998) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal, Nu 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67589.jpg" />
 </div>
 
 
@@ -353,7 +324,7 @@ Tunde Adebimpe - Thee Black Boltz (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67588.jpg" />
 </div>
 
 
@@ -382,7 +353,7 @@ Melvins - Thunderball (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Grunge, Rock, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67586.jpg" />
 </div>
 
 
@@ -411,7 +382,7 @@ Dies Irae (Mexico) - Studio Albums (3 releases) (1998-2011) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67585.jpg" />
 </div>
 
 
@@ -439,7 +410,7 @@ Dark Flood - Studio Albums (4 releases) (2004-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67584.jpg" />
 </div>
 
 
@@ -468,7 +439,7 @@ Davido - 5ive (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <R&B>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67583.jpg" />
 </div>
 
 
@@ -497,7 +468,7 @@ Johnny Raducanu - Confessions (1979) Seria Jazz – Nr. 16 [FLAC 2.0|96/24|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67581.jpg" />
 </div>
 
 
@@ -526,7 +497,7 @@ Niviane - Queen Of Phantoms (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67578.jpg" />
 </div>
 
 
@@ -555,7 +526,7 @@ Black Stone Cherry - This is Black Stone Cherry's RSD album. The band really lik
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67577.jpg" />
 </div>
 
 
@@ -584,7 +555,7 @@ George Grigoriu - Odata Cu Cintecul (1977) Melodii De George Grigoriu [FLAC 2.0|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67576.jpg" />
 </div>
 
 
@@ -613,7 +584,7 @@ Brainstorm - Metus Mortis (2001) Reissue, 2023, Metal Blade Records [FLAC|24/192
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67571.jpg" />
 </div>
 
 
@@ -642,7 +613,7 @@ Dhune - Agony Tool (2025) [FLAC 24/44,1|Lossless|WEB-DL|tracks] <Progressive Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67570.jpg" />
 </div>
 
 
@@ -671,7 +642,7 @@ Party Pupils - Virtual Clarity (2025) Deluxe [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67565.jpg" />
 </div>
 
 
@@ -700,7 +671,7 @@ Robin Trower - Come And Find Me (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67556.jpg" />
 </div>
 
 
@@ -729,7 +700,7 @@ Blue Foundation - Close To The Knife (2025) [FLAC 16,24/44.1,48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67547.jpg" />
 </div>
 
 
@@ -743,6 +714,35 @@ Blue Foundation - Close To The Knife (2025) [FLAC 16,24/44.1,48|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B6C77E9D4532C43CF23A120C32FFE76A036474B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792908   (67535) от 24.04.2025
+
+Gary Moore - Dirty Fingers (1983) Reissue 1992 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67535.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Hiroshima
+A2 Dirty Fingers
+A3 Bad News
+A4 Don't Let Me Be Misunderstood(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E97D38314C79AC42D79FDA1BB4A3E1DCEE9DE3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

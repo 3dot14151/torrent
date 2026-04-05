@@ -1,3 +1,61 @@
+###  Публикация: 964118   (284135) от 10.12.2015
+
+VA - Christmas Escapades (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. After Life - G-Pal
+02. Love To Feel You - Calar Del Sole
+03. Tech River (Zoohacker Minimatic Chill Remake) - The Lushlife Project
+04. A Barcode - Soda Inc.(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:03:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5075540277EAD770656EBC118818D9E02417213D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964152   (284117) от 10.12.2015
+
+VA - Ethno Dub [Compiled by Zebyte] (2015) [MP3|320 кб/с]<Ethno Dub>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chaksa - Colony [04:37]
+02. Gantz - Rising [06:17]
+03. Hathor - Fluoroscope [06:30]
+04. El Mahdy Jr. - Lost Bridge [03:28](   Читать дальше...   )Жанр: Ethno DubПродолжительность: 02:23:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3D136082C6CF37A0EE5EC08CF4F8550149A1AD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1081476   (283087) от 10.12.2016
 
 VA - Electro Fever 2016-2017 (by FG) (2016) [MP3|320 Kbps] <Electro>
@@ -6,7 +64,7 @@ VA - Electro Fever 2016-2017 (by FG) (2016) [MP3|320 Kbps] <Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283087.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - EDM Collection [Compiled by Zebyte] (2016) [MP3|320 Kbps] <EDM>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283076.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Music For Everyone - Glitch Hop Vol.1 (2016) [MP3|320 Kbps] <Glitch Hop>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283066.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Valentine's Day: Sexy Shades of Chill (2016) [MP3|320 Kbps] <Downtempo, Chi
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282997.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - The Chill Connection (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282955.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Endles Cycle: Techno Electronic Liveset (2019) [MP3|320 Kbps] <Techno, Elec
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282728.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Music Rocket Launcher: Hardstyle Anthems (2019) [MP3|320 Kbps] <Hardstyle, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282727.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Neon Party: Electro House November Mix (2019) [MP3|320 Kbps] <Club, Dance, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282723.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Electric Cloud (2019) [MP3|320 Kbps] <Synthwave, Synthetic, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282722.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Trance Collection Vol.73 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance, V
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282665.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Beach Dance Classics Radio (2) (2019) [MP3|320 Kbps] <Club, Dance, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282581.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Beatport Top 100 09.12.2015 (2015) [MP3|320 кб/с]<House, Electro, Progre
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281653.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Future Psychedelic Trance (2018) [MP3|320 Kbps] <Psychedelic, Goa, Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281239.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Enhanced Lounge And Chillout (2018) [MP3|320 Kbps] <Ambient, Downtempo, Chi
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281233.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Rainbow Trance Weather (2016) [MP3|320 Kbps] <Trance, Harmonic, Energy, Emo
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281114.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Just Chillout (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281066.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Winter Lounge Solden (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281062.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Sexy Lounge Shades For Christmas (2015) [MP3|320 кб/с]<Downtempo, Chillo
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281060.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Trance Elegance On This Year 001 (2016) [MP3|320 Kbps] <Trance, Melodic, Up
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281046.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Days That Passed: Relax Compilation (2016) [MP3|320 Kbps] <Downtempo, Chill
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281038.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Asian Chilled Classics All the Best Chillout Classic Asian Vibes (2015) [MP
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280925.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Record Super Chart 563 (2018) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279525.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Spring Trance: Music Is Emotion (2016) [MP3|160-320 Kbps] <Trance, Neotranc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279288.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Emotional Lounge: Relax Collection (2016) [MP3|320 Kbps] <Chillout, Lounge,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279212.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Emotional Lounge: Relax Collection (2016) [MP3|320 Kbps] <Chillout, Lounge,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:767A2D17A93B436FEE8CF8D2DB9FC02E72DD30A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081880   (279202) от 12.12.2016
-
-VA - Club Dance Ambience Vol.95 (2016) [MP3|261-320 Kbps] <Dance, Club, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279202.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.50 Cent - Candy Shop (Syzz Bootleg) 3:51
-002.50 Cent vs. DNK vs. Knock2 - Candy Shop (Skyjet Mash up) 4:38
-003.Aaron North - I'll Be There (Original mix) 5:46
-004.ALARY x CHEDD - Init (Extended Mix) 4:24(   Читать дальше...   )Жанр: Dance, Club, Club HouseПродолжительность: 07:18:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F05D31DA8F6BFBFC1ADEAAFFD43785B06CE10E10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082338   (279196) от 12.12.2016
-
-VA - Death In Vegas - Best275z (1997 - 2016) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Dirt (Original Album Mix) 06:51
-02 Aisha 05:55
-03 Hands Around My Throat 05:08
-04 Dirge 05:45(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:51:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E0272755D23FFBD66208F09258423CC2EED5644
 ```
 
 https://mybot314.ru/tekegram_catalog/

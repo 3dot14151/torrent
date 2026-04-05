@@ -6,7 +6,7 @@ Dave McKenna & Buddy DeFranco - You Must Believe In Swing (1997) Concord Jazz [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147467.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Tim Davis - A Swingin' Christmas ...1940's Style (1999) Unison Music [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147461.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Dinah Shore - Love And Kisses, Dinah (1951 - 1958) 1992, BMG [FLAC|Lossless|imag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147456.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Cookin' Jazz vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147397.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Tommy Dorsey And His Orchestra - 1935-1936 (1995) Classics [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147134.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Lennie Niehaus - Volume 5: The Sextet (1956) Remaster, 2006, Victor[FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147114.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Peter Delano - Peter Delano (1993) Verve[FLAC|Lossless|image + .cue] <Post-Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147109.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ The Rein De Graaff Trio with Conte Candoli & Bob Cooper - Thinking Of You (1993)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147067.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Terence Blanchard - The Malcolm X Jazz Suite (1993) Columbia[FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147066.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Franco Cerri and His European Jazz Stars (1959) Remaster, 2009, DIW Records[FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147059.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Ella Fitzgerald & Duke Ellington - Ella & Duke At The Cote D'Azur (1966) 2CD, 19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146707.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - The Beatles in Jazz (1999) Unofficial Release [APE|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146623.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Michael Buble (Bublé) - Love (Deluxe Edition) (2018) [FLAC|Lossless|WEB-DL 24Bi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146586.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Peggy Lee - The Essential Collection 1946 - 1953 (2007) 2CD, Avid Entertainment 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146418.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Dinner for One - Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146134.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Tom Braxton - Comfort and Joy (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146016.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Roy Hargrove - The Vibe (1992) BMG Novus [FLAC|Lossless|tracks + .cue] <Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146002.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Cookin' Jazz vol. 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145998.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Balatonica Chillout: Autumn Edition 2023 (2023) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145977.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Smooth Jazz Band - Raggae Rhythm of The Night 2023 (2023) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145970.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Artie Shaw - 1939-1940 (1999) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145906.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Stanley Turrentine - Don't Mess With Mister T. (1973) 1987, EPC [APE|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145871.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Frank Sinatra - Christmas Dreaming (1987) Columbia [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145837.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Frank Sinatra - The Ultimate Christmas (Daily Mail CD) (2012) Upfront [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145750.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - DeepHouseJazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145736.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Karl Berger - Conversations (1994) In & Out Records [FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145339.jpg" />
 </div>
 
 

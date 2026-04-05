@@ -6,7 +6,7 @@ Bandband, Мария Галина и др. | Литературная масте
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249710.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249691.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247740.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ MasterClass , Terence Tao | Teaches Mathematical Thinking (2022) WEB-DL [EN / EN
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230617.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Jacque Fresco | The Venus Project (2004-2012) WEBRip [H.264] [EN]
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229449.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Bert Rhine | Интимные Женские Секреты / Intimate Secrets (
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227774.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227422.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Mark Schoen | Современная Камасутра. Увлекательн�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226290.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226261.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Clint Arthur | Новый Современный Секс / New Sex Now (2004) D
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226251.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212980.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209410.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208654.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Analytera, Центр Статистических Технологий, Его�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208498.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Level One, Олег Грознов | Как устроены лучшие гол
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208010.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207716.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Advance, Ягодкин Николай | Как повысить уровень 
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207316.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Liveclasses, Анатолий Ясинский | Субкультуры и ко�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207044.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204825.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ TutorOnline, Василий Рустамович | Курс по высшей м
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204778.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203312.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203214.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ TutorPlace, Татьяна Кузнецова | Графология (2025) WEB-
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202404.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201237.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199668.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199413.jpg" />
 </div>
 
 

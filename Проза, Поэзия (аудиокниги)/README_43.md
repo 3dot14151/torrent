@@ -1,56 +1,3 @@
-###  Публикация: 1289228   (676311) от 21.03.2019
-
-Глеб Бобров | Снайпер в Афгане. Порванные души (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676311.jpg" />
-</div>
-
-
-###  Подробнее
-
-«У советского солдата, помимо его основной специальности, есть еще несколько внештатных – так называемая „взаимозаменяемость“. Любой старослужащий в случае необходимости может принять на себя командование отделением или даже взводом, работать из любого вида стрелкового оружия (в том числе и орудий БМП), провести несложные реанимационные мероприятия, снять простую (   Читать дальше...   )Жанр: Военное дело, спецслужбыПродолжительность: 08:35:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06606FCE75BC3E02464CB4B95F9E7B708A46718A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 292931   (675948) от 21.03.2019
-
-Глеб Бобров | Порванные души (2010) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ из книги Глеба Боброва "Солдатская сага".
-Книга Глеба Боброва написана с позиции солдатской правды, продолжая традиции "окопного реализма" Эриха-Марии Ремарка и Эрнеста Хемингуэя, Вячеслава Кондратьева и Василя Быкова. Правда солдата — это усталость тела и души, это грязь и пот, стертые ноги и пересохшие от жажды губы. Это первоэлемент (   Читать дальше...   )Жанр: Военная прозаПродолжительность: 01:07:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28B5ECE291FB245DA3078B30DA50314224FC6612
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030549   (674422) от 30.06.2016
 
 Александр Володин | Записки нетрезвого человека (2016) [MP3]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674422.jpg" />
 </div>
 
 
@@ -88,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673418.jpg" />
 </div>
 
 
@@ -114,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_673013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_673013.jpg" />
 </div>
 
 
@@ -141,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672145.jpg" />
 </div>
 
 
@@ -168,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671517.jpg" />
 </div>
 
 
@@ -194,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671143.jpg" />
 </div>
 
 
@@ -220,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669873.jpg" />
 </div>
 
 
@@ -246,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669214.jpg" />
 </div>
 
 
@@ -272,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669209.jpg" />
 </div>
 
 
@@ -299,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668180.jpg" />
 </div>
 
 
@@ -325,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666782.jpg" />
 </div>
 
 
@@ -351,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666775.jpg" />
 </div>
 
 
@@ -377,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666668.jpg" />
 </div>
 
 
@@ -403,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666665.jpg" />
 </div>
 
 
@@ -429,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665656.jpg" />
 </div>
 
 
@@ -456,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665576.jpg" />
 </div>
 
 
@@ -483,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665559.jpg" />
 </div>
 
 
@@ -509,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665550.jpg" />
 </div>
 
 
@@ -535,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664376.jpg" />
 </div>
 
 
@@ -561,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664375.jpg" />
 </div>
 
 
@@ -588,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664352.jpg" />
 </div>
 
 
@@ -614,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662892.jpg" />
 </div>
 
 
@@ -641,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662880.jpg" />
 </div>
 
 
@@ -667,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662700.jpg" />
 </div>
 
 
@@ -679,6 +626,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:203927F84D95FAEB634BEE9BDE5E2F503C290DF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138845   (662417) от 31.05.2017
+
+Геннадий Карпунин | Прощеное воскресенье (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Геннадий Михайлович Карпунин родился в 1958 году в подмосковном городе Щербинка. Окончил МАДИ. Работал в районных газетах, был главным редактором региональной газеты «Московия», сотрудничал с московскими издательствами. Поэт, прозаик. Печатался в различных газетах и журналах. Автор более десятка книг прозы и поэтических сборников. Среди них – «Чистые пруды» (1996), (   Читать дальше...   )Жанр: ПовестьПродолжительность: 03:58:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:725703AC3FE88FEEA1EE15731B252378C908495C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138344   (662328) от 31.05.2017
+
+Анатолий Ким | Лотос (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662328.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Лотос» грандиозный экзистенциалистский пассаж, где разыграна тема Большой Смерти, поглощаемой Великой Жизнью.
+Художник Лохов не побрился перед отъездом и довез свою суточную щетину до материнского смертного ложа. Осторожно целуя старуху в неподвижное белое лицо, он вдохнул запах прелого тела, она же, не открывая глаз, со слабым стоном отвернулась. Сын любил ее, (   Читать дальше...   )Жанр: ПрозаПродолжительность: 06:06:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C0B9A8FACD7C6ABAEB3CC7167417B92EBB77E01
 ```
 
 https://mybot314.ru/tekegram_catalog/

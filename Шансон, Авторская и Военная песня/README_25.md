@@ -1,3 +1,32 @@
+###  Публикация: 1295958   (616839) от 14.04.2019
+
+Любовь Успенская - Значит, пора (2019) [FLAC|Lossless|WEB-DL|tracks] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Отпусти (feat. Emin)
+02. Небо (feat. Леонид Агутин)
+03. Ты уйдёшь (feat. Кира Дымов)
+04. Где ты был (feat. Доминик Джокер)(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:55:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF8671370B688C8675010A620094126EEF89C24B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911328   (616054) от 23.06.2015
 
 Михаил Муромов - Странная женщина (1994) [FLAC|image+.cue]<Pop>
@@ -6,7 +35,7 @@
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616054.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615847.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614840.jpg" />
 </div>
 
 
@@ -99,7 +128,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614234.jpg" />
 </div>
 
 
@@ -126,7 +155,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612946.jpg" />
 </div>
 
 
@@ -155,7 +184,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_612664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_612664.jpg" />
 </div>
 
 
@@ -181,7 +210,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610558.jpg" />
 </div>
 
 
@@ -207,7 +236,7 @@ Zazie - Zen (1995) [FLAC|Lossless|tracks + .cue] <Pop, Chanson>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610120.jpg" />
 </div>
 
 
@@ -236,7 +265,7 @@ VA - В нашу гавань заходили корабли 1 (2001) [FLAC|Los
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607403.jpg" />
 </div>
 
 
@@ -265,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606586.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604418.jpg" />
 </div>
 
 
@@ -323,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604323.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603819.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602444.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601897.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601846.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ VA - Крёстный отец 4 Альбома (1999 - 2003) [FLAC|Lossless|ima
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599894.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599743.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599726.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596715.jpg" />
 </div>
 
 
@@ -590,7 +619,7 @@ Francoise Hardy - L'amour fou (2012) [FLAC|Lossless|image + .cue] < Pop, chanson
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596428.jpg" />
 </div>
 
 
@@ -619,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595912.jpg" />
 </div>
 
 
@@ -648,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595819.jpg" />
 </div>
 
 
@@ -677,7 +706,7 @@ VA - Калина красная 7 (2001) [FLAC|Lossless|image + .cue]<Шанс�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594847.jpg" />
 </div>
 
 
@@ -706,7 +735,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594303.jpg" />
 </div>
 
 
@@ -720,35 +749,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77F9338E0D9FCDB07E7C8EB2D0253604DBB5EBA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300316   (593444) от 05.05.2019
-
-VA - Шансон 2019 года (Музыкальный хит-парад) [MP3|320 Kbps] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593444.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Виктор Королёв - На Крыльях Счастья (4:55)
-2.Ирина Круг - Ищи Не Ищи (3:21)
-3.Александр Марцинкевич - Ты ловила сны (3:34)
-4.Стас Михайлов - Кто, Если Не Ты (3:40)(   Читать дальше...   )Жанр: ШансонПродолжительность: 03:05:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0AC76FD5B2D9E4D606F22D005A21659DE9C786B
 ```
 
 https://mybot314.ru/tekegram_catalog/

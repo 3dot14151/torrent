@@ -1,3 +1,133 @@
+###  Публикация: 1456661   (1024906) от 23.03.2021
+
+Чаманго / Cjamango (1967) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как только Чаманго выиграл мешок золота за игровым столом, на него напали бандиты Эль Тигре и дон Пабло. Залечивая раны, полученные в драке, Чаманго привязывается к мексиканскому мальчику Мануэлю и красавице Перле. Тем временем у Эль Тигре и дона Пабло появляются разногласия насчёт золота, и Чаманго пытается сыграть на этом, настраивая их друг против друга. Но в (   Читать дальше...   )Производство: Италия / CIO, Intercontinental ProduktionЖанр: ВестернРежиссер: Эдуардо МулагрияАктеры: Иван Рассимов, Мики Харгитей, Элен Шанель, Ливио Лоренцон, Игнацио Спалла, Пьеро Лулли, Федерико Бойдо, Нино Муско, Джорджо Саббатини, Валерио ФьоравантиПеревод: Одноголосый любительскийСубтитры: ОтсутствуютПродолжительность: 01:22:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8504847969483C49F0F8CCCEC2F636FB32F92667
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456599   (1024891) от 23.03.2021
+
+Дон Камилло / Don Camillo (1984) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дон Камилло — священник и очень богобоязненный человек. Именно поэтому он очень нервничает, когда приходится поиграть в карты с приятелем или покататься по собору на роликовых коньках. А уж принять участие в любительском чемпионате по гольфу — это вообще выше его сил. Только как же еще доносить простые христианские истины до простых итальянских прихожан? Вот такой (   Читать дальше...   )Производство: Италия, Paloma Films, Cinemaster S.r.l.Жанр: Комедия, боевикРежиссер: Теренс ХиллАктеры: Теренс Хилл, Колин Блейкли, Мимзи Фармер, Энди Луотто, Лью Эйрз, Сэм Уиппл, Джозеф Раньо, Дженнифер Хингел, Франко Диоджене, Моника ГравинаПеревод: Многоголосый профессиональныйСубтитры: отсутствуютПродолжительность: 02:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FA2746DC27262E1303541C354FB0E7B02B629EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456997   (1024769) от 24.03.2021
+
+Марсель Перез. Автомобиль Робинэ / L'auto di Robinet (1911) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Короткометражка, в которой Робинэ участвует в захватывающей гонке с полицией, которая преследует его за то, что он не показал номер авто. Результат - череда комичных, захватывающих инцидентов.Производство: Италия, Società Anonima AmbrosioЖанр: Комедия, короткометражный, немое киноРежиссер: НеизвестенАктеры: Марсель Перез, Ercole VaserПеревод: НемойСубтитры: ОтсутствуютПродолжительность: 00:03:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9235F7F67593A3AD989B125ECE19F689130A3E1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457001   (1024766) от 24.03.2021
+
+Гарольд Ллойд. Почему выбирают меня? / Why Pick on Me? (1918) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024766.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гарольд развлекается на пляже, но тут влюбляется в девушку, у которой, оказывается, уже есть поклонник.Производство: СШАЖанр: Комедия, короткометражный, немое киноРежиссер: НеизвестенАктеры: Гарольд Ллойд, Снуб Поллард, Биби Дэниелс, Уильям Блэйсделл, Сэмми Брукс, Гарри Барнс, Уильям Гиллеспи, Хелен Гилмор, Лью Харви, Бад ДжеймисонПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:12:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36ACD1033B86B06DE377EE508473EFBBBDE9BB56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457301   (1024638) от 25.03.2021
+
+Гарольд Ллойд. Машина молодости / Hear 'Em Rave (1918) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гарольд работает в салоне красоты. И однажды к нему приходит дама, которая желает помолодеть.Производство: СШАЖанр: Комедия, короткометражный, немое киноРежиссер: Гилберт ПрэттАктеры: Гарольд Ллойд, Снуб Поллард, Биби Дэниелс, Уильям Блэйсделл, Уильям Гиллеспи, Лью Харви, Бад Джеймисон, Оскар Ларсон, Джеймс Пэррот, Дороти УолпертПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:10:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBC4CC1E6F574B17F1BD9D86F10EAE07FA3CF7BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457312   (1024629) от 25.03.2021
 
 Марсель Перез. Хитрость Робинэ / Le furberie di Robinet (1911) WEBRip
@@ -6,7 +136,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024629.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024446.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024432.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024322.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024259.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024251.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024238.jpg" />
 </div>
 
 
@@ -189,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024184.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024180.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024069.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024065.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024039.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023844.jpg" />
 </div>
 
 
@@ -345,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023824.jpg" />
 </div>
 
 
@@ -371,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023800.jpg" />
 </div>
 
 
@@ -397,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023785.jpg" />
 </div>
 
 
@@ -423,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023682.jpg" />
 </div>
 
 
@@ -449,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023511.jpg" />
 </div>
 
 
@@ -475,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023489.jpg" />
 </div>
 
 
@@ -501,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023486.jpg" />
 </div>
 
 
@@ -528,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023459.jpg" />
 </div>
 
 
@@ -540,136 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C2AC0C116D421864246B3BCA0B73FEF44698D6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459398   (1023315) от 01.04.2021
-
-Марсель Перез. Новая горничная слишком симпатична / La nuova cameriera e troppo bella (1912) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023315.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сосем маленькая короткометражка. Но очень милая. И вообще чем привлекательны подобные фильмы? Вроде такая старина, больше ста лет. Соответствующее качество, без перевода. А ситуации, характеры, юмор абсолютно узнаваемы, очень даже современны. Люди, по существу, не изменились со времен Адама.Производство: Италия, Società Anonima AmbrosioЖанр: Комедия, короткометражный, немое киноРежиссер: НеизвестенАктеры: Марсель Перез, Нильде Баракки, Armando PilottiПеревод: НемойСубтитры: ОтсутствуютПродолжительность: 00:02:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2201EEBA9CC77AA96ABD3232AFD1DD3491A1E2C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459406   (1023246) от 01.04.2021
-
-Гарольд Ллойд. Остров Радуга / Rainbow Island (1917) WEBRip [PR]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время рыбалки Гарольд и Снуб вылавливают из воды бутылку с письмом. В документе есть карта острова Радуга с крестиком, обозначающим захороненное сокровище. Ну, конечно же наши отважные герои отправились за сокровищами. Только гладко было на бумаге, да забыли про овраги :)Производство: СШАЖанр: Комедия, короткометражный, немое киноРежиссер: Билли ГилбертАктеры: Гарольд Ллойд, Снуб Поллард, Биби Дэниелс, Фрэнк Александр, Carl Barbesgaard, Уильям Блэйсделл, Сэмми Брукс, Уолтер Кромптон, Билли Эванс, Билли ФэйПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:05:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D7ED5871F2F6B1BAAE7324234A1F86964EA70EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459661   (1023156) от 02.04.2021
-
-Марсель Перез. Синьорина Робинэ / La signorina Robinet (1912) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023156.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неверная жена и ее любовник Робинэ. Муж-рогоносец почти поймал их, но хитроумный Робинэ переодевается в женское...Производство: Италия, Società Anonima AmbrosioЖанр: Комедия, короткометражный, немое киноРежиссер: Марсель ПерезАктеры: Марсель Перез, Нильде Баракки, Ernesto Vaser, Анджело ВестриПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:08:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09D226B8C3B01FDAF1F045F5AB59B799402152F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459645   (1023146) от 02.04.2021
-
-Гарольд Ллойд. Пошевеливайся! / Step Lively (1917) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пьянство - зло. Это верно. Но тем не менее, оно наполняет нашу жизнь и жизнь окружающих веселыми приключениями и неожиданными поворотами судьбы.Производство: СШАЖанр: Комедия, короткометражный, немое киноРежиссер: Альфред Дж. ГулдингАктеры: Гарольд Ллойд, Снуб Поллард, Биби Дэниелс, В.Л. Адамс, Арт Басс, Уильям Блэйсделл, Сэмми Брукс, Lige Conley, Клара Дре, Лоретта ДреПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:12:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:877B0AD5FD517F4F3A409C7678D750FE4B431975
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459971   (1022999) от 03.04.2021
-
-Гарольд Ллойд. Флирт / The Flirt (1917) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гарольд устраивается на работу в кафе, надеясь познакомиться с симпатичной официанткой, которая там работает. Но опять у нашего ухажера все идет наперекосяк.Производство: СШАЖанр: Комедия, короткометражный, немое киноРежиссер: Билли ГилбертАктеры: Гарольд Ллойд, Снуб Поллард, Биби Дэниелс, В.Л. Адамс, Сэмми Брукс, Лотти Кейс, Билли Эванс, Билли Фэй, Уильям Гиллеспи, Сэди ГордонПеревод: Немой с интертитрамиСубтитры: Английские и русские интертитрыПродолжительность: 00:07:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31642E828F1C42358DE684153F7FAEC1F258BB65
 ```
 
 https://mybot314.ru/tekegram_catalog/

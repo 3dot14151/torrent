@@ -1,3 +1,32 @@
+###  Публикация: 1611053   (236107) от 11.02.2023
+
+Condenados - El Camino de la Serpiente (2023) [MP3|320 Kbps] <Heavy Rock, Doom, Psych, Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduccion
+02. Alma Podrida
+03. El Diablo
+04. Condenados(   Читать дальше...   )Жанр: Heavy Rock, Doom, Psych, StonerПродолжительность: 00:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E6B675779CEB06212B15FE9BA4D5E8B6F0B8BB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1635477   (236105) от 26.05.2023
 
 Molekh - Ritus (2023) [FLAC|Lossless|WEB-DL|tracks] <Avant-garde Black Metal>
@@ -6,7 +35,7 @@ Molekh - Ritus (2023) [FLAC|Lossless|WEB-DL|tracks] <Avant-garde Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_236105.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236098.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Necrovescent Ruiner - Untouchable Faith Decay (2023) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_236096.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ Leroy T. Brown - The Yellow King (2023) [MP3|320 Kbps] <Heavy Rock, Stoner, Slud
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236091.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ Never Reborn - Ashes of Our Past (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_236089.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ Christian Liljegren - Melodic Passion (2021) [FLAC|Lossless|WEB-DL|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236086.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ Paramore - This Is Why (2023) [FLAC|Lossless|image + .cue] <Alt. Rock, Pop Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_236084.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ Loud & Clear - Disc-Connected (2002) [FLAC|Lossless|image + .cue] <Melodic Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236082.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ Silent Winter - The Circles of Hell (2019) [FLAC|Lossless|WEB-DL|tracks] <Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236080.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ Extreme - Six (2023) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236078.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ Necromortis - Burning Priest (1997) EP [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_236074.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Gary Hughes - Waterside (2021) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236072.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ Naitaka - Emergence (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_236066.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ Force Of Progress - Redesign (2021) [FLAC|Lossless|image + .cue] <Instrumental P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236061.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ Monachopsis Art - An Empty Existence (2023) [FLAC|Lossless|WEB-DL|tracks] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_236058.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ Fifth Angel - When Angels Kill (2023) [MP3|320 Kbps] <Heavy, Power Metal, Hard R
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236052.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ Nervochaos - Chthonic Wrath (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_236040.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Noumena - Anima (2020) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_236035.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ IronBourne - IronBourne (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236034.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ The Lurking Fear - Death, Madness, Horror, Decay (2021) [FLAC|Lossless|WEB-DL|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236028.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ Mork - Dypet (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_236025.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ Nepenthes - Grand Guignol (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_236018.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ Black Lava - Soul Furnace (2022) [FLAC|Lossless|WEB-DL|tracks] <Blackened Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236016.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ The Fire Mystical - The Fire Mystical (2023) [FLAC|Lossless|WEB-DL|tracks] <Heav
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236003.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ Host - IX (2023) Deluxe Version [FLAC|Lossless|WEB-DL|tracks] <Gothic-Rock, Dark
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236002.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ Host - IX (2023) Deluxe Version [FLAC|Lossless|WEB-DL|tracks] <Gothic-Rock, Dark
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B94D894610E0F866EADF865759FFBB1FD7A71EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613471   (235997) от 18.02.2023
-
-Diseased Earth - Welcome the plague years (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Coven of Leeches (00:02:58)
-02 - Upon the funeral pyre (00:02:54)
-03 - The slug's throne (00:03:12)
-04 - In a deathless light (00:04:05)(   Читать дальше...   )Жанр: Sludge, Doom, Death MetalПродолжительность: 00:24:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CA375D5A3CDC3D0A3952E41C358046659E17A2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

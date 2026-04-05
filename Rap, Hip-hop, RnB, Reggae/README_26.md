@@ -1,32 +1,3 @@
-###  Публикация: 1511191   (246001) от 20.11.2021
-
-Сидоджи Дубоshit - BIG FOOT (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. GRIND [01:53]
-02. INDEPENDENT (KASKADER) [02:48]
-03. DEATHFLIP [03:01]
-04. BIGFOOT [03:51](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:25:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA43DDED9694F8C424613BEE505356BAFD185D0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511414   (245817) от 21.11.2021
 
 bollywoodFM - Магия (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -35,7 +6,7 @@ bollywoodFM - Магия (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245817.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ MC Eiht - Lessons 2 (2023) Blue Stamp Music [MP3|320 Kbps] <Rap, West Coast Hip-
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244471.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Eminem - Curtain Call 2 (Explicit) (2022) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243261.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ L'One - Дом (2023) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242092.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242064.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Sagath - Страшные сказки (2022) [MP3|320 Kbps] <Alternative, Hip-H
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241976.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241737.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241733.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Booker - Выбери жизнь (2021) [MP3|320 Kbps] <Rap, Alternative, Punk>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241565.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ ChipaChip & Sam Wick - I'm Sorry (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241472.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241465.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241454.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Kuba - Albomba (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241435.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ ZippO - Фитиль 2 (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241419.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241401.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241391.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Loqiemean - Контроль (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241382.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241375.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ OBLADAET - PLAYERS CLUB (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241365.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Rittz - MellowLOvation Music (2023) [MP3|320 Kbps] <Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241352.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241350.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241342.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Sagath - Necrotica 2 (Remix Pack) (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241317.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ Jahmal TGK - СНЕГОПАД Underground (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241311.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ NF - Hope (2023) [MP3|320 Kbps] <Rap, Hip Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240100.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ NF - Hope (2023) [MP3|320 Kbps] <Rap, Hip Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEC076B0014F667FC7BBF32370D97F682748119B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626930   (240058) от 16.04.2023
+
+ХЛЕБ - Последний (2023) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240058.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Дэб
+2. Убили Кирилла
+3. Марина
+4. Дети(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:24:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C162ED1D69E3CEAF5DDB784764E7F09175DC3295
 ```
 
 https://mybot314.ru/tekegram_catalog/

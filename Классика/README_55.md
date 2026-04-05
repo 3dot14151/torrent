@@ -1,3 +1,32 @@
+###  Публикация: 1795636   (19239) от 05.05.2025
+
+VA - Modern Piano Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sergey Bryukhno - Sonnet in C Major (1:25)
+02. Sergey Bryukhno - Hope (1:29)
+03. Katya Kramer-Lapin - Minuet in G Major (From Notebook for Anna Magdalena Bach, BWV Anh. 114) (1:49)
+04. Sergey Bryukhno - When the Stars Are Shining (1:25)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:22:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9A2741197244EECBC5F476744F31E7F97667C39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800255   (15835) от 02.06.2025
 
 Il Divo - Siempre (2006) CD, Album [FLAC|Lossless|tracks + .cue] <Classical Crossover, Pop>
@@ -6,7 +35,7 @@ Il Divo - Siempre (2006) CD, Album [FLAC|Lossless|tracks + .cue] <Classical Cros
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15835.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - The Best Classical Music of All Time (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14454.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Ultimate Classical (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13975.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - Classical Music Golden Age (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12426.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Classicworks: Best of Classical (2000) 2 x CD, Compilation [FLAC|Lossless|t
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12017.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - 100 Classics For Relaxation - A Glorious Sunrise (2008) CD, Compilation [FL
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11602.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Frederick Delius - A Village Romeo and Juliet (1971) [FLAC|Lossless|WEB-DL|track
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11498.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10948.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - Autumn Instrumental (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7717.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - Classical Piano (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3731.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - Classical Adrenaline (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1786.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - Best Piano Sonatas (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_526.jpg" />
 </div>
 
 

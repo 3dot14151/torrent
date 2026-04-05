@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060333.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056846.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056168.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054990.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054709.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052504.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049311.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047182.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044607.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043884.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043599.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043032.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042392.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041782.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041043.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040238.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038715.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037271.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036968.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036654.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036414.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032170.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030559.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021486.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020398.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018729.jpg" />
 </div>
 
 

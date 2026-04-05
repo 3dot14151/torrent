@@ -6,7 +6,7 @@ Drakan: Order of the Flame (1999) [En] (2.10) Repack/Mod nikerossxp
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158311.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ECHO (2017) [En/Fr/Ge] (1.05) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156377.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ The Awakener: Forgotten Oath (2023) [Multi] (1.0) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153658.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Thief: Deadly Shadows / Thief 3: Тень смерти (2004) [Multi] (1.1) Lice
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153125.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Warhammer 40,000: Space Marine (2012) [Ru] (1.0.165.0/dlc) Repack Other s [Colle
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151874.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Tomb Raider I-III Remastered (2024) [Ru/Multi] (Build 19617537) Repack Let'sРla
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150700.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Batman: Arkham Knight / Batman: Рыцарь Аркхема (2015) [Ru/Multi] (1
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148914.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Grand Theft Auto III (2002) [Ru/Multi] (1.1) Lossless Repack R.G. Origami
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147894.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Red Faction Anthology (2001-2011) [Ru/En] Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147400.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Hitman 2 (2018) [Ru/Multi] (2.72.0hf/dlc) Repack xatab [Gold Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146590.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Rise of the Argonauts / Rise of the Argonauts. В поисках золотог�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146158.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Transformers: War for Cybertron / Трансформеры: Битва за Ки
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145793.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Shadwen (2016) [Ru/Multi] (1.0.0.1356/dlc) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143836.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ How to Survive 2 (2016) [Ru/Multi] (1.0/dlc/upd2) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143498.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Star Wars Jedi Knight: Mysteries of the Sith (1998) [En] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142044.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Ryse: Son of Rome (2014) [Ru/En] (1.0.0.153) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139948.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Star Wars: The Force Unleashed 2 (2010) [Ru/Multi] (1.1) License PROPHET
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139713.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Dead Space 2 (2011) [Ru] (1.0) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139274.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Vaccine Rebirth (2023) [Multi] (1.3.4) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137278.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Resident Evil 3 (2020) [Ru/Multi] (11960962/dlc) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136928.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Oddworld Stranger's Wrath HD [Ru/En/Multi10] (L) 2012 | GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136032.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Oddworld.Stranger's Wrath HD [Ru/En/Multi10] (Repack/1.5) 2012 | Fenixx
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135751.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ I Am Alive [Ru/En] (LossLess RePack/1.01) 2012 | R.G. Revenants
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135483.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Warhammer 40.000: Space Marine [Ru/En/Multi9] (Steam-Rip/1.0.156.0/13 DLC) 2011 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135080.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Just Cause 2 [Ru/En/Multi6] (Steam-Rip/1.0.0.2/10 DLC) 2010 | R.G. Игрома�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135047.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Mafia 2/II [Ru] (Steam-Rip/1.0.0.1/upd 4) 2010 | R.G. GameWorks
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135045.jpg" />
 </div>
 
 

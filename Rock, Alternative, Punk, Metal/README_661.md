@@ -1,3 +1,32 @@
+###  Публикация: 1412831   (406735) от 06.10.2020
+
+Leo Moracchioli - 31 Albums (2014-2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406735.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Poker Face (Metal Version) 3:32
+2. Rolling In The Deep (Metal Version) 3:46
+3. Stayin´ Alive (Metal Version) 3:16
+4. U Cant´t Touch This (Metal Version) 2:56(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 20:04:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80E276522185566F266235E4D07A489006E0EDCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413882   (406731) от 06.10.2020
 
 VA - Rock Now (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -6,7 +35,7 @@ VA - Rock Now (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406731.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Made In Tribute (1997) [MP3|320 кб/с]<Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406431.jpg" />
 </div>
 
 
@@ -70,7 +99,7 @@ Daylight Dies - A Frail Becoming (2012) [MP3|320 кб/с]<Melodic Death/Doom Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406398.jpg" />
 </div>
 
 
@@ -104,7 +133,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406150.jpg" />
 </div>
 
 
@@ -139,7 +168,7 @@ VA - Top of the Pops 2 - 70`s rock (2001) 2CD[FLAC|Lossless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_406103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_406103.jpg" />
 </div>
 
 
@@ -174,7 +203,7 @@ Neurosis - Honor Found In Decay (2012) [MP3|320 kbps] <Post-Metal , Experimental
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405933.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ My Dying Bride - A Map Of All Our Failures (2012) [FLAC|Lossless]<Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_405908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_405908.jpg" />
 </div>
 
 
@@ -239,7 +268,7 @@ Fear, and Loathing in Las Vegas - All That We Have Now (2012) [MP3|320 кб/с]<
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405830.jpg" />
 </div>
 
 
@@ -274,7 +303,7 @@ Stone Sour - House of Gold and Bones Part 1 (2012) scene [FLAC|Lossless]<Alterna
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_405819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_405819.jpg" />
 </div>
 
 
@@ -309,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405727.jpg" />
 </div>
 
 
@@ -336,7 +365,7 @@ Stick To Your Guns - Diamond (2012) [MP3|320 кб/с]<Melodic Hardcore / Straigh
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405290.jpg" />
 </div>
 
 
@@ -371,7 +400,7 @@ Dokken - Broken Bones (2012) [FLAC|Lossless]<Heavy Metal / Hard Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_405251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_405251.jpg" />
 </div>
 
 
@@ -406,7 +435,7 @@ Machinae Supremacy - Rise Of A Digital Nation (2012) [FLAC|Lossless]<SID-Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_405234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_405234.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Vektor - Terminal Redux (2016) [FLAC|Lossless|image + .cue] <Thrash, Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405040.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Daylight Dies - A Frail Becoming (2012) [FLAC|Lossless]<Melodic Death/Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_404946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_404946.jpg" />
 </div>
 
 
@@ -504,7 +533,7 @@ Angelus Apatrida - The Call (Limited Edition) (2012) [FLAC|Lossless]<Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_404944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_404944.jpg" />
 </div>
 
 
@@ -539,7 +568,7 @@ Billy Idol - The best (1994) [FLAC|Lossless|image + .cue] <Punk Rock,  Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404895.jpg" />
 </div>
 
 
@@ -568,7 +597,7 @@ Twisted Sister - 11 альбомов, 19CD (1982-2016) [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404727.jpg" />
 </div>
 
 
@@ -597,7 +626,7 @@ Deep Purple - Aged Ballads (2004) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404643.jpg" />
 </div>
 
 
@@ -632,7 +661,7 @@ VA - 100 Hits. Driving Rock 5 СD (2012) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404447.jpg" />
 </div>
 
 
@@ -661,7 +690,7 @@ Baroness - Yellow & Green (2012) 2CD [FLAC|Lossless]<Stoner / Progressive Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404184.jpg" />
 </div>
 
 
@@ -695,7 +724,7 @@ Jack Starr's Burning Starr - Stand Your Ground (2017) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404106.jpg" />
 </div>
 
 
@@ -724,7 +753,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404060.jpg" />
 </div>
 
 
@@ -753,7 +782,7 @@ The Horrors - V (2017) [MP3|320 Kbps] <Post-Punk, Garage Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404055.jpg" />
 </div>
 
 
@@ -782,7 +811,7 @@ Autograph - Buzz (2003) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404006.jpg" />
 </div>
 
 
@@ -796,32 +825,6 @@ Autograph - Buzz (2003) [MP3|320 Kbps] <Melodic Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08D2153DA64CB942839BC1AA4B0860E4C0F94C59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169277   (404005) от 26.09.2017
-
-Ногу свело! - Ватрушки (2017) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404005.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ВатрушкиЖанр: RockПродолжительность: 00:04:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:042B0ACEDA0ED199477447A5E0D15102ED012E1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

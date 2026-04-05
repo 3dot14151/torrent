@@ -1,3 +1,55 @@
+###  Публикация: 1068381   (383117) от 31.10.2016
+
+С. Могилевская | Крепостные королевны (1966) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повесть относится к тому времени, когда в усадьбах русской знати зародилось театральное искусство, созданное крепостными актёрами и музыкантами. О даровитой девочке Дуне Чекуновой, о судьбе её, сложившейся трагически, о других талантливых актёрах и музыкантах рассказывается в книге. Много страниц уделено Шереметевскому театру, который в ту пору переживал период блистательного (   Читать дальше...   )Жанр: Детская прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9551C1DF0E6B98986B2E8ADB6363C653DED3E95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174892   (383010) от 16.10.2017
+
+Б.И. Багрянцев, П.И. Решетов | Учись морскому делу (1986) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383010.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторы книги — одни из организаторов Московского городского клуба юных моряков, речников и полярников — написали для своих юных друзей популярное пособие, которое познакомит ребят, мечтающих о море, с устройством кораблей и судов, судовождением, сигнало-производством. Ребята узнают, как управлять шлюпкой, ходить на веслах, найдут в книге много других интересных и (   Читать дальше...   )Жанр: ПособиеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66330117F904911298F5DEA3E7FBCEAFCBA3B4A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1174932   (382993) от 16.10.2017
 
 Журнал | Квантик №8 (август 2017) [PDF]
@@ -6,7 +58,7 @@
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382993.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382825.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382670.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382222.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381909.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381778.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381702.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381699.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381696.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381691.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381686.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381616.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381430.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381412.jpg" />
 </div>
 
 
@@ -379,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381328.jpg" />
 </div>
 
 
@@ -407,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381311.jpg" />
 </div>
 
 
@@ -434,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381285.jpg" />
 </div>
 
 
@@ -460,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381188.jpg" />
 </div>
 
 
@@ -486,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380893.jpg" />
 </div>
 
 
@@ -512,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380794.jpg" />
 </div>
 
 
@@ -538,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380791.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380661.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380643.jpg" />
 </div>
 
 
@@ -617,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379630.jpg" />
 </div>
 
 
@@ -628,58 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AACA8E629D7FB48BAE596FBD32C3DF6401C9C26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253864   (379617) от 11.10.2018
-
-Клавдия Лукашевич (сост.) | Сказки современных русских писателей. Том 1(1910) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379617.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник сказок для детей старшего дошкольного и младшего школьного возраста.Жанр: Детская проза. Сказка.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76AA8C90CC8B856EC9DC03F74741C407F497D35E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253859   (379615) от 11.10.2018
-
-Василий Авенариус | Первый русский изобретатель Иван Петрович Кулибин (1909) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нижегородский "посадский" Иван Петрович Кулибин после нескольких лет упорного труда, многих бессонных ночей, построил в 1767 году удивительные часы. "Видом и величиною между гусиным и утиным яйцом", они были заключены в затейливую золотую оправу. Часы были столь замечательны, что были приняты в дар императрицей Екатериной II. Они не только показывали (   Читать дальше...   )Жанр: Детская прозаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAB54F6EC0F8A2C19DC93E7A532C404BAFC787B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

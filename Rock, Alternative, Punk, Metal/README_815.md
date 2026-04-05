@@ -1,3 +1,32 @@
+###  Публикация: 1611047   (244057) от 11.02.2023
+
+Dispyria - 3 Albums (2012-2023) [MP3|320 Kbps] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244057.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2012 "Dispyria"
+2019 "The Journey To Aelyrea"
+2023 "The Story Of Marion Dust"Жанр: Heavy, Power MetalПродолжительность: 02:33:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B891BFC568AC1FB43A9A2EAFCAB0A51B91D65EC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626186   (244056) от 13.04.2023
 
 VA - Rock Hymnen (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -6,7 +35,7 @@ VA - Rock Hymnen (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244056.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Rust N' Rage - One for the Road (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Hi Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244051.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Right Stripped - Daylight Into Darkness (2021) [MP3|320 Kbps] <Progressive Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244047.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ L.A. Guns - Black Diamonds (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244046.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Lords Of Dust - Kickin Dust Up (2023) EP [MP3|320 Kbps] <Heavy Rock, Stoner, 70'
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244042.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Rust n' Rage - One For The Road (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244040.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Cosmos - 4 Albums (1994 - 2012) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244037.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ New Horizon - Gate of the Gods (2022) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Power Me
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244032.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Bent Muffbanger - Kush (2021) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244031.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Pierce The Veil - The Jaws of Life (2023) [MP3|320 Kbps] <Post-Hardcore, Pop-Pun
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244025.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ The Radio Sun - Wrong Things Right (2014) [FLAC|Lossless|image + .cue] <Melodic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244023.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Drug Mother - Rise Witch (2023) [MP3|320 Kbps] <Heavy Rock, Stoner, Doom, Grunge
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244018.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Paul Young - Behind The Lens (2023) [FLAC 2.0|44,1/24|WEB-DL|tracks] <Rock, Pop 
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244001.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Ted Nugent - Spirit of the Wild (1995) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243998.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Strange Omen - Marasma (2023) [MP3|320 Kbps] <Hard 'n' Heavy>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243960.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243952.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ City Kings - Steel Rock n Roll (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243941.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Zac Leaser - Empty Dreams (2017) [FLAC|Lossless|WEB-DL|tracks] <Technical, Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243930.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Gengis Khan - Possessed By The Moon (2022) [FLAC|Lossless|image + .cue] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243929.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Witchmaster - Kaźń (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243922.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ DevilDriver - Dealing with Demons Vol. II (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243909.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243905.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Zombie Riot - World Epitaph (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243901.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Zebedy - Waiting for the Tide (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243895.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Remote Viewing - Modern Addictions (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243893.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Remote Viewing - Modern Addictions (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7C43ECF61050985B13E39266BEFBC986281C85D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626413   (243886) от 14.04.2023
-
-Where the Sun Comes Down - Necropolis Railway (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych Doom, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mater Tenebrarum [00:02:06]
-02. Wait For The Pain [00:04:42]
-03. No Sun City [00:05:26]
-04. Longway Home [00:06:43](   Читать дальше...   )Жанр: Psych Doom, StonerПродолжительность: 00:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FB90B8934D3DF17E78BACDDAC944E426E7FA673
 ```
 
 https://mybot314.ru/tekegram_catalog/

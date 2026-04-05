@@ -1,81 +1,3 @@
-###  Публикация: 1616935   (1035546) от 05.03.2023
-
-Haksun Li, PhD | Numerical Methods Using Kotlin (2023) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035546.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге вы будете реализовывать численные алгоритмы в Kotlin с использованием NM Dev, объектно-ориентированной и высокопроизводительной библиотеки программирования для прикладной и промышленной математики. Узнайте, как Kotlin имеет много преимуществ перед Java в своей скорости, а в некоторых случаях и в простоте использования. В этой книге вы увидите, как это (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDD96108A304511FE169FDC6E5AB52B66F375E9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617361   (1035268) от 06.03.2023
-
-Roger Ye | .NET MAUI Cross-Platform Application Development (2023) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эволюция Xamarin.Forms, .NET Multi-platform App UI (.NET MAUI) - это кроссплатформенный фреймворк для создания собственных мобильных и настольных приложений с использованием C# и XAML. Используя .NET MAUI, вы можете разрабатывать приложения, которые будут работать на Android, iOS, macOS и Windows, используя единую общую кодовую базу. Это пошаговое руководство представляет (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:913E0F158EFC9D79F60BE5ED18189F93D9C3E9E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443900   (1035142) от 30.01.2021
-
-Елена Савина | Практикум по программированию на PascalABC.NET (2021) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035142.jpg" />
-</div>
-
-
-###  Подробнее
-
-PascalABC.NET — современная версия языка программирования Паскаль, предназначенного для обучения программированию. Настоящий практикум включает краткую справку по языку и собственно задания и упражнения для лабораторных и практических занятий по таким дисциплинам, как «Информатика и программирование», «Языки программирования» и ряду других. Задания разделены по темам, (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97F455EDFCD7F8157B3D69CFB952D2CB33DF2496
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443914   (1035111) от 30.01.2021
 
 Алан Торн | Искусство создания сценариев в Unity (2016) [PDF]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035111.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034508.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034310.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ John Paul Mueller | Beginning Programming with Python For Dummies, 3rd Edition (
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034305.jpg" />
 </div>
 
 
@@ -189,7 +111,7 @@ Alan Alickovic | React Application Architecture for Production (2023) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034297.jpg" />
 </div>
 
 
@@ -215,7 +137,7 @@ Daniel Chen | Pandas for Everyone: Python Data Analysis, 2nd Edition (2023) [PDF
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033810.jpg" />
 </div>
 
 
@@ -241,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033598.jpg" />
 </div>
 
 
@@ -267,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033378.jpg" />
 </div>
 
 
@@ -293,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032160.jpg" />
 </div>
 
 
@@ -321,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031261.jpg" />
 </div>
 
 
@@ -347,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030600.jpg" />
 </div>
 
 
@@ -373,7 +295,7 @@ S. Basu | Java Programming For Kids ages 12 – 18 : Simple, Concise & Easy guid
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029493.jpg" />
 </div>
 
 
@@ -399,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028806.jpg" />
 </div>
 
 
@@ -425,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028607.jpg" />
 </div>
 
 
@@ -451,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027984.jpg" />
 </div>
 
 
@@ -478,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026180.jpg" />
 </div>
 
 
@@ -505,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026176.jpg" />
 </div>
 
 
@@ -531,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025704.jpg" />
 </div>
 
 
@@ -557,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025371.jpg" />
 </div>
 
 
@@ -585,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024287.jpg" />
 </div>
 
 
@@ -613,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023426.jpg" />
 </div>
 
 
@@ -639,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022933.jpg" />
 </div>
 
 
@@ -666,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022531.jpg" />
 </div>
 
 
@@ -678,6 +600,84 @@ PyTorch – это фреймворк от Facebook с открытым исхо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6D8F294B53B41446DCF4CDD948D76F1669065AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460883   (1022167) от 07.04.2021
+
+Джон Хофман | Освоение Arduino: Проектный подход к электронике, схемам и программированию [+code] (2018) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Здесь представлен перевод книги "Mastering Arduino". "Освоение Arduino" - это комплексное руководство по максимально эффективному использованию Arduino. Это практическое и серьезное руководство научит вас всем навыкам в области программирования, которые необходимы вам для создания сложных проектов Arduino. Эта книга наполнена реальными проектами, (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9384E3AE2EE4C68ECFEB8079BBB96E5E33777693
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461074   (1022035) от 08.04.2021
+
+Саша Юрич | Elixir в действии (2020) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022035.jpg" />
+</div>
+
+
+###  Подробнее
+
+При разработке программного обеспечения для решения критически важных задач огромную роль играет отказоустойчивость. Язык программирования Elixir позволяет создавать быстрые и надежные приложения, будь то крупная распределенная система, набор сервисов для бекенда или простенькое веб-приложение. Элегантный синтаксис Elixir и функциональный образ мышления позволяют (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5B12C7D88C815B9B326FAB927467360B7E31410
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462158   (1021255) от 13.04.2021
+
+Майа Пош | Программирование встроенных систем на С++17 (2020) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021255.jpg" />
+</div>
+
+
+###  Подробнее
+
+C++ — превосходный выбор для разработки встроенных систем, особенно с учетом того, что этот язык не добавляет каких-либо излишеств, улучшает удобство сопровождения и предлагает множество преимуществ над прочими языками программирования. Из книги вы узнаете, как можно применять C++ для создания надежных, конкурентоспособных систем, рационально использующих все доступные (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C6B7C6D160A4972597EB0D7BC7E2F0178C9F760
 ```
 
 https://mybot314.ru/tekegram_catalog/

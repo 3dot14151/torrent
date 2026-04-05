@@ -1,3 +1,55 @@
+###  Публикация: 1727669   (54478) от 03.06.2024
+
+Kingdom of Fallen: The Last Stand / Королевство Павших: Последний Страх (2024) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пламя гаснет в проклятом королевстве. Нет света, чтобы осветить ваш путь, ваши драгоценные воспоминания медленно разрушаются перед вами. По мере того как все подходит к концу, может ли этот новый мир быть спасением, которого вы ищете? Или это еще одно ложное изображение, поданное вам, предвещающее изгнание вашей души?Тип издания: RepackРазработчик: DigitalSoulsЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23A0380DB6960D040E2B5F255ABF4415E3530DE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727671   (54473) от 03.06.2024
+
+Dark Souls 2: Scholar of the First Sin (2015) [Ru/En] (1.0.2/dlc) Repack xatab
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dark Souls 2: Scholar of the First Sin - это ролевой экшен, в котором львиная доля времени уделена не прокачке персонажа или заданиям, а сражениям с врагами и боссами. Игроки обмениваются ударами с противниками, стараясь блокировать их удары или уворачиваться от них, чтобы не погибнуть.Тип издания: RepackРазработчик: FromSoftwareЖанр: RPGЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8008561192730C9580760039110442E43B04C50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727602   (54460) от 03.06.2024
 
 Esports Godfather (2024) [Multi] (1.0.10) Repack FitGirl
@@ -6,7 +58,7 @@ Esports Godfather (2024) [Multi] (1.0.10) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54460.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Little-Known Galaxy (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54454.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Wizardry: Proving Grounds of the Mad Overlord (2024) [Multi] (1.0.1) Repack FitG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54423.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Vendir: Plague of Lies (2024) [Ru/Multi] (1.2.101) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54418.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54312.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ The Leviathan's Fantasy (2023) [Multi] (2.0.1/dlc) Repack FitGirl [Ultimate Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54295.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ SCP Operations (2024) [En] (1.0.0:73) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54229.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Cryptmaster (2024) [Multi] (1.032) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54212.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Outcast - A New Beginning (2024) [Ru/Multi] (1.0.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54008.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Elegy of Fate / Элегия судьбы (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53997.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ The Elder Scrolls V: Skyrim (2016-2021) [Ru/Multi] (1.6.1170.0.8/dlc) Repack dix
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53905.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Dark Souls II (2): Scholar of the First Sin (2015) [Ru/Multi] (1.03/dlc) Repack 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53887.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Ni no Kuni Wrath of the White Witch™ Remastered (2019) [Ru/Multi] (1.0) Repack
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53843.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ WitchSpring R (2023) [Multi] (1.307/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53804.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Coromon (2022) [Ru/Multi] (1.3.0/dlc) Scene Tenoke [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53793.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ The Inquisitor (2024) [Ru/Multi] (13389755/dlc) Repack Wagner [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53783.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Beneath Oresa (2022) [Ru/Multi] (1.0.23) Repack Wagner
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53764.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Baladins (2024) [Multi] (1.0.18) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53684.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ SKALD: Against the Black Priory (2024) [En] (1.0.3d/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53681.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Potty Knight Saga (2024) [Ru/Multi] (1.0) Scene TiNYiSO
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53565.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Whispers in the Moss (2024) [En] (1.01) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53545.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Sinderfury (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53530.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Outward (2022) [Ru/Multi] (1.1.0/dlc) License GOG [Definitive Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53482.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Hood Story: Kaito Yamazaki (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53445.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Hood Story: Kaito Yamazaki - вы сыграете за Кайто Ямадза�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C7F6850100A674EED3DA41392296BF1F98CBD56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669588   (53381) от 14.06.2024
-
-Wizard with a Gun (2023) [Ru/Multi] (1.3/dlc) Scene Rune
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wizard with a Gun - это кооперативная онлайн-игра в жанре «песочница» с элементами выживания. Ее действие происходит в волшебной пустыне, полной загадок и опасных существ. Путешествуйте в одиночку или с другом, собирайте ресурсы, создавайте оружие и снаряжайте своего волшебника по своему вкусу для исследования неизведанного. Тщательно продумайте дизайн оружия, пуль (   Читать дальше...   )Тип издания: SceneРазработчик: Galvanic GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32C47067E765493A020D88E24E50BC49C5F3EECD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730087   (53361) от 14.06.2024
-
-Potty Knight Saga (2024) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53361.jpg" />
-</div>
-
-
-###  Подробнее
-
-Potty Knight Saga бросает вас с головой в сложное приключение в жанре платформера. Сами разработчики описывают ее как зверски сложную, несмотря на обманчиво милую внешность и простое управление. Подумайте о "Dark Souls и Mario" - именно в такой неумолимый мир вы попадете. Вас ожидают длинные отрезки темноты, постоянные опасности и множество возможностей (   Читать дальше...   )Тип издания: RepackРазработчик: PLAY MephistowaltzЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Испанский и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BE57072E4BB75F1E84909956045DC8CD8C1FB4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

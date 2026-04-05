@@ -1,3 +1,58 @@
+###  Публикация: 1375755   (864017) от 15.04.2020
+
+Easy Markdown 1.8.1 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864017.jpg" />
+</div>
+
+
+###  Подробнее
+
+HTML (от англ. HyperText Markup Language — «язык гипертекстовой разметки») — стандартный язык разметки документов во Всемирной паутине. Язык HTML интерпретируется браузерами и отображается в виде документа в удобной для человека форме.
+
+Easy Markdown позволяет создавать веб-страницы так же, как запись обычного текста. Easy Markdown поможет улучшить вашу скорость (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.02.2019Разработчик: Roberto PanettaПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDFE6A02B9C2EBCA76184417ECB9E8116B5D38E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375798   (863883) от 15.04.2020
+
+Shortcut Bar 2.8 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863883.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shortcut Bar - невероятно удобное приложение, с его помощью вы получите быстрый доступ к файлам, папкам и приложениям, которые вам необходимы.
+Приложение «живет» в меню баре и позволяет добавлять ярлыки в неограниченном количестве. Всякий раз, когда вам требуется доступ к этим важным файлам и папкам, просто нажмите на иконку в строке меню и выберите элемент из раскрывающегося (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.09.2019Разработчик: FIPLAB LtdПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:437F3CFD42AE55060A8EC4EF575956A235295697
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375890   (863760) от 15.04.2020
 
 Haptic Touch Bar 2.4.0 [En]
@@ -6,7 +61,7 @@ Haptic Touch Bar 2.4.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863760.jpg" />
 </div>
 
 
@@ -34,7 +89,7 @@ Chronicle Pro 9.8.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863071.jpg" />
 </div>
 
 
@@ -61,7 +116,7 @@ MediaHuman Youtube Downloader 3.9.9.61 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862963.jpg" />
 </div>
 
 
@@ -90,7 +145,7 @@ Tyme2 v1.1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862941.jpg" />
 </div>
 
 
@@ -118,7 +173,7 @@ Lingon X 2.3.5 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862852.jpg" />
 </div>
 
 
@@ -145,7 +200,7 @@ Adobe Zii 2021 - Universal Patcher 7.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862752.jpg" />
 </div>
 
 
@@ -171,7 +226,7 @@ Subtitles 3.2.8 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862673.jpg" />
 </div>
 
 
@@ -200,7 +255,7 @@ Cisdem PDFPasswordRemover 4.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862270.jpg" />
 </div>
 
 
@@ -227,7 +282,7 @@ Tipard Blu-ray Converter for Mac 9.2.22 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862173.jpg" />
 </div>
 
 
@@ -253,7 +308,7 @@ Adobe Muse CC 2015.1.2.44 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862087.jpg" />
 </div>
 
 
@@ -280,7 +335,7 @@ AnyMP4 Mac Video Converter Ultimate 8.2.28 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862047.jpg" />
 </div>
 
 
@@ -306,7 +361,7 @@ BlogTouch for Blogger 2.1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860989.jpg" />
 </div>
 
 
@@ -335,7 +390,7 @@ Audirvana 3.5.50 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860901.jpg" />
 </div>
 
 
@@ -361,7 +416,7 @@ VR Desktop 1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860749.jpg" />
 </div>
 
 
@@ -390,7 +445,7 @@ Stringed 2 v2.7 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858902.jpg" />
 </div>
 
 
@@ -419,7 +474,7 @@ MP3 Cutter Joiner 6.3 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858682.jpg" />
 </div>
 
 
@@ -445,7 +500,7 @@ Time Sink 2.2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858181.jpg" />
 </div>
 
 
@@ -472,7 +527,7 @@ Screen Snapshot 5.4.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858070.jpg" />
 </div>
 
 
@@ -498,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858062.jpg" />
 </div>
 
 
@@ -524,7 +579,7 @@ Mosaic Pro - Professional-level window management 1.3.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857928.jpg" />
 </div>
 
 
@@ -552,7 +607,7 @@ ZBrush 2021.7.1 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857522.jpg" />
 </div>
 
 
@@ -578,7 +633,7 @@ Fluid Browser 1.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857291.jpg" />
 </div>
 
 
@@ -607,7 +662,7 @@ PhoneClean Pro 4.1.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857148.jpg" />
 </div>
 
 
@@ -634,7 +689,7 @@ WidsMob PhotoVault 3.9 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856179.jpg" />
 </div>
 
 
@@ -645,64 +700,6 @@ WidsMob PhotoVault имеет разные уровни безопасности
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C19204CF0882537502D4AEB4F8A2BCEAA1A49F87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110072   (855681) от 01.03.2017
-
-AutoPrompt 1.0.8 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855681.jpg" />
-</div>
-
-
-###  Подробнее
-
-AutoPrompt  - это простое приложение для меню-бара, которое время от времени будет Вас спрашивать  что Вы делает в этот момент.
-AutoPrompt  - это  интуитивный интерфейс для списков задач и их продолжительность. Просто запишите вашу текущую задачу всякий раз, когда  AutoPrompt  Вас об этом попросит. Создайте свой ежедневный рабочий лист во время  работы.
-
-Идеология  приложения (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28 февраля 2017Разработчик: InspiringLife.coПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0DF8EAECAA655BD5F3E1C4E27E18A161B1EE51D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001074   (855636) от 27.03.2016
-
-SubsMarine 1.2.3 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855636.jpg" />
-</div>
-
-
-###  Подробнее
-
-Найти субтитры для видео и телевизионных шоу
-SubsMarine - полезная утилита, которая самостоятельно сможет найти субтитры для фильма или ТВ-сериала. SubsMarine просканирует указанные пользователем папки на наличие видео файлов, и найдет и скачает нужные субтитры.
-
-Благодаря этой малютке можно забыть о долгом и утомительном поиске подходящих субтитров. В настройках (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2016Разработчик: CocoaWithChurrosПоддерживаемая ОС: Mac OS X 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9169911F19C16E730E4C210CB1D14562C56F5C50
 ```
 
 https://mybot314.ru/tekegram_catalog/

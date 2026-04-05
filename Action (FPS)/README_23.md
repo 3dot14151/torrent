@@ -1,3 +1,56 @@
+###  Публикация: 542817   (496900) от 04.09.2012
+
+The Ball / The Ball: Оружие мертвых [Ru] (RePack/1.0.6698.0) 2010 | R.G. Element Arts
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы – молодой археолог, который попадает в подземный лабиринт, спрятанный в недрах спящего вулкана. Ваш путь на поверхность лежит через руины древней цивилизации, полные смертоносных ловушек и толп кровожадных врагов. Ваша единственная надежда на спасение – могущественный артефакт из прошлого: огромная Сфера из золота и стали, которой вы научитесь повелевать. Именно от неё теперь всецело зависит ваша жизнь: мудрому и способному хозяину грозный круглый артефакт станет надёжной защитой от ловушек, незаменимым помощником в решении головоломок и в преодолении препятствий. На исчадий подземного царства мёртвых Сфера обрушит всю мощь и тяжесть своей сверхъестественной силы.
+Выберетесь живым из подземелья, разгадайте тайну давным-давно погибшего народа – станьте властелином Сферы!Тип издания: RePackЖанр: Arcade / Logic / 3D / 1st PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D63689071ADA529C611BA3299332DBEF7604EC35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242967   (495351) от 25.08.2018
+
+Uventa (2018) [Ru/En] (1.0) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Атмосферный хоррор от первого лица, который поведает историю по мотивам реальных событий о том, как рядовой обход может обернуться чередой событий, не поддающихся человеческому пониманию. В роли простого сторожа, чья роковая судьба привела его в стены заброшенной школы, вам предстоит окунуться в пучину странных и даже жутких событий, встретиться лицом к лицу с неизведанным (   Читать дальше...   )Тип издания: RepackРазработчик: BlackRatЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B0F9174CD7C6937A99B904593221AF3550536B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 236204   (494534) от 14.09.2010
 
 Battlestrike: Force of Resistance / Партизаны Второй мировой (2007) [Ru] Unofficial
@@ -6,7 +59,7 @@ Battlestrike: Force of Resistance / Партизаны Второй мирово
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494534.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Condemned: Criminal Origins (2006) [Multi] (1.0) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493319.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Arma 3 (2013) [Ru/Multi] (1.94.145.977/dlc) License CODEX [Apex Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492271.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ Hello Neighbor (2017) [Ru/Multi] (1.4) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490377.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ Typical Nightmare (2018) [Ru/Multi] (1.1) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489460.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ Behind These Eyes (2017) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485679.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ Thief: Trilogy [Ru/En] (RePack) 1998 - 2004 | R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484140.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ Cryostasis: Sleep of Reason / Анабиоз: Сон разума (2009) [En] (1
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483639.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ Clive Barker's Jericho [Ru/En] (RePack) 2007 | R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482021.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ Prey [Ru/En] (Repack/1.4) 2006 | R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482009.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ Watch This! (2016) [Ru/En] (4.10.4) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480832.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ Invention 2 (2016) [Ru/En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480695.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ Singularity (2010) [Ru] (1.1) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479466.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ White Day: A Labyrinth Named School (2017) [Ru/Multi] (1.0) Repack Covfefe
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477849.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ Singularity [Ru/En] (RePack/1.1.0.507821) 2010 | R.G. Revenants
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477814.jpg" />
 </div>
 
 
@@ -400,7 +453,7 @@ TimeShift (2007) [Ru] (1.02) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477630.jpg" />
 </div>
 
 
@@ -426,7 +479,7 @@ Desolate (2018) [Ru/En] (1.3) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476400.jpg" />
 </div>
 
 
@@ -452,7 +505,7 @@ TRON 2.0 [Ru/En] (Repack/1.042) 2003 | R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475553.jpg" />
 </div>
 
 
@@ -478,7 +531,7 @@ Witch Blood (2018) [Ru/Multi] (1.0) License HOODLUM
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475542.jpg" />
 </div>
 
 
@@ -504,7 +557,7 @@ Witch Hunt (2018) [Ru/Multi] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475532.jpg" />
 </div>
 
 
@@ -530,7 +583,7 @@ Witch Blood (2018) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475442.jpg" />
 </div>
 
 
@@ -556,7 +609,7 @@ Clive Barker's Jericho [Ru/En] (RePack/1.0) 2007 | R.G. Element Arts
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475425.jpg" />
 </div>
 
 
@@ -582,7 +635,7 @@ Soldier of Fortune (2001) [En] (1.07fHF) License GOG [Platinum Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473883.jpg" />
 </div>
 
 
@@ -608,7 +661,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl - Конец Света (2014) [Ru] (1.0/upd
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472590.jpg" />
 </div>
 
 
@@ -621,58 +674,6 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl - Конец Света (2014) [Ru] (1.0/upd
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C22652482728DF945B0BEC15B1DFD7FF97E82F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567481   (471829) от 03.08.2022
-
-Zero Tolerance (1994) [En] (1.0) License GOG
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если эта 3D-игра не поднимет ваш уровень адреналина, то ничего не даст. В Zero Tolerance вы убиваете инопланетных террористов, которые хотят уничтожить вашу защитную колонию. Но не волнуйтесь, у вас есть арсенал оружия, чтобы выследить их через лабиринт проходов, потайных дверей и стрельбы.Тип издания: LicenseРазработчик: TechnopopЖанр: Экшны, Сражения, ВыживаниеЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEA8C272C3780674DFE725C5CEB7FEFC30642FC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245477   (471578) от 06.09.2018
-
-Overhead (2018) [En] (1.0) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из бункера фармацевтической компании Hexagon экстренно эвакуировали персонал, вы были заморожены и забыты... Аварийная система сработала только спустя 162 года, и вы теперь один в подземной зоне в которой когда-то добровольно проверяли, что-то конфиденциальное. Но один ли? Среди коридоров, комнат, лабораторий сложно обнаружить выход на поверхность, если он все еще (   Читать дальше...   )Тип издания: RepackРазработчик: CicleЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE341B94D3B23B592C7BB350F88179BEF6B9C8EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

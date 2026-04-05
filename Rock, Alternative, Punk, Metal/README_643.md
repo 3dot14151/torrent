@@ -1,3 +1,32 @@
+###  Публикация: 1412018   (423306) от 27.09.2020
+
+Fight The Fury - Still Breathing (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423306.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. My Demons [4:09]
+2. Dominate Me [3:46]
+3. Still Burning [4:06]
+4. I Cannot [3:50](   Читать дальше...   )Жанр: Metal, Hard RockПродолжительность: 00:20:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64BB6256CDE127A61F55BE50654A6381047E604D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1324661   (423224) от 10.09.2019
 
 Inquisicao - Reborn (2010) [FLAC|Lossless|image + .cue] <Heavy Metal, Speed Metal>
@@ -6,7 +35,7 @@ Inquisicao - Reborn (2010) [FLAC|Lossless|image + .cue] <Heavy Metal, Speed Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423224.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Psychosis - Complex (1996) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423222.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Messina - Terrortory (1990) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423220.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Imminent Sonic Destruction - Recurring Themes (2012) [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423215.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Phil Collins - The Singles (2016) 3CD Deluxe Edition [FLAC|Lossless|tracks + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423178.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ Ray Thomas - Words & Music (2020) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423166.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ Goldenhall - Collide (2020) [MP3|320 Kbps] <Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423157.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ Allegiance - Vrede (1999) [FLAC|Lossless|image + .cue] <Viking Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423108.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ Pyramid - Gold Tooth (2019) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423107.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ Caligula's Horse - In Contact (2017) [FLAC|Lossless|image + .cue] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423106.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ Circus Maximus - Isolated Chapters (2019) EP [MP3|320 Kbps] <Power Metal, Progre
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423101.jpg" />
 </div>
 
 
@@ -320,7 +349,7 @@ Turilli / Lione Rhapsody - Zero Gravity (Rebirth and Evolution) (2019) [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423096.jpg" />
 </div>
 
 
@@ -349,7 +378,7 @@ Nasty - Menace (2020) [FLAC|Lossless|WEB-DL-24bit-96kHz|tracks] <Hardcore Punk, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423083.jpg" />
 </div>
 
 
@@ -378,7 +407,7 @@ Korn - The Serenity Of Suffering (Deluxe Edition) (2016) [FLAC|lossless|tracks] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423082.jpg" />
 </div>
 
 
@@ -407,7 +436,7 @@ Ayreon - Transitus (2020) 4xCD [FLAC|Lossless|tracks + .cue] <Progressive Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423077.jpg" />
 </div>
 
 
@@ -436,7 +465,7 @@ The Wildhearts ‎– 30 Year Itch - Bonus Tracks (2020) [MP3|320 Kbps] <Hard Ro
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423075.jpg" />
 </div>
 
 
@@ -465,7 +494,7 @@ Bon Jovi - These Days (1995) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423066.jpg" />
 </div>
 
 
@@ -494,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422961.jpg" />
 </div>
 
 
@@ -523,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422953.jpg" />
 </div>
 
 
@@ -549,7 +578,7 @@ VA - Без меня. Трибьют Егора Летова (2019) [FLAC|Lossle
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422914.jpg" />
 </div>
 
 
@@ -578,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422886.jpg" />
 </div>
 
 
@@ -607,7 +636,7 @@ Kasabian - West Ryder Pauper Lunatic Asylum (2009) [MP3|320 kb/s]<Indie Rock / B
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_422855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_422855.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ Iron Maiden - Greatest Hits (2CD) (2008) [FLAC|Lossless]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_422732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_422732.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ iLL - Gotten Gains (2012) [MP3|320 кб/с]<Stoner Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422674.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ Bellusira - The Healing (2015) [MP3|320 кб/с]<Alt. Metal, Female Vocal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422664.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ Bellusira - The Healing (2015) [MP3|320 кб/с]<Alt. Metal, Female Vocal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:108AEB1FFADD42C5C585A2B6FE4A7241D348DF3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946955   (422567) от 15.10.2015
-
-Zebrahead - Walk The Plank (2015) Japanese Edition [MP3|320 кб/с]<Punk-Rock, Pop-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who Brings A Knife To A Gunfight?
-02. Worse Than This
-03. Headrush
-04. Keep It To Myself(   Читать дальше...   )Жанр: Punk-Rock, Pop-PunkПродолжительность: 00:47:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30155C663B71D55F50B66B5F0C22F4F0AE8869A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

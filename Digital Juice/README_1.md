@@ -6,7 +6,7 @@ Digital Juice - Graphic Designer's Toolkit 1 (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566841.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Digital Juice - Graphic Designer's Toolkit 3 (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566824.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ Digital Juice - Graphic Designer's Toolkit 5 (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566699.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ Digital Juice - Juice Drops Collection Three: totalFOCUS (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562905.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Digital Juice - Motion Designer's Silhouettes: 03 Businesswoman I (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560961.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Digital Juice - Worship StackTraxx (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560836.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Digital Juice - ToxicTraxx Volume 01: - Cinematic (.djmusic)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_558398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_558398.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Digital Juice - Toxic Type: Collection 08 Cinematic III (AE) (.djprojects)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541644.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Digital Juice - Animated Canvases Collection 07: First Sights (Files)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531912.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Digital Juice - Ready2Go: Collection 19 (AE) (.djprojects)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520775.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Digital Juice - Swipes! 19: Happy Thoughts (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509410.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Digital Juice - Swipes! 35: Filigree Flow (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488720.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Digital Juice - Swipes! 28: Music Theory (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488717.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Digital Juice - Swipes! 10: Mixed Bag (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488712.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Digital Juice - Editor's Toolkit Pro Singles 244: Random Painting (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486571.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Digital Juice - Motion Design Elements Standart 24: Motion Grab Bag 4 (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484560.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Digital Juice - Editor's Toolkit Pro Singles 245: Portal Points (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482503.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Digital Juice - Motion Design Elements Standart 10: Control Panels (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480134.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Digital Juice - Swipes! 17: Mixed Bag 2 (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478447.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Digital Juice - Motion Design Elements Standart 07: Line Items (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478371.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Digital Juice - Motion Design Elements Standart 25: Line Items 3 (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478370.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Digital Juice - Swipes! 29: Mixed Bag 3 (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478264.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Digital Juice - Motion Design Elements Standart 11: Logo Revealers (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478210.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Digital Juice - Motion Design Elements Standart 18: Flags 1 (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475897.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Digital Juice - Motion Design Elements Standart 19: Flags 2 (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475659.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ Digital Juice - Drag & Drop - All 8 Volumes (converted) [MP4]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473792.jpg" />
 </div>
 
 

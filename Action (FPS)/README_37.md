@@ -1,3 +1,55 @@
+###  Публикация: 1588692   (190446) от 08.11.2022
+
+Ghostbusters: Spirits Unleashed (2022) [Ru/Multi] (1.2.3.13348) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ghostbusters: Spirits Unleashed — это увлекательная многопользовательская игра, которая идеально подойдёт для игроков с навыками любого уровня. Четверо охотников за привидениями с протонными ранцами за спиной пытаются поймать призрака в уникальных локациях, вступая в асимметричные многопользовательские битвы (в онлайн- или офлайн-режиме). По мере прохождения игроки (   Читать дальше...   )Тип издания: RepackРазработчик: IllFonicЖанр: Action (Fantastic), Horror, 1st Person, 3DЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE19EBAF17C067347A25F1F43763A7A43B43F35F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660202   (189514) от 12.09.2023
+
+Lempo (2023) [Multi] (0.111) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Временами люди теряются. Тогда приходится звать на помощь. Но что если другие не смогут их найти? Что если они потеряются невесть где? Верите ли вы в фантастические миры? Я тоже не верил, пока не оказался в одном из них. Lempo - это психологический хоррор, вдохновленный финской мифологией. Вам предстоит сыграть за Пола, обычного офисного сотрудника, который однажды (   Читать дальше...   )Тип издания: LicenseРазработчик: One Trick EntertainmentЖанр: Приключение, От первого лица, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76E849AF471E49A320B967622821E190ADC29B15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1662716   (187225) от 19.09.2023
 
 Strike Force 3 (2023) [Ru/Multi] (1.0) Scene Tenoke
@@ -6,7 +58,7 @@ Strike Force 3 (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187225.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Quake II RTX (2019) [En] (1.7.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184990.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Instinct / Инстинкт (2007) [Ru/Multi] (1.0) Repack kosak4
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184749.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Eternal Evil (2022) [Ru/En] (Build 9865535) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183309.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181896.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ AMID EVIL (2019) [En] (2614/dlc) Scene Skidrow
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181078.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Fobia - St. Dinfna Hotel (2022) [Ru/Multi] (01.02 Build 9460237) License DOGE
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180164.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Dishonored: Death of the Outsider (2017) [Ru/En] (1.145) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173738.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Sniper Ghost Warrior Contracts (2019) [Ru/En] (7794846/dlc) Repack Decepticon [D
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171972.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Sniper Ghost Warrior Contracts 2 (2021) [Ru/En] (7315520/dlc) Repack Decepticon 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171971.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Slime Rancher (2017) [Ru/Multi] (1.4.4) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170633.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ DCOP (2023) [En] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168628.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Choo-Choo Charles (2022) [Ru/Multi] (1.0.0) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167804.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Twin Sector (2009) [En] (1.0) Scene Skidrow
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166585.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Choo-Choo Charles (2022) [Ru/Multi] (1.0.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166227.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Ghostrunner 2 (2023) [Ru/Multi] (39734.9/dlc) Repack Other s [Brutal Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165688.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Terminator: Resistance / Терминатор: Сопротивление (2019)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165619.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ RoboCop: Rogue City (2023) [Ru/Multi] (1.1.1.0/00.014.032/dlc) Repack DjDI [Alex
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163665.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ BioShock Infinite (2013) [Ru/Multi] (1.0.1643565/dlc) License GOG [The Complete 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163382.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ F.E.A.R. 3 (2011) [Ru/Multi] (20.1060) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162793.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Ion Fury (2018) [En] (3.0.0.9/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162647.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ SUPERHOT (2016) [Ru/Multi] (1.0.21b_plus_l1.1.36) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162231.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ SUPERHOT: MIND CONTROL DELETE (2020) [Ru/Multi] (1.0.8b plus l1.1.36) License GO
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161852.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Quake II (1997) [Ru/Multi] (5984/dlc) License GOG [Enhanced]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160715.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Quake 2 Enhanced - это новая версия классического ш�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CD818F28B1375798F5B016C3407F73A86A41E67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599117   (159915) от 22.12.2022
-
-Serious Sam: Siberian Mayhem (2022) [Ru/Multi] (1.06) Repack dixen18
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159915.jpg" />
-</div>
-
-
-###  Подробнее
-
-С возвращением в мир «Serious Sam 4»! Siberian Mayhem - это новая отдельная глава приключений «Крутого» Сэма Стоуна. Исследуйте просторы России в попытке настичь предателя генерала Брэнда, который всегда на шаг впереди Сэма. Путь будет долгим и ой каким занимательным! Дополнение Serious Sam: Siberian Mayhem разработано Timelock Studio совместно с Croteam и представляет (   Читать дальше...   )Тип издания: RepackРазработчик: Croteam, Timelock StudioЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский (опционально), АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15BE1085080FABF5603C5EEF995D4DFA16ED5F6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675807   (159428) от 10.11.2023
-
-GUNHEAD (2023) [Multi] (1.2) License GOG
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рогалик в жанре шутера от первого лица, в котором игрокам предстоит абордаж и нейтрализация процедурно созданных космических кораблей пришельцев, чтобы заработать доход для своего каперского предприятия. Разлагающиеся инопланетные ковчеги будут защищаться от злоумышленников с помощью широкого арсенала чудовищ-киборгов, робототехники и систем безопасности - всех препятствий, (   Читать дальше...   )Тип издания: LicenseРазработчик: AlientrapЖанр: Экшены, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Испанский, Японский, Китайский (упрощенный)Язык интерфейса: Английский, Испанский, Японский, Китайский (упрощенный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:112B5F0D6E7EC68C886A9542D5CCEF02E389D288
 ```
 
 https://mybot314.ru/tekegram_catalog/

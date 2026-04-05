@@ -1,3 +1,29 @@
+###  Публикация: 1859053   (1060905) от 14.03.2026
+
+Альфред Косовский | Место преступления. Увлекательные детективные задачки для развития логики. Детективные головоломки (2025) [PDF]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Давно хотели попробовать себя в роли настоящего сыщика? Тогда вас ждет 40 увлекательных детективных головоломок, с которыми вы сможете испытать свою смекалку и интуицию! Хмурый охранник, подозрительный администратор отеля или скандальный журналист - кто убийца? Решать вам! В книге представлены задачки любого уровня: как для начинающих детективов, так и для специалистов (   Читать дальше...   )Жанр: Головоломки, Логика, ЭрудицияИздательство: ЭксмоФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:289E029D775EB485E46F26A06B05175D59E1664C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1858645   (1060550) от 12.03.2026
 
 Александр Никонов | Будущее человечества. Точка невозврата пройдена? (2025) [PDF, FB2, EPUB]
@@ -6,7 +32,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060550.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060198.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060196.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060191.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060076.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060074.jpg" />
 </div>
 
 
@@ -169,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060073.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060046.jpg" />
 </div>
 
 
@@ -224,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060041.jpg" />
 </div>
 
 
@@ -250,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059900.jpg" />
 </div>
 
 
@@ -279,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059792.jpg" />
 </div>
 
 
@@ -305,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059791.jpg" />
 </div>
 
 
@@ -333,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1059681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1059681.jpg" />
 </div>
 
 
@@ -360,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1059680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1059680.jpg" />
 </div>
 
 
@@ -387,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059561.jpg" />
 </div>
 
 
@@ -413,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059558.jpg" />
 </div>
 
 
@@ -439,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059552.jpg" />
 </div>
 
 
@@ -465,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059548.jpg" />
 </div>
 
 
@@ -491,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1059480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1059480.jpg" />
 </div>
 
 
@@ -517,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1059479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1059479.jpg" />
 </div>
 
 
@@ -544,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1059473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1059473.jpg" />
 </div>
 
 
@@ -570,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059274.jpg" />
 </div>
 
 
@@ -596,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059267.jpg" />
 </div>
 
 
@@ -622,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059178.jpg" />
 </div>
 
 
@@ -648,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059144.jpg" />
 </div>
 
 
@@ -659,34 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7E81A4A028337BCDAB3172D3AB3C502370F723A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856817   (1059143) от 02.03.2026
-
-Тимур Садыков | Афганский казан. Лучшие рецепты (2025) [PDF, FB2, EPUB]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Откройте для себя волшебство приготовления блюд в афганском казане — сочных, ароматных, насыщенных, которое запомнятся надолго.
-
-В этой книге собраны лучшие рецепты для афганского казана: от мяса и овощей до плова и дымлямы. Теперь все знания и инструменты для создания кулинарных шедевров у вас под рукой! Пошаговые инструкции, полезные советы и проверенные сочетания (   Читать дальше...   )Жанр: Кулинарные рецептыИздательство: АСТФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47A70AC6A15D540C2A9606C9548310C35B53FC3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

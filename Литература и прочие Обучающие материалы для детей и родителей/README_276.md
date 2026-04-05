@@ -1,3 +1,56 @@
+###  Публикация: 1060736   (453081) от 08.10.2016
+
+Ханс Кристиан Андерсен | Сказки (2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Произведения великого Андерсена любят читать и дети, и взрослые. В книге, которую вы держите в руках, представлены самые красивые и самые интересные истории всемирно известного сказочника. Истории, которые учат самому прекрасному, любви и дружбе, счастью и радости, преданности и отваге. А великолепные иллюстрации, которыми оформлено издание, подарят истинное наслаждение (   Читать дальше...   )Жанр: Детская проза, сказкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68C4E9D23FC29D5F9C20C4C6D1E1B3A57FCBF08F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060900   (453080) от 08.10.2016
+
+Эмма Мошковская | Стихи и сказки для детей [9 книг] (1962-2012) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453080.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эмма Эфраимовна Мошковская (1926—1981) — советская детская писательница и поэтесса.
+Окончила музыкально-педагогическое училище имени Гнесиных (1954) по классу вокала, работала в Архангельской филармонии (меццо-сопрано). В начале творческого пути получила одобрение Самуила Маршака. В 1962 году выпустила первый сборник стихов для детей «Дядя Шар», за которым последовали (   Читать дальше...   )Жанр: Детская проза, СтихиФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A850C8FE157756E472EF8327983A4091E418059
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1060895   (453073) от 08.10.2016
 
 Владимир Сутеев | Все сказки К.Чуковского (2015) [PDF, DJVU]
@@ -6,7 +59,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453073.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452996.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452958.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452774.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452678.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452660.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452151.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451900.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451702.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451627.jpg" />
 </div>
 
 
@@ -273,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451604.jpg" />
 </div>
 
 
@@ -300,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451502.jpg" />
 </div>
 
 
@@ -326,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451451.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451307.jpg" />
 </div>
 
 
@@ -379,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451145.jpg" />
 </div>
 
 
@@ -405,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451139.jpg" />
 </div>
 
 
@@ -431,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450989.jpg" />
 </div>
 
 
@@ -457,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные материалы для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450830.jpg" />
 </div>
 
 
@@ -485,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450822.jpg" />
 </div>
 
 
@@ -511,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450789.jpg" />
 </div>
 
 
@@ -538,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449998.jpg" />
 </div>
 
 
@@ -566,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449690.jpg" />
 </div>
 
 
@@ -592,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449687.jpg" />
 </div>
 
 
@@ -620,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449686.jpg" />
 </div>
 
 
@@ -632,59 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB55056B17602C6ED2A0214953A64D0FF3D4EF4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569828   (449677) от 14.08.2022
-
-Лянсэ Фэнцзин | Волшебная экспресс-доставка. Судьба, распишитесь (2022) [FB2, EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юный Ся Итяо однажды обнаруживает, что обладает сверхспособностями, как у настоящего супергероя. Начав работать курьером, он стал доставлять неизвестные товары посреди ночи. Однажды Ся Итяо нечаянно обнаружил, что вещь, которую его просили доставить, оказалась таинственным пламенем – «Огнем жизни»… Возможно ли, что даже жизнь можно покупать и продавать? Сможет ли (   Читать дальше...   )Жанр: Детская литература, ФантастикаПеревод: Инна СиротинаФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E6DF268443D672D6511BC9A25720637C8392EC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569822   (449672) от 14.08.2022
-
-Д. Барри, К.Д. Ушинский, П. Стюарт, Э.А. Гранстрем | Читаем сами. «Эксмо» [5 книг] (2012-2020) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книги серии «Читаем сами» необходимы каждому дошкольнику и школьнику начальных классов для совершенствования техники чтения при переходе от чтения слогов к чтению целыми словами. Крупный шрифт оптимален для прочтения самим ребёнком. Слова с ударениями — выделение ударного слога помогает ребёнку избежать трудностей при определении места ударения.
-В серии собраны только (   Читать дальше...   )Жанр: Детская литература, СказкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7974F5677177BC765B3F67258CEEADA04EE98BC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

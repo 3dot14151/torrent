@@ -1,3 +1,134 @@
+###  Публикация: 1696394   (119743) от 02.02.2024
+
+Орион и Тьма / Orion and the Dark (2024) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мальчик с активным воображением сталкивается со своими страхами в незабываемом ночном путешествии со своим новым другом: гигантским улыбающимся существом по имени Дарк.Производство: Франция, США / DreamWorks Animation, Mikros AnimationЖанр: мультфильм, фэнтези, комедия, детектив, приключения, семейныйРежиссер: Шон ЧэрмэтцПеревод: отсутствуетЯзык озвучки: английскийСубтитры: русские, украинские, английские (forced, SDH) и др.Продолжительность: 01:32:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:192C9AEDA6A71DCE2506A818466336039EB2D95A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696378   (119742) от 02.02.2024
+
+Планета сокровищ / Treasure Planet (2002) WEB-DL [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119742.jpg" />
+</div>
+
+
+###  Подробнее
+
+16-летний Джим Хоукинс отправляется на поиски таинственной Планеты Сокровищ в компании настоящих космических пиратов. Под руководством корабельного кока, киборга Джона Сильвера, он становится умелым «космоплавателем» и не раз спасает космический галеон от самых серьезных опасностей: черных дыр, взрывов сверхновых и космических штормов.Производство: США / Walt Disney Animation Studios, Walt Disney PicturesЖанр: мультфильм, фантастика, приключения, семейныйРежиссер: Рон Клементс, Джон МаскерПеревод: дублированныйСубтитры: русские, английскиеПродолжительность: 01:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B84EC07ECF1DB928D6F0D6645B1359A4EE91D227
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696472   (119737) от 02.02.2024
+
+Орион и Тьма / Orion and the Dark (2024) WEB-DL [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мальчик с активным воображением сталкивается со своими страхами в незабываемом ночном путешествии со своим новым другом: гигантским улыбающимся существом по имени Дарк.Производство: Франция, США / DreamWorks Animation, Mikros AnimationЖанр: мультфильм, фэнтези, комедия, детектив, приключения, семейныйРежиссер: Шон ЧэрмэтцПеревод: дублированный (Videofilm Ltd.)Язык озвучки: русский, английскийСубтитры: русские (forced, full), украинские, английские (forced, full, SDH)Продолжительность: 01:32:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16C157D1D6354E38A01A9ECD324159E20490F6BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507300   (119723) от 02.02.2024
+
+Последний Мужик / Последний человек / LastMan (2016) WEB-DLRip (сезон 1, серии 1-26 из 26) NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Город Пакстаун контролируют мафия и гангстеры. Юный Ришар Алдана вырос на улицах города. Он любит бокс и всё свободное время посвящает тренировкам, но это едва позволяет ему сводить концы с концами. Не умея ничего, кроме как драться на ринге, Ришар решает принять участие в смертельном чемпионате по боевым искусствам Fist Fight Funeral Cup, по которому сходит с ума (   Читать дальше...   )Производство: Франция, Everybody on the Deck, Pinou ProductionsЖанр: Для взрослых, боевик, детектив, приключения, спорт, фэнтези, триллерРежиссер: Жереми ПеринАктеры: Тайлер Банч, Корин Уильямс, Марсаль Лемину, Маэлис Рикордо, Элисон Ли Розенфельд, Барбара Беретта, Мари Шевало, Черами Ли, Венсан Ропион, Майкл СинтерниклаасПеревод: Многоголосый профессиональный (NewStation)
+Присутствует ненормативная лексика!Продолжительность: ~00:11:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D492F2CBEFE9571FB6DEFDDDA73BFADD4D4D9F29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696153   (119702) от 02.02.2024
+
+Макросс Плюс / Macross Plus OVA (1994) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI] (1-4 серии из 4) MC Entertainment
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119702.jpg" />
+</div>
+
+
+###  Подробнее
+
+2040 год, планета Эдем. Пилот-сорвиголова Исаму Дайсон переводится на испытания нового истребителя и сталкивается со старым соперником Галдом Боуманом - тот пилотирует в конкурирующем проекте. Появление их бывшей девушки Мюн распаляет давний конфликт. Тем временем на планете стартует долгожданный концерт виртуальной суперзвезды Шэрон Эппл.Производство: Япония / Studio Nue, Triangle Staff, Bandai Visual, Shochiku FilmЖанр: аниме, мультфильм, фантастика, боевикРежиссер: Сёдзи Кавамори, Синъитиро ВатанабэПеревод: Многоголосый профессиональный (MC Entertainment)Язык озвучки: РусскийСубтитры: русскиеПродолжительность: ~00:38:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDBFA82E88C53300035469ED11CAC6564F352252
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696265   (119692) от 02.02.2024
 
 Могила светлячков / Hotaru no Haka / Grave of the Fireflies (1988) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
@@ -6,7 +137,7 @@
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119692.jpg" />
 </div>
 
 
@@ -34,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119691.jpg" />
 </div>
 
 
@@ -60,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119690.jpg" />
 </div>
 
 
@@ -86,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119670.jpg" />
 </div>
 
 
@@ -112,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119653.jpg" />
 </div>
 
 
@@ -138,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119638.jpg" />
 </div>
 
 
@@ -164,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119636.jpg" />
 </div>
 
 
@@ -190,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119595.jpg" />
 </div>
 
 
@@ -216,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119573.jpg" />
 </div>
 
 
@@ -242,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119555.jpg" />
 </div>
 
 
@@ -268,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119521.jpg" />
 </div>
 
 
@@ -294,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119368.jpg" />
 </div>
 
 
@@ -320,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119366.jpg" />
 </div>
 
 
@@ -346,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119275.jpg" />
 </div>
 
 
@@ -372,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119236.jpg" />
 </div>
 
 
@@ -398,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119231.jpg" />
 </div>
 
 
@@ -424,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119229.jpg" />
 </div>
 
 
@@ -450,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119208.jpg" />
 </div>
 
 
@@ -476,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119192.jpg" />
 </div>
 
 
@@ -502,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119191.jpg" />
 </div>
 
 
@@ -528,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119173.jpg" />
 </div>
 
 
@@ -539,136 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BFB49C4F9C1AC7E571ABE3982DF6D05BC4103EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696909   (119172) от 05.02.2024
-
-На старт! / Chage & Aska: On Your Mark (1995) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119172.jpg" />
-</div>
-
-
-###  Подробнее
-
-В будущем все заражено радиацией и люди живут в огромном защищенном мегаполисе. Полиция во время штурма здания, принадлежащего секте, находит девушку с крыльями ангела, но ученые тут же помещают ее в лабораторию под стражу. Но для двух полицейских, нашедших ее, это кажется неправильным и они пытаются ее спасти.Производство: Япония / Studio GhibliЖанр: аниме, мультфильм, короткометражка, фантастика, музыка, драма, приключенияРежиссер: Хаяо МиядзакиПеревод: Не требуется (нет диалогов и озвученных комментариев)Язык озвучки: Японский, АнглийскийСубтитры: русскиеПродолжительность: 00:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8EA3A1CC9B67C892EA589ACB029F288C8DA817C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697134   (119166) от 05.02.2024
-
-Хулиганка Тиэ / Jarinko Chie / Chie the Brat (1981) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пятикласснице Тиэ некогда корпеть над уроками, у нее есть заботы поважнее. Ей надо вести семейный бизнес – хозяйничать в маленькой распивочной-закусочной (жарить шашлыки, наливать саке, мыть посуду, принимать оплату и сверять баланс), а также приглядывать за отцом, великовозрастным разгильдяем, который только и горазд заключать идиотские пари, играть в карты да кости, (   Читать дальше...   )Производство: Япония / TMS Entertainment, Toho CompanyЖанр: аниме, мультфильм, комедия, семейныйРежиссер: Исао ТакахатаПеревод: Одноголосый любительский (Юки)Язык озвучки: Русский, ЯпонскийСубтитры: русскиеПродолжительность: 01:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABAABF6CFF243131CE9871A6B4C0FE3F6E97F58D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697487   (118781) от 07.02.2024
-
-Объяснялкины (2023) WEB-DLRip (1 сезон, серии 1-8 из 8)
-
->>Мультфильмы
->>Отечественные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семья, которая снимает образовательное шоу, подписывает контракт со стримингом, и согласно договору персонажи не могут стареть и умирать, а также должны жить в квартире пожилых родителей. Батёк, Мамуля, Дед и Бабуля в каждой серии отвечают на вопрос, который им задаёт Сынуля. Когда-то семья считала это шоу ламповым и получала удовольствие от съёмок, но теперь им (   Читать дальше...   )Производство: Россия, Nerds, Плюс СтудияЖанр: мультсериал для взрослых, кoмедия, рисованныйРежиссер: Евгений БлинниковАктеры: Дмитрий Сыендук, Виктория Зайцева, Полина Авдеенко, Егор Лоскутов, Александр Васильев, Александр Койгеров, Алексей Макрецкий, Валерий Чеботаев, Елизавета Чабан, Иван ЧабанПеревод: Не требуется (Русский)Продолжительность: 8 x ~ 00:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:371BCDB54B32A9E81810D319D007B44B53D430C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697477   (118779) от 07.02.2024
-
-Объяснялкины (2023) WEB-DL [H.264/1080p] (1 сезон, серии 1-8 из 8)
-
->>Мультфильмы
->>Отечественные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семья, которая снимает образовательное шоу, подписывает контракт со стримингом, и согласно договору персонажи не могут стареть и умирать, а также должны жить в квартире пожилых родителей. Батёк, Мамуля, Дед и Бабуля в каждой серии отвечают на вопрос, который им задаёт Сынуля. Когда-то семья считала это шоу ламповым и получала удовольствие от съёмок, но теперь им (   Читать дальше...   )Производство: Россия, Nerds, Плюс СтудияЖанр: мультсериал для взрослых, кoмедия, рисованныйРежиссер: Евгений БлинниковАктеры: Дмитрий Сыендук, Виктория Зайцева, Полина Авдеенко, Егор Лоскутов, Александр Васильев, Александр Койгеров, Алексей Макрецкий, Валерий Чеботаев, Елизавета Чабан, Иван ЧабанПеревод: Не требуется (Русский)Субтитры: Русские (Full)Продолжительность: 8 x ~ 00:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21C2FB653047D74A96E31FF8F9F682E243BD7871
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698299   (118684) от 08.02.2024
-
-Плохой кот / Kotu Kedi Serafettin / Bad Cat (2016) WEBRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кот Шерафеттин — смелый и ироничный, веселый и нелепый. А ещё очень независимый кот, который старается решать все свои проблемы самостоятельно. Часто из этого вырастает еще больше неприятностей.Производство: Турция / Anima Istanbul, Kare Kare Film YapimЖанр: мультфильм, фэнтези, боевик, комедия, приключенияРежиссер: Мехмет Куртулуш, Айше УналАктеры: Угур Юджель, Демет Эвгар, Окан Ялабык, Гювен Кырач, Гёкче Озиоль, Ахмет Мюмтаз Тайлан, Йекта Копан, Айшен Груда, Джезми Баскын, Озан КуртулушПеревод: Дублированный (Back Board Cinema)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:22:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75318365157B9A2675E9133F63F4944093B0EC70
 ```
 
 https://mybot314.ru/tekegram_catalog/

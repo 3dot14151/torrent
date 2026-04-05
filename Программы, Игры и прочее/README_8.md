@@ -1,3 +1,108 @@
+###  Публикация: 1849905   (1054022) от 25.01.2026
+
+ТВ+ Эфир: Цифровое телевидение v4.2.9 Mod by vadj [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054022.jpg" />
+</div>
+
+
+###  Подробнее
+
+TV+: Бесплатное Онлайн Телевидение
+Погрузитесь в мир бесплатного онлайн телевидения с приложением TV+. Насладитесь основными российскими телеканалами в HD качестве, а также региональным цифровым ТВ прямо на вашем телефоне. С TV плюс вы всегда на связи с любимыми передачами и шоу!Тип издания: ModРелиз состоялся: 25.01.2026Разработчик: Лайм Эйч ДиПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81B94FA697F94B6149D1F1D1F89E997C27DF6370
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849678   (1053926) от 25.01.2026
+
+Win 11 Launcher v9.38 Mod by vadj [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам наскучил пользовательский интерфейс Android и вы хотите насладиться лаунчером в стиле Windows на своем Android? Нет, подожди сейчас. Win 11 и Win 10 Launcher здесь для вас (вдохновленный ОС Win 11 и Win 10). Настройте свой телефон с уникальным внешним видом с помощью быстрой, чистой и энергоэффективной программы запуска. Удивите своих друзей новым внешним видом (   Читать дальше...   )Тип издания: ModРелиз состоялся: 22.01.2026Разработчик: Spark PlanetПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22A339E1518F3EC3E3114FF75CE4F614C8CA947C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849892   (1053877) от 25.01.2026
+
+EOBD Facile: OBD 2 авто сканер v3.82.1145 Mod by derrin [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053877.jpg" />
+</div>
+
+
+###  Подробнее
+
+EOBD Facile - автосканер обд2 последнего поколения с технологией Bluetooth. С адаптером ELM327 ты становишься обладателем автомобильного сканера ODB! Загорелся индикатор проверки двигателя? Запусти диагностику OBD2 на своем смартфоне, чтобы выяснить причину включения значка чека - и не нужно ехать к механику на диагностику! Подключай устройство для автодиагностики (   Читать дальше...   )Тип издания: PlusРелиз состоялся: 29.09.2025Разработчик: Outils OBD FacileПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED11F43EAC7F68053E0DE9FB7D8EF51654E30150
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849890   (1053876) от 25.01.2026
+
+Auto Reply: автоответчик v6.5 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшой и удобный автоответчик, поддерживающий работу с Facebook, WhatsApp и Skypе. Позволяет создавать шаблоны ответных сообщений и  отвечать  в групповые чаты. Поддерживает фильтрацию по контактам. Включите автоматический ответ одним касанием, нет необходимости устанавливать сложные требования. Автоответчик отправляет автоматический ответ всем, кто обращается к (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 24.01.2026Разработчик: TechInnate SolutionsПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCD20C955626114A3922640A6ADA8B08ED92FC6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849888   (1053869) от 25.01.2026
 
 Taskito v1.1.8 Mod by Alex.Strannik [Ru/Multi]
@@ -6,7 +111,7 @@ Taskito v1.1.8 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053869.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ Grok - ИИ ассистент v1.1.10-release.00 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053860.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ Ventusky: Прогноз погоды v50.3 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053859.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053858.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053712.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ MiX Camera 9.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053682.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ Happy Color® – игра раскраска v2.21.6 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053681.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053665.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ Jigsawscapes® - Пазлы v5.0.2 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053664.jpg" />
 </div>
 
 
@@ -240,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053641.jpg" />
 </div>
 
 
@@ -266,7 +371,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v26.3.5 Mod b
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053634.jpg" />
 </div>
 
 
@@ -292,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053633.jpg" />
 </div>
 
 
@@ -318,7 +423,7 @@ English Galaxy v2.3.7 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053617.jpg" />
 </div>
 
 
@@ -344,7 +449,7 @@ Simple PDF Reader \ Простой PDF Reader v1.0.98 Mod by Alex.Strannik [Ru/E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053616.jpg" />
 </div>
 
 
@@ -370,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053612.jpg" />
 </div>
 
 
@@ -396,7 +501,7 @@ Jewel Legend: игра три в ряд v3.21.1 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053611.jpg" />
 </div>
 
 
@@ -424,7 +529,7 @@ WaveStudio (WaveEditor Record & Edit Audio) v1.128 Mod by Alex.Strannik [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053610.jpg" />
 </div>
 
 
@@ -451,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053577.jpg" />
 </div>
 
 
@@ -479,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053574.jpg" />
 </div>
 
 
@@ -505,7 +610,7 @@ AIDA64 v2.17 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053573.jpg" />
 </div>
 
 
@@ -531,7 +636,7 @@ Xiaomi Home (Ранее. MiHome) v11.0.622 fix
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053388.jpg" />
 </div>
 
 
@@ -557,7 +662,7 @@ Call Filter / Фильтр Звонков v1.30.5 Mod by Viktor245 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053117.jpg" />
 </div>
 
 
@@ -568,110 +673,6 @@ Call Filter / Фильтр Звонков v1.30.5 Mod by Viktor245 [Ru/En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1A824C2F5746D9F9C0BFD2A0942F73CC5852701
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848688   (1053115) от 18.01.2026
-
-Узлы 3D / Knots 3D v10.7.0 Paid [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Завязывайте, развязывайте и вращайте пальцем более 190 узлов в 3D! Наше популярное 3D-приложение Knots 3D позволит вам взглянуть на узлы совершенно по-новому! Берите кусок веревки и развлекайтесь!Тип издания: Paid / FullРелиз состоялся: 07.01.2026Разработчик: Nynix LLCПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F50031E2D691587882E8FA60BC2B9696B0F0B925
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848653   (1053100) от 18.01.2026
-
-МДС | Модель для Сборки - аудиокниги v20.4 Mod by Alex.Strannik [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053100.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Модель для сборки» (сокращённо МДС) - культовая российская радиопередача. Одно из самых известных радиошоу в сегменте авторских программ. Впервые начала выходить на радио в 1995 году. МДС - радиопостановки произведений современной прозы в сопровождении электронной музыки. Приложение является каталогом крупнешего архива МДС mds-club.ru от фанатов с расширенными возможностями: (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 17.01.2026Разработчик: Anton BalashovПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65D659003B4AC979D3C514613559B7939B2208E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848655   (1053099) от 18.01.2026
-
-Magic Eraser / Магический ластик v2.25.11 Mod by Maximoff⁠ [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Magic Eraser - это революционное приложение для редактирования фотографий, созданное для трансформации ваших фотографий в великолепные визуальные образы с помощью профессиональных инструментов редактирования. Используя мощь интеллектуального искусственного интеллекта, это приложение предлагает широкий спектр функций, которые подойдут как любителям фотографии, так (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 18.01.2026Разработчик: AI Photo Editor & AI Art GeneratorПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C41F448FCDE3CEBDD5793402C037BCC3F4FC2D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848447   (1052988) от 17.01.2026
-
-Logic Circuit Simulator Pro / Симулятор Логической Схемы v39.0.1 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Logic Circuit Simulator PRO предоставляет вам место для разработки собственной цифровой схемы. Хотите понять, как работает электроника? Приложение поможет вам изучить основы электроники и электротехники. Создавайте удивительные логические схемы со всеми предоставленными логическими элементами. Используйте различные элементы, чтобы развиваться, экспериментировать (   Читать дальше...   )Тип издания: ProРелиз состоялся: 15.01.2026Разработчик: Stefan BelinovПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D6B60AE0D6399697CA3370AF80BF84B014D2337
 ```
 
 https://mybot314.ru/tekegram_catalog/

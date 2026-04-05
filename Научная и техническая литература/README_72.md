@@ -1,134 +1,3 @@
-###  Публикация: 974469   (974462) от 13.01.2016
-
-Валерий Шаров | Приглашение в космос (2003) [FB2, EPUB, PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга — попытка осознания нового, космического этапа развития человечества, который начался в апреле 1961 года. Автор, испытавший все прелести и сложности подготовки к космическому полёту, рассказывает об этом так, что каждый может примерить её на себя.
-Кроме того, в ней приоткрывается завеса над наиболее экстремальными происшествиями во время советских космических (   Читать дальше...   )Жанр: Биографии и мемуарыФормат: FB2, EPUB, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5C2D5851308813B7623AC5CAEB050FC7DF4D601
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974615   (974413) от 13.01.2016
-
-Юрий Мизун | Биопатогенные зоны и здоровье (1998) [PDF, DJVU]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор книги - директор Института медико-экологических проблем Севера Российской Академии медицинских наук - более 30 лет занимается вопросами влияния космоса на биосферу и здоровье людей. В данной книге приводится своего рода самоучитель, по которому вы сможете не только определить биопатогенные зоны, но и научитесь контролировать их положение. Таким образом вы получите (   Читать дальше...   )Жанр: Нетрадиционная медицина, БиоэнергетикаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:668ADFE332EF6743E6BF97C514CE815B27051909
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974604   (974411) от 13.01.2016
-
-Баир Иринчеев | Танки в Зимней войне (2013) [PDF, DJVU, FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Много споров до сих пор бурлит вокруг советско-финской войны, известной также как "Зимняя". Много мифов связано с ней. Один из них - о советских танках, совершенно бездарно и беспомощно потерянных в бескрайних снегах Карельского перешейка и в огромном количестве доставшихся Финляндии в качестве трофеев. Каким образом всё обстояло на самом деле, и как действовала (   Читать дальше...   )Жанр: Военная историяФормат: PDF, DJVU, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44EAD8583EFABC1071E9831FBBF1BC4F0A11375E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974684   (974408) от 13.01.2016
-
-Б.С. Гегечкори, А.А. Кладь, Т.Н. Дорошенко | Практикум по плодоводству (лабораторно-практические занятия) (2008) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974408.jpg" />
-</div>
-
-
-###  Подробнее
-
-Практикум рассчитан на активное освоение основ дисциплины, приобретение навыков самостоятельного выполнения основных видов работ на коллекционном участке, в саду, в учебной аудитории, а также с помощью специальной литературы. Задания практикума построены с учетом принципа наглядности для того, чтобы студенты после кратких объяснений преподавателя и под его руководством (   Читать дальше...   )Жанр: Сельское хозяйствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:394CF3586BA9699E5A36FCAB7413A83927975EEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974613   (974398) от 13.01.2016
-
-Б. Блейк Левитт | Защита от электромагнитных полей (2007) [PDF, DJVU]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974398.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поскольку нашу повседневную жизнь невозможно представить без электричества, то ее невозможно представить и без электромагнитных полей. Однако последние исследования подтверждают то, о чем уже давно говорят защитники окружающей среды – эти вездесущие поля могут создавать проблемы для нашего здоровья, систем жизнеобеспечения и развития городских сообществ. Эта удивительная (   Читать дальше...   )Жанр: ЗдравоохранениеПеревод: Ю. СусловФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52EF2D629C556B1503E4FE70B71C8914EF39FCE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357309   (974390) от 03.02.2020
 
 Г. М. Фридлендер | Лессинг. Очерк творчества (1957) [DJVU]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974390.jpg" />
 </div>
 
 
@@ -165,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974360.jpg" />
 </div>
 
 
@@ -191,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974356.jpg" />
 </div>
 
 
@@ -218,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974282.jpg" />
 </div>
 
 
@@ -244,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974280.jpg" />
 </div>
 
 
@@ -270,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974217.jpg" />
 </div>
 
 
@@ -296,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974213.jpg" />
 </div>
 
 
@@ -322,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974180.jpg" />
 </div>
 
 
@@ -348,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974111.jpg" />
 </div>
 
 
@@ -374,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974046.jpg" />
 </div>
 
 
@@ -400,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973513.jpg" />
 </div>
 
 
@@ -427,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973330.jpg" />
 </div>
 
 
@@ -453,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973085.jpg" />
 </div>
 
 
@@ -479,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973030.jpg" />
 </div>
 
 
@@ -505,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972997.jpg" />
 </div>
 
 
@@ -532,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972957.jpg" />
 </div>
 
 
@@ -558,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972489.jpg" />
 </div>
 
 
@@ -584,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972481.jpg" />
 </div>
 
 
@@ -610,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972418.jpg" />
 </div>
 
 
@@ -637,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972399.jpg" />
 </div>
 
 
@@ -666,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972348.jpg" />
 </div>
 
 
@@ -678,6 +547,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E02F77A98DA00A4BB7E6F7A9D85A2D63EBB5A76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975265   (972178) от 15.01.2016
+
+Н. Н. Яковлев | Война и мир по-американски: традиции милитаризма в США (1989) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972178.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге известного советского ученого, доктора исторических наук, профессора Н. Н. Яковлева рассказывается о силах, выступающих против нормализации советско-американских отношений, против утверждения нового мышления в международной политике. Читатели познакомятся с историей войн, развязанных милитаристскими кругами США, с современной американской военной доктриной.Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DBE052D23488E79A61C19D3B4511C786A53D1BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975298   (972104) от 15.01.2016
+
+Аристотель | Афинская полития (1937) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972104.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Афинская полития" один из важнейших первоисточников для изучения истории древней Греции классического периода. Книга является пособием для семинарских занятий на истфаках университетов и институтов.Жанр: История, философия, политологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8BB826DCEE520B8A3C885E6D0484D1CF8CC5332
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975262   (972031) от 15.01.2016
+
+Ф. Энгельс | Анти-Дюринг. Переворот в науке, произведенный господином Евгением Дюрингом (1988) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Ф. Энгельса «Анти-Дюринг» была написана в защиту марксистской теории от нападок мелкобуржуазного идеолога Е. Дюринга, взгляды которого разделяли некоторые представители германской социал-демократии. В книге раскрываются три составные части марксизма: диалектический и исторический материализм, политическая экономия и теория научного коммунизма. «Анти-Дюринг» (   Читать дальше...   )Жанр: История, политология, философия, науковедениеФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A53163DAC64143F7B55D31A58E0E8E8043A26BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975346   (972026) от 15.01.2016
+
+М. А. Киссель | Философская эволюция Ж.-П. Сартра (1976) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972026.jpg" />
+</div>
+
+
+###  Подробнее
+
+В монографии рассматриваются основные этапы творческого пути Ж.-П.Сартра, философа, писателя, публициста, литературного критика. В настоящее время Сартр стал одним из главных идеологов "новых левых" - экстремистского течения, противопоставляющего себя мировому коммунистическому движению и смыкающегося с маоизмом. "Неомарксизм" Сартра, служащий (   Читать дальше...   )Жанр: История, философия, политологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DAFB317967F906BB680FE031295A92DD24AA22B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975302   (972022) от 15.01.2016
+
+Л. И. Пономарев | Под знаком кванта (1989) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Квантовая физика — самое выдающееся открытие XX века. Практически ни одно глубокое явление природы невозможно понять и объяснить без квантовых идей. Цель книги — познакомить читателя-неспециалиста с основными фактами квантовой физики и историей их открытия. Ярко и образно, достаточно строго, но вполне доступно автор рассказывает об эволюции идей и понятий современной (   Читать дальше...   )Жанр: История, науковедение, естествознание, физика, математикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C54E8F114E4D7135DF66CAC0B752A5EB843D580
 ```
 
 https://mybot314.ru/tekegram_catalog/

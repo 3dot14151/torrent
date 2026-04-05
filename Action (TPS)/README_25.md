@@ -6,7 +6,7 @@ Saints Row: Gat out of Hell (2015) [Ru/Multi] (1.0/dlc/upd2) Repack R.G. Мех�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480830.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ THE UNCLEARNESS (2019) [En] (1.0) License HOODLUM
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480590.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Hellblade: Senua's Sacrifice (2017) [Ru/Multi] (1.01.1) SteamRip R.G. Origins
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479748.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Zombie Shooting Star (2022) [Multi] (1.0) License TiNYiSO [16+]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475883.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ The Last DeadEnd (2018) [Ru/Multi] (1.1) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475436.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ TRON: Evolution: The Video Game / ТРОН: Эволюция [Ru/En] (RePack) 20
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473350.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Tomb Raider: Underworld (2008) [Ru] (1.1) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472591.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ The Inner Friend (2018) [Multi] (1.0) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471572.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Max Payne 3 (2012) [Ru/En] (1.0.0.196) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471124.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ I.G.I. Дилогия [Ru/En] (Rip/RePack/1.0-1.2) 2000-2003 | R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471103.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Teenage Mutant Ninja Turtles: Out of the Shadows (2013) [Ru/En] (1.0.8767.0) ReP
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468983.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ The Amazing Spider-Man / Новый Человек-паук [Ru/En/Multi6] (RePa
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468540.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Unaided: 1939 (2016) [En] (1.0.1 hotfix) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467858.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ The Evil Within (2014) [Ru/Multi] (1.05/dlc) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467147.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Hybrid Wars (2016) [Ru/Multi] (4.51.9929) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465664.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Dead Rising 4 (2017) [Ru/Multi] (1.0/upd4/dlc) R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465051.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Inversion [Ru/En] (Repack/1.0.u1) 2012 | R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461661.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Haydee (2016) [Ru/En] (1.01) Repack GAMER
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461268.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Max Payne 3 (2012) [Ru/Multi] (1.0.0.196) SteamRip Let'sPlay [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461265.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Castlevania: Lords of Shadow 2 (2014) [Ru/Multi] (1.0.0.1/4dlc) Repack R.G. Reve
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459591.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Necromunda: Underhive Wars (2020) [Ru/Multi] (1.0.4.1) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459399.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Quantum Break (2016) [Ru/En] (1.0.118.7029) Repack Dok2
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459030.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Darksiders 2 (2015) [Ru/Multi] (2.1.0.4/dlc) Repack xatab [Deathinitive Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458680.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Zanzarah: The Hidden Portal / Zanzarah: В поисках затерянной �
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456852.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Samurai Warriors 4-II (2015) [En] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454971.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Ultimate Spider-Man [Ru/En] (Repack) 2005 | R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454382.jpg" />
 </div>
 
 

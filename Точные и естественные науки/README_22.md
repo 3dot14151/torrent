@@ -1,3 +1,81 @@
+###  Публикация: 944888   (435991) от 09.10.2015
+
+Сергей Вавилов | Глаз и Солнце (2015) [FB2]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга «Глаз и Солнце», созданная выдающимся ученым, академиком С. И. Вавиловым (1891–1951), стала классикой научно-популярной литературы. В ней представлена история изучения света, рассказано об устройстве человеческого глаза и свойствах излучения Солнца. Дополняют книгу тексты знаменитого физика Г. Г. Слюсарева, а также суждения мыслителей прошлого – Р. Декарта, (   Читать дальше...   )Жанр: ФизикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6D86464CE67D58E6E4860A6C1D7544D162F780E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945730   (431732) от 11.10.2015
+
+Луи де Бройль | По тропам науки (1962) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431732.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге «По тропам науки» Луи де Бройль рассматривает сложные и актуальные проблемы современной науки, представляющие большой интерес для всех, кто интересуется развитием современных физических представлений о строении материи, об ее свойствах, об «элементарных частицах» и т. д.Жанр: История, физика, науковедениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC8C931559A5D4B942CE0B0010357A8A60973429
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410858   (431634) от 23.09.2020
+
+Р.Е. Пайерлс | Законы природы (1962) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Р. Е. Пайерлса «Законы природы» представляется нам в своем роде уникальной. Если по отдельным частным проблемам современной физики и существуют популярные книги, хоть и в небольшом количестве, то такой книги, которая давала бы в популярной форме представление о всей современной физике, до сих пор не было. Настоящая книга, написанная известным английским физиком-теоретиком (   Читать дальше...   )Жанр: История, науковедение, физикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88190E8C93972FBFF8A5CCC35A1713E5831E7D53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063484   (427917) от 19.10.2016
 
 Арнольд Ньюмен | Легкие нашей планеты (1989) [PDF]
@@ -6,7 +84,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427917.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426708.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426696.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423609.jpg" />
 </div>
 
 
@@ -115,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421315.jpg" />
 </div>
 
 
@@ -143,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421130.jpg" />
 </div>
 
 
@@ -171,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421120.jpg" />
 </div>
 
 
@@ -200,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418455.jpg" />
 </div>
 
 
@@ -228,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417901.jpg" />
 </div>
 
 
@@ -255,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417833.jpg" />
 </div>
 
 
@@ -281,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416486.jpg" />
 </div>
 
 
@@ -307,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413338.jpg" />
 </div>
 
 
@@ -333,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409444.jpg" />
 </div>
 
 
@@ -359,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408153.jpg" />
 </div>
 
 
@@ -385,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408151.jpg" />
 </div>
 
 
@@ -411,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408145.jpg" />
 </div>
 
 
@@ -437,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408055.jpg" />
 </div>
 
 
@@ -466,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408051.jpg" />
 </div>
 
 
@@ -492,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407065.jpg" />
 </div>
 
 
@@ -518,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394785.jpg" />
 </div>
 
 
@@ -544,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387392.jpg" />
 </div>
 
 
@@ -572,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387391.jpg" />
 </div>
 
 
@@ -598,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382843.jpg" />
 </div>
 
 
@@ -609,87 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E83C294AAFA3C89896F9F783237640D09B967406
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068120   (382659) от 31.10.2016
-
-В. Бэльше | Происхождение человека (1908) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемая книжка обращается к возможно более широким кругам ,— к тем, которым остается неизвестной масса превосходных, но гораздо более пространных новейших сочинений по научному языку. Она написана так сжато, что может быть прочтена в какой-нибудь один свободный час; но, я думаю, что изложенных в ней фактов достаточно на несколько часов серьезного размышления. (   Читать дальше...   )Жанр: История, науковедение, естествознание, биология, антропологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B14C94014ADBFB697B6FF532E11F79FD55A6B9D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068007   (382495) от 31.10.2016
-
-И. Я. Депман | Из истории математики (1950) [DJVU, PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вниманию читателей предлагается книга известного отечественного педагога и историка математики И.Я . Денмана (1885-1970), в которой описывается, как возникли и развивались основные разделы и понятия начальной математики. В книге рассказано о зарождении математики у древнейших народов - вавилонян, египтян, индусов; дана картина математических знаний у армян, народов (   Читать дальше...   )Жанр: История, науковедение, математика, педагогика, арифметика, алгебра, геометрияФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CA486A2A25A293625660130AA1CD603A60E1929
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067992   (382226) от 31.10.2016
-
-Э. Геккель | Красота форм в природе (1899-1904) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382226.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Красота форм в природе» — литографическая книга немецкого биолога Эрнста Геккеля. Первоначально публиковалась в период с 1899 по 1904 годы в комплектах по 10 оттисков, полная версия из 100 оттисков вышла в 1904 году.
-
-Второе издание книги, которое содержало лишь 30 оттисков, вышло в 1924 году.
-(   Читать дальше...   )Жанр: История, науковедение, естествознание, экологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AA717B2202A961DAC564D766255BBF753444E66
 ```
 
 https://mybot314.ru/tekegram_catalog/

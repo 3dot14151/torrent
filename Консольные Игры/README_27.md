@@ -6,7 +6,7 @@
 >>PSP
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624178.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ RAGE 2 (2019) [PS4] [EUR] 5.05 [HEN] [License / 1.09 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623321.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ MotoGP 15 (2015) [PS3] [EUR] 3.40 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623182.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Steredenn (2017) [PS3] [EUR] 3.41 [PSN] [Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623175.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Zeno Clash 2 [XBOX360] [En/Ru] [XBLA] [Freeboot] (2013)
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_621597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_621597.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Caladrius Blaze (2014) [PS3] [JPN] 3.40 [Cobra ODE / E3 ODE PRO ISO] [Unofficial
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621358.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ NHL 15 (2014) [PS3] [EUR] 3.40 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621344.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Ever Oasis (2017) [3DS] [EUR] [CIA] [Unofficial] [Multi]
 >>Ромы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621325.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621237.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Deus Ex: Human Revolution - Director's Cut (2013) [PS3] [EUR] 4.46 [Cobra ODE / 
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620307.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Silent Hill: Shattered Memories (2010) [PS2] [NTSC] [Unofficial] [Ru/En]
 >>PS2
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619197.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Binary Domain (2012) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617353.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616452.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Crysis 3 Remastered (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.01] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616007.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Retro City Rampage DX (2014) [PS3] [USA] 4.21 [Cobra ODE / E3 ODE PRO ISO] [PSN]
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615643.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Chasing Dead (2016) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Ru/Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615083.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Grand Theft Auto: San Andreas HD (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614883.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Don't Starve: Giant Edition (2015) [PS3] [USA] 4.21 [Cobra ODE / E3 ODE PRO ISO]
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613738.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Warriors: Legends of Troy (2011) [PS3] [EUR] 3.56 [Cobra ODE / E3 ODE PRO ISO] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613125.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ The Amazing Spider-Man 2 / Новый Человек-Паук 2 (2014) [PS3][EUR
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613017.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ J-Stars Victory VS Plus (2015) [PS3] [EUR] 3.40 [Cobra ODE / E3 ODE PRO ISO] [Un
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612111.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Bionic Commando (2009) [PS3] [EUR] 2.60 [Cobra ODE / E3 ODE PRO ISO] [Unofficial
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612097.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ History Legends of War: Patton (2012) [PS3] [USA] 4.25 [Cobra ODE / E3 ODE PRO I
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610299.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608870.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Ni no Kuni: Wrath Of The White Witch (2013) [PS3] [USA] 4.82 [OFW / HAN] [Repack
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608301.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606994.jpg" />
 </div>
 
 

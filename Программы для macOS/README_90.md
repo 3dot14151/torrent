@@ -1,3 +1,55 @@
+###  Публикация: 1567521   (472363) от 03.08.2022
+
+Eon Timer 2.9.1 U2B [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой в использовании Time Tracking для Mac с чистым интуитивно понятным интерфейсом. Следите за временем для всего вашего проекта в одном месте, а затем отправляйте его в свой онлайн-сервис, если хотите.Тип издания: macOS SoftwareРелиз состоялся: 03.08.2022Разработчик: © 2011-22 Charlie Monroe Software, s.r.o.Поддерживаемая ОС: macOS 10.12 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A649D0C73A19260F901C57212F9DC890AA52372
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567620   (472251) от 03.08.2022
+
+Klokki 1.3.6 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Klokki - это отслеживание времени на основе правил, которое автоматически запускает / приостанавливает таймер. Автоматизация основана на правилах, которые вы настраиваете, и это дает вам полный контроль над тем, что следует отслеживать, а что нет.Тип издания: macOS SoftwareРелиз состоялся: 05.07.2022Разработчик: © 2022 Klokki byStas MoorПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6994D67C6CB816789EC4AE8E8BEC860E1113FB40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1567490   (472223) от 03.08.2022
 
 Athentech Perfectly Clear QuickDesk & QuickServer v4 4.1.2 [Multi/ Rus]
@@ -6,7 +58,7 @@ Athentech Perfectly Clear QuickDesk & QuickServer v4 4.1.2 [Multi/ Rus]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472223.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Disk Graph 2.4.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472120.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ LightWeaver 1.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471774.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ Face4Pass 1.18 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470824.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ SessionRestore for Safa3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470319.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ The Archive Browser 1.10.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466862.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ PhoneClean Pro 3.8.0 (20150921) [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466143.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ MainMenu Pro 3.5.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466081.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ iStopMotion 3.8.1 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465815.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ BookReader 5.8 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465774.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ Stationery Set for Pages 4.0.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464291.jpg" />
 </div>
 
 
@@ -302,7 +354,7 @@ Inspiration Set for Pages 4.0.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464150.jpg" />
 </div>
 
 
@@ -331,7 +383,7 @@ Disk Mounter 1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464040.jpg" />
 </div>
 
 
@@ -360,7 +412,7 @@ DxO ViewPoint 2.5.17 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463874.jpg" />
 </div>
 
 
@@ -387,7 +439,7 @@ Set for MS Office 3.0.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463699.jpg" />
 </div>
 
 
@@ -413,7 +465,7 @@ Money  4.7.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461963.jpg" />
 </div>
 
 
@@ -439,7 +491,7 @@ PulpMotion Advanced 3 3.6.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461723.jpg" />
 </div>
 
 
@@ -465,7 +517,7 @@ SpyCam 3.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461639.jpg" />
 </div>
 
 
@@ -491,7 +543,7 @@ Flinto 23.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460925.jpg" />
 </div>
 
 
@@ -518,7 +570,7 @@ Sketch 51.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460904.jpg" />
 </div>
 
 
@@ -545,7 +597,7 @@ Poedit Pro 1.8.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459714.jpg" />
 </div>
 
 
@@ -572,7 +624,7 @@ Super PhotoCut 2.0.8 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459530.jpg" />
 </div>
 
 
@@ -598,7 +650,7 @@ Monity 1.4.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459302.jpg" />
 </div>
 
 
@@ -627,7 +679,7 @@ Video Uploader for YouTube 3.0.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459067.jpg" />
 </div>
 
 
@@ -641,58 +693,6 @@ Video Uploader for YouTube 3.0.3 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EAC62EAE8A13A2D303D86C301B0803C11AA61B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162352   (458878) от 01.09.2017
-
-IINA 0.0.12 [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный проигрыватель с открытым исходным кодом и современным дизайном, который способен удовлетворить даже самых требовательных пользователей и стать полноценной заменой VLC. Старый добрый VLC хоть и вполне справляется со своими задачами, но в последних версиях macOS выглядит уже откровенно устаревшим. В этом плане у IINA есть сразу несколько преимуществ: проигрыватель (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.07.2017Разработчик: Collider LIПоддерживаемая ОС: OS X 10.10 or later (macOS 10.12 recommended)Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2112CA445E3003E092E60ADFC72B1D2AD0D5C6F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060169   (457401) от 06.10.2016
-
-CrossFTP Enterprise 1.97.8 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457401.jpg" />
-</div>
-
-
-###  Подробнее
-
-CrossFTP - простой FTP-клиент с поддержкой протоколов: Amazon S3, FTP, SFTP, FXP, WebDAV и облачные хранилища. Приложение использует стандартный интерфейс, с делением основного окна программы на две части. Программа имеет мульти вкладки, которые упрощают навигацию. В целом, функционал CrossFTP не сильно отличается от функционала аналогичных программ. Вы сможете просматривать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.09.2016Разработчик: CrossFTP SoftwareПоддерживаемая ОС: macOS 10.7 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70C1127775895F5EF07A181F2BD7B240465B7F5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

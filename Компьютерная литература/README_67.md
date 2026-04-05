@@ -1,166 +1,3 @@
-###  Публикация: 1566350   (483963) от 28.07.2022
-
-Тимур Машнин | Основы программирования с Java (2022) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга предназначена для всех, кто хочет изучить основы программирования с использованием языка Java.
-Эта книга даст понимание основных элементов программирования на Java и абстракции данных с использованием объектно-ориентированного подхода. С этой книгой Вы научитесь писать программы с использованием переменных, массивов, управляющих операторов, циклов, рекурсии, (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:956A63019A14B16F118964A28017E230215DBBBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545426   (482142) от 11.09.2012
-
-Адам Фримен, Стивен Сандерсон | ASP.NET MVC 3 Framework с примерами на C# для профессионалов, третье издание , третье издание [2012] [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая платформа ASP.NET MVC обеспечила радикальный сдвиг в разработке веб-приложений на платформе Microsoft. В ней делается упор на ясную архитектуру, шаблоны проектирования и тестируемость, и не предпринимается попыток сокрытия того, как работает веб-среда.
-Первая часть книги призвана помочь в общих чертах разобраться в фундаментальных идеях, положенных в 0CH0ByASP.NET MVC 3, и ознакомиться с практическим применением этой платформы.
-
-В части II этой книги будут показаны все необходимые детали. Мы начнем с исследования структуры приложения ASP.NET MVC и конвейера обработки запросов в приложении. После этого мы сосредоточим внимание на отдельных аспектах, таких как маршрутизация , контроллеры и действия , система представлений MVC и способ работы MVC с моделями предметной области. В последних двух главах этой части мы покажем, как использовать в приложениях MVC технологии AJAX и jQuery.
-
-В оставшихся трех главах показано, как разработчик ASP.NET MVC 3 может избежать типичных проблем с безопасностью и развернуть (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D426200A3B8EBBEE272CCA8B2D0074908FDD476F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566441   (482069) от 29.07.2022
-
-Дави Педро Бауэр | Начало работы с Ethereum: Пошаговое руководство, как стать разработчиком блокчейна (2022) [PDF, DJVU]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная книга является пошаговым руководством по разработке блокчейна Ethereum. Читатель глава за главой пройдет весь путь от установки необходимого программного обеспечения до написания, тестирования и развертывания смарт-контрактов. «Начало работы с Ethereum» посвящено технологиям, наиболее тесно связанным с Ethereum, таким как IPFS, Filecoin, ENS, Chainlink, Truffle, (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26A3158C4C6E1DD360CEF34FDC318D3B8C544B09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566438   (482055) от 29.07.2022
-
-Кати Фислер и др. | Введение в программирование и структуры данных (2022) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482055.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге представлены полезные методы программирования, имеющие практическую ценность. Опираясь на свой многолетний опыт, авторы показывают, как написать надежный код, который смогут читать другие разработчики. Основной принцип обучения - составление плана решения: от определения структур данных по условиям поставленной задачи через примеры и тесты к написанию программного (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2A2980BEB4B02BBF3DA02519D02FF11A4626B4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405730   (480497) от 31.08.2020
-
-Денис Колисниченко | Секреты безопасности и анонимности в Интернете (2021) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Даже новички знают, что вычислить любого пользователя в Интернете совсем несложно. Книга рассказывает, как скрыть свое местонахождение и IP-адрес, используя анонимные сервисы и сеть Tor, посетить заблокированные администратором сайты, защитить личную переписку, домашние устройства и беспроводную сеть.
-Рассматриваются способы предотвратить утечку персональных данных, (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6D34169D581A2E213B0ECB42B21299C03F7A413
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565524   (479964) от 30.07.2022
-
-Бен Форта | SQL за 10 минут, 5-е издание (2021) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479964.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге SQL за 10 минут предлагаются простые и практичные решения для тех, кто хочет быстро получить результат. Проработав все 22 урока, на каждый из которых придется затратить не более 10 минут, вы узнаете обо всем, что необходимо для практического применения SQL. Приведенные в книге примеры подходят для IBM DB2, Microsoft Access, Microsoft SQL Server, MySQL, Oracle, (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2CD869BF3E38ED9FC660BDA3788B92739644654
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 546369   (479902) от 12.09.2012
 
 Р. Петелин, Ю. Петелин | Steinberg Cubase 5. Запись и редактирование музыки [2010] [PDF]
@@ -169,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479902.jpg" />
 </div>
 
 
@@ -195,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478267.jpg" />
 </div>
 
 
@@ -221,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478065.jpg" />
 </div>
 
 
@@ -247,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477737.jpg" />
 </div>
 
 
@@ -275,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476840.jpg" />
 </div>
 
 
@@ -301,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476809.jpg" />
 </div>
 
 
@@ -327,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476670.jpg" />
 </div>
 
 
@@ -353,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476047.jpg" />
 </div>
 
 
@@ -379,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475879.jpg" />
 </div>
 
 
@@ -405,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475865.jpg" />
 </div>
 
 
@@ -431,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475861.jpg" />
 </div>
 
 
@@ -458,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475850.jpg" />
 </div>
 
 
@@ -485,7 +322,7 @@ Nate Murray и др. | ng-book2: The Complete Book of Angular 4 (2017) [PDF] [En
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475732.jpg" />
 </div>
 
 
@@ -514,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475524.jpg" />
 </div>
 
 
@@ -540,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475509.jpg" />
 </div>
 
 
@@ -567,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473743.jpg" />
 </div>
 
 
@@ -593,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473539.jpg" />
 </div>
 
 
@@ -619,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472334.jpg" />
 </div>
 
 
@@ -645,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471857.jpg" />
 </div>
 
 
@@ -671,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471618.jpg" />
 </div>
 
 
@@ -682,6 +519,164 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52979E3AD7B67CFD092A273CDED320F9968AB75E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406629   (470018) от 05.09.2020
+
+Джоэл Грас | Data Science. Наука о данных с нуля, 2-е издание+ коды (2021) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор книги "Наука о данных с нуля" легко, доступ­но и иногда с юмором повествует о сложных вещах, составляющих фундамент нау­ки о данных и машинного обучения. Второе издание кни­ги дополнено главами о глубоком обучении и этике данных. Кроме того, книга со­держит несколько новых разделов, в частности о рекуррентных нейронных сетях, векторных вложениях слов (   Читать дальше...   )Жанр: Базы данныхФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:567D1D7B915A60C21C7643C2E59A0DC74A761905
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160252   (469322) от 27.08.2017
+
+Крис Окасаки | Чисто функциональные структуры данных (2016) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большинство книг по структурам данных предполагают использование императивного языка программирования, например, C/C++ или Java. Однако реализации структур данных на таких языках далеко не всегда хорошо переносятся на функциональные языки программирования, такие как Стандартный ML, Haskell или Scheme.
+В этой книге структуры данных описываются с точки зрения функциональных (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0D2548FFDAC283D9A0D5889D5609A67B29D136E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160425   (469303) от 27.08.2017
+
+А.Н. Васильев | Числовые расчеты в Excel (2014) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена методам решения вычислительных задач с помощью приложения Excel. Тематика книги охватывает алгебраические уравнения и системы, интерполирование и аппроксимацию функциональных зависимостей, дифференцирование и интегрирование, решение дифференциальных и интегральных уравнений, а также некоторые другие темы из области вычислительных методов.
+Помимо этого, (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0AE5D3345EF684670A066358A6667D557D3270D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 387044   (469008) от 12.09.2011
+
+Руководство по продукту Microsoft Office 2010 [2010] [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2010 (кодовое имя Office 14) — рабочее название следующей версии пакета Microsoft Office для Microsoft Windows. Microsoft начала работу над Office 2010 в 2006 году, когда заканчивалась работа над пакетом Office 12 (который вышел под названием Microsoft Office 2007). Примечательно, что версия 13 была пропущена из-за того, что число 13 считается неудачным.2010Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE8E00F5C7F8D2FDDA4BB1C12FBA1A412A002B7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320678   (468752) от 19.08.2019
+
+М. Осуолт и др. | Автоматизация программируемых сетей (2019) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Постоянное появление новых протоколов, технологий, моделей доставки и ужесточение требований к интеллектуальности и гибкости бизнес-процессов сделали сетевую автоматизацию чрезвычайно важной. Это практическое руководство наглядно демонстрирует сетевым инженерам, как использовать широкий спектр технологий и инструментальных средств, в том числе Linux, Python, JSON (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDBBF1BC2DEFBB3C92781252A5C1FE41EC9C891B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407062   (468376) от 06.09.2020
+
+Benoît Blanchon | The Ultimate Guide to Master ArduinoJson / Руководство по изучению ArduinoJson (2020) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468376.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге описывается работа с библиотекой ArduinoJSON. Библиотекой позволяющей на встроенных системах эффективно работать с форматом JSON, поясняются все способы сериализации объектов в текст и десериализации. Дополнительно объяснены тонкие моменты по С++, на которых обычно спотыкаются разработчики приходящие с языков на подобие C# или Java.Жанр: программирование, C++, JSONФормат: PDF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B31333D1F281F9520CB9B814924CBDCC1559456
 ```
 
 https://mybot314.ru/tekegram_catalog/

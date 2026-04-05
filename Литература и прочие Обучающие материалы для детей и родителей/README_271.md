@@ -1,3 +1,56 @@
+###  Публикация: 1407448   (466718) от 07.09.2020
+
+Валерий Роньшин | Детский садик № 13 (2005) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466718.jpg" />
+</div>
+
+
+###  Подробнее
+
+У одной принцессы был золотой скелет — у всех обычный, а у неё золотой, и вот однажды этот скелет украли… А один мальчик мог проспать целых пять лет подряд! У одной девочки за спиной росли крылья, но никто в это не верил, зато все верили, что один учитель — не обычный человек, а самый настоящий вампир! Одна девочка превратилась в лягушку и вышла замуж за принца Персии, (   Читать дальше...   )Жанр: Детская литература/Проза для детейФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D033C32670B5A008AD0EAE752BA3A622564B9B03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407452   (466397) от 07.09.2020
+
+Алексей Кирносов | Страна Мудрецов (2000) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто не мечтал попасть в сказочную страну и пожить там вольной жизнью? Мурлындия — страна мудрецов, где правит смешной и добрый король Мур Семнадцатый, — как раз такая страна. Здесь можно делать все что хочешь.
+Лида, Петька и Миша попадают в Мурлындию; что из этого получилось, вы узнаете, когда прочтете повесть.Жанр: Детская литература/Сказки народов мира/Повесть-сказкаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6D1A64C75D4BFB022B2D1653846F9DDDDB2C16C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1407366   (466388) от 07.09.2020
 
 О. Н. Яворская | Занимательные задания логопеда для школьников (2-3 классы) (2015) [PDF]
@@ -6,7 +59,7 @@
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466388.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466309.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466168.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466085.jpg" />
 </div>
 
 
@@ -114,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466075.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465973.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465929.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465916.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465904.jpg" />
 </div>
 
 
@@ -245,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465860.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465811.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465587.jpg" />
 </div>
 
 
@@ -325,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465060.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465055.jpg" />
 </div>
 
 
@@ -381,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465054.jpg" />
 </div>
 
 
@@ -407,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464989.jpg" />
 </div>
 
 
@@ -435,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464442.jpg" />
 </div>
 
 
@@ -461,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464259.jpg" />
 </div>
 
 
@@ -487,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464245.jpg" />
 </div>
 
 
@@ -513,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные материалы для родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464065.jpg" />
 </div>
 
 
@@ -542,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463954.jpg" />
 </div>
 
 
@@ -568,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463940.jpg" />
 </div>
 
 
@@ -594,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463827.jpg" />
 </div>
 
 
@@ -621,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463816.jpg" />
 </div>
 
 
@@ -633,60 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E400FFE2E1107198BABEF31908107CA14E6844F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568291   (463804) от 07.08.2022
-
-Ю.А. Разенкова, Г.Г. Агаян, Л.П. Абрамова | Бушки-Топотушки (2013) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Настольные игры и Поделки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книжка - уникальный сборник пальчиковых игр. Уникальность его в том, что здесь собраны игры, которые мы рекомендуем проводить с малышами практически с первых дней жизни. Игры с пальчиками стимулируют, ускоряют процесс речевого и умственного развития ребенка. Об этом свидетельствуют не только знания и опыт многих поколений, но и исследования физиологов.
-Наши пальчиковые (   Читать дальше...   )Жанр: Детский досуг, Развивающие игры для детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95C598F3364E10B81E707BE9DD5B6706F389FAF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320975   (463275) от 22.08.2019
-
-студия Диафильм | Тайна трех бананов (1972) [JPG]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Прочие материалы для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повести-сказки зарубежных писателей. Чехия.
-Для детей младшего возраста.Жанр: Детская проза, СказкаФормат: JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4722BB39F77B9FCC5E5F7A4A3BED7073A3FA878C
 ```
 
 https://mybot314.ru/tekegram_catalog/

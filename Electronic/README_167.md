@@ -1,3 +1,61 @@
+###  Публикация: 1057474   (764307) от 31.01.2019
+
+OAKE - Discography 9 Releases (2013-2019) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Techno, Ambient, Darkwave>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zafrire (07:45)
+ 02. Tiharire (06:32)
+ 03. Telane (05:39)
+ 04. Lilin (08:23)Тип издания: WEBЖанр: Industrial, Techno, Ambient, Darkwave, Downtempo, Experimental •Продолжительность: 00:28:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5845904367DD89F8F8B3D15B3288D79F20798030
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085475   (764295) от 31.01.2019
+
+P·A·L (P.A.L, PAL, P•A•L) - Discography 16 Releases (1993-2011) Ant-Zen [FLAC|Lossless|tracks+.cue, tracks] <Rhythmic Noise, Industrial, Ambient, IDM, Experimental>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agentenfister (Fist Faster Remix) (03:03)
+ 02. Distress-Insomnia (06:04)
+ 03. Jobs (EA-Dub) (03:31)
+ 04. Heiden Heiland (04:25)(   Читать дальше...   )Тип издания: CD, Cassette, WEBЖанр: Rhythmic Noise, Industrial, Ambient, Noise, IDM, Experimental •Продолжительность: 00:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37FE90425427A60D4917C95B85B326A68B47943C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214522   (764145) от 22.03.2018
 
 VA - Touch 25 (2008) [FLAC|Lossless|tracks+.cue] <Abstract, Field Recording, Experimental, Ambient>
@@ -6,7 +64,7 @@ VA - Touch 25 (2008) [FLAC|Lossless|tracks+.cue] <Abstract, Field Recording, Exp
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764145.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Infrasonic Winter Selection (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764143.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Saturne - Trace Elements (2017) Auxiliary [FLAC|Lossless|WEB-DL|tracks] <Techno,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764142.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ S.O.N.S - Shin-Okubo One Night Stand (2018) [FLAC|Lossless|Vinyl|tracks] <Techno
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764141.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ G.R.I.T. - KALMADS E.P. (2018) Exalt Records [FLAC|Lossless|Vinyl|tracks] <Dub T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764140.jpg" />
 </div>
 
 
@@ -149,7 +207,7 @@ VA - FG Top 10: March (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764074.jpg" />
 </div>
 
 
@@ -178,7 +236,7 @@ VA - Sunset Inspirational Grooves (2018) [MP3|320 Kbps] <Downtempo, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764070.jpg" />
 </div>
 
 
@@ -207,7 +265,7 @@ VA - Freakin Miami (Mixed by House Of Virus) (2018) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764067.jpg" />
 </div>
 
 
@@ -236,7 +294,7 @@ VA - Spring Progressive House Vol.1 (2018) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764065.jpg" />
 </div>
 
 
@@ -265,7 +323,7 @@ VA - Coastal Selections 006 (2018) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764063.jpg" />
 </div>
 
 
@@ -294,7 +352,7 @@ Fonogeri - Into The Labyrinth (2018) [MP3|320 Kbps] <Downtempo, Chillout, Ambien
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764061.jpg" />
 </div>
 
 
@@ -323,7 +381,7 @@ VA - Aly & Fila - Future Sound of Egypt 540 (2018) [MP3|320 Kbps] <Trance,Uplift
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764059.jpg" />
 </div>
 
 
@@ -352,7 +410,7 @@ The Other People Place - Lifestyles Of The Laptop Cafe (2001) Warp Records [FLAC
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764056.jpg" />
 </div>
 
 
@@ -381,7 +439,7 @@ VA - Goa Dreams Vol.6 (2018) [MP3|320 Kbps] <Psy Trance>
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763973.jpg" />
 </div>
 
 
@@ -410,7 +468,7 @@ Tamlin - Spectrogram (2008) [FLAC|Lossless|tracks + .cue] <Breaks, Psy-Trance, P
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763718.jpg" />
 </div>
 
 
@@ -439,7 +497,7 @@ Eduardo Briganty - Microgramas (2018) El Muelle Records [FLAC|Lossless|WEB-DL|tr
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763702.jpg" />
 </div>
 
 
@@ -468,7 +526,7 @@ VA - #WeAreTrance #008-18-08 (Mixed by XiJaro & Pitch) (2018) [MP3|320 Kbps] <Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763693.jpg" />
 </div>
 
 
@@ -497,7 +555,7 @@ VA - Markus Schulz - Solis & Sean Truby - Global DJ Broadcast (2019) [MP3|320 Kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763692.jpg" />
 </div>
 
 
@@ -526,7 +584,7 @@ Rygar - The Album (2001) [FLAC|Lossless]<Synthpop, Italo Disco, Spacesynth>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763672.jpg" />
 </div>
 
 
@@ -555,7 +613,7 @@ Ian Brown - Ripples (2019) [MP3|320 Kbps] <Indie, Alternative>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763652.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ VA - Best Aerobic Remixes 2019 [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763648.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ VA - AD Music • Compilations Collection - 17 Releases (2000-2020) [MP3|320 Kbp
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763507.jpg" />
 </div>
 
 
@@ -642,7 +700,7 @@ VA - My Lounge Room (Chillout Your Mind) (2022) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763452.jpg" />
 </div>
 
 
@@ -671,7 +729,7 @@ VA - Easter Chill Day (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763297.jpg" />
 </div>
 
 
@@ -685,64 +743,6 @@ VA - Easter Chill Day (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6C37FD61C8FE4BFE9D85C27B37E8678429BD0B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214777   (763296) от 23.03.2018
-
-VA - Ambient Chill Session 6 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Makia Blue  -  Heal Me  3:42
-02.  Mirko Lovato  -  In The Island (Cut Version)  2:14
-03.  Dmitry Sapelnik  -  Gloria  1:06
-04.  Massivan  -  Come To Me (Ganga Remix)  7:38(   Читать дальше...   )Жанр: Downtempo, Chillout, AmbientПродолжительность: 01:57:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75AE47BF7BF43A6C0C90B488CAE618ED60841BA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214853   (763178) от 23.03.2018
-
-VA - Music And Wine Vol.1 (25 SoulSetters) (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  James Butler  -  Jazzabel (Original Mix)  3:05
-02.  Daniele Soriani  -  Baleares (D-Soriani Jazzy Mix)  4:36
-03.  Velvet Dreamer  -  1000 Miles Away (Simon & Florzinho Remix)  7:12
-04.  Mo'jardo  -  Loose Change (Original Mix)  4:09(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:52:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7077D78305988C34DE462F5BF4A606B666E90CD8
 ```
 
 https://mybot314.ru/tekegram_catalog/

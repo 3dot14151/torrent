@@ -1,3 +1,148 @@
+###  Публикация: 1249411   (433317) от 24.09.2018
+
+VA - Die deutschen Disco Charts - Party Mixe (2018) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, SchlagerПродолжительность: 01:01:48
+
+01. Nino de Angelo - Hitmix (2017)
+02. Annemarie Eilfeld - Keine Panik (FloorEnce & A-Roma Remix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1021937405D41EE4BF55B8A44EA7DD963B13AF74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249574   (433316) от 24.09.2018
+
+VA - New Music Releases Week 38 of 2018 (2018) [MP3|320 Kbps] <Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433316.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Makj, Will K - Bounce 2 This
+002. Cher - One of Us
+003. Weiss (Uk) - Feel My Needs (Siege Remix)
+004. Skyler Stonestreet - It Kinda Hurts(   Читать дальше...   )Жанр: DanceПродолжительность: 12:52:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F46E0D481D480C63868670C4B7C8E8EE59D557D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410656   (433294) от 22.09.2020
+
+Сборник - Вспоминая СССР. Любимые песни 5 (1990-1991) MP3 от DON Music, 2020 [MP3|320 Kbps] <Ретро>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433294.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+001. Кино - Кончится лето (1990)
+002. Игорь Николаев - Садовник (1990)(   Читать дальше...   )Жанр: РетроПродолжительность: 20:56:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A9F0A19916FEA24EEA45AF7E4529C048997E07F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063569   (432682) от 17.10.2016
+
+VA - Осенний позитив №2 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432682.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.30.02 - Я Верю
+002.Aaron Pfeiffer - Don’t Call This Us
+003.Amanda Alexander - Anytime
+004.Andreas - Нас Нет(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:756AC6E1661F2B7F7C0E45D5BE02AE56545B0C07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063563   (432377) от 17.10.2016
+
+VA - 100 хитов от Hit FM. Выпуск 50/50 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432377.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Shawn Mendes - No Promises
+002. Олег Кензов - Номером Один
+003. Саша Алмазова & Non Cadenza - Неинтересно
+004. Stephen - Sincerely(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5758C5AAD348D64A86D1F70BBCCFA0308C64353C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063556   (432262) от 17.10.2016
 
 VA - Хиты радиостанций. Горячие новинки (2016) [MP3|256 Kbps] <Pop>
@@ -6,7 +151,7 @@ VA - Хиты радиостанций. Горячие новинки (2016) [MP
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432262.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ VA - Top 100 Зайцев.Нет Август (Зарубежный выпуск
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432207.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ VA - Best Of 80s (2016) [MP3|320 Kbps] <Pop, Disco, Rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432141.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ VA - Yellow Day: Pop Folk Music (2020) [MP3|320 Kbps] <Pop, Folk, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431920.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Avalanche - Compilation (2022) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431690.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Lynsey De Paul - Compilation (2022) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431687.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ VA - Эксклюзив осенних хитов (2012) [MP3|128-320 кб/с]<P
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431602.jpg" />
 </div>
 
 
@@ -215,7 +360,7 @@ VA - Cocktail new music №9 (2015) [MP3|256-320 кб/с]<Pop, Dance, Eurodance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431574.jpg" />
 </div>
 
 
@@ -244,7 +389,7 @@ Zivert - Crazy (2019) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431185.jpg" />
 </div>
 
 
@@ -273,7 +418,7 @@ VA - Самые Лучшие Хиты Осени 50/50 (2012) [MP3|256 кб/с]<
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431151.jpg" />
 </div>
 
 
@@ -308,7 +453,7 @@ VA - Супер Дискотека 90-х Vol. 1-3 (3CD) (2012) [MP3|111-320 кб
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430566.jpg" />
 </div>
 
 
@@ -352,7 +497,7 @@ VA - 100 Хитов Популярной Музыки Русский выпус�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430120.jpg" />
 </div>
 
 
@@ -381,7 +526,7 @@ VA - German Top 100 Single Charts 07.09.2019 (2019) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429717.jpg" />
 </div>
 
 
@@ -410,7 +555,7 @@ VA - National Pop Music (Vol.04) (2020) [MP3|320 Kbps] <Pop, Dance, Folk>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429614.jpg" />
 </div>
 
 
@@ -439,7 +584,7 @@ Amanda Lear - Good Songs (2015) [MP3|160 кб/с]<Pop, Shanson>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429284.jpg" />
 </div>
 
 
@@ -468,7 +613,7 @@ VA - Осень на Love Radio (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429203.jpg" />
 </div>
 
 
@@ -497,7 +642,7 @@ Dalida - Good Songs (2015) [MP3|128 кб/с]<Pop, Shanson>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429176.jpg" />
 </div>
 
 
@@ -526,7 +671,7 @@ C.C. Catch - Good Songs (2015) [MP3|320 кб/с]<Eurodisco, Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428954.jpg" />
 </div>
 
 
@@ -555,7 +700,7 @@ VA - Попсовая соточка от Хит fm (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428206.jpg" />
 </div>
 
 
@@ -584,7 +729,7 @@ VA - Billboard Top 40 Singles Chart (22-10-2016) [MP3|~245 Kbps (V0)] <Pop, Danc
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427906.jpg" />
 </div>
 
 
@@ -614,7 +759,7 @@ Michael Jackson - Collection (от ALEXnROCK) (2017) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427889.jpg" />
 </div>
 
 
@@ -628,151 +773,6 @@ Michael Jackson - Collection (от ALEXnROCK) (2017) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6720697C81449A5F4793202FF16DE077B945CC6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064043   (427758) от 19.10.2016
-
-VA - Осенняя Бомба Года 50x50 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427758.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Elephante Feat. Brandyn Burnette - Plans
-002. Gladushevskyy & Новые Интеллигенты - Художник
-003. Sting & Mylene Farmer - Stolen Car
-004. Анжелика Пушнова - Мой Ангел(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:575880DFDF488D3C29561B21214025AC7DB6971C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946357   (427148) от 13.10.2015
-
-Sabrina - Good Songs (2015) [MP3|128-320 кб/с]<Disco, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guys And Dolls
-02. My Chico (Dub House Mix)
-03. My Chico
-04. Deep Water(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 04:35:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B856C747C95F0A09EFE29FF80519CBA4EFCED71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064583   (426259) от 20.10.2016
-
-VA - Мега хитовая Осень 5 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426259.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alisher - Покемон
-002. Aurora - Running With The Wolves
-003. Ксения Аксенова - Белые Крылья
-004. Альбина - Боль(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D06F85502FF01BB78416682EB109D628DE311EEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064587   (426249) от 20.10.2016
-
-VA - Осенняя Позитивная Сотка 5 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426249.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tujamo - Boom
-002. Solterov - Что Же Мы С Тобой Наделали
-003. Pitbull - Baddest Girl In Town
-004. Сергей Ищенко - Погасли Свечи(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ACE8C27974D04EA60D8EBB10D7BA581B0CAF6DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324383   (425359) от 09.09.2019
-
-VA - Secret Passion: Europop Summer Hits (2019) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425359.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ke$ha - Die Young
-002. Arcadian - Petit À Petit
-003. Clara Luciani - La Grenade
-004. Jain - Gloria(   Читать дальше...   )Жанр: PopПродолжительность: 10:12:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4084E178B7554B9ED7AFFC834D610A7DF6D97E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

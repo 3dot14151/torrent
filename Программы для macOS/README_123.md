@@ -1,3 +1,56 @@
+###  Публикация: 1571279   (240017) от 21.08.2022
+
+Screaming Frog SEO Spider 17.0 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Screaming Frog SEO Spider Tool - программа для проведения подробного SEO анализа любого сайта. С помощью нее вы сможете проверить все внутренние ссылки, исходящие ссылки, метаописания каждой страницы, теги h1-h6 веб ресурса. С помощью Screaming Frog SEO Spider вы без труда обнаружите все ошибки в СЕО оптимизации вашего веб ресурса и сможете устранить до их появления (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.08.2022Разработчик: © 2022 Screaming Frog Ltd.Поддерживаемая ОС: macOS 10.7.3+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E61C4E16155FF7AE6018C46E6609EFF3677E5DDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466745   (240010) от 01.05.2021
+
+Semulov 2.6 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240010.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Semulov отображает все смонтированные тома в строке меню, сгруппированные по типу.
+При нажатии на меню приложения этот том будет отключен / извлечен. Semulov также поддерживает уведомления Growl о размонтировании / монтировании диков.Тип издания: macOS SoftwareРелиз состоялся: 2021Разработчик: Kevin WojniakПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C65502A2C8D22670761057845A43D889B1E99099
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1415567   (239966) от 12.10.2020
 
 Handy Note 1.1.1 [En]
@@ -6,7 +59,7 @@ Handy Note 1.1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239966.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ WebScraper 4.15.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239890.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Sound Grinder 4.1.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239874.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ Circular Studio 2.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239790.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ References.Design 2.4.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239748.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ Alfred 4 Powerpack 4.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239746.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ Clipsy: Clipboard Manager 2.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239741.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ DeskCover 1.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239679.jpg" />
 </div>
 
 
@@ -220,7 +273,7 @@ MaxSnap 1.74 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239651.jpg" />
 </div>
 
 
@@ -249,7 +302,7 @@ Netler 2.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239588.jpg" />
 </div>
 
 
@@ -275,7 +328,7 @@ BarLinks: Menu Bar Bookmarks 1.0.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239489.jpg" />
 </div>
 
 
@@ -301,7 +354,7 @@ Recordia 1.5.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239472.jpg" />
 </div>
 
 
@@ -327,7 +380,7 @@ Filmage Converter-ConvertVideo 1.2.2 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239342.jpg" />
 </div>
 
 
@@ -355,7 +408,7 @@ iStat Menu 6 v6.7 (1217) [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239263.jpg" />
 </div>
 
 
@@ -381,7 +434,7 @@ Photo Size Changer Premium 1.1.1 [En/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239233.jpg" />
 </div>
 
 
@@ -407,7 +460,7 @@ DxO ViewPoint 4 v4.7.0 (build 222) [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_239157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_239157.jpg" />
 </div>
 
 
@@ -434,7 +487,7 @@ Textastic 5.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239126.jpg" />
 </div>
 
 
@@ -460,7 +513,7 @@ xPlan4 Desktop 4.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239075.jpg" />
 </div>
 
 
@@ -486,7 +539,7 @@ Days - Countdown for Menu Bar 1.9.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239060.jpg" />
 </div>
 
 
@@ -512,7 +565,7 @@ xLine 3.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239044.jpg" />
 </div>
 
 
@@ -538,7 +591,7 @@ Paletro for Mac 1.8.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239032.jpg" />
 </div>
 
 
@@ -564,7 +617,7 @@ Capture All 2.30 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239021.jpg" />
 </div>
 
 
@@ -590,7 +643,7 @@ RSS Menu 3.0.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238996.jpg" />
 </div>
 
 
@@ -616,7 +669,7 @@ FoneDog Data Recovery for Mac 1.3.8 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238992.jpg" />
 </div>
 
 
@@ -628,60 +681,6 @@ FoneDog Android Data Recovery - это инструмент для восста�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23597FA47EBAC57C19A501F462AC1CC7C0185A87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623012   (238893) от 31.03.2023
-
-beQUIET 3.21 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение beQUIET предназначено для журналистов, учителей, студентов и других пользователей Macbook, которые хотят слышать звук, но не хотят мешать другим, например, на собраниях, в классах, в судах, на лекциях и в театрах.
-Пока beQUIET работает, внутренние динамики вашего компьютера отключены. Между тем, вы все еще можете слушать через разъем для наушников. beQUIET (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.03.2023Разработчик: © 2015 - 2023 dragonBTVПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BB3CC087274AD1396139D8D599831B3925282DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628279   (238892) от 22.04.2023
-
-Cisdem PDF Password Remover 5.0.0 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cisdem PDF Password Remover - позволяет удалить пароль из PDF-документа и получить доступ к наиболее важным данным.
-Доступ к защищенным паролем PDF-файлам может быть огромной проблемой для многих предприятий, особенно, если этот файл PDF имеет запрет на печать, копирование и редактирование. Тем не менее, это не будет проблемой, если у вас есть Cisdem PDF Password (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.04.2023Разработчик: © 2023 Cisdem Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEFD84542D6577045868CD4C572BC0425B4579EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

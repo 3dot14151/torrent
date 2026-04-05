@@ -1,3 +1,61 @@
+###  Публикация: 1534146   (697524) от 28.02.2022
+
+Lo-Fi Electronic - The Best Of (2020) [MP3|320 Kbps] <Synthpop, Ambient>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lunar Module ('78 Mix) (4:43)
+02. Void Vision (6:05)
+03. Into Oblivion (6:09)
+04. Rocket Man (6:17)(   Читать дальше...   )Жанр: Synthpop, AmbientПродолжительность: 01:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:011F37A2132A195349D02F7013338AA85F45031A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186895   (697331) от 16.08.2020
+
+Zodiac - Лучшее (Золотая Коллекция) (2008) 2CD [FLAC|Lossless|image + .cue] <Synthpop, Electronic>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697331.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Зодиак
+02. Пасифик
+03. Провинциальное диско(   Читать дальше...   )Жанр: Synthpop, ElectronicПродолжительность: 01:17:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF51EB3B55A75EAD7912B3040EAD4E3912400F1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132872   (697231) от 11.05.2017
 
 VA - Slow Down Ibiza Vol.1 (Balearic Calm Chill Tunes) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -6,7 +64,7 @@ VA - Slow Down Ibiza Vol.1 (Balearic Calm Chill Tunes) (2017) [MP3|320 Kbps] <Do
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697231.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Top 20 Chillout May (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697228.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Late Night Vibes Vol.4 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697224.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Summer Chill Smooth Collection (2017) [MP3|320 Kbps] <Downtempo, Chillout, 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697222.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Deep Chill Out Waves Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Loun
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697216.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Late Night Vibes Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697118.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Frozen Starfall - Vibrant Dancefloor (2017) [MP3|320 Kbps] <Electro, Progressive
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697114.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Late Night Vibes Vol.5 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697110.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - The Best Of House, 3CD (2018) [MP3|320 Kbps] <House, Club, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696814.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Niklas Paschburg - Oceanic (2018) 7k! [FLAC|Lossless|WEB-DL|tracks] <Modern Clas
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696801.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Bassnectar - Unlimited (2016) [FLAC|Lossless|tracks] <Electronic, Breakbeat, Dub
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696292.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Discover Trance 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Trance, Uplifting T
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695942.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ DJ Samsara & DJ Furvus - A Conversation Between Two Trees (2012) Critical Beats 
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695941.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ V.A. - Cafe Del Mar Essentials (Vol. 3) (2020) [FLAC|Lossless|WEB-DL|tracks] <Lo
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695824.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Suanda Music Radio Top 20: March (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695817.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Nothing But... Total Trance Selections Vol.08 (2019) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695815.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Ensemble Economique - In Silhouette (2017) [FLAC|Lossless|Web-DL|tracks] <Experi
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_695813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_695813.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ New Jackson - From Night to Night (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695808.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Venture - 6 Releases (2012-2015) [MP3|320 кб/с]<Downtempo, Ambient, IDM, Chil
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695705.jpg" />
 </div>
 
 
@@ -558,7 +616,7 @@ VA - Selected Beach Grooves Volume Ibiza (2015) [MP3|320 кб/с]<Downtempo, Lou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695695.jpg" />
 </div>
 
 
@@ -588,7 +646,7 @@ VA - Be One (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695680.jpg" />
 </div>
 
 
@@ -617,7 +675,7 @@ Amon Tobin - Dark Jovian (2015) [MP3|320 кб/с|Vinyl]<Abstract, Ambient>
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695578.jpg" />
 </div>
 
 
@@ -647,7 +705,7 @@ Echo Grid (Aphelion) - Discography 16 Releases (2013-2020) CRL Studios, Stereosc
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695555.jpg" />
 </div>
 
 
@@ -674,7 +732,7 @@ VA - Enhanced Ibiza (2017) [MP3|320 Kbps] <House, Future House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695201.jpg" />
 </div>
 
 
@@ -688,64 +746,6 @@ VA - Enhanced Ibiza (2017) [MP3|320 Kbps] <House, Future House, Progressive Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF54CBE57B8EA2EF7E0609AEC42E47D2636E5BAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133350   (695200) от 12.05.2017
-
-VA - Poolside Grooves #3 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Benatural - Sodur (Original Mix)  7:41
-02.  Van Young - Em Be Myo (Original Mix)  4:53
-03.  Miper - Alpha Swirl (Original Mix)  4:45
-04.  Dominik Pointvogl - Piano Sunset (Original Mix)  6:47(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:916F2E7B9B1AEF7889B768D0A2478A1D1495346E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133345   (695198) от 12.05.2017
-
-VA - Breakfast On The Beach (25 Beautiful Electronic Anthems) Vol.3 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jack Funk - Naples (Original Mix)  10:28
-02.  Oceanus - Arabamish (Original Mix)  5:34
-03.  Alexius Gabrikov - The Lone Seagull (Original Mix)  3:13
-04.  Zach Fernandez - Chiem (Original Mix)  3:39(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8634FA7CDEBC6896C529ABB69A3D4998AC6A247
 ```
 
 https://mybot314.ru/tekegram_catalog/

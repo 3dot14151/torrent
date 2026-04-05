@@ -1,3 +1,134 @@
+###  Публикация: 1704916   (63801) от 06.03.2024
+
+Леди исчезает / The Lady Vanishes (1979) DVDRip [DVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация романа Этель Лины Уайт «Колесо крутится», но изменено время действия.
+В поезде-экспрессе, едущем по довоенной Германии, случается странное: молодая девушка, американская наследница Аманда Келли оказывает небольшую помощь старушке, мисс Фрой. Но спустя некоторое время мисс Фрой исчезает, как будто ее и вовсе не было, а попутчики все как один отрицают, (   Читать дальше...   )Производство: Великобритания / Hammer Films, Sanrio Company, The Rank Organisation Film Productions Ltd.Жанр: боевик, триллер, мелодрама, комедия, детектив, экранизацияРежиссер: Энтони ПейджАктеры: Эллиотт Гулд, Сибилл Шепард, Анджела Лэнсбери, Герберт Лом, Артур Лоу, Йен Кармайкл, Джералд Харпер, Дженни Ранэйкр, Джин Андерсон, Мадлена НедлеваПеревод: Двуголосый профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:35:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1D225BD1C251823010895E9C34C7C6F7F9F34F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705288   (63594) от 08.03.2024
+
+Смерть беспокоит / La mort trouble / Unquiet Death (1970) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три сестры, навещающие своего дядюшку в его островном доме, оказываются наедине с его слугой. Их отношения раскрывают темную сторону каждого из них, а также гендерную, расовую и классовую напряженность, которая приводит к ситуациям унижения, доминирования, секса и смерти.Производство: Франция, Бельгия, Тунис / Maya Films, Showking Films, CotudicЖанр: драма, криминал, детективРежиссер: Ферид Богхедир, Клод д’АннаАктеры: Али Бен Айед, Урсула Поли, Софи Вайлант, Сильвия Селин, Абдаллах ЧахедПеревод: Одноголосый любительский (Мика Бондарик)Язык озвучки: русский, французскийСубтитры: английские, русскиеПродолжительность: 01:16:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F722AB766D4FDC15A504EBE91509CEBEBF3B783E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705916   (63406) от 10.03.2024
+
+Милая ложь / Sweet Lies (1987) HDTVRip [DVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Агент страховой компании приезжает в командировку в Париж и неожиданно оказывается в центре внимания трех незамужних женщин. Они поспорили, кто соблазнит его первым, но через некоторое время дамы поняли, что любят его...Производство: Франция, США / Goldeneye Productions, Island PicturesЖанр: мелодрама, комедияРежиссер: Натали ДелонАктеры: Трит Уильямс, Джоанна Пакула, Джулианна Филлипс, Норберт Вайссер, Мэрлин Доддс Фрэнк, Айна Валле, Жизель Казадезю, Бернар Фрессон, Франк ТиоццоПеревод: Двуголосый профессиональный (НТВ+)Язык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:32:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAC91F46292747B259078754B44358818804537C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705913   (63390) от 10.03.2024
+
+Лихорадка приходит в Эль-Пао / La fievre monte a El Pao (1959) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Диктатор Мариано Варгас убит в результате военного переворота. И неожиданно в период смуты во главе южноамериканского острова Эль-Пао оказывается Рамон Васкез, бывший до того мелким чиновником. Теперь новый либеральный правитель вынужден бороться с наследием диктаторского режима и зачастую идти на компромисс с собственной совестью... Фильм про беспомощность либеральной (   Читать дальше...   )Производство: Франция, Мексика / Le Groupe des Quatre, Cinematografica Filmex S.A.Жанр: драмаРежиссер: Луис БунюэльАктеры: Жерар Филип, Мария Феликс, Мигель Анхель Феррис, Рауль Дантес, Доминго СолерПеревод: профессиональный многоголосый, авторскийЯзык озвучки: русский, французскийСубтитры: английские, французские SDHПродолжительность: 01:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43498C459444D86AFEA255AF1C52AC34E771FF19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706037   (63283) от 11.03.2024
+
+Царь Эдип / Edipo re / Oedipus Rex (1967) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63283.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет - по одноимённой трагедии Софокла... Две сюжетные линии фильма: в современное время и в древней Греции... XX век. В итальянской семье рождается мальчик. Отец, наблюдая то, как мать привязана к ребёнку, мучается ревностью, уносит мальчика и бросает его в пустыне. Действие переносится в античное время и сюжет повествует несколько видоизменённую классическую трагедию (   Читать дальше...   )Производство: Италия, Марокко, Arco Film, SomafisЖанр: драмаРежиссер: Пьер Паоло ПазолиниАктеры: Сильвана Мангано, Франко Читти, Алида Валли, Кармело Бене, Джулиан Бек, Лучано Бартоли, Франческо Леонетти, Ахмед Бельхашми, Джованни Иван Скратулья, Джандоменико Даволи, Нинетто Даволи, Лаура Бетти, Пьер Паоло Пазолини, Изабел РутПеревод: профессиональный многоголосыйЯзык озвучки: русский, итальянскийСубтитры: русские, английскиеПродолжительность: 01:44:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:389956594181C896A27BDCB45161C21110C20A5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706111   (63197) от 12.03.2024
 
 39 ступеней / The 39 Steps (1935) BDRip [H.264] [MVO]
@@ -6,7 +137,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63197.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63169.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63063.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62958.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62926.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62866.jpg" />
 </div>
 
 
@@ -162,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62748.jpg" />
 </div>
 
 
@@ -188,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62642.jpg" />
 </div>
 
 
@@ -214,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62572.jpg" />
 </div>
 
 
@@ -240,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62562.jpg" />
 </div>
 
 
@@ -266,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62386.jpg" />
 </div>
 
 
@@ -292,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62329.jpg" />
 </div>
 
 
@@ -318,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62251.jpg" />
 </div>
 
 
@@ -344,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62112.jpg" />
 </div>
 
 
@@ -370,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61939.jpg" />
 </div>
 
 
@@ -396,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61908.jpg" />
 </div>
 
 
@@ -422,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61900.jpg" />
 </div>
 
 
@@ -448,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61809.jpg" />
 </div>
 
 
@@ -474,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61495.jpg" />
 </div>
 
 
@@ -500,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61425.jpg" />
 </div>
 
 
@@ -526,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61353.jpg" />
 </div>
 
 
@@ -537,138 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:185CBB9075F153C9448CF858F3E8FCF982BA1907
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711506   (61279) от 30.03.2024
-
-Переполох / Ruckus (1980) DVDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кайл Хэнсон является ветераном Вьетнама. Эта война оставила в его психике незаживающую рану. Когда Кайл, уставший и грязный, останавливается в небольшом городке на некоторое время чтобы поесть, местные задиры не могут удержаться, чтобы не унизить его и начинают преследование. Кайлу приходится использовать всё то, чему его учили в отряде специального назначения, чтобы (   Читать дальше...   )Производство: США / International VisionЖанр: боевик, триллер, драмаРежиссер: Макс КлевенАктеры: Дирк Бенедикт, Линда Блэр, Ричард Фарнсуорт, Мэтт Кларк, Джон Ван Несс, Тэйлор Лочер, Клиффорд А. Пеллоу, Бен Бейтс, Джерри Гэтлин, Бенни Е. ДоббинсПеревод: Авторский (А. Гаврилов, А. Михалев, М. Иванов)Язык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: 01:31:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB03D11EABF840E28CA29B039FEA798847FF108E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526475   (61224) от 31.03.2024
-
-Велосипед / Le Triporteur (1957) VHSRip [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61224.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация романа Рене Фалле.
-Для преданного болельщика, желающего во что бы то ни стало поддержать любимую команду, расстояния – не преграда. 500 километров от родного Вобреля до стадиона дю Рэ в Ницце необходимо преодолеть рассыльному кондитерского магазина Антуану Пейралу в надежде увидеть, как земляки завоюют Кубок Франции по футболу. Забавные приключения и (   Читать дальше...   )Производство: Франция / Les Films du CyclopeЖанр: комедия, спортРежиссер: Жак ПинотоАктеры: Дарри Коул, Беатрис Альтариба, Пьер Монди, Роже Карель, Maurice Gardett, Жак Тибо, Christian Nohel, Simone Jarnac, Жан Озенн, Пьер ДорисПеревод: Одноголосый любительскийЯзык озвучки: Русский, французскийСубтитры: РусскиеПродолжительность: 01:27:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E110D2A506B4DF39ABB6E0FC586DF48F1E23A198
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 874866   (61151) от 01.04.2024
-
-Чужие среди нас (Они живут) / They Live (1988) DVDRip [H.264] [MVO]
-
->>След.
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды простой рабочий-строитель Нейда, которому не очень везёт в жизни, находит необычные солнечные очки. Надев их, он получает возможность увидеть мир таким, какой он есть.
-Реальность пугает! Оказывается, правительство и средства массовой информации бомбардируют людей скрытыми сообщениями, воздействующими на уровне подсознания: «Спите!», «Не давайте волю воображению», (   Читать дальше...   )Производство: США, Alive Films, Larry Franco ProductionsЖанр: ужасы, фантастика, боевик, триллерРежиссер: Джон КарпентерАктеры: Родди Пайпер, Кит Дэвид, Мег Фостер, Джордж «Бак» Флауэр, Питер Джейсон, Рэймонд Сейнт-Жак, Джейсон Робардс III, Джон Лоуренс, Сьюзэн Барнс, Сай РичардсонПеревод: Многоголосый закадровыйПродолжительность: 01:30:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB5587427557FB1CBCB51B0350B3CBA42AA7DAB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538407   (60988) от 02.04.2024
-
-40 карат / 40 Carats (1973) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60988.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Греции случайно встречаются Питер и Энн Стенли, которая старше его на много лет. Но любовь Питера оказывается настолько сильной, что он готов преодолеть все преграды, в том числе и нерешительность самой Энн, чтобы жениться на любимой женщине.Производство: США / Columbia Pictures Corporation, Frankovich ProductionsЖанр: Kомедия, MелодрамаРежиссер: Милтон КацеласАктеры: Лив Ульман, Эдвард Альберт, Джин Келли, Бинни Барнс, Дебора Раффин, Билли Грин Буш, Нэнси Уокер, Дон Портер, Розмари Мерфи, Натали ШаферПеревод: Многоголосый профессиональный, студия "Пифагор" по заказу ГТРК "Культура"Субтитры: ОтсутствуютПродолжительность: 01:48:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7AB1A265ED17A73F0A3E37FF7660F8DC5C805CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713025   (60754) от 04.04.2024
-
-Иствикские ведьмы / The Witches of Eastwick (1987) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три современные ведьмы тоскуют по своему идеальному мужчине в маленьком городке Новой Англии. Неужели появление богатого и неотразимого Дэрила Ван Хорна просто совпадение – или, сработало непреднамеренное женское колдовство?Производство: США /  Guber-Peters Company, Kennedy Miller Productions, Warner Bros.Жанр: фэнтези, комедияРежиссер: Джордж МиллерАктеры: Джек Николсон, Мишель Пфайффер, Шер, Сьюзен Сарандон, Вероника Картрайт, Ричард Дженкинс, Кит Джоким, Карел Стрёйкен, Хелен Ллойд Брид, Кэролин СтрузикПеревод: Дублированный (Мост-Видео)Язык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:58:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:267A675E1B1BE645D5FC51A16E8DA51BB9714CD3
 ```
 
 https://mybot314.ru/tekegram_catalog/

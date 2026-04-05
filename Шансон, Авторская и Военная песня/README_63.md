@@ -1,3 +1,32 @@
+###  Публикация: 1758783   (38288) от 04.11.2024
+
+Михаил Звездинский (Mikhail Zvezdinskiy) - 15 Albums (1993-2017) [MP3|320 Kbps] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sgoraja, plachut svechi [00:04:23]
+02. Zachem vam eto znat' [00:03:23]
+03. Dve kopeyki za schast'e [00:04:59]
+04. Poruchik Golitsyn [00:03:40](   Читать дальше...   )Жанр: ChansonПродолжительность: 03:30:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B70229C293C8DBC8F0E12654B3F69B3BED5CBE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1758592   (38269) от 04.11.2024
 
 Владимир Путь - Дальний свет (2024) [MP3|320 Kbps] <Chanson>
@@ -6,7 +35,7 @@
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38269.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Новые хитовые песни 2024, Часть 11 (2024) [FLAC|Lossl
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37393.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37373.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37204.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37177.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37168.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37046.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36989.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - Самые яркие хиты года 2024 (2024) [FLAC|Lossless|WEB-DL|t
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36988.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - Шансон премьера 2024 ноябрь (Новые песни. Н�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36670.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36507.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36358.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36176.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36166.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36154.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36144.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ VA - Визбор 85 (К 85-летию Юрия Визбора, Tribute) (2019) 
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36138.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ VA - Самые новые песни о любви 7 (2024) [FLAC|Lossless|WEB-
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36038.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35844.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35835.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35736.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ VA - 50 лучших хитов, Часть 2 (2024) [FLAC|Lossless|WEB-DL|track
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35534.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35508.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ VA - Новые хитовые песни 2024, Часть 12 (2024) [FLAC|Lossl
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35297.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35135.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92DCCF3B5D1401D370B123F607E9ECBFFD652338
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764011   (35113) от 05.12.2024
-
-Одинокий странник - 2 Albums (2021-2024) [MP3|320 Kbps] <Авторская песня, Chanson>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Главная правда [00:06:03]
-02. Девчонка [00:03:12]
-03. Если тебя рядом нет [00:05:06]
-04. За [00:03:39](   Читать дальше...   )Жанр: Авторская песня, ChansonПродолжительность: 2 CD, 02:07:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF37C02D4F2EB51674FDF50033192F2891584CEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

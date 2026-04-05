@@ -1,3 +1,32 @@
+###  Публикация: 830973   (423494) от 13.10.2014
+
+Pink Floyd - The Wall (1979) 2LP remaster /2012, EMI Records/ [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey You (4:41)
+02. Is There Anybody Out There? (2:41)
+03. Nobody Home (3:23)
+04. Vera (1:35)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:21:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CBA510ACDC3DE4FAC7D964D4A873FCACF8E4B2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411975   (422712) от 27.09.2020
 
 Valeria/Валерия - The Taiga Symphony (1991) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Blues Rock, Ballad>
@@ -6,7 +35,7 @@ Valeria/Валерия - The Taiga Symphony (1991) [FLAC 2.0|96/24|image +.cue|V
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422712.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Omega - Elo Omega Kisstadion '79 (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422703.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Pink Floyd - Wish You Were Here (1975) [FLAC 2.0|192/24|tracks|MB-Rip] <Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421718.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Timothy Farrell & Christopher Green - Organ and Cello Music from Westminster Abb
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421323.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420957.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - All The Best From Scotland (1997) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Folk,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420039.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Scorpions - Blackout (1982) [FLAC 2.0 24/192|tracks(Vinyl-Rip)]<Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419985.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ The Beatles - Abbey Road (1969) [FLAC 2.0 24/192|tracks(Vinil-Rip)]<Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419900.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Wanda Jackson & Karel Zich - Let's Have A Party In Prague (1988) [FLAC 2.0|96/24
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418846.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418629.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Led Zeppelin - Led Zeppelin II (1969) [FLAC 2.0 24/192|tracks(Vinyl-Rip)]<Blues 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417672.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416484.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ The Rolling Stones - Emotional Rescue (1980) [FLAC 2.0|192/24|image + .cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416172.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Chimaira - Studio Albums (1999 - 2013) hand made [restored, declipped] [FLAC 2.0
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414623.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ T.Rex - Electric Warrior (1971) 2020 [DSD 128|tracks|Vinyl-Rip] <Glam Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413465.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ The Beatles - Вкус мёда (1986) WavPack|192/32|tracks|Vinyl-Rip] <Beat, R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409401.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408054.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407914.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Freddie Mercury & Montserrat Caballe - Barcelona (1988) VinylRip 24 bit/96 kHz [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407625.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ Breaking Benjamin - Studio Albums (8 releases) (2002 - 2020)  hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407383.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ VA - Best Hit Of Japan (Shungo Sawada/Akira Fukuhara Quintet) (19??) [FLAC 2.0|4
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407367.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ Alice Cooper - Paranormal (2017) 2LP, 45RPM [WavPack 2.0|192/32|image + .cue|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403027.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401420.jpg" />
 </div>
 
 
@@ -667,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401416.jpg" />
 </div>
 
 
@@ -695,7 +724,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392005.jpg" />
 </div>
 
 
@@ -715,35 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C3EBEB566ACF8D405EDC9AB8F7D625BB4B35E5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 717240   (391665) от 31.10.2013
-
-Браво - Bravo (1987) Finland [FLAC 2.0 24/192|Image (Vinyl-Rip)] <Rock'n'Roll, Beat, Rockabilly>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа была основана в 1983 году гитаристом Евгением Хавтаном и ударником Павлом Кузиным, покинувшими группу «Постскриптум» из-за стилевых разногласий. Вокалисткой нового коллектива стала Жанна Агузарова, известная под псевдонимом Иванна Андерс. К группе присоединились саксофонист Александр Степаненко и басист Андрей Конусов. Дебютный концерт «Браво» 18 марта 1984 (   Читать дальше...   )A1.  Кошки (Koshki)  :: 02:50
-A2.  Медицинский Институт (Meditsinskij Institut)  :: 02:36
-A3.  Верю Я (Verju Ja)  :: 03:03
-A4.  Ленинградский Рок-Н-Ролл (Leningradskij RockNroll)  :: 02:26(   Читать дальше...   )Жанр: Rock'n'Roll, Beat, RockabillyФормат: Vinyl, LP, AlbumПродолжительность: 00:27:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A015A8DC2FDC08ED779210622225416EDA39B69
 ```
 
 https://mybot314.ru/tekegram_catalog/

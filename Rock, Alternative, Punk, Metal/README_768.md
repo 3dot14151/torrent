@@ -1,3 +1,32 @@
+###  Публикация: 1262951   (291411) от 17.11.2018
+
+Sirenia - Arcane Astral Aeons (2018) Limited Edition [FLAC|Lossless|image + .cue] <Symphonic Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Styx Embrace (6:01)
+02. Into The Night (4:41)
+03. Love Like Cyanide (5:49)
+04. Desire (5:15)(   Читать дальше...   )Жанр: Symphonic Gothic MetalПродолжительность: 00:59:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3B42EF03055B8896D9A9CAF7736FB9F9E15C6CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263001   (291409) от 17.11.2018
 
 Ночные Снайперы - если не слабо (2018) Single [MP3|320 Kbps] <Rock>
@@ -6,7 +35,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291409.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ F.P.G - #новоестароезлое (2018) [MP3|320 Kbps] <Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291384.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ Graveshadow - Nocturnal Resurrection (2015) [FLAC|image +.cue]<Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291344.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ REKI - Безвремя (2015) [FLAC|Lossless|Tracks] <Instrumental, Rock, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291343.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291338.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ REKI - Безвремя (2015) [MP3|320 kbps] <Instrumental, Rock, Metal, Indust
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291329.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ Silked & Stained - Goes Up to Eleven (2019) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291311.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291205.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291150.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ Queen - News Of The World (1977) 40th Anniversary Edition (2017) 3CD [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291029.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_290990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_290990.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290873.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290868.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ Candice Night (Blackmore's Night) - Starlight Starbright (2015) [FLAC|Image+cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290737.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ AC/DC - The Razors Edge (1990) 2003, Epic [FLAC|tracks+.cue]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290617.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ VA - Symphonic Metal - Dark & Beautiful I-9 (2010-2015) [MP3|320 кб/с]<Sympho
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290610.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ Eternal Idol - The Unrevealed Secret (2016) Japanese Edition [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290332.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ The Killers - Don't Waste Your Wishes (2016) Compilation [FLAC|Lossless|tracks] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290160.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ Creedence Clearwater Revival - Ultimate Creedence Clearwater Revival: Greatest H
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290073.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290027.jpg" />
 </div>
 
 
@@ -580,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290017.jpg" />
 </div>
 
 
@@ -606,7 +635,7 @@ Leah - The Quest (2018) [FLAC|Lossless|image + .cue] <Symphonic Metal, Medieval 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289930.jpg" />
 </div>
 
 
@@ -635,7 +664,7 @@ Those Poor Bastards - Inhuman Nature (2018) [MP3|320 Kbps] <Gothic, Alternative 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289906.jpg" />
 </div>
 
 
@@ -664,7 +693,7 @@ VA - Top Of The Pops 1979 (2007) CD, Compilation [MP3|320 Kbps] <Rock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289820.jpg" />
 </div>
 
 
@@ -693,7 +722,7 @@ Celldweller - Beta Cessions: Demos & Rarities (2017) [MP3|320 Kbps] <Industrial,
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289819.jpg" />
 </div>
 
 
@@ -707,35 +736,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31EEDE3FE9C0CD3F185E47842699BFFF37A597C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335173   (289752) от 01.11.2019
-
-Peter Felippi - Blue Light (1982) LP [MP3|320 Kbps] <Electronic, Krautrock, Synth-pop, Ambient>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tageseifer (Keep Cool) (4:23)
-02. Dschungel (The Lost Ark) (5:43)
-03. Ambivalenz (6:01)
-04. Traumland (3:49)(   Читать дальше...   )Жанр: Electronic, Krautrock, Synth-pop, AmbientПродолжительность: 00:37:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:807CB125662C9C3F5EAF39244AD242360FA44A2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

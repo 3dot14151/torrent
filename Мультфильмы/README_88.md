@@ -1,3 +1,135 @@
+###  Публикация: 1500801   (839346) от 07.10.2021
+
+Американский папаша / American Dad! (2005-2021) WEB-DLRip [H.265/1080p-LQ] [10 bit] (сезон 1-17, серии 1-321 из 322) 2x2, Filiza Studio, Jaskier, TVShows, Zone Vision, Little
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главные герои сюжета всех сезонов и серий мультсериала «Американский папаша» — американская семья во главе с настоящим агентом ЦРУ Стэном. Стэн немного глуп, но это сполна компенсируется грудой мышц и воинственным выражением лица. У него и его жены Франсин двое детей-подростков. Дочка Хэйли с замашками хиппи и отчаянным либерализмом ничего не боится, а ее брат Стив (   Читать дальше...   )Производство: США / Turner Broadcasting System (TBS)Жанр: мультсериал, комедия, пародия, чёрный юморРежиссер: Шоун Мюррэй, Ральф Фернан, Тим Парзонс, Джо ДаниеллоАктеры: Сет МакФарлейн, Уэнди Шаал, Ди Брэдли Бэйкер, Скотт Граймз, Рэйчел МакФарлейн, Майк Баркер, Кёртис Армстронг, Патрик Стюарт, Эдди Кэй Томас, Даизуке Сузуки, Эрик Дарбин, Кевин Майкл Ричардсон, Джефф Фишер, Майк ГенриПеревод: Многоголосый закадровый, - (2x2, Filiza Studio, Jaskier, TVShows, Zone Vision)Субтитры: русский, английскийПродолжительность: 321 x ~00:21:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9B0AED52C759E2E38F37DB85D684A7869599419
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488650   (839211) от 07.10.2021
+
+Что, если...? / What If...? (2021) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-9 из 9) HDrezka
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создатели сериала представляют, что будет, если изменить некоторые важные моменты из жизни персонажей Marvel.Производство: США / Flying Bark Productions, Marvel Studios Inc.Жанр: мультфильм, фэнтези, боевик, приключенияРежиссер: Брайан ЭндрюсПеревод: Многоголосый профессиональный (HDrezka Studio)Язык озвучки: Русский, английскийСубтитры: Russian (Forced, Full), English (SDH) и другиеПродолжительность: ~00:30:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:929F5D74B3E0C5AECB054288EEB890F712908854
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 651304   (839124) от 02.05.2013
+
+Король Лев / The Lion King (1994) BDRip [UKR, ENG]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839124.jpg" />
+</div>
+
+
+###  Подробнее
+
+На глаза у малыша Симбы погиб его отец, король Лев Муфаса. Спасаясь от мести интригана дяди Шрама, в панике Симба сбежал из родной стаи в тропические джунгли.
+
+Слегка оправившись от шока, львенок начал привыкать к новой обстановке. Тем более, что скоро в его жизни появилось два самых веселых в мире друга. Но нельзя отречься от своего прошлого, повзрослевшему Симбе (   Читать дальше...   )Жанр: драма, комедия, мультфильм, мюзикл, приключения, семейныйРежиссер: Роб Минкофф, Роджер АллерсАктеры: Джереми Айронс, Вупи Голдберг, Роуэн Аткинсон, Мэттью Бродерик, Джонатан Тейлор Томас, Джеймс Эрл Джонс, Мойра Келли, Никета Калам, Эрни Сабелла, Натан ЛейнПеревод: Дублированный (украинский)Продолжительность: 01:28:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC691C33EB7CB1BFD526B494BBB98D08F9238E53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379561   (839074) от 29.04.2020
+
+Сержант Стабби: Американский герой / Sgt. Stubby: An American Hero (2018) BDRip [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Правдивая история о собаке-сержанте по кличке Стабби, получившей звание и награды за подвиги на Первой мировой войне. Бездомный голодающий щенок попал в добрые руки молодого солдата и стал членом его полка. Вместе со своей армейской семьёй пёс Стабби отправился на французский фронт, где участвовал в боях, спасал раненых и ловил шпионов.Производство: Ирландия, Франция / Fun Academy Media GroupЖанр: Мультфильм, приключения, семейный, военный, историяПеревод: Многоголосый профессиональный (HDrezka Studio)Субтитры: ОтсутствуютПродолжительность: 01:24:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F0A79234EA00996597429979E8D83040B400261
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 879060   (838835) от 17.03.2015
+
+Город героев / Big Hero 6 (2014) Blu-ray [1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838835.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юный Хиро Хамада — прирожденный изобретатель и гений конструирования роботов. Вместе со старшим братом Тадаши они воплощают в жизнь самые передовые идеи в Техническом университете города будущего Сан-Франсокио. После серии загадочных событий друзья оказываются в центре коварного заговора. Отчаявшись, Хиро решает использовать веселого и добродушного экспериментального (   Читать дальше...   )Производство: США, Walt Disney Animation Studios, Walt Disney PicturesЖанр: Мультфильм, Фантастика, Комедия, Семейный, БоевикРежиссер: Дон Холл, Крис УильямсПерсонажи: Райан Поттер, Скотт Эдсит, Джейми Чунг, ТиДжей Миллер, Дженезис Родригез, Дэймон Уайанс мл., Майя Рудольф, Джеймс Кромуэлл, Алан Тьюдик, Чарльз АдлерПеревод: Дублированный (Лицензия Blu-ray CEE)Субтитры: Вшитые отключаемыеЯзык субтитров: Английский, польский, чешский, арабский, греческий, румынский, русскийПродолжительность: 01:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF9C80AB3788E7225093218629C45801FEE78301
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 879026   (838750) от 17.03.2015
 
 Город героев / Big Hero 6 (2014) BDRip [720p]
@@ -6,7 +138,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838750.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838705.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838612.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838359.jpg" />
 </div>
 
 
@@ -110,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838237.jpg" />
 </div>
 
 
@@ -138,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838110.jpg" />
 </div>
 
 
@@ -164,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837996.jpg" />
 </div>
 
 
@@ -190,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837612.jpg" />
 </div>
 
 
@@ -216,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837437.jpg" />
 </div>
 
 
@@ -242,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837349.jpg" />
 </div>
 
 
@@ -268,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837342.jpg" />
 </div>
 
 
@@ -294,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837051.jpg" />
 </div>
 
 
@@ -320,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836992.jpg" />
 </div>
 
 
@@ -346,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836687.jpg" />
 </div>
 
 
@@ -372,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836551.jpg" />
 </div>
 
 
@@ -398,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836287.jpg" />
 </div>
 
 
@@ -424,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835947.jpg" />
 </div>
 
 
@@ -450,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835927.jpg" />
 </div>
 
 
@@ -477,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835848.jpg" />
 </div>
 
 
@@ -503,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835657.jpg" />
 </div>
 
 
@@ -529,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835656.jpg" />
 </div>
 
 
@@ -540,139 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76224CF1582372FFCE27DC72F05B66C388D65021
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 651968   (835646) от 04.05.2013
-
-Эрнест и Селестина: Приключения мышки и медведя / Ernest et Celestine (2012) DVD5
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835646.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большая дружба начинается с малого… Она — маленькая мышка, он — огромный медведь. Она — ребенок, он — взрослый. Она мечтает быть художницей, хотя по правилам своего мира должна стать дантистом, он — музыкант и поэт, ведущий бездумную жизнь и никогда не имеющий куска хлеба на завтра. Они живут в разных мирах: для обитателей мышиного царства нет ничего более дикого, (   Читать дальше...   )Производство: La Parti Productions / Les Armateurs / StudioCanalЖанр: Мультфильм, рисованная анимацияРежиссер: Стефани Обье, Венсан Патар, Бенжамин РеннерАктеры: Ламбер Вильсон, Полин Бруннер, Энн-Мари Луп, Патрис Меленнек, Ян Лемадик, Доминик Морен, Федор Аткин, Винсент ГрассПеревод: ДублированныйЯзык субтитров: РусскийПродолжительность: 01:16:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A9569E48F71431032607BDEC821D55FE1827EC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 193624   (835283) от 22.04.2010
-
-Том и Джерри (выпуск 10) / Tom & Jerry (vol 10) (1940-1967) DVDRip
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_835283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Название серий:
-
-1. Том-культурист
-2. Очень грустная история(   Читать дальше...   )Жанр: Рисованая анимация, ДетскийРежиссер: Уильям Ханна /William Hanna/, Джозеф Барбера, /Joseph Barbera/Персонажи: Том и ДжерриПеревод: Одноголосый закадровыйПродолжительность: 01:18:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501640   (835259) от 10.10.2021
-
-Алиса без ума от театра / Alice Is Stage Struck (1925) WEBRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дворовая театральная постановка. Конечно же Алиса на первых ролях. Вот только, как в и в любом театре, здесь творится неразбериха и хаос. В результате на голову Алисы падает тяжелый тюк. И она после удара переносится в страну грез...Производство: США, Walt Disney ProductionsЖанр: Рисованная анимация, ДетскийРежиссер: Уолт ДиснейАктеры: Марджи Гэй, Джо Аллен, Леон Холмс, Марджори СьюэллПеревод: Немой с интертитрамиСубтитры: Английские интертиры, русские отдельным файломПродолжительность: 00:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A8432918C297D2EDD6FEF537D44F680C8A600A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501637   (835187) от 10.10.2021
-
-Если верить в сказку (1978) TCRip [H.264/1080p]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыкальный мультфильм о новогодних чудесах.Производство: СССР / Молдова-фильмЖанр: Рисованная анимация, короткометражкаРежиссер: Виктория БарбэПеревод: Не требуетсяСубтитры: отсутсвуютПродолжительность: 00:09:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEC62C61F855ACBFE191798BD13B8C7945D2956D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501648   (835118) от 10.10.2021
-
-Земля до начала времен 10: Великая Миграция / The Land Before Time X: The Great Longneck Migration (2003) WEBRip [H.264/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835118.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нашего героя, неугомонного Крошки-Ножки, и компанию его друзей-динозавриков ждет невероятное путешествие, исполненное потрясающих сюрпризов и удивительных открытий. Наши забавные озорники-приятели станут свидетелями многих чудес и, конечно же, самого большого сборища доисторических ящеров, где Крошки-Ножки ждет потрясающая встреча с одним особенным Длинношеем Динозавром, (   Читать дальше...   )Производство: США, Universal Cartoon StudiosЖанр: Рисованная анимация, Музыкальный, Приключения, ДетскийРежиссер: Чарльз ГросвенорАктеры: Джон Ингл, Алек Медлок, Кеннет Марс, Мириам Флинн, Ария Ноэль Курзон, Джефф Беннетт, Роб Полсен Энди МакЭфи, Брэндон де Пол, Джеймс ГарнерПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 01:24:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB8B88C33F97D1A31CB962E286659894DE9F2AEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1192522   (263251) от 17.12.2017
+
+VA - The Best Of Pulsar (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andy Groove - Thunderstorm (original mix)
+02. AEG - Always In My Memories (original mix)
+03. Volmax - Near Reality (James Kitcher remix)
+04. Sound Apparel - Dream (2017 Remaster)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 04:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4237E13B119A3790B45DA7A61F046A834E8C505E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192577   (263246) от 17.12.2017
+
+VA - Alter Ego: Progressive Best Of 2017 (Mixed by Luigi Palagano) (2017) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hanski - Sirens (radio edit)
+02. Varun & Inge Lemon - Velour (radio edit)
+03. ARChima - Skyfall (radio edit)
+04. Metroom - Inside (radio edit)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 03:18:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFD5904988E99E3E5A81D5476EBDBD923B49CECC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1192690   (262841) от 18.12.2017
 
 VA - Extrema Global Music Best Of (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -6,7 +64,7 @@ VA - Extrema Global Music Best Of (2017) [MP3|320 Kbps] <Trance, Uplifting Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262841.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - The Best Of Suanda Dark (Mixed by  Roman Messer) (2017) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262271.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ NX-Trance - Angst: The Seventh Album (2017) [MP3|320 Kbps] <Trance, Tech Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262270.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Best Of Trance Vol.07 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262267.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Best of Afterworld (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262147.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Subculture - The Singles (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262146.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - The Best Of Suanda Base (Mixed by Ahmed Helmy) (2017) [MP3|320 Kbps] <Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262144.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Christmas Trance 2018 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262141.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Vocal Trance 2018 (2017) [MP3|320 Kbps] <Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262102.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Best Of Vandit (Mixed by Jardin) (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261996.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Ferry Corsten Presents Corsten's Countdown December (2017) [MP3|320 Kbps] <
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261989.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Entrancing Music Top 20 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261985.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Black Hole Trance Music 12-17 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261979.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Best of Lifted (Mixed bi Azima) (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261828.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Extrema Global Music - Best Of 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261593.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 15 (2025) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261539.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Uplifting Only Top 15: November 2025 (Extended Mixes) (2025) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261501.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Uplifting Only Top 15: October 2025 (Extended Mixes) (2025) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261500.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Trancendence, Vol. 06 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260996.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - The Best Of Suanda Dance 2025 (2025) [MP3|320 Kbps] <Dance, Club, Trance, E
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257986.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - New Year Trance Rave 2026 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257744.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - The Best Of Suanda Progressive 2025 (2025) [MP3|320 Kbps] <Trance, Progress
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257740.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Autumn Trance 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257737.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Progressive Trance Awakening, Vol. 09 (2025) [MP3|320 Kbps] <Trance, Progre
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256853.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Progressive Trance Awakening, Vol. 09 (2025) [MP3|320 Kbps] <Trance, Progre
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7106E2BDBE3F315B91374EFC990706D558764E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837250   (256852) от 15.11.2025
-
-VA - 10 Years of Dreamstate (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul van Dyk + Aly & Fila - Is This Only A Dream? (A Dreamstate Anthem) (Festival Mix) [5:39]
-02. Nifra & Sarah De Warren - On Repeat (Extended Mix) [4:40]
-03. Paul Oakenfold - Viola (Original Mix) [5:31]
-04. Giuseppe Ottaviani & Darren Porter - Keep Your Dreams Alive (Extended Mix) [4:34](   Читать дальше...   )Жанр: TranceПродолжительность: 01:38:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:444A449D3126ADA4D17CBE890D0D4C35A269C36A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837118   (256849) от 15.11.2025
-
-VA - The Best Trance Tunes Of 2025 Vol. 2 - Mixed by Roan Gosling (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. tyDi - Fool For You (Original Mix) [3:15]
-02. Protoculture - Viper (Original Mix) [6:35]
-03. Ahmed Helmy - What If! (Original Mix) [6:25]
-04. Benjamin Duchenne & The Element - The Sound Of Hope (Original Mix) [6:03](   Читать дальше...   )Жанр: TranceПродолжительность: 01:38:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D810BA80CB1CA4E3B9AEEE2C51733598B34ADA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

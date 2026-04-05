@@ -6,7 +6,7 @@ Discovery. Катастрофа на колесах / Wheels That Fail (2014) HD
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578916.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Discovery. Дорожные ковбои / Аsphalt Сowboys (2012) HDTVRip [С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578832.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578795.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NGW: Пир драконов / Dragons Feast (Into the Dragon's Lair) (2012) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578058.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ BBC. Снежные медведи / Snow Bears (2017) DVB [H.264]
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577995.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Animal Planet. Банда тигриц / Tigress Blood (2014) HDTVRip [H.264/108
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577948.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ NGW: Кошачья душа / Soul of the Cat (2017) HDTVRip [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577928.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ NGW: Дикая природа Индонезии / Wild Indonesia (2014) HDTV [
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577867.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ BBC: Мир природы. В поисках легенды – чёрный л
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_577820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_577820.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577400.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ BBC: Прогулки с динозаврами / Walking with Dinosaurs (1999) 
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577303.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Discovery: Ледяное золото / Ice Cold Gold (2013) SATRip (1 сезо
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577238.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Discovery. Дом для авто / House of Cars (2014) HDTVRip [Серия 1-4
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577182.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Discovery: Ледяное золото / Ice Cold Gold (2014) HDTVRip (2 сез�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577178.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Discovery. Дом для авто / House of Cars (2014) HDTV [H.264/720p] [Се
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577174.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577115.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Discovery: Безопасность границ: США (сериия 1-11 из
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576914.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576896.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ BBC: Мир природы: Снежный Барс / BBC: Natural World: Snow L
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_576761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_576761.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ BBC: Борьба за жизнь / Fight for Life (2007) 3хDVD5
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_576673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_576673.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ BBC: Разум человека (Лабиринты мозга) / The Human Min
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_576643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_576643.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Discovery Channel: Battlefield / Поля сражений (2005) TvRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_576624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_576624.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Discovery: История изобретений, Промышленные от�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_576605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_576605.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Discovery: Доисторические хроники. Даллас / Prehistor
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576423.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Animal Planet. Дикая Франция (10 серий из 10) / Wild France (
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576220.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ NGW: Птичья популяция / Bird Nation (2018) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576000.jpg" />
 </div>
 
 

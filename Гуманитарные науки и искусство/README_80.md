@@ -1,85 +1,3 @@
-###  Публикация: 945846   (426813) от 13.10.2015
-
-Сюзи Ходж | Искусство. 50 идей, о которых нужно знать (2014) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюзи Ходж – художник, искусствовед и историк искусства, автор более 50 книг об искусстве, среди которых монографии об импрессионизме, викторианском искусстве, древнеегипетском искусстве, о Пабло Пикассо и Клоде Моне. С. Ходж является членом Королевского общества искусств, читает лекции по всему миру.
-
-Искусство всегда являлось зеркалом, отражающим эпоху. Загадочное (   Читать дальше...   )Жанр: ИскусствоведениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1275616DA72FA109B94E9926CEB2329A4CC071F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166427   (426670) от 16.09.2017
-
-Юлиус Эвола | Метафизика пола (1996) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга известного итальянского мыслителя-традиционалиста Юлиуса Эволы получила огромную известность на Западе и считается классическим трудом, исследующим проблемы пола и сексуальности. Проанализировав огромное количество материала, сосредоточенного в древних источниках, культурах, религиях, мистериях, наконец, в самой истории, автор приходит к парадоксальному выводу (   Читать дальше...   )Жанр: ФилософияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9E883D5F068C72024C40ED0437D4CEDB857BE6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411813   (425070) от 26.09.2020
-
-Александр Силаев | Философия без дураков. Как логические ошибки становятся мировоззрением и как с этим бороться? (2020) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425070.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кому без рационального мышления жить хорошо? Тому, кто о нем даже не задумывается. А всех остальных частный инвестор и алготрейдер Александр Силаев призывает мыслить точно. Не путать чувства и мышление. Бороться с помощью конкретных методов с плохими теориями и логическими ошибками. Искать, допытываться, опровергать и сравнивать.
-
-В этой книге про рациональное мышление (   Читать дальше...   )Жанр: Философские науки, СоциологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D75BE9146105FB7E5663F29C45D8BB82B05277C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1250456   (424749) от 28.09.2018
 
 Ю.А. Жданов | Закон единства и борьбы противоположностей как суть, как ядро диалектики (1967) [DJVU, PDF]
@@ -88,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424749.jpg" />
 </div>
 
 
@@ -114,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424731.jpg" />
 </div>
 
 
@@ -142,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424575.jpg" />
 </div>
 
 
@@ -168,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424099.jpg" />
 </div>
 
 
@@ -194,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424053.jpg" />
 </div>
 
 
@@ -220,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423225.jpg" />
 </div>
 
 
@@ -246,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422495.jpg" />
 </div>
 
 
@@ -275,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421761.jpg" />
 </div>
 
 
@@ -303,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420873.jpg" />
 </div>
 
 
@@ -329,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420725.jpg" />
 </div>
 
 
@@ -355,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420713.jpg" />
 </div>
 
 
@@ -381,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420710.jpg" />
 </div>
 
 
@@ -407,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420386.jpg" />
 </div>
 
 
@@ -433,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420308.jpg" />
 </div>
 
 
@@ -459,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420286.jpg" />
 </div>
 
 
@@ -485,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420261.jpg" />
 </div>
 
 
@@ -511,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420254.jpg" />
 </div>
 
 
@@ -537,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420213.jpg" />
 </div>
 
 
@@ -563,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420189.jpg" />
 </div>
 
 
@@ -589,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420184.jpg" />
 </div>
 
 
@@ -615,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420183.jpg" />
 </div>
 
 
@@ -641,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420084.jpg" />
 </div>
 
 
@@ -667,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420065.jpg" />
 </div>
 
 
@@ -678,6 +596,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26DBFD88B142CB55F8A360053202AB5962E459F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946391   (419905) от 16.10.2015
+
+Дарон Аджемоглу, Джеймс А. Робинсон | Почему одни страны богатые, а другие бедные (2015) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами — один из главных политэкономических бестселлеров последнего времени, получивший высочайшую оценку ведущих экономистов мира и удостоенный ряда престижных международных премий. Авторы книги делают убедительную попытку ответить на один из важнейших вопросов политической экономики: почему мировое богатство распределено по странам и регионам мира столь неравномерно? (   Читать дальше...   )Жанр: ЭкономикаПеревод: Дмитрий Литвинов, Павел Миронов, Сергей СановичФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:325A7200DC8F619397EBFF442B134A9D46757A46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167256   (419578) от 19.09.2017
+
+Анна А. Зализняк и др. | Константы и переменные русской языковой картины мира (2012) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совокупность представлений о мире, заключенных в значении слов и выражений того или иного языка, складывается в единую систему взглядов, которую, сами того не замечая, принимают все носители данного языка. Реконструкции такой системы представлений, заложенной в русском языке, посвящена данная книга.
+В книгу вошли работы трех авторов, написанные в период с 1994 по (   Читать дальше...   )Жанр: ЛингвистикаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E7DDF924C73FD40B13C3E7237E350CEA5B4B77E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167259   (419438) от 19.09.2017
+
+Н.С. Болотнова | Филологический анализ текста (2009) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие обобщает и систематизирует материал по теории текста, содержит описание различных подходов к определению текста и его признаков, освещение текстовых категорий, основных средств межфразовой связи, а также типологии текстов. Основные понятия теории текста рассмотрены с позиций коммуникативной стилистики текста. Разные виды анализа текста представлены как важнейшие (   Читать дальше...   )Жанр: Учебное пособие, филологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B27C52F866974FEC85B87B211B8FAF126C75BBDC
 ```
 
 https://mybot314.ru/tekegram_catalog/

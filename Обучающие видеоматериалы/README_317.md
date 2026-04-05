@@ -1,3 +1,32 @@
+###  Публикация: 1806249   (11834) от 11.07.2025
+
+Udemy, Marco Paoletta | Godot 4 Fast Lane: Game Development for Absolute Beginners (2025) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на курс «Кратчайший путь к мастерству Годо» , призванный помочь вам избежать путаницы, избежать бесконечной теории и начать создавать настоящие игры уже сегодня.
+
+Большинство людей пытаются изучить Годо следующим образом:
+- Просматривая случайные руководства, никогда не знаешь, улучшаются ли они.(   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 03:59:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A48B196619BB1690EE678A036E4D532AEA59565
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806216   (11828) от 11.07.2025
 
 Udemy, Yasar VURDEM | The Ultimate Digital Drawing Class: Portrait Paintings (2025) WEB-DL [EN]
@@ -6,7 +35,7 @@ Udemy, Yasar VURDEM | The Ultimate Digital Drawing Class: Portrait Paintings (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11828.jpg" />
 </div>
 
 
@@ -34,7 +63,7 @@ Udemy, O- Academy | Furniture Design Using Blender (2025) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11825.jpg" />
 </div>
 
 
@@ -60,7 +89,7 @@ Skillshare, PIXXO 3D | Master 3D Cloth Simulation - Blender (2023) WEBRip [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11646.jpg" />
 </div>
 
 
@@ -86,7 +115,7 @@ Udemy, Manal Abdullal | AutoCAD 2026 2D Essentials – Complete Course (2025) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11639.jpg" />
 </div>
 
 
@@ -112,7 +141,7 @@ Skillshare, Sasha Luvr | Make everything Fluffy with Blender 4 - 3D illustration
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11631.jpg" />
 </div>
 
 
@@ -138,7 +167,7 @@ Filmmakers Academy, Shane Hurlbut | DIY Lighting Tips and Tricks (2021) WEB-DL [
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11627.jpg" />
 </div>
 
 
@@ -164,7 +193,7 @@ Udemy, CADArtifex LLC | Mastering AutoCAD 2D & 3D for Beginners (2025) WEB-DL [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11612.jpg" />
 </div>
 
 
@@ -190,7 +219,7 @@ Udemy, Jutta Schneider | Draw With Me in Procreate: Mid-Century Cookbook Illustr
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11611.jpg" />
 </div>
 
 
@@ -216,7 +245,7 @@ Skillshare, Mel Armstrong | Illustrate a Children’s Book Cover in Procreate (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11598.jpg" />
 </div>
 
 
@@ -242,7 +271,7 @@ Linkedin, Bart Van de Wiele | Adobe Firefly Essential Training (2025) WEB-DL [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11597.jpg" />
 </div>
 
 
@@ -268,7 +297,7 @@ PurpleSchool, Udemy, Антон Ларичев | Golang - Templ Fiber HTMX. Ку
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11574.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Balun.Courses, Владимир Балун | Concurrency в GO (2025) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11443.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ Udemy, Eyevenear | An Ultimate Premiere Masterclass: Beginner to Pro Editing (20
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11439.jpg" />
 </div>
 
 
@@ -350,7 +379,7 @@ Gumroad, 3dex | How to Make a Stylized Outdoor Environment from Start to Finish 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11424.jpg" />
 </div>
 
 
@@ -376,7 +405,7 @@ Microarch, Кирилл Ветчинкин | Domain Driven Design и Clean Archi
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11247.jpg" />
 </div>
 
 
@@ -404,7 +433,7 @@ Balun.Courses, Игорь Панасюк | Оптимизация Go, как в 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11246.jpg" />
 </div>
 
 
@@ -433,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11161.jpg" />
 </div>
 
 
@@ -460,7 +489,7 @@ GeekBrains | Блокчейн-разработка (2020) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11146.jpg" />
 </div>
 
 
@@ -489,7 +518,7 @@ Balun.Courses, Владимир Балун | Дженерики в Golang (2025)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11110.jpg" />
 </div>
 
 
@@ -518,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11049.jpg" />
 </div>
 
 
@@ -547,7 +576,7 @@ Balun.Courses, Владимир Балун | Подготовка к Golang со
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11021.jpg" />
 </div>
 
 
@@ -576,7 +605,7 @@ Purpleschool, Андрей Соколов | Bash скрипты (2025) WEB-DL [R
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11017.jpg" />
 </div>
 
 
@@ -604,7 +633,7 @@ Kobezzza, Андрей Кобец | IndexedDB в действии (2025) WEB-DL 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10703.jpg" />
 </div>
 
 
@@ -632,7 +661,7 @@ Balun.Courses, Виталий Лихачев | Observability, как в BigTech 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10526.jpg" />
 </div>
 
 
@@ -660,7 +689,7 @@ Kobezzza, Дмитрий Холстинин | Продвинутый Debug во 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10423.jpg" />
 </div>
 
 
@@ -674,34 +703,6 @@ Kobezzza, Дмитрий Холстинин | Продвинутый Debug во 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4356250E58FBF92A5163002D9AE9CEF10A8126A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808719   (10322) от 26.07.2025
-
-Kobezzza, Андрей Кобец | Практический курс по TypeScript - от новичка до PRO (2025) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полный курс, посвященный последней версии TypeScript 5 и его стандартному компилятору tsc. В рамках учебной программы вы изучите все аспекты языка и особенности работы с типами, освоите создание программ для интеграции в pipeline процесса сборки и оптимизации итогового кода, а также получите знания об альтернативных реализациях транслятора TS.
-
-Рассмотрим все детали (   Читать дальше...   )Производство: KobezzzaЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 41:52:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB2E7E4C6EF9A67FA65985342DB4D4AC3973F00C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Immortal Love 10: Polar Lights (2023) [En] (1.0) Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208947.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ When The Past Was Around (2020) [Ru/Multi] (1.0.3) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208828.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Big Adventure: Trip to Europe 5 / Большое приключение: Пое�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208748.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Immortal Love 10: Polar Lights / Бессмертная любовь 10: Сев�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208174.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Whispered Secrets 14: Purrfect Horror / Нашептанные секреты 14
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208096.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Mystical Riddles 3: Ship From Beyond (2023) [Multi] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208045.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ It Happened Here 2: Beacon of Truth (2023) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207825.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Cursed Fables 3: A Voice to Die For / Проклятые предания 3: Г�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207564.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ One Dreamer (2022) [En] (1.0.7) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207342.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Dark City 8: Kyiv (2023) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207101.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Ms. Holmes 4: The Case of the Dancing Men / Мисс Холмс 4: Дело о �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207033.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Mystical Riddles 3: Ship From Beyond / Мистические загадки 3: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206954.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Connection of Worlds 2: Star Riddle (2023) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206654.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Royal Romances 4: Endless Winter / Королевские романы 4: Веч
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206030.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ It Happened Here 2: Beacon of Truth / Это случилось здесь 2: С
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206014.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Halloween Stories 9: The Death Card / Хеллоуинские истории 9:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205708.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ City Legends 3: Ghost of Misty Hill / Городские легенды 3: Пр�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203249.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Sherlock Holmes and The Hound of the Baskervilles / Шерлок Холмс и �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202315.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Rendezvous (2023) [En] (1.1.0.2) Scene Tenoke
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199214.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Magic City Detective 3: Rage Under Moon / Волшебный город 3: Яр�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198280.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Twin Mind 4: Nobody's Here / Двуединое Сознание 4: Здесь �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198233.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Secrets of Worlds 2: Mystery Agency / Тайны миров 2: Детектив�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_198018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_198018.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Mystery Case Files 25: The Dalimar Legacy / За семью печатями 25:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196760.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Crossroads 3: What Was Lost (2023) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196703.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Dark City 8: Kyiv / Мрачный город 8: Киев (2023) [Ru] (1.0) Unof
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194349.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Sugar Sweet Temptation (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194246.jpg" />
 </div>
 
 

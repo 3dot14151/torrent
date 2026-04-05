@@ -1,3 +1,56 @@
+###  Публикация: 1148153   (604208) от 05.07.2017
+
+М.Б. Ванюшин | Электротехника для любознательных (2017) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604208.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знакомство с миром электротехники принесет много полезного и интересного любознательному читателю. В ходе опытов и экспериментов пытливый читатель познакомится с основополагающими принципами и законами электротехники, поймет, как работают электросети, электрические машины, даже научится самостоятельно рассчитывать простые электрические цепи.
+ Информация книги будет (   Читать дальше...   )Жанр: ЭлектроникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B6944702810115F978515A742C6D4A37FCE93F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231624   (604131) от 19.06.2018
+
+А.С. Головчук | Устройство, эксплуатация и ремонт электровозов серии 2ЭС4К (2014) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604131.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дано описание основного оборудования и схем электровоза 2ЭС4К "Дончак". Рассмотрены устройство и принцип работы оборудования механической части электровоза, тягового электродвигателя и вспомогательных машин, электрических аппаратов, а также пневматического оборудования.Жанр: учебное пособиеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7F44528489D53308A7A2DC6E5F6729AC9401F4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1231625   (604119) от 19.06.2018
 
 Д.А. Смаглюков | Устройство и эксплуатация электровоза ЭП20 (2015) [DJVU]
@@ -6,7 +59,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604119.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602528.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602511.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602510.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601039.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600662.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600350.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600274.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600189.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600181.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599378.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599316.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598338.jpg" />
 </div>
 
 
@@ -350,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597861.jpg" />
 </div>
 
 
@@ -377,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597259.jpg" />
 </div>
 
 
@@ -403,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595906.jpg" />
 </div>
 
 
@@ -429,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595901.jpg" />
 </div>
 
 
@@ -455,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595816.jpg" />
 </div>
 
 
@@ -481,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595812.jpg" />
 </div>
 
 
@@ -507,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595787.jpg" />
 </div>
 
 
@@ -534,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594816.jpg" />
 </div>
 
 
@@ -560,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594662.jpg" />
 </div>
 
 
@@ -586,7 +639,7 @@ DDiX LABS | Спутниковое ТВ, Интернет - это просто!
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594292.jpg" />
 </div>
 
 
@@ -614,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593856.jpg" />
 </div>
 
 
@@ -626,58 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8E173B500D1A0075E1A44F00846E54BD7342B58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039374   (593542) от 03.08.2016
-
-Р.М. Малинин | Питание приемников от электросети (1950) [PDF, DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593542.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге приводятся практические схемы кенотронных и селеновых выпрямителей как бестрансформаторных, так и с силовыми трансформаторами и автотрансформаторами, однополупериодных и двухполупериодных. Также описываются схемы с удвоением напряжении. Даются указания по выбору кенотронов и селеновых столбиков для выпрямителей различных назначений и по расчету выпрямителей. (   Читать дальше...   )Жанр: Электроника, радиотехникаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5794E40C24CFA534C0BEB27D3FD26412A6A28A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550013   (592604) от 09.05.2022
-
-Л.И. Кечиев | Экранирование радиоэлектронной аппаратуры. Инженерное пособие (2019) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592604.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии рассматривается концепция экранирования, позволяющая наметить стратегию решения задачи, приводятся элементы теории поля и инженерные методики расчетов электростатических, магнитостатических и электродинамических экранов, включая неоднородные экраны с отверстиями, щелями и зазорами. Приведены необходимые сведения об экранирующих материалах: металлах, композитах (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21DAB6C4B9EE271B96B4FABBBB42CA6D98E1AB94
 ```
 
 https://mybot314.ru/tekegram_catalog/

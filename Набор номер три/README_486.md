@@ -1,3 +1,214 @@
+###  Публикация: 1581709   (326026) от 06.10.2022
+
+LEX LIVE 10 2022 v.22.10.5 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326026.jpg" />
+</div>
+
+
+###  Подробнее
+
+LEX LIVE 10 2022 - портативная операционная система для работы, развлечений, интернета, ремонта компьютеров, которая загружается с USB устройства в оперативную память вашего ПК. Таким образом данная система может работать даже если у вас нерабочий винчестер или он вовсе отсутствует.
+Состав программ смотрите на скриншотах.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2F3FEEE55B497D8E02B056649F9BDB1369913A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581559   (326024) от 06.10.2022
+
+F-Secure Freedome VPN 2.55.431.0 RePack by elchupacabra [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326024.jpg" />
+</div>
+
+
+###  Подробнее
+
+F-Secure Freedome VPN - надежное и эффективное решение для поддержания вашей анонимности в Интернете. Защитите ваш компьютер от хакеров, вредоносных приложений и веб-сайтов, используйте шифрование для защиты Wi-Fi соединения и устанавливайте виртуальное местоположение для анонимной онлайн-активности с помощью F-Secure Freedome. Позвольте Freedome подключить вас к (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46BF2B6C67A56CC538734D767D2DEB8A1637FF9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405961   (326023) от 06.10.2022
+
+Игра на выживание (2020) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-12 из 12)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326023.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чем может обернуться обычное телевизионное реалити-шоу для его участников? 16 человек отправляются в дикую сибирскую тайгу, чтобы побороться за один миллион евро. Правила просты: никакой еды, личных вещей, электричества, связи и цивилизации на сотни километров вокруг. Победит тот, кто дойдет до конца. Но ТВ-проект превращается в смертельно опасную игру, где главным (   Читать дальше...   )Производство: Россия / Амедиа Продакшн, KarGo Films по заказу телеканала ТНТЖанр: Триллер, приключенияРежиссер: Карен ОганесянАктеры: Александра Бортич, Алексей Чадов, Игорь Верник, Линда Лапиньш, Владимир Верёвочкин, Беник Аракелян, Анастасия Тодореску, Валерий Скорокосов, Дэвид Пилиа, Юлия ВолковаПродолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40DEDF4FF0E4DF4C20AF243D7EFB876AD55750E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 262004   (325944) от 25.11.2010
+
+[Xbox360] Assassin's Creed: Brotherhood [PAL / RUSSOUND] 2010
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325944.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Assassin's Creed: Brotherhood вам вновь предстоит играть за Эцио, который теперь стал легендарным мастером ассасином, и сражаться против ордена Тамплиеров. Поведите свое собственное Братство Ассасинов в самое сердце врага – Рим.
+Впервые в серии Assassin's Creed, Brotherhood даст возможность игрокам принять участие в инновационном многопользовательском режиме, который (   Читать дальше...   )Тип издания: лицензияРазработчик: UbisoftЖанр: Action / 3D / 3rd PersonЯзык интерфейса: Русский, Multi10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:453E55C75D4EB9B43DE3864BBBF1758ECD09B7E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 261984   (325938) от 25.11.2010
+
+Активатор Microsoft Office 2010
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325938.jpg" />
+</div>
+
+
+###  Подробнее
+
+Активатор Microsoft Office 2010. Позволяет активировать Office 2010 Volumе License (VL), а также преобразовать Retail в VL и затем активировать используя эмуляцию сервера KMS.Язык интерфейса: английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 415254   (325563) от 26.11.2011
+
+Андрей и Мария Круз | Исход [2011] [MP3]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывает так, что, когда привычная жизнь рушится, неожиданно появляется не только новый выход из ситуации, но за этим выходом – целый новый мир. И в нем человек может найти новый смысл своей жизни, новых друзей и даже любовь, хотя за все это ему придется драться, против новых врагов и против старых. Так и случилось в жизни Андрея Ярцева, казалось бы состоявшегося и (   Читать дальше...   )Жанр: боевая фантастика
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57BCFEBC7CE6708DE9C45341BBDF0737A8B45E40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957883   (325415) от 19.11.2015
+
+Проекты - VideoHive - Magic Christmas Eve - 9338861 [AEP]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект с зимней тематикой для создания слайшоу .
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:724AF1B87B8EB783FD24FB7C2AE93930E3CD74A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957875   (325404) от 19.11.2015
+
+Беглец / The Runner (2015) HDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конгрессмен Колин Прайс безумно увлечен двумя вещами: политикой и женщинами. После аварии на нефтяной платформе его жизнь полностью меняется. Камеры наблюдения ловят его с темнокожей Люси, женой одного из пострадавших в аварии. Разразившийся сексуальный скандал ставит под угрозу не только карьеру Прайса, но и всю его жизнь. Ложь — лучший политический союзник, но (   Читать дальше...   )Производство: США, Back Lot Pictures, KGB Media, Paper Street FilmsЖанр: ДрамаРежиссер: Остин СтаркАктеры: Николас Кейдж, Сара Полсон, Конни Нильсен, Уенделл Пирс, Брайан Бэтт, Питер Фонда, Лара Грайс, Дэна Гурье, Ванета Уолмсли, Фредрик ЛенеПеревод: Дублированный  (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:30:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0BC46AEFFD11A8414F7D18323494DBADF4C0109
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 838128   (325400) от 19.11.2015
 
 Door Kickers (2014) [Ru/Multi] (1.0.9) Repack John2s
@@ -6,7 +217,7 @@ Door Kickers (2014) [Ru/Multi] (1.0.9) Repack John2s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325400.jpg" />
 </div>
 
 
@@ -32,7 +243,7 @@ Sparkol VideoScribe 2.3.0 PRO RePack by PooShock [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325399.jpg" />
 </div>
 
 
@@ -58,7 +269,7 @@ The Elder Scrolls V: Skyrim Extended Edition v.1.9.32.0.8 (2014) [Ru] [OS X Wine
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325398.jpg" />
 </div>
 
 
@@ -84,7 +295,7 @@ State of Decay YOSE (2015) [Ru/Multi] (1.0/dlc) SteamRip Let'sРlay [Day One Edi
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325397.jpg" />
 </div>
 
 
@@ -110,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325395.jpg" />
 </div>
 
 
@@ -136,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325394.jpg" />
 </div>
 
 
@@ -162,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_325190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_325190.jpg" />
 </div>
 
 
@@ -188,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_325177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_325177.jpg" />
 </div>
 
 
@@ -216,7 +427,7 @@ Altium Designer 15.0.7 (build 36915) Ru-Board Edition [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325176.jpg" />
 </div>
 
 
@@ -242,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_325172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_325172.jpg" />
 </div>
 
 
@@ -268,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_325165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_325165.jpg" />
 </div>
 
 
@@ -294,7 +505,7 @@ Udemy, YouRa Allakhverdov | Android разработка с нуля до про
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325139.jpg" />
 </div>
 
 
@@ -321,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325134.jpg" />
 </div>
 
 
@@ -347,7 +558,7 @@ Alone in the Dark / Alone in the Dark: У последней черты  [Ru] (R
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325055.jpg" />
 </div>
 
 
@@ -374,7 +585,7 @@ Fallout [Ru] (L) 1997
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325048.jpg" />
 </div>
 
 
@@ -400,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324539.jpg" />
 </div>
 
 
@@ -428,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324501.jpg" />
 </div>
 
 
@@ -454,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324424.jpg" />
 </div>
 
 
@@ -465,217 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3E5FF5188C2ED4E0F35A6D39936887C273A0F08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958139   (324423) от 20.11.2015
-
-Watch Dogs (2014) [Ru] (1.06.329/dlc) Repack xatab [Digital Deluxe Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все друг с другом связаны. Мы зависим от новинок рынка высоких технологий, ведь лишь с их помощью узнаем, что происходит в мире. Но у прогресса есть и темная сторона. Каждое наше действие оставляет след: каждый наш шаг, каждая остановка, все, что нам нравится или не нравится. И дело не только в нас. Мегаполисы опутаны цифровыми сетями.Тип издания: RepackРазработчик: Ubisoft Montral, Ubisoft Reflections и Ubisoft RomaniaЖанр: Action, Shooter, 3D, 3rd Person, StealthЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C963B5CB50EC866FE90DAC51FE3E4D320D8C91F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958279   (324421) от 20.11.2015
-
-uTorrent Pro 3.4.5 build 41372 Stable RePack (& Portable) by D!akov [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324421.jpg" />
-</div>
-
-
-###  Подробнее
-
-µTorrent — быстрый, удобный, бесплатный и компактный торрент-клиент. Клиент µTorrent, на сегодняшний день, является одним из самых функциональных решений для работы с сетью BitTorrent. Программа сочетает в себе оптимальную функциональность при небольшом размере. Поддерживает работу независимо от треккера, позволяет загружать сразу несколько файлов, имеет настраиваемую (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8221E5DE6A0CF36985D6E11F5B138E7FEC8A0AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 692842   (324420) от 20.11.2015
-
-City Maps 2Go Pro Offline Maps v3.16.1 [En] - оффлайн интерактивные карты и путеводитель по всему миру!
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324420.jpg" />
-</div>
-
-
-###  Подробнее
-
-City Maps 2Go Pro Offline Maps - Это интерактивные карты и путеводитель по всему миру! Если вы любите путешествовать, то приложение City Maps 2Go Pro Offline Maps для Android создано для вас! Приложению не требуется Wi-Fi или мобильный интернет, оно работает в автономном режиме. В базе приложения более 8000 тысяч карт с достопримечательностями и культурными центрами. (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 18.11.2015Разработчик: Ulmon GmbHПоддерживаемая ОС: Android 4.0 +Язык интерфейса: English
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0835D723F3422D92D5AE24E6BEE908B532AB4BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958110   (324419) от 20.11.2015
-
-Бегущий в лабиринте: Испытание огнём / Maze Runner: The Scorch Trials (2015) HDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324419.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лабиринт пройден, но Томасу, Терезе, Минхо и прочим глэйдерам не приходится расслабляться. Таинственное руководство ПОРОКА — секретной организации, устроившей гонки на выживание — назначает ребятам новые, смертельно опасные испытания. На сей раз их ждет переход по раскаленной пустыне и встреча с жертвами неизлечимой болезни, которые отличаются буйным нравом и непредсказуемым (   Читать дальше...   )Производство: США, TSG Entertainment, Temple Hill Entertainment, Gotham GroupЖанр: Фантастика, Боевик, ТриллерРежиссер: Уэс БоллАктеры: Дилан О’Брайен, Ки Хонг Ли, Кая Скоделарио, Томас Сэнгстер, Декстер Дарден, Алекс Дж. Флорес, Джейкоб Лофленд, Роза Салазар, Джанкарло Эспозито, Патришия КларксонПеревод: Дублированный (Лицензия)Продолжительность: 02:11:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:075E33E84B5126C05A1FCE8941FD0C2826C98F84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957908   (324417) от 20.11.2015
-
-Windows 10 (v1511) RUS-ENG x86 -22in1- (AIO)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная сборка является правопреемницей сборки Windows 10 RUS-ENG x86 -22in1- (AIO) и создана для тех, кто имеет лицензию или же хочет воспользоваться каким-либо другим, предпочитаемым им, способом активации. Сборка создана на основе официальных финальных дистрибутивов и содержит небольшие доработки, влияющие в большинстве своем не на устанавливаемый продукт, а лишь (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A93D277C35A3A5B371F87F96C30E6BEECCCB3FF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940814   (324416) от 20.11.2015
-
-Grand Ages: Medieval (2015) [Ru/Multi] (1.1/dlc) License GOG
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324416.jpg" />
-</div>
-
-
-###  Подробнее
-
-1050 год нашей эры. В начале Высокого Средневековья прогресс в Европе достиг небывалого уровня, и население быстро росло и развивалось во всех уголках континента. Были исследованы новые области, заложены новые поселения и созданы многочисленные торговые пути. Вы играете за главу одного из таких поселений, и вам предстоит привести свой народ к величию.Тип издания: ЛицензияРазработчик: Gaming Minds StudiosЖанр: Strategy (Manage/Busin. / Real-time) / 3DЯзык озвучки: Русский, Английский, Испанский, Французский, Немецкий, ИтальянскийЯзык субтитров: Русский, Английский, Испанский, Французский, Немецкий, Итальянский, Польский, ЯпонскийЯзык интерфейса: Русский, Английский, Испанский, Французский, Немецкий, Итальянский, Польский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA38BF33CA72831217F89D6FB666044623E18FB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958118   (324414) от 20.11.2015
-
-Бегущий в лабиринте: Испытание огнём / Maze Runner: The Scorch Trials (2015) BDRip [H.264/1080p]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324414.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лабиринт пройден, но Томасу, Терезе, Минхо и прочим глэйдерам не приходится расслабляться. Таинственное руководство ПОРОКА — секретной организации, устроившей гонки на выживание — назначает ребятам новые, смертельно опасные испытания. На сей раз их ждет переход по раскаленной пустыне и встреча с жертвами неизлечимой болезни, которые отличаются буйным нравом и непредсказуемым (   Читать дальше...   )Производство: США, TSG Entertainment, Temple Hill Entertainment, Gotham GroupЖанр: Фантастика, Боевик, ТриллерРежиссер: Уэс БоллАктеры: Дилан О’Брайен, Ки Хонг Ли, Кая Скоделарио, Томас Сэнгстер, Декстер Дарден, Алекс Дж. Флорес, Джейкоб Лофленд, Роза Салазар, Джанкарло Эспозито, Патришия КларксонПеревод: Дублированный (Лицензия)Продолжительность: 02:11:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F58B64BA7BB316D0B2E4C8459E59E70F8B553BBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332842   (324204) от 08.10.2022
-
-Manfred Mann / Manfred Mann's Earth Band - 38 Albums, 4 Box-Set, 130CD (1964-2022) [FLAC|Lossless|image + .cue | tracks+.cue] <Prog Rock, Electric Prog, Jazz Rock, Hard Rock, Bit Rock>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Манфред Манн за свою более чем 50-летнюю карьеру успел оставить след во многих музыкальных жанрах: это и поп-музыка с ритм-энд-блюзом в рамках творчества группы Manfred Mann, и экспериментальный джаз-рок, который играла команда Manfred Mann Chapter Three, и целый спектр от прогрессив-рока до новой волны в коллективе Manfred Mann’s Earth Band, и африканская народная (   Читать дальше...   )--------------------------
-
-01. Martha's Madman (10:07)
-02. Times They Are a Changin (6:35)(   Читать дальше...   )Жанр: Prog Rock, Electric Prog, Jazz Rock, Hard Rock, Bit Rock |Продолжительность: 4d 6:42:39 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:698F88A96804054B8FADEAE66BA10E57A5C0A32B
 ```
 
 https://mybot314.ru/tekegram_catalog/

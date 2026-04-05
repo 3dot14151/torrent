@@ -1,3 +1,109 @@
+###  Публикация: 1252222   (408905) от 05.10.2018
+
+Комплект средств для развертывания и оценки Windows (ADK) для Windows 10 V. 10.1.17763.1 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот комплект предназначен для изготовителей и поставщиков оборудования, энтузиастов и ИТ-специалистов, которые измеряют эксплуатационные характеристики компьютера, включая его производительность, надежность и функциональность. Оценки Windows – это средства, которые помогают предоставить эти данные, диагностировать проблемы и способы их решения. Выявляя потенциальные (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DB71F3314EFA410A4F39C20AF1260F295876999
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324827   (408299) от 17.09.2019
+
+WinHex 19.8 SR-8 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408299.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами новенькая версия очень известной программы, а именно универсального HEX ( шестнадцатеричная система счисления ) редактора. Вы сможете работать с любыми жесткими дисками и дискетами, архивами формата ZIP, различными флеш картами, приводами и разными другими носителями информацииЯзык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49145601E7A77C59926E4F53728EA38F239E0A12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413613   (407978) от 04.10.2020
+
+AmiBroker 6.30.0 Professional Edition + AmiQuote 3.31 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа технического анализа. Позволяет производить ручной анализ графиков, а также создавать и тестировать механические торговые системы.
+
+AmiQuote - это быстрая и эффективная программа загрузки и импорт финансовых данных с общедоступных веб-сайтов в AmiBroker.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46776C866A601E2A8F831C1BB37710AC421ADDB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561367   (405383) от 19.10.2012
+
+Драйвера для ноутбуков Samsung серий 300E4X/300E5X/3431EX-DOS (System Software Media) for WINDOWS 7 32bit-64bit n/a [Русский]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Драйверы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_405383.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный диск шел в комплекте с ноутбуком SAMSUNG NP300E5X-U01RU.Сделал iso-образ и выложил.Название программы: Драйвера для ноутбуков Samsung серий 300E4X/300E5X/3431EX-DOS (System Software Media) for WINDOWS 7 32bit-64bitЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 567142   (396696) от 29.10.2012
 
 NVIDIA Nsight Visual Studio Edition 2.2.0.12255 [English]
@@ -6,7 +112,7 @@ NVIDIA Nsight Visual Studio Edition 2.2.0.12255 [English]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_396696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_396696.jpg" />
 </div>
 
 
@@ -34,7 +140,7 @@ Parallels Workstation 6.0.13976 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395457.jpg" />
 </div>
 
 
@@ -62,7 +168,7 @@ QuarkXPress 2017 13.1 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394597.jpg" />
 </div>
 
 
@@ -88,7 +194,7 @@ Project Server 2013 with SP1 64-Bit [En]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390224.jpg" />
 </div>
 
 
@@ -116,7 +222,7 @@ Novicorp WinToFlash Professional 1.12.0000  RePack (& Portable) by elchupacabra 
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382377.jpg" />
 </div>
 
 
@@ -142,7 +248,7 @@ Global Mapper 14.0.2 [Русский]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_379699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_379699.jpg" />
 </div>
 
 
@@ -168,7 +274,7 @@ LDPlayer 3.126 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379215.jpg" />
 </div>
 
 
@@ -194,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378869.jpg" />
 </div>
 
 
@@ -220,7 +326,7 @@ IDA Pro 7.0 2017 Incl. Hex-Rays Decompilers [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371225.jpg" />
 </div>
 
 
@@ -247,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Системы навигации и карты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359878.jpg" />
 </div>
 
 
@@ -274,7 +380,7 @@ QuarkXPress 2016 12.2
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351449.jpg" />
 </div>
 
 
@@ -300,7 +406,7 @@ MInstAll By StartSoft Cowboy Style 05-2020 [Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350502.jpg" />
 </div>
 
 
@@ -326,7 +432,7 @@ CorelCAD 2017.0 Build 17.0.0.1310 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349232.jpg" />
 </div>
 
 
@@ -352,7 +458,7 @@ Samsung Smart Switch 4.1.17102.8 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348492.jpg" />
 </div>
 
 
@@ -378,7 +484,7 @@ Ripple Screensaver 3.2 RePack by вовава [Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344130.jpg" />
 </div>
 
 
@@ -404,7 +510,7 @@ CodeLobster IDE 2.1.0 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342941.jpg" />
 </div>
 
 
@@ -432,7 +538,7 @@ VMWare ThinApp Enterprise 5.2.2 Build 4435715 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342141.jpg" />
 </div>
 
 
@@ -458,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336888.jpg" />
 </div>
 
 
@@ -484,7 +590,7 @@ Adobe Dreamweaver CC 2019 19.0.0.11193 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334101.jpg" />
 </div>
 
 
@@ -510,7 +616,7 @@ Windows Post-Install Wizard by StartSoft Cowboy Style Full 06-2020 [Ru/En]
 >>WPI
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333240.jpg" />
 </div>
 
 
@@ -536,7 +642,7 @@ SQL Navigator for Oracle XPert Edition 7.6.0.124 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332288.jpg" />
 </div>
 
 
@@ -562,7 +668,7 @@ Windows Post-Install Wizard by StartSoft Cowboy Style Lite 07-2020 [Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331909.jpg" />
 </div>
 
 
@@ -573,113 +679,6 @@ Windows Post-Install Wizard by StartSoft Cowboy Style Lite 07-2020 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82E187E52AC425C79C45CAB477E2C06335E2465B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958037   (324433) от 20.11.2015
-
-Portable vs MInstAll v.19.11.15 by Stranger47 [Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>WPI
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324433.jpg" />
-</div>
-
-
-###  Подробнее
-
-Универсальный сборник программ, распределённых по категориям,для операционных систем Windows x86-x64.
-Выбирайте необходимые программы и запускайте установку.
-Установку программ желательно проводить на чистую систему.Перед установкой программ,необходимо отключить антивирусное программное обеспечение!
-По завершении работы,обязательно перезагрузите компьютер!(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:874AEBF88E31A290C0C1F2BAC6C690EEA4AD9475
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420941   (321400) от 03.11.2020
-
-DriverPack Solution 17.10.14 Полная версия (DP 20104) [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Драйверы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321400.jpg" />
-</div>
-
-
-###  Подробнее
-
-DriverPack Solution - это когда-то популярная программа для автоматической установки, обновления и поиска драйверов. Это универсальный менеджер установки драйверов для всех версий Windows. В отличие от встроенной в Windows 7 функции обновления драйверов, этой программой можно пользоваться даже без наличия Интернета и для поиска/установки драйверов не только на устройства (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CFAFC422A01E7D3207F6E7D22FDE1CFBE0510CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075150   (319829) от 22.11.2016
-
-Microsoft SQL Server 2016 13.0.4001.0 (Service Pack 1) [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>Серверное ПО
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программное обеспечение SQL Server 2016 наконец-то вышло! Это наиболее значительный прорыв в истории платформ данных Microsoft’s: более быстрые транзакции и запросы, ценные сведения на любом устройстве, расширенная аналитика, новые технологии безопасности и новые варианты использования при применении гибридного облака. SQL Server 2016 предоставляет передовые функции (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE49F8E8C728074889AF6B886BE1501BB996742F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421593   (314915) от 06.11.2020
-
-Hex Workshop Hex Editor Pro v.6.8.0.5419 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314915.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hex Workshop — необходимая каждому разработчику программа, которая содержит в себе полный набор шестнадцатеричных инструментов. Она объединяет в себе функции редактирования бинарных файлов, простоту и гибкость текстового процессора. С её помощью вы сможете редактировать, вырезать, копировать и вставлять, заполнять и удалять бинарные данные. Вы также сможете работать (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F3073B579A5630C4F03B19E1DE97CB236890EA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

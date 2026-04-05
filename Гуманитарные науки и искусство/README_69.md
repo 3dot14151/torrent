@@ -1,81 +1,3 @@
-###  Публикация: 1300534   (546780) от 24.06.2019
-
-Майкл Пьюэтт, Кристина Гросс-Ло | Путь. Чему нужно научиться у древних китайских философов (2019) [PDF, FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546780.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие из нас рано или поздно ловят себя на мысли, что с нашей жизнью что-то не так. Нам с детства внушают, что выживают сильнейшие, что полезно быть эгоистом и ставить свои желания превыше всего. Мы стремимся к успеху, искренне веря, что счастье обязательно наступит, когда мы достигнем поставленных целей. Но вот парадокс: мы становимся только несчастнее, на смену (   Читать дальше...   )Жанр: Философские науки, СоциологияФормат: PDF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A04818A2DF3538BFC308BDD7B6DF1A2A430D0CC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310629   (546038) от 25.06.2019
-
-Ян-Вернер Мюллер | Что такое популизм? (2018) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546038.jpg" />
-</div>
-
-
-###  Подробнее
-
-В своей новаторской работе Ян-Вернер Мюллер утверждает, что в основе популизма лежит отказ от плюрализма. Популисты всегда заявляют, что они, и только они, представляют истинные интересы народа. Мюллер показывает, что, вопреки распространенному мнению, популисты могут осуществлять правление на основании своих притязаний на исключительное моральное представительство (   Читать дальше...   )Жанр: ПолитологияПеревод: Анастасия АрхиповаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2C655971A02FD3804EFC8BDB05FA645666CA7E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310840   (545296) от 26.06.2019
-
-И. Лингарт | Американский прагматизм (1954) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545296.jpg" />
-</div>
-
-
-###  Подробнее
-
-В представленной книге автор с марксистских позиций дает развернутую критику американского прагматизма, стремясь по всем основным вопросам противопоставить прагматизму научное, марксистское решение проблем. При этом он прежде всего опирается на труд В. И. Ленина «Материализм и эмпириокритицизм», в котором В. И. Ленин раскрыл реакционный, субъективно-идеалистический (   Читать дальше...   )Жанр: История, политология, философия, публицистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17AAF9599B9B4D24825295B772B1BA7042E361FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1310793   (545179) от 26.06.2019
 
 К. К. Платонов | Занимательная психология (1964) [DJVU]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545179.jpg" />
 </div>
 
 
@@ -113,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543776.jpg" />
 </div>
 
 
@@ -139,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543087.jpg" />
 </div>
 
 
@@ -167,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542410.jpg" />
 </div>
 
 
@@ -195,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540057.jpg" />
 </div>
 
 
@@ -221,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539215.jpg" />
 </div>
 
 
@@ -247,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538986.jpg" />
 </div>
 
 
@@ -273,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538264.jpg" />
 </div>
 
 
@@ -299,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538153.jpg" />
 </div>
 
 
@@ -325,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536963.jpg" />
 </div>
 
 
@@ -351,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536347.jpg" />
 </div>
 
 
@@ -379,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535412.jpg" />
 </div>
 
 
@@ -407,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534491.jpg" />
 </div>
 
 
@@ -433,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534389.jpg" />
 </div>
 
 
@@ -461,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534297.jpg" />
 </div>
 
 
@@ -490,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534292.jpg" />
 </div>
 
 
@@ -516,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533660.jpg" />
 </div>
 
 
@@ -542,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532810.jpg" />
 </div>
 
 
@@ -570,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532695.jpg" />
 </div>
 
 
@@ -596,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531716.jpg" />
 </div>
 
 
@@ -622,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531247.jpg" />
 </div>
 
 
@@ -648,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531209.jpg" />
 </div>
 
 
@@ -674,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531013.jpg" />
 </div>
 
 
@@ -685,6 +607,88 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9206198D3EF85F80C0174B953A64CCF37353AEF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312562   (530962) от 05.07.2019
+
+Марксистское искусствознание и В. М. Фриче. Сборник статей и библиография (1931) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научная деятельность В. М. Фриче была необычайно плодотворной — исключительная эрудиция сочеталась в нем с изумительной творческой работоспособностью. Огромное литературное наследство оставлено им. Нужна напряженная работа целого научного коллектива, чтобы в полной мере усвоить это наследство, развить поставленные В. М. Фриче проблемы, систематизировать его многочисленные (   Читать дальше...   )Жанр: История, политология, искусство, литературоведениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1129ED276A84A98E615A2F53191D2AF15CB4AAC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312721   (530730) от 05.07.2019
+
+В.И. Гуляев | Древние цивилизации Америки (2008) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530730.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто такие индейцы и откуда они пришли? Существовали ли в древности связи между Старым и Новым Светом и кто на самом деле открыл Америку?
+Один из крупнейших ученых-американистов В.И.Гуляев на основе археологического материала дает нам уникальную возможность проследить эволюцию "америндов" - американских индейцев, начиная с эпохи верхнего палеолита и кончая (   Читать дальше...   )Жанр: ИсторияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43EACFA46753C96EB6C0E4678E035DD500242727
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051665   (530586) от 12.09.2016
+
+В. П. Чертков и др. | О диалектическом материализме. Сборник статей (1953) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вниманию читателей представлен сборник статей "О диалектическом материализме", в котором изложены следующие темы:
+
+- Диалектический материализм - мировоззрение марксистско-ленинской партии;
+- Марксистская диалектика о взаимосвязи и взаимообусловленности явлений в природе и обществе;(   Читать дальше...   )Жанр: История, политология, экономика, философия, науковедениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE0904B9FFDED61814C00BC772984E1E4D2D905E
 ```
 
 https://mybot314.ru/tekegram_catalog/

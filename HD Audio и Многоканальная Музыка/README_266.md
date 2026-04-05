@@ -1,32 +1,3 @@
-###  Публикация: 1638474   (615) от 27.09.2025
-
-Revocation (ex-Cryptic Warning) - Studio Albums (11 releases) (2005-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Technical Death/Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Revocation — американская метал-группа из Бостона, штат Массачусетс. Была основана в 2000 году как Cryptic Warning. В 2006 сменила название на Revocation.2008 - Empire Of The Obscene
-2009 - Existence Is Futile
-2011 - Chaos Of Forms
-2012 - Teratogenesis (EP)Жанр: Technical Death/Thrash MetalПродолжительность: 08:50:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9854B1F30D43785A508A1667C6FB63E7D0FEB943
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686726   (591) от 27.09.2025
 
 Mors Principium Est - Studio Albums (9 releases) (2003-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
@@ -35,7 +6,7 @@ Mors Principium Est - Studio Albums (9 releases) (2003-2025) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_591.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Kate Bush - Best Of The Other Sides (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_288.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Mariah Carey - Here For It All (2025) [FLAC 24/44.1, 16/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_282.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Creed - The Best Of Creed (Remastered 2025) (2025) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_273.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Willow Suns - All out of Time (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_236.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Devil of a Woman - Last Call for Freedom (2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_235.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Angelwreck - Pieces Of My Heart (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_234.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Biffy Clyro - Futique (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_231.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Dust and Echoes - Whispers on the Wire (2025) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_228.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Nathan Mitchell - The Legacy Project (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_227.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Armando Alonso - Problemas con el gas (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_217.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Bill Laurance - Lumen (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_216.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Betschart Transport AG - Griffin Overdrive (2025) [FLAC 24/192|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_215.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Headstones - Burn All The Ships (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_214.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Clockers - Il Broccolino (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_213.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Jacob and The Melody Drivers - Jacob and The Melody Drivers (2025) [FLAC 24/96|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_212.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Bill Barber & The Holding Cell - Southern Redemption (2025) [FLAC 24/96|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_210.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Fish Hook Smile - Fish Hook Smile (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_209.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Manowar - Studio Albums (19 releases) (1982-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155.jpg" />
 </div>
 
 
@@ -587,7 +558,7 @@ Motörhead (Motorhead) - Studio Albums (23 releases) (1977-2015) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140.jpg" />
 </div>
 
 
@@ -616,7 +587,7 @@ Between the Buried and Me (BTBAM) - Studio Albums (18 releases) (2002-2025) hand
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102.jpg" />
 </div>
 
 
@@ -645,7 +616,7 @@ Dario Mollo projects (Crossbones, EZoo, The Cage, Twilight Road, Voodoo Hill) - 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18.jpg" />
 </div>
 
 
@@ -674,7 +645,7 @@ Arabs In Aspic - Studio Albums (8 releases) (2003-2023) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12.jpg" />
 </div>
 
 
@@ -703,7 +674,7 @@ Siege Of Power - Studio Albums (2 releases) (2018-2023) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4.jpg" />
 </div>
 
 

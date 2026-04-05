@@ -1,3 +1,55 @@
+###  Публикация: 916790   (586754) от 15.07.2015
+
+Дуэлянты / The Duellists (1977) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586754.jpg" />
+</div>
+
+
+###  Подробнее
+
+К сожалению, двадцатый век лишил сильную половину человечества возможности выяснять отношения между собой в смертельных поединках. Но во времена военных кампаний Наполеона дуэли были традиционным способом для того, чтобы проставить все точки над «И». Если противники не могли придти к полюбовному соглашению и не находили возможности помириться, проливалась кровь. (   Читать дальше...   )Производство: ВеликобританияЖанр: Драма, военный, экранизацияРежиссер: Ридли СкоттАктеры: Кит Кэрредин, Харви Кейтель, Альберт Финни, Эдвард Фокс, Кристина Рейнес, Роберт Стивенс (I), Том Конти, Джон МакИнери, Дайана Куик, Алан Армстронг, Гэй Хэмилтон, Мэг Винн Оуэн, Дженни Ранэйкр, Уильям Морган Шеппард, Пит ПостлетуэйтПеревод: Профессиональный многоголосый, авторскийПродолжительность: 01:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CF16E74614B69974A057A248A8C876519C78B28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 914830   (586710) от 15.07.2015
+
+Шугарлендский экспресс / The Sugarland Express (1974) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая супружеская пара с криминальным прошлым переживает более серьезную, чем тюремное заключение, трагедию: по приговору суда их маленький ребенок должен быть отдан в чужую семью. И тогда жена уговаривает на побег из тюрьмы мужа, затем они вдвоем угоняют полицейскую машину, взяв в заложники блюстителя закона, после чего отправляются в путь по дорогам Техаса, сопровождаемые (   Читать дальше...   )Производство: СШАЖанр: Драма, комедия, криминал, приключенияРежиссер: Стивен СпилбергАктеры: Голди Хоун, Бен Джонсон, Майкл Сакс, Уильям Этертон, Грегори Уэлкотт, Стив Кэнэли, Луиз Лэтэм, Харрисон Занук, А.Л. Кэмп, Джесси Ли Фултон, Дин Смит, Тед Гроссман, Билл Турман, Кеннет Хаджинс, Бастер Дэниелс, Джеймс Н. Харрелл, Гуч Кук, Джин Рейдер, Руди Роббинс, Ричард БрайтПеревод: Профессиональный многоголосыйПродолжительность: 01:49:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9A519119AA8364FDB02BF69AEF49E45D63B7015
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1552529   (586693) от 21.05.2022
 
 Дочь дьявола / La fille du diable (1946) BDRip [H.264] [AVO]
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586693.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586396.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585855.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585336.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585190.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584832.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584753.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583814.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583793.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583744.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583689.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583189.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583065.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582971.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582785.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582340.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581791.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581723.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581393.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581134.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581057.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580849.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579997.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578739.jpg" />
 </div>
 
 
@@ -620,59 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1C0A7C1B5F91AEFDEB91404B35A97CDD3922220
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616109   (578636) от 23.07.2015
-
-Побег из Шоушенка / The Shawshank Redemption (1994) [H.264] BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578636.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шоушенк — название тюрьмы. И если тебе нет еще 30-ти, а ты получаешь пожизненное, то приготовься к худшему: для тебя выхода из Шоушенка не будет!
-Актриса Рита Хэйворт — любимица всей Америки. Энди Дюфрейну она тоже очень нравилась. Рита никогда не слышала о существовании Энди, однако жизнь Дюфрейну, бывшему вице-президенту крупного банка, осужденному за убийство (   Читать дальше...   )Жанр: Драма, КриминалРежиссер: Фрэнк Дарабонт / Frank DarabontАктеры: Тим Роббинс, Морган Фриман, Боб Гантон, Уильям Сэдлер, Клэнси Браун, Джил Беллоуз, Марк Ролстон, Джеймс Уайтмор, Джеффри ДеМун, Ларри Бранденбург, Нил Гвинтоли, Брайан Либби, Дэвид Прувал, Джозеф Раньо, Джуд Чикколелла, Пол МакКрейн, Рени Блейн, Скотт Манн, Джон Хортон, Гордон Грин, Альфонсо Фриман.Перевод: 4х Многоголосый, 2х Двухголосый, 6х Авторский одноголосыйЯзык субтитров: РусскийПродолжительность: 02:22:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0841055813563F602C84C21B75C18EF6142E4B40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917782   (578628) от 23.07.2015
-
-Флэш Гордон / Flash Gordon (1980) BDRip
-
->>След.
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Странные энергетические волны сместили Луну с орбиты, вызвав тотальное солнечное затмение на Земле. Жизнь человечества в опасности. Доктор Зарков уговаривает звезду американского футбола Флэша Гордона и прелестную Дэйл совершить вместе с ним отчаянный прыжок в гиперпространство — на планету Монго, откуда исходят разрушительные энергетические волны. Планетой управляет (   Читать дальше...   )Производство: США, ВеликобританияЖанр: Фантастика, фэнтези, боевик, приключенияРежиссер: Майк ХоджесАктеры: Тимоти Далтон, Орнелла Мути, Макс фон Сюдов, Сэм Дж. Джонс, Мелоди Андерсон, Тополь, Брайан Блессид, Питер Уингард, Марианджела Мелато, Джон Осборн, Ричард О’Брайэн, Джон Хэллам, Филип Стоун, Сюзанн Даниэль, Уильям Хуткинс, Бобби Браун, Тед Кэрролл, Эдриэнн Кроненберг, Стэнли Лебор, Джон Мортон, Бернелл Таккер, Робби Колтрейн, Питер Дункан, Тесса Хьюит, Винишия Спайсер, (   Читать дальше...   )Перевод: Профессиональный многоголосыйПродолжительность: 01:51:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C66A14858918AAA1895F92324418A2650D17D0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1428762   (178075) от 04.12.2020
+
+Долгий путь на север / Long Way Up (2020) WEB-DLRip (сезон 1, серии 1-11 из 11) AMS [AD]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юэн Макгрегор и Чарли Бурмен пересекают Южную и Центральную Америку на электрических мотоциклах Harley-Davidson в третьей части своего эпического путешествия.Производство: Великобритания / Long Way RoundЖанр: документальный, реальное ТВ, приключенияРежиссер: Дэвид Алексаниан, Расс МалкинАктеры: Юэн Макгрегор, Чарли Бурмен, Расс Малкин, Дэвид Алексаниан, Клаудио фон Планта, Джеймс Саймак, Энтони Сек, Тейлор Эстевез и др.Перевод: Многоголосый закадровый - Студия «AMS»Субтитры: русские, украинские, английские (отдельными файлами в раздаче)Продолжительность: ~00:50:00 серияРеклама: присутствуют аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC9D58D3C30FBECE145320D698DABE51CF878602
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1429134   (177616) от 05.12.2020
 
 Главная дорога (05.12.2020) SATRip
@@ -6,7 +32,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177616.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177585.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177528.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176962.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176868.jpg" />
 </div>
 
 
@@ -145,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176798.jpg" />
 </div>
 
 
@@ -171,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176736.jpg" />
 </div>
 
 
@@ -199,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176292.jpg" />
 </div>
 
 
@@ -225,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173808.jpg" />
 </div>
 
 
@@ -251,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173205.jpg" />
 </div>
 
 
@@ -280,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173022.jpg" />
 </div>
 
 
@@ -308,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171917.jpg" />
 </div>
 
 
@@ -337,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171913.jpg" />
 </div>
 
 
@@ -365,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171748.jpg" />
 </div>
 
 
@@ -393,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169800.jpg" />
 </div>
 
 
@@ -419,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169480.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169269.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169166.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168902.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168891.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168097.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167859.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167445.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167344.jpg" />
 </div>
 
 
@@ -664,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166571.jpg" />
 </div>
 
 
@@ -675,32 +701,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A729439389E7158444810AFD3D799E3E1F6984F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516412   (166111) от 11.12.2021
-
-Главная дорога (11.12.2021) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166111.jpg" />
-</div>
-
-
-###  Подробнее
-
-Впереди новогодние праздники, 10 выходных — целый отпуск, не иначе! Самое время собраться, сесть в машину и отправиться в путешествие. Андрей Федорцов и Денис Юченков рассказали, что нужно проверить в машине перед зимней дорогой и что взять с собой в поездку, чтобы не заблудиться, не замерзнуть и — что тоже важно — не испортить зимние каникулы.Рот на замок: тайна (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:27:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC30F9238C61EFB345ED6E7C835F869D976B8985
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,115 @@
+###  Публикация: 1711971   (61098) от 01.04.2024
+
+Джейми Дей | Соседская вечеринка (2024) [EPUB]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хорошо ли вы знаете своих соседей?
+Жители закрытого элитного района Олтон-роуд живут спокойной жизнью: воспитывают детей, следят за садом и беседуют по душам на уютных домашних посиделках. Но у всего есть последствия…
+
+В ночь ежегодной соседской вечеринки музыку и смех сменяет вой полицейской сирены. Кто-то совершил преступление, и этот кто-то — один из них.(   Читать дальше...   )Жанр: Зарубежные детективы, Современная зарубежная литератураПеревод: Александр КлемешовЯзык: РусскийИздательство: АСТФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F32774ED4615BF966B5905D0EB8D024489E7B44B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711977   (61097) от 01.04.2024
+
+Том Мид | Колесо убийств (2023) [EPUB]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лондон. 1938 год.
+На колесе обозрения совершено убийство, а единственная подозреваемая — жена жертвы — категорически отрицает свою вину, несмотря на неопровержимые улики против нее.
+
+Эдвард Иббс — молодой адвокат, берется за ее дело. Углубляясь в него, Иббс невольно попадает в темную паутину заговора и убийств. Ведя расследование, Иббс сталкивается с еще двумя совершенно (   Читать дальше...   )Жанр: Зарубежные детективыПеревод: Фельдман Мария АндреевнаЯзык: РусскийИздательство: АСТФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5C8BB012155A3C90DB2EAC8A0950805B2D4C50D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715352   (60070) от 11.04.2024
+
+Ли Чайлд, Эндрю Чайлд | Джек Ричер: Время свободы (2024) [FB2, EPUB, MOBI]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60070.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тихий, скучный городок в штате Колорадо всколыхнула трагедия: погибла женщина. По словам одного уважаемого свидетеля, она сама бросилась под колеса. Однако случайно оказавшийся на месте происшествия бывший военный полицейский Джек Ричер собственными глазами видел, как прохожий, с безучастным видом остановившийся рядом, вдруг толкнул жертву под автобус, затем схватил (   Читать дальше...   )Жанр: Зарубежные детективыИздательство: АзбукаФормат: FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AFF3FBFA8A0D5A5287B97D27EFE25E0432FCFFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727848   (54401) от 04.06.2024
+
+Алекс Михаэлидес | Ярость (2024) [EPUB]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54401.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Всего нас семеро, запертых на острове. И один из нас — убийца…
+На маленьком частном греческом острове бывшая кинозвезда Лана Фаррар, моя старая подруга, приглашает собраться самых близких своих людей. Погода будет идеальной — жаркой и солнечной. Для всех нас это шанс расслабиться и воссоединиться. И, возможно, раскрыть несколько глубоко запрятанных тайн…
+Потому (   Читать дальше...   )Жанр: Триллер, Современная зарубежная литератураПеревод: О. С. АкопянИздательство: ЭксмоФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F2A30AF944364BF6937528DC19E9EB225F7E6B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1738271   (49281) от 21.07.2024
 
 Дарья Донцова | Татьяна Сергеева. Детектив на диете (Книга 36) Кукушонок из семьи дровосеков (2024) [FB2]
@@ -6,7 +118,7 @@
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49281.jpg" />
 </div>
 
 
@@ -32,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49212.jpg" />
 </div>
 
 
@@ -58,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49205.jpg" />
 </div>
 
 
@@ -86,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47556.jpg" />
 </div>
 
 
@@ -112,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47131.jpg" />
 </div>
 
 
@@ -138,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45914.jpg" />
 </div>
 
 
@@ -164,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43804.jpg" />
 </div>
 
 
@@ -193,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43073.jpg" />
 </div>
 
 
@@ -219,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41472.jpg" />
 </div>
 
 
@@ -246,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41452.jpg" />
 </div>
 
 
@@ -273,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40112.jpg" />
 </div>
 
 
@@ -299,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38096.jpg" />
 </div>
 
 
@@ -327,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31605.jpg" />
 </div>
 
 
@@ -353,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22395.jpg" />
 </div>
 
 
@@ -379,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21863.jpg" />
 </div>
 
 
@@ -407,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19056.jpg" />
 </div>
 
 
@@ -434,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18583.jpg" />
 </div>
 
 
@@ -462,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17689.jpg" />
 </div>
 
 
@@ -490,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12680.jpg" />
 </div>
 
 
@@ -516,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10804.jpg" />
 </div>
 
 
@@ -543,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6709.jpg" />
 </div>
 
 
@@ -569,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6673.jpg" />
 </div>
 
 
@@ -580,110 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30501A0CFE4D6008F3E978AD23B38C49C1C6BBC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813796   (6669) от 21.08.2025
-
-Евгений Сухов | Записки придворного сыщика [6 книг] (2024-2025) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6669.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Записки придворного сыщика» - цикл исторических детективов о преступлениях начала прошлого века. Автор настолько увлекательно погружает в атмосферу того времени, что мы буквально слышим грохот мостовой, шум городского базара, звон колоколов и пронзительные свистки городовых...Жанр: ДетективИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AFD460A6686AE2DAFE843C12DE38A0A7F195183
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813848   (6634) от 21.08.2025
-
-Содзи Симада | Цикл "Киёси Митараи" [9 книг] (2019-2025) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Япония, 1936 год. Эксцентричный художник, проживавший вместе с шестью дочерьми, падчерицами и племянницами, был найден мертвым в комнате, запертой изнутри. Его дневники, посвященные алхимии и астрологии, содержали подробный план убийства каждой из них. Лишить жизни нескольких, чтобы дать жизнь одной, но совершенной — обладательнице самых сильных качеств всех знаков (   Читать дальше...   )Жанр: ДетективИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:069D85AA37BA0470EE8FE2B23BB4969CD8351CF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814087   (6431) от 22.08.2025
-
-Марк Олден | Гири (1994) [PDF, DJVU]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нью-Йорк терроризирует бешеный убийца. Люди, которых он выбирает в качестве мишеней для своих очередных ударов, становятся жертвами неведомой и страшной формы восточного кровавого жертвоприношения. Детектив сержант Деккер - полицейский, являющийся классным специалистом по различным видам боевых искусств, напал на след преступника. Однако одновременно с этим он поневоле (   Читать дальше...   )Жанр: Детектив, романИздательство: Олма-ПрессФормат: PDF, DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30B5E0244B7899DC694B778D86DFAEC09AC9124F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814531   (5972) от 25.08.2025
-
-Дарья Донцова | Виола Тараканова. В мире преступных страстей [54 книги] (2002-2025) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Героиня этого цикла – Виола Тараканова (для друзей просто Вилка). Долгие годы Виоле приходилось тяжело работать, и жизнь казалась безрадостной. Единственный близкий человек – подруга Томочка. Так они и жили вдвоем – болезненная Томочка вела хозяйство, а Вилка старалась побольше заработать. Но неожиданно жизнь подруг круто меняется. Томочка выходит замуж за бизнесмена, (   Читать дальше...   )Жанр: ДетективИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7F199590D32D523C46E0914589E38C5CFE809FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

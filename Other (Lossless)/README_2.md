@@ -1,3 +1,71 @@
+###  Публикация: 510748   (668470) от 15.06.2012
+
+Set Fire to Flames - 2 albums (2001-2003) [FLAC|Lossless] <Post-Rock, Instrumental, Ambient, Experimental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_668470.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1. Telegraphs in Negative: (00:43:56)
+01. Deja, Comme Des Trous De Vent, Comme Reproduit (06:43)
+02. Small Steps Against Inertia / Echo Of A Dead End (03:01)
+03. Measure De Mesure (04:45)
+04. Holy Throat Hiss Tracts To The Sedative-Hypnotic (03:38)
+05. When Sorrow Shoots Her Darts (03:11)
+06. Kill Fatigue Frequencies (01:28)
+07. In Prelight Isolate (15:11)
+08. Tehran In Seizure / Telegraphs In Negative (05:56)2001-2003Жанр: Post-Rock, Instrumental, Ambient, ExperimentalПродолжительность: 01:28:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 511347   (667225) от 16.06.2012
+
+Shalabi Effect - 4 albums (2001-2005) [FLAC|Lossless] <Instrumental, Experimental, Post-Rock, Ambient>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_667225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out Of The Closet (13:07)
+02. Pai Nai (01:44)
+03. Early Reptilian Memories (03:20)
+04. Monobrow (08:32)
+05. Half Life (06:55)
+06. Beluga (02:39)
+07. Harpie (06:24)
+08. Vegas Radiation (04:46)
+09. Skin Job (04:20)2001-2005Жанр: Instrumental, Experimental, Post-Rock, AmbientПродолжительность: (00:51:49)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 511079   (666227) от 17.06.2012
 
 Hangedup - 3 albums (2001-2005) [FLAC|Lossless] <Experimental, Instrurumental, Post-Rock>
@@ -6,7 +74,7 @@ Hangedup - 3 albums (2001-2005) [FLAC|Lossless] <Experimental, Instrurumental, P
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_666227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_666227.jpg" />
 </div>
 
 
@@ -41,7 +109,7 @@ Hrsta - 3 albums (2001-2007) [FLAC|Lossless] <Post-Rock, Experimental>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_666103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_666103.jpg" />
 </div>
 
 
@@ -75,7 +143,7 @@ Land of Kush - 2 albums (2009-2010) [FLAC|Lossless] <Avant-garde, Free Jazz, Pos
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_659118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_659118.jpg" />
 </div>
 
 
@@ -107,7 +175,7 @@ Wulfin Lieske - Spanish Guitar Music (1992) [FLAC|Lossless]<Classical Guitar>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_658151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_658151.jpg" />
 </div>
 
 
@@ -142,7 +210,7 @@ Laurindo Almeida, Salli Terri, Martin Ruderman - Duets With Spanish Guitar (1990
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_657968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657968.jpg" />
 </div>
 
 
@@ -177,7 +245,7 @@ VA - The Ultimate Classical Guitar Album (2008) 2CD [FLAC|Lossless]<Classical Gu
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_657745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657745.jpg" />
 </div>
 
 
@@ -212,7 +280,7 @@ VA - Адажио для арфы / Harp Adagios (2005) [FLAC|Lossless]<Classica
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_643320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_643320.jpg" />
 </div>
 
 
@@ -247,7 +315,7 @@ VA - Essential Guitar - 33 Guitar Masterpieces (2002) 2CD [WavPack|Lossless]<Cla
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_643313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_643313.jpg" />
 </div>
 
 
@@ -281,7 +349,7 @@ VA - The Music of Spain (2004) [FLAC|Lossless]<Instrumental>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_641398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_641398.jpg" />
 </div>
 
 
@@ -316,7 +384,7 @@ Great American Taxi - Paradise Lost (2011) [FLAC|Lossless]<Americana, Blues, Cou
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_630865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_630865.jpg" />
 </div>
 
 
@@ -351,7 +419,7 @@ VA - Putumayo Kids Presents - Hawaiian Playground (2008) [FLAC|Lossless|tracks +
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613768.jpg" />
 </div>
 
 
@@ -380,7 +448,7 @@ VA - Classic Love At The Movies (2011) [FLAC|Lossless]<Classical, Pop, Rock, Sta
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_612832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_612832.jpg" />
 </div>
 
 
@@ -406,7 +474,7 @@ Alex Clare - The Lateness of the Hour (2011) [FLAC|Lossless]<Soul/Pop/Dubstep>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_612603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_612603.jpg" />
 </div>
 
 
@@ -441,7 +509,7 @@ Adiemus - Дискография (1995 - 2006) [FLAC|Lossless]<New Age>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_609412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_609412.jpg" />
 </div>
 
 
@@ -470,7 +538,7 @@ Teddy Pendergrass - The Real... Teddy Pendergrass (The Ultimate Collection) (201
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603412.jpg" />
 </div>
 
 
@@ -499,7 +567,7 @@ Plotnik82 - Акустика (2017) [FLAC|Lossless|tracks + .cue] <Acoustic, Roc
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603089.jpg" />
 </div>
 
 
@@ -528,7 +596,7 @@ Emir Kusturica and the No Smoking Orchestra - Corps Diplomatique (2018) [FLAC|Lo
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593296.jpg" />
 </div>
 
 
@@ -557,7 +625,7 @@ Lykke Li - Wounded Rhymes (2011) [FLAC|Lossless]<Indie Pop>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_560585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_560585.jpg" />
 </div>
 
 
@@ -583,7 +651,7 @@ Marissa Nadler & Stephen Brodsky - Droneflower (2019) [FLAC|Lossless|tracks + .c
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554176.jpg" />
 </div>
 
 
@@ -612,7 +680,7 @@ Pirates of The Mississippi - Dream You (1993) [FLAC|Lossless|tracks + .cue] <cou
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545449.jpg" />
 </div>
 
 
@@ -641,7 +709,7 @@ Habib Koite & Bamada - Afriki (2007) [FLAC|Lossless]<Blues>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542289.jpg" />
 </div>
 
 
@@ -676,7 +744,7 @@ Vangelis - The Collection (2CD) (2012) [FLAC|Lossless]<Electronic, New Age>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515361.jpg" />
 </div>
 
 
@@ -711,7 +779,7 @@ Xiu Xiu - Haitian Drums: Girl with Basket of Fruit (2019) EP [FLAC|Lossless|WEB-
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515015.jpg" />
 </div>
 
 
@@ -740,7 +808,7 @@ Emilie Autumn - Fight Like A Girl (2012) [FLAC|Lossless]<Dark Cabaret, Gothic, D
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512278.jpg" />
 </div>
 
 
@@ -756,70 +824,6 @@ Emilie Autumn - Fight Like A Girl (2012) [FLAC|Lossless]<Dark Cabaret, Gothic, D
 08.We Want Them Young (2:47)
 09.If I Burn (5:31)
 10.Scavenger (6:59)(   Читать дальше...   )Жанр: Dark Cabaret, Gothic, Darkwave, Alternative, Female vocalistsПродолжительность: 01:04:37
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318702   (490757) от 08.08.2019
-
-Audiomachine - Life (2017) [FLAC|Lossless] <Soundtrack, Trailer music, Classical Crossover>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Promises to Keep [02:17]
-02. Reunited [02:36]
-03. Remember Not to Forget [03:13]
-04. Try Again Tomorrow [03:09](   Читать дальше...   )Жанр: Soundtrack, Trailer music, Classical CrossoverПродолжительность: 01:12:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CB038A47B762FDF952AF05001CE049EB6C49020
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544424   (490629) от 07.09.2012
-
-VA - Usher Audio Demonstation CD (2004-2010) 5CD[FLAC|Lossless]<High-End Audiophile Test>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Longtenghuyue - Roaring of the Tiger and Dragon [03:36]
-02. Oyster Sisters and Gary Karr Gairuikaer - A Melody of Hong Chun [03:22]
-03. New Age - Flower Woman [04:46]
-04. Johanne Blouin - Les enfants oublies [03:33]
-05. Jotka Hosprova - Csardas [05:08]
-06. Rossini 'Mr. Chino Bruce' - I1 Signor Bruschino [04:33]
-07. Puccini - La Boheme: Introduction [00:32]
-08. Puccini - La Boheme: Non Sono in Vena [04:10]
-09. Mikis Theodorakis Duolaijisi - Delicate Dawn [02:58]
-10. Mighty Echoes Quartet - Under the Boardwalk [03:26](   Читать дальше...   )Жанр: High-End Audiophile Test ( Pop, Rock, Classical, Jazz Compilations )Продолжительность: 01:08:01
 
 ## Скачать торент
 ```bash

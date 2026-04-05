@@ -1,31 +1,3 @@
-###  Публикация: 1656497   (203349) от 30.08.2023
-
-Haggard - Studio Albums (3 releases) (2000-2008) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Classical/Orchestral/Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203349.jpg" />
-</div>
-
-
-###  Подробнее
-
-Haggard — немецкий музыкальный проект, исполняющий симфонический метал. Основан в 1989 году гитаристом, вокалистом и композитором Азизом Нассери, который является автором всей музыки и текстов Haggard. Группа фактически представляет собой оркестр, состоящий из множества музыкантов, играющих на разных инструментах, характерных как для рока, так и для классической (   Читать дальше...   )2000 - Awaking the Centuries
-2004 - Eppur Si Muove
-2008 - Tales of IthiriaЖанр: Classical/Orchestral/Symphonic MetalПродолжительность: 02:28:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:797F95D5B116B6390A84A57163CE1955E99D3179
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1656552   (203173) от 31.08.2023
 
 Cliff Richard/Клифф Ричард - Лучшие Песни Клиффа Ричарда (1977) [FLAC|24/96|image + .cue|Vinyl-Rip] <Pop Rock>
@@ -34,7 +6,7 @@ Cliff Richard/Клифф Ричард - Лучшие Песни Клиффа Р�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203173.jpg" />
 </div>
 
 
@@ -63,7 +35,7 @@ Puhdys - Puhdys Live (1979) [FLAC|24/192|image + .cue|Vinyl-Rip] <Rock & Roll, P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203055.jpg" />
 </div>
 
 
@@ -92,7 +64,7 @@ Bob Dylan - Biograph (1985) compilation 1961-1981 5LPs [FLAC 2.0|192/24|image +.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202566.jpg" />
 </div>
 
 
@@ -124,7 +96,7 @@ https://mybot314.ru/tekegram_catalog/
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202370.jpg" />
 </div>
 
 
@@ -155,7 +127,7 @@ https://mybot314.ru/tekegram_catalog/
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202261.jpg" />
 </div>
 
 
@@ -186,7 +158,7 @@ Enigma - Коллекция из 4 альбомов [DSD128|1 Bit / 5644 kHz|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202040.jpg" />
 </div>
 
 
@@ -215,7 +187,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201677.jpg" />
 </div>
 
 
@@ -244,7 +216,7 @@ The Alan Parsons Project – The Turn Of A Friendly Card (1980) 2023 [DTS 5.1 CD
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201632.jpg" />
 </div>
 
 
@@ -273,7 +245,7 @@ Johann Sebastian Bach, Akiko Suwanai - The Sonatas And Partitas For Violin Solo 
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201610.jpg" />
 </div>
 
 
@@ -302,7 +274,7 @@ In Flames - Studio Albums (15 releases) (1994 - 2023) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201512.jpg" />
 </div>
 
 
@@ -333,7 +305,7 @@ VA - Звёзды шансона (2000) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Ch
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201399.jpg" />
 </div>
 
 
@@ -362,7 +334,7 @@ Eagles - The Long Run (1979) SACD, Reissue, Remastered, 2023, Mobile Fidelity So
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200557.jpg" />
 </div>
 
 
@@ -391,7 +363,7 @@ Various - Flashdance - Original Soundtrack From The Motion Picture (1983) [FLAC 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200488.jpg" />
 </div>
 
 
@@ -417,7 +389,7 @@ Bad Boys Blue - Heart Beat (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Ital
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200378.jpg" />
 </div>
 
 
@@ -446,7 +418,7 @@ Sandra - The Long Play (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200228.jpg" />
 </div>
 
 
@@ -475,7 +447,7 @@ Roma Trio - The Four Seasons (2008) Reissue, 2016, Venus Records [DSD64 2.0|1bit
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199996.jpg" />
 </div>
 
 
@@ -504,7 +476,7 @@ Scorpions - Blackout (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199887.jpg" />
 </div>
 
 
@@ -533,7 +505,7 @@ Overkill - Studio Albums (21 releases) (1985 - 2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199804.jpg" />
 </div>
 
 
@@ -562,7 +534,7 @@ Uriah Heep - Gold From The Byron Era (2004) [DTS 5.1 CD-DA|44.1/16|image+.cue|Au
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199696.jpg" />
 </div>
 
 
@@ -591,7 +563,7 @@ Queen - Innuendo (1991) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop Rock, Glam>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199581.jpg" />
 </div>
 
 
@@ -620,7 +592,7 @@ Paul Mauriat/Оркестр Поля Мориа - Музыка из кинофи
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199452.jpg" />
 </div>
 
 
@@ -649,7 +621,7 @@ Chris Norman - The Best 2001 (2001) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198677.jpg" />
 </div>
 
 
@@ -678,7 +650,7 @@ Bing Crosby - Бинг Кросби (1978) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198612.jpg" />
 </div>
 
 
@@ -707,7 +679,7 @@ Whitesnake - Come An' Get It (1981) Japanese Edition, Reissue, 2010, Sunburst, S
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198446.jpg" />
 </div>
 
 
@@ -736,7 +708,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198325.jpg" />
 </div>
 
 
@@ -750,6 +722,35 @@ A4 Unknown Artist - Проверка Фазировки Громкоговори
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9AEBBB675182BD613560CC91DA1226EA4FA1A9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634912   (198090) от 23.05.2023
+
+Bee Gees - E•S•P (1987)  [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Pop, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. E-S-P
+02. You Win Again
+03. Live Or Die (Hold Me Like A Child)
+04. Giving Up The Ghost(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2AD1240B120E83B0E37B1F82754EF1F572375C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

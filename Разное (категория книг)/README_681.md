@@ -1,31 +1,3 @@
-###  Публикация: 1817796   (3014) от 13.09.2025
-
-Филип Котлер, Хермаван Картаджайя, Айвен Сетиаван | Маркетинг 6.0 (2024) [FB2]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3014.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Маркетинг 6.0» – это выход за рамки привычных концепций. Филип Котлер, всемирно известный гуру маркетинга, рассказывает о метамаркетинге – подлинном слиянии цифрового и физического миров, которое порождает интерактивный и захватывающий клиентский опыт. Этот подход рассчитан на поколения Z и Альфа, набирающие сегодня покупательскую способность.
-Вы узнаете, как:
-– (   Читать дальше...   )Жанр: Маркетинг, Общество, МанипуляцииИздательство: БомбораФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77D2200746C0F1EF6D4C2E79AA1CCBA0DFB108B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1817943   (2970) от 13.09.2025
 
 Валерий Подорога | Время после. Освенцим и ГУЛАГ: мыслить абсолютное зло (2017) [FB2, PDF, EPUB]
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2970.jpg" />
 </div>
 
 
@@ -60,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2807.jpg" />
 </div>
 
 
@@ -86,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2701.jpg" />
 </div>
 
 
@@ -112,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2549.jpg" />
 </div>
 
 
@@ -139,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2440.jpg" />
 </div>
 
 
@@ -165,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2197.jpg" />
 </div>
 
 
@@ -191,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1751.jpg" />
 </div>
 
 
@@ -219,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1701.jpg" />
 </div>
 
 
@@ -245,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1367.jpg" />
 </div>
 
 
@@ -272,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1338.jpg" />
 </div>
 
 
@@ -298,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1244.jpg" />
 </div>
 
 
@@ -326,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1223.jpg" />
 </div>
 
 
@@ -352,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1202.jpg" />
 </div>
 
 
@@ -380,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1028.jpg" />
 </div>
 
 
@@ -406,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_860.jpg" />
 </div>
 
 
@@ -433,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_825.jpg" />
 </div>
 
 
@@ -459,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_689.jpg" />
 </div>
 
 
@@ -488,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_607.jpg" />
 </div>
 
 
@@ -514,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_580.jpg" />
 </div>
 
 
@@ -540,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84.jpg" />
 </div>
 
 

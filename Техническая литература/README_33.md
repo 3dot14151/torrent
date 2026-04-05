@@ -1,3 +1,57 @@
+###  Публикация: 1193924   (158105) от 23.12.2017
+
+М. Гвоздек | Справочник по технике для видеонаблюдения. Планирование, проектирование, монтаж (2010) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158105.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящем справочнике в доступной форме дается описание уже принятых или только входящих в оборот понятий из сферы охранных систем и техники слежения. Представлено подробное толкование более 900 понятий и терминов.
+Весьма полезными окажутся и ссылки, которые даются в наиболее обширных статьях. Приведены также значимые для данной отрасли сведения по компьютерным (   Читать дальше...   )Жанр: Охранные системы, безопасностьФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95E9F32F6507CB99A8B4F895AECCDE5DCD253C0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676386   (156898) от 13.11.2023
+
+М. Габлер, Й. Гашковец, Е. Томанек | Магнитные усилители (1961) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156898.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге в доступной форме изложены принципы действия магнитных усилителей, приведены их схемы включения и характеристики для различных условий работы. Изложены также методы проектирования и расчета магнитных усилителей, вопросы рационального выбора магнитных материалов и рассмотрены различные практические применения магнитных усилителей.
+Книга предназначена для инженеров (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: Советское радиоФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E2D97CF9372051727A3BC283052032FDD545565
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346945   (155203) от 21.12.2019
 
 Л.П. Зарубина | Защита зданий и сооружений от огня и шума. Материалы, технологии, инструменты и оборудование (2016) [PDF]
@@ -6,7 +60,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155203.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152805.jpg" />
 </div>
 
 
@@ -62,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150418.jpg" />
 </div>
 
 
@@ -88,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150290.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149749.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147135.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147041.jpg" />
 </div>
 
 
@@ -193,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146468.jpg" />
 </div>
 
 
@@ -220,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144954.jpg" />
 </div>
 
 
@@ -247,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143544.jpg" />
 </div>
 
 
@@ -274,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143542.jpg" />
 </div>
 
 
@@ -301,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142846.jpg" />
 </div>
 
 
@@ -327,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141542.jpg" />
 </div>
 
 
@@ -353,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141435.jpg" />
 </div>
 
 
@@ -379,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141247.jpg" />
 </div>
 
 
@@ -405,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140452.jpg" />
 </div>
 
 
@@ -431,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138959.jpg" />
 </div>
 
 
@@ -457,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138125.jpg" />
 </div>
 
 
@@ -483,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134791.jpg" />
 </div>
 
 
@@ -509,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134768.jpg" />
 </div>
 
 
@@ -535,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134145.jpg" />
 </div>
 
 
@@ -561,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132990.jpg" />
 </div>
 
 
@@ -588,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132937.jpg" />
 </div>
 
 
@@ -614,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132523.jpg" />
 </div>
 
 
@@ -627,58 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC777989CD5EDF4091F5740985F04877996F3E37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682044   (132009) от 05.12.2023
-
-Ю.М. Перунов, А.И. Куприянов | Радиоэлектронная борьба в информационных каналах (2021) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассматриваются радиоэлектронные системы и средства, функционирующие в условиях информационного противоборства, проблемы радиоэлектронного подавления информационных каналов систем различной структуры и функционального назначения, технические решения при построении средств радиоэлектронной разведки и радиопротиводействия, а также методы оценки эффективности средств (   Читать дальше...   )Жанр: РадиоэлектроникаИздательство: Инфра-инженерияФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ABB484B1295EC4C563EC32AF8C04C02071CF82F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682248   (131800) от 06.12.2023
-
-Б.Н. Петров и др. | Проблемы управления релятивистскими и квантовыми динамическими системами (1982) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Монография посвящена освещению физических и информационных аспектов проблемы управления новыми объектами теории систем - релятивисткими и квантовыми динамическими системами.Жанр: Технические наукиИздательство: НаукаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9F01F1BF99B4FBD318EB791B97A43218E41AFFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

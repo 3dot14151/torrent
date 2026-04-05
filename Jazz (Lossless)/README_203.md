@@ -6,7 +6,7 @@ The Duke Pearson Nonet - Honeybuns (1965) 2012, Warner [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370150.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Volker Kriegel - Journal & Palazzo Blue (1981, 1987) 2CD, 2010, Inakustik [APE|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370148.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Junior Mance Trio - Blue Mance (1994) Chiaroscuro [WavPack|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370146.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Zaz - Paris (2014) Limited Edition [FLAC|image + .cue]<Nu Jazz, Chanson>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369917.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ James Last/Astrud Gilberto - Plus (1986) [FLAC|Lossless]<Jazz, Bossa Nova>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369888.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Poncho Sanchez - Para Todos (1994) Concord [FLAC|Lossless|tracks + .cue] <Latin 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369866.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Tito Puente - 50 Years Of Swing (1946 - 1995) 1997, 3CD, RMM Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369863.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Donald Byrd - Places And Spaces (1975) 1992, Toshiba-EMI [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369858.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Phat Phunktion - You and Me (2004) [APE|Lossless|image + .cue] <Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369381.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Benny Carter - 4 Albums From The MusicMasters Catalogue (1987-1989) 4CD, 2011, N
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369380.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Arne Jansen - The Sleep of Reason Ode to Goya (2013) [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369379.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Greg Adams - East Bay Soul: That's Life (2015) [FLAC|Lossless|tracks + .cue] <Sm
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369375.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Buster Smith - The Legendary Buster Smith (1959) Remaster, 2012, Warner[FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369374.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Jonathan Zwartz - The Remembering & Forgetting Of The Air (2013) 2CD, Self-Relea
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368437.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Joe Lovano & Dave Douglas Sound Prints - Scandal (2018) [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368302.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Sonny Rollins - The Prestige Years (1951 - 1956) 5CD, 2014, Enlightenment [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368167.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Club Des Belugas - Strange Things Beyond The Sunny Side (2019) [FLAC|Lossless|WE
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368001.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Tito Puente Featuring Maynard Ferguson - Special Delivery (1996) Concord [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367964.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Chano Dominguez - Piano Iberico (2010) Blue Note [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367962.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Ray Barretto - Que Viva la Musica (1972) 1992, Fania Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367958.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Peter Guidi - Weaver of Dreams (1993) Timeless [FLAC|Lossless|tracks + .cue] <Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367646.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Katie Melua - Album No. 8 (2020) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367345.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Ofer Israeli - Clash (1989) [FLAC|Lossless|tracks + .cue] <Fusion, Post Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367012.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Paul Motian - Sound Of Love (1997) [FLAC|Lossless|image + .cue] <Contemporary Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367009.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ The Paul Cacia Jazz Orchestra - Legacy – The Last Sessions (2006) [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367008.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Chet Baker - With Fifty Italian Strings (1959) 1990, Jazzland[FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367007.jpg" />
 </div>
 
 

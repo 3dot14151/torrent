@@ -1,3 +1,31 @@
+###  Публикация: 549095   (465018) от 19.09.2012
+
+Лион Измайлов | Лягушонок Ливерпуль  [1983 / 2012] [WavPack]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лягушки способны на многое. Когда ты будешь слушать рассказ Л. Измайлова, то узнаешь, что лягушек можно даже дрессировать. А исследователи лягушачьей жизни поражаются, например, сложенным вдвое языком лягушки, который может вдруг раскрываться, вытягиваться – и вот уже какая-нибудь неосторожная букашка у лягушки в животе. А глаза лягушек, которыми они могут видеть во всех направлениях, – об этом даже сочинена японская народная сказка, очень смешная.
+Лягушки первыми «встали на ноги», первыми стали… чихать, садиться, хватать. Когда все это впервые происходило, на Земле не родился не то что человек, но даже и обезьяна – отдаленный человечий предок. Когда же самая первая лягушка впервые заквакала, – не знает никто. Потому что на Земле тогда не раздавалось вообще ни одного звука. Да и слышать это кваканье тоже было некому, потому что, по совести говоря, даже и ушей, кроме земноводных, никто из тогдашних обитателей Земли еще не имел!..
+Это теперь ученые знают, что есть около двух сотен видов настоящих лягушек и что часто (   Читать дальше...   )Жанр: Моноспектакль
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18C36558551559E056095CA90B9CE8BFB821AF7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 549102   (464867) от 19.09.2012
 
 Т.Габбе | Волшебные кольца Альманзора [1976 / 2012] [WavPack]
@@ -6,7 +34,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464867.jpg" />
 </div>
 
 
@@ -36,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463992.jpg" />
 </div>
 
 
@@ -64,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463449.jpg" />
 </div>
 
 
@@ -90,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462788.jpg" />
 </div>
 
 
@@ -119,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462506.jpg" />
 </div>
 
 
@@ -147,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_461389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_461389.jpg" />
 </div>
 
 
@@ -173,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460153.jpg" />
 </div>
 
 
@@ -202,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459940.jpg" />
 </div>
 
 
@@ -228,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459465.jpg" />
 </div>
 
 
@@ -254,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458046.jpg" />
 </div>
 
 
@@ -283,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457563.jpg" />
 </div>
 
 
@@ -309,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456110.jpg" />
 </div>
 
 
@@ -335,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456020.jpg" />
 </div>
 
 
@@ -361,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455813.jpg" />
 </div>
 
 
@@ -387,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455728.jpg" />
 </div>
 
 
@@ -416,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454934.jpg" />
 </div>
 
 
@@ -442,7 +470,7 @@ VA - Волшебные голоса природы: Малыш на остро�
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454658.jpg" />
 </div>
 
 
@@ -477,7 +505,7 @@ VA - Волшебные голоса природы: Малыш у моря (200
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454651.jpg" />
 </div>
 
 
@@ -512,7 +540,7 @@ VA - Волшебные голоса природы: Малыш на берег�
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454559.jpg" />
 </div>
 
 
@@ -547,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453834.jpg" />
 </div>
 
 
@@ -573,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453656.jpg" />
 </div>
 
 
@@ -599,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453027.jpg" />
 </div>
 
 
@@ -625,7 +653,7 @@ VA - Владимир Шаинский – Всем, Всем, Всем... (Пе
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453022.jpg" />
 </div>
 
 
@@ -654,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452860.jpg" />
 </div>
 
 
@@ -680,7 +708,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451874.jpg" />
 </div>
 
 
@@ -692,32 +720,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43E3D2E5F25B537C85AED2424F4E88B1BF5F9043
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569563   (451814) от 13.08.2022
-
-Лилиан Муур, Евгений Шварц и др. | Истории нашего детства - 2 (2022) [MP3, Сергей Бельчиков и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451814.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самое большое впечатление на любого человека оказывает литература, которую открывает для себя в свои самые юные годы. Тогда воображение настойчиво будоражат новые герои и новые сюжеты, с которым мы только начинаем знакомиться. Весёлые, героические, печальные, сказочные образы запоминаются однажды и остаются с нами на долгие годы. Потому что искусство должно волновать, (   Читать дальше...   )Жанр: Детская литература, СказкаПродолжительность: 04:36:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CBA00D5D20A8D35F172DE246FB943F9975FBFE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

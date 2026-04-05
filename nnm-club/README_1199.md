@@ -1,240 +1,25 @@
-###  Публикация: 1447789   (1031626) от 14.02.2021
+###  Публикация: 1447158   (1032130) от 12.02.2021
 
-BurnAware Professional 14.1 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031626.jpg" />
-</div>
-
-
-###  Подробнее
-
-BurnAware - простая и в тоже время мощная программа для записи и копирования любых дисков - CD, DVD, Blu-Ray и HD-DVD, а также копирования CD и DVD. Программа позволяет выполнять все основные задачи по записи: работа с носителями CD/DVD, Blu-Ray; запись Audio CD и DVD-Video; копирование и прожиг образов; клонирование дисков; поддержка мультисессии, также имеет дополнительные (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA393885F0BBF36932A99FBA63E7246ED4591249
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447577   (1031625) от 14.02.2021
-
-Александр Тамоников | Последний бой президента (2021) [MP3, Михаил Обухов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сентябрь 1973 года. В Чили до предела обострилось противостояние сторонников президента Альенде и хунты генерала Пиночета. Оппозиция требует отставки правительства, иначе страну ждет политический крах. Спецслужбы США всячески подогревают назревающий военный конфликт. Понимая, что Альенде угрожает смертельная опасность, руководство СССР решает провести операцию по (   Читать дальше...   )Жанр: БоевикПродолжительность: 06:12:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F87AD18C42C2F12B075C509B2F24F76BF602E867
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447693   (1031624) от 14.02.2021
-
-VA - The Best Love Songs Album In the World...Ever! (2021) [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lewis Capaldi - Someone You Loved (3:02)
-02. Calum Scott - Dancing On My Own (4:20)
-03. Justin Bieber - Love Yourself (3:52)
-04. Alessia Cara - Scars To Your Beautiful (3:50)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 05:40:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FE821D9FE66A493A7D183864ABBB73E862F9DD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447721   (1031623) от 14.02.2021
-
-VA - Instrumental Jazz Palette (2021) [MP3|320 Kbps] <Jazz, Smooth, Instrumental>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если Вы в поисках приятного настроя, активного ритма и отменных звуков, то сборник «Instrumental Jazz Palette» представит всю палитру Ваших музыкальных желаний. Композиции лонгплея это великолепная смесь, обладающая воздушностью фанка, мелодичностью соула и экспрессией джаза.001. Jarmo Nikku - Just A Little Bit
-002. Nubya Garcia - Together Is A Beautiful Place To Be
-003. Wayne Escoffery - Quarter Moon
-004. Mark De Clive-Lowe - Esss(   Читать дальше...   )Жанр: Jazz, Smooth, InstrumentalПродолжительность: 08:28:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF5C400AFCD58FF92C57B3EDB48513AD65B0D548
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447589   (1031622) от 14.02.2021
-
-Картинки - Коллекция картинок Море [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031622.jpg" />
-</div>
-
-
-###  Подробнее
-
-В хорошем качестве подборка картинок море.Формат: JPGРазрешение файлов: 6000x4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3A70D2FD95E51A367295143F685E0942691E5FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447784   (1031621) от 14.02.2021
-
-Т.Э. Уотсон | Свет и камень. Очерки о писательстве и реалиях издательского дела (2021) [EPUB]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга разделена на две части: «Свет» и «Камень».
-В первой части Т.Э. Уотсон рассказывает о типичных ошибках начинающего писателя, о том, что мешает на пути к вершине и как этого избежать. Вы узнаете, как научиться концентрироваться и зачем нужно расписание, как начать писать (и успешно продолжить!), где найти вдохновение, цель и смысл. Если вы сомневаетесь, стоит (   Читать дальше...   )Жанр: Литературоведение, Фольклористика, РуководстваПеревод: Наталья ФедянинаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9BCA2A4E45D8E92D61F6AE8F1DEF8CAF6BE5A24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447668   (1031620) от 14.02.2021
-
-Ник Никсон | Макс Сагал. Контакт (2019) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Максу Сегалетову самой судьбой было назначено стать великим ученым. Но у него другие планы на жизнь. Под маской скромного астрофизика скрывается Сагал — загадочный борец с мракобесием, разоблачитель целителей и ясновидящих всех мастей. Его оружие — логика и интеллект, он умеет искусно перевоплощаться и находить истину там, где ее не могут отыскать другие. В Байкальском (   Читать дальше...   )Жанр: Боевая фантастика, Детективная фантастика,Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F0A063083EEB9B33DA4B9B97812804AEE795F15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447665   (1031619) от 14.02.2021
-
-Ник Никсон | Неокортекс (2018) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031619.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что есть — жизнь? Вопрос, не дающий покоя миллионы лет. И только мы, люди, можем найти ответ. Мы — высшая ступень эволюции. Не слишком ли самонадеянно? Ничуть. Мы доказали свое превосходство: колесо, атом, космос. Мы сами всего добились. И мы уже на пути к разгадке тайны жизни. Следующий шаг — Европа. Великий океан миллиарды лет хранит подо льдом ответы. И вот мы (   Читать дальше...   )Жанр: Космическая фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4298914039D72D637DE1BA7B3D4CFAF9F218439
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447573   (1031618) от 14.02.2021
-
-Louis Jordan - 1947 - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Swing, Jump Blues>
+Roseanna Vitro - Live At The Kennedy Center (2006) Challenge Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032130.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. You're on the Right Track Baby [3:03]
-02. Don't Burn the Candle at Both Ends [2:44]
-03. Why'd You Do It Baby [3:20]
-04. Daddy-O [3:18](   Читать дальше...   )Жанр: Swing, Jump BluesПродолжительность: 01:00:15
+01. Like Someone in Love [4:47]
+02. Like a Lover [6:09]
+03. Please Do Something [5:40]
+04. Introduction to Commitment [0:32](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:05:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:993E056DB358F0B1939C1689E8961B50D29A43AF
+magnet:?xt=urn:btih:D6CDE19FDC466B450B3277FFA0B0E01092C1F2CC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -242,25 +27,284 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447645   (1031617) от 14.02.2021
+###  Публикация: 1447072   (1032129) от 12.02.2021
 
-Ковбой издалека / The Castaway Cowboy (1974) WEB-DLRip [H.264] [AVO]
+Clap Your Hands Say Yeah - New Fragility (2021) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hesitating Nation (03:14)
+02. Thousand Oaks (04:47)
+03. Dee, Forgiven (04:08)
+04. New Fragility (03:26)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B848DFE3A1B0D58E420B82F4AEB49C18A5D0D52A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447192   (1032128) от 12.02.2021
+
+Illuminae - Dark Horizons (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Neo-Prog, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Lighthouse
+02. Blood on Your Hands
+03. Edge of Darkness
+04. Lullaby(   Читать дальше...   )Жанр: Progressive Rock, Neo-Prog, Female VocalПродолжительность: 01:01:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AAF3C66A565CCAE02D5236D6285D43518421545
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447205   (1032127) от 12.02.2021
+
+VA - Markus Schulz - Global DJ Broadcast - Escape to Narva (2021) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Markus Schulz - Escape to Narva
+01. Markus Schulz - Hanging in a Moment
+02. Kyau & Albert & Steve Brian - Candy
+03. Cosmic Gate & Andrew Bayer - The Launch(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:00:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9619C1489F031F22D2B55C5E6A2607496D98EABB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447261   (1032126) от 12.02.2021
+
+La Toya Jackson - La Toya (1988) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're Gonna Get Rocked!
+02. You Blew
+03. Such A Wicked Love
+04. Not Giving Up On Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7754D13592BCE51F2712B815DBF4EE874F833BAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447201   (1032125) от 12.02.2021
+
+Теуникова и КоМПОзит - Один страшный день (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032125.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Катится
+2. Wi-Fi
+3. Введи войска
+4. Сверхъестественный отбор(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B1A003DBB162C37B9F1FC091A3E86F172E3B985
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447045   (1032124) от 12.02.2021
+
+Little River Band - Black Tie (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's A Long Way There (6:39)
+02. Happy Anniversary (4:33)
+03. Take It Easy On Me (4:15)
+04. The Lost And Lonely (3:55)(   Читать дальше...   )Жанр: Rock PopПродолжительность: 00:57:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90924A2FBE7E9BE1F9C776E55E309E443C2F538A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447142   (1032123) от 12.02.2021
+
+Exposure Software Snap Art 4 v4.1.3.358 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032123.jpg" />
+</div>
+
+
+###  Подробнее
+
+Snap Art 4 - этот плагин предназначен для превращения фотографий в картины и рисунки, нарисованные от руки различными стилями. Содержит большую библиотеку предварительных заготовок, которые дают возможность одним щелчком мыши создавать картины, написанные или нарисованные маслом, углем, акварелью, цветными карандашами, ручкой и чернилами, пастельными мелками, а также (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.02.2021Разработчик: Exposure Software, LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAA4E0DA5763618DB470C5F344E93CF8EA627058
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620311   (1032122) от 20.03.2023
+
+Jamhunters - Climate (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz-Pop, Smooth Jazz, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude No. 1 - Song For Birds (0:48)
+02. Song For Birds (4:45)
+03. Prelude No. 2 - Ozone (0:40)
+04. Ozone (4:50)(   Читать дальше...   )Жанр: Jazz-Pop, Smooth Jazz, LoungeПродолжительность: 00:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF22EC30608733D6CCD8B63D2AE9C445BD781CFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620331   (1032121) от 20.03.2023
+
+Road Crew - Rock'n'Roll Train (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Rock'n'Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fck U [00:03:03]
+02. Rock'n'Roll Train [00:02:57]
+03. The Day That You Die [00:03:50]
+04. Killers [00:03:24](   Читать дальше...   )Жанр: Heavy Rock, Rock'n'RollПродолжительность: 00:34:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB869D428B19A99598FB87D981A765D6E0B12795
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620329   (1032120) от 20.03.2023
+
+Оливер Харди. Маменькин сынок / Mother's Baby Boy (1914) WEBRip
 
 >>Классика кино и Старые фильмы до 90-х
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032120.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Техасский ковбой в результате кораблекрушения оказывается на одном из Гавайских островов. Но недаром говорят, что работы ковбою всегда хватает. Здесь он находит красивую вдову и злодея, мечтающего отобрать её землю. Ожидая возвращения домой, ковбой решает помочь семье своего спасителя.Производство: США / Walt Disney ProductionsЖанр: Комедия, Семейный, ВестернРежиссер: Винсент МакЭвитиАктеры: Джеймс Гарнер, Вера Майлз, Роберт Калп, Эрик Ши, Элизабет Смит, Ману Тупоу, Грегори Сьерра, Шаг Фишер, Нефи Ханнеманн, Лито КапиньяПеревод: Авторский, Сергей КузнецовСубтитры: АнглийскиеПродолжительность: 01:31:23
+Совсем коротенькая комeдия о толстячке ухаживающим за девушкой. Несмотря на габариты, он очень инфантильный, трусоватый, какой-то нелепый. Но девушка, тем не менее, привечает его (наверное из жалости).
+Короче, обычная киношутка. Но примечательна она тем, что это один из первых сохранившихся фильмов, где снимался Оливер Харди - легендарнейший комический актер. И начиная (   Читать дальше...   )Производство: США, Lubin Manufacturing CompanyЖанр: комедия, короткометражный, немое киноРежиссер: нет сведенийАктеры: Ева Белл, Оливер Харди, Нелли Фаррон, Дон Феррандо, Берт Бучер, Ройал БайронПеревод: немой с интертитрамиСубтитры: английские (интертитры), русскиеПродолжительность: 00:04:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:489610D40217D0FC217D2DAEC53FB5023015B26F
+magnet:?xt=urn:btih:060D0A14542C55327BA8E4CCE4A92C6CB30B4BE6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -268,25 +312,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447569   (1031616) от 14.02.2021
+###  Публикация: 1620476   (1032119) от 20.03.2023
 
-Капитани / Capitani (2019) WEBRip (сезон 1, серии 1-12 из 12) Baibako [AD]
+Sideways - Test Of Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Prog, Neo-Prog>
 
->>Зарубежные сериалы
->>Сериалы с рекламой
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032119.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В люксембургской деревне, где у каждого есть секреты, инспектор полиции Люк Капитани расследует подозрительную смерть 15-летней девочки.Производство: Люксембург / Artémis Productions, Film Fund Luxembourg, RTL LuxembourgЖанр: криминалРежиссер: Кристоф ВагнерАктеры: Люк Шилтц, Софи Мусель, Клод Де Демо, Joe Dennenwald, Konstantin Rommelfangen, Жюль Вернер, Jil Devresse, Julie Kieffer, Бригитта Урхаузен, Тимо ВагнерПеревод: Многоголосый профессиональный (Baibako)Язык озвучки: русскийПродолжительность: ~00:30:00 серияРеклама: присутствуют вставки рекламы (аудио / видео / баннер)
+01. For More (9:06)
+02. Grey Day (7:00)
+03. Gambling Species (12:43)
+04. G (5:01)(   Читать дальше...   )Жанр: Symphonic Prog, Neo-ProgПродолжительность: 01:02:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9B244CAC8DB76546D99F12E0CE55CB062533E846
+magnet:?xt=urn:btih:54CF8491185ECAE7D4DE5DD16DF1E30032556E53
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -294,25 +341,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447521   (1031615) от 14.02.2021
+###  Публикация: 1620474   (1032118) от 20.03.2023
 
-Годовщина (2020) WEBRip [H.264/1080p-LQ]
+Les Sabler - Flying High (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz>
 
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032118.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пронзительная драма о силе любви с неожиданным финалом. На что бывают способны те, кто по-настоящему любят? Годовщина свадьбы проходит предсказуемо: ужин, цветы, подарки. А порой так хочется чего-то новенького. Взаимные упрёки и накопившиеся обиды пары не заставят себя ждать. Может, так и было задумано?Производство: Россия / Cinema Colour Correction CompanyЖанр: Короткометражный, драма, мелодрамаРежиссер: Эдина УмероваАктеры: Дмитрий Куличков, Ирина ТемичеваСубтитры: ОтсутствуютПродолжительность: 00:14:22
+01. Over The Top (3:58)
+02. Compared To What (4:09)
+03. Moonlight (3:51)
+04. Flying High (4:05)(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 00:44:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E4B1C38A34E28208D65477218A50A89CBE333C6
+magnet:?xt=urn:btih:1A0AD75A97B5F51756ADD118F743BFF721ED0454
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -320,27 +370,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447752   (1031614) от 14.02.2021
+###  Публикация: 1620397   (1032117) от 20.03.2023
 
-Константин Довлатов | Книга, открывающая безграничные возможности. Духовная интеграционика (2017) [MP3]
+Orphan - Lonely at Night (1983) [MP3|320 Kbps] <AOR, Melodic Rock>
 
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032117.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Если вы устали плыть по течению и хотите изменить жизнь – начните прямо сейчас! Автор книги, известный психолог Константин Довлатов разработал уникальную методику, которая преобразит вашу жизнь, – «Духовную интеграционику».
-
-Методика запускает скрытые ресурсы и способности, благодаря которым вы начинаете принимать правильные решения, привлекать нужных людей, ваше (   Читать дальше...   )Жанр: Практическая психология, Психологические тренинги, Саморазвитие / личностный ростПродолжительность: 09:33:00
+01. Lonely at Night (04:19)
+02. What Kind of Love Is This (04:07)
+03. Miracle (04:55)
+04. She Told Me (03:35)(   Читать дальше...   )Жанр: AOR, Melodic RockПродолжительность: 00:37:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E64BA536BF0B4FFD8D7EBF94364968868673F684
+magnet:?xt=urn:btih:19CF149A95438AA402D531DC98980328CBAF2499
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -348,25 +399,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447596   (1031613) от 14.02.2021
+###  Публикация: 1620314   (1032116) от 20.03.2023
 
-Картинки - Super mix wallpapers 615 [JPG]
+Burn In Hell - Biological Warfare (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 
->>Графика, Арт, Разное
->>Картинки
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032116.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В хорошем качестве подборка обоев на различную тематику.Формат: JPGРазрешение файлов: 1600x900-5576x3087
+01 - Vaccine (00:03:50)
+02 - Biological Warfare (00:05:26)
+03 - The Rite (00:03:53)
+04 - The Shadows Within (00:03:49)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:32:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2CDBE1A6D6F91E85C01ABF7E4445A9749086F5B0
+magnet:?xt=urn:btih:744A979476E09184C43597E3429BE871EDF10092
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -374,26 +428,196 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447559   (1031612) от 14.02.2021
+###  Публикация: 1620326   (1032115) от 20.03.2023
 
-Mozilla Firefox 85.0.2.7709 Portable by JolyAnderson [Multi/Ru] (авторская раздача)
+Zalomon Grass - Space Opera (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Hard, Bluesy, 70's>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Relief [00:03:31]
+02. The Drill [00:04:20]
+03. All Hands On Deck [00:05:48]
+04. Harder To Rise [00:05:37](   Читать дальше...   )Жанр: Heavy Psych, Hard, Bluesy, 70'sПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CBA4093425D8F99E93FD069C722E438566F632C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620436   (1032114) от 20.03.2023
+
+Ice Age - Waves of Loss and Power (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032114.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Needle's Eye 07:04
+2. Riverflow 10:48
+3. Perpetual Child, Part II: Forever 14:35
+4. Together Now 08:00(   Читать дальше...   )Жанр: Progressive Metal, Progressive RockПродолжительность: 01:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FED670FE852D1970F1B1C6EBEAF9B49BD6296007
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620296   (1032113) от 20.03.2023
+
+The New Death Cult - Super Natural (2023) [FLAC 2.0|24/44.1|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Different One Blood
+02 – High + Low
+03 – Antidote
+04 – Superglue(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65CC0B92E9E9FB548EF5129FFD9E1BFD02D7CF16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620434   (1032112) от 20.03.2023
+
+Журнал | Practical Wireless №3 (2023) [PDF][En]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журналы "Practical Wireless" - это бестселлеры для радиолюбителей. Усовершенствуйте старые технологии и будьте в курсе текущих технологических новшеств с информированными статьями журнала «Practical Wireless», новостями и обзорами по всем аспектам любительского радио. Сконструируйте радиооборудование и получите техническую информацию в разделах журнала, (   Читать дальше...   )Жанр: КВ и УКВ радиосвязьЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A558A8ABE8E62314B786E4D06CFF4B2D33380F70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620520   (1032111) от 20.03.2023
+
+VA - Alone Again - Heartbreak Songs (2023) [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aine - Nothing Breaks Like a Heart
+02. Benson Boone - Better Alone
+03. Birdy, Rhodes - Let It All Go
+04. Paolo Nutini - Let Me Down Easy(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:39:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:831D04796EFAD1C5F6B540118957FE729B2ADAE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620561   (1032110) от 20.03.2023
+
+VA - NOW That's What I Call Music! 113 (2022) 2 CD [OGG Vorbis|480 Kbps] <Pop, Rock, RnB, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lewis Capaldi - Forget Me
+02. Sam Smith & Kim Petras - Unholy
+03. OneRepublic - I Ain't Worried
+04. Stormzy - Hide & Seek(   Читать дальше...   )Жанр: Pop, Rock, RnB, DanceПродолжительность: 02:33:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEF87B54C040F1B443F4DE27CAC8A48DAB202277
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620383   (1032109) от 20.03.2023
+
+QOwnNotes 23.3.6 Portable [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032109.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. В него изначально входит проверка сайта на отслеживание, поддержка расширений и многое другое.
-Вашему вниманию предоставляется Portable версия браузера Firefox.Язык интерфейса: Русский, Английский и другие
+QownNotes – менеджер заметок, позволяющий четко организовать свои заметки, эффективно управлять записями. Удобные функции сортировки, вывода на печать, расшаривания, синхронизации заметок с облачным сервисом. Такая синхронизация позволит открывать и редактировать файлы, например в мобильном устройстве. Записи хранятся в простых текстовых файлах. Есть возможность (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C80E62ADDB4A3546C51FA5BCF650BEF194EE0DE5
+magnet:?xt=urn:btih:E84AB91DE14AAB48F2D162D8FA37F7A883E7C73C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -401,25 +625,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447514   (1031611) от 14.02.2021
+###  Публикация: 1620341   (1032108) от 20.03.2023
 
-Возвращение Будулая (1985) 2xDVD9 (серии 1-4 из 4)
+Replica Jesus - Echoes From The Expanse (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, Stoner, Garage, Grunge>
 
->>Классика сериалов и многосерийное кино до 90-х
->>Отечественная классика сериалов и старое многосерийное кино до 90-х
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032108.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Продолжение фильма "Цыган". После зверского избиения он потерял память. Теперь Будулай должен найти себя, смятенного, свое место на этой земле. Он стремится вернуть прошлое, но оно ускользает, словно тень, оставляя след боли в душе. И только одна женщина, спасшая во время войны и вырастившая его сына, ищет и ждет его верно и преданно...Производство: СССР / Творческое Объединение «Экран»Жанр: ДрамаРежиссер: Александр БланкАктеры: Михай Волонтир, Клара Лучко, Ариадна Шенгелая, Иван Рыжов, Нина Русланова, Леонид Неведомский, Михаил Долгинин, Софья Тимофеева, Рудик Овсепян, Иван ЛапиковПродолжительность: ~01:20:00 серия
+01. Everything Rots [00:04:05]
+02. Professional Liar [00:04:55]
+03. Headshot [00:03:49]
+04. Fresh Flesh [00:04:02](   Читать дальше...   )Жанр: Heavy Rock, Psych, Stoner, Garage, GrungeПродолжительность: 00:41:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0A13ACF3617C7B15B2715D7B3396A67CBFFA9AA1
+magnet:?xt=urn:btih:DBAF9A6EFB5982EB831865845E35A65C5807AA94
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -427,25 +654,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447723   (1031610) от 14.02.2021
+###  Публикация: 1620443   (1032107) от 20.03.2023
 
-Stand Up (31.01.2021) WEB-DL [H.264/1080p-LQ] (сезон 8, выпуск 12)
+Журнал | Practical Wireless №1 (2023) [PDF][En]
 
->>Юмор (ТВ)
->>ПостКВН
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032107.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Stand Up - это взгляд на наши жизненные повседневные ситуации. Это история, которую рассказывает человек на сцене, - обычно очень откровенную. Это правда жизни. Это что-то современное, что-то новое. Это что-то невообразимо оригинальное, яркое, интересное и обязательно смешное. Встречайте...Телекомпания: ТНТЖанр: ЮморАктеры: Руслан Белый, Слава Комиссаренко, Юлия Ахмедова, Дмитрий Романов, Стас Старовойтов, Тимур Каргинов, Виктор Комаров и др.Субтитры: ОтсутствуютПродолжительность: 00:44:36
+Журналы "Practical Wireless" - это бестселлеры для радиолюбителей. Усовершенствуйте старые технологии и будьте в курсе текущих технологических новшеств с информированными статьями журнала «Practical Wireless», новостями и обзорами по всем аспектам любительского радио. Сконструируйте радиооборудование и получите техническую информацию в разделах журнала, (   Читать дальше...   )Жанр: КВ и УКВ радиосвязьЯзык: АнглийскийФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1024C20111F3B747464614D898961EFAFAE0EFD5
+magnet:?xt=urn:btih:EF21FD8F05F88CE0B392E8CF43E3E134F1D27EF4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -453,209 +680,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447676   (1031609) от 14.02.2021
+###  Публикация: 1620417   (1032106) от 20.03.2023
 
-Ездок (2021) WEBRip [H.264/720p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031609.jpg" />
-</div>
-
-
-###  Подробнее
-
-У бухгалтерши Зины есть всё, кроме любви. Но с появлением роликовых коньков её жизнь круто меняет свой маршрут...Производство: РоссияЖанр: Короткометражный, комедияРежиссер: Соня КарпунинаАктеры: Мария Шалаева, Павел Деревянко, Вася Аккерман, Ольга Дибцева, Надежда Сысоева, Александр Петров, Антон ЛапенкоСубтитры: ОтсутствуютПродолжительность: 00:16:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CE231B95099E18083F3F4EF83D3A44686B9A222
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447599   (1031608) от 14.02.2021
-
-Картинки - Super mix wallpapers 616 [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031608.jpg" />
-</div>
-
-
-###  Подробнее
-
-В хорошем качестве подборка обоев на различную тематику.Формат: JPGРазрешение файлов: 1680x1050-7680x4320
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DD5645F1CDDDC36EFBC7F69D230B56C4C78D362
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447778   (1031607) от 14.02.2021
-
-Ирина Маслова | Метод «Генезис»: полюби себя больше семьи и работы (2021) [EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Есть огромная разница между «быть» и «казаться». Когда вы притворяетесь, что у вас все хорошо, – это не про радость, а про защиту. Любой успех – это взрослая позиция, позиция ответственности.
-Если вы чувствуете, что с вашей жизнью что-то не так; если у вас нет опыта либо привычки инвестировать во внутренний рост, то эта книга именно для вас. Прочитав ее, вы поймете, (   Читать дальше...   )Жанр: Психология, Саморазвитие, Личностный ростФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E1DEA67E610EEDB2E6A16270FA2718A1EB8606C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447578   (1031606) от 14.02.2021
-
-Семейка Крудс: Новоселье / The Croods: A New Age (2020) BDRemux [H.264/1080p] [MVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Такие харизматичные герои как члены клана Крудс просто не в силах усидеть на месте. Они смело идут навстречу самым головокружительным приключениям и готовы ответить непредсказуемостью и находчивостью на любой вызов судьбы.Производство: США / DreamWorks AnimationЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Джоэль КроуфордАктеры: Николас Кейдж, Эмма Стоун, Райан Рейнольдс, Кэтрин Кинер, Клорис Личмен, Кларк Дьюк, Лесли Манн, Питер Динклэйдж, Келли Мари Трэн, Kailey CrawfordПеревод: Многоголосый профессиональный (HDRezka Studio)Субтитры: русские (Forced, Full), английские (Full)Продолжительность: 01:35:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9133C3ED78104AEC49F4F7335EA6A357795B9F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447759   (1031605) от 14.02.2021
-
-Internet Download Manager 6.38 Build 17 RePack by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6E5F01F52D84B23D708AB02BB72A2C51320BEB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447551   (1031604) от 14.02.2021
-
-Matt Kohr | New Lessons Digital Painting with Matt Kohr Part 2 (2014-2016) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тут собраны бесплатные уроки от Ctrl+Paint которые ещё не переводились до 2 ноября 2016.Производство: Ctrl+PaintЖанр: Создание видеоПродолжительность: 04:14:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:409E2160324D57276FA98F5B37B30DAF083F39C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447605   (1031603) от 14.02.2021
-
-Картинки - Super mix wallpapers 618 [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031603.jpg" />
-</div>
-
-
-###  Подробнее
-
-В хорошем качестве подборка обоев на различную тематику.Формат: JPGРазрешение файлов: 1680x1050-7384x4923
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F1F9FE5744703B1CA2FE846D8C6AF03F743430B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442235   (1031602) от 14.02.2021
-
-Площадка / The Sandlot (1993) BDRip [H.265/1080p-LQ] [10-bit] [PR]
+Эсминец без цели / Эгида / Bokoku no ijisu (2005) BDRip [H.264] [AVO]
 
 >>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032106.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Летом 1962 года после окончания 5-го класса мальчик Скотти вместе с матерью переезжает в другой штат к отчиму Биллу. Все друзья остались за тысячу километров, поэтому, естественно, нужно подружиться с местными ребятами, и, благо, есть повод: целыми днями они играют в бейсбол на местном пустыре, и команда у них неполная — не хватает ровно одного человека.
-Самый старший (   Читать дальше...   )Производство: США / 20th Century Fox Film Corporation, Island WorldЖанр: семейный, спорт, драма, комедияРежиссер: Дэвид М. ЭвансАктеры: Арт ЛаФлёр, Том Гайри, Майк Витар, Патрик Ренна, Чонси Леопарди, Марти Йорк, Брэндон Квинтин Адамс, Грант Гельт, Шэйн Обедзински, Виктор ДиМаттьяПеревод: Многоголосый профессиональный, Одноголосый профессиональныйСубтитры: русские (полные), английские (полные, для слабослышащих)Продолжительность: 01:41:08
+Биологическое оружие контрабандой перевозится на борту высокотехнологичного линкора под названием "Эгида". Боевики полны решимости обрушить это на Японию. Но у храброго главного старшины другие идеи. Он и агент под прикрытием пытаются остановить боевиков...Производство: Япония, Cross MediaЖанр: драма, боевик, военный, триллерРежиссер: Дзюндзи СакамотоАктеры: Хироюки Санада, Акира Тэрао, Коити Сато, Киити Накаи, Рё Кацудзи, Мин Со Чхэ, Эисаку Ёсида, Сёсукэ Танихара, Исао Тоёхара, Масанобу АндоПеревод: авторскийЯзык озвучки: русский, японскийСубтитры: русские, английскиеПродолжительность: 02:07:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0F307B985D299556DB8BA2F4CF8721F01B9DBC35
+magnet:?xt=urn:btih:343D4A586E0963A2824BF9DAE4D7B6D7F8FB9339
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -663,25 +706,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 518608   (1031601) от 14.02.2021
+###  Публикация: 1620426   (1032105) от 20.03.2023
 
-Т.А. Чохонелидзе | Лето. Задания по развитию речи (2010) [PDF]
+Журнал | Practical Wireless №4 (2023) [PDF][En]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032105.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник заданий для индивидуальной работы с ребенком, иллюстрированное пособие, занятия по которому могут проводить как логопеды, так и родители.Жанр: Развивающая литератураФормат: PDF
+Журналы "Practical Wireless" - это бестселлеры для радиолюбителей. Усовершенствуйте старые технологии и будьте в курсе текущих технологических новшеств с информированными статьями журнала «Practical Wireless», новостями и обзорами по всем аспектам любительского радио. Сконструируйте радиооборудование и получите техническую информацию в разделах журнала, (   Читать дальше...   )Жанр: КВ и УКВ радиосвязьЯзык: АнглийскийФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0C8F5D4CD2969B7AFA02A6E94064E9654C703852
+magnet:?xt=urn:btih:41AAF45E980AD5CD3F48ED358A92DDED0261A920
 ```
 
 https://mybot314.ru/tekegram_catalog/

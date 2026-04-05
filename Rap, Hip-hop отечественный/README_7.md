@@ -1,32 +1,3 @@
-###  Публикация: 1141195   (652127) от 09.06.2017
-
-Noize MC - Чайлдфри (2017) Single [MP3|320 Kbps] <Rap, Hip-Hop, Rock>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652127.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Чайлдфри
-2. Чайлдфри (версия Монеточки)
-3. Марафон
-4. Чайлдфри (инструментал)(   Читать дальше...   )Жанр: Rap, Hip-Hop, RockПродолжительность: 00:23:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5277D059BDEAE0E66F1B28B5645D79CAA3B9800F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1227296   (648480) от 25.05.2018
 
 Billy Milligan - Геном (2018) [MP3|320 Kbps] <Rap, Hip-hop>
@@ -35,7 +6,7 @@ Billy Milligan - Геном (2018) [MP3|320 Kbps] <Rap, Hip-hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648480.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648045.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ MATRANG - ЭЙА (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646587.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ N1NT3ND0 (Баста) - Папа на рэйве (2019) [MP3|320 Kbps] <Rap, Hip
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642683.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Noize MC - Хипхопера: Орфей & Эвридика (2018) [MP3|320 Kbp
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637234.jpg" />
 </div>
 
 
@@ -178,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635702.jpg" />
 </div>
 
 
@@ -207,7 +178,7 @@ Guf, Slim - GuSli (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634751.jpg" />
 </div>
 
 
@@ -236,7 +207,7 @@ Guf - Опять (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631360.jpg" />
 </div>
 
 
@@ -265,7 +236,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631359.jpg" />
 </div>
 
 
@@ -294,7 +265,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627684.jpg" />
 </div>
 
 
@@ -323,7 +294,7 @@ Noize MC - XV (2019) Live [MP3|320 Kbps] <Rap, Hip-Hop, Rock>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620352.jpg" />
 </div>
 
 
@@ -352,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618624.jpg" />
 </div>
 
 
@@ -381,7 +352,7 @@ Miyagi & Эндшпиль - Умшакалака (feat. Amigo) (2017) [MP3|320 K
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612463.jpg" />
 </div>
 
 
@@ -410,7 +381,7 @@ TRUEтень, Красное Дерево - Кадык (2022) [MP3|320 Kbps] <Ra
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605933.jpg" />
 </div>
 
 
@@ -439,7 +410,7 @@ Thomas Mraz - EMOTIONAL - 8 (2014) [MP3|320 Kbps] <Rap, Hip-hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604143.jpg" />
 </div>
 
 
@@ -468,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601665.jpg" />
 </div>
 
 
@@ -497,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590625.jpg" />
 </div>
 
 
@@ -524,7 +495,7 @@ Gazgolder - Баста + (2015) [MP3|320 кб/с]<Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589814.jpg" />
 </div>
 
 
@@ -553,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570203.jpg" />
 </div>
 
 
@@ -582,7 +553,7 @@ Rigos - Водитель Катафалка (2018) [MP3|320 Kbps] <Rap, Hip-hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569283.jpg" />
 </div>
 
 
@@ -611,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566858.jpg" />
 </div>
 
 
@@ -640,7 +611,7 @@ Johnyboy - Вне времени (2018) [MP3|320 Kbps] <Rap, Hip-hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562148.jpg" />
 </div>
 
 
@@ -669,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561324.jpg" />
 </div>
 
 
@@ -698,7 +669,7 @@ Krec - Head (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557322.jpg" />
 </div>
 
 
@@ -727,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557298.jpg" />
 </div>
 
 
@@ -741,6 +712,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A6B42BC5D5FCDA325F0F077677EF334A89C931D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236865   (553764) от 20.07.2018
+
+MiyaGi & Эндшпиль - Hajime, Pt. 3 (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Колизей
+02. Дама
+03. Я хочу любить
+04. Фея(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:34:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17022D7481DB49661AEB70F19156AB1640F785B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

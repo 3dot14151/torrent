@@ -1,3 +1,57 @@
+###  Публикация: 1526672   (244972) от 25.01.2022
+
+Mirror for Grundig TV 3.5.3 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если у вас есть телевизор Grundig и вы хотите показывать изображение со своего компьютера на большом экране, у AirBeamTV есть решение. Отразите свой Mac на любом телевизоре Grundig Smart TV. Никаких проводов и дополнительного оборудования не требуется. Приложение работает без Apple TV или Airplay.Тип издания: macOS SoftwareРелиз состоялся: 25.01.2022Разработчик: © 2022 | AirBeamTV BVПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23B41858EE1634BD32F3206B0086B91927D6CC3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609343   (244964) от 03.02.2023
+
+DSLR Assistant 3.9.1 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Управляйте камерой Canon, подключенной к Mac, эффективно снимайте цифровые изображения, автоматически выполняйте различные фото-задачи и поддерживайте высокое качество изображений на протяжении всего рабочего процесса.
+Почему DSLR Assistant?
+• Экономьте время. Выполняйте задачи с фотографиями быстрее, лучше и проще. Уменьшите объем рабочего процесса постобработки. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.04.2022Разработчик: © 2021 KAAsoftПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35EC032C55C1C228A8EFEE61298A30A35CF4D57C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1621481   (244642) от 25.03.2023
 
 Gemini 2: The Duplicate Finder 2.9.8 [Multi]
@@ -6,7 +60,7 @@ Gemini 2: The Duplicate Finder 2.9.8 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244642.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ Home Business Card 1.7.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244562.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ CD DVD Label Maker 2.6.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244536.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ Paw (HTTP & REST Client) 3.3.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244505.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ AnyRec Video Converter for Mac 1.0.28 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244450.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ Magic Media Marker 3.3 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244440.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ NeoFinder Business 8.1.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244325.jpg" />
 </div>
 
 
@@ -191,7 +245,7 @@ WALTR PRO 4.0.115 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244193.jpg" />
 </div>
 
 
@@ -217,7 +271,7 @@ FontLab 7 v7.2.0.7649 Beta [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244107.jpg" />
 </div>
 
 
@@ -244,7 +298,7 @@ Mirror for Roku TV 2.8.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243956.jpg" />
 </div>
 
 
@@ -270,7 +324,7 @@ Clipboard mini 3.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243944.jpg" />
 </div>
 
 
@@ -296,7 +350,7 @@ DateBook - Journal | Memoi‪r 2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243795.jpg" />
 </div>
 
 
@@ -322,7 +376,7 @@ Salon Software 3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243785.jpg" />
 </div>
 
 
@@ -348,7 +402,7 @@ Noizio — focus, relax, sleep 2.1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243762.jpg" />
 </div>
 
 
@@ -374,7 +428,7 @@ Zoommy 3.2.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243742.jpg" />
 </div>
 
 
@@ -400,7 +454,7 @@ Flyingbee Reader Pro 3.1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243668.jpg" />
 </div>
 
 
@@ -426,7 +480,7 @@ DoYourData File Eraser Pro 3.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243572.jpg" />
 </div>
 
 
@@ -452,7 +506,7 @@ Scherlokk - Files finder 4 v4.6 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243393.jpg" />
 </div>
 
 
@@ -478,7 +532,7 @@ MultiMode Cocoa 6.9.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243193.jpg" />
 </div>
 
 
@@ -504,7 +558,7 @@ Dropzone 4 Pro v4.2.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243105.jpg" />
 </div>
 
 
@@ -531,7 +585,7 @@ Book Collector 20.3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_243007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_243007.jpg" />
 </div>
 
 
@@ -557,7 +611,7 @@ Stacks 4 (RapidWeaver plugin) v4.2.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242983.jpg" />
 </div>
 
 
@@ -583,7 +637,7 @@ WaterMark+ 3.00 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242930.jpg" />
 </div>
 
 
@@ -610,7 +664,7 @@ XSTab 2.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242755.jpg" />
 </div>
 
 
@@ -622,60 +676,6 @@ XSTab - это инструмент, предназначенный для по�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F320D08E7548A73D641D9DF6DCAE7CCF4FD05385
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624274   (242722) от 05.04.2023
-
-Airflow 3.3.5 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смотрите контент с компьютера на Apple TV и Chromecast. Не нужно ждать, индексировать, просто перетащите видео и смотрите. Проще уже действительно не придумать.Тип издания: macOS SoftwareРелиз состоялся: 02.04.2023Разработчик: © 2020 BitCave Ltd.Поддерживаемая ОС: macOS 10.12.2 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15B9CEF24CA4B55F8FEAD56559A7E9E65F5BFF79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360371   (242709) от 15.02.2020
-
-Fuel for Pages 2.0 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fuel for Pages - это удивительное дополнение для приложения Apple Pages. В Вашем распоряжении 1019 шаблонов в 11 категориях, такие как: - Брошюры, - Визитные карточки, - Календарь, - Карты и Приглашения, - Конверты, - Листовки, - Флаеры, - Письма, - Бюллетени, - Бланки для докладов, - Резюме.
-
-Различные размеры. - Все шаблоны доступны в US Letter и A4. Размер бумаги (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.02.2020Разработчик: Infinite Loop AppsПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FCF17CDCEA7E31E85906C23D34759E811A5570E
 ```
 
 https://mybot314.ru/tekegram_catalog/

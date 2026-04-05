@@ -1,3 +1,60 @@
+###  Публикация: 1465771   (1018979) от 27.04.2021
+
+Kashya - Discography 20 Releases (2012-2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Soundscape>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There Is So Much Hope Buried Underneath Tragedy, Its The Same Shade As Concrete (15:15)
+ 02. I Only Get To Hold Her When She's Injured, I Only Get To Kiss Her When She's Sore (08:41)
+ 03. We Can Mend All The Seams That Were Torn During Our Backs Slowly Breaking (07:45)Тип издания: WebЖанр: Ambient, Drone, Soundscape •Продолжительность: 11:25:49 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F73898252DC3AB3853D8A594277380AF83D6DD7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465854   (1018959) от 27.04.2021
+
+Michael E - Lost in Thought (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time (5:49)
+02 . Maybe This Time (feat Ashley Slater & Diego Porchile) (7:00)
+03. Happy Daze (3:42)
+04. Distant Lovers (5:12)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:59:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CD1F8228A748FE5D62E657A67C1AB79DADA6F56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1465825   (1018816) от 28.04.2021
 
 Michael E - With Open Arms (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -6,7 +63,7 @@ Michael E - With Open Arms (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downt
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018816.jpg" />
 </div>
 
 
@@ -35,7 +92,7 @@ VA - Trip to Anatolia: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018791.jpg" />
 </div>
 
 
@@ -64,7 +121,7 @@ Skua Atlantic - Silfra Diving (2021) Fantasy Enhancing [FLAC|Lossless|WEB-DL|tra
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018653.jpg" />
 </div>
 
 
@@ -93,7 +150,7 @@ VA - Jazz Mood Cocktail (2017) [FLAC|Lossless|Web-DL|tracks] <Downtempo, Lounge,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018636.jpg" />
 </div>
 
 
@@ -122,7 +179,7 @@ Deya Dova - Collection (1999-2017) 4 альбома [MP3|320 Kbps] <Downtempo, G
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018611.jpg" />
 </div>
 
 
@@ -151,7 +208,7 @@ VA - Kiez Beats: Synthwave, Vol. 8 (2021) Anniversary Edition [FLAC|Lossless|WEB
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018600.jpg" />
 </div>
 
 
@@ -180,7 +237,7 @@ Artilect | Deeperheightz - Discography 11 Releases (2015-2021) [FLAC|Lossless|tr
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018538.jpg" />
 </div>
 
 
@@ -209,7 +266,7 @@ r.roo - Discography 34 Releases (2011-2021) Someone Records [FLAC|Lossless|WEB-D
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018486.jpg" />
 </div>
 
 
@@ -238,7 +295,7 @@ Beta Consciousness - Synesthesia (2021) ...txt [FLAC|Lossless|WEB-DL|tracks] <Am
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018448.jpg" />
 </div>
 
 
@@ -267,7 +324,7 @@ ROISIN MURPHY / Róisín Murphy - Crooked Machine (2021) [FLAC|Lossless|WEB-DL|t
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018438.jpg" />
 </div>
 
 
@@ -296,7 +353,7 @@ Zoon van snooK - Discography 10 Releases (2008-2020) Lo Recordings, Mush, Alter 
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018425.jpg" />
 </div>
 
 
@@ -325,7 +382,7 @@ Beta Consciousness - Synesthesia (2021) ...txt [FLAC 2.0|44.1/24|tracks|WEB-DL] 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018391.jpg" />
 </div>
 
 
@@ -354,7 +411,7 @@ Yello - Yello 40 Years (2021) 4CD, Remastered [MP3|320 Kbps] <Electronic, New Wa
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018372.jpg" />
 </div>
 
 
@@ -383,7 +440,7 @@ Yello - Yello 40 Years (2021) 4CD, RM. Ltd. [FLAC|Lossless|WEB-DL|tracks] <Elect
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018370.jpg" />
 </div>
 
 
@@ -412,7 +469,7 @@ Russ Gabriel - Off Centre (2021) Ferox Records [FLAC|Lossless|WEB-DL|tracks] <El
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018301.jpg" />
 </div>
 
 
@@ -441,7 +498,7 @@ Greg Nairo - Alma (2021) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018292.jpg" />
 </div>
 
 
@@ -470,7 +527,7 @@ VA - FreshTraxxx Vol.3 (Mixed by Utah Saints) - 2008 [FLAC|Lossless|tracks] <Ele
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018260.jpg" />
 </div>
 
 
@@ -496,7 +553,7 @@ Intellitronic Bubble - Label Pack 21 Releases (2019-2020) [FLAC|Lossless|WEB-DL|
 >>Label-Packs
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018173.jpg" />
 </div>
 
 
@@ -525,7 +582,7 @@ VA - Continental Drift (2021) IDEAL EUROPA [FLAC|Lossless|WEB-DL|tracks] <Leftfi
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018107.jpg" />
 </div>
 
 
@@ -554,7 +611,7 @@ New Canyons - Heavy Water (2021) [FLAC|Lossless|WEB-DL|tracks] <shoegaze, synthp
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018094.jpg" />
 </div>
 
 
@@ -583,7 +640,7 @@ Worms Of The Earth - Discography 10 Releases (2006-2021) Disease Foundry, Indust
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017824.jpg" />
 </div>
 
 
@@ -611,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017773.jpg" />
 </div>
 
 
@@ -640,7 +697,7 @@ Inkipak - Anomaly (2020) Ping Disc [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, 
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017757.jpg" />
 </div>
 
 
@@ -669,7 +726,7 @@ The Fade Beta - Bygone Dreams (2021) [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtem
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017729.jpg" />
 </div>
 
 
@@ -683,64 +740,6 @@ The Fade Beta - Bygone Dreams (2021) [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtem
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:319FB780471033FFB8DDC360B8359DF22D064F9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467631   (1017720) от 04.05.2021
-
-Tapage - Recover (2021) Point Source Electronic Arts [FLAC 2.0|48/24|tracks|WEB-DL] <IDM, Glitch, Ambient>
-
->>Electronic
->>Experimental, Industrial (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Test (02:00)
- 02. 114120All (03:04)
- 03. Begin (02:07)
- 04. We All Became (06:24)(   Читать дальше...   )Жанр: IDM, Glitch, AmbientПродолжительность: 00:36:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32C7D436882FBE59234479B5D5FDAEF3F3741C89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917868   (1017640) от 04.05.2021
-
-2methyl (2methylBulbe1ol) - Discography 14 Releases (2009-2021) Ad Noiseam, Ruff, Agnost1k [FLAC|Lossless|tracks+.cue, tracks]<Dubstep, IDM, Drum n Bass, Industrial>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2methylBulbe1ol & Known Rebel - Crashed (04:43)
- 02. Miii - Lucid Dream (2methyl Awakening Remix) (04:35)
- 03. Spankbass - Stamina (2methylBulbe1ol Ohmwork) (04:08)
- 04. Virgil Enzinger - Odic Force (2methylBulbe1ol Remix) (05:53)(   Читать дальше...   )Тип издания: CD, Vinyl, WebЖанр: Dubstep, IDM, Drum n Bass, Industrial •Продолжительность: 05:32:20 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79F97FC04E8632ADB9530BDAEF43C82F070EAA11
 ```
 
 https://mybot314.ru/tekegram_catalog/

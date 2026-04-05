@@ -1,81 +1,3 @@
-###  Публикация: 1018376   (755422) от 20.05.2016
-
-Выживший / The Revenant (2015) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Охотник Хью Гласс серьезно ранен на неизведанных просторах американского Дикого Запада. Товарищ Хью по отряду покорителей новых земель Джон Фицжеральд предательски оставляет его умирать в одиночестве. Теперь у Гласса осталось только одно оружие - его сила воли. Он готов бросить вызов первобытной природе, суровой зиме и враждебным племенам индейцев, только чтобы выжить (   Читать дальше...   )Производство: США, Гонконг, Тайвань, Канада / 20th Century Fox Film Corporation, New Regency Pictures, RatPac Entertainment, Soho VFX, Appian Way, Anonymous ContentЖанр: Триллер, Драма, Приключения, ВестернРежиссер: Алехандро Гонсалес ИньярритуАктеры: Леонардо ДиКаприо, Том Харди, Донал Глисон, Уилл Поултер, Форрест Гудлак, Пол Андерсон, Кристоффер Йонер, Джошуа Бёрдж, Дуан Ховард, Мила Нахеко, Фабрис Адд, Кристофер Розамунд, Роберт Молони, Лукас Хаас, Брендан Флетчер, Тайсон Вуд, МакКалеб Барнетт, Винсент Леклерк, Стефан Леголт, Эммануэль БилодоПеревод: Дублированный, авторский (одноголосый закадровый) х2Язык субтитров: Русский (Forced, Full), АнглийскийПродолжительность: 02:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C16947DA1FD101EB0B74F212CA335721C3E021FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018382   (755420) от 20.05.2016
-
-Дети сексу не помеха / Friends with Kids (2011) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Есть ли секс после свадьбы? Все знают: в медовый месяц — страстный, через пару лет — уже не очень. Но выход есть. Джейсон и Джули решают завести ребенка, но при этом остаться только друзьями. Десять минут, девять месяцев — малыш готов. И уже Джейсон приударяет за шикарной брюнеткой, а Джули встречается с брутальным немцем. Но правда ли, что дети сексу не помеха?Производство: СШАЖанр: Драма, мелодрама, комедияРежиссер: Дженнифер УэстфелдАктеры: Адам Скотт, Дженнифер Уэстфелд, Джон Хэмм, Кристен Уиг, Майя Рудольф, Крис О`Дауд, Меган Фокс, Эдвард Бёрнс, Лулу Слосс, Кэти Фостер, Роберт Халперн, Дэниэл Халперн, Рекха Лютер, Питер К. Хирш, Ли Брайант, Келли Бишоп, Коттер Смит ...Перевод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B7197876701434A5DB91C15FD68E3DA50A60F29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018522   (755416) от 20.05.2016
-
-Срок жизни / Term Life (2016) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает о персонаже по имени Ник Бэрроу, который планирует кражи, а потом продаёт эти проекты тому, кто больше заплатит. Но наступает чёрный день — один из замыслов Ника с треском проваливается, и теперь его смерти жаждут все, начиная с главарей мафии и заканчивая оборотнями в погонах.Производство: СШАЖанр: Драма, криминалРежиссер: Питер БиллингслиАктеры: Джон Фавро, Хейли Стайнфелд, Джонатан Бэнкс, Тараджи П. Хенсон, Винс Вон, Аннабет Гиш, Билл Пэкстон, Терренс Ховард, Мануэль Рульфо, Хорди МольяПеревод: Любительский многоголосый (Parovoz Production)Субтитры: ОтсутствуютПродолжительность: 01:32:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F86BA49CD9EB4FEB57B3B9F527ADAE8878F942D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018437   (755333) от 20.05.2016
 
 День мумии / Day of the Mummy (2014) HDRip
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755333.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755325.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755278.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755109.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755104.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755096.jpg" />
 </div>
 
 
@@ -240,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755053.jpg" />
 </div>
 
 
@@ -266,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754982.jpg" />
 </div>
 
 
@@ -292,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754979.jpg" />
 </div>
 
 
@@ -318,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754914.jpg" />
 </div>
 
 
@@ -344,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754828.jpg" />
 </div>
 
 
@@ -370,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754812.jpg" />
 </div>
 
 
@@ -396,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754695.jpg" />
 </div>
 
 
@@ -422,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754689.jpg" />
 </div>
 
 
@@ -448,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754660.jpg" />
 </div>
 
 
@@ -474,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754659.jpg" />
 </div>
 
 
@@ -500,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754653.jpg" />
 </div>
 
 
@@ -526,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754627.jpg" />
 </div>
 
 
@@ -552,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754267.jpg" />
 </div>
 
 
@@ -578,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754176.jpg" />
 </div>
 
 
@@ -604,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753846.jpg" />
 </div>
 
 
@@ -631,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753787.jpg" />
 </div>
 
 
@@ -657,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753567.jpg" />
 </div>
 
 
@@ -668,6 +590,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:266BF3ADC674CD3AA7898C17E0BDDC550365AF35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018860   (753429) от 21.05.2016
+
+Он никогда не умирал / He Never Died (2015) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кровь необходима герою для того, чтобы продлить свое существование. Однако долгая жизнь имеет свои недостатки, главный из них – скука, от которой не спасают ни крепкий здоровый сон, ни просмотр телешоу, ни участие в лотереях. Так стоит ли такая жизнь того, чтобы продолжать ее? Кажется, герой и сам хотел бы узнать ответ на этот вопрос. Но вместо этого Джек вынужден (   Читать дальше...   )Производство: США, КанадаЖанр: Триллер, драма, комедияРежиссер: Джейсон КравчикАктеры: Бу Бу Стюарт, Генри Роллинз, Стивен Огг, Джордан Тодоси, Джеймс Кейд, Майкл Крэм, Чантал Крэйг, Дэн Петронижевич, Тамара Альмейда, Кейт ГринхаусПеревод: Профессиональный многоголосый, двухголосый закадровый  (любительский)Субтитры: Русский, английскийПродолжительность: 01:37:16Реклама: Присутствует звуковая реклама
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C8968021651A5DF8C887ACBF788F34C0454A91D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395562   (753417) от 11.07.2020
+
+Мосты округа Мэдисон / The Bridges of Madison County (1995) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Франческа — жена американского фермера и мать двоих детей. Она родом из Южной Италии, где ее романтическим мечтам не суждено было сбыться. Неожиданно в ее монотонную жизнь вмешивается судьба: встреча с Робертом. Роберт — свободный фотограф, он давно уже привык жить один. Но эта встреча меняет и его судьбу. Они страстно и без оглядки влюбились друг в друга. На эту (   Читать дальше...   )Производство: США / Amblin Entertainment, Malpaso Productions, Warner BrothersЖанр: Драма, МелодрамаРежиссер: Клинт ИствудАктеры: Клинт Иствуд, Мэрил Стрип, Энни Корли, Виктор Слезак, Джим Хейни, Сара Кэтрин Шмитт, Кристофер Крун, Филлис Лайонс, Дебра Монк, Ричард ЛейджПеревод: Дублированный, многоголосый профессиональный, авторскийСубтитры: Русские, английскиеПродолжительность: 02:14:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC48E3FABC4A30CF6801D821B72B792AA885A99D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018763   (753321) от 21.05.2016
+
+Полицейская тачка / Cop Car (2015) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два 10-летних мальчишки находят заброшенный полицейский автомобиль и решают присвоить его себе. Обычная детская игра начинает приобретать пугающие черты после того, как шериф небольшого городка отправляется на поиски своей пропавшей машины.Производство: США, Audax Films, Audax Films, End Cue, Park PicturesЖанр: Триллер, КриминалРежиссер: Джон УоттсАктеры: Кевин Бейкон, Джеймс Фридсон-Джексон, Хэйс Уэллфорд, Камрин Менхейм, Ши Уигхэм, Кэтлин Бентли, Джозеф ОливейраПеревод: Профессиональный многоголосыйОзвучка / Автор перевода: Paradox & Omskbird recordsСубтитры: ОтсутствуютПродолжительность: 01:27:39Реклама: Присутствуют вставки голосовой и текстовой рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D21BABBF2BE2ACD369C0E4DCD13B80A161803E57
 ```
 
 https://mybot314.ru/tekegram_catalog/

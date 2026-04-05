@@ -6,7 +6,7 @@ Doll of Resurrection (2018) [En/Ch] (1.0) License HOODLUM
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434630.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The Suffering: Ties That Bind (2005) [Ru/En] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434165.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Tomb Raider (2013) [Ru] (1.01.748.0/dlc) Repack xatab [Game of The Year Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434157.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Alan Wake's American Nightmare (2012) [Ru] (1.0.3.17.1781) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433286.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Teenage Mutant Ninja Turtles: Mutants in Manhattan (2016) [Ru/En] (1.0) Repack D
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431802.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Mafia II: Definitive Edition (2020) [Ru/Multi] (1.0/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429285.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Damnation (2009) [Ru] (1.0) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428459.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Mafia: Definitive Edition (2020) [Ru/Multi] (1.0.3) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427198.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Devil May Cry 3: Dantes Awakening Special Edition /  Devil May Cry 3: Dantes Awa
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_425695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_425695.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ The Surge (2017) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421708.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Midnight Fight Express (2022) [Ru/Multi] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420567.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Sky Break (2016) [Ru/Multi] (1.0) License HI2U
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420464.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Warhammer 40,000: Space Marine (2011) [Ru/En] (1.0.165/dlc) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420356.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ RAD (2019) [Ru/Multi] (1.0/upd1/dlc) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420300.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Transformers: Fall of Cybertron / Трансформеры: Падение Ки�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419085.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Agents of Mayhem (2017) [Ru/En] (1.03) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418708.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Saints Row (2022) [Ru/Multi] (1.1.2.4376604/dlc) License FAIRLIGHT
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418345.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ ECHO (2017) [En/Ge/Fr] (1.0) License RELOADED
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416448.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Transformers: Fall Of Cybertron / Трансформеры: Падение Ки�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416434.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Sniper Elite V2 Remastered (2019) [Ru/Multi] (1.0.2797) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415906.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Sky Break (2016) [Ru/Multi] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415645.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Transformers: Fall Of Cybertron / Трансформеры: Падение Ки�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414063.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Saints Row Дилогия [En/Ru] (Repack) 2009-2011 | R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413397.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Resident Evil 3 (2020) [Ru/Multi] (1.0) License HOODLUM
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413318.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ The Deadly Tower of Monsters (2016) [Ru/Multi] (1.05) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413304.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ HellGate: London (2007) [Ru/Multi] (1.2) License ViTALiTY
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413299.jpg" />
 </div>
 
 

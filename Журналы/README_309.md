@@ -1,3 +1,134 @@
+###  Публикация: 533158   (534226) от 09.08.2012
+
+Журнал | Men's Health [Россия] №9 (сентябрь 2012) [PDF]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Men’s Health — самый узнаваемый мужской журнальный бренд категории lifestyle. Журнал освещает все стороны жизни мужчины — пишет о здоровье, фитнесе, моде, правильном питании, отношениях, путешествиях, технике, карьере. Это единственное издание, созданное чтобы показать мужчинам, как они могут улучшить свою жизнь. Русскоязычный Men’s Health — самый успешный из международных. (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A51182557E189F2D9D6F427ED818132886A3830
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312378   (534198) от 03.07.2019
+
+Журнал | Лечебные вести № 9 Давление в норме (2018) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534198.jpg" />
+</div>
+
+
+###  Подробнее
+
+С какой бы жалобой мы ни обратились к терапевту, нам почти всегда измеряют давление. Этот показатель очень важен. Его отклонения от нормы чреваты серьезными последствиями для здоровья.
+Но мы можем долго даже не догадываться о повышенном или пониженном давлении. Так, гипертония иногда годами ничем себя не проявляет. Поэтому-то ее нередко и называют тихим убийцей. (   Читать дальше...   )Жанр: здоровьеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62A5240418E2CDEA97B1646A8C0CF7EDA67F1A5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312276   (534194) от 03.07.2019
+
+Журнал | Jolidon Collection USA №1 (лето 2019) [PDF] [En]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каталог от Jolidon коллекция купальных костюмов.Жанр: Женский журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9228AEC40CE5F2BC33A412732B4C8211E8A7D50F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 437346   (533993) от 09.08.2012
+
+Подборка журналов| Мой компьютер №1 - №14, №17-22 [2011] [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533993.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Мой компьютер" – журнал на компьютерную тематику для широкого круга читателей. Компьютеры, ноутбуки, периферийные устройства (мониторы, принтеры, сканеры, клавиатуры и мыши), сетевое оборудование, интернет, операционные системы (Windows, Linux, Unix, MacOS) и прикладные программы, компьютерные игры, мобильная связь и т.п..Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3914AD2462DDED19F13BED944065B9B44D24E838
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926602   (533567) от 10.08.2015
+
+Газета | Золотая коллекция рецептов №5 (май 2015) [DJVU]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отличное кулинарное издание, в котором вы как всегда найдете множество интересных и вкусных рецептов.Жанр: КулинарияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:203FF22DA1FCC80CD920C3952D1A649DB1B61977
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 926600   (533564) от 10.08.2015
 
 Журнал | Коллекция Домашняя кухня №8 (98) (2015) [DJVU]
@@ -6,7 +137,7 @@
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533564.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533560.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533558.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533556.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533530.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533509.jpg" />
 </div>
 
 
@@ -162,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533472.jpg" />
 </div>
 
 
@@ -188,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533408.jpg" />
 </div>
 
 
@@ -214,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533347.jpg" />
 </div>
 
 
@@ -240,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533222.jpg" />
 </div>
 
 
@@ -266,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533217.jpg" />
 </div>
 
 
@@ -293,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533216.jpg" />
 </div>
 
 
@@ -320,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533212.jpg" />
 </div>
 
 
@@ -346,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533148.jpg" />
 </div>
 
 
@@ -373,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532996.jpg" />
 </div>
 
 
@@ -400,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532785.jpg" />
 </div>
 
 
@@ -426,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532702.jpg" />
 </div>
 
 
@@ -452,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532699.jpg" />
 </div>
 
 
@@ -478,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532687.jpg" />
 </div>
 
 
@@ -504,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532672.jpg" />
 </div>
 
 
@@ -530,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532671.jpg" />
 </div>
 
 
@@ -541,140 +672,6 @@ Grazia — итальянское женское издание, выпуска�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCE64B56387D0C0A02E907CCDE3B3181998F42C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312496   (532666) от 04.07.2019
-
-Журнал | Denver Colorado USA №2 (лето 2019) [PDF] [En]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532666.jpg" />
-</div>
-
-
-###  Подробнее
-
-Denver Colorado Luxury Magazine - это первый в Колорадо роскошный журнал, в котором отмечаются знаменитости, красивые места и  модные вещи Денвера.Жанр: Женский журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17957A3DBE2F2F130A50E53817545A4B20BBD994
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 698051   (532663) от 07.09.2013
-
-Журнал | Computer Power User (CPU) №10 (октябрь 2013) [PDF] [En]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ежемесячный популярный журнал, посвящённый компьютерной тематике, сопутствующим товарам, продуктам и услугам, цифровой технике, а также программному обеспечению. В каждом номере журнала представлены обзоры новинок компьютерных комплектующих, программного обеспечения и игр.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5300375B914BE0484D8794096333A8F0A8302837
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533536   (532641) от 10.08.2012
-
-Газета | Известия Ефремовского Совета Крестьянских и Рабочих Депутатов № 23 [23 июня 1918] [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немало сделала в популяризации идей коммунизма и всего нового, что несла с собой народная Советская власть, периодическая печать. Выход первой большевистской газеты в Ефремове совпал с началом работы Комбедов. До января 1919 года она называлась "Известия ефремовского Совета крестьянских и рабочих депутатов".
- С 16 января 1919 г. вместо "Известий" стала издаваться новая газета "Коммуна", как совместный орган укома и уисполкома. Редактором ее был известный впоследствии драматург и публицист Анатолий Глебович Глебов (Котельников).
- Его преемником оказался молодой талантливый журналист Николай Иванович Кочкуров (писатель Артем Веселый, автор повести "Страна родная", "Россия, кровью умытая", "Гуляй, Волга" и др.).
- Кочкуров приехал в Тулу летом 1919 г. с отрядом самарских коммунистов, направлявшихся на борьбу с Деникиным. Здесь у него открылась старая рана, полученная на Восточном фронте в 1918 году. До окончательной поправки Н. И. Кочкурова направили в Ефремов. (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF43003DEE2F18A92E49C1556DC76A8E84F3B4D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312547   (532576) от 04.07.2019
-
-Журнал | Tatler UK №4 (апрель 2019) [PDF] [En]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532576.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tatler журнал о светской жизни и моде
-это британский литературный и общественный журнал, созданный Ричардом Стилом в 1709 году.Жанр: Женский журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECDD11BF2B82D4FE2D29179E7BA2FEACCF63DA85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312586   (532574) от 04.07.2019
-
-Журнал | Дачный спец № 6 (2019) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярный журнал для широкого круга читателей.Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FA03E3926B93F7B50B292996A7617C08FFACD3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

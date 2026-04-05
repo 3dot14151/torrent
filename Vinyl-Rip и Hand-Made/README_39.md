@@ -1,3 +1,37 @@
+###  Публикация: 500918   (258384) от 25.05.2012
+
+Eric Clapton - Complete Clapton - Boxset 4 vinyl LP (2007) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258384.jpg" />
+</div>
+
+
+###  Подробнее
+
+C1 - Running on Faith (Unplugged) - [06:15]
+C2 - Motherless Child - [02:58]
+C3 - Change the World - [03:55]
+C4 - My Father's Eyes - [05:22]
+
+D1 - Riding With the King - [04:23]
+D2 - Sweet Home Chicago - [05:16]
+D3 - If I Had Possession Over Judgment Day - [03:26]
+D4 - Ride the River - [04:33]2007 ( October 9)Жанр: RockПродолжительность: 00:36:08
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 500216   (258112) от 24.05.2012
 
 Accept - Kaizoku-Ban (1985) /EP/ [FLAC 2.0 192/24 |VinylRip] <Heavy Metal>
@@ -6,7 +40,7 @@ Accept - Kaizoku-Ban (1985) /EP/ [FLAC 2.0 192/24 |VinylRip] <Heavy Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258112.jpg" />
 </div>
 
 
@@ -37,7 +71,7 @@ Tommy Kinsman And His Orchestra - Holiday For Dancers (1960) [FLAC 1.0|192/24|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257818.jpg" />
 </div>
 
 
@@ -66,7 +100,7 @@ Al Caiola - Spanish Guitars (1962) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Pop,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257817.jpg" />
 </div>
 
 
@@ -95,7 +129,7 @@ Memoriam - Studio Albums (6 releases) (2017-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257750.jpg" />
 </div>
 
 
@@ -124,7 +158,7 @@ Haddah - Studio Albums (3 releases) (2014-2025) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257520.jpg" />
 </div>
 
 
@@ -152,7 +186,7 @@ The Dave Brubeck Quartet - Gone With the Wind (1959) [FLAC|24bit/192kHz & 24bit/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255537.jpg" />
 </div>
 
 
@@ -181,7 +215,7 @@ Various - Let's Break (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electroni
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255518.jpg" />
 </div>
 
 
@@ -210,7 +244,7 @@ Two Of Us - Inside Out (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255435.jpg" />
 </div>
 
 
@@ -239,7 +273,7 @@ Styx - Kilroy Was Here (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255414.jpg" />
 </div>
 
 
@@ -268,7 +302,7 @@ Bangles - Different Light (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255339.jpg" />
 </div>
 
 
@@ -297,7 +331,7 @@ Bucks Fizz - Are You Ready? (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255306.jpg" />
 </div>
 
 
@@ -326,7 +360,7 @@ Bucks Fizz - I Hear Talk (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<BritPop
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255302.jpg" />
 </div>
 
 
@@ -355,7 +389,7 @@ Barclay James Harvest - Turn Of The Tide (1981) [FLAC 2.0|192/24|image + .cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255300.jpg" />
 </div>
 
 
@@ -384,7 +418,7 @@ Brutus (Belgian) - Studio Albums (5 releases) (2015-2022) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255296.jpg" />
 </div>
 
 
@@ -413,7 +447,7 @@ Bucks Fizz - Hand Cut (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255266.jpg" />
 </div>
 
 
@@ -442,7 +476,7 @@ Bucks Fizz - Bucks Fizz (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255201.jpg" />
 </div>
 
 
@@ -471,7 +505,7 @@ Taboo - The Same Word (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255126.jpg" />
 </div>
 
 
@@ -500,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254994.jpg" />
 </div>
 
 
@@ -529,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254888.jpg" />
 </div>
 
 
@@ -558,7 +592,7 @@ Kim Carnes - Barking At Airplanes (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254852.jpg" />
 </div>
 
 
@@ -587,7 +621,7 @@ Underworld - Underneath The Radar (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254819.jpg" />
 </div>
 
 
@@ -616,7 +650,7 @@ Kylie Minogue - Kiss Me Once (2014) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Ele
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254741.jpg" />
 </div>
 
 
@@ -645,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254728.jpg" />
 </div>
 
 
@@ -674,7 +708,7 @@ Red Hot Chili Peppers - The Getaway (2016) [FLAC 2.0|192/24|image + .cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254717.jpg" />
 </div>
 
 
@@ -703,7 +737,7 @@ VA - Good Morning America (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254164.jpg" />
 </div>
 
 
@@ -717,35 +751,6 @@ A4 James Taylor - Handy Man(   Читать дальше...   )Жанр: Rock, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBC6CD7DD9158C2E550B2A81C63FB6B333FA315B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836664   (254151) от 12.11.2025
-
-Rod McKuen - Love's Been Good To Me (1970) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Folk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254151.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Love's Been Good To Me
-A2 I Don't Know Who I Belong To
-A3 Good For Nothin' Bill
-A4 You Pass Me By(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:22:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA481CE8F7D3831F5151D0205B5304DDB9F2F8AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

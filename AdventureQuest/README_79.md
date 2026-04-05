@@ -1,3 +1,81 @@
+###  Публикация: 1729656   (53534) от 12.06.2024
+
+Scholar's Mate (2024) [Ru/Multi] (14623931) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53534.jpg" />
+</div>
+
+
+###  Подробнее
+
+Scholar's Mate бросает вас в огонь. Стратегия и сообразительность? Абсолютно необходимы. Один неверный ход - и вам поставят шах и мат. Здесь каждое решение имеет вес, а конец вырисовывается с каждым ходом. Забудьте о долгих, затяжных играх. Тут вам предстоит пройти через испытания, каждое из которых призвано поставить вас в тупик, если вы не будете начеку. Но погодите, (   Читать дальше...   )Тип издания: RepackРазработчик: JanduSoftЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский, Французский и другиеЯзык интерфейса: Русский, Английский, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:319D4640B4FC5D4ED96EDA0D9675D90466FACCD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729855   (53479) от 13.06.2024
+
+Baisu (2024) [En] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53479.jpg" />
+</div>
+
+
+###  Подробнее
+
+Взяв на себя роль детектива Клэя Кристина, игрок отправляется в уединённую резиденцию семьи Смит, откликнувшись на жуткий призыв о помощи. С первых же шагов становится ясно, что это место хранит в себе мрачные тайны и зловещие секреты. Когда-то этот дом был убежищем для семьи известной художницы Джоли Смит, но теперь безмятежность природы сменилась сгущающейся тьмой, (   Читать дальше...   )Тип издания: RepackРазработчик: Tripleducks studioЖанр: Adventure, First-person, 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DCF6FFD9D79F10351188DE2170F763A30D979A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729844   (53477) от 13.06.2024
+
+Enigma Quest (2024) [En] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Enigma Quest – отправьтесь навстречу таинственному музею, где вам ожидают запутанные головоломки. К тому же, постарайтесь раскрыть утраченные секреты в нашей насыщенной приключенческой головоломке. Если, конечно, справитесь! Откройте двери загадочного мира и посетите обширные залы таинственного музея. Попросту говоря, здесь вам предлагается примерить роль Искателя, (   Читать дальше...   )Тип издания: RepackРазработчик: SGDstudiosЖанр: Приключенческие игрыЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77E98E04BB76E478A19F57BE4ABFE377D62B5F4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729978   (53469) от 13.06.2024
 
 [ECHOSTASIS] (2024) [En] (1.0) Repack FitGirl
@@ -6,7 +84,7 @@
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53469.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Outer Wilds (2019) [Ru/Multi] (1.1.15/dlc) Repack Wagner
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53467.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Fallen Seeds (2024) [Ru/En] (1.0.15) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53371.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Tension / Тургор (2008) [Ru] (1.01) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53236.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Q.U.B.E. 10th Anniversary (2022) [Ru/Multi] (1.4.24) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53080.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Still Wakes the Deep (2024) [Ru/Multi] (1.2) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52959.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Chiyo (2024) [Multi] (1.0.6.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52925.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ HORROR TALES: The Beggar (2024) [Ru/Multi] (14729589) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52870.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ The Night is Grey (2024) [En] (1.3) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52819.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ A Castle Full of Cats (2022) [Ru/Multi] (1.08) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52765.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Homebody (2024) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52608.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Alisa (2021) [Multi] (1.18) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52597.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ A Tower Full of Cats (2024) [Ru/Multi] (1.1.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52589.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Despair: Blood Curse (2024) [Ru/Multi] (1.02) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52555.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Vanity Fair: The Pursuit / Игра славы и богатства (2024) [Ru/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52496.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Kona II (2): Brume (2023) [Ru/Multi] (2023-11-24) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52412.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Nowhere Near (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52401.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ VENARI - Escape Room Adventure (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52325.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Don't Shout Together (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52317.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ REPUNK (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52191.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ HORROR TALES: The Beggar (2024) [Ru/Multi] (14729589) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51950.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Robbo Millennium (2000) [Pl] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51799.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Riven (2024) [Ru/Multi] (build 1294) Scene DOGE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51741.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Riven (2024) [Ru/Multi] (build 1294) Scene DOGE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:835838D0405A752A4AA7A2E2F990D0C80A25E9F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733122   (51728) от 28.06.2024
-
-Fork Road (2024) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fork Road бросает вас с головой в тускло освещенный лабиринт, в ловушку и отчаянные поиски выхода. Забудьте об огромных открытых мирах - эта головоломка от первого лица от Саймона Ау Йенга ограничивает вас одной, пугающей локацией. Концепция освежающе проста: используйте свои глаза, решайте головоломки и будьте готовы к неожиданностям. Каждый уровень бросает новый (   Читать дальше...   )Тип издания: RepackРазработчик: Simon Au YeungЖанр: Приключенческие игры, СимуляторыЯзык субтитров: Русский, Английский, Немецкий, Японский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBE8726FDAB68E9C3B2C7010228B409EC024C9FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733327   (51694) от 28.06.2024
-
-COCOON (2023) [Ru/Multi] (20240222) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51694.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая игра от Йеппе Карлсена, ведущего гейм-дизайнера LIMBO и INSIDE. Это путешествие по мирам внутри других миров. Овладейте механикой прыжков по мирам и разгадайте космическую тайну. Уникальный взгляд на головоломки и приключения. Здесь каждый мир – это сфера, которую можно буквально таскать на спине. Постигайте механику прыжков между мирами: манипулируйте ими, (   Читать дальше...   )Тип издания: SceneРазработчик: Geometric InteractiveЖанр: Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BA3221EAF4FF78D5E92C518383DF585C52336B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733464   (51676) от 29.06.2024
-
-Riven (2024) [Ru/Multi] (build 1294) Repack FitGirl [VR]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сделайте первый шаг в полный загадок и секретов мир Ривена и погрузитесь в историю интриг, предательств и других бед цивилизации, балансирующей на грани катастрофы. Удостоенная множества наград игра 1997 года была воссоздана с нуля и дополнена с помощью Unreal Engine 5. Выпущенная легендарной инди-студией Cyan Worlds в 1997 году игра Riven моментально стала хитом (   Читать дальше...   )Тип издания: RepackРазработчик: Cyan Worlds IncЖанр: Приключенческие игры, Казуальные игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0100D26290ED67F1AB7D97B6944FE2CB099D4A95
 ```
 
 https://mybot314.ru/tekegram_catalog/

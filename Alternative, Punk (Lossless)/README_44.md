@@ -6,7 +6,7 @@ The Rasmus - 1 Single, 1 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347764.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ No Devotion - 2 Albums, 1 EP (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347747.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Weezer - 3 EP (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345834.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Fish - Acoustic Session (1994) [FLAC|Lossless]<Progressive Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344511.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Yurcash (Юркеш) - 2 альбома (2006-2007) Дискография [APE|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343577.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ Twenty One Pilots - Trench (2018) [FLAC|Lossless|tracks + .cue] <Hip Hop, Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342912.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Bad Suns - Disappear Here (2016) [FLAC|Lossless|tracks] <Alternative Rock, Indie
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342671.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Less Than Jake - Pezcore (1995) 2008, Reissue [FLAC|Lossless|tracks + .cue] <Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341442.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Elbow - Giants of All Sizes (2019) [FLAC|Lossless|tracks] <Britpop, Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341393.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Big Thief - Two Hands (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339107.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Thousand Thoughts - Better than Never (2022) [FLAC|Lossless|WEB-DL|tracks] <Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338879.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Nicolas Cage Fighter - The Bones That Grew from Pain (2022) [FLAC|Lossless|WEB-D
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338418.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Ghost Town - Evolution (2015) [FLAC|tracks|WEB-DL]<Post-Hardcore, Electronic, Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337498.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Breed Machine - Asura (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Metalc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336609.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Billy Talent - Crisis of Faith (2022) [FLAC|Lossless|image + .cue] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336487.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Missio - VILLAIN (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Electronic>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336486.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Butthole Surfers - Independent Worm Saloon / Electriclarryland (1993/1996)  [FLA
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336478.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Kid Kapichi - Here's What You Could Have Won (2022) [FLAC|Lossless|WEB-DL|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336417.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Darko US - Oni (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336305.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Bad Suns - Language & Perspective (2014) [FLAC|Lossless|tracks] <Alternative Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335933.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ R.E.M. - Out Of Time (25th Anniversary Edition) (2016) [FLAC|Lossless|WEB-DL|tra
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335663.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Puscifer - Existential Reckoning (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335617.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Nothing - The Great Dismal (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332551.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Nickelback - No Fixed Address (2014) [FLAC|Lossless|WEB-DL]<Rock, Alternative Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330997.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Icon For Hire - 5 Albums (2011-2021) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, F
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330811.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Hedley - Storms (2011) Deluxe Edition [FLAC|tracks+.cue]<Alt Rock, Pop Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330383.jpg" />
 </div>
 
 

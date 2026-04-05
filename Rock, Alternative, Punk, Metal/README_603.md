@@ -1,3 +1,31 @@
+###  Публикация: 939750   (469149) от 24.09.2015
+
+Peter Hammill - Nadir's Big Chance (1975) Remastered, Reissue /2006, Virgin, Charisma/ [FLAC|image + .cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469149.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третье рождение Van Der Graaf Generator предвосхитившее нашествие панка.
+Во вступлении к диску Хэммилл дает объяснение, кто такой Рикки Надир, характеризуя его как альтер эго, оборотную сторону личности музыканта.
+"Я сидел в комнате ожидания, когда я понемногу стал осознавать, что я не один - или, по крайней мере, не единственен. Это длилось всего один миг, (   Читать дальше...   )Жанр: RockПродолжительность: 00:47:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6AA14E75B003EF81A4DF3D0467D2A46C63EE36A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940448   (469145) от 24.09.2015
 
 Exilia - Purity (2015) [MP3|320 кб/с]<Nu Metal, Female Vocal>
@@ -6,7 +34,7 @@ Exilia - Purity (2015) [MP3|320 кб/с]<Nu Metal, Female Vocal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469145.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469071.jpg" />
 </div>
 
 
@@ -64,7 +92,7 @@ Gloryhammer - Space 1992: Rise of the Chaos Wizards (2015) 2CD [MP3|320 кб/с]
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468962.jpg" />
 </div>
 
 
@@ -93,7 +121,7 @@ Keane - The Best Of Keane (2013) 2CD, Deluxe Edition [FLAC|Lossless|tracks + .cu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468904.jpg" />
 </div>
 
 
@@ -122,7 +150,7 @@ New Years Day - Malevolence (2015) [FLAC|Lossless|tracks] <Alternative Rock, Fem
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468846.jpg" />
 </div>
 
 
@@ -151,7 +179,7 @@ Abated Mass of Flesh - Коллекция: 2-CD (2020) [MP3|320 Kbps] <Brutal De
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468735.jpg" />
 </div>
 
 
@@ -180,7 +208,7 @@ INXS, Michael Hutchence - Discography (1980..2005) [MP3|320 kbps]<Pop-Rock & Sof
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468634.jpg" />
 </div>
 
 
@@ -209,7 +237,7 @@ Bet On Black - Коллекция:1-CD, 1-ЕР (2020) [MP3|320 Kbps] <Post-Hardc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468612.jpg" />
 </div>
 
 
@@ -238,7 +266,7 @@ ESP Project - The Rising (2019) [FLAC|Lossless|image + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468608.jpg" />
 </div>
 
 
@@ -267,7 +295,7 @@ ESP Project - Phenomena (2020) [FLAC|Lossless|image + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468606.jpg" />
 </div>
 
 
@@ -296,7 +324,7 @@ Antimatter - 6 альбомов + компиляция (2001 - 2015) Discography
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468518.jpg" />
 </div>
 
 
@@ -326,7 +354,7 @@ VA - 100 Greatest Guitar Solos (2007) [FLAC|Lossless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468317.jpg" />
 </div>
 
 
@@ -352,7 +380,7 @@ Violet Janine - Queen Of Rock (2020) [MP3|320 Kbps] <Melodic Hard Rock, Female V
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468278.jpg" />
 </div>
 
 
@@ -381,7 +409,7 @@ Abhorer - Zygotical Sabbatory Anabapt (1996) [APE|Lossless|image + .cue] <Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468135.jpg" />
 </div>
 
 
@@ -410,7 +438,7 @@ Abscess - Bourbon, Blood And Butchery (2013) [FLAC|Lossless|image + .cue] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468134.jpg" />
 </div>
 
 
@@ -439,7 +467,7 @@ Abscess - Dawn Of Inhumanity (2010) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468133.jpg" />
 </div>
 
 
@@ -468,7 +496,7 @@ Martyr - Feeding The Abscess (2006) [FLAC|Lossless|image + .cue] <Technical Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468132.jpg" />
 </div>
 
 
@@ -494,7 +522,7 @@ Reternity - Cosmic Dreams (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468129.jpg" />
 </div>
 
 
@@ -523,7 +551,7 @@ Nightmare - Live Hard, Die Hard (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468128.jpg" />
 </div>
 
 
@@ -552,7 +580,7 @@ Stensland - Dark Valley Blues (2022) [FLAC 2.0|48/24|tracks|WEB-DL] <Classic Roc
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468127.jpg" />
 </div>
 
 
@@ -581,7 +609,7 @@ White Lion - The Best Of White Lion (1992) [FLAC|Lossless|image + .cue] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468126.jpg" />
 </div>
 
 
@@ -610,7 +638,7 @@ JJ72 - JJ72 (2000) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467902.jpg" />
 </div>
 
 
@@ -639,7 +667,7 @@ Sin Isomer - Burst Into Isomer (2017) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467645.jpg" />
 </div>
 
 
@@ -668,7 +696,7 @@ Vampire - Vampire & Cimmerian Shade EP (2014) [FLAC|Lossless|image + .cue] <Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467642.jpg" />
 </div>
 
 
@@ -697,7 +725,7 @@ Sacrosanct - Recesses for the Depraved (1991) [APE|Lossless|image + .cue] <Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467640.jpg" />
 </div>
 
 
@@ -711,35 +739,6 @@ Sacrosanct - Recesses for the Depraved (1991) [APE|Lossless|image + .cue] <Progr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB5717C06F09629DE23DE54340949A800459FA80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161037   (467636) от 28.08.2017
-
-Svartsyn - In Death (2017) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	Seven Headed Snake 	07:25
-02. 	Dark Prophet 		07:53
-03. 	With Death 		06:14
-04. 	Inside the White Mask 	06:48(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:46:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12D8E59C903DAE9C7E6BEE282877A38E79650950
 ```
 
 https://mybot314.ru/tekegram_catalog/

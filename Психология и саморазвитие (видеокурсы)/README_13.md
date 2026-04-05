@@ -6,7 +6,7 @@
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44259.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44139.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44123.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39802.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Psy2.0 | Начинающий практик - путь к уверенному 
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35790.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35295.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Freshlife28, Антон Петряков | Практикум осознанно
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32432.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27761.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27747.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27740.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27662.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27655.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27645.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27632.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27603.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23901.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Proprofiling, Алексей Филатов | Практикум по профа
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23873.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23337.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23326.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23309.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23141.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Mental Room, Сергей Бубович | Стрессовая коммуник
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16881.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Mental Room, Сергей Бубович | Face Hunter. Чтение эмоци�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16878.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Stepik, Сергей Бубович | Искусство чтения челов
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16876.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Stepik, Сергей Бубович | Менталист: искусство у�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16873.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16773.jpg" />
 </div>
 
 

@@ -1,137 +1,3 @@
-###  Публикация: 1012553   (778137) от 02.05.2016
-
-Asus | Сервис-мануалы к технике Asus (1989-2015) [PDF] [En]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлено большое количество сервис-мануалов на технику корпорации Asus, произведенную в 1989 - 2015 годах, по направлениям: ноутбуки - 53 модели, материнские платы - 11 моделей, нетбуки - 2 модели.Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFA3151807D531ED9A9CF01C4B912530BD446FD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210748   (778095) от 05.03.2018
-
-Ю.А. Бычков и др. (ред.) | Справочник по основам теоретической электротехники (2012) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Содержание справочника соответствует программе курсов «Теоретические основы электротехники» и «Теория электрических цепей».
-Пособие содержит тематический указатель, алфавитный каталог-словарь основных понятий, законов и терминов теоретической электротехники, а также каталог типовых расчетов и ответов на основные контрольные вопросы при изучении теории электрических (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2AB399EAF2D4CF9DF482AAFCB97203A9A169F0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210761   (778088) от 05.03.2018
-
-И.Г. Карапетян (ред.) | Основное оборудование электрических сетей: справочник (2014) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приводятся параметры воздушных и кабельных линий электропередачи, генераторов, трансформаторов, выключателей, источников реактивной мощности и другого электрооборудования, необходимые для проектирования и эксплуатации электрических сетей.
-В справочнике учтены все современные тенденции развития основного оборудования электрических сетей. В частности, справочник включает (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5E1A68D8949A77BF55B5EC4E88D0CF1FB018311
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210735   (778087) от 05.03.2018
-
-В.И. Голованов (ред.) | Справочник слесаря-монтажника технологического оборудования (2010) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изложены основы строительно-монтажного производства, система обеспечения безопасности при выполнении монтажных работ. Даны основы и практические рекомендации по эффективной деятельности монтажных предприятий и организаций в современных рыночных отношениях. Главное внимание обращено на вопросы технологической подготовки производства, методы осуществления основных (   Читать дальше...   )Жанр: МашиностроениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DA1CF755E88293E926F57FD0DBB369081DCD775
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013341   (777952) от 03.05.2016
-
-Федор Синицын | Разделяй и властвуй. Нацистская оккупационная политика (2015) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великая Отечественная война 1941—1945 гг. является одной из самых трагических страниц истории нашей страны. Особую важность в этот период имел национальный фактор — ввиду того что политика гитлеровской Германии базировалась на национальной (расовой) основе.
-
-В книге на основе архивных документов проводится сравнение национальной политики СССР и политики гитлеровской (   Читать дальше...   )Жанр: Военная историяФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:635456FADDE07551A2709D38E0ECC23F73BDD1BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1013150   (777934) от 03.05.2016
 
 А. Р. Лурия | Язык и сознание (1979) [DJVU]
@@ -140,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777934.jpg" />
 </div>
 
 
@@ -168,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777923.jpg" />
 </div>
 
 
@@ -197,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777906.jpg" />
 </div>
 
 
@@ -223,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777841.jpg" />
 </div>
 
 
@@ -251,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777648.jpg" />
 </div>
 
 
@@ -278,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777608.jpg" />
 </div>
 
 
@@ -304,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777598.jpg" />
 </div>
 
 
@@ -330,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777578.jpg" />
 </div>
 
 
@@ -357,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777520.jpg" />
 </div>
 
 
@@ -383,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777515.jpg" />
 </div>
 
 
@@ -409,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777514.jpg" />
 </div>
 
 
@@ -435,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777487.jpg" />
 </div>
 
 
@@ -461,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777471.jpg" />
 </div>
 
 
@@ -487,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777437.jpg" />
 </div>
 
 
@@ -513,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777342.jpg" />
 </div>
 
 
@@ -539,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777336.jpg" />
 </div>
 
 
@@ -565,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777254.jpg" />
 </div>
 
 
@@ -591,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777224.jpg" />
 </div>
 
 
@@ -619,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777145.jpg" />
 </div>
 
 
@@ -645,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776944.jpg" />
 </div>
 
 
@@ -671,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776941.jpg" />
 </div>
 
 
@@ -683,6 +549,140 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADCE31731763341C7C44F23E06C17D9544117AD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014065   (776939) от 06.05.2016
+
+Владимир Бойко | Черноморский Подплав, 1907–1935 (2016) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первая книга об истории становления Черноморского Подплава впервые наиболее полно рассказывает о Подводных Силах Черноморского флота за период с 1907 по 1935 года.
+
+Эта книга своего рода обращение к памяти прошлого, на страницах которой вы увидите людей необычной и очень рискованной профессии – подводников, узнаете историю создания Подводного Флота, получите интересную (   Читать дальше...   )Жанр: История, Военная документалистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6DDE5183E82A7A56E12577286E059E54799367A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013579   (776922) от 06.05.2016
+
+Я. Буриан, Б. Моухова | Загадочные этруски (1970) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этрурия — древнее государство в центре Италии, достигшее расцвета еще до возникновения Рима. Впоследствии римляне, желая доказать, что они произошли от богов, постарались изгладить следы этрусков из памяти человечества. Двести лет назад перед изумленным миром предстали великолепные произведения искусства древнего мира, о котором до сих пор почти ничего не известно. (   Читать дальше...   )Жанр: ИсторияПеревод: П. Н. АнтоновФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED289DA4FFAC97CF4611EDE6EAB7827D4E0A68B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013395   (776919) от 06.05.2016
+
+Р. Д. Лэйнг | Феноменология переживания. Райская птичка. О важном (2005) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776919.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книгу знаменитого психиатра-экзистенциалиста, философа феноменологической школы и поэта включены две этапные работы, в которых подвергаются пересмотру традиционные ценности современной культуры.Жанр: ФилософияПеревод: Е. Н. Махнычева, С. В. ПоповФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18F4D482BED770A025E0CF932ADBF72C2DE97E5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211764   (776908) от 09.03.2018
+
+Э. Миловидова | Женский вопрос и женское движение. Хрестоматия (1929) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776908.jpg" />
+</div>
+
+
+###  Подробнее
+
+При составлении хрестоматии мы преследовали цель — дать товарищам, интересующимся вопросами теории и практики женского движения, возможность проследить эти вопросы по основным этапам развития. Хрестоматия заключает в себе основные разделы по обзору социального и экономического положения женщины во всех важнейших общественных формациях, буржуазные, мелкобуржуазные (   Читать дальше...   )Жанр: История, политология, экономика, правоведение, социология, хрестоматияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2775BE5CF321290404B536756EC530838EA005DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211740   (776905) от 09.03.2018
+
+М. М. Литвинов | Против агрессии (1938) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776905.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящей книге собраны основные выступления т. Литвинова и документы, характеризующие борьбу Советского Союза против агрессии. Выступления наркома иностранных дел т. Литвинова и договоры, заключаемые Советским Союзом в целях предотвращения военной опасности, представляют собой важнейшие элементы внешней политики Советского Союза.
+
+Документы, содержащиеся в настоящей (   Читать дальше...   )Жанр: История, политология, экономика, дипломатия, документалистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E981D479D80EE6B638612CF48E2E0A2252C8562B
 ```
 
 https://mybot314.ru/tekegram_catalog/

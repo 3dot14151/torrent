@@ -6,7 +6,7 @@ Kevin & JD - Blues Train (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115302.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Relaxing Instrumental Jazz Ensemble - Beautiful Jazz Instrumental Collection (20
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115300.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Restaurant Music, Calming Jazz Relax Academy - Jazz for Dinner and Wine (2024) [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115298.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Benny Andersson - Piano (2017) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115160.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Ace Frehley - 10,000 Volts (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115151.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Above & Beyond - Group Therapy 500 Live from Los Angeles (2024) (Live) [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115012.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Doro - Conqueress - Extended (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114994.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Bokassa - Crimson Rider (2019) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Stoner Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114988.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Lesbian Bed Death - Midnight Lust (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Go
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114826.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Firehouse - Firehouse (1990) Remaster, 2024, Epic; Sony Music Entertainment [FLA
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114824.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Blind Channel - Exit Emotions (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Nu Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114803.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Asher Monroe - Songs of the Century (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114799.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Liv Kristine - Deus ex Machina (1998) Remastered, 2024, Metalville [FLAC 24/44.1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114793.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Jacob Collier - Djesse Vol. 4 (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop, J
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114792.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Suldusk - Anthesis (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Atmospheric Dark,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114649.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Liam Gallagher & John Squire - Liam Gallagher & John Squire (2024) [FLAC 24/44.1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114640.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Lars Leonhard - Reflections (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ambient,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114633.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Elevenwire - Blood Red Sun (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114621.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Big Big Train - The Likes of Us (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Prog
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114619.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Yard Act - Where’s My Utopia? (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114618.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Firewind - Stand United (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114617.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ REO Speedwagon - Hi Infidelity (1980) Remaster, 2024, Epic - Legacy [FLAC 24/192
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114612.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Madis - 4 Альбома, 1 Сингл (2022-2023) [FLAC 24/48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114375.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Dixie Jazz Proyecto Divertido, Jazz Instrumental Music Academy - Dixie Swingtime
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114329.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Smokin Dame - Revelations From A Gun (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114322.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Caravan Palace - Gangbusters Melody Club (2024) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114320.jpg" />
 </div>
 
 

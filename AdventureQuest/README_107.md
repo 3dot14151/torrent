@@ -1,3 +1,81 @@
+###  Публикация: 1799875   (16217) от 30.05.2025
+
+Near-Mage (2025) [Ru/Multi] (1.0.0b/dlc) Repack FitGirl [Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Волшебная вселенная в Near-Mage показывает приключения молодой девушки Илли Враджа, которую пригласили пожить в Трансильвании на лето. Девчонка встретится со своей двоюродной бабушкой Доминикой, что желает рассказать ей о тайном роде ведьм. Героиня получит возможность поступить в Трансильванский институт магии, где будет осваивать искусство колдовства. Девчонка поступит (   Читать дальше...   )Тип издания: RepackРазработчик: Stuck In AtticЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, НемецкийЯзык интерфейса: Русский, Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64DB7CC17AC729274068EBC5D3AB741F8C81C821
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798812   (16187) от 31.05.2025
+
+Star Mission: Remote Sectors (2025) [Ru/Multi] (1.0.3) Repack Let'sРlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскройте тайны забытого мира на краю Млечного Пути. В Star Mission: Remote Sectors вы играете за космического исследователя, направленного на изучение гравитационной аномалии на далёкой инопланетной планете. То, что начинается как научная миссия, быстро превращается в путешествие полное открытий, загадок и странных явлений.Тип издания: RepackРазработчик: Ralph SchaedlerЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2790C165421E78EC1CAA5FD1B94612273B995BF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766643   (16152) от 31.05.2025
+
+Go Home Annie (2024) [Ru/Multi] (1.0.36) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знакомьтесь, Энни - сотрудница Фонда SCP с низким уровнем допуска. Задача этой тайной организации - обезопасить и удерживать аномалии, а также защищать от них простых людей. Но зачем организация, девиз которой - «Обезопасить. Удержать. Сохранить», создала особый отдел по репликации опасных паранормальных событий и аномальных сущностей? И почему вам поручено раз за (   Читать дальше...   )Тип издания: LicenseРазработчик: Misfit VillageЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2241AC0D820084119D0B6813589B9E5CEEB52421
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799975   (16126) от 31.05.2025
 
 DreadOut Remastered Collection (2025) [Ru/Multi] (2.2.18f/1.0.8) Repack FitGirl
@@ -6,7 +84,7 @@ DreadOut Remastered Collection (2025) [Ru/Multi] (2.2.18f/1.0.8) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16126.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Kathy Rain 2: Soothsayer (2025) [Multi] (1.0.3.4089) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16018.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Broken Sword - Shadow of the Templars Reforged (2024) [Ru/Multi] (1.1.8) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16015.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ True Fear: Forsaken Souls (2025) [Ru/Multi] (1.1.3:13) Repack Let'sРlay [Part 3
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16013.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Brassheart (2025) [Ru/Multi] (1.0.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15988.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Pieces of me / Кусочки меня (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15895.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ The Danger Zone (2025) [Ru/En] (1.0.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15884.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Pieces of me / Кусочки меня (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15882.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Pieces of me / Кусочки меня (2025) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15875.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Star Mission: Remote Sectors (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15786.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Last Vanguard (2025) [Multi] (1.0.3) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15612.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Kaodi (2025) [Multi] (1.0.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15588.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Moroi (2025) [Ru/Multi] (1.10) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15513.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Unexplored 2: The Wayfarer's Legacy (2022) [En] (1.7.35) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15420.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Moroi (2025) [Ru/Multi] (1.14) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15415.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Dustborn (2024) [Ru/Multi] (1.14/dlc) Repack LetsPlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15308.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Arctico (2022) [En] (2.6w) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15302.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Between Horizons / Between Horizons – A Sci-Fi Detective Adventure (2024) [Mul
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15293.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Take Me, Vitaly / Догони меня, Виталик (2024) [Ru/Multi] (Build
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15277.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Out of Sight (2025) [Ru/Multi] (1.0.36) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15256.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ We Are Not Alone (2024) [En] (1.9.5.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15223.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Tormented Souls (2021) [Ru/Multi] (0.94.0) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15198.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15176.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01EB6593669FDDE07EEE28726D4C1ACB3F494DC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790816   (15113) от 10.06.2025
-
-The Talos Principle: Reawakened (2025) [Ru/Multi] (1.01b 731056) Scene Rune
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вернитесь в невероятно красивый мир интригующих загадок и философских размышлений в The Talos Principle: Reawakened. Издание Definitive Edition предлагает вам снова поучаствовать в захватывающей истории The Talos Principle, отправившись в путешествие по дополненному и переработанному миру симуляции.Тип издания: SceneРазработчик: CroteamЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:367E27DE8E514D9437859A9E3E2E96AC96C15DA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692565   (15108) от 10.06.2025
-
-The Sinking City (2019) [Ru/Multi] (58246/dlc) License GOG [Remastered Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15108.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Sinking City – игра-расследование. События происходят в 1920-е гг в небольшом городке Окмонт, оказавшемся под властью сверхъестественных сил. Нужно выяснить причину сумасшествия жителей. Ваш персонаж, частный детектив, берется распутать это дело. Игра предоставляет Вам действовать в открытом мире, исследуя его пешком, на лодке или облачившись в водолазный костюм. (   Читать дальше...   )Тип издания: LicenseРазработчик: FrogwaresЖанр: Экшны, Приключение, ДeтективЯзык озвучки: Русский, Английский, Немецкий, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C16A8632E7C279EBCD7AC1E749A30CFDBFE89C5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702378   (15021) от 11.06.2025
-
-SIGNALIS (2022) [Ru/Multi] (1.2.2) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Космический ужастик SIGNALIS выполнен в стилистике аниме. Инди-проект является представителем жанра survival horror старой школы. Играем за девушку по имени Эльстер. Она просыпается в барокамере на корабле, где случилось что-то ужасное. Главная героиня является Репликой – неким аналогом андроида. Она периодически видит чужие видения и ловит странные радиосигналы.Тип издания: RepackРазработчик: rose-engineЖанр: Adventure (Horror), PuzzleЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C2B51579083FF798C8C8277DB67631C1A2EA213
 ```
 
 https://mybot314.ru/tekegram_catalog/

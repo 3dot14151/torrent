@@ -1,3 +1,107 @@
+###  Публикация: 1563144   (506211) от 12.07.2022
+
+AppSales: Скидки и распродажи приложений 12.0 Mod by KirIif' [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506211.jpg" />
+</div>
+
+
+###  Подробнее
+
+AppSales: Скидки и распродажи приложений - ещё одно отличное приложение предназначенное помогать пользователям совершать самые выгодные и удачные покупки программ с различных площадок. AppSales важен регион пребывания человека, ведь она так же отслеживает снижения цен и прочие предложения для определённых территорий. Так что лучше не полениться и заполнить всю необходимую (   Читать дальше...   )Тип издания: Premium (Mod)Релиз состоялся: 02.05.2022Разработчик: ts-appsЯзык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9FB8E5F2E567C3DB5B403929ED288757A82A63A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563505   (504462) от 14.07.2022
+
+Opera GX: Браузер для геймеров 1.5.9 Mod by The_Sem100Dan4ik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Opera GX - это специальная геймерская версия браузера Opera. В ней реализованы уникальные функции, такие как ограничение использования ресурсов ЦП, оперативной памяти и сетевого трафика, помогающие играть и просматривать веб-страницы с максимальным удобством. Уникальный дизайн Opera GX вдохновлен играми и игровым железом. Браузер выполнен в том же стиле, что и браузер (   Читать дальше...   )Тип издания: Lite-ModРелиз состоялся: 21.05.2022Разработчик: OperaЯзык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9BC8CF0BFE28B1CA1543BAEBCB9A80E02E3D82B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563600   (504364) от 14.07.2022
+
+CastItAll Premium 3.2.8 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504364.jpg" />
+</div>
+
+
+###  Подробнее
+
+CastItAll Premium - развлекательного свойства приложение, что предлагает пользователям функцию трансляции видеофайлов на различные «умные» устройства, Проект так же поддерживает и качественную потоковую передачу, являясь при этом лишь связующим звеном, для более простого и быстрого подключения и создания сети в случае необходимости. Apple TV, Xbox One, Samsung Smart (   Читать дальше...   )Тип издания: Paid (Куплено в Google Play)Релиз состоялся: 24.01.2022Разработчик: Kaan TasЯзык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:630C81B22315888A608811E22C8608B07507DF70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933969   (504001) от 03.09.2015
+
+GO SMS Pro v6.32 [Ru]
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504001.jpg" />
+</div>
+
+
+###  Подробнее
+
+GO SMS Pro — выбор почти 100 миллионов пользователей, лучший вариант для замены стандартного SMS приложения. Принципиально новое приложения для обмена сообщениями — простое, интуитивно понятное, с широкими возможностями персонализации и разными приколами! В GO SMS Pro есть красивые темы, милые наклейки, личный ящик для сообщений, всплывающие окошки, GO chat (для (   Читать дальше...   )Тип издания: ЛицензияРелиз состоялся: 1 сентября 2015 гРазработчик: GO Dev TeamПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F981071F45C7C54CA2C3E92AB58E759FADC9FA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1563780   (503512) от 15.07.2022
 
 CamCard - Business Card Reader 7.52.7.20220714 [Ru/Multi]
@@ -6,7 +110,7 @@ CamCard - Business Card Reader 7.52.7.20220714 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503512.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Phone Master - Защита приложений 5.3.2.00001 Mod by artemscine [
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503431.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Battery Guru: Battery Health 1.9.29.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503423.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Call Master v5.4.0.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503086.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ uTorrent Pro 3.8 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503044.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Genius Scan Plus - PDF сканер 7.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502479.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Simple Gallery v6.23.13 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502211.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ The Weather Channel 10.54.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501456.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ GnaCAD 2.11.55 Mod by IWIITI [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500505.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Image Converter / Конвертер изображений 9.0.25 Mod by Rahul 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500501.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ GIF Maker and Editor v1.6.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498374.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ ZArchiver Pro 0.8.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498299.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497357.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492143.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ Spy Video Recorder Camera / Шпионская видео камера v3.0.0 Pr
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491782.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486555.jpg" />
 </div>
 
 
@@ -433,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486286.jpg" />
 </div>
 
 
@@ -461,7 +565,7 @@ ViperFX For Android (V4A) - Большой сборник
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486021.jpg" />
 </div>
 
 
@@ -487,7 +591,7 @@ Smart YouTube TV v6.17.720 Stable [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484699.jpg" />
 </div>
 
 
@@ -513,7 +617,7 @@ Mi Control Center v3.7.9 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482597.jpg" />
 </div>
 
 
@@ -539,7 +643,7 @@ Bookmark Folder 5.1.6 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480368.jpg" />
 </div>
 
 
@@ -568,7 +672,7 @@ Head Model Studio 1.1.11 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480276.jpg" />
 </div>
 
 
@@ -579,110 +683,6 @@ Head Model Studio 1.1.11 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BABCD7BA0BC29F026313ABBC1283265714570C13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385465   (479968) от 30.07.2022
-
-Electronic Component Pinouts v16.80 PCBWAY [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это приложение обеспечивает автономную базу данных с более чем 70000 распиновкой электронных компонентов. Чипы, транзисторы, диоды, триаки, микропроцессоры и многое другое. Распаковка компонентов выполняется быстро и не требует доступа в Интернет для поиска. Более 23000 различных контактов с большим количеством эквивалентов.Тип издания: Пиратка (AdFree - без рекламы)Релиз состоялся: 22.07.2022Разработчик: Adriano MoutinhoПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D425E4D839036B93FCD81A2B0A0A4DF658BD359F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227749   (479954) от 30.07.2022
-
-Ventusky: Прогноз погоды v20.1 Mod by Сіtrus, qwerty [Ru/Multi]
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение сочетает в себе классический прогноз погоды для определенного местоположения с картой, которая демонстрирует изменение погоды на более обширной территории. Это позволяет увидеть, откуда идут осадки или дует ветер. Уникальность приложения заключается в большом количестве отображаемых данных. Просматривая погоду, вы сразу узнаете прогноз осадков, скорости (   Читать дальше...   )Тип издания: Пиратка (разблокирован Premium)Релиз состоялся: 29.07.2022Разработчик: InMeteoПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DDAB936E8E82F3D62BA13BA989B0755DD8E8478
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244628   (479568) от 02.09.2018
-
-VPN Max by Aeronliru v100.1 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479568.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение VPN Max by Aeronliru это мод приложения Samsung Max для Android - бесплатное мобильное приложение с функциями "Экономия трафика" и "Защита конфиденциальности" для управления передаваемыми данными, экономии интернет-трафика и защиты Wi-Fi подключений. Приложение Samsung Max пришло на смену Opera Max. Samsung Max позволяет экономить трафик, (   Читать дальше...   )Тип издания: Пиратка (Mod без рекламы и т.п.)Релиз состоялся: 31.08.2018Разработчик: SamsungПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF55CB20746FE06B154532F3864D4350048B7A84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567000   (478339) от 31.07.2022
-
-ZArchiver Pro 1.0.4 Mod by 5Mod Team [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478339.jpg" />
-</div>
-
-
-###  Подробнее
-
-ZArchiver Pro - файловый менеджер, что обладает впечатляющими дополнительными возможностями по работе с архивными файлами. Проект не только помогает оперативно взаимодействовать со всем, что есть на устройстве, но и без каких-либо преград выполнять задуманное с заархивированными элементами. Как популярными и всем известными, так и весьма редкими, применяемыми в специализированных (   Читать дальше...   )Тип издания: ProРелиз состоялся: 08.05.2022Разработчик: ZDevsПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A26941BD73FADF699773E66669B4CD7D555F94B
 ```
 
 https://mybot314.ru/tekegram_catalog/

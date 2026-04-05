@@ -1,29 +1,3 @@
-###  Публикация: 1061110   (450098) от 09.10.2016
-
-Теория заговора. Еда для омоложения (2016.10.09) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450098.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом выпуске в роли «подопытного кролика» выступит ведущий Михаил Мамаев. В самом начале фильма он покажет свою фотографию в возрасте 15 лет, а рядом прикрепит фотографию, сделанную при помощи специальной компьютерной программы. Она показывает, как Михаил может выглядеть в 70 лет.Производство: РоссияТелекомпания: Первый каналЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31409A23D0CA498812781B484705E31AD0B63A12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943314   (449694) от 03.10.2015
 
 Центральное телевидение (03.10.2015) SATRip
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449694.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449693.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447473.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447462.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447461.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447348.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447219.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446212.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446143.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445334.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445331.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445207.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445196.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443471.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443110.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443106.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443100.jpg" />
 </div>
 
 
@@ -477,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442952.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441689.jpg" />
 </div>
 
 
@@ -529,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440876.jpg" />
 </div>
 
 
@@ -555,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440744.jpg" />
 </div>
 
 
@@ -581,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440675.jpg" />
 </div>
 
 
@@ -607,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440443.jpg" />
 </div>
 
 
@@ -633,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439508.jpg" />
 </div>
 
 
@@ -659,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439489.jpg" />
 </div>
 
 
@@ -670,6 +644,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B21D3C0E39B267711707C37CBD9935E3E0DC9B1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 852071   (439311) от 21.09.2018
+
+Шифры нашего тела. Сердце (2013) HDTVRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439311.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тело постоянно посылает нам свои таинственные знаки, коды и сигналы. Сердце пытается говорить с нами на своем языке. Кожа демонстрирует наше психологическое состояние. Слезы текут постоянно, даже если мы не плачем. И это далеко не все. Чем больше мы познаем, тем больше загадок и шифров. Мы лишь в самом начале пути к их отгадке.
+Ученые считают главным в теле человека (   Читать дальше...   )Жанр: Документальный, познавательный, медицинаСубтитры: отсутствуютПродолжительность: 00:44:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C80F74E10EC2C1EFFD130A14754F22ABFA3B31A
 ```
 
 https://mybot314.ru/tekegram_catalog/

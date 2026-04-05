@@ -6,7 +6,7 @@
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975178.jpg" />
 </div>
 
 
@@ -38,7 +38,7 @@ VA - Вечное движение с лучшими хитами радио Ш�
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970869.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ VA - Шансон в натуре. Второй (2015) [MP3|320 кб/с] <Шан
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966763.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ VA - Одной тобою я живу любовь моя (2013) [MP3|256 кб/
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966681.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ VA - Русский Шансон выпуск 5 (2013) [MP3|256 кб/с]<Шан�
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966667.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ VA - Милая Моя Родная. Музыка Для Души (2016) [MP3|32
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965541.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Уголовочка от радио Шансон. Часть 7 (2015) [MP3
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963506.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ VA - Блатная музыка на любимой волне (2016) [MP3|256 
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956171.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ VA - Душевный Шансон Зимняя Метелица (2016) [MP3|256
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954664.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954141.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ VA - Зимние блатные песни на Шансоне (2016) [MP3|256 
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953999.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ VA - Масть крестовая. Зима на радио Шансон. Сб�
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953901.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ VA - Новогодний ресторан Шансона Выпуск № 7 (20
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953870.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ VA - Убойные хиты от радио Шансон. Выпуск № 7 (2
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953777.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ VA - Душевная музыка на радио Шансон. Сборник 
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953770.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ VA - Опасные Связи 8: Сборник Шансона (2016) [MP3|256-
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953695.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ VA - Душа кричит Академия хитов шансона (2016) [MP
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952893.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ VA - Золотые застольные хиты. Сборник № 8 (2016) [
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951820.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ VA - Блатной шансон на любимой волне. Часть № 
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950703.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ VA - Гуляночка от радио Шансон Выпуск № 10 (2016) 
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950697.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ VA - Лучшие блатные хиты года (2017) [MP3|256 Kbps] <Шан
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949074.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948208.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ VA - Зимний шансон года. Часть № 4 (2016) [MP3|256 Kbps] 
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947652.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ VA - Музыка о любви (2017) [MP3|192-320 Kbps] <Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947342.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ VA - Зимние блатные песни от радио Шансон Час�
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946082.jpg" />
 </div>
 
 
@@ -743,7 +743,7 @@ VA - Эх, Разгуляй! Новогодний выпуск радио Шан
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946047.jpg" />
 </div>
 
 

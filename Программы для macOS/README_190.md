@@ -1,3 +1,55 @@
+###  Публикация: 1708675   (62232) от 21.03.2024
+
+JetBrains RubyMine for Mac 2023.3.5 Intel/ARM [En]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62232.jpg" />
+</div>
+
+
+###  Подробнее
+
+RubyMine — умная и удобная интегрированная среда разработки для языка Ruby и веб-фреймворка Rails, которая включает в себя все необходимые разработчику инструменты и поддерживает наиболее востребованные технологии из мира Ruby. Как и все IDE, разработанные на основе платформы IntelliJ, RubyMine обладает уникальным механизмом анализа кода, который лежит в основе таких (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.03.2024Разработчик: © 2018 Jeffrey JohnsonПоддерживаемая ОС: macOS 10.15 (Intel)+, macOS 12.0 (ARM)Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A75874A73C27F831715EA717F4B8EA87C75F6DF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708636   (62219) от 21.03.2024
+
+JetBrains GoLand for Mac 2023.3.5 Intel  [En]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62219.jpg" />
+</div>
+
+
+###  Подробнее
+
+GoLand - это IDE от JetBrains, нацеленная на создание эргономичной среды для разработки Go. IDE расширяет платформу IntelliJ с помощью кодирования и интеграции инструментов, специфичных для языка Go. IDE анализирует ваш код, ищет соединения между символами, обеспечивает завершение кода, быструю навигацию, умный анализ ошибок, форматирование и рефакторинг.Тип издания: macOS SoftwareРелиз состоялся: 12.03.2024Разработчик: © 2000-2024 JetBrains s.r.o.Поддерживаемая ОС: macOS 10.15Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08648195A5F814A9550BB4A58545673BF9B02952
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708958   (62148) от 22.03.2024
 
 Wondershare Repairit 5.5.5 [En]
@@ -6,7 +58,7 @@ Wondershare Repairit 5.5.5 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62148.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ Moho Pro for Mac 14 v14.1 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62146.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ All to MP3 Audio Converter 5.2.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62126.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ Steinberg Cubase Pro for Mac 13 v.13.0.30 U2B [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62113.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ Luminar Neo 1.18.3 U2B  [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62059.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62022.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ Fork 2.41.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62013.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62010.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ XMind Pro 2024 24.01.14362 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61767.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ Affinity Photo 2 v.2.4.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61753.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ Wondershare PDFelement Pro 10.3.1 (OCR) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61749.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ Termius for Mac 8.10.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61743.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ Affinity Designer 2 v.2.4.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61729.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ AI Transcription 2.5 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61713.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ Rectangle Pro 3.0.21 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61712.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ Swinsian 3.0 Preview 15 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61711.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ Money Pro - Personal Finance 2.10.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61710.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ ActiveDock 2 for Mac v.2.601 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61709.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ Magic Disk Cleaner 2.7.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61707.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ Screen Studio for Mac ARM/iNTEL 2.22.3 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61701.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ Affinity Publisher 2 v.2.4.1  [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61700.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ CloudMounter 4.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61692.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ PullTube 1.8.5.30 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61691.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ CorelDRAW Graphics Suite 2024 v.25.0.0.230  [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61682.jpg" />
 </div>
 
 
@@ -625,58 +677,6 @@ CorelDRAW Graphics Suite 2021 — новейшее и самое передов�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF78A64E8B81C9B3D55FAACBEE68511ACB12A57A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710465   (61666) от 27.03.2024
-
-Ableton Live Suite 12 v.12.0.1 U2B [Multi]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61666.jpg" />
-</div>
-
-
-###  Подробнее
-
-Live - это быстрое и гибкое программное обеспечение для создания и исполнения музыки. Он включает в себя эффекты, инструменты, звуки и всевозможные творческие функции - все, что вам нужно для создания любой музыки. Создавайте в традиционном линейном расположении или импровизируйте без ограничений временной шкалы в режиме просмотра сеансов Live. Свободно перемещайтесь (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.03.2024Разработчик: © 2024 AbletonПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:517469C241C529C076BAC45E916384284C2D97EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710464   (61663) от 27.03.2024
-
-VueScan Pro for Mac 9.8.31 U2B ARM/iNTEL [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61663.jpg" />
-</div>
-
-
-###  Подробнее
-
-VueScan является приложением для работы со сканерами Minolta, HP, Nikon, Epson, Polaroid, Canon и мн.др. Поддерживается работа с глубиной цвета, а также автоматическая и ручная настройки большого количества параметров и пакетного режима сканирования. VueScan поддерживает больше 2800 моделей сканеров. Приложением предусмотрено автоустранение дефектов с изображения (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.03.2024Разработчик: © 2024 Hamrick SoftwareПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:770477BB8D6508C67CBCF084F88FE7521B37D781
 ```
 
 https://mybot314.ru/tekegram_catalog/

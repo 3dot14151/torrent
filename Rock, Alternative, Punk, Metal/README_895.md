@@ -1,3 +1,32 @@
+###  Публикация: 1580174   (233061) от 30.09.2022
+
+Hammerstar - Hammerstar (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart Of Stone
+02. Power Of Metal
+03. Midnight Ride
+04. Burned Alive(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AF29442C888F68ACEB52AB4907F34C16FE8927C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1635859   (233057) от 27.05.2023
 
 Floodlights - Painting of My Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -6,7 +35,7 @@ Floodlights - Painting of My Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233057.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ I Barbari - Supernove Che Fanno Bang! (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233056.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Hammerstar - Hammerstar (2022) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233054.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Mammoth Weed Wizard Bastard - The Harvest (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233049.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ De Staat - red, yellow, blue (2023) 3CD [FLAC|Lossless|WEB-DL|tracks] <Dutch Alt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233045.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Defiled Embrace - Whispers of the Forest (2022) [FLAC|Lossless|WEB-DL|tracks] <M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233044.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233036.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Akilla - The Gods Have Spoken (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233030.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Non Est Deus - Impious (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233028.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ For Absent Friends - Disappear (2022) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233025.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Dreadnought - The Endless (2022) [FLAC|Lossless|WEB-DL|tracks] <post-metal, doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233019.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233009.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Formosa - Bittersweet (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233000.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Terrifier - Trample the Weak, Devour the Dead (2023) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232995.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Liliac - Madness (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232990.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Trespass - Wolf At The Door (2023) [MP3|320 Kbps] <NWOBHM, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232978.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232977.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Kevin Morby - More Photographs (A Continuum) (2023) [FLAC 24/96|Lossless|WEB-DL|
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232962.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ Def Leppard - Diamond Star Halos (2022) [FLAC 2.0|48/24|tracks|WEB-DL] <Hard Roc
 >>Hard Rock (Hi Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232960.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ The Raven Age - Blood Omen (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic-Groove-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232957.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ Gorilla Pulp - Mask Off! (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232955.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ Stray Gods - Olympus (2023) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232947.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ Rellik - Killer (2002) Compilation [FLAC|Lossless|image + .cue] <Power, Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232938.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ Tension Rising - The Last Judgement (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232927.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ Repression - Prevalence of Pain (1992) [FLAC|Lossless|image + .cue] <Heavy, Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232906.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ Repression - Prevalence of Pain (1992) [FLAC|Lossless|image + .cue] <Heavy, Powe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68D54AECFBB8E2BDC6C4221658A9C7DBA80451B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605766   (232894) от 19.01.2023
-
-Andadarius - Urbi Et Orbi (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232894.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Urbi Et Orbi
-2. Fire Dance
-3. Akeronte
-4. Double Edge(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C2A18AD87EEAF2280BD2A5D53C095CBD5C80EF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

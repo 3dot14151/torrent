@@ -1,3 +1,61 @@
+###  Публикация: 1088729   (955159) от 01.01.2017
+
+VA - New Year's Lounge Countdown: Refined Lounge Music to Celebrate (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giacomo Bondi – Por do sol – Full Mix
+ 02. Aurys – Suave Moon – Full Mix
+ 03. Luigi Seviroli – Silky – Full Mix
+ 04. Giacomo Bondi – Crazy Town – Full Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:06:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:248C9798028A988196449E3381EB2C8A727AC51C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088839   (955152) от 01.01.2017
+
+VA - The Best Running Beats 2017 (2016) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Suzie Kju - Baby! (Classic edit)
+02. Million Colours - I Hold On (radio edit)
+03. Cheap Sunglasses - Till The End (Endless mix)
+04. Ibiza Groove Squad - I Don't (DJ Absinth Fitness remix)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F354D3FB8702D739658BA9C5AF0DAE67EC9617F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088735   (955100) от 01.01.2017
 
 VA - Deepalma 2017 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, House, Nu Disco>
@@ -6,7 +64,7 @@ VA - Deepalma 2017 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, House, Nu D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955100.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Spiral Lights - Compiled by DJane Gaby (2016) [FLAC|Lossless|tracks + .cue]
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955064.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Suanda Winter Vol. 3 (2016) [MP3|320 кб/с] <Trance, Chillout>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954839.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Urban Chill Out Grooves Vol 1 (2016) [MP3|320 кб/с] <Lounge, Chill Out, 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954638.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Winter Chill 2017  [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954024.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Silent Shore Records - The Best Of (2016) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954016.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Syndicated Soul, Vol. 1 (2017) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954005.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Sirocco Ibiza A Touch Of Class (2017) [MP3|320 Kbps] <Downtempo, Chillout, 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953908.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Best 10 Trance Of The Year (2016) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953904.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Best 10 Bigroom Dance Of The Year (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953885.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Playa Del Carmen 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Min
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953877.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Bedrock 18 - Signals (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953774.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Intimate Chill Feelings (2016) [MP3|320 Kbps] <Downtempo, Lounge, Chill Out
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953757.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Pete Shelley - 3 Albums (1981-1986) CD, Reissue [MP3|320 Kbps] <Electronic,  New
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953702.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Northern Lite - Letters & Signs (Part Two) (2010) [FLAC|Lossless|image + .cue] <
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953020.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Nachtmahr - Flamme (2020) [MP3|320 Kbps] <EBM, Neofolk>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952301.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Christophe Goze - A Day In Ibiza 2 (2012) [FLAC (tracks+cue)|Lossless]<Lounge, C
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952181.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Depeche Mode - Mode (2020) 18 СD, Box Set, Compilation, Limited Edition, Number
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951994.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Dark Sessions Radio 014 (Mixed by Oberon) (2016) [FLAC|Lossless|WEB-DL|trac
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951619.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - I Like to Move It (2016) [MP3|320 кб/с] <Dance, Club, Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951462.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Serenity Sexy Lounge & Chill out Pearls Vol 2 (2016) [MP3|320 кб/с] <Dow
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951405.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Retro Promenade: Carpenter (2015) [MP3|320 кб/с] <80's Retrowave, Synthp
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951234.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Biosphere - Substrata (1997) [FLAC|Lossless|tracks+.cue]<Ambient, Abstract>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951209.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ VA - Touch Me with House (Sensual House Music Dance) (2020) [MP3|320 Kbps] <Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950996.jpg" />
 </div>
 
 
@@ -684,64 +742,6 @@ VA - Touch Me with House (Sensual House Music Dance) (2020) [MP3|320 Kbps] <Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E13DA02862A2D6D5D9D638079BF6AB7B9CAC4F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089536   (950862) от 04.01.2017
-
-VA - Hot Wave Chillout (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miraflores - Riverbendґs Song 6:11
-02. Zero Feedback - Rien Ne Va Plus (Don Gorda Project Remix) 7:00
-03. Maremare - That Beach Is Mine 6:09
-04. Boring Sax - Subway Underground 6:19(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:31:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF9D04A034A5DD1DE1E74FD6BF48BBCFB27D8267
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089540   (950791) от 04.01.2017
-
-VA - Magics - Reflex Recordings Masterpieces (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meckie Mex - Telling Nice but Spice (05:02)
-02. Hondale - Motor Brain (03:50)
-03. A M G - 100 (Klav Version) (07:35)
-04. Reflex Artists - Physalis (Reflex Mix) (04:42)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:00:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E09F358B4E34725102C9C1E668926FB13AD8027C
 ```
 
 https://mybot314.ru/tekegram_catalog/

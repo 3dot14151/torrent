@@ -1,3 +1,148 @@
+###  Публикация: 1133903   (691477) от 14.05.2017
+
+The Winter Tree (Magus) - Mr. Sun (2017) [MP3|320 Kbps] <Neo Progressive Rock, Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Sun 04:50
+02. Distant Star 05:37
+03. Bobby 06:38
+04. Shine 04:22(   Читать дальше...   )Жанр: Neo Progressive Rock, Art RockПродолжительность: 00:50:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:882E9DA9055D9256F97338F805FBE9565A114E69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134015   (691421) от 14.05.2017
+
+Большое спасибо - Один (2017) [MP3|320 Kbps] <Jazz-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Один
+02. Осень как осень
+03. Вист
+04. Война окончена(   Читать дальше...   )Жанр: Jazz-RockПродолжительность: 00:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C202D8EA4A57D5072C2EAD73AABD95683F275BD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134119   (691415) от 14.05.2017
+
+Mostly Autumn - Sight Of Day (2017) [FLAC|Lossless|tracks + .cue] <Prog Rock, Folk, World, & Country>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идея создания "Mostly autumn" витала в воздухе еще с начала 90-х годов, когда Брайан Джош отдыхал в горах в местечке Уосдэйл и, любовавшись зимней природой, написал песню "The night sky". Тогда же Джош написал еще ряд композиций, но все они получили путевку в жизнь, когда в 1998-м он собрал свою команду. В состав "Mostly autumn" помимо (   Читать дальше...   )01. Sight Of Day (14:33)
+02. Once Round The Sun (5:08)
+03. The Man Without A Name (3:50)
+04. Hammerdown (6:06)(   Читать дальше...   )Жанр: Prog Rock, Folk, World, & CountryПродолжительность: 01:13:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC3DF523ADEF446DEE138BDDA36C48E36AA29C38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221783   (691378) от 26.04.2018
+
+Ancient Lasers - No Photos on God Mode (2018) [MP3|320 Kbps] <Alternative Pop, Electronic Pop Rock, Electropop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luxury Info
+02. Monsters and Demons
+03. Lowlife
+04. Circular Fangs(   Читать дальше...   )Жанр: Alternative Pop, Electronic Pop Rock, ElectropopПродолжительность: 00:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA8547147145BCAC64078E9025D028EBB5EE6622
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221864   (691374) от 26.04.2018
+
+Crystal Ball - Crystallizer (2018) [MP3|320 Kbps] <Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crystallizer
+02. Curtain Call
+03. Alive for Evermore
+04. S.O.S.(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:51:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09F542FCC41B4DAD5BDA8A855C56B4A2C23769F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133726   (691303) от 14.05.2017
 
 Warrant - Louder Harder Faster (2017) [FLAC|Lossless|tracks]<Hard Rock, Glam Metal>
@@ -6,7 +151,7 @@ Warrant - Louder Harder Faster (2017) [FLAC|Lossless|tracks]<Hard Rock, Glam Met
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691303.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Foreigner - With the 21st Century Symphony Orchestra & Chorus (2018) Live [MP3|3
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691264.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ God Is an Astronaut - Epitaph (2018) [MP3|320 Kbps] <Post-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691263.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Godsmack - When Legends Rise (2018) [MP3|320 Kbps] <Alternative Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691132.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Warrant - 9 Studio Albums, 2 Live Albums, 1 CDS, 3 Compilations (1989-2017) [MP3
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690898.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Erik Norlander - Surreal (2016) [MP3|320 кб/с] <Symphonic Prog Rock, Electron
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690862.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ The Zombies - Still Got That Hunger (2015) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690801.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Beyond All Recognition - Beyond All Recognition (2016) [MP3|320 кб/с] <Metalc
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690799.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Nightrage - Abyss Rising (2022) [FLAC|Lossless|image + .cue] <Melodic Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690735.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Serious Black - Vengeance Is Mine (2022) [FLAC|Lossless|image + .cue] <Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690723.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690718.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ Immolation - Acts Of God (2022) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690716.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Slash feat. Myles Kennedy and The Conspirators - 4 (2022) [FLAC|Lossless|image +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690713.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ Ihsahn - Telemark (2020) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690695.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ Whitechapel - Mark of the Blade (2016) Deluxe Edition [MP3|320 кб/с] <Hardcor
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690662.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ Four Star Combo - Wait A Minute, Baby! (2014) [MP3|320 кб/с]<Rockabilly>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690636.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ Lacrimosa - Leidenschaft (2021) [FLAC|Lossless|image + .cue] <Gothic Metal, Dark
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690630.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ Bright Eyes - Down in the Weeds, Where the World Once Was (2020) [FLAC|Lossless|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690606.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ Enuff Z'Nuff - Brainwashed Generation (2020) [FLAC|Lossless|image + .cue] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690605.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ Sabaton - The War to End All Wars (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690527.jpg" />
 </div>
 
 
@@ -586,7 +731,7 @@ Allister - Best Of... 20 Years & Counting (2019) Japan Edition [FLAC|Lossless|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690512.jpg" />
 </div>
 
 
@@ -600,151 +745,6 @@ Allister - Best Of... 20 Years & Counting (2019) Japan Edition [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A13B746FB587C3A3239BE35FD1FC1322B54FDB73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403592   (690491) от 20.08.2020
-
-Napalm Death - Throes Of Joy In The Jaws Of Defeatism (2020) [MP3|320 Kbps] <Death Metal, Grindcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690491.jpg" />
-</div>
-
-
-###  Подробнее
-
-(01) Fuck The Factoid [00:02:27]
-(02) Backlash Just Because [00:02:56]
-(03) That Curse Of Being In Thrall [00:03:36]
-(04) Contagion [00:04:05](   Читать дальше...   )Жанр: Death Metal, GrindcoreПродолжительность: 00:42:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30033F4197C0CB2ABF1F819AB5C100B1DCC47752
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289023   (690389) от 14.03.2019
-
-Kasey Chambers & The Fireside Disciples - Campfire (2018) [FLAC|Lossless|tracks + .cue] <Rock, Country Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690389.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 	The Campfire Song (feat. Alan Pigram) 	3:33
-2 	Go On Your Way 	2:02
-3 	Orphan Heart 	3:13
-4 	Goliath Is Dead 	2:29(   Читать дальше...   )Жанр: Rock, Country RockПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BD2F50B90654B317110B0C473ACB6B24B6E3E66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289188   (690384) от 14.03.2019
-
-Headpins - 3 Albums (1982-1985) [MP3|320 Kbps] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690384.jpg" />
-</div>
-
-
-###  Подробнее
-
-Канадская хард-рок группа, образованная Brian MacLeod и Ab Bryant в 1980 году, как сайд-проект из Chilliwack.Список альбомов:
-1982 - Turn It Loud
-1983 - Line Of Fire
-1985 - Head Over Heels(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 02:03:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:918E1F376AF734CC865D4FB3EC3265492BF8CCF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288690   (690380) от 14.03.2019
-
-Chris De Burgh - This Way Up (1994) Unofficial Release [FLAC|Lossless|image + .cue] <Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Silent World
-02. This Is Love
-03. This Weight On Me
-04. Here Is Your Paradise(   Читать дальше...   )Жанр: Soft RockПродолжительность: 00:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C392958A5622164001F2A629AAC8060D525CAF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403523   (690331) от 20.08.2020
-
-Whitney - Light Upon the Lake (2016) Japanese Edition [FLAC|Lossless|tracks + .cue] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	No Woman	[04:00]
-02.	The Falls	[02:22]
-03.	Golden Days	[04:07]
-04.	Dave's Song	[03:04](   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:39:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A3FA737DFAC837102492ED3ED959AB273CA9A21
 ```
 
 https://mybot314.ru/tekegram_catalog/

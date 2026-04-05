@@ -6,7 +6,7 @@
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797142.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796372.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795471.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Plazma - Indian Summer (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Synth-pop, Eur
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789024.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787813.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Demo - Запрещенные песни (2006) [FLAC|Lossless|image + .cue]<Pop
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787634.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787611.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787088.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787082.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786713.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786592.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786588.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785325.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784902.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784560.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783745.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780552.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779963.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779715.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779612.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778157.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778156.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777728.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777205.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777153.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776331.jpg" />
 </div>
 
 

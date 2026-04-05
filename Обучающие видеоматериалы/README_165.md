@@ -1,3 +1,29 @@
+###  Публикация: 1329781   (349623) от 06.10.2019
+
+Воган Лин | Blender 2.8 Продвинутый: Грузовой космический корабль / Blender 2.8 Advanced: Cargo Spaceship (2019) PCRec [H.264/1080p-LQ] [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349623.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе мы рассмотрим весь процесс создания грузового космического корабля с нуля, включая моделирование, выветривание, наклейки, освещение, рендеринг и немного простой анимации, чтобы оживить его.Производство: GumroadЖанр: 3D моделированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 09:21:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FCF504F928DF30BF931ADE9C9F3D29F53F91BFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329671   (349619) от 06.10.2019
 
 Udemy, Darrin Lile | Blender 2.8 Создание игрового персонажа / Blender 2.8 Game Character Creation (2019) PCRec [H.264/1080p-LQ] [EN]
@@ -6,7 +32,7 @@ Udemy, Darrin Lile | Blender 2.8 Создание игрового персон�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349619.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349538.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349522.jpg" />
 </div>
 
 
@@ -90,7 +116,7 @@ Andy Speer | The Anarchy Workout (2015) DVDRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349371.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ Profileschool | Введение в предметную съемку (2014) PCR
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348751.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ BJ Gaddour | The 21 Day MetaShred (2017) DVDRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348617.jpg" />
 </div>
 
 
@@ -169,7 +195,7 @@ Cody Storey | Kettlebells DBK (2017) WEBRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348615.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ FilmeditingPRO | Искусство монтажа трейлеров / The Art 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348386.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348346.jpg" />
 </div>
 
 
@@ -250,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348297.jpg" />
 </div>
 
 
@@ -276,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347703.jpg" />
 </div>
 
 
@@ -302,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347425.jpg" />
 </div>
 
 
@@ -328,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347301.jpg" />
 </div>
 
 
@@ -354,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347300.jpg" />
 </div>
 
 
@@ -381,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347293.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ Udemy | Посадка верстки и создание тем на CMS WordPr
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347292.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ Udemy, Grim Future Studio | Unreal Engine 5. Базовый курс №1 - с �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347215.jpg" />
 </div>
 
 
@@ -461,7 +487,7 @@ Lynda.com | Photoshop CC 2019 Essential Training Photography (2018) PCRec [H.264
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347189.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ Lynda.com | Photoshop CC 2019 Essential Training: The Basics (2018) PCRec [H.264
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347048.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346666.jpg" />
 </div>
 
 
@@ -539,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346568.jpg" />
 </div>
 
 
@@ -567,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346549.jpg" />
 </div>
 
 
@@ -593,7 +619,7 @@ BJ Gaddour | 10 Minute Torchers Workout (2013) DVDRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346464.jpg" />
 </div>
 
 
@@ -620,7 +646,7 @@ David Jack | Spartacus Workouts (2016) DVDRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346453.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346443.jpg" />
 </div>
 
 
@@ -657,33 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95250B57752024FB183E7247FA0AB5DEB5FCF40B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418630   (346434) от 25.10.2020
-
-Udemy | Создание Sci-Fi ассета для игр в Blender 2.81 / Blender Sci fi Game Asset Creation with Emiel Sleegers (2020) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс по созданию ассета для игры AAA качества от художника из Ubisoft.
-Этот курс не для полных новичков, которые никогда раньше не использовали Blender, Substance painter, Marmoset toolbag. Вместо этого это дружественный курс для начинающих, что означает, что если вы знаете, как передвигаться в этих программах, возможно, уже использовали их раньше, но вы все еще (   Читать дальше...   )Производство: UdemyЖанр: 3D моделированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 13:23:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3BEAC15C5EACFD3FF59F16BA399F61E7947C6FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

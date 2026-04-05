@@ -6,7 +6,7 @@ Leather Strip - 4 Albums (2024) [MP3|320 Kbps] <EBM, Techno, Electro-Industrial>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35205.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Extize - DeLorean 666 (2025) [MP3|320 Kbps] <Darkwave, EBM, Electro-Industrial>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17666.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Club Crimson Room - Dark Desire (2025) [MP3|320 Kbps] <Electro, EBM, Industrial>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14410.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Kontrast - Imperium Tyrannis (2025) [MP3|320 Kbps] <Darkwave, EBM, Electro-Indus
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14402.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Das Ich - Staub (1994) Vinyl Edition, Remastered, 2024, Danse Macabre Records[MP
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12120.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Zebra Type 1 - Teleport (2025) [MP3|320 Kbps] <Darkwave, EBM>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11923.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Evo-Lution - Progress (2025) [MP3|320 Kbps] <EBM, Synthpop, Industrial>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11915.jpg" />
 </div>
 
 

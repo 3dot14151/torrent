@@ -1,22 +1,25 @@
-###  Публикация: 1387257   (791250) от 02.06.2020
+###  Публикация: 1274972   (791718) от 09.01.2019
 
-Растровый клипарт - Afrogfx - 20 Birds Cut-out High Res Pictures [PNG]
+Buck Clayton - Three Classic Albums Plus (1954 - 1958) 2CD, 2011, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791718.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные изображения попугаев на прозрачном фоне в высоком разрешении-растр.Формат: PNGРазрешение файлов: 2598 x 2598 - 7414 x 4399
+CD1 John Coltrane - Giant Steps:
+01. Giant Steps [4:47]
+02. Cousin Mary [5:50]
+03. Countdown [2:26](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 02:37:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DDF38BEE0AA3DAAB41F0A36F0AC5311E63037811
+magnet:?xt=urn:btih:734C27C38301929027A7E78DEB225BB977665947
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510431   (791249) от 16.11.2021
+###  Публикация: 1274843   (791717) от 09.01.2019
 
-Сбой в матрице / A Glitch in the Matrix (2021) WEBRip
+Hyelish - Enferma Humanidad (2014) [FLAC|Lossless|image + .cue] <Death Metal, Black Metal>
 
->>Зарубежные TV-бренды
->>Тайны и Загадки
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791717.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Лучшие умы человечества ожесточенно спорили о том, кто мы и зачем мы здесь. Что это за «здесь»? Что, если все, что нас окружает — не более чем иллюзия, Матрица, а мы — лишь код? Кто придумал это игру и как в нее играть? Фильм, наполненный свидетельскими показаниями, философскими предположениями и научными объяснениями, поможет по-новому на всё посмотреть.Производство: США, «Capella Film»Жанр: ДокументальныйРежиссер: Родни АшерПеревод: Многоголосый профессиональный (HDRezka Studio)Субтитры: Русские (вшитые, на надписи)Продолжительность: 01:48:32
+01. Enferma Humanidad
+02. Sabor a Muerte
+03. Pastores Oscuros
+04. Maldito Seas Jesús(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:44:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0DDED1CF01E0B7BAAA1AF46D3484A9D0BAA4636E
+magnet:?xt=urn:btih:F264C73847FFBC5E5F41A9ADE3742BECAAE51246
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387370   (791248) от 02.06.2020
+###  Публикация: 1275040   (791716) от 09.01.2019
 
-Bliss - Icon Pack 1.3.4 [En]
+Mortal Decay - A Gathering of Human Artifacts (1999) Compilation [FLAC|Lossless|tracks + .cue] <Death Metal>
 
->>Программы, Игры и прочее
->>ПО для Android
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791716.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Bliss - Icon Pack - Отличное приложение, которое содержит в себе множество иконок, и не только! Вы сможете подобрать то, что подходит именно вам, на свой вкус. Так же можно выбрать готовый набор стандартных иконок, и изменить его по своему усмотрению. Или же создать что то свое. Данное приложение содержит в себе более чем 1250 иконок, в отличном качестве. А так же (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 31.05.2018Разработчик: BladeXDesignsПоддерживаемая ОС: Android 4.0+Язык интерфейса: Английский
+01. Ars Moriendi  (4:06)
+ 02. Dawn of Misery  (3:58)
+ 03. Requiem  (2:02)
+ 04. Post-Mortem Feast  (3:55)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 01:12:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C4C1CF188FB62CF11C7ABCD273DD338CF319D723
+magnet:?xt=urn:btih:2DF06B12499FFF542FEB4BA91102EC6FC05F25E0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172248   (791247) от 16.11.2021
+###  Публикация: 1274842   (791715) от 09.01.2019
 
-Гуфи и его команда / Goof Troop (1992) WEB-Rip [H.264/1080p] (Сезон 1-2, серий 78 из 78)
+1917 - Vox Fatum (2007) [FLAC|Lossless|image + .cue] <Death Metal>
 
->>Мультфильмы
->>Зарубежные Мультсериалы
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791715.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Гуфи — антропоморфная собака, попадающая в различные истории. Однажды Гуфи решает отвезти своего сына Макса в родной несуществующий город Спунервиль, где у него остались школьные друзья — Пит и его жена Пэг. Однако Питу не понравился переезд Гуфи, так как он всё ещё помнил бейсбольный матч, который их команда проиграла по вине Гуфи, поэтому он решает побыстрее отправить (   Читать дальше...   )Производство: СШАЖанр: Рисованная анимация, Приключения, КомедияРежиссер: Роберт Тэйлор, Карен ПетерсонПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: ~ серия по 00:22:00Реклама: нет
+01. Legado Sombrío
+02. Contemplaciones
+03. Trofeos de Honor
+04. La Iniquidad Penitente (Pt. 1)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:44:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:987F983DBB80E430730799704708DA37082E3E9C
+magnet:?xt=urn:btih:18922D0D171D89F03B77C2CD26CE5727AAE4C930
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,25 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510500   (791246) от 16.11.2021
+###  Публикация: 1275036   (791714) от 09.01.2019
 
-CCleaner 5.87.9306 Free / Professional / Business / Technician Edition RePack (& Portable) by Dodakaedr [Multi/Ru]
+VA - In At The Deep End Records Catalogue Sampler (2009) Compilation [FLAC|Lossless|tracks + .cue] <Hardcore, Heavy Metal>
 
->>Архив торрентов
->>Архив Программ
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791714.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CCleaner - утилита для чистки мусора в операционной системе. В ходе своей работы CCleaner (Crap Cleaner) ищет и удаляет временные и неиспользуемые файлы. Сюда относятся: cookies, история посещения сайтов в IE, временные файлы Интернета, строки поиска, файлы Корзины и т.д. Также поддерживается поиск временных файлов сторонних приложений: Firefox, Opera, Media Player, (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+01. Tortuga - Hell's Red Roads (03:25)
+02. Sylosis - Visions of Demise (04:26)
+03. Romeo Must Die - Who Died and Made You God (03:19)
+04. The Casino Brawl - Into the Light (04:37)(   Читать дальше...   )Жанр: Hardcore, Heavy MetalПродолжительность: 01:17:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:792F32772F1770B47C03C4814B76C9ECA743642E
+magnet:?xt=urn:btih:040E0DD600B280F173BC7577014BBF2734343D45
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -128,25 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510215   (791245) от 16.11.2021
+###  Публикация: 1275042   (791713) от 09.01.2019
 
-Дом на другой стороне / The Night House (2020) BDRip [H.265/1080p] [10-bit]
+Morgue - Artgore (2001) [FLAC|Lossless|tracks + .cue] <Death Metal>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791713.jpg" />
 </div>
 
 
 ###  Подробнее
 
-После внезапной смерти мужа скорбящая вдова разбирает его вещи в загородном доме на берегу озера. Сначала её мучают настольно реалистичные пугающие сновидения, что женщина уже готова поверить в призраков, а потом она находит странные чертежи их дома. Вскоре выяснится, что у любимого супруга были от неё секреты.Производство: Великобритания, США / Anton, Phantom Four Films, TSG EntertainmentЖанр: Ужасы, детективРежиссер: Дэвид БрукнерАктеры: Ребекка Холл, Сара Голдберг, Вонди Куртис-Холл, Эван Йоникит, Стэйси Мартин, Дэвид Эбельс, Кристина Джексон, Патрик Клейн, Кристал Сванн, Катрин УайднерПеревод: Дублированный (Невафильм, Кинопоиск HD)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:47:01
+01. Peeled Back Organs (3:57)
+ 02. Embalmed in Perservatives (3:10)
+ 03. Slime (3:36)
+ 04. Removal of Limbs (2:29)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:41:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5DC3D674AFFFAD40BB0346A488ADA5A67B41DB33
+magnet:?xt=urn:btih:03E3795DB07F6455F0BDB37FD9CAA16EF9D25205
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -154,25 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456663   (791244) от 16.11.2021
+###  Публикация: 1274838   (791712) от 09.01.2019
 
-Пустота / The Void (2016) BDRip [H.264/1080p] [MVO]
+Azrael - Moonchild (2018) Japan [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791712.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Во время ночного патрулирования офицер полиции Дениел Картер находит раненого мужчину и доставляет его в больницу. Чтобы допросить пострадавшего, нужно ждать, когда тот придёт в себя, поэтому полицейский остается в больнице на ночь. А ночью начинает твориться сущее непотребство — медсестра срезает себе кожу с лица и убивает одного из больных, а здание больницы окружают (   Читать дальше...   )Производство: Канада, США, Великобритания / Cave Painting Pictures, JoBro Productions & Film FinanceЖанр: Ужасы, фантастика, триллер, детективРежиссер: Джереми Гиллеспи, Стивен КостанскиАктеры: Аарон Пул, Кэтлин Манро, Кеннет Уэлш, Дэниэл Фазерс, Эллен Вонг, Мик Бисков, Арт Хиндл, Стефани Белдинг, Джеймс Миллингтон, Ивэн Штерн, Грэйс Манро, Мэттью Кеннеди, Триш РейнонПеревод: Профессиональный многоголосый, авторскийСубтитры: Русские (Full), английскиеПродолжительность: 01:30:37
+01. Birth of the Universe
+02. Moonchild
+03. Surveillance Society
+04. Fly till the End of Time(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:58:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:600980DDD88C2B67E905E4BC567A534C91BF6B6C
+magnet:?xt=urn:btih:F290E1FDE75FA2EF56741D5BEDB7DDBFFA62A583
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -180,25 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510327   (791243) от 16.11.2021
+###  Публикация: 1274839   (791711) от 09.01.2019
 
-Кисти - Gumroad - Neue Iris Kit by Taozipie for Procreate/Photoshop/Medibang [ABR, PNG, BRUSH, BRUSHSET]
+Divine Ascension - The Uncovering (2018) Japan [FLAC|Lossless|image + .cue] <Progressive Metal, Melodic Power Metal>
 
->>Материалы для мультимедиа и дизайна
->>Дополнения
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791711.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мой набор "Neue" iris kit, в который входят 32 полноцветных ирисовых изображения в формате PNG, 16 уникальных кистей для радужной оболочки и 10 изображений в формате 3D Shine PNG.Формат: ABR, PNG, BRUSH, BRUSHSET
+01. Evermore
+02. Prisoner
+03. The Fallen
+04. Pursuit of Desire(   Читать дальше...   )Жанр: Progressive Metal, Melodic Power MetalПродолжительность: 00:59:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0C4C22B54D1B82716C070BDFF3414006F153AFB4
+magnet:?xt=urn:btih:7D7ABB344D09B1F58C6CD1C7826D95D5C1006A3F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -206,25 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510373   (791242) от 16.11.2021
+###  Публикация: 1274991   (791710) от 09.01.2019
 
-USB Low-Level Format 5.01 RePack by AlexYar Portable [Ru]
+VA - FM Radio Gods, Vol.4 (2019) [MP3|320 Kbps] <House, Dance, Big Room>
 
->>След.
->>Диагностика и обслуживание hardware
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791710.jpg" />
 </div>
 
 
 ###  Подробнее
 
-USB Low-Level Format (Низкоуровневое форматирование) - это процесс форматирования диска, который восстанавливает его заводские настройки по умолчанию. USB-накопители удобно использовать для передачи данных, однако различные варианты использования приводят к множеству проблем. Например, USB флэш-накопитель по неизвестным причинам может содержать меньше емкости, чем (   Читать дальше...   )Язык интерфейса: Русский
+01. Sam Collins feat. Paula Douglas - Let Me Know (Radio Edit)
+02. Jay Frog & Amfree - Is This Love (Radio Edit)
+03. DJ Junior & Roger Slato - On The Beach (Radio Edit)
+04. Viktor Newman & BeatFlashers - Tropical Love (Radio Edit)(   Читать дальше...   )Жанр: House, Dance, Big RoomПродолжительность: 01:42:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3EBBCD4866CF67F34C40E7584291769D54967FA8
+magnet:?xt=urn:btih:7DDB29454C6D1D7A7B2AF9ADD77D4301885A68DC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -232,25 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510411   (791241) от 16.11.2021
+###  Публикация: 1274946   (791709) от 09.01.2019
 
-Искушение / Blessed Virgin / Benedetta (2021) WEB-DLRip [MVO]
+VA - G-House Drops Winter '19 (2019) [MP3|320 Kbps] <House, Minimal, Tech House>
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791709.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Италия, XVII век. Место, где великая красота хладела в руках инквизиторов. Терзаемая эротическими видениями монахиня Бенедетта Карлини влюбляется в новую послушницу, пылкую и безрассудную. Вскоре об их запретной страсти узнают за пределами монастыря.Производство: Франция, Бельгия, Нидерланды / Pathe, Netherland Filmfund, SBS Productions, Belga Productions, Topkapi FilmsЖанр: Драма, мелодрама, биография, историяРежиссер: Пол ВерховенАктеры: Виржини Эфира, Шарлотта Рэмплинг, Дафна Патакия, Ламбер Вильсон, Оливье Рабурден, Луиз Шевильот, Эрве Пьер, Клотильда Куро, Давид Клавель, Гилен ЛондезПеревод: Любительский многоголосый (MuzoboZ)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:05:46
+01. Steven Draxler - Right Time (Club Mix) 4:28
+02. Christopher G - Bassline Drops (Club Mix) 4:56
+03. Tom Bekker - What You Got (Instrumental Mix) 4:49
+04. Ricky Alvarez - House Is Mine (VIP Dub Mix) 4:16(   Читать дальше...   )Жанр: House, Minimal, Tech HouseПродолжительность: 02:08:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BCF1CDF72BA2348F972FB7B50996CCF1D2DF62E3
+magnet:?xt=urn:btih:3FFD107C525535728E1E9ABC4082D5C9DB212D57
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -258,25 +288,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446786   (791240) от 16.11.2021
+###  Публикация: 1274880   (791708) от 09.01.2019
 
-Как избежать наказания за убийство / How to Get Away with Murder (2014-2020) WEB-DL [H.264/1080p] (сезон 1-6, серии 1-90 из 90) Кириллица
+VA - House Boutique Volume 25-Funky & Uplifting House Tunes (2018) [MP3|320 Kbps] <Groove, House, Funky>
 
->>Зарубежные сериалы
->>
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791708.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Профессор Эннализ Китинг – блестящий адвокат. Она преподает у студентов дисциплину под названием: «Как избежать наказания за убийство». Но те даже не подозревают, что в скором времени им придется применить свои знания в этой области в реальной жизни…Производство: США / Shondaland, Nowalk Entertainment, ABC SignatureЖанр: Триллер, драма, криминал, детективРежиссер: Билл Д’Элиа, Стивен Крегг, Лора ИннесАктеры: Виола Дэвис, Билли Браун, Джек Фалахи, Эйджа Наоми Кинг, Мэтт МакГорри, Чарли Уэбер, Лиза Вейл, Конрад Рикамора, Карла Соуса, Альфред Энок и др.Перевод: Дублированный (Кириллица)Язык озвучки: Русский, английскийСубтитры: Русские, Английские (SDH)Продолжительность: ~00:43:00 серия
+01. Block & Crown - Dice (Original Mix)
+02. Jose Ogalla - After Now (Chris Montana Piano Dub)
+03. Scotty Boy - Ya'll Came to Jack (Original Mix)
+04. Slippy Beats - Phunky Beats (Hype Is Not Remix)(   Читать дальше...   )Жанр: Groove, House, FunkyПродолжительность: 01:36:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B53A9F17507E85844FAB4E6578FA5F6F7A9561F1
+magnet:?xt=urn:btih:6C3D4582D8C933666CC260618D387675AFBA88DA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -284,25 +317,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510469   (791239) от 16.11.2021
+###  Публикация: 1274888   (791707) от 09.01.2019
 
-WinRAR 6.10 Beta 2 [Ru]
+Sōzuproject (Sōzu Project, Sozuproject) - Discography 7 Releases (2013-2017) Vent Sounds, Silent Flow [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
 
->>Архив торрентов
->>Архив Программ
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791707.jpg" />
 </div>
 
 
 ###  Подробнее
 
-WinRAR - один из самых известных архиваторов. То, что он поддерживает архивацию в формате RAR, объяснять не надо. Кроме того, программа умеет работать с архивами ZIP, CAB, ARJ, LZH, TAR, GZ, BZIP, JAR, UUE, GZIP, BZIP2 и 7-Zip, при этом она обладает многочисленными очень полезными возможностями - шифрование, поддержка непрерывных (solid) архивов, в которых степень (   Читать дальше...   )Язык интерфейса: Русский
+01. Float (08:22)
+ 02. Carousel (06:01)
+ 03. Abandoned (18:00)
+ 04. Grey (08:16)Тип издания: WEBЖанр: AmbientПродолжительность: 00:40:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F84DDEF5ABC6C2E295F0CAB8A4F17EC176774B0
+magnet:?xt=urn:btih:DE39A53B910A31C92BA61904FD4872AA713CD71F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -310,26 +346,140 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510388   (791238) от 16.11.2021
+###  Публикация: 1274141   (791706) от 09.01.2019
 
-Final Cut Pro 10.6.1 [Multi]
+VA -MoBlack Records presents: Afro House Collection - 5 Years Label Anniversary Compilation (2018) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zulu Song (Paki Palmieri Afro Roots Mix)-Miriam Makeba
+02. Find Your Way (Sunrise Mix)-Moon Rocket
+03. Baakoya (Armonica Remix)-Mabiisi
+04. Amahloni (Manoo Remix)-Stones & Bones(   Читать дальше...   )Жанр: HouseПродолжительность: 03:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:588357F95EECEBEB769D195F82CE1F90990AD55E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274889   (791705) от 09.01.2019
+
+VA - Dance Room Party 2019-Essential Anthems / Electronic & Dance Music Hits (2019) [MP3|320 Kbps] <Euro Dance, Pop Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lorenz Koin & Norah B. - In The Name Of Love (Radio Mix) 3:22
+02. Nico Del Prato - Anymore (Radio Edit) 3:07
+03. Enormous Cats - Ready Or Not (Club Mix) 4:31
+04. Robert Taylor - Keep It Real (Original Mix) 4:13(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 01:17:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3151CF79A78A057F5562043F5A0555C7FD804116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274852   (791704) от 09.01.2019
+
+Kauan - Muistumia (2014) [FLAC|Lossless|Web-DL|tracks] <Folk, Funerial Doom, Post Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unsoi (4:54)
+02. Aamu Ja Kaste (6:20)
+03. Lumikuuro (7:02)
+04. Koivun Elämä (6:22)(   Читать дальше...   )Производство: Blood Music - BLOOD-074Жанр: Folk, Funerial Doom, Post Rock, Black Metal, ExperimentalПродолжительность: 00:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69104DCB3E86570E446F030A24A9C7FA527A24D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274912   (791703) от 09.01.2019
+
+Koen Park (Ian Hawgood) - Discography 13 Releases (2008-2017) Folk Reels [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtempo, Ambient, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Remote (17:58)
+ 02. Vapour (12:52)Тип издания: WEBЖанр: AmbientПродолжительность: 00:30:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F92FAF691E997F63359C6FADE85EEC6E7E805589
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274609   (791702) от 09.01.2019
+
+Dropzone 3.7.0 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791702.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Final Cut Pro включает основные функции аудиомонтажа и цветокоррекции из Final Cut Studio, так что теперь на всех этапах пост-продакшна можно использовать одно приложение.
-В основе Final Cut Pro лежит гибкая временная шкала Magnetic Timeline, предлагающая новый подход к редактированию видео без дорожек с возможностью добавлять и организовывать клипы так, как удобно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.11.2021Разработчик: Apple Inc.Поддерживаемая ОС: macOS 11.5.1 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
+Dropzone - удобная утилита для автоматизация рутинных действий.
+Каждый пользователь Mac, особенно перешедший с платформы PC, не только чувствует разницу в скорости работы, но и наслаждается тем, насколько красива, надёжна и удобна новая система. Несмотря на то, что macOS заслуживает самых лестных отзывов, даже в этой ОС есть определённые вещи, т.е. какие-либо программные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.01.2019Разработчик: Aptonic LimitedПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:27A0C321BA8F40C380A5EFF9A74A583F3B39F75C
+magnet:?xt=urn:btih:353CF1AAFF737BFBEFC38945E5EE2D48A4A4D7B8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -337,25 +487,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509809   (791237) от 16.11.2021
+###  Публикация: 1275067   (791701) от 09.01.2019
 
-Шан-Чи и легенда десяти колец / Shang-Chi and the Legend of the Ten Rings (2021) BDRip [H.264/1080p]
+Kauan - Pirut (2013) [FLAC|Lossless|Web-DL|tracks] <Funeral Doom, Folk Metal, Post-Metal>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791701.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Благодаря изнуряющим тренировкам и жесткому воспитанию отца Шан-Чи достиг небывалых высот в боевых искусствах, но выбрал не ту жизнь, которую уготовил для него родитель. Работая простым парковщиком в Сан-Франциско, Шан-Чи сталкивается с призраками прошлого и вместе с подругой Кэти оказывается втянут в водоворот фантастических событий, связанных с таинственной организацией (   Читать дальше...   )Производство: США, Австралия / Walt Disney Pictures, Marvel Studios, Fox Studios AustraliaЖанр: Фантастика, фэнтези, боевик, приключенияРежиссер: Дестин Дэниел КреттонАктеры: Симу Лю, Тони Люн Чу Вай, Аквафина, Мишель Йео, Чжан Мэнъэр, Чэнь Фала, Ронни Чиэн, Флориан Мунтяну, Бен Кингсли, Юэнь ВаПеревод: Дублированный, многоголосый профессиональныйСубтитры: Русские (forced х2, full х2), украинские (forced), английские (forced, full) + сommentary, французские + сommentary .srt, немецкие, нидерландские, датские, финские, норвежские, шведские .pgsПродолжительность: 02:12:21
+01. I (4:58)
+02. II (4:42)
+03. III (5:15)
+04. IV (8:01)(   Читать дальше...   )Производство: Blood Music - BLOOD-040Жанр: Doom Metal, Folk Metal, Post-Metal, Funeral DoomПродолжительность: 00:39:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E364876BCD8A1607EC35D30C6B1E8B798395ABF5
+magnet:?xt=urn:btih:A1E46CB3C916DEEF491243D6D9E2E45677C61C00
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -363,27 +516,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509469   (791236) от 16.11.2021
+###  Публикация: 1275031   (791700) от 09.01.2019
 
-Geekbrains | Frontend-разработчик. Часть 5 из 5 (2020) PCRec
+Джин-Тоник - Нетакой (2016) [MP3|320 Kbps] <Rock>
 
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791700.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Frontend-разработчик создаёт интерфейсы, с которыми будут взаимодействовать пользователи, верстает сайты по современным стандартам, виртуозно владеет JavaScript, HTML, CSS.
-
-Это востребованная и высокооплачиваемая профессия, которая включает технические и творческие компоненты. На позиции frontend-разработчика можно делать интернет лучше и удобнее.Производство: GeekbrainsЖанр: Веб-разработкаЯзык озвучки: Русский, АнглийскийПродолжительность: 20:11:11
+1. Нетакой (feat. Ксения Стрижакова)
+2. Вдруг это всё (feat. Алексей Кортнев)
+3. Селфи (feat. Валерий Сюткин)
+4. Старпёрская (feat. Евгений Маргулис)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:44A6A16E8DC0D6E4212E00C5743F68EC8AACBE95
+magnet:?xt=urn:btih:F946C75BB70A00A6186BA5E54009BB27656DE07B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -391,25 +545,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510290   (791235) от 16.11.2021
+###  Публикация: 1274945   (791699) от 09.01.2019
 
-Искушение / Benedetta (2021) WEB-DL [H.264/1080p] [MVO]
+VA - Overload: Pop Rock Music (2019) [MP3|320 Kbps] <Indi, Pop, Rock>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791699.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Италия эпохи Возрождения. Место, где великая красота хладела в руках инквизиторов. Терзаемая эротическими видениями монахиня Бенедетта Карлини влюбляется в новую послушницу, пылкую и безрассудную. Вскоре об их запретной страсти узнают за пределами монастыря.Производство: Франция, Бельгия, Нидерланды / SBS Productions, Pathé, France 2 CinémaЖанр: драма, мелодрама, биография, историяРежиссер: Пол ВерховенАктеры: Виржини Эфира, Шарлотта Рэмплинг, Дафна Патакия, Ламбер Вильсон, Оливье Рабурден, Луиз Шевильот, Эрве Пьер, Клотильда Куро, Давид Клавель, Гилен ЛондезПеревод: Многоголосый любительский (MUZOBOZ)Язык озвучки: Русский, французскийСубтитры: ОтсутствуютПродолжительность: 02:05:47
+001. Avantgardet - Walk Of Shame
+002. Hazey Eyes - Scars (Ukiyo Remix)
+003. Horses Without Makeup - Forget About Chlorine
+004. Vasas Flora Och Fauna - Leevi & The Leavings(   Читать дальше...   )Жанр: Indi, Pop, RockПродолжительность: 09:11:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB283F2304B9D822378DE5B33E38606F3975FE26
+magnet:?xt=urn:btih:2013A3998D6A30D313D2757F623A4D8D9BB2735B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -417,25 +574,113 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510401   (791234) от 16.11.2021
+###  Публикация: 1274948   (791698) от 09.01.2019
 
-Adobe After Effects 2022 (22.0.1.2) Portable by XpucT [Ru/En]
+VA - Soft Rock Nuggets (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foreigner - Blue Morning, Blue Day
+02. Chicago - Little One
+03. Daryl Hall & John Oates - When the Morning Comes
+04. America - Don't Cross the River(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:43:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:967B7CC533A689DC4E66503AA89580DEA712543F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274749   (791697) от 09.01.2019
+
+Журнал | Автомир [Россия] №2 (январь 2019) [PDF]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791697.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Автомир» — еженедельный журнал, полностью посвященный автомобилям. Основные темы издания: автоновости, тестдрайвы, концепт-кары, российские и международные выставки и автогонки, московские автосалоны и дилеры, советы экспертов по автоправу и многое другое.
+Проект ставит перед собой цель донести до читателя максимум полезной информации об автомобилях и обо всем, (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:100438E5F47A9B3850C76F1AA1464A41262025BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274895   (791696) от 09.01.2019
+
+VA - Soul Connection: True Love (2019) [MP3|320 Kbps] <DnB, Dubstep>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791696.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Highpro - Conflict (Original Mix)
+002. Vital - Clarted
+003. Brookes Brothers - Every Minute
+004. Bakground - Clubjammerz(   Читать дальше...   )Жанр: DnB, DubstepПродолжительность: 08:22:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19E2EA826115FC4093822893F3098DF839A73943
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274981   (791695) от 09.01.2019
+
+BestReminder v2019.01.09.09 Final [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791695.jpg" />
 </div>
 
 
 ###  Подробнее
 
-After Effects CC – это ведущая в отрасли программа для создания и компоновки анимированной графики, которую используют многие разработчики визуальных эффектов и анимированной графики. Она предлагает великолепные функции управления, широкий выбор инструментов для творчества, а также возможность интеграции с другими приложениями для постобработки видеоматериалов. Сделайте (   Читать дальше...   )Язык интерфейса: Русский, английский
+Ну кто из нас не забывал поздравить близких друзей, родственников, сотрудников, знакомых с каким нибудь событием или знаменательной датой!
+Может это день рождения, или юбилей, а может крестины, или может годовщина свадьбы?
+А когда же поздравить? Когда покупать подарки? Какого же числа праздник?
+Эта версия программы - ни что иное, как новый свет от предыдущей Birthday. (   Читать дальше...   )Разработчик: Похилько Д.Ю. aka KilyaЯзык интерфейса: Русский, английский, украинский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D637E616875868E1E5A3C51CEC6FF3F735F6B233
+magnet:?xt=urn:btih:EBFD122EB49563904A3413D49C63BB6226EFCC81
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -443,77 +688,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510287   (791233) от 16.11.2021
+###  Публикация: 1274855   (791694) от 09.01.2019
 
-Ночные рейдеры / Night Raiders (2021) WEB-DLRip [H.264] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Недалекое будущее. США находятся под оккупацией, а в государстве воцарился тоталитарный режим. Власти отбирают у родителей детей, считая их своей собственностью. Отчаявшаяся мать, у которой отняли дочь, вступает в подпольную банду, которая похищает детей из государственных приютов и возвращает родителям.Производство: Канада, Новая Зеландия / Alcina Pictures, Eagle Vision, Miss Conception FilmsЖанр: Криминал, драма, триллерРежиссер: Данис ГулеАктеры: Эль-Майя Тэйлфизерс, Brooklyn Letexier-Hart, Алекс Таррант, Аманда Пламмер, Шон Сайпос, Violet Nelson, Гэйл Морис, Сюзанн Кир, Памела Мэтьюз, Скотт БаркерПеревод: Любительский двухголосый (Pazl Voice)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:41:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B461D5259026BB1F8C5BB770AA48326055A7C4E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507658   (791232) от 16.11.2021
-
-Аватар / Avatar (2009) BDRip [H.264/1080p] [Extended Collector's Edition]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791232.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джейк Салли - бывший морской пехотинец, прикованный к инвалидному креслу. Несмотря на немощное тело, Джейк в душе по-прежнему остается воином. Он получает задание совершить путешествие в несколько световых лет к базе землян на планете Пандора, где корпорации добывают редкий минерал, имеющий огромное значение для выхода Земли из энергетического кризиса.Производство: США / Twentieth Century Fox, Dune Entertainment, Lightstorm EntertainmentЖанр: фантастика, боевик, драма, приключенияРежиссер: Джеймс КэмеронАктеры: Сэм Уортингтон, Зои Салдана, Сигурни Уивер, Стивен Лэнг, Мишель Родригес, Джованни Рибизи, Джоэл Мур, Си Си Эйч Паундер, Уэс Стьюди, Лаз АлонсоПеревод: Дублированный, двухголосый профессиональный, авторскийЯзык озвучки: Русский, украинский, английскийСубтитры: русские (Forced, Full), украинские (Forced), английские (Forced, Full, SDH)Продолжительность: 02:58:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE39DCB84C8C88453DFDFD2350FB3489A4F2149E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 395502   (791231) от 16.11.2021
-
-Джеймс Бонд 007: Казино Рояль / Casino Royale (2006) BDRip [H.264/1080p] [PR]
+DJ Emerson - At The Controls (2018) [MP3|320 Kbps] <Techno, Tech House>
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791694.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Используя богатый шпионский арсенал, Джеймс Бонд вступает в поединок с финансовым гением преступного мира Ле Шиффром. Но генеральное сражение против него можно выиграть лишь силой ума, и не на поле боя, а на зеленом сукне казино «Рояль».Производство: Великобритания, Чехия, США, Германия, Багамы / MGM, Columbia Pictures, Eon ProductionsЖанр: боевик, триллер, приключенияРежиссер: Мартин КэмпбеллАктеры: Дэниэл Крэйг, Ева Грин, Мадс Миккельсен, Джуди Денч, Джеффри Райт, Джанкарло Джаннини, Катерина Мурино, Симон Абкарян, Исаак Де Банколе, Еспер КристенсенПеревод: Дублированный, двухголосый профессиональный, одноголосый авторскийЯзык озвучки: русский, украинский, английскийСубтитры: Русские, английские, португальские, чешские, шведские, венгерские, румынские, словенские, норвежские, польские, болгарские, немецкиеПродолжительность: 02:24:34
+1. Namtrak – What You Need (DJ Emerson Remix)6:02
+2. DJ Emerson – XLR8r (New Edit)5:38
+3. DJ Emerson – Etonic (Original Mix)6:35
+4. DJ Emerson – Boy Got Bass (Original Mix)6:44(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 04:37:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3E9FD26995A64F9142C470CF7A5DE6F495F0C37F
+magnet:?xt=urn:btih:BD40576BD019B35E1ECFE15F6D3EC709E20160CD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -521,155 +717,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 981411   (791230) от 16.11.2021
+###  Публикация: 1274495   (791693) от 09.01.2019
 
-Век Адалин / The Age of Adaline (2015) BDRemux [H.264/1080p]
+Завтрак на обочине / When Strangers Appear (2001) WEB-DL [1080p] ATV [MVO]
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791693.jpg" />
 </div>
 
 
 ###  Подробнее
 
-По сюжету главная героиня родилась вместе с XX веком и живет на свете уже сто лет, но при этом не стареет. Несмотря на свою долгую жизнь, Адалин так и не смогла найти любимого человека. Однако наконец-то она встречает мужчину, ради которого сможет снова стать смертной и состариться вместе с ним.Производство: США, Lakeshore Entertainment, Sidney Kimmel Entertainment, Sierra / AffinityЖанр: Драма, Мелодрама, ФэнтезиРежиссер: Ли Толанд КригерАктеры: Блейк Лайвли, Михил Хаушман, Кэти Бейкер, Харрисон Форд, Эллен Бёрстин, Аманда Крю, Линда Бойд, Хью Росс, Ричард Хэрмон, Фульвио ЧечереПеревод: Дублированный (iTunes)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский, английскийПродолжительность: 01:52:43
+Один раненый. Группа таинственных незнакомцев. У каждого своя история. Кому верить? Когда перепуганный, истекающий кровью Мэтт входит в затерянное кафе, которым владеет Бет, там закручивается серия загадочных событий. Трое внешне безвредных незнакомцев прибывают в кафе, но, как утверждает Мэтт, они ищут его, чтобы убить.
+Бет решает спасти Мэтта, но его последующее (   Читать дальше...   )Производство: Австралия, Новая Зеландия, США / Beyond Films, Midnight Film Productions Limited, Persona Non Grata FilmsЖанр: Триллер, Боевик, ДетективРежиссер: Скотт РейнольдсАктеры: Рада Митчелл, Джош Лукас, Бэрри Уотсон, Кевин Андерсон, Джонатан Блик, Эрин Уилсон, Майкл Лоу, Стивен Рэй, Дра МакКэй, Серафин РочериПеревод: Профессиональный многоголосыйСубтитры: Английские (вшитые, отключаемые)Продолжительность: 01:40:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EE3F6D96321E37370CF2D9BA1EFFD0DE6BCB5A97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507353   (791229) от 16.11.2021
-
-По ту сторону смерти (2021) WEBRip [H.264/1080p] (сезон 2, серии 1-14 из 14)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение остросюжетного детектива. В новом сезоне главные герои картины – следователь СК Глеб Точилин и сотрудник института мозга Юлия Дёмина – вновь окажутся втянуты в три мистические истории.Производство: Россия / ВайТ МедиаЖанр: детектив, триллерРежиссер: Сергей ЧекаловАктеры: Сергей Гармаш, Светлана Ходченкова, Виктор Добронравов, Илья Любимов, Виктория Исакова Борис Невзоров, Александр Рапопорт, Марта Кесслер, Артем Лысков, Джан БадмаевПродолжительность: ~00:52:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84A1259B4DB80370CB634A8775297F3F7026A9D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510493   (791228) от 16.11.2021
-
-Microsoft Windows 10 Enterprise 2021 LTSC, Version 21H2 - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 Enterprise LTSC 2021 основана на Windows 10 Pro версии 21H2 (выпущена в ноябре 2021 года), добавляя дополнительные функции, предназначенные для удовлетворения потребностей крупных и средних организаций (включая крупные академические учреждения), такие как расширенная защита от современных угроз безопасности, полная гибкость развертывания ОС, возможности (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D4033AE458858FA422FCED1C82D53FADBEA7AA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286830   (791227) от 16.11.2021
-
-Человек, который убил Гитлера и затем снежного человека / The Man Who Killed Hitler and Then The Bigfoot (2018) WEBRip [H.264/720p-LQ] [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791227.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарный американский ветеран по имени Кельвин Барр в годы Второй мировой войны участвовал в боевых действиях и даже убил Адольфа Гитлера. Теперь же герой живёт тихой жизнью, однако страна вновь призывает его в строй. С ним связываются агенты ФБР, чтобы выследить и уничтожить снежного человека, который прячется в глубине канадских лесов...Производство: США / Epic Pictures, Epic Pictures Releasing, Title MediaЖанр: Фантастика, Приключения, Военный, ДрамаРежиссер: Роберт Д. КржиковскиАктеры: Сэм Эллиотт, Эйдан Тернер, Кэйтлин Фицджералд, Рон Ливингстон, Анастасия Циканава, Шон Бриджерс, Ларри Миллер, Марк Стегер, Эллар Колтрейн, Ризван МанжиПеревод: Многоголосый закадровый, любительский (HiWayGrope)Субтитры: Русские, английские (SDH)Продолжительность: 01:37:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEF5841B1244E1EEBB1F252F6253944D4EF52E3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984893   (791226) от 16.11.2021
-
-Книжная серия | Библиотека ремонта [18 книг] (2001-2016) [PDF, DJVU] [Обновляемая]
-
->>След.
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторы книжной серии делятся своими секретами ремонта и маленькими хитростями, применяемыми многими мастерами в ремонтной практике...Жанр: ЭлектроникаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16058C4A0F070E6EF91C2A0848ED08256A9B84FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509610   (791225) от 16.11.2021
-
-16-й (2021) WEBRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Надоело молчать, скрывать, лгать. Притворяться, что всего этого не было. Было. Но совсем не так, как об этом рассказывают. Правда настолько невероятная, что в нее трудно поверить, но она стоит того, чтобы о ней узнали. В 2016 году в США состоялись президентские выборы. Победа Дональда Трампа удивила весь мир и лишь немногие знали почему исход выборов не мог быть (   Читать дальше...   )Производство: РоссияЖанр: КомедияРежиссер: Андрей КоршуновАктеры: Федорцов Андрей, Дудолатов Игорь, Алексей Нилов, Проворов Мирон, Тимофеев Алексей, Сиданченко Антон и др.Перевод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 02:03:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8894697934D90DD1A1656F5F8AB46836B1303CBC
+magnet:?xt=urn:btih:24E0B70982A1D33AE1D5C13EFDF7236F3F30471A
 ```
 
 https://mybot314.ru/tekegram_catalog/

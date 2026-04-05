@@ -1,3 +1,162 @@
+###  Публикация: 202633   (767011) от 20.05.2010
+
+[Repack] Split Second [Multi-5] 2010 | R.G. ReCoding
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Arcade / Racing (Cars) / 3D
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125916   (766772) от 16.04.2017
+
+Российский гуманоидный робот "Федор" обрел навыки точной стрельбы из пистолета с двух рук
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_766772.jpg" />
+</div>
+
+
+###  Подробнее
+
+В прошлом году мы рассказывали нашим читателям о российском гуманоидном роботе, получившем название "Федор" (от англ. FEDOR - Final Experimental Demonstration Object Research), который должен стать одним из членов экипажа, который отправится в пилотируемую экспедицию на Луну. Благодаря своей механической природе этот робот может действовать как внутри помещений (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 845532   (766711) от 16.04.2017
+
+Ray Orion (Playing Space) - Collection (2014-2017) [MP3|320 кб/с]<Spacesynth>
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Start Melody (03:01)
+02. Barnaul Live (03:09)
+03. Singing Soul (03:11)
+04. Work Station (03:16)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 05:57:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B622FA42377135CE699557F2725FFCD6D08ED8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125963   (766709) от 16.04.2017
+
+Symantec Endpoint Protection 14.0 MP1 Build 2349 (14.0.2349.0100) [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symantec Endpoint Protection, использующий технологию Insight, обеспечивает эффективную и надежную защиту конечных систем. Он предлагает усиленную защиту от всех типов атак для физических и виртуальных систем.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:069C8ADFF949941BDC1AD7121E36AAC981478A56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126023   (766698) от 16.04.2017
+
+Mindjet MindManager 2017 17.2.208 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая версия MindManager 2017 для Windows позволяет преодолеть любые коммуникативные барьеры. Делитесь своими идеями с другими, представив их в виде карт и диаграмм. Обменивайтесь информацией посредством более 700 облачных приложений, среди которых Google Docs, Trello и Slack. Благодаря новым инструментам для управления проектами и работы с картами, упрощенному управлению (   Читать дальше...   )Язык интерфейса: Русский, Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88CD3A475DA4A1DAF430201EBA2F460C02F9DCA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990629   (766697) от 16.04.2017
+
+Евгений Старухин | Цикл «Лесовик» [4 книги. Обновляемая] (2015-2017) [FB2]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766697.jpg" />
+</div>
+
+
+###  Подробнее
+
+Евгению не было еще и восемнадцати лет, когда умер его дедушка. Дедушка был человеком странным, предпочитавшим растить внука в тайге и прививать ему навыки выживания, вместо того чтобы позволить мальчишке проводить сутки напролет за компьютером. Но виртуальная реальность Евгения не миновала. Сразу после смерти деда, его забрали в специальный детский дом, где объяснили, (   Читать дальше...   )Жанр: Боевое фэнтези, LitRPGФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B87FE71ACA7FFF861AED2AFF71A125FE966F7BA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 134929   (766695) от 16.04.2017
 
 m.o.v.e – 24 альбома + 21 сингл (1998-2011) Дискография [FLAC|lossless]<JPop, JRock,Dance, Trance,Hose,Electronica,Eurobeat,Soul,Funk>
@@ -6,7 +165,7 @@ m.o.v.e – 24 альбома + 21 сингл (1998-2011) Дискография
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_766695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_766695.jpg" />
 </div>
 
 
@@ -38,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_766694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_766694.jpg" />
 </div>
 
 
@@ -65,7 +224,7 @@ Homefront: The Revolution (2016) [Ru/En] (1.0781467/dlc) Repack =nemos= [Freedom
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766693.jpg" />
 </div>
 
 
@@ -91,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766691.jpg" />
 </div>
 
 
@@ -117,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766690.jpg" />
 </div>
 
 
@@ -143,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766645.jpg" />
 </div>
 
 
@@ -169,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_766629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_766629.jpg" />
 </div>
 
 
@@ -195,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_766622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_766622.jpg" />
 </div>
 
 
@@ -221,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766605.jpg" />
 </div>
 
 
@@ -247,7 +406,7 @@ Counter Strike: Source - Южная Осетия / South Osetia (2006) [Ru] (1.0
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766602.jpg" />
 </div>
 
 
@@ -273,7 +432,7 @@ Windows 10 Enterprise LTSC  x64 by Zosma (15.01.2019)
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766601.jpg" />
 </div>
 
 
@@ -302,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766600.jpg" />
 </div>
 
 
@@ -328,7 +487,7 @@ ZORIN OS 12.3 ULtimate 12.3 [X64] ISO
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766489.jpg" />
 </div>
 
 
@@ -354,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>16
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766331.jpg" />
 </div>
 
 
@@ -380,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765925.jpg" />
 </div>
 
 
@@ -406,7 +565,7 @@ proDAD Mercalli V4 Plugins for Adobe 4.0.477.1: Stabilizer + CMOS Correction 1.0
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765918.jpg" />
 </div>
 
 
@@ -434,7 +593,7 @@ Metro: Last Light Redux (2014) [Ru/Multi] (1.0.0.3) Repack Other s [Bundle Editi
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765912.jpg" />
 </div>
 
 
@@ -461,7 +620,7 @@ Metro 2033 Redux (2014) [Ru/Multi] (1.0.0.3) Repack Other s [Bundle Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765910.jpg" />
 </div>
 
 
@@ -487,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_765899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_765899.jpg" />
 </div>
 
 
@@ -514,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765898.jpg" />
 </div>
 
 
@@ -525,165 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3A8DFDFC6486C4727E39B1953F728C867C251CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391971   (765879) от 02.07.2020
-
-Microsoft® Windows® 10 Enterprise LTSC 2019 x86-x64 1809 RU by OVGorskiy 06.2020 2DVD
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765879.jpg" />
-</div>
-
-
-###  Подробнее
-
-сборка на основе оригинальных русских образов новейшей операционной системы Windows 10 Enterprise (Корпоративная) LTSC x86-x64 (VLSC) от Microsoft с дополнительным материалом разных разрядностей на 2-х разных DVD (x86 и x64). Установка полностью стандартная "вручную" с выбором параметров установки ОС. Интегрированы: обновления системы, небольшой набор самых (   Читать дальше...   )Язык интерфейса: Русский (Russian).
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5931678E448B80D72A92BAAA84FE3E92881FF848
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 824896   (765878) от 02.07.2020
-
-Soviet Military Maps Pro / Советские военные карты Pro 4.4.3 [Ru/Multi]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Советские военные карты в идеальном приложении с динамическими картами для туристических походов и поездок в места, где нет дорог, а также для путешествий и экспедиций. Приложение для навигации по бездорожью с мировыми топографическими картами (в основном, от Генштаба России). Эти карты до сих пор являются одними из лучших для многих стран Африки и Азии.Тип издания: Взломана / ПираткаРелиз состоялся: 24.11.2016Разработчик: ATLOGIS Geoinformatics oHGПоддерживаемая ОС: Android 2.3.3 или более поздняяЯзык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FB642DFA27AEE9D6F88DBF8E1203AB1510D2CFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279090   (765862) от 29.01.2019
-
-Компания Blue Origin запустила в космос туристическую капусулу, расчитанную на шесть человек.
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_765862.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blue Origin удалось плавно приземлить ракету и капсулу суборбитального корабляГлава компании Джефф Безос сообщил, что высота подъема корабля New Shepard составила 107 км.
-Американская компания Blue Origin провела в воскресенье испытание своего суборбитального корабля New Shepard. Трансляцию запуска с пусковой площадки в штате Техас вела Blue Origin.Корабль New Shepard (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 339762   (765826) от 29.01.2019
-
-Старики-разбойники (1971) DVDRip [Реставрация "КП"]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765826.jpg" />
-</div>
-
-
-###  Подробнее
-
-«—Люди делятся на тех, кто доживает до пенсии, и на остальных...»
-Следователя прокуратуры Мячикова, достигшего пенсионного возраста, пытаются насильно «уйти» с работы, так как на его место есть кандидат, присланный «сверху». Вместе со своим старинным другом, инженером Воробьевым, Мячиков решает организовать преступление, раскрыв которое он сможет доказать свою необходимость (   Читать дальше...   )Производство: СССР, МосфильмЖанр: КомедияРежиссер: Эльдар РязановАктеры: Юрий Никулин, Евгений Евстигнеев, Ольга Аросева, Георгий Бурков, Андрей Миронов, Валентина Владимирова, Юрий Белов, Валентина Талызина,
-Роман Филиппов, Нина Агапова, Готлиб Ронинсон, Георгий Куликов, Лев Дуров и др.Перевод: ОригинальныйСубтитры: отсутствуютПродолжительность: 01:26:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C9BE3604C90C1BAB4638314598C01CBFA61F086
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279273   (765819) от 29.01.2019
-
-WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2019.01.28 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузочный диск на базе Windows 10 и 8 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F1F3F7F8D520DB2BFAD0BEC5B0EB7750EFCE0E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 858569   (765818) от 29.01.2019
-
-ПиКей / PK (2014) BDRip [H.264/720p-LQ] [MVO] [PR]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765818.jpg" />
-</div>
-
-
-###  Подробнее
-
-ПиКей, инопланетянин, высаживается на Землю в городе, расположенном в пустыне Раджастан, для изучения человеческой природы и жизни на Земле. Но планета встретила его довольно грубо — у него украли пульт дистанционного управления, с помощью которого он держал связь с космическим кораблем. Теперь он должен найти пульт, а до тех пор ему придется выживать на Земле по-своему. (   Читать дальше...   )Производство: ИндияЖанр: Фэнтези, драма, мелодрама, комедия, детективРежиссер: Раджкумар ХираниАктеры: Аамир Кхан, Анушка Шарма, Санджай Датт, Боман Ирани, Саурабх Шукла, Сушант Сингх Раджпут, Парикшит Сахни, Амардип Джа, Рима Дебнатх, Диру ДривэдиПеревод: Любительский двухголосый (den904&DeadSno)Субтитры: Русские (только к словам песни)Продолжительность: 02:32:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBFC1BA414F22C21427D429DA22E1AE771388287
 ```
 
 https://mybot314.ru/tekegram_catalog/

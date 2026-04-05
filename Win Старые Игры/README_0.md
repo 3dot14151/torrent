@@ -1,3 +1,55 @@
+###  Публикация: 1849872   (1053919) от 25.01.2026
+
+Just Cause 2 (2010) [Ru] (1.0.0.2/dlc) Repack seleZen [Complete Edition]
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Погрузитесь в полное адреналина свободное приключение. В качестве агента Рико Родригеза, вашей целью будет найти и убить вашего друга и наставника, который исчез на островном рае Панау. Здесь, на Панау, вы должны вызвать максимум хаоса на земле, воде и в воздухе, чтобы изменить баланс сил. Используя сочетание из уникального крюка-кошки и парашюта, вы сможете выполнять (   Читать дальше...   )Тип издания: RepackРазработчик: Avalanche StudiosЖанр: Экшены от третьего лицаЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:184F9B70831CA271B9D1EC511BD2989EE96BA4A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847623   (1052280) от 13.01.2026
+
+Call of Cthulhu: Prisoner of Ice (1995) [En] (1.01 v2) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Год 1937-й. Антарктика. Нацисты, всегда стремившиеся отыскать доказательства своего высокого происхождения, находят что-то действительно пугающее. В нескольких ящиках на их секретной базе хранятся замороженные существа... Однако, норвежский антрополог Хемсон с помощью британской подлодки крадёт три загадочных ящика. Их атакует германский самолёт, и, прежде, чем его (   Читать дальше...   )Тип издания: LicenseРазработчик: Chaosium, InfogramesЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED12339976B40AC768123791AB562CBB447FA5B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1847220   (1051929) от 11.01.2026
 
 Dungeons and Dragons: Dragonshard / Кристалл всевластья (2005) [Ru/Multi] (1.02.0001) License GOG
@@ -6,7 +58,7 @@ Dungeons and Dragons: Dragonshard / Кристалл всевластья (2005)
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051929.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Realms of Arkania Trilogy (1992-1996) (1.0/1.0 v2/1.0(a)) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051683.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ The Dark Heart of Uukrul (1989) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051372.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Challenge of the Five Realms (1992) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051371.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Dungeon Keeper KeeperFX (2008) [Ru/Multi] (1.3.0) License/Mod GOG
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051007.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Medieval: Total War (2002) [En] (v1/dlc) License GOG [Collection]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050983.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Rome: Total War (2004) [En] (v1/dlc) License GOG [Collection]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050980.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Rome: Total War - Alexander (2006) [En] (v1) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050968.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Total War: MEDIEVAL II (2) (2006) [En] (v1/dlc) License GOG [Definitive Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050967.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Total War: MEDIEVAL II (2) (2006) [Ru] (v1/dlc) License GOG [Definitive Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050966.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ No One Lives Forever 2: A Spy in H.A.R.M.'s Way / Никто не живет в�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050905.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ SHOGUN: Total War (2000) [Multi] (v1/dlc) License GOG [Collection]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050903.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ ECHELON (1988) [En] (3.40) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050801.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Airborne Ranger (1988) [En] (441.01) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050799.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Redline: Gang Warfare 2066 (1999) [En] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050798.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Warhammer: Dark Omen (1998) [Multi] (1.6) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050354.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Syndicate Classic Dilogy / Syndicate Plus / Syndicate Wars (1993, 1996) [Multi] 
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050268.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Realmz (1999) [En] (7.1.2) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049563.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Shadow Vault / Shadow Vault: Зона теней (2004) [Ru] (1.0.28) License М
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049407.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Gothic 2: Golden Gate / Готика 2: Золотые Ворота (2014) [Ru/E
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048329.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Golden Gate 2: Goddess Heart / Золотые Ворота 2: Сердце Бо�
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048197.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ UnReal World (1992) [En] (3.86.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046865.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Geneforge 5: Overthrow (2008) [En] (1.0.1g) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046862.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Geneforge 4: Rebellion (2006) [En] (1.0g) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046861.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Geneforge 4: Rebellion - это приключенческая ролевая и
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BDE4411F9B78E7A221F5408DE59966E93F78CA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839660   (1046857) от 30.11.2025
-
-You Are Empty (2006) [Ru] (1.2) Repack Other s
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046857.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смерть ли это? Или спасение? Прозрение или гибель разума? Судьба свела вас со зловещей пустотой мертвого города, который внимательно следит за своим единственным гостем. Способны ли вы противопоставить себя этому монстру и бросить вызов судьбе? Невидимое поле, изменяющее физиологию человека, вызвало у населения крупного советского города неконтролируемые мутации.Тип издания: RepackРазработчик: Digital Spray Studios, Mandel ArtPlainsЖанр: Экшены, ШутерыЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2DEF7880A1158413FCACD50504FA46DF6D8C3A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839664   (1046856) от 30.11.2025
-
-Geneforge 3 (2005) [En] (1.0g) License GOG
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Geneforge 3 - это приключенческая ролевая инди-игра, третья часть саги Geneforge. В этом сказочном путешествии вам предстоит исследовать неведомые, враждебные земли, выбрать, на чьей стороне вы сражаетесь, и, конечно же, создать свою собственную орду монстров-мутантов. Geneforge 3 порадует вас большой свободой действий и открытой сюжетной линией, в игре дюжина различных (   Читать дальше...   )Тип издания: LicenseРазработчик: Spiderweb SoftwareЖанр: Стратегии, Ролевые игры, ИндиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CE162F175B9E1BD1DE3DD8CBF40D6A1AB7C4F61
 ```
 
 https://mybot314.ru/tekegram_catalog/

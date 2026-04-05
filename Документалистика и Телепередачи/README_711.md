@@ -1,3 +1,159 @@
+###  Публикация: 1679282   (140016) от 24.11.2023
+
+Ледяное побережье / Icy Coast (2020) HDTVRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Микроклимат холодных приморских областей определяется не только общим климатом региона. Даже в достаточно теплых широтах на побережье может быть холодно и неуютно, если рядом проходит холодное морское течение. Но даже в этих суровых краях можно встретить разнообразных животных.Производство: Германия, NDR Naturfilm, DoclightsЖанр: документальный, природа, флора, фаунаРежиссер: Филипп МороПеревод: одноголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:47:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70601ABC00E74606C360EBB4C7A574726BB62B40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679122   (140009) от 24.11.2023
+
+Однажды в прерии / Il etait une fois dans la prairie (2022) HDTVRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140009.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Однажды в прерии" — это уникальный вестерн в мире документального кинематографа, рассказывающий захватывающую историю о степных собачках, или земляных белках, которые являются частью экосистемы коротко травных прерий и высоких равнин Северной Америки. На первый взгляд кажется, что эти милые и светлые грызуны просто радуют глаз своей внешностью, но за этой (   Читать дальше...   )Производство: ФранцияЖанр: документальный, природа, флора, фаунаРежиссер: Филипп МороПеревод: одноголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:51:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3154C481B4DBA9CF361BA7042A6B7C56CC289921
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195670   (139954) от 30.12.2017
+
+Вечерний Ургант (2017.12.29) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:45:57Реклама: Присутствуют вставки текстовой рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED83203F3C60C8E6A859D850014C74EA25658BFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679310   (139865) от 24.11.2023
+
+Истории русского рэпа (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 6)
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный сериал о том, как рэп из пацанской субкультуры превратился в одно из главных музыкальных направлений страны. История русского рэпа покажет этапы развития от группы CENTR до Элджея.Производство: Россия | PINERYЖанр: Документальный, историяРежиссер: Дмитрий БулгаковУчастники: Pharaoh, Feduk, OG Buda, Даниил Трабун, Анна Виленская, Андрей Никитин, Николай Редькин и др.Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:24:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC7D1C9088EA4A4B42AB075DA031652F8B06EFC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348985   (139822) от 30.12.2019
+
+Живые камни (Ожившая архитектура) / Living Stones (2004-2006) DVBRip (серии 10 из 10)
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Камень есть типичнейшее воплощение категории бытия как такового, и в отличие от гегелевского отвлеченного понятия о бытии он не обнаруживает никакой склонности к переходу в свое противоположное: камень есть то, что он есть, и он всегда служил символом неизменного бытия. Это серия фильмов об истории старинных городов, об открытиях, сделанных археологами на раскопках. (   Читать дальше...   )Производство: Франция, Voyge/Gedeon Programmes Alfa Line ProductionЖанр: Документальный, исторический, архитектура, археологияРежиссер: Валери Жирье, Гийом Эшт, Александр МизарПеревод: Двуголосый закадровый, профессиональный (ТПО Ред Медиа)Субтитры: отсутствуютПродолжительность: серии x ~00:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98D21925E70EA70D06D42A7D283DA143525E046A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195711   (139821) от 30.12.2017
+
+Голос (2017.12.29) HDTV [H.264/1080i] (сезон 6, выпуск 18 - Финал)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139821.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Первый канал" объявляет о премьере нового сезона музыкального проекта "Голос". Из тысяч претендентов, приславших минувшим летом свои заявки на участие, отобраны полторы сотни тех, кто поднимется на ставшую уже знаменитой на всю страну сцену во время "слепых прослушиваний" в надежде покорить слух требовательных наставников. Зрителей (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ТВ-Шоу, развлекательныйСубтитры: ОтсутствуютПродолжительность: ~ 01:52:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08ECE26D57A70F5934B9342B40B38E7D824AE3AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195710   (139812) от 30.12.2017
 
 Голос (2017.12.29) HDTVRip (сезон 6, выпуск 18 - Финал)
@@ -6,7 +162,7 @@
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139812.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Burnt Alive in Odessa (2021) WEBRip [H.264/1080p]
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139762.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139676.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139653.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139617.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139602.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139497.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139492.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139485.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139464.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139461.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139448.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139429.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139408.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139392.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139361.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139355.jpg" />
 </div>
 
 
@@ -448,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139298.jpg" />
 </div>
 
 
@@ -474,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139290.jpg" />
 </div>
 
 
@@ -500,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139201.jpg" />
 </div>
 
 
@@ -511,162 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CFC7E924FB7AAD0F35B9792855BA879E644ACD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436043   (139189) от 30.12.2020
-
-Алтай. Лес и море (2020) WEBRip [H.264/2160p]
-
->>Документалистика и Телепередачи
->>Релакс / Relax
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139189.jpg" />
-</div>
-
-
-###  Подробнее
-
-Горный Алтай. Палаточный лагерь "Лес и Море".Производство: РоссияЖанр: Документальный, видовойРежиссер: Евгений КожинПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:02:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B743063C7B4474E370E3BF0EF59635391B7D90E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088462   (139187) от 31.12.2016
-
-Вести в 20-00. Большие Вести. Россия 1 (30.12.2016) HDTVRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вечерний выпуск «Вестей» посвящен главным событиям дня. «Вести» — информационная телевизионная программа Всероссийской государственной телерадиокомпании. Выходит в эфир на каналах «Россия-24», «Россия-1», «РТР-Планета» и «РТР-Беларусь». Производятся Дирекцией информационных программ Государственной телекомпании «Россия». Самые последние новости в России и в мире (   Читать дальше...   )В этом выпуске: Такого от Путина Обама опять не ожидал. В ответ на высылку наших дипломатов из США президент России поздравил американцев с Новым годом. Белый дом в замешательстве. Кто из наших политиков под Новый Год идет в баню, кто готовит гуся в яблоках, и какие планы на праздники у Владимира Путина. Подозреваемые в убийстве сотрудника Росгвардии в Новой Москве признали вину. (   Читать дальше...   )Телекомпания: Россия 1 HDЖанр: ТелепередачаПродолжительность: 00:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7196156F245EA057F8B8879418ECF304CFEDFC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436041   (139179) от 30.12.2020
-
-Сахалин - мой остров (2019) WEBRip [VP9/2160p]
-
->>Документалистика и Телепередачи
->>Релакс / Relax
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшое обзорное видео об острове Сахалин, о его основных и далеко не всех природных достопримечательностях. В этом ролике вы увидите красоты и уникальность природы Сахалина. И, возможно, поймёте, что такой регион в России один и его стоит посетить хотя бы раз жизни. Такого вы точно нигде не увидите.Производство: РоссияЖанр: Документальный, видовойРежиссер: Константин ЕфимовПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:02:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DE4CD55E104CA48A03CC15FD43BD4E9C93800C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273031   (139167) от 30.12.2018
-
-Главная дорога (30.12.2018) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139167.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новом выпуске ведущие Андрей Федорцов и Денис Юченков расскажут, как правильно выбрать новогоднее дерево, какое простоит дольше - ёлка или сосна, а также как бережно перевезти хвойное растение, не растеряв пушистые иголки. Кроме того, зрители увидят, чем запомнился российским автомобилистам уходящий год, что ждать в следующем и как отпраздновать, не потеряв права.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:29:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E86FF6E200197D3C3D69309B517D6AC8084029D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273153   (139125) от 30.12.2018
-
-Собаки / Dogs (2018) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-6 из 6)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый из шести эпизодов сериала расскажет зрителю историю глубокой эмоциональной привязанности людей и их четвероногих питомцев. Например, главные герои первого эпизода — 11-летняя девочка, страдающая из-за серьезного заболевания, и ее сертифицированная собака-сиделка. Герой второго эпизода, Айхам, отправляется в охваченную войной Сирию, чтобы спасти своего пса (   Читать дальше...   )Производство: США, Disarming Films, Zipper Bros Films, NetflixЖанр: Документальный, кинологияРежиссер: Эми Берг, Хайди Юинг, Ричард ХанкинПеревод: Одноголосый закадровый, профессиональный (Relax)Субтитры: отсутствуютПродолжительность: 6 x ~ 00:50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EFE5AB46540B45426F28B8EA26B2E96E029B054
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520915   (139114) от 30.12.2021
-
-Свадьба века / The Wedding of the Century (2021) Hybrid [H.265/2160p] [4K, HDR+, 10-bit, Dolby Vision]
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм переосмысливает один из самых культовых дней в истории, как никогда прежде, с отреставрированным подлинными кадрами со свадьбы принца Чарльза и леди Дианы Спенсер.Производство: Великобритания, Touchdown FilmsЖанр: документальный, политика, биография, историяРежиссер: Джон ОсборнПеревод: многоголосый любительский (Синема УС)Субтитры: английские (Full, SDH)Продолжительность: 01:13:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14DF57D7EADB4194185DB2CE359E7D4A8B3ED9FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

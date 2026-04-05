@@ -1,3 +1,82 @@
+###  Публикация: 996888   (851802) от 29.03.2016
+
+Моя прекрасная леди / My Fair Lady (1964) BDRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый профессор Генри Хиггинс заключает пари со своим другом, что сможет обучить безграмотную замарашку, уличную цветочницу Элизу правильной речи и высокосветским манерам и выдать ее за настоящую леди. Искрометный юмор, забавные ситуации, Золушка на глазах у зрителей превращается в принцессу, а убежденный холостяк — во влюбленного.Производство: Warner Bros. Pictures, СШАЖанр: Мюзикл, МелодрамаРежиссер: Джордж КьюкорАктеры: Одри Хепберн, Рекс Харрисон, Стэнли Холлоуэй, Вилфрид Хайд-Вайт, Глэдис Купер, Джереми Бретт, Теодор Бикел, Мона Уошборн, Изобел Элсом, Джон ХоллэндПеревод: Многоголосый закадровый профессиональный / одноголосый закадровыйЯзык субтитров: Русский, Английский, Русский (только песни)Продолжительность: 02:53:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B582DA8F4CD0FC0EC2D9BF5111B7D93138FF75F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107967   (851750) от 03.03.2017
+
+Лев зимой / The Lion in Winter (1968) BDRip [H.264/720p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851750.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Лев зимой" (The Lion in Winter) - экранизация исторической драмы Джеймса Голдмена.
+Британский король Генрих II прославился как жестокий и властолюбивый правитель, но дни его клонятся к закату. Понимая это, в 1183 году, накануне Рождества, Генрих II намеревается назвать имя того, кто унаследует трон. Чтоб стать свидетелями решающего события, ко двору возвращается (   Читать дальше...   )Производство: Великобритания, США. Кинокомпании: AVCO Embassy, Haworth ProductionsЖанр: Драма, биография, историяРежиссер: Энтони ХарвиАктеры: Питер О`Тул, Кэтрин Хепбёрн, Энтони Хопкинс, Джон Касл, Найджел Терри, Тимоти Далтон, Джэйн Мэрроу, Найджел Сток, Кеннет Айвз, О. З. Уайтхед, Фран Стэффорд, Элла Мор, Кеннет Гриффит, Генри Вулф, Кэрол Хагар, Дэвид Гриффит и др.Перевод: Дублированный, многоголосый закадровыйЯзык субтитров: Русский, английскийПродолжительность: 02:09:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15EBB39E7B9AAAE9A9A1B1792611A00ADCC64CEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371220   (851115) от 22.04.2020
+
+Звездные войны: Эпизод 3 - Месть Ситхов / Star Wars: Episode III - Revenge of the Sith (2005) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851115.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идёт третий год Войн клонов. Галактическая Республика, некогда бывшая спокойным и гармоничным государством, превратилась в поле битвы между армиями клонов, возглавляемых канцлером Палпатином, и армадами дроидов, которых ведёт граф Дуку, тёмный лорд ситхов. Республика медленно погружается во тьму. Лишь рыцари-джедаи, защитники мира и справедливости, могут противостоять (   Читать дальше...   )Производство: США / Lucasfilm, Mestiere Cinema, Pandora FilmsЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Джордж ЛукасАктеры: Юэн Макгрегор, Натали Портман, Хейден Кристенсен, Иен Макдермид, Сэмюэл Л. Джексон, Джимми Смитс, Фрэнк Оз, Энтони Дэниелс, Кристофер Ли, Киша Касл-ХьюзПеревод: ДублированныйСубтитры: русские (Forced, Full), английские (Full)Продолжительность: 02:20:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F4D58011DF6D6DDD61149E5337C2E656BEBFC4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1340160   (850797) от 30.09.2021
 
 Леопард / Il gattopardo / The Leopard (1963) BDRip [H.264/720p] [Criterion Collection]
@@ -6,7 +85,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850797.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850259.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849409.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849358.jpg" />
 </div>
 
 
@@ -113,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848596.jpg" />
 </div>
 
 
@@ -140,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847834.jpg" />
 </div>
 
 
@@ -166,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847460.jpg" />
 </div>
 
 
@@ -192,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847456.jpg" />
 </div>
 
 
@@ -218,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847077.jpg" />
 </div>
 
 
@@ -244,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846943.jpg" />
 </div>
 
 
@@ -271,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846865.jpg" />
 </div>
 
 
@@ -297,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846490.jpg" />
 </div>
 
 
@@ -323,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845912.jpg" />
 </div>
 
 
@@ -349,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845899.jpg" />
 </div>
 
 
@@ -376,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845788.jpg" />
 </div>
 
 
@@ -402,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845618.jpg" />
 </div>
 
 
@@ -428,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845410.jpg" />
 </div>
 
 
@@ -454,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845182.jpg" />
 </div>
 
 
@@ -482,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844982.jpg" />
 </div>
 
 
@@ -510,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842598.jpg" />
 </div>
 
 
@@ -537,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842545.jpg" />
 </div>
 
 
@@ -563,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841296.jpg" />
 </div>
 
 
@@ -589,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841279.jpg" />
 </div>
 
 
@@ -601,86 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9208CF6A4EA70A61BFEE7E1D40575D10D5BEF2C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372495   (840694) от 28.04.2020
-
-Восходящая Луна / The Stalking Moon (1968) BDRip [H.264/720p-LQ] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840694.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немолодой военный разведчик помогает белой женщине, которая всю жизнь провела в племени апачей, бежать вместе с её сыном-полукровкой. Беглецам предстоит преодолеть много опасностей и избавиться от преследования.Производство: США / National General Production Inc.Жанр: ВестернРежиссер: Роберт МаллиганАктеры: Грегори Пек, Ева Мари Сэйнт, Роберт Форстер, Ноланд Клэй, Расселл Торсон, Фрэнк Сильвера, Лонни Чэпмен, Лу Фриззелл, Генри Бекман, Чарльз ТайнерПеревод: Авторский, Константин ДьяконовСубтитры: Английские (Full, SDH)Продолжительность: 01:49:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7608C8099FB47AB68513A7DEAEBE0D441C14814B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 309550   (840587) от 16.03.2011
-
-Дюна / Dune (1984) [1080p] BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Планета Арракис, также известная под названием Дюна, год 10991. Это арена борьбы между злом и благородством, мир тончайших и опаснейших интриг. Гигантские песчаные черви длиной в целую милю сторожат бесценное сокровище — меланжевую пряность, позволяющую путешествовать сквозь Пространство и Время. Тот, кто контролирует пряность, контролирует Вселенную.
-
-Народ Дюны ожидает пришествия Мессии, который поведет их на священную войну против династии злобных Харконненов. И Мессия является. Им становится юный Пол Атрейдес, сын герцога Лито, предательски убитого Харконненами с одобрения Императора. Полу предстоит великая миссия, которая навсегда изменит судьбу всей галактической империи…Жанр: Фантастика, Боевик, ФэнтезиРежиссер: Дэвид ЛинчАктеры: Франческа Аннис, Леонардо Чимино, Брэд Дуриф, Хосе Феррер, Линда Хант, Фредди Джонс, Ричард Джордан, Кайл МакЛахлан, Вирджиния Мэдсен, Сильвана МанганоПеревод: Многоголосый закадровыйПродолжительность: 02:16:32
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004221   (839755) от 05.04.2016
-
-Плaнета обезьян / Planet of the Apes (1968) BDRip [H.265/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839755.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 3978 году космический корабль землян терпит крушение на далекой планете. Выжившие в катастрофе астронавты удивляются, как она похожа на их дом. Вскоре они узнают, что планета населена разумными обезьянами и деградировавшими до животного состояния людьми. Обезьяны захватывают астронавтов в плен, но после продолжительных пыток один из них совершает побег вместе с (   Читать дальше...   )Производство: США / 20th Century Fox Film Corporation, APJAC ProductionsЖанр: Фантастика, Боевик, ПриключенияРежиссер: Франклин Дж. ШаффнерАктеры: Чарлтон Хестон, Родди МакДауэлл, Ким Хантер, Морис Эванс, Джеймс Уитмор, Джеймс Дэйли, Линда Харрисон, Robert Gunner, Лу Вагнер, Вудроу ПарфриПеревод: Многоголосый закадровый, профессиональныйЯзык субтитров: Итальянский, английский, русскийПродолжительность: 01:52:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE120812E4377A2B56F7DCF92EF7FFEFC39217C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

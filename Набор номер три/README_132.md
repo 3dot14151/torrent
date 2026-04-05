@@ -1,3 +1,162 @@
+###  Публикация: 997728   (873103) от 17.03.2016
+
+UC Browser 5.6.10764.1009 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873103.jpg" />
+</div>
+
+
+###  Подробнее
+
+UC Browser - мировой лидер среди мобильных браузеров, работающий в 150 странах мира, на всех основных операционных системах на 11 языках. Теперь же он работает и на ПК!
+Браузер использует в работе 2 движка - Chromium и Trident, позволяя при необходимости быстро переключаться между ними.
+UC Browser полностью настраивается на индивидуальные предпочтения пользователя: (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA70FAC828171CD6DD48EB9CCF36ADD695DFF1C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994519   (873096) от 17.03.2016
+
+Создана новая карта Млечного Пути, имеющая беспрецедентно высокий уровень детализации
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_873096.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ученые Европейской Южной обсерватории (European Southern Observatory, ESO) буквально на днях завершили последние наблюдения в рамках обзора ATLASGAL (APEX Telescope Large Area Survey of the Galaxy). И для того, чтобы отметить это событие, в сети были опубликованы первые панорамные снимки, имеющие беспрецедентно высокий уровень детализации. Обзор ATLASGAL охватил всю плоскость нашей галактики с точки в южном полушарии нашей планеты и он впервые демонстрирует Млечный Путь в субмиллиметровом диапазоне волн.(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996384   (872956) от 17.03.2016
+
+Cornacchia | Как создавался фотоарт "Сесиль до Воланж" (2015) PCRec
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872956.jpg" />
+</div>
+
+
+###  Подробнее
+
+В уроке подробно показана техника, с помощью которой я создаю из подручного материала наряд в духе прошлых столетий, прическу, цветочные и драгоценные аксессуары из самых обыкновенных доступных каждому исходников. Вы увидите, как я рисую золотую вышивку и украшения, обрабатываю полупрозрачные ткани и работаю с элементами фона, создающего необходимую атмосферу. Наблюдение (   Читать дальше...   )Жанр: Обучающий видеоурокПродолжительность: 90 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED60CF7FCEE28821CC85665769CC7C5471EA0667
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 187604   (872890) от 30.03.2010
+
+Взрывы в московском метро
+
+>>3
+>>13
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Взрывы в московском метро Сегодня, в понедельник, 29 марта, в 7:56 в Московском метрополитене на станции "Лубянка" произошел взрыв. По данным МЧС, в результате инцидента погибли как минимум 25 человек. Позже, в 08:39 на станции метро "Парк культуры"-радиальная сработало еще одно взрывное устройство. Оно находилось в поезде, следующем в сторону станции "Улица Подбельского". Число погибших в результате второго взрыва составило 15 человек.Первый взрыв произошел во втором вагоне поезда, стоявшем на перроне. Пожара не последовало. Поезд следовал со стороны станции "Улица Подбельского". На Лубянской площади частично перекрыто движение транспорта; там находится несколько десятков машин скорой помощи, поисково-спасательные отряды МЧС, а также представители ГУВД и СКП, сообщает "Интерфакс". На месте развернут штаб.Директор ФСБ РФ Александр Бортников доложил президенту РФ Дмитрию Медведеву о серии взрывов в московском метро, сообщает "Интерфакс" со ссылкой на пресс-службу (   Читать дальше...)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 187625   (872887) от 30.03.2010
+
+-=Windows FAN SE7EN X86 RUS 2010=- 7600.16385 х86 RUS [только русский]
+
+>>3
+>>9
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872887.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработчик: Microsoft Corporation
+•Язык интерфейса: 
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997442   (872789) от 17.03.2016
+
+Adobe Photoshop Lightroom CC 2015.5 (6.5) [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lightroom объединяет фотографии в «коллекции» — виртуальные сборища файлов, по которым может быстро делать поиск. Он хранит информацию о ключевых словах, превью и метаданных не в каждом графическом файле, а в централизованной базе данных (движок SQLite). Поэтому к базе можно обращаться и по поводу фотографий, которые сейчас в архиве на DVD. Размер программы существенно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA61C79BA2913083A9B59604324CF56D9FD51B3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997451   (872787) от 17.03.2016
 
 Голодные игры: Сойка-пересмешница. Часть II / The Hunger Games: Mockingjay - Part 2 (2015) BDRip [H.264/720p] [Line]
@@ -6,7 +165,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872787.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872786.jpg" />
 </div>
 
 
@@ -59,7 +218,7 @@ Windows 10 (x86/x64) +/- Office 2016 20in1 by SmokieBlahBlah 14.03.16 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872785.jpg" />
 </div>
 
 
@@ -88,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872784.jpg" />
 </div>
 
 
@@ -114,7 +273,7 @@ Windows 10 Enterprise LTSB (x86/x64) +/- Office 2016 by SmokieBlahBlah 14.03.16 
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872783.jpg" />
 </div>
 
 
@@ -143,7 +302,7 @@ Microsoft Windows 10 Professional x86-x64 1511 RU by OVGorskiy 03.2016 2DVD
 >>11
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872782.jpg" />
 </div>
 
 
@@ -169,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872781.jpg" />
 </div>
 
 
@@ -198,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_872613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_872613.jpg" />
 </div>
 
 
@@ -224,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_872495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_872495.jpg" />
 </div>
 
 
@@ -250,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_872470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_872470.jpg" />
 </div>
 
 
@@ -276,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_872468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_872468.jpg" />
 </div>
 
 
@@ -302,7 +461,7 @@ Sniper Ghost Warrior Contracts (2019) [Ru/Multi] (1.0.7330426/dlc) SteamRip =nem
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872456.jpg" />
 </div>
 
 
@@ -328,7 +487,7 @@ ACDSee Ultimate 10.3 Build 894 RePack by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872406.jpg" />
 </div>
 
 
@@ -354,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_872390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_872390.jpg" />
 </div>
 
 
@@ -382,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872384.jpg" />
 </div>
 
 
@@ -408,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872346.jpg" />
 </div>
 
 
@@ -434,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872241.jpg" />
 </div>
 
 
@@ -460,7 +619,7 @@ FaceGen Modeller 3.1.2 Full +Portable [Eng]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872179.jpg" />
 </div>
 
 
@@ -491,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>23
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_872155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_872155.jpg" />
 </div>
 
 
@@ -518,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872154.jpg" />
 </div>
 
 
@@ -529,163 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E8DD517CCE62AFBB2817653EF05FA5FF6240658
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997839   (871481) от 18.03.2016
-
-Сферические колеса на магнитной подвеске обеспечат маневренностью автомобили-роботы будущих поколений
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_871481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Goodyear, которая является производителем автомобильных покрышек с мировым именем, разработала дизайн сферической автомобильной покрышки, которая позволит автоматическим транспортным средствам перемещаться боком так же легко, как нынешние автомобили могут перемешаться вперед или назад. Применение подвески со сферическими колесами позволит избавиться от ограничений (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997557   (871464) от 18.03.2016
-
-Россиян хотят штрафовать за пропаганду обхода интернет-блокировок
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_871464.jpg" />
-</div>
-
-
-###  Подробнее
-
-За информацию о способах обойти блокировку сайта будут штрафовать
-Роскомнадзор дополнил поправки в закон «Об информации...»: «зеркала» предложено приравнять к заблокированным сайтам, а за пропаганду средств обхода блокировки — ввести штрафы.За пропаганду способов обхода блокировки интернет-ресурсов будут штрафовать. Такие поправки в закон "Об информации, информационных (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 845912   (871290) от 26.02.2015
-
-Менталист / The Mentalist (2014) WEB-DLRip (Сезон 7, серии 1-13 из 13) (BaibaKo)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Патрик Джейн — детектив и независимый консультант из Калифорнийского Бюро Расследований (CBI), он использует свои отточенные, как лезвие, навыки наблюдения для раскрытия тяжких преступлений. В самом Бюро Джейн известен за частые нарушения протокола, а также за его звездное прошлое: он работал медиумом, однако теперь сам признает, что симулировал паранормальные способности. (   Читать дальше...   )Производство: СШАЖанр: Драма, криминалРежиссер: Рэндалл Зиск, Крис Лонг, Саймон Бейкер, Роберт Данкан МакНилАктеры: Саймон Бейкер, Робин Танни, Аманда Риджетти, Тим Кенг, Овайн Йомен, Эммануэль Шрики и др.Перевод: Профессиональный многоголосый закадровый - BaibaKoОзвучка: Елена Григорьева, Татьяна Оболевич, Алексей Кузнецов, Виталий Ткаченко и Александр ФурманФормат: AVIПродолжительность: ~00:42:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33447C3C112780EA59AAF4F152D0B912B71FB1A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 842018   (871284) от 26.02.2015
-
-Молодёжка (2014) SATRip (сезон 2, серии 1-40 из 40)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: Россия, ООО "Арт Пикчерс Вижн"Жанр: драма, спортРежиссер: Сергей АрлановПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43E135A81A9288B3C7B5BB2008FC2F8F75E28DBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997564   (870986) от 18.03.2016
-
-Microsoft пытается окончательно монополизировать рынок ОС
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_870986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft анонсировала выпуск SQL Server под Linux, а также готовит операционную систему на базе Debian для сетевых устройств. Кроме этого, компания вступила в Eclipse Foundation.Но наряду с этими событиями произошли и другие, гораздо менее приятные сердцу сторонника GPL и открытого ПО. Речь идёт о попытке запатентовать технологию, уже реализованную в Ubuntu, а также (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975790   (870981) от 18.03.2016
-
-Война и мир / War and Peace (2015) WEB-DL\BDRip [H.264/1080p-LQ] (сезон 1, серии 1-6 из 6) (NewStudio)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие сериала развивается в России XIX века, охватывая период с 1805 по 1812 годы. В основу сюжета положен роман Льва Толстого "Война и мир", основное внимание сфокусировано на судьбах Пьера Безухова, Андрея Болконского и Наташи Ростовой.Производство: США, ВеликобританияЖанр: драма, мелодрама, военныйРежиссер: Том ХарперАктеры: Анейрин Барнард, Пол Дано, Лили Джеймс, Джеймс Нортон, Оливия Росс, Рори Кинэн, Гийом Форе, Дэвид Куилтер, Кит Коннор, Отто Фаррант, Хлоя Пирри, Теренс Бисли и др.Перевод: Многоголосый закадровый, профессиональный (NewStudio)Продолжительность: ~00:59:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDB30544A9D4A8FD2B97C2306E79FDB5347B6176
 ```
 
 https://mybot314.ru/tekegram_catalog/

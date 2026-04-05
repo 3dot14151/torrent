@@ -1,3 +1,119 @@
+###  Публикация: 1160153   (478204) от 23.08.2017
+
+Roderic - Perfect Mirror Remix (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Sorrow (Dirty Doering remix) (6:20)
+ 02. Slowly (Christopher Schwarzwalder remix) (7:43)
+ 03. Kissing Into Each Other (Ante Perry remix) (6:48)
+ 04. No Name (Franz Alice Stern Latenight mix) (5:17)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 00:33:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:941BAF5675683175040E10FF2FAB4792C5FCF5A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159886   (478202) от 23.08.2017
+
+VA - Lounge Music Market (Amazing ExquisiteTunes) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lazy Hammock - You Were The One (Original Mix)  4:14
+02.  Orfeo Project - Tonight (Original Mix)  4:41
+03.  DC 9 feat. Francesca Dee - Wonderful (D-Soriani Cala Jondal Remix)  4:03
+04.  Rayo Tinto - Song For A Guy (Ambient Remix)  5:23(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:08:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:798DDDA6A60279CCE8DD4A806F92463398769D0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159887   (478200) от 23.08.2017
+
+VA - Balearic Deep-House Anthems Vol.1 (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Reat Kay - Albedo (Radio Edit)  3:45
+02.  Jaques Le Noir - Days (Original Mix)  5:21
+03.  Deep Hotel - In My Dreams (Original Mix)  3:06
+04.  Abel Suarez - Deep Brothers (Original Mix)  7:00(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:52:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB9C8A0A60505C9960385C85CF1882FEB222E8D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244794   (478090) от 03.09.2018
+
+VA - Suanda Music Radio Top 20 (August / September 2018) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer & Twin View - STOP! (Extended Mix)
+02. Adip Kiyoi & Christina Novelli - Carousel (Extended Mix)
+03. FEEL & Broning - Warmup (Extended Mix)
+04. Roman Messer Feat. Clare Stagg - For You (Tom Exo Extended Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:56:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:239680CEFB3290BDAA6166669359EA042B7EED57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1056857   (477512) от 27.09.2016
 
 VA - Women Secrets (A Lounge & Chill Out Deluxe Collection Vol 1) (2016) [MP3|320 Kbps] <Lounge, Chill Out>
@@ -6,7 +122,7 @@ VA - Women Secrets (A Lounge & Chill Out Deluxe Collection Vol 1) (2016) [MP3|32
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477512.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Workout Motivation 2020 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477485.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA -Jean-Michel Jarre - Remix EP [1] (2015) [FLAC|tracks]<Electronic, Industrial
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477424.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Workout Motivation 2020 (Ideal For Cardio, Gym, Running & Aerobics) [MP3|32
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477241.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Ryoji Ikeda (池田亮司) - Discography 18 Releases (1995-2018) Raster-Noton, T
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477023.jpg" />
 </div>
 
 
@@ -149,7 +265,7 @@ Groundwork Recordings - Label Pack 12 Releases (2017-2020) [FLAC|Lossless|WEB-DL
 >>Label-Packs
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477003.jpg" />
 </div>
 
 
@@ -177,7 +293,7 @@ Steffi - Discography 18 Releases (2009-2020) Ostgut Ton [FLAC|Lossless|tracks+.c
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476850.jpg" />
 </div>
 
 
@@ -206,7 +322,7 @@ Takayuki Shiraishi (白石隆之) - Collection 4 Releases (2002-2020) Studio Mul
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476824.jpg" />
 </div>
 
 
@@ -235,7 +351,7 @@ Carsten Nicolai (Alva Noto, ANBB, Aleph-1, Noto, Diamond Version) - Discography 
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476540.jpg" />
 </div>
 
 
@@ -264,7 +380,7 @@ Michael A - Dark Mirror Session, Vol.1 (2022) DJ Session [FLAC|Lossless|WEB-DL|t
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476406.jpg" />
 </div>
 
 
@@ -290,7 +406,7 @@ VA - KSHMR - Materia (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476165.jpg" />
 </div>
 
 
@@ -319,7 +435,7 @@ VA - Molar Hard Trance (2018) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476087.jpg" />
 </div>
 
 
@@ -348,7 +464,7 @@ Alexander Volosnikov - All These Melodies (2015) [MP3|320 кб/с]<Downtempo, Ch
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475704.jpg" />
 </div>
 
 
@@ -377,7 +493,7 @@ Pessimist - Atyeo (2020) Ilian Tape [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, 
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475145.jpg" />
 </div>
 
 
@@ -406,7 +522,7 @@ VA - Ministry Of Sound: Chilled Electronic 80s (2016) Box Set, 3CD [FLAC|Lossles
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475019.jpg" />
 </div>
 
 
@@ -435,7 +551,7 @@ Forrest Fang | Sans Serif - Discography 18 Releases (1982-2020) Ominous Thud, Pr
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474782.jpg" />
 </div>
 
 
@@ -464,7 +580,7 @@ VA - Kiss FM Dance Radio Chart 3 (2005) [MP3|320 кб/с]<House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474440.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Trentemøller (Trentemoller) - Discography 56 Releases (2003-2019) In My Room [F
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474393.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Kwartz - Body Sedation (2018) Horo [FLAC|Lossless|WEB-DL|tracks] <Techno, Experi
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474217.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ VA - Uplifting Trance Sessions Vol.09 (2018) [MP3|320 Kbps] <Trance,Uplifting Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474216.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - Extrema Summer Trance (2017) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474153.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ VA - Drive & Chill Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474151.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ VA - Drive & Chill Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9EF1314465B316199108943E4CCA5642CDA99AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160092   (474150) от 25.08.2017
-
-VA - Sound Of The Balearics Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Massivan & Bea Luna - That Day (Olson Dreamer Remix)  2:57
-02.  DEEP Impulse - Chillz (Original Mix)  3:04
-03.  Fabbro - Love In Your Heart (Original Mix)  4:52
-04.  CJ Sprut - Paradise Bays (Original Mix)  3:30(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:17:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F565D60556860C83A329E42952815A622B5554D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160318   (474146) от 25.08.2017
-
-VA - Best Of Ibiza (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Melbourne Freaks - Deep Deep Down (Radio Mix)  3:09
-02.  Bahlzack & My Dirty House - Cocaine Sex Baby (Original Mix)  5:43
-03.  Michael Ruland - Dreamer (Extended Mix)  6:24
-04.  Vykvet - Simple Melodies (Original Mix)  6:30(   Читать дальше...   )Жанр: HouseПродолжительность: 05:11:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:442CD1576EE6BFD25BA4F9BA0B6AF890490DC313
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245290   (474107) от 05.09.2018
-
-VA - Progressive Trance Selections Vol.06 (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tarenka - Mercan (Original Mix)
-02. TheRio - Tender (Extended Mix)
-03. Emotion Love - Return (Original Mix)
-04. Diego Morrill - Ventura (Imida Remix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:35:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5959457F999701FDEB5D48E44AD6E729F7909C5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245213   (474101) от 05.09.2018
-
-Steve Hauschildt - Dissolvi (2018) Ghostly International [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. M Path (04:50)
- 02. Phantox (04:07)
- 03. Saccade (04:10)
- 04. Alienself (07:01)(   Читать дальше...   )Жанр: Ambient, Techno AmbientПродолжительность: 00:42:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AA8F6A78EAB2FE1A9F67B37061528784D367F9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

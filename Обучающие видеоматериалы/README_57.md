@@ -1,3 +1,31 @@
+###  Публикация: 1483623   (1006723) от 14.07.2021
+
+Udemy, Data Is Good Academy | Data Analysis Masterclass (4 courses in 1)  (2021) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на лучший онлайн-курс по анализу и визуализации данных.
+Анализ данных - это процесс проверки, очистки, преобразования и моделирования данных с целью обнаружения полезной информации, обоснования выводов и поддержки принятия решений.
+Анализ данных имеет множество аспектов и подходов, охватывающих различные методы под разными названиями, и используется (   Читать дальше...   )Производство: UdemyЖанр: Анализ данных, визуализацияЯзык озвучки: АнглийскийПродолжительность: 15:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2DE7F370BA990CE23F4C7D0CA0CC98117913C3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483515   (1006687) от 14.07.2021
 
 software-testing.ru, О. Назина | Автоматизация тестов для REST API при помощи Postman (2021) PCRec [AD]
@@ -6,7 +34,7 @@ software-testing.ru, О. Назина | Автоматизация тестов 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006687.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ Profileschool, Никита Чесноков | Основы VFX в After Effects
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006685.jpg" />
 </div>
 
 
@@ -61,7 +89,7 @@ Udemy, Justin Mitchel | DjangoFlix - Build a Netflix-Like Service in Django & Py
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006593.jpg" />
 </div>
 
 
@@ -88,7 +116,7 @@ Udemy, Артем Баданов| Изучение Java с нуля (2021) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006561.jpg" />
 </div>
 
 
@@ -117,7 +145,7 @@ Udemy, Marek Gryszkiewicz | WebRTC 2021 Practical Course. Create Video Chat Appl
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006495.jpg" />
 </div>
 
 
@@ -143,7 +171,7 @@ SVS, Will Terry | Illustrating Children's Books Part 2 (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006479.jpg" />
 </div>
 
 
@@ -170,7 +198,7 @@ SVS, Will Terry, Jake Parker | Posing Characters: Children's Book Edition (2015)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006477.jpg" />
 </div>
 
 
@@ -196,7 +224,7 @@ SVS, Jake Parker | Mastering Perspective (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006471.jpg" />
 </div>
 
 
@@ -222,7 +250,7 @@ Schoolism, Kris Pearn | Storyboarding (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006461.jpg" />
 </div>
 
 
@@ -248,7 +276,7 @@ Enterclass, Сергей Курбатов | Сложная вода. Прост�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006455.jpg" />
 </div>
 
 
@@ -276,7 +304,7 @@ Gumroad, Lu Dongjun | Gold Study (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006152.jpg" />
 </div>
 
 
@@ -302,7 +330,7 @@ Gumroad, Lu Dongjun | Bug Study (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006141.jpg" />
 </div>
 
 
@@ -328,7 +356,7 @@ Gumroad, Lu Dongjun | Lava Study (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006137.jpg" />
 </div>
 
 
@@ -354,7 +382,7 @@ Gumroad, Lu Dongjun | Freezing study (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006130.jpg" />
 </div>
 
 
@@ -380,7 +408,7 @@ Udemy, Codestars by Rob Percival, Atil Samancioglu |The Complete Quantum Computi
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006129.jpg" />
 </div>
 
 
@@ -408,7 +436,7 @@ Gumroad, Lu Dongjun | Jurassic Study (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006126.jpg" />
 </div>
 
 
@@ -434,7 +462,7 @@ SVS, Will Terry | Choosing colors for storytelling (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006123.jpg" />
 </div>
 
 
@@ -461,7 +489,7 @@ Gumroad, Lu Dongjun | Desert Study (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006121.jpg" />
 </div>
 
 
@@ -487,7 +515,7 @@ SVS, Jake Parker | Creative Environment Design (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006108.jpg" />
 </div>
 
 
@@ -515,7 +543,7 @@ Gumroad, Lu Dongjun | Metal Study (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006107.jpg" />
 </div>
 
 
@@ -541,7 +569,7 @@ Gumroad, Lu Dongjun | Jungle Study (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006101.jpg" />
 </div>
 
 
@@ -567,7 +595,7 @@ SVS, Jake Parker | Drawing Animals: Mammal Edition (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006098.jpg" />
 </div>
 
 
@@ -595,7 +623,7 @@ Udemy, Elshad Karimov | Java Data Structures and Algorithms Masterclass (2021) P
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006080.jpg" />
 </div>
 
 
@@ -622,7 +650,7 @@ Udemy, Tom Phillips | Gatsby JS и Shopify: Интернет-магазин с G
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006078.jpg" />
 </div>
 
 
@@ -649,7 +677,7 @@ Udemy, Alexander Hagmann | Complete 2-in-1 Python for Business and Finance Bootc
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006069.jpg" />
 </div>
 
 
@@ -662,33 +690,6 @@ Udemy, Alexander Hagmann | Complete 2-in-1 Python for Business and Finance Bootc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:934626AD49C7839A7104AC1F371E832C5D6DC9BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484429   (1006061) от 19.07.2021
-
-Udemy, Imran Afzal | Complete VMWare vSphere ESXi and vCenter Administration (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы нашли один из лучших курсов VMWare на этой платформе. Этот курс включает в себя все, что вам нужно знать о VMWare vSphere ESXi, vCenter, HA, DRS и многом другом.
-VMWare - программное обеспечение виртуализации номер один в корпоративном мире, и если вы хотите изучить его, вы нашли правильный курс. Это курс администрирования VMWare, который подготовит вас к работе (   Читать дальше...   )Производство: UdemyЖанр: АдминистрированиеЯзык озвучки: АнглийскийПродолжительность: 10:54:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD489FF5E6BAC6C38CC5D5F7CEEE51480C8394EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

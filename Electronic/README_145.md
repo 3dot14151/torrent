@@ -1,3 +1,61 @@
+###  Публикация: 1124863   (785665) от 12.04.2017
+
+VA - Electronic Wunderland Vol.2: 20 Chill out Master Pieces (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peewee Durante - Still Wait a Little - Original Mix
+02. Montefroid - Baby Lemonade - Original Mix
+03. Blade - Masquenada - Original Mix
+04. D-Chill - Interlude - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:39:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CFD5804C01351C600B64428AD3E36825619C0E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124726   (785661) от 12.04.2017
+
+VA - Spring Party Paradise (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Firecrash – Native 05:18
+02. Josh Nor – Dwi 05:00
+03. Forever 80 – Equivalence 05:45
+04. James Black Pitch – Captain 05:52(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 01:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:241C27F30EEC14A306F5CE2A215B9FAD2826344D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1124807   (785640) от 12.04.2017
 
 VA - Balearic Time Vol. 2 (Compiled & Mixed By Seven24) (2017) [MP3|320 Kbps] <Chillout, Downtempo>
@@ -6,7 +64,7 @@ VA - Balearic Time Vol. 2 (Compiled & Mixed By Seven24) (2017) [MP3|320 Kbps] <C
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785640.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Live in Brooklyn Output NYC (Mixed by John Digweed) (2017) [FLAC|Lossless|W
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785582.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Depeche Mode - Pop Legend: Music Legend (2000) 2CD, Bootleg [FLAC|Lossless|image
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785573.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785541.jpg" />
 </div>
 
 
@@ -119,7 +177,7 @@ VA - The Sound Of Progressive House Vol.08 (2018) [MP3|320 Kbps] <Progressive Ho
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785470.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ VA - Rhodes Journey To The Light (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785469.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ VA - Selective Deep House Vol.4 (2018) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785468.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ Occer - Imperfect (2017) Zenon Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Ps
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785467.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ VA - The Elegance Of Electronic Music - Deep House Edition #2 (2018) [MP3|320 Kb
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785463.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ VA - Civil Dance Vol.9 (2019) [MP3|320 Kbps] <House, Club, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785458.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ MRUKS - Deja VU Vol. 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785457.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ Our Lady Of The Flowers - Holiday In Thule (2019) 13 Records [FLAC|Lossless|trac
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785453.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ VA - Turn Up The Volume - Radio Versions (2019) [MP3|320 Kbps] <House, Dance, Cl
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785451.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ The Thing With Five Eyes - Noirabesque (2018) [FLAC|Lossless|Web-DL|tracks] <Dar
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785447.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ VA - Art of Lounge (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785439.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ Antendex - Take Shelter (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Acoustic>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785437.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ VA - Age Of Love 10 Years (2018) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785435.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ VA - Chillout Lovers: Introspective Chillout Sounds (2018) [MP3|320 Kbps] <Downt
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785434.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ VA - Timeless in Space: Universe Lounge Journey (2018) [MP3|320 Kbps] <Downtempo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785431.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ VA - Silk Music Pres. Talamanca 01 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785425.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ VA - Kamsutra Chillout Lounge - Spicy Sensual India Exotic Music (2019) [MP3|320
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785415.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ VA - Best of Lounge 2018: Special Selection Vol.1 [MP3|320 Kbps] <Balearic, Down
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785397.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ VA - Winter Sessions 2018 (Mixed by Milk & Sugar) (2018) [MP3|320 Kbps] <House, 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785392.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ VA - Deep House | Odyssey, Vol. 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785386.jpg" />
 </div>
 
 
@@ -684,64 +742,6 @@ VA - Deep House | Odyssey, Vol. 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1C3C736855A125587CAB4F62D45E51EA5DB55D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204117   (785384) от 04.02.2018
-
-Aelyn - Voice Of Suanda Vol. 5 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Aelyn & Feel - If You Feel Love (Original Mix)
-02.Aelyn - Game Over (Ruslan Radriges Remix)
-03.Aelyn & Universal Sense - Be Where You Are (Vocal Mix)
-04.Aelyn - Water & Fire (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:58:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:234A16E83E38ABC99EE3CD08C14C7FC54E194598
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277435   (785363) от 20.01.2019
-
-VA - Best Of 2018 (2019) [MP3|320 Kbps] <Drum & Bass, Neurofunk>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Facade - Division Of The Synth (04:36)
-02. Vecster - Critical Level (04:36)
-03. Sequential - Time Dilation (05:15)
-04. Distributor - Hypertension (05:18)(   Читать дальше...   )Жанр: Drum & Bass, NeurofunkПродолжительность: 00:50:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:755DB103C2392D362391F677234455B788901512
 ```
 
 https://mybot314.ru/tekegram_catalog/

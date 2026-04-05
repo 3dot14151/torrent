@@ -6,7 +6,7 @@ Video Gallery - HD Video Live Wallpapers 1.7 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908966.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Spritester Pixelator: Pixel Art Generator PRO 1.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908942.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Fake GPS Location v2.0.7 [En/Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908263.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Super K.O. Boxing 2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908251.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Townsmen 6 1.1.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908156.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908074.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Amazing Slow Downer 2.5.6 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907420.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907066.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906792.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ NextApp SDFix 0.7 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905675.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Digits 1.5 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905571.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Intercepter-NG 1.9 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903856.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ FP sDraw 2.1 [Программа] (Android 2.1+) /Обновлено 28.03.2013/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903792.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902556.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Fastwords - Английские карточки слов v4.4 (07.02.2015) <Ru
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902469.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901519.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901410.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Oregon Trail HD 3.2.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901222.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901064.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Hex Editor Pro 3.1.31 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901042.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900755.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Adblock Browser для Android 1.1.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900408.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ ShareDownloader 2.3.30 Pro [Unlocked] [Multi] - загрузчик файлов 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_900407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_900407.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Ravensword: Shadowlands 1.21 [ENG]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899340.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899329.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ WinZip Premium – Zip UnZip Tool 4.0.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899036.jpg" />
 </div>
 
 

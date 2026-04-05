@@ -1,3 +1,159 @@
+###  Публикация: 969732   (145154) от 28.12.2015
+
+Военная приемка. Удар главным «Калибром» (08.12.2015) HDTVRip [720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы узнаем как ведутся ракетные войны в Сирии: чем Россия наносит удары по позициям ИГИЛ и какими средствами защищается от ракет противника. Вместе со съемочной группой программы зрители впервые попадут на малые ракетные корабли проекта «Буян-М», где установлена система «Калибр» - именно этими ракетами ведется обстрел позиций боевиков с моря. Мы расскажем о прототипах (   Читать дальше...   )Еженедельная программа "Военная приемка" расскажет зрителю обо всех новинках российского оборонного комплекса. Кроме этого, особое внимание будет уделено такой важной профессии, как военный представитель - офицер, который несет перед государством ответственность за качество выпускаемой военной техники.Телекомпания: ЗвездаЖанр: ТелепередачаПродолжительность: 00:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05B6F9B2CB5BA5D8A5A0DB4598FD956C217A36A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678466   (145145) от 21.11.2023
+
+Самые красивые места планеты Земля (Удивительная дикая природа. Настоящая земля) / Real land (2023) WEBRip [VP9/2160p]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красота — понятие субъективное, однако, глядя на завораживающе красивые места на Земле, созданные самой природой, приходит осознание того, что красота — вокруг нас, и не воспринимать её невозможно. Традиционные туристические маршруты зачастую не охватывают и малой части того, что создано тандемом самых талантливых «архитекторов» — времени и природы. Обзор удивительных (   Читать дальше...   )Производство: США, Doclights, NDR NaturFilm, Nature Relaxation FilmsЖанр: документальный, видовойРежиссер: Роберт ХофмейрПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 01:05:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:812A3BA1E97609708AD93AB3AE08319AADC8DE8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087581   (145131) от 28.12.2016
+
+Вечерний Ургант (2016.12.27) SATRip (cезон 10, выпуск 75)
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145131.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:30:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82408E3B3BE27DF78F48D251DC3BE0BE836ED78B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492165   (145010) от 26.12.2021
+
+Стратегия и тактика – Константин Душенов, Андрей Фефелов (2016-2021) WEBRip (выпуски 1-333 из ??) (Обновляемая)
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145010.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жаркое, бескомпромиссное, глубокое, насыщенное фактами, аналитикой и конструктивными предложениями обсуждение в контексте православно-патриотического мировоззрения актуальных общественно-политических событий в Российской Федерации и мире блестящими публицистами и полемистами: директором агентства аналитической информации «Русь Православная» Константином Душеновым (   Читать дальше...   )Телекомпания: Агентство аналитической информации «Русь Православная»Жанр: Ток-шоу, Документальный, Политика, НовостиПродолжительность: выпуски ~00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B398E6A1B20B75025BFA896D1F19D81E5F676F87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589654   (145008) от 16.12.2012
+
+Полигон / Мост за час (2012) WEB-DLRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Построить мост через Дон длиной 500 метров за час! Эта задача кажется невыполнимой. Но только не для ведущего программы и команды из двухсот солдат. А еще на помощь "строителям" придет колонна огромных грузовиков, несущих части моста, и пара катеров.Жанр: ДокументальныйПродолжительность: 00:26:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91118FDC6EA927F543F569351BF26AFD6B00C112
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348400   (144948) от 27.12.2019
+
+Гонка против погоды / The Weather: The Race to Forecast (2018) HDTVRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Погода способна на поражающую воображение ярость. От неё то и дело жди бедствий в виде циклонов и проливных дождей по весне, иссушающей жары летом, ураганов осенью и снежных буранов долгими зимами. От этих бедствий и ужасающих последствий не скрыться нигде на Земле. А ввиду продолжающихся изменений климата, все эти явления становятся всё более необузданными и регулярными. (   Читать дальше...   )Производство: ZED, France Televisions, Planete +Жанр: ДокументальныйРежиссер: Stephane BegoinПеревод: Двуголосый профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 00:52:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D80EDDB67832F0C9F483B85C1FB6CBB103D76A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1389224   (144921) от 27.12.2020
 
 Следствие вели... (2020) WEBRip (выпуск 466-501)
@@ -6,7 +162,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144921.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144796.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144755.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144744.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144596.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144451.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144379.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144364.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144296.jpg" />
 </div>
 
 
@@ -242,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144295.jpg" />
 </div>
 
 
@@ -268,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144290.jpg" />
 </div>
 
 
@@ -294,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144236.jpg" />
 </div>
 
 
@@ -320,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144187.jpg" />
 </div>
 
 
@@ -346,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144180.jpg" />
 </div>
 
 
@@ -372,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144140.jpg" />
 </div>
 
 
@@ -398,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144136.jpg" />
 </div>
 
 
@@ -424,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144090.jpg" />
 </div>
 
 
@@ -452,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144065.jpg" />
 </div>
 
 
@@ -478,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144061.jpg" />
 </div>
 
 
@@ -504,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143929.jpg" />
 </div>
 
 
@@ -515,162 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D969DF42D95DB98B66590283A15494DB01709A4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195122   (143915) от 28.12.2017
-
-Внимание, Трэш! История Трэш-метала / Get Thrashed! The Story Of Thrash Metal (2006) WEB-DLRip [H.264] (+ Bonus)
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143915.jpg" />
-</div>
-
-
-###  Подробнее
-
-Картина повествует об эволюции, влиянии на культуру и на музыку со стороны трэш-метала — экстремальной формы хэви-метала, буквально ворвавшейся на сцену в период с начала до середины 80-х.Производство: США, Kundrat Productions, Saigon1515 ProductionsЖанр: Документальный, История, МузыкаРежиссер: Rick ErnstПеревод: Переводман, одноголосый закадровый любительский (М.Чадов)Субтитры: ОтсутствуютПродолжительность: 01:40:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA2C3E45788DBE7E141F310871A50E78036989A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195206   (143898) от 28.12.2017
-
-Девяностые. Малиновый пиджак (2017.12.27) SATRip
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143898.jpg" />
-</div>
-
-
-###  Подробнее
-
-"90-е" – это документальный фильм-расследование. Публицистический цикл рассказывает о самых значимых явлениях в жизни общества того времени, о том, что помнит каждый зритель канала "ТВ Центр": зарождение класса "новых русских", приватизация, чеченские войны, конкурсы красоты, "Аум Синрикё", "Хопёр-Инвест", криминальные (   Читать дальше...   )Телекомпания: ТВЦЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: ~ 00:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAE11C338029A5DFE1DCD0F7D665AE0B7A57D4D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435238   (143884) от 28.12.2020
-
-Новогодний голубой огонек (1983) DVDRip [H.264]
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143884.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выпуск телевизионной передачи «Голубой огонёк», посвященный встрече Нового 1983 годаПроизводство: СССР / Центральное телевидениеЖанр: ТВ-шоуСубтитры: ОтсутствуютПродолжительность: 02:24:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BB7E980016DC1D6B28244CAE15B0469DD232889
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435256   (143870) от 28.12.2020
-
-Новогодний «Голубой огонёк» (1986) DVDRip [H.264]
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выпуск телевизионной передачи «Голубой огонёк», посвященный встрече Нового 1986 годаПроизводство: СССР / Центральное телевидениеЖанр: ТВ-шоуСубтитры: ОтсутствуютПродолжительность: 03:09:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CDFAE7C6AF9A81C2E553CBDFDC423BBD6C87026
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435491   (143834) от 28.12.2020
-
-Рожденные в СССР (Новый год) (2020) WEBRip
-
->>Документалистика и Телепередачи
->>Кинолетопись Страны Советской
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143834.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Советском Союзе Новый год стал праздником в 1935 году. Появились Дед Мороз, Снегурочка и новогодняя елка, которую украшали ватой, серебряным дождиком и стеклянными игрушками. Кремлевская елка, погоня за дефицитными угощениями, оливье и селедка под шубой, советское шампанское, бенгальские огни, просмотр «Голубого огонька» и поздравительные телеграммы – неотъемлемые (   Читать дальше...   )Производство: Россия, МТРК "МИР"Жанр: Документальный, историяРежиссер: Михаил ДиговцовЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:25:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA533E07ED8FB42474EE14357FCA1FBA1751EA2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435241   (143813) от 28.12.2020
-
-Новогодний «Голубой огонёк» (1984) DVDRip [H.264]
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выпуск телевизионной передачи «Голубой огонёк», посвященный встрече Нового 1984 годаПроизводство: СССР / Центральное телевидениеЖанр: ТВ-шоуСубтитры: ОтсутствуютПродолжительность: 02:20:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:545F611440CE205A78B7DC70E4FFB69264A043F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

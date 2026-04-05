@@ -6,7 +6,7 @@ VA / ВидеоКлипы: Новинки (01.11.2011) HDTVRip 1080p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367786.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Tacabro - Asi Asi (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366309.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ JM - Pussy (Uncensored) (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365576.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Осенний марафон № 200 / Видеоклипы (Презен�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365072.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Adele - Hello (2015) WEBRip[H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365066.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ The best of Zero project (2017) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360351.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Epica - Abyss of Time - Countdown to Singularity (2020) WEB-DL [VP9/2160p-LQ] <S
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360212.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Alisher - Компромат (2012)  [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358725.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Usher - Numb (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358722.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Usher - Dive (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358716.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358546.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Ludacris - Representin (Explicit) ft. Kelly Rowland (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358544.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Ludacris - Rest Of My Life ft. Usher, David Guetta (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358366.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Nelly Furtado - Parking Lot (2012) [H.264/1080p]  HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358356.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358348.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358345.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Kelly Clarkson - Catch My Breath (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358335.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Nelly Furtado - Spirit Indestructible (2012) [H.264/1080p]  WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358229.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Alloise - Love me or leave me (2012) [H.264/1080p]  HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358221.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Robbie Williams - Candy (2012) [1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358213.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Pitbull - Get It Started ft. Shakira (2012) [H.264/1080p]  WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358211.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ No Doubt - Push And Shove ft. Busy Signal, Major Lazer (2012) [H.264/1080p] HDTV
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358056.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Kelly Rowland - ICE (Explicit) ft. Lil Wayne (2012)  [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358052.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Madonna - Turn Up The Radio (Explicit) (2012)  [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358044.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358040.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358038.jpg" />
 </div>
 
 

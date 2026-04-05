@@ -1,3 +1,29 @@
+###  Публикация: 1626806   (199763) от 16.04.2023
+
+The Gnomon Workshop, Dan Weiss | Designing & Modeling a Creature With Scales By Dan Weiss (2022) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199763.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этом 4,5-часовом семинаре Дэн объясняет, как он создает уникальный, но привлекательный дизайн существа. Он начинает с грубой концепции и уточняет ее на основе реальных примеров. Он рассказывает, как выделить существо на основе этих ссылок, и показывает, как создавать естественные формы с помощью ZBrush. Семинар проведет вас через его уникальную технику создания (   Читать дальше...   )Производство: The Gnomon WorkshopЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 04:54:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B87558363587D8350222715BB83A1C9C8D0796F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626957   (199684) от 16.04.2023
 
 Андрей Курпатов | Худеем с Андреем Курпатовым (2023) WEBRip [RU]
@@ -6,7 +32,7 @@
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199684.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199681.jpg" />
 </div>
 
 
@@ -64,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199668.jpg" />
 </div>
 
 
@@ -93,7 +119,7 @@ Proprofiling, Алексей Филатов | Тёмные люди. Пакет 
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199635.jpg" />
 </div>
 
 
@@ -121,7 +147,7 @@ Proprofiling, Алексей Филатов | Профайлинг по стра
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199626.jpg" />
 </div>
 
 
@@ -150,7 +176,7 @@ Proprofiling, Алексей Филатов | Эмоции и оценка ли�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199622.jpg" />
 </div>
 
 
@@ -176,7 +202,7 @@ Proprofiling, Алексей Филатов | Прямые и скрытые в�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199618.jpg" />
 </div>
 
 
@@ -204,7 +230,7 @@ Proprofiling, Алексей Филатов | Практикум по профа
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199513.jpg" />
 </div>
 
 
@@ -233,7 +259,7 @@ Proprofiling, Алексей Филатов | Скрытые внушения в
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199511.jpg" />
 </div>
 
 
@@ -261,7 +287,7 @@ Proprofiling, Алексей Филатов | Метапрограммы в пр
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199507.jpg" />
 </div>
 
 
@@ -289,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199489.jpg" />
 </div>
 
 
@@ -317,7 +343,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199413.jpg" />
 </div>
 
 
@@ -343,7 +369,7 @@ Openschool, Олег Самойлов, Ксения Соловьева | Фот�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199395.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ CG Fast Track | Geometry Nodes Boot Camp Vol. 1 (Blender 3.4) (2023) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199347.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199294.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ Foxford (Фоксфорд), Анна Емельянова | Мастерство
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199222.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199215.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199207.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ Dolgov Drums, Михаил Долгов | Курс для начинающих �
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199197.jpg" />
 </div>
 
 
@@ -540,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199158.jpg" />
 </div>
 
 
@@ -569,7 +595,7 @@ ProDispatch-School, Д. Демишев | Как Стать Диспетчеро�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199148.jpg" />
 </div>
 
 
@@ -598,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199144.jpg" />
 </div>
 
 
@@ -626,7 +652,7 @@ ELT University, Марина Мищерикова | WOW-активности д�
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199140.jpg" />
 </div>
 
 
@@ -654,7 +680,7 @@ Udemy, Joakim Tornhill | The Blender Path to Procedural Patterns! (2020) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199123.jpg" />
 </div>
 
 
@@ -681,7 +707,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199109.jpg" />
 </div>
 
 
@@ -692,34 +718,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2930769E38D02A0AC5CBEC92D44AF339FB6AB86E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630120   (199100) от 29.04.2023
-
-Онлайн школа SpeakGood | Голос как бренд (2019) CamRip [AD] [RU]
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_199100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это пошаговый онлайн тренинг.
-
-Вы получите все необходимые навыки дикторского мастерства, техники речи и правильного дыхания, которые помогут Вам начать работать у микрофона в качестве диктора (радио, TV, YouTube). Также у Вас будет возможность озвучить свой любимый фильм или голливудского героя, прикоснуться к профессии актёр дубляжа.Жанр: психология общения, межличностные коммуникации, ораторское искусствоЯзык озвучки: русскийПродолжительность: 06:31:59Реклама: cторонние вставки и наложения на видео (водяной знак спонсора)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E90892BE972718C948BD926E14B84EA0BC1DD963
 ```
 
 https://mybot314.ru/tekegram_catalog/

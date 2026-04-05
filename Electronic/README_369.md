@@ -1,3 +1,117 @@
+###  Публикация: 1263044   (291078) от 17.11.2018
+
+Нейромонах Феофан - Тьма во мне (2018) Single [MP3|320 Kbps] <Drum & Bass, Electronic>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291078.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Вне контекста мини-альбомов этого года, хочу пред грядущим туром порадовать вас двумя новыми песнопениями, что также войдут в программу плясок «Вече»."1. Тьма во мне
+2. Быть вьюгойЖанр: Drum & Bass, ElectronicПродолжительность: 00:07:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23120BE483D7FE7AD716BDB92334F3E49A0C8B5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262954   (291069) от 17.11.2018
+
+VA - The Underground Guide, Vol. 10 (2018) [MP3|320 Kbps] <Electro House, Progressive House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saschienne – Grand Cru (Pachanga Boys Glam Drive)
+02. Emery Warman – Bounce Is Back
+03. DJ Fronter – Warning (Nico Cabeza Remix)
+04. Alberto Santana – Imagine (Juanjo Tur Remix)(   Читать дальше...   )Жанр: Electro House, Progressive House, Tech HouseПродолжительность: 03:01:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D58E56D9BA22FD6AFDA4B4847545E462AE05CFC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962153   (290978) от 06.12.2015
+
+Sigma - Life  (2015) (Deluxe Edition) [MP3|320 кб/с]<Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Redemption (with Diztortion feat. Jacob Banks)
+02. Slow Down (feat. Jetta)
+03. Higher (feat. Labrinth)
+04. Life (feat. Bartoven)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:36:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:444897E9D733796C1B79EB78B3A4A7160689E210
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963001   (290744) от 06.12.2015
+
+Enei - Rituals LP (2015) (Beatport Edition)  [MP3|320 кб/с]<Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Vertigo
+03. Bad Proof
+04. Iron Curtain(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:13:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FEF5AD5B4554DF7ED9B209AFE777ECEC7530E0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1080345   (290419) от 06.12.2016
 
 VA - Chillout December 2016 Top 10 December Relaxing Chill Out and Lounge Music (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -6,7 +120,7 @@ VA - Chillout December 2016 Top 10 December Relaxing Chill Out and Lounge Music 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290419.jpg" />
 </div>
 
 
@@ -35,7 +149,7 @@ VA - I Know Your Love Chillout (2016) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290414.jpg" />
 </div>
 
 
@@ -64,7 +178,7 @@ VA - Absolute Uplifter (Euphoric Trance) Vol. 2 (2016) [MP3|320 Kbps] <Uplifting
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290413.jpg" />
 </div>
 
 
@@ -93,7 +207,7 @@ VA - Laid-Back Lounge Vibes Vol.5 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290405.jpg" />
 </div>
 
 
@@ -122,7 +236,7 @@ Koan - Condemned (2016) [MP3|320 Kbps] <Ambient, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290345.jpg" />
 </div>
 
 
@@ -151,7 +265,7 @@ VA - Silent Night: Beautiful Instrumental Smooth Jazz Songs for Deep Relaxation 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290334.jpg" />
 </div>
 
 
@@ -180,7 +294,7 @@ VA - Mi Casa Es Su Casa (Mixed And Compiled by UNER, Coyu, Edu Imbernon) - 2010 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290286.jpg" />
 </div>
 
 
@@ -206,7 +320,7 @@ VA - Ori Uplift & Shimotsukei - Uplifting Only 301 (2018) [MP3|320 Kbps] <Trance
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290035.jpg" />
 </div>
 
 
@@ -235,7 +349,7 @@ VA - ReOrder - Iamready (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290031.jpg" />
 </div>
 
 
@@ -264,7 +378,7 @@ VA - Trance Connection Vol.1 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290018.jpg" />
 </div>
 
 
@@ -293,7 +407,7 @@ VA - Vocal Trance Gems: Best of (2017) [MP3|320 Kbps] <Trance,Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289950.jpg" />
 </div>
 
 
@@ -322,7 +436,7 @@ VA - In Disco We Trust Vol. 2 (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289946.jpg" />
 </div>
 
 
@@ -351,7 +465,7 @@ VA - Aly & Fila - Future Sound Of Egypt 523 (2017) [MP3|320 Kbps] <Trance, Uplif
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289944.jpg" />
 </div>
 
 
@@ -380,7 +494,7 @@ ReOrder - Beyond Time (2018) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289924.jpg" />
 </div>
 
 
@@ -406,7 +520,7 @@ VA - 538 Dance Smash Hits Of The Year (2014) 3CD[FLAC|Lossless]<House,  Dance, T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289848.jpg" />
 </div>
 
 
@@ -436,7 +550,7 @@ VA - Ahmed Romel - Orchestrance 215 (2017) [MP3|320 Kbps] <Trance, Uplifting Tra
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289834.jpg" />
 </div>
 
 
@@ -465,7 +579,7 @@ VA - A State of Trance: Future Favorite - Best of (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289831.jpg" />
 </div>
 
 
@@ -494,7 +608,7 @@ Ultravox - Extended (2018) [MP3|320 Kbps] <Synthpop, New Wave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289768.jpg" />
 </div>
 
 
@@ -523,7 +637,7 @@ Camouflage - Voices & Images (2018) 2CD, 30th Anniversary Limited Edition, RE. R
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289755.jpg" />
 </div>
 
 
@@ -552,7 +666,7 @@ VA - Hardstyle The Annual 2019 (2018) [MP3|320 Kbps] <Techno, Hardstyle>
 >>Hardstyle, Jumpstyle, Hardcore
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289608.jpg" />
 </div>
 
 
@@ -581,7 +695,7 @@ U96 ft. DJ T.H. and Nadi Sunrise - Das Boot (2018) [FLAC|Lossless|WEB-DL|tracks]
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289600.jpg" />
 </div>
 
 
@@ -610,7 +724,7 @@ VA - Supreme Relax, Vol.4 (2019) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289593.jpg" />
 </div>
 
 
@@ -624,122 +738,6 @@ VA - Supreme Relax, Vol.4 (2019) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6972EDC035422C12EC8CCCFC657559596F648119
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186094   (289526) от 23.11.2017
-
-Purple Disco Machine - Soulmatic (2017) [FLAC|Lossless|WEB-DL|tracks] <House, Nu Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Purple Disco Machine feat. Lorenz Rhode - Music in You (4:31)
-02. Purple Disco Machine - Body Funk (4:17)
-03. Purple Disco Machine & Boris Dlugosch feat. Karen Harding - Love for Days (3:16)
-04. Purple Disco Machine feat. CeeLo Green - Pray for Me (5:42)(   Читать дальше...   )Жанр: House, Nu DiscoПродолжительность: 01:03:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB7B661BEDCF51EB034C6B9601BC3A7CD9233C5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963243   (289448) от 07.12.2015
-
-Matt Pincer - The NRG Collection (2015) [MP3|320 кб/с]<Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. NRG (7:34)
-02. Moorea (By Night Mix) (6:56)
-03. Sunrise in London (Gizi's Radio Edit) (2:55)
-04. Club Nation Anthem (6:13)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:10:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1A69CB374FACAD0CBF5172EF48F3971550321FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963278   (289443) от 07.12.2015
-
-VA - Recoverworld Radio 003 (Mixed by Rich Smith) (2015) [MP3|320 кб/с]<Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manuel Le Saux - Bodhisattva (Original Mix) (6:38)
-02. Liam Wilson & Grez Turner - The Optimist (Original Mix) (8:00)
-03. Billy Rutts - Alpha Male (Original Mix) (7:20)
-04. Lost Man - Destination Nowhere (Original Mix) (7:25)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:13:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8785FB0C1FB8261F6DEC9E4D85B84C201AD96CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963255   (289434) от 07.12.2015
-
-VA - Techno Club Vol. 48 (Mixed By Talla 2XLC & Menno De Jong) (2015) [MP3|320 кб/с]<Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Menno De Jong - Sunleaf (Intro) (1:25)
-02. Neelix - People (Original Mix) (6:46)
-03. Transwave - Land Of Freedom (Liquid Soul Remix) (6:35)
-04. Menno De Jong - Abhyasa (Alex Di Stefano Remix) (4:58)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:18:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E55677CC85B035867CE70A9C2FC3C1122144D313
 ```
 
 https://mybot314.ru/tekegram_catalog/

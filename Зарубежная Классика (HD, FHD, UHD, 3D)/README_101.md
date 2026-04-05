@@ -1,3 +1,108 @@
+###  Публикация: 1775198   (29792) от 25.01.2025
+
+Близнец / Le Jumeau (1984) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29792.jpg" />
+</div>
+
+
+###  Подробнее
+
+По книге американского писателя Дональда Уэстлейка «Двое — это слишком» (англ. Two Much)... Проигравшись в карты, Маттиас Дюваль, владелец небольшой фирмы по производству открыток «Безумный Джокер», вынужден искать временное пристанище у своего друга на Лазурном Берегу, где знакомится с красивой американкой Лиз Кёрнер, и вскоре они оказываются в постели. На следующее (   Читать дальше...   )Производство: Франция / Fideline Films, Films de la GuévilleЖанр: комедияРежиссер: Ив РоберАктеры: Пьер Ришар, Жан-Пьер Кальфон, Камилла Мор, Кэри Мор, Жак Франц, Франсуаза Дорнер, Жан-Пьер Кастальди, Поль Ле Персон, Изабель Страва, Жан-Клод Буйо, Анри Лабюсьер, Поль Клодон, Джеральд Калдерон, Ален Уйлеброк, Андреа ФерреольПеревод: профессиональный многоголосый (ТВЦ; CP-Digital) , авторский (Сергей Дьяков)Язык озвучки: русский, французскийСубтитры: русскиеПродолжительность: 01:49:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A70C0C0A4FC9E54663324F88AD448E3AF583E381
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775215   (29428) от 29.01.2025
+
+Близнец / Le Jumeau (1984) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29428.jpg" />
+</div>
+
+
+###  Подробнее
+
+По книге американского писателя Дональда Уэстлейка «Двое — это слишком» (англ. Two Much)...
+Проигравшись в карты, Маттиас Дюваль, владелец небольшой фирмы по производству открыток «Безумный Джокер», вынужден искать временное пристанище у своего друга на Лазурном Берегу, где знакомится с красивой американкой Лиз Кёрнер, и вскоре они оказываются в постели. На следующее (   Читать дальше...   )Производство: Франция / Fideline Films, Films de la GuévilleЖанр: комедияРежиссер: Ив РоберАктеры: Пьер Ришар, Жан-Пьер Кальфон, Камилла Мор, Кэри Мор, Жак Франц, Франсуаза Дорнер, Жан-Пьер Кастальди, Поль Ле Персон, Изабель Страва, Жан-Клод Буйо, Анри Лабюсьер, Поль Клодон, Джеральд Калдерон, Ален Уйлеброк, Андреа ФерреольПеревод: профессиональный многоголосый (ТВЦ; CP-Digital) , авторский (Сергей Дьяков)Язык озвучки: русский, французскийСубтитры: русскиеПродолжительность: 01:49:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98FFB208E0AEDE67F0B30A8D62B1056D68AA5E51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775997   (29409) от 29.01.2025
+
+История греха / Dzieje grzechu (1975) BDRip [H.264/720p] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29409.jpg" />
+</div>
+
+
+###  Подробнее
+
+История Евы, девушки из обедневшей шляхетской семьи, которая ради страсти пошла на убийство и занятие проституцией. Она путешествует по Европе в поисках своего возлюбленного и переживает множество трагических приключений, поскольку окружающие её мужчины пытаются втянуть её в свои эгоистичные планы...Производство: Польша / Студия «ПРФЗФ», Zespol Filmowy "Tor"Жанр: драмаРежиссер: Валериан БоровчикАктеры: Гражина Длуголеска, Иржи Зелник, Олгерд Лукашевич, Роман Вильгельми, Марек БаргеловскиПеревод: авторский (Антон Алексеев)Язык озвучки: русский, польскийСубтитры: английскиеПродолжительность: 02:10:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57CF17D85C9AE23AFB8E0945E6CC7783C1D3496C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775549   (29165) от 31.01.2025
+
+Влюблённые одни на свете / Les amoureux sont seuls au monde (1948) BDRip [H.264/720p] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Композитор Жерар Фавье обожает свою жену Сильвию. Однажды супруги знакомятся с молодой пианисткой Монель, которая большая поклонница Фавье. Музыкант берёт девушку под своё крыло и приводит к успеху. Тем временем, скандальная газета сообщает о любовной связи между композитором и его протеже. Информация не соответствует действительности, но Монель начинает мечтать, (   Читать дальше...   )Производство: Франция / CICC, Credit National, Les Productions Jacques RoitfeldЖанр: драма, мелодрама, музыкаРежиссер: Анри ДекуанАктеры: Луи Жуве, Рене Девилле, Дани Робен, Фернан Рене, Филипп Нико, Жанин Вьено, Брижитт Обер, Морис Лагринэ, Эмиль Дран, Жан Ле Форт, Люсьен Кароль, Шарль Виссьере, Филипп Лемэр, Жан Эзе, Жак ПровансПеревод: любительский одноголосыйЯзык озвучки: русский, французскийСубтитры: русские (на песни и полные - Дмитрий Пестриков; Linda-Линда), английскиеПродолжительность: 01:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F9A27B2805CC08FA92D1B2505B323A11E568F97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776982   (28815) от 03.02.2025
 
 Связь / Bound (1996) UHD BDRip [H.265/1080p] [10-bit] [Unrated] [Criterion Collection]
@@ -6,7 +111,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28815.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28703.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28553.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28519.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28499.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28019.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27494.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27033.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26522.jpg" />
 </div>
 
 
@@ -240,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26498.jpg" />
 </div>
 
 
@@ -266,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26429.jpg" />
 </div>
 
 
@@ -292,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26303.jpg" />
 </div>
 
 
@@ -319,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26184.jpg" />
 </div>
 
 
@@ -345,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25469.jpg" />
 </div>
 
 
@@ -371,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25360.jpg" />
 </div>
 
 
@@ -398,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25183.jpg" />
 </div>
 
 
@@ -424,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25148.jpg" />
 </div>
 
 
@@ -450,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24870.jpg" />
 </div>
 
 
@@ -476,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24862.jpg" />
 </div>
 
 
@@ -502,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24705.jpg" />
 </div>
 
 
@@ -528,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24692.jpg" />
 </div>
 
 
@@ -554,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24659.jpg" />
 </div>
 
 
@@ -565,110 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D240F0631524521F6C7F1A170A7DAE91C06B16BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919294   (24639) от 15.03.2025
-
-Пасхальный парад / Easter Parade (1948) BDRip [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дон Хьюз танцует дуэтом с Надин Хэйл, однако буквально накануне традиционного ежегодного пасхального шоу Надин объявляет, что начинает сольную карьеру. Дон не стал впадать в отчаянье и взял себе новую партнершу — Ханну Браун, чтобы через год показать вместе с ней свой новый танцевальный номер на пасхальном шоу. Их выступление произвело настоящий фурор и им предложили (   Читать дальше...   )Производство: США / Metro-Goldwyn-MayerЖанр: Мюзикл, МелодрамаРежиссер: Чарльз УолтерсАктеры: Джуди Гарлэнд, Фред Астер, Питер Лоуфорд, Энн Миллер, Джулс Маншин, Клинтон Сандберг, Ричард Биверс, Джон Олбрайт, Лола Олбрайт, Ширли Баллар.Перевод: Многоголосый закадровыйЯзык субтитров: АнглийскийПродолжительность: 01:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8B7FBC2512F1F5FF9CADB19403B9A3F6F825174
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248174   (22875) от 01.04.2025
-
-Ловушка для родителей / The Parent Trap (1961) BDRemux [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Две девочки-двойняшки, похожие друг на друга, как две капли воды добиваются того, чтобы их разведенные родители соединились вновь после 14 лет развода. До этого моменты сестры были разлучены, не зная того. Но они случайно встречаются в летнем лагере.Производство: США, Walt Disney ProductionsЖанр: Мелодрама, Комедия, СемейныйРежиссер: Дэвид СвифтАктеры: Хейли Миллз, Морин О’Хара, Брайан Кит, Чарльз Рагглз, Уна Меркел, Лео Г. Кэррол, Джоэнна Барнс, Кэтлин Несбит, Рут МакДевитт, Крэхан ДентонПеревод: Многоголосый закадровый, одноголосый закадровыйСубтитры: АнглийскиеПродолжительность: 02:09:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CC4AC7620F1F84130DFA45C325E266877EBBF2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471763   (22869) от 01.04.2025
-
-Кто подставил кролика Роджера / Who Framed Roger Rabbit (1988) UHD BDRip [H.265/1080p] [10-bit]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Частный детектив расследует загадочное преступление, в котором подозревается… мультипликационный персонаж кролик Роджер! Сыщик попадает в непредсказуемый мир, где его ожидают нарисованные злодеи с настоящими револьверами, говорящий автомобиль и соблазнительная мультяшная красотка. Наконец, на горизонте появляется мрачная фигура того, кто подставил кролика Роджера.Производство: США, Великобритания / Amblin Entertainment, Silver Screen Partners III, Touchstone Pictures, Walt Disney Feature AnimationЖанр: мультфильм, фэнтези, комедия, криминалРежиссер: Роберт ЗемекисАктеры: Боб Хоскинс, Кристофер Ллойд, Джоанна Кэссиди, Чарльз Флайшер, Стабби Кэй, Алан Тилверн, Ричард ЛеПарментье, Лу Хирш, Бетси Брэнтли, Джоэл СилверПеревод: дублированный профессиональный (Blu-Ray), профессиональный многоголосый (Киномания, FDV, Так Треба Продакшн), профессиональный двухголосый (Видеосервис), авторский (Андрей Гаврилов, Юрий Живов, Алексей Михалёв, Вячеслав Котов, Вячеслав Козлов, Витя-Говорун, Cергей Авдеенко), любительский одноголосый (Неизвестный #1, Неизвестный #2)Язык озвучки: русский, украинский, английскийСубтитры: русские (full, forced), украинские, английские (SDH)Продолжительность: 01:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C0EEF93B6D2A0B3121850CDA0B9292D83F6F8B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710095   (22819) от 01.04.2025
-
-В компании с Максом Линдером / En compagnie de Max Linder (1921-1922, 1963)  BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот фильм с большим успехом шёл в советском кинопрокате в 60-70хх годах. Макс Линдер – без сомнения, великий комик, его искусство не казалось устаревшим тогда, не кажется и теперь. Фильм представляет собой сборник из трёх кинокартин Линдера. Две из них – "Будьте моей женой" (1921) и "Семь лет несчастья" (1921) как бы взаимоувязаны – Макс добивается (   Читать дальше...   )Производство: Франция / Max Linder Productions, Films Max LinderЖанр: комедияРежиссер: Мод ЛиндерАктеры: Рене Клер, Макс Линдер и др.Перевод: НемойЯзык озвучки: Французский, английскийСубтитры: РусскиеПродолжительность: 01:27:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:863676B6AFB2D283CD55AA1D55D0FE32721979B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

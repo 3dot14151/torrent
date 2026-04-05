@@ -1,3 +1,159 @@
+###  Публикация: 1597139   (167490) от 13.12.2022
+
+Великий Будда+ / The Great Buddha+ (2017) BDRip [H.264/720p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Притча о «маленьких людях». «Маленькие люди» — традиционное обозначение слоёв, занимающих самый низ социальной лестницы на Тайване. К ним не обращаются по имени, только по прозвищу. Пупок — мусорщик. Работает на свалке, живёт на свалке, выживает за счёт свалки. Огурчик — сторож на небольшом литейном заводике, где льют бронзовые статуи на заказ. Хозяин фабрики Кевин, (   Читать дальше...   )Производство: Тайвань, A-Yao Film, Cream Film Production, Mandarin Vision, Ocean Deep Films, Triple Film HouseЖанр: драма, комедия, криминалРежиссер: Хуан СиньяоАктеры: Крес Чуан, Бамбу Чэнь, Леон Дай, Майкл Чан, Чэнь Ивэнь, На До, Тин Колинь, Ли Юн Фон, Юэ-Синь Чу, Ж.К. ЛейПеревод: любительский многоголосый (Head Pack Films по субтитрам студии FOCS), любительский двухголосый (ТО Храм тысячи струн по субтитрам Alfar Ljos-Dokk, с ненормативной лексикой)Субтитры: русские (FOCS; Alfar Ljos-Dokk, с ненормативной лексикой), английскиеПродолжительность: 01:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8341E99505F91354366E3549D5D39398E4C4D35D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597173   (167192) от 13.12.2022
+
+Чжун Куй: Снежная дева и тёмный кристалл / Zhong Kui fu mo: Xue yao mo ling / Snow Girl and the Dark Crystal (2015) BDRip [H.264/1080p-LQ] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой человек Чжун Куй — в поздней китайской мифологии повелитель демонов, а к началу эпохи Тан Чжун Куй превратился из божества, оберегающего от злых сил, в божество, усмиряющее и истребляющее демонов — наделённый таинственными силами вынужден сражаться с духами Неба, Земли и Ада ради спасения своих соотечественников и любимой женщины…Производство: Китай, Гонконг, США / Desen International Media, Enlight PicturesЖанр: фэнтези, приключенияРежиссер: Питер Пау, Чжао ТяньюйАктеры: Чэнь Кунь, Ли Бинбин, Уинстон Чао, Ян Цзышань, Бао Бэйэр, Джайк Цзюньи, Хуан Хуань, Вэньбо Ло, Иди Хоу, Мадина МеметПеревод: Любительский многоголосый, закадровый (GREEN TEA)Субтитры: Русские (forced), английскиеПродолжительность: 01:57:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5F5D9F716EDBD1BDDBD35E369CC97B45BED2A63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345289   (167134) от 14.12.2019
+
+Тихая семья / Joyonghan gajok / The Quiet Family (1998) BDRip [H.265/1080p-LQ] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167134.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пожилая пара с тремя взрослыми детьми и братом мужа приобрела большой дом рядом с горой в надежде на перспективный доход от туристов и строящуюся рядом дорогу. Время идёт, туристов нет. Но вот появляется первый клиент — платит, отправляется в свой номер, а на следующее утро хозяева находят его мёртвым. Бедолага покончил с собой, и чтобы не портить репутацию гостинице, (   Читать дальше...   )Производство: Корея Южная / Myung Film Company Ltd.Жанр: Комедия, КриминалРежиссер: Ким Джи-унАктеры: Пак Ин-хван, На Мун-хи, Сон Кан-хо, Чхве Мин-сик, Ко Хо-гён, Ли Юн-сон, Чхве Чхоль-хо, Ки Джу-бон, Чан Га-хён, Чон Джэ-ёнПеревод: Одноголосый любительский x2Субтитры: английские (хардсаб)Продолжительность: 01:38:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:652572B726378FD08FBDC61BE036053B318208CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516214   (166760) от 10.12.2021
+
+Холодная рыба / Tsumetai nettaigyo (2010) BDRip [H.264/720p] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из-за того что дочь попалась на магазинной краже, тихому владельцу магазина аквариумных рыбок Нобуюки Сямото приходится наладить контакт с владельцем другого такого же магазина - Юкио Муратой. Сначала общение вполне складывается, они дружат семьями, но вскоре Мурата начинает медленно, но верно переходить границы вежливого и оказывать давление на нового знакомого (   Читать дальше...   )Производство: Япония, Nikkatsu Corporation, Stairway, Toho CompanyЖанр: драма, криминал, триллерРежиссер: Сион СоноАктеры: Мицуру Фукикоси, Дэндэн, Асука Куросава, Мэгуми Кагурадзака, Хикари Кадзивара, Тэцу Ватанабэ, Макото Асикава, Лорена Кото, Масаки Миура, Дзёнмён ПеПеревод: любительский одноголосый (den904)Субтитры: русские (morning), английскиеПродолжительность: 02:26:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38E97D76C0182EE2E60D0E501F5F23C13B4CB674
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431542   (166747) от 14.12.2020
+
+47 преданных ронинов (Тюсингура) / Chushingura / The Loyal 47 Ronin (1958) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта история произошла в царствование 5-го сёгуна из династии Токугава. В 1701 году даймё Асано Наганори из города Ако был назначен для приёма двух императорских послов во дворец сёгуна. Перед церемонией Асано Наганори должен был получить наставления у Киры Ёсинака, чиновника, который являлся потомственным знатоком церемоний высшего ранга. Тот имел славу мздоимца (   Читать дальше...   )Производство: Япония, Daiei StudiosЖанр: ДрамаРежиссер: Кунио ВатанабэАктеры: Кадзуо Хасэгава, Синтаро Кацу, Кодзи Цурута, Раидзо Итикава, Матико Кё, Фудзико Ямамото, Митиё Когурэ, Тикагэ Авасима, Аяко Вакао, Осаму ТакидзаваПеревод: Многоголосый любительский (STEPonee)Субтитры: Русские (дед_сто_лет©), английскиеПродолжительность: 02:43:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA7CBAACF1CDA836CF03A3E8E409A075827C67F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431566   (166702) от 14.12.2020
+
+Вихрь (Водоворот) / Ting er zou xian / Vortex (2019) WEBRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Место действия – город Чунцин, в котором живёт простой автомеханик и один его знакомый, занимающийся продажей подержанных автомобилей. Их афера с угоном уже кому-то проданной машины для её следующей продажи неожиданно оборачивается ещё и похищением ребёнка. Поэтому, кроме машины теперь можно поживиться и немаленьким выкупом. Но потерявшие только что купленный автомобиль (   Читать дальше...   )Производство: Китай, Hei Ma Yi (Shanghai) Pictures, Hehe (Shanghai) Pictures, Shannan Enlight PicturesЖанр: Драма, криминал, триллерРежиссер: Джеки ГаньАктеры: Да Пэн, Охо Оу, Ли Мэн, Цао Бинкунь, Ша Баолян, Цао Вэйюй, Одри До, Чжан Нинцзян, Ся Энь, Ли ШэнъПеревод: Одноголосый любительский (Franek Monk)Субтитры: АнглийскиеПродолжительность: 01:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2DE5E5C66E9B3499DCEF3FE80ABFA07C466A0C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516647   (165285) от 12.12.2021
 
 Посылки от папы / Xinling shizhong / Packages from Daddy (2016) WEB-DL [H.264/1080p] [AVO]
@@ -6,7 +162,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165285.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165103.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165025.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164366.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164206.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163902.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163878.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163865.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163773.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163691.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162952.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162727.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162711.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162521.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161853.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161651.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161620.jpg" />
 </div>
 
 
@@ -448,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161615.jpg" />
 </div>
 
 
@@ -474,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161549.jpg" />
 </div>
 
 
@@ -500,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160980.jpg" />
 </div>
 
 
@@ -511,162 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F2253DFA326C067E7A990772C178BE5A13D284A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599367   (159719) от 23.12.2022
-
-Большая четвёрка / The Big Four (2022) WEBRip [H.264/720p] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159719.jpg" />
-</div>
-
-
-###  Подробнее
-
-детектив расследует смерть своего отца и отправляется за подсказкой на отдаленный тропический остров, где узнает, что он был лидером группы наемных убийц. Теперь за ней охотятся его враги, и ей приходится объединиться с мошенниками, которых тренировал её отец, - четырьмя отставными убийцами, которым не повезло и которые жаждут вернуться в игру.Производство: Индонезия / Frontier PicturesЖанр: боевик, комедия, криминалРежиссер: Тимо ТьяджантоАктеры: Абимана Арьясатья, Путри Марино, Лутеша, Арие Критин, Кристо Иммануэль, Marthino Lio, Michelle Tahalea, Kho Michael, Буди РосПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: Русский, АнглийскийСубтитры: русские, украинские, английские (Forced, Full, SDH)Продолжительность: 02:21:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1214B45249EC3222FBF1053140570F6FED861EB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599349   (159718) от 23.12.2022
-
-Большая четвёрка / The Big Four (2022) WEB-DL [H.264/1080p] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159718.jpg" />
-</div>
-
-
-###  Подробнее
-
-детектив расследует смерть своего отца и отправляется за подсказкой на отдаленный тропический остров, где узнает, что он был лидером группы наемных убийц. Теперь за ней охотятся его враги, и ей приходится объединиться с мошенниками, которых тренировал её отец, - четырьмя отставными убийцами, которым не повезло и которые жаждут вернуться в игру.Производство: Индонезия / Frontier PicturesЖанр: Боевик, комедия, криминалРежиссер: Тимо ТьяджантоАктеры: Абимана Арьясатья, Путри Марино, Лутеша, Арие Критин, Кристо Иммануэль, Marthino Lio, Michelle Tahalea, Kho Michael, Буди РосПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:21:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:288A2F6D0CD74FFD6D4700F1FAE012A8811AEC0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599921   (159151) от 25.12.2022
-
-Признание / Jabaek / Confession (2022) WEB-DL [H.264/1080p] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой бизнесмен обвиняется в убийстве любовницы. Ему на помощь приходит лучшая адвокатесса страны.Производство: Корея Южная / Lotte Entertainment, Realies PicturesЖанр: триллер, криминал, детективРежиссер: Юн Джон-сокАктеры: Со Джи-соп, Ким Юн-джин, Нана, Пак Хён-сук, Хван Сон-хи, Чхве Гван-иль, Хон Со-джунПеревод: Двуголосый любительский (RealFake)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:45:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7741323B9CDE565CFB5F7EAA483F83457BAB7BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967725   (158332) от 21.12.2015
-
-Даосский маг Чон У Чхи / Woochi (2009) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Примерно 500 лет назад в государстве Чосон произошло из ряда вон выходящее событие. Волшебная флейта, одно из величайших сокровищ страны, была похищена и оказалась в руках у злого чудовища. Небожители не могли остаться в стороне: они помогли побороть монстра и, чтобы защитить чудесный музыкальный инструмент от подобных посягательств в будущем, разделили его на две (   Читать дальше...   )Производство: Корея Южная / BK Pictures, CJ EntertainmentЖанр: Фэнтези, Боевик, Комедия, ПриключенияРежиссер: Чхве Дон ХунАктеры: Ким Юн Сок, Им Су Чон, Кан Дон Вон, Ём Чон А, Ким Хё Чжин, Пэк Юн Сик, Сон Ён ЧанПеревод: Двуголосый закадровый, любительский (Ворон и MezIdA)Язык субтитров: ОтсутствуютПродолжительность: 02:15:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B8B43F5C5730A241361304496F098A58B840DB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968016   (158140) от 22.12.2015
-
-Преисподняя мертвых / Z airando (2015) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя десять лет, глава клана якудза Хироя Мунакава (Шо Айкава), встречает своего верного соратника Такаши (Цуруми Синго) из тюрьмы. Парень принял удар вместо него, так что босс присматривал за его женой и дочерью, пока он отбывал срок. Но дочь Такаши, не желая встречаться с отцом, вместе со своей подругой сбежала на остров Зени. Однако, в это время на остров обрушилась (   Читать дальше...   )Производство: Япония / Kadokawa Daiei Studios, Nishimura Motion Picture Model Makers GroupЖанр: Ужасы, БоевикРежиссер: Хироси СинагаваАктеры: Сё Айкава, Дайго, Кунихиро Кавасима, Шунсуке Кадзама, Ючи Кимура, Ёскэ Кубодзука, Даизуке Миягава, Эрина Мизуно, Хидео НаканоПеревод: Двуголосый закадровый, любительскийЯзык субтитров: ОтсутствуютПродолжительность: 01:48:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F510D1508EEAF589F43702DF1B5A3910F640F21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193822   (158033) от 23.12.2017
-
-Токийский гуль / Tokyo guru (2017) BDRip [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158033.jpg" />
-</div>
-
-
-###  Подробнее
-
-На студента Кэна Канэки напал гуль. Парню удалось спастись, когда на монстра упала металлическая конструкция и убила его. Обоих доставляют в больницу и Кэну пересаживают органы гуля.Производство: Япония / Geek SightЖанр: ужасы, фантастика, триллер, драмаРежиссер: Кэнтаро ХагивараАктеры: Масатака Кубота, Фумика Симидзу, Нобуюки Судзуки, Хиёри Сакурада, Ю Аои, Сёко Аида, Миносукэ Бандо, Данкан, Сэйка Фурухата, Кэнта ХаманоПеревод: двуголосый закадровый (den904 & DeadSno)Субтитры: английские, китайскиеПродолжительность: 01:59:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79A5447C113266F56E63C393364A083C473216C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

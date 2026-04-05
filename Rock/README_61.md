@@ -6,7 +6,7 @@ Rod Stewart - Another Country (2015) Deluxe Edition [MP3|320 кб/с]<Hard Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379372.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Stratovarius - Episode (1996) Reissue, 2002, Victor [OGG Vorbis|485 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379347.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Handwrist - Green Tourist (2016) [MP3|320 Kbps] <Psychedelic, Post-Rock, Progres
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378450.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Ariel Pink's Haunted Graffiti - Mature Themes (2012) [MP3|320 кб/с]<Psychedel
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378423.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ VA - MOJO Presents. Let It Be. Revisited (tribute) (2010) [MP3|320 кб/с]<Clas
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377416.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ VA - Mojo presents. Return To The Dark Side Of The Moon (2011) [MP3|320 кб/с]
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377338.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Wired Ways - Wired Ways (2022) [MP3|320 Kbps] <Retro Prog, Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377201.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Northern Revival - Modification (2022) [MP3|320 Kbps] <Heavy Rock, Stoner, Sludg
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377200.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Stratovarius - Visions (1997) Remastered, 1997, T&T [OGG Vorbis|485 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377199.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ High Tone Son of a Bitch - Live At The Hallowed Halls (2022) [MP3|320 Kbps] <Hea
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377198.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Skid Row - The Gang's All Here (2022) [MP3|320 Kbps] <Hard Rock, Glam Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377003.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ KMFDM - Hyena (2022) [MP3|320 Kbps] <Progressive Rock, Industrial Rock, Electro-
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377002.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Weddings - Book of Spells (2022) [MP3|320 Kbps] <Heavy Psych, Stoner, Grunge>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376997.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Abrams - In The Dark (2022) [MP3|320 Kbps] <Stoner Rock, Heavy Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376992.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Scream Of The Butterfly - 2 Albums (2020-2022) [MP3|320 Kbps] <Heavy Stoner Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376916.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Jimmy Barnes - The Rhythm And The Blues (2009) [MP3|320 кб/с]<Rock | Soul | B
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376231.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Stratovarius - Destiny (1998) [OGG Vorbis|485 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375485.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Slade - The Hucknall Miners' Welfare Club (2022) Live [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375398.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Slade - Alive! At Reading (2022) Live [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375387.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Slade - The New Victoria (2022) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375224.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Weary Eyes - How To Leave Places (2015) [MP3|320 кб/с]<Post Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375119.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Suzi Quatro - Suzi Quatro (1973) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375088.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Flash the Readies - Kayos (2016) [MP3|320 Kbps] <Progressive Rock, Post-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373958.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Queen - On Air (2016) Live [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373544.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ Stratovarius - Twilight Time (1992) Remastered, 1993, Victor [OGG Vorbis|485 Kbp
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373364.jpg" />
 </div>
 
 
@@ -743,7 +743,7 @@ VA - Running with Rock!!! 2018 Session [MP3|320 Kbps] <Rock, Miscellaneous>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373185.jpg" />
 </div>
 
 

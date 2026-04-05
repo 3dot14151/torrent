@@ -1,3 +1,109 @@
+###  Публикация: 1839682   (1046852) от 30.11.2025
+
+SD Card Test Pro v2.6 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Воспользуйтесь лучшей на сегодняшний день утилитой для тестирования SD-карт. Протестируйте скорость как внутреннего, так и внешнего хранилища Вашего устройства!
+Простота в использовании даже для начинающих. Быстрые тесты.Тип издания: ProРелиз состоялся: 26.10.2025Разработчик: Zoltán PallagiПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E933A36D67621F2367E15D30BECC7F8C9E2EDC89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839520   (1046714) от 29.11.2025
+
+GPS АнтиРадар v51.2(G) Mod by Slavatv5 [Ru]
+
+>>Программы, Игры и прочее
+>>Навигация для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение работает с помощью известных данных о расположении стационарных камер и радаров ДПС (такие как Стрелка или Старт СТ) и других объектов. Есть возможность добавить недостающие камеры вручную и синхронизация их между пользователями! Вам не нужно ждать пока мы добавим камеры, она пополняется просто и удобно самими пользователями!Тип издания: ProРелиз состоялся: 27.11.2025Разработчик: AIRBITS & Reactive PhoneПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA137D5D8BC9868EEC98192754B580DE93CA68A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839519   (1046713) от 29.11.2025
+
+Антирадар HUD Speed v73.2(R) Mod by Slavatv5 [Ru]
+
+>>Программы, Игры и прочее
+>>Навигация для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Антирадар HUD Speed – это цифровой спидометр с функцией предупреждения о превышении ограничения скорости и об опасностях на дороге: камеры, Стрелки, Автодории, посты и прочее.
+HeadUp Display (HUD) – это возможность использовать ваш телефон или планшет как проекционный дисплей. Просто положите устройство под лобовое стекло и вы увидите проекцию скорости и предупреждений (   Читать дальше...   )Тип издания: ProРелиз состоялся: 28.11.2025Разработчик: AIRBITS & Reactive PhoneПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80AF4742193026A370F7CDACC55FC68690D0C7E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839518   (1046709) от 29.11.2025
+
+Grok - ИИ ассистент v1.0.81-release.04 Mod by kljovyj [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grok — это AI-ассистент, разработанный xAI, предназначенный для максимальной правдивости, полезности и любопытства. Получайте ответы на любые вопросы, генерируйте впечатляющие изображения и видео, ведите естественные разговоры в голосовом режиме и загружайте картинки, чтобы глубже понять свой мир. С Grok вселенная в ваших руках!Тип издания: Mod + CloneРелиз состоялся: 28.11.2025Разработчик: xAIПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EAA71D24143283D3462C8F22C1A092604038EE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1839500   (1046707) от 29.11.2025
 
 Vanced Tube v5.5.80.178 Mod by TRUMods [Ru/Multi]
@@ -6,7 +112,7 @@ Vanced Tube v5.5.80.178 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046707.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ LazyMedia Deluxe v3.417 Mod by Alex.Strannik [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046706.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ Photo Editor v12.2 Pro Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046646.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ Photo Editor v12.2 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046645.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046643.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ Listen Audiobook Player v5.3.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046604.jpg" />
 </div>
 
 
@@ -162,7 +268,7 @@ VivaVideo Video Editor v9.32.2 Mod by MustHave [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046595.jpg" />
 </div>
 
 
@@ -188,7 +294,7 @@ Channel - AI Videos and Chat v1.6.1.3174 Mod by kljovyj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046585.jpg" />
 </div>
 
 
@@ -214,7 +320,7 @@ Cozy Timer - Sleep timer v4.0.9 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046583.jpg" />
 </div>
 
 
@@ -240,7 +346,7 @@ PhotoRoom v4.1.0 Mod by CXV [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046249.jpg" />
 </div>
 
 
@@ -266,7 +372,7 @@ Copy Text On Screen v5.0.7 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046190.jpg" />
 </div>
 
 
@@ -292,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046186.jpg" />
 </div>
 
 
@@ -318,7 +424,7 @@ MobileSheets Music Viewer v3.6.8 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045808.jpg" />
 </div>
 
 
@@ -344,7 +450,7 @@ SUXOV v2.2.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045271.jpg" />
 </div>
 
 
@@ -370,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043385.jpg" />
 </div>
 
 
@@ -396,7 +502,7 @@ Bob The Robber 4 v1.44 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043059.jpg" />
 </div>
 
 
@@ -422,7 +528,7 @@ War of Kings: Эпическая Стратегия PvP v69 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043045.jpg" />
 </div>
 
 
@@ -448,7 +554,7 @@ FarmVille 2 v16.6.6412 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043041.jpg" />
 </div>
 
 
@@ -474,7 +580,7 @@ IRPlus - IR-Remote (Пульт) v1.9.13 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043026.jpg" />
 </div>
 
 
@@ -501,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043020.jpg" />
 </div>
 
 
@@ -527,7 +633,7 @@ StrikeBox: Sandbox & Shooter v1.4.6 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043017.jpg" />
 </div>
 
 
@@ -553,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043006.jpg" />
 </div>
 
 
@@ -564,110 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADE05E971B02934F87C328BC76C95D9927F6B98B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436613   (1043005) от 01.01.2021
-
-Eternium v1.5.32 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Eternium - ролевая игра для устройств на платформе Андроид, в которой нужно сражаться с полчищами скелетов, демонов и прочей нечисти. В бою необходимо использовать разнообразное вооружение и амуницию, которая приобретается у местного торговца.Тип издания: Пиратка (Мод: Много рубинов)Релиз состоялся: 28 декабря 2020 г.Разработчик: Making FunПоддерживаемая ОС: Android 4.4 и вышеЖанр: РПГ, Ролевая играЯзык интерфейса: Русский есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A014FB97E9D7D44B404B4C20818CDD95641A4544
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609646   (1042860) от 05.02.2023
-
-Справочник рыбака v1.1.4 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042860.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Справочник рыбака» - полезное приложение, содержащее в себе подробное описание наиболее известных видов рыб, обитающих в водоёмах России и ближнего зарубежья. Оно будет полезно как начинающим, так и опытным рыболовам-любителям.Тип издания: AdfreeРелиз состоялся: 04.02.2023Разработчик: VT LabsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:732B5DAC2B674F9141DAA6B4328F65FECB174391
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436718   (1042785) от 02.01.2021
-
-Stickman Dragon Fight v1.1.3 [En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042785.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stickman Dragon Fight - Super Stick Warriors - экшн-файтинг с элементами RPG, который обязательно понравится фанатам жанра. В нем игрока ждут многочисленные битвы с сотнями противников в режиме сюжетной кампании, в которых для победы предстоит использовать комбинации из трех приемов.Тип издания: Пиратка (Мод) Много денег!Релиз состоялся: 29 декабря 2020 г.Разработчик: Azura GlobalПоддерживаемая ОС: Android 5.0 и вышеЖанр: ЭкшенЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98A671D4BB88187688C4FBADE7ECA57773BD82C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436678   (1042730) от 02.01.2021
-
-Solar System Scope v3.2.4 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Solar System Scope - представляет собой виртуальный 3D планетарий и обсерваторию для Android устройств. Пользователи смогут наблюдать за положением планет и планетарных орбит в режиме реального времени.Тип издания: Пиратка (Premium)Релиз состоялся: 7 апреля 2020 г.Разработчик: INOVE, s.r.o.Поддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6550B0541E4F4DCD0FB4A1488B4C80E410F95C81
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1623105   (255485) от 05.04.2023
+
+Тетрис / Tetris (2023) WEB-DLRip [H.264] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255485.jpg" />
+</div>
+
+
+###  Подробнее
+
+История предпринимателя Хенка Роджерса, который загорелся идеей купить видеоигру «Тетрис», созданную советским программистом Алексеем Пажитновым.Производство: Великобритания, США / AI-Film, Apple TV, Marv Films, UnigramЖанр: триллер, драма, биография, историяРежиссер: Джон С. БейрдАктеры: Тэрон Эджертон, Никита Ефремов, Софья Лебедева, Энтони Бойл, Бен Майлз, Кэн Ямамура, Игорь Грабузов, Олег Штефанко, Рик Юн, Тоби ДжонсПеревод: Многоголосый профессиональный (Apple TV+, TVShows)Язык озвучки: русский, английскийСубтитры: английские, русские, украинскиеПродолжительность: 01:57:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06F51ABA9C80AE4DB2F0CB2AB3590AAEBD7E8E7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577844   (255398) от 08.04.2023
+
+Три сестры / Uc Kiz Kardes (2022-2023) WEB-DLRip [H.264/720p-LQ] (сезон 2, серии 1-27 (17-43) из ??) AveTurk (обновляемая)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда-то три сестры Тюркан, Дёнюш и Дерья жили в доме с видом на самое красивое море. Их отец Садык Бей и мать Несрин Ханым обеспечили девочкам счастливое детство и не подготовили их к жестокостокой взрослой жизни. Сомер единственный сын самой богатой семьи Айвалыка. Под давлением семьи Сомер женится на Тюркан, однако клянется, что не станет для неё настоящим мужем (   Читать дальше...   )Производство: Турция / Süreç FilmЖанр: драмаРежиссер: Эмре КавукАктеры: Иджлаль Айдын, Реха Озджан, Беркер Гювен, Озгю Кая, Алмила Ада, Мелиса Бербероглу, Бениан Донмез, Назлы Сенем Унал, Хакан Аталай, Демирджан Качел, Вурал Шаханоглу, Веда Юртсевер и др.Перевод: Двуголосый любительский (AveTurk)Язык озвучки: РусскийПродолжительность: ~02:35:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC1A062B1C2029BBBD2B95938940CB277838724E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1624595   (255385) от 08.04.2023
 
 Человек-муравей и Оса: Квантомания / Ant-Man and the Wasp: Quantumania (2023) WEBRip [H.264/1080p] [PR]
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255385.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Counter Strike 1.6 (2015) [Ru] (1.1.2.6/pv48/b4554) Repack twileck
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255312.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255248.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255207.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Isekai Ojisan | Uncle from Another World | Перерождение Дяди [20
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255179.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Counter-Strike 1.6: Adidas (2015) [Ru/En] (1.1.2.6/pv48/b4554) Repack twileck
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255171.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Freelancer (2003) [Ru/En] (1.0) License
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255138.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255137.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255109.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Assassin's Creed: Valhalla (2020) [Ru/Multi] (1.7.0/dlc) Repack DjDI [Complete E
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255104.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255082.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Microsoft встроила в Windows 11 навязчивую рекламу. К
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255081.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255072.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ SD Maid Pro 5.5.9 + SD Maid SE Beta 0.7.4[Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255066.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255043.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254969.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ Adobe Photoshop 2023 24.4.1.449 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254963.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254894.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ Microsoft® Windows® 7 SP1 x86/x64 Ru 9 in 1 Update 04.2023 by OVGorskiy 1DVD
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254890.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254859.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254858.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254857.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254855.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254836.jpg" />
 </div>
 
 
@@ -619,60 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628745   (254827) от 24.04.2023
-
-Kaspersky Free 21.13.5.506 Repack by LcHNextGen (24.04.2023) [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254827.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kaspersky Free – бесплатный Антивирус Касперского с облачными технологиями Kaspersky Security Network. Решение предлагает файловый антивирус, веб-антивирус, защиту от сетевых атак и мониторинг активностиЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB1664524C38452B26392BE538096FF55B6332FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625194   (254822) от 24.04.2023
-
-karpov.courses, Дмитрий Безуглый и др. | Курс фронтенд-разработчика. Frontend уровня топовых компаний (2023) WEB-DL [RU]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы получите все знания и навыки, которые нужны сейчас сильному специалисту для работы в крупных проектах с крутой командой. Мы готовим сильных специалистов для крупных международных компаний, где делают сложные продукты в команде крутых специалистов.
-
-Обычный frontend-разработчик решает типовые задачи, но если копнуть глубже, сразу теряется. Нехватка фундаментальных (   Читать дальше...   )Производство: karpov.coursesЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 81:54:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA557BE2AB83E89D4D085538593E3D2D0C47EEF2
 ```
 
 https://mybot314.ru/tekegram_catalog/

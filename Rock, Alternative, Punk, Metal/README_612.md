@@ -1,3 +1,32 @@
+###  Публикация: 941979   (457973) от 29.09.2015
+
+Chris Cornell - Higher Truth (2015) Deluxe Edition [FLAC|image+.cue]<Rock, Alternative Rock, Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nearly Forgot My Broken Heart (3:54)
+02. Dead Wishes (4:56)
+03. Worried Moon (4:32)
+04. Before We Disappear (3:52)(   Читать дальше...   )Жанр: Rock, Alternative Rock, GrungeПродолжительность: 01:06:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F229DACF7325634ACE068BFC13EB87B915719A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 941982   (457972) от 29.09.2015
 
 Clive Nolan & Oliver Wakeman - The Hound Of The Baskervilles (2002) [APE|image+.cue]<Neo Progressive Rock>
@@ -6,7 +35,7 @@ Clive Nolan & Oliver Wakeman - The Hound Of The Baskervilles (2002) [APE|image+.
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457972.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Fluance Featuring Duncan Mackay - Lunacy (2020) Japanese Edition [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457942.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Lonewolf - Division Hades (2020) 2xCD [FLAC|Lossless|image + .cue] <Heavy Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457940.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ David Readman - Medusa (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457938.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Black Earth - Path of the Immortal (2019) Compilation [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457919.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457862.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457859.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Cockney Rebel - The Human Menagerie (1973) Reissue, Unofficial Release, 1999, Li
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457857.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Epica - The Quantum Enigma (B-Sides) (2020) [MP3|320 Kbps] <Symphonic Power Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457854.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Skillet - Victorious: The Aftermath (2019) Deluxe Edition, 2020 [FLAC|Lossless|W
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457853.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Dark Side Of The Moon A Cappella - Dark Side Of The Moon A Cappella (2005) [APE|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457804.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - Ladies Sing The Boss (2022) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457781.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457710.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ Leaves' Eyes - Fires In The North (2016) EP [MP3|320 Kbps] <Gothic Metal, Sympho
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457556.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ Green Day - iUno! (2012) [FLAC|Lossless] <Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457412.jpg" />
 </div>
 
 
@@ -447,7 +476,7 @@ Brujeria - Pocho Aztlan (2016) [MP3|320 Kbps] <Death Metal, Grindcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457395.jpg" />
 </div>
 
 
@@ -476,7 +505,7 @@ The Devil Wears Prada - Transit Blues (2016) [MP3|320 Kbps] <Christian Metalcore
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457389.jpg" />
 </div>
 
 
@@ -505,7 +534,7 @@ Meshuggah - The Violent Sleep of Reason (2016) [MP3|320 Kbps] <Math Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457253.jpg" />
 </div>
 
 
@@ -534,7 +563,7 @@ OneRepublic - Oh my my (2016) Deluxe Edition [MP3|320 Kbps] <Pop-Rock, Alternati
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457153.jpg" />
 </div>
 
 
@@ -563,7 +592,7 @@ Carnation - Chapel Of Abhorrence (2018) [FLAC|Lossless|image + .cue] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457129.jpg" />
 </div>
 
 
@@ -592,7 +621,7 @@ Dream Theater - Live At Budokan (2004) [FLAC|Lossless|tracks + .cue] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457120.jpg" />
 </div>
 
 
@@ -623,7 +652,7 @@ Dream Theater & The Octavarium Orchestra - Score (20th Anniversary World Tour) (
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456990.jpg" />
 </div>
 
 
@@ -654,7 +683,7 @@ Dream Theater - Images And Words (1992) [FLAC|Lossless|tracks + .cue] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456948.jpg" />
 </div>
 
 
@@ -683,7 +712,7 @@ Rammstein - Verbrannte Erde (Der Arena, Berlin-Treptow - 27.09.1996) Live Bootle
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456939.jpg" />
 </div>
 
 
@@ -712,7 +741,7 @@ Metallica - Live In Lisbon - Altice Arena - Portugal - February 1st (2018) [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456836.jpg" />
 </div>
 
 
@@ -726,35 +755,6 @@ Metallica - Live In Lisbon - Altice Arena - Portugal - February 1st (2018) [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37A2BCF19BDC8B596173E5BC3DC3185D9CDB11B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162812   (456816) от 02.09.2017
-
-Sweet - Level Headed Tour Rehearsals 1977 (2014) [FLAC|Lossless|image + .cue] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Action (3:49)
-02. Yesterday's Rain (5:00)
-03. California Nights (4:14)
-04. Stairway To The Stars (3:11)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:06:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2B60074199AEBFEAB8ADCC71EEE7BB3BCB797C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

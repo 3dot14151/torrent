@@ -1,3 +1,57 @@
+###  Публикация: 766074   (449961) от 09.10.2016
+
+Next Launcher 3D 3.7.3.2 [Ru/Multi] - Лончер
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая оболочка рабочего стола с шикарными возможностями, 3D режимом, большой кастомизацией и фантастическими эффектами.
+Поддерживает работу на планшетах.Тип издания: ПираткаРелиз состоялся: 09.10.16Разработчик: GO Dev TeamПоддерживаемая ОС: Android. Зависит от устройстваЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C85ADF5315B474E026985A6DDE97D9A80846FC62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551698   (449929) от 25.09.2012
+
+Минэкономразвития выступило против отмены «мобильного рабства»
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_449929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Минэкономразвития выступило против введения услуги сохранения номера при переходе абонента от одного оператора к другому. Соответствующее заключение ведомства опубликовано на его сайте. В министерстве считают, что переносимость номеров (Mobile number portability, MNP) не будет востребована населением и не скажется на конкуренции, но повлечет значительные затраты со стороны операторов сотовой связи.В ведомстве ссылаются на данные востребованности MNP в странах, где эта услуга действует. Так, в Болгарии после ввода переносимости номеров в 2008 году только один процент абонентов воспользовался услугой, а к 2009 году число ее потребителей упало еще в два раза. В Чехии показатель составляет еще меньше — 0,1 процента всех абонентов. В Белоруссии — 0,019 процента абонентской базы.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 518564   (449787) от 25.09.2012
 
 Косяки / Weeds [Сезон 8] (2012) WEB-DLRip (ProjektorShow)
@@ -6,7 +60,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_449787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_449787.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Tekken Tag Tournament 2 [PS3] [PAL] [RUS] (2012)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449779.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449776.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_449112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_449112.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ Registry First Aid Platinum 10.1.0 build 2297 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448813.jpg" />
 </div>
 
 
@@ -137,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448730.jpg" />
 </div>
 
 
@@ -163,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448551.jpg" />
 </div>
 
 
@@ -189,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448453.jpg" />
 </div>
 
 
@@ -215,7 +269,7 @@ Malwarebytes Anti-Malware Corporate 1.80.0.1010 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448444.jpg" />
 </div>
 
 
@@ -241,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448430.jpg" />
 </div>
 
 
@@ -267,7 +321,7 @@ KMSAuto Net 2015 1.4.0 Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448429.jpg" />
 </div>
 
 
@@ -295,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448114.jpg" />
 </div>
 
 
@@ -321,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_448113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_448113.jpg" />
 </div>
 
 
@@ -347,7 +401,7 @@ ReCore (2016) [Ru] (build 911) Repack Other s [Definitive Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447935.jpg" />
 </div>
 
 
@@ -373,7 +427,7 @@ Force of Nature (2016) [Ru/Multi] (1.1.13) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447674.jpg" />
 </div>
 
 
@@ -399,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447672.jpg" />
 </div>
 
 
@@ -425,7 +479,7 @@ Manfred Mann's Earth Band - 40th Anniversary (1972-2011) 21CD Box Set, рема�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447454.jpg" />
 </div>
 
 
@@ -454,7 +508,7 @@ Microsoft Security Essentials 4.1.0522.0 Final [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447449.jpg" />
 </div>
 
 
@@ -482,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_446936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_446936.jpg" />
 </div>
 
 
@@ -511,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_446788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_446788.jpg" />
 </div>
 
 
@@ -537,7 +591,7 @@ MAGIX Vegas Pro 20.0 Build 139 RePack by elchupacabra [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446523.jpg" />
 </div>
 
 
@@ -563,7 +617,7 @@ Movavi Video Converter 16.0.0 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446468.jpg" />
 </div>
 
 
@@ -589,7 +643,7 @@ DRAGON QUEST XI: Echoes of an Elusive Age (2018) [Multi] (1.0/dlc) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445930.jpg" />
 </div>
 
 
@@ -615,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445875.jpg" />
 </div>
 
 
@@ -626,59 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9FD94C0D444D80382E4F1B54935DAE04676D580
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061941   (445703) от 11.10.2016
-
-Bandicam 3.2.5.1125 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bandicam позволяет записать определенную область на экране ПК, или в программе, которая использует графические технологии DirectX/OpenGL. Bandicam поможет вам выполнить видеозапись с высокой степенью сжатия, сохраняя качество видео ближе к оригинальной работе и обеспечивает производительность намного выше других программ, которые обладают подобными функциями.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B929ED985435C1EC999C8C510C32455464417AA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061690   (445695) от 11.10.2016
-
-Стартрек: Бесконечность / Star Trek Beyond (2016) WEB-DL [H.264/1080p-LQ] [Line]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445695.jpg" />
-</div>
-
-
-###  Подробнее
-
-События развиваются спустя 2 года после начала пятилетней миссии.
-Экипаж звездного корабля «Энтерпрайз», во главе с капитаном Джеймсом Т. Кирком, были атакованы могущественной и опасной волной неизвестных пришельцев, которые уничтожают корабль, оставляя их без всего на новой неизведанной планете, где они оказываются в конфликте с новым безжалостным врагом.Производство: США, Bad Robot, Paramount Pictures, Perfect Storm Entertainment, Skydance Productions, Sneaky SharkЖанр: Фантастика, Боевик, ПриключенияРежиссер: Джастин ЛинАктеры: Крис Пайн, Идрис Эльба, Соэ Салданья, Карл Урбан, Закари Куинто, Саймон Пегг, Антон Ельчин, Джон Чо, София Баутелла, Джозеф Гэтт, Джо ТаслимПеревод: Дублированный (Чистый звук)Язык субтитров: Русский (Forced), Английский (Forced, Full)Продолжительность: 02:02:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDEB361BDCF26066E07176431FF7AD89BD0C1AD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,213 @@
 https://t.me/izofen
+###  Публикация: 1863216   (1063771) от 
+
+Steinberg Cubase Pro 15.0.20 Build 226 Portable by 7997 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы хотите начать создавать свою собственную музыку, вывести свое производство на профессиональный уровень или оптимизировать рабочий процесс в сжатые сроки? Что бы вам ни понадобилось, Cubase поможет вам полностью раскрыть свой творческий потенциал. От композиторов голливудских блокбастеров и продюсеров Billboard Hot 100 до увлеченных новичков, мир музыкального производства (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:788F58AB81EE571C584A579FB32CA0638F9F2770
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863230   (1063766) от 
+
+Steinberg Nuendo Pro 15.0.20 Build 220 Portable by 7997 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063766.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программное обеспечение Nuendo — это самое передовое решение для обработки звука, которое доступно профессионалам киноиндустрии, телевидения, игр и иммерсивного звука во всем мире. С момента своего первого выпуска Nuendo был жизненно важным инструментом в создании саундтрека ко многим громким постановкам, продуктам и инсталляциям. Регулярные обновления с новыми функциями, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48627659F8704BD986BECC693912356D5522E7D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862540   (1063391) от 
+
+mp3DirectCut 2.40 RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшой редактор mp3 файлов. Позволяет обрезать тишину в начале и/или конце файла, нормализировать звук, а также плавно убирать его в конце композиции, объединять файлы, редактировать ID3-тэги и записывать mp3 непосредственно на диск.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A358159E657FCB1C0C3BC95BE8B4E694E63B282
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862563   (1063362) от 
+
+XRecode 3 1.180 Repack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063362.jpg" />
+</div>
+
+
+###  Подробнее
+
+XRecode3 — популярный и мощный аудио конвертер, обладающий удобным «drag and drop»-интерфейсом и поддерживающий большинство распространенных форматов, который позволяет быстро и без особого труда преобразовывать аудио-данные. Поддерживается извлечение аудио дорожки из видео файлов и граббинг многоканальных Audio CD. Возможность создания одного большого аудио файла (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C07F5029F4B93D6A7C6E92A4843FB9450AA8C19E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862565   (1063360) от 
+
+Cockos REAPER 7.67 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cockos Reaper является одной из самых продвинутых программ для создания музыки, как в студии, так и в домашних условиях. Главная «фишка» программы заключается в том, что она имеет паттерновое, клавиатурное и аудио редактирование. Вы можете задавать неограниченное количество аудио или миди треков, не считая того, сколько можно добавить виртуальных инструментов формата (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E87D6DB79112CB67E59572B4C178C0C562A9E03C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862317   (1063220) от 
+
+FL Studio Producer Edition 25.2.5.5319 All Plugins Edition & FLEX Pack Portable by 7997 [Multi]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063220.jpg" />
+</div>
+
+
+###  Подробнее
+
+FL Studio Producer Edition - это одна из лучших программ(DAW) для создания собственной музыки, с её помощью вы можете создавать собственные треки любого стиля. Программа имеет все необходимые функции для работы со звуком : запись, сведение, мастеринг, а также имеет больее ста виртуальных синтезаторов и эффектов.Язык интерфейса: Английский, Немецкий, другие (Русский отсутствует)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:231A0C06FB1D687B255E52903F008A88D1C67DAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862323   (1063216) от 
+
+Ashampoo Music Studio 12.0.4.2 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ashampoo Music Studio 12 - это Швейцарский армейский нож для твоей музыки. Она предлагает обширный набор инструментов для лёгкого редактирования, обработки, нарезки, микширования и организации музыки и аудиофайлов.
+Ashampoo Music Studio 12 дает Вам лучшие результаты с меньшим количеством кликов! Особенно в таких востребованных областях, как копирование компакт-дисков (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB51853C4AFC643BA09E41DAB72547BBA6891885
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862443   (1063135) от 
+
+mp3DirectCut 2.40 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшой редактор mp3 файлов. Позволяет обрезать тишину в начале и/или конце файла, нормализировать звук, а также плавно убирать его в конце композиции, объединять файлы, редактировать ID3-тэги и записывать mp3 непосредственно на диск.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22898A5057A3C097D8313C75E5FEBBE57EC1CCB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861624   (1062931) от 
 
 EZ CD Audio Converter 12.4.0.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
@@ -7,7 +216,7 @@ EZ CD Audio Converter 12.4.0.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062931.jpg" />
 </div>
 
 
@@ -33,7 +242,7 @@ Helium Music Manager Premium 18.0.706.0 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062492.jpg" />
 </div>
 
 
@@ -59,7 +268,7 @@ MediaHuman Audio Converter 2.3 (0312) RePack (& Portable) by elchupacabra [Multi
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062255.jpg" />
 </div>
 
 
@@ -87,7 +296,7 @@ Cockos REAPER 7.66 RePack (& Portable) by elchupacabra [Ru/En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062143.jpg" />
 </div>
 
 
@@ -113,7 +322,7 @@ Serato DJ Pro Suite 4.0.4 [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061566.jpg" />
 </div>
 
 
@@ -139,7 +348,7 @@ FL Studio Producer Edition 25.2.5.5319 All Plugins Edition + Addons + FLEX Pack 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060848.jpg" />
 </div>
 
 
@@ -165,7 +374,7 @@ XRecode 3 1.179 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060274.jpg" />
 </div>
 
 
@@ -191,7 +400,7 @@ Ocenaudio 3.17.3 + Portable [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059888.jpg" />
 </div>
 
 
@@ -217,7 +426,7 @@ Serato DJ Pro Suite 4.0.3 [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059401.jpg" />
 </div>
 
 
@@ -243,7 +452,7 @@ XRecode 3 1.178 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059217.jpg" />
 </div>
 
 
@@ -269,7 +478,7 @@ GoldWave 7.04 RePack (& Portable) by TryRooM [Ru/En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058199.jpg" />
 </div>
 
 
@@ -295,7 +504,7 @@ Ocenaudio 3.17.2 + Portable [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057987.jpg" />
 </div>
 
 
@@ -321,7 +530,7 @@ Mp3tag 3.33.1 + Portable [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055988.jpg" />
 </div>
 
 
@@ -347,7 +556,7 @@ FabFilter - Total Bundle 2026.01.15 VST, VST 3, AAX, CLAP (x64) RePack by Team V
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054813.jpg" />
 </div>
 
 
@@ -373,7 +582,7 @@ Adobe Audition 2026 26.0.0.56 RePack by KpoJIuK [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054056.jpg" />
 </div>
 
 
@@ -399,7 +608,7 @@ Adobe Audition 2026 26.0.0.56 (x64) Portable by 7997 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053739.jpg" />
 </div>
 
 
@@ -425,7 +634,7 @@ Mp3tag 3.33 + Portable [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053536.jpg" />
 </div>
 
 
@@ -451,7 +660,7 @@ Adobe Audition 2025 25.6.4.2 RePack by KpoJIuK [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052566.jpg" />
 </div>
 
 
@@ -462,214 +671,6 @@ Adobe Audition 2025 25.6.4.2 RePack by KpoJIuK [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE645243C4D2817CDA695BBC14DBC10692E6CF55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847723   (1052358) от 14.01.2026
-
-Adobe Audition 2025 25.6.4.2 (x64) Portable by 7997 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Audition - Программа для работы с аудио-данными Adobe Audition представляет собой профессиональный инструмент для специалистов, которые работают в сфере обработки аудио и видеопродукции, предлагая им практически неограниченные возможности. Простота использования прекрасно сочетается с гибкостью работы, позволяя создавать мастер-копии высочайшего класса, редактировать, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92D38E041C4652F8B24757E897858D6C8265E092
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847791   (1052309) от 14.01.2026
-
-Ocenaudio 3.17.1 + Portable [Multi/Ru]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ocenaudio — аудиоредактор, распространяемый авторами абсолютно бесплатно. Приложение имеет различные варианты сборок, поддерживающих работу в различных операционных системах (Windows, Mac OS X, Linux). Это невероятно простой способ вносить изменения в аудио треки. При наличии достаточно мощных функций, программа не вызовет осложнений при работе даже новичками. Однако (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2E864F463CC7F749B00839D6C7ABBD13F1A2722
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846947   (1051817) от 10.01.2026
-
-FL Studio Producer Edition 25.2.3.5171 All Plugins Edition + Addons + FLEX Pack (x64) RePack by KpoJIuK [Multi]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051817.jpg" />
-</div>
-
-
-###  Подробнее
-
-FL Studio Producer Edition - это одна из лучших программ(DAW) для создания собственной музыки, с её помощью вы можете создавать собственные треки любого стиля. Программа имеет все необходимые функции для работы со звуком : запись, сведение, мастеринг, а также имеет больее ста виртуальных синтезаторов и эффектов.Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E11A40CFA99DBB3F273A6CA7964F0128AE5C838F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846278   (1051236) от 06.01.2026
-
-Serato DJ Pro Suite 4.0.1 [Multi]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Serato DJ Pro — самое популярное в мире программное обеспечение для диджеев. Serato, известное своей надёжностью, обеспечивает невероятные выступления.Язык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11E0FFF0E4EF8AE2BF35B92FDF1C2592F3EAF50D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846060   (1051219) от 05.01.2026
-
-EZ CD Audio Converter 12.4.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051219.jpg" />
-</div>
-
-
-###  Подробнее
-
-EZ CD Audio Converter - утилита для преобразования аудио-CD в качественные цифровые аудиофайлы, а также для записи MP3, WAV MP4, Windows Media Audio, FLAC, Ogg Vorbis, AAC и Monkey-s файлов на аудио-CD. Умеет преобразовывать аудиотреки непосредственно в MP3, WMA, VQF, OGG или WAV и конвертировать из одного аудиоформата в другой.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAEF1A4698F2CF35F030037B018906A5B6CFD11E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846088   (1051205) от 05.01.2026
-
-Ocenaudio 3.16.5 + Portable [Multi/Ru]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ocenaudio — аудиоредактор, распространяемый авторами абсолютно бесплатно. Приложение имеет различные варианты сборок, поддерживающих работу в различных операционных системах (Windows, Mac OS X, Linux). Это невероятно простой способ вносить изменения в аудио треки. При наличии достаточно мощных функций, программа не вызовет осложнений при работе даже новичками. Однако (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA1265DFFE857D510EC60953499B7091A912D95F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842736   (1048746) от 16.12.2025
-
-Audacity 3.7.7 + Portable [Multi/Ru]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Audacity - свободный, простой в использовании звуковой редактор для Windows, Mac OS X, GNU/Linux и других операционных систем. Audacity можно использовать для записи звука, оцифровки аналоговых записей (кассет, грампластинок), редактирования файлов в форматах Ogg Vorbis, MP3 и WAV, физического редактирования нескольких файлов (вырезание, склейка, сведение), изменения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15CC99C78439A425360A3A88A3BEB58D89A4508B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602610   (1046017) от 06.01.2023
-
-discoDSP - Discovery Pro 7.5 STANDALONE, VSTi, VSTi 3, AAX (x86/x64) Repack by demberto [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Discovery Pro обладает еще более высоким качеством и возможностями, чем его младший брат Discovery, сохраняя все прежние функции, включая Unison, экспорт SysEx, полифонию 128 голосов, ресинтез PADSynth, 2 новых осциллятора, 12 фильтров, 5.000+ пресетов, 100 банков, автономное приложение, графический конверт, масштабируемый GUI, разделение октавных клавиш, поддержку (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4DEFB341AE1531985307AE7F971BC360C0408E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

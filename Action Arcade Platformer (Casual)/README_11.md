@@ -1,3 +1,57 @@
+###  Публикация: 935434   (499010) от 08.09.2015
+
+Daydreamer (2015) [En] (1.0) License RELOADED
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499010.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир Daydreamer`а нарисован по мотивам постапокалиптических картин Роланда Вомака. Вы - единственный выживший, вам предстоит спасти Бессмертного Хранителя Врат, последнюю надежду умирающего мира.
+
+В игре много хардкорных битв с боссами, выполненных в стиле аркадных игр 90-х, дополненных современными фишками, позволяющими расширять возможности персонажа, чтобы тот (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Roland StudiosЖанр: Arcade (Platform)Язык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A40E20EE5A4ECD0024BF48B8AAF98E3B8E8AA1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935387   (498962) от 08.09.2015
+
+Exile's End (2015) [En] (1.0) Unofficial
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ламповый ретро-экшен-платформер в стиле таких классических игр как Flashback и Another World! Ролики и музыка в игре, представлена 8-ми и 16-битной эпохи Японии. Авторы игры вдохновлялись научно-фантастическими фильмами и аниме 80-х годов, а также геймплеем классических игр с Amiga и Commodore 64.Тип издания: Неофициальное изданиеРазработчик: Magnetic RealmsЖанр: Action / PlatformerЯзык озвучки: -/-Язык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2CDB65354E8AEEDFA5771555AEC42B23F1C124E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 935318   (498961) от 08.09.2015
 
 Onikira - Demon Killer (2015) [En] (1.0) License RELOADED
@@ -6,7 +60,7 @@ Onikira - Demon Killer (2015) [En] (1.0) License RELOADED
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498961.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Leo’s Fortune - HD Edition (2015) [Ru/Multi] (1.0) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498124.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ Platypus Adventures (2022) [En] (1.0) License DARKSiDERS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491820.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ PLANET ALPHA (2018) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485592.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ Starbound (2016) [Ru/En] (1.4.4) Repack R.G. Alkad
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484446.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ Blade Kitten (2010) [En/Multi] (1.0/dlc) RePack Let'sPlay [Re-Release Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483193.jpg" />
 </div>
 
 
@@ -162,7 +216,7 @@ The Messenger (2018) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481514.jpg" />
 </div>
 
 
@@ -188,7 +242,7 @@ Dark Matter (2013) [Ru/En/Ge] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471270.jpg" />
 </div>
 
 
@@ -214,7 +268,7 @@ Selma and the Wisp (2016) [Ru/Multi] (1.0/u2/dlc) License HI2U
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461460.jpg" />
 </div>
 
 
@@ -240,7 +294,7 @@ BLACKHOLE (2015) [Ru/Multi] (1.11/dlc) License GOG [Complete Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454301.jpg" />
 </div>
 
 
@@ -266,7 +320,7 @@ Tiny Echo (2017) [En] (1.0) License RELOADED
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454237.jpg" />
 </div>
 
 
@@ -292,7 +346,7 @@ Gateways (2012) [En] (1.15) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450216.jpg" />
 </div>
 
 
@@ -318,7 +372,7 @@ Teslagrad (2015) [Ru/Multi] (1.4.1) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448822.jpg" />
 </div>
 
 
@@ -344,7 +398,7 @@ Small Tanks [En] (RePack) 2012
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445431.jpg" />
 </div>
 
 
@@ -370,7 +424,7 @@ Deadlings: Rotten Edition (2014) [Ru/Multi] (0.0.51) Repack R.G. Механик�
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439558.jpg" />
 </div>
 
 
@@ -396,7 +450,7 @@ Monkey King: Master of the Clouds (2018) [En] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435130.jpg" />
 </div>
 
 
@@ -422,7 +476,7 @@ BLACKHOLE (2015) [Ru/Multi] (1.11/dlc) Repack R.G. Catalyst [Complete Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434626.jpg" />
 </div>
 
 
@@ -448,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432476.jpg" />
 </div>
 
 
@@ -474,7 +528,7 @@ Lost in Play (2022) [Ru/Multi] (1.0) License DARKSiDERS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431261.jpg" />
 </div>
 
 
@@ -500,7 +554,7 @@ Cut the Rope [Ru/Multi4] (L) 2012
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430427.jpg" />
 </div>
 
 
@@ -526,7 +580,7 @@ Hollow Knight (2017) [Ru/Multi] (1.4.3.2/dlc) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426282.jpg" />
 </div>
 
 
@@ -552,7 +606,7 @@ Lost Socks: Naughty Brothers (2016) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422943.jpg" />
 </div>
 
 
@@ -579,7 +633,7 @@ Odallus: The Dark Call (2015) [Ru/Multi] (1.1.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422826.jpg" />
 </div>
 
 
@@ -605,7 +659,7 @@ The Misadventures of P.B. Winterbottom [Ru/Multi6] (RePack) 2010 | NSIS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418408.jpg" />
 </div>
 
 
@@ -618,58 +672,6 @@ The Misadventures of P.B. Winterbottom - это приключенческая �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1774B71B38D1141EB1C75C6EDE40320C21162FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947890   (415216) от 18.10.2015
-
-Castle Crashers (2012) [Ru/Multi] (2.1/dlc) Repack R.G. Механики
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Castle Crashers - двумерный платформер от студии Behemoth создателей знаменитой игры - Alien Hominid. В этой веселой и суматошной игре Вам предстоит стать рыцарем и заняться спасением толп принцесс, из лап злодеев и прочих монстров.Тип издания: RepackРазработчик: The BehemothЖанр: ArcadeЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ADAED4788E10074B194A6520E4E099091B981DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573125   (414009) от 30.08.2022
-
-Overloop (2022) [En] (1.1) License GOG
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шагните в этически скомпрометированное будущее, где технология клонирования нанесла ущерб человечеству - и виновник этого именно вы!. Как сотрудник мега-корпорации Infinity Inc. и изобретатель Устройства Квантового Воспроизведения Материи (оно же УКВМ, оно же причина того, что мир катится к чертям), вы должны разобраться в беспорядке, который вы сами создали. Хватайте (   Читать дальше...   )Тип издания: LicenseРазработчик: Charge GamesЖанр: Экшны, Приключение, ПлатформерЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E25326CF7984E1727037E43709512D80E03E388
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ BBC: Звуковые волны: симфония физики / Sound Waves: T
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58814.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BBC: Удивительный мир крови / The Wonderful World of Blood w
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58746.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BBC: Чудеса времен года / Seasonal Wonderlands (Earth's Greatest
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58724.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BBC: Тайная жизнь кошек / The Secret Life of the Cat (2013) HDTV
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58718.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ BBC: Царство Растений / Kingdom of Plants (2012) HDTVRip [H.264/7
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58570.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ BBC: По странам и континентам. Дикая Африка / Wi
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58478.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ BBC: Волшебные числа: таинственный мир матема
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58466.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ BBC: Чудеса времен года / Seasonal Wonderlands (Earth's Greatest
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58434.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ BBC: Чудеса заводного мира / Mechanical Marvels. Clockwork Dr
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58389.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58358.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ BBC: Юлий Цезарь без прикрас / Julius Caesar Revealed (2017)
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58277.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ BBC: Шотландия. Последний рубеж Рима / Scotland: Rome
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58169.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ BBC: Тайная наука. Химическое и биологическое
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58167.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57991.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57670.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57669.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57651.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57639.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57535.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ BBC: Луи Теру. Разговоры с анорексией / Talking to An
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56180.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ BBC: Планета Земля 3 / Planet Earth III (2023) BDRip [H.264/1080p] (
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53048.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ BBC. Истоки жизни (Первая жизнь с Дэвидом Атте
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49033.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ BBC: Конкорд. Гонка на сверхзвуковой скорости
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44906.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38760.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ BBC. История математики / The Story of Maths (2008) SATRip (4 �
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35467.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ BBC. Земля / Earth (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34859.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ NG. Непокорный остров / Port Protection (Lawless Island) (2021) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736333.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736034.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736033.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734883.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734641.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734179.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ BBC: Да будет вода / There Will Be Water (2016) WEB-DLRip [H.264/1080
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732862.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732859.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ BBC. Horizon. Гибель океана / The Death of the Oceans (2010) HDTVRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732555.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ NG: Вторжение на Землю / Invasion Earth (2014) HDTVRip [H.264/72
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732468.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732306.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ NGW: Охотница / Malika. Leopard Huntress (2018) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732045.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ NGW: Царство леопардов / Leopard Kingdom (2018) HDTV [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732044.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ NG: Война Гитлера против прессы / Hitler's Battle Agains
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731832.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ NG: Титаник. Дело закрыто / Titanic. Case Closed (2012) HDTV [
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731769.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ BBC: Удивительный мир крови / The Wonderful World of Blood w
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730670.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ NG. Гении / American Genius (2015) WEB-DLRip [H.264/720p-LQ] (Сезон 1,
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730598.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730563.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730553.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Discovery. Техногеника. Петербургский метрополи
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730487.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ BBC. Зелёная планета / The Green Planet (2022) WEB-DL [H.264/1080p
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730376.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ BBC: Живая Природа. Райские птицы / BBC: Natural World. 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729938.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ BBC: Антарктическая полярная станция / Ice Station 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729750.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ V3: суперпушка Гитлера / Building Hitler's Supergun / Hitlers S
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729630.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729610.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ NG. Разгадка тайны Стоунхенджа / Stonehenge Decoded (200
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729524.jpg" />
 </div>
 
 

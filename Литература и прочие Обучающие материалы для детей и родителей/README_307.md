@@ -1,3 +1,55 @@
+###  Публикация: 1072303   (354870) от 12.11.2016
+
+Милош Вацлав Кратохвил | Удивительные приключения Яна Корнела (1958) [PDF, FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354870.jpg" />
+</div>
+
+
+###  Подробнее
+
+О приключениях молодого крестьянина мушкетера Яна Корпела, участника тридцатилетней войны в Чехии, а также о его злоключениях на суше и на море.Жанр: Историческая литература для детейФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD776D241F65D0522485B94376FB51D92C4FEC37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072297   (354778) от 12.11.2016
+
+Ульрих Хуб | Ковчег отходит ровно в восемь (2013) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354778.jpg" />
+</div>
+
+
+###  Подробнее
+
+...И сказано было Ною: "Построй огромный Ковчег и возьми на него от каждой твари по паре". И сделал Ной так, как повелел ему Господь. И взял собой на Ковчег от каждой твари по паре. Вот только пингвинов оказалось трое... Почему? Потому что пингвины своих в беде не бросают! Несмотря на то, что спорят друг с другом буквально до драки обо всем на свете. Есть (   Читать дальше...   )Жанр: СказкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0BDAD3EC4226428EF11BC2BBA6865603D826C40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1577632   (354750) от 19.09.2022
 
 Украинская народная сказка | Небо и земля (1940) [PDF]
@@ -6,7 +58,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354750.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354626.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354536.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354484.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_354344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_354344.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354194.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354145.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354102.jpg" />
 </div>
 
 
@@ -222,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354073.jpg" />
 </div>
 
 
@@ -250,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353984.jpg" />
 </div>
 
 
@@ -278,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353529.jpg" />
 </div>
 
 
@@ -307,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353406.jpg" />
 </div>
 
 
@@ -334,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352986.jpg" />
 </div>
 
 
@@ -362,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные материалы для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352670.jpg" />
 </div>
 
 
@@ -390,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352387.jpg" />
 </div>
 
 
@@ -416,7 +468,7 @@ Moko Interactive | Creative Painter3.3 [2006] [unpacked]
 >>Мультимедийные материалы для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352340.jpg" />
 </div>
 
 
@@ -442,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352155.jpg" />
 </div>
 
 
@@ -468,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352016.jpg" />
 </div>
 
 
@@ -494,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352011.jpg" />
 </div>
 
 
@@ -522,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351997.jpg" />
 </div>
 
 
@@ -548,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351996.jpg" />
 </div>
 
 
@@ -575,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351826.jpg" />
 </div>
 
 
@@ -601,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351664.jpg" />
 </div>
 
 
@@ -629,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351575.jpg" />
 </div>
 
 
@@ -640,60 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A370B7289C5BFC236E7AAAE43FD0B1F4D71359A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418208   (351365) от 23.10.2020
-
-Леонид Яхнин | Почемучкины книжки. Какие бывают дома? (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351365.jpg" />
-</div>
-
-
-###  Подробнее
-
-Человек живёт повсюду – и на снежном севере, и на знойном юге, и в степных просторах, и среди лесов, и в горах, и в пустыне, и даже на воде. И в каждой из этих местностей дом устроен по-cвоему: на севере дом строят прямо из снега, в Японии – из бумаги, а в пустыне люди умудряются поместить в свой дом целое озеро!
-
-Какие именно дома строят в разных уголках мира, как (   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A29CAEB5D980B51B683E42781C68BB6D5434313
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 724628   (351053) от 20.11.2013
-
-Мартин Кин | Плохая собака. Как одна невоспитанная собака воспитала своего хозяина (2012) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351053.jpg" />
-</div>
-
-
-###  Подробнее
-
-Познакомьтесь с очаровательным зенненхундом Холой! Пусть вас не обманывают ее добродушная морда и жизнерадостное помахивание хвостом: на самом деле, Хола – настоящий кошмар любого уважающего себя собачника. Она не понимает ни одной команды, потрошит продуктовые сумки соседей и с завидным упорством каждую ночь укладывается спать в хозяйскую кровать. Но в этом нет (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50B3A767F6D1E04F449A12BC5351189D50276893
 ```
 
 https://mybot314.ru/tekegram_catalog/

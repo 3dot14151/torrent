@@ -1,3 +1,55 @@
+###  Публикация: 1538947   (661183) от 22.03.2022
+
+Movavi Picverse Photo Editor 7.1 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Movavi Picverse предназначен как для начинающих, так и для опытных фотографов. Фоторедактор оснащен нейросетевыми функциями, которые помогут вам мгновенно получить профессиональный результат. Благодаря удобному, интуитивному интерфейсу на русском языке вы сможете сразу же начать работу в программе. Скачайте фоторедактор на компьютер и попробуйте прямо сейчас.Тип издания: macOS SoftwareРелиз состоялся: 22.03.2022Разработчик: © 2022 Movavi Software Limited.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2578C82B5F23D73C1E7D3F63D0EC425879D08F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538994   (660342) от 23.03.2022
+
+GlanceCal 1.6.2 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работайте на Mac более продуктивно с GlanceCal и никогда больше не пропустите встречу. Легко и быстро узнайте, какая встреча будет следующей, и получите общее представление о своем дне.Тип издания: macOS SoftwareРелиз состоялся: 22.03.2022Разработчик: © 2019-2022 Henri BredtПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDD9FA72637460A36FBDB5B2B71D0EC65F2FCB82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1539012   (660339) от 23.03.2022
 
 Scrutiny 10 v10.4.17 [En]
@@ -6,7 +58,7 @@ Scrutiny 10 v10.4.17 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660339.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ GroupsPro 5.2.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660334.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ Cocktail Big Sur Edition 14.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660268.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ TangerineWallpaper 1.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660254.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ Graphics for iWork 3.1.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660187.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ Layout Lab - Templates for Keynote 3.1.6 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660112.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ Infographics Lab for Pages - Templates Bundle 3.1.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660100.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ Infographics Lab for Keynote - Templates Bundle 3.1.6 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659912.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ MAGIX SOUND FORGE Pro Mac v3.0.0 (100) CE [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659548.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ Sketch 50.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659546.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ Elements Lab - Templates for iWork 3.1.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659196.jpg" />
 </div>
 
 
@@ -299,7 +351,7 @@ Theme Lab - Templates for Keynote 5.1.6 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659074.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ Ephnic Movie Maker 2.4.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658995.jpg" />
 </div>
 
 
@@ -353,7 +405,7 @@ Expert Set - Templates for Pages, Keynote, Numbers 2.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658904.jpg" />
 </div>
 
 
@@ -379,7 +431,7 @@ Mail Stationery Expert - Templates for Mail 5.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658123.jpg" />
 </div>
 
 
@@ -406,7 +458,7 @@ Photo Album Expert - Templates for Adobe Photoshop 3.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657711.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ Escape 2 v2.0.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656919.jpg" />
 </div>
 
 
@@ -461,7 +513,7 @@ CollageIt 3 Pro 3.5.7 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656178.jpg" />
 </div>
 
 
@@ -489,7 +541,7 @@ Video Copilot Element 3D 2.0.7.2008 (Motion Design Bundle) for Mac [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656163.jpg" />
 </div>
 
 
@@ -515,7 +567,7 @@ Mac Video Downloader 2.7 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655118.jpg" />
 </div>
 
 
@@ -544,7 +596,7 @@ Video Copilot - Heat Distortion 1.0.30 for Mac [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655110.jpg" />
 </div>
 
 
@@ -570,7 +622,7 @@ Xversion 1.3.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655050.jpg" />
 </div>
 
 
@@ -597,7 +649,7 @@ MenuBar Stats 3 v3.8.6 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655030.jpg" />
 </div>
 
 
@@ -625,7 +677,7 @@ Avdshare Video Converter for Mac 7 v7.4.2 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655022.jpg" />
 </div>
 
 
@@ -636,58 +688,6 @@ Avdshare Video Converter, приложение для конвертирован
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31738E9E41A5DD3316E1B79D43B775C8CCE575E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540072   (655009) от 28.03.2022
-
-Image2icon - Make your icon‪s‬ 2.17 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Image2Icon Pro - простая в использовании утилита для создания иконок файлов и папок. Создание иконок еще никогда не было проще, чем с использованием Image2Icon. Достаточно перетащить нужное изображение, настроить вид стилизованного изображения и выбрать формат экспортируемого файла - и все.Тип издания: macOS SoftwareРелиз состоялся: 26.03.2022Разработчик: © 2022 Shiny Frog Ltd.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:447FEE1B82683400124147617926FC11D7677812
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540208   (654998) от 28.03.2022
-
-ViWizard Audible AA / AAX Converter for Mac 2.3.0 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654998.jpg" />
-</div>
-
-
-###  Подробнее
-
-ViWizard Audible AA / AAX Converter - один из самых умных конвертеров аудиокниг, с которым может легко справиться любой пользователь Audible. Благодаря передовому и уникальному процессору дешифрования, ViWizard Audible Audiobook Converter для Mac разработан для полной и независимой загрузки любых аудиокниг Audible AA, AAX без предварительной авторизации вашей учетной (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.11.2021Разработчик: © 2022 ViWizardПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E5A21803E5DD66C075BC45719E3E1F293507C4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

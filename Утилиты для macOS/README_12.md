@@ -1,3 +1,30 @@
+###  Публикация: 1009486   (809773) от 21.04.2016
+
+Gemini 1.5.17 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gemini поможет быстро найти и удалить одинаковые файлы на вашем Mac. Превратите скучное удаление дубликатов в развлечение! Работает приложение более чем оперативно, так что результаты не заставят себя долго ждать. По окончании работы кольцо радостно позеленеет и появится предложение перейти к результатам сканиования.
+Gemini распределяет данные по типам, например (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 21 апреля 2016Разработчик: MacPaw Inc.Поддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79E4D40D7803EC451E25BCA6CF543B6DEF7E9938
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009686   (807190) от 22.04.2016
 
 VMware Fusion Pro 8.1.1 (3771013) [Multi]
@@ -6,7 +33,7 @@ VMware Fusion Pro 8.1.1 (3771013) [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807190.jpg" />
 </div>
 
 
@@ -34,7 +61,7 @@ Image Uploader Lite [WineSkin] 1.3 (4222) [Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806466.jpg" />
 </div>
 
 
@@ -61,7 +88,7 @@ OnyX 4.0.1 for macOS Big Sur 11 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806386.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ Stellar Drive ToolBox 4.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805059.jpg" />
 </div>
 
 
@@ -115,7 +142,7 @@ SmartBackup 4.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803463.jpg" />
 </div>
 
 
@@ -144,7 +171,7 @@ App Uninstaller 4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803360.jpg" />
 </div>
 
 
@@ -172,7 +199,7 @@ iBoysoft Drive Manager -For External/Network Drive 2.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803132.jpg" />
 </div>
 
 
@@ -201,7 +228,7 @@ CrossOver 17.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801495.jpg" />
 </div>
 
 
@@ -229,7 +256,7 @@ Clone X 4.3.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800986.jpg" />
 </div>
 
 
@@ -255,7 +282,7 @@ Dropzone 3.6.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800515.jpg" />
 </div>
 
 
@@ -282,7 +309,7 @@ Wi-Fi Speed Test 2.1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800475.jpg" />
 </div>
 
 
@@ -311,7 +338,7 @@ Duplicate Detective 2 v1.0.13 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800247.jpg" />
 </div>
 
 
@@ -338,7 +365,7 @@ Fresh 4 v4.0.4 fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800243.jpg" />
 </div>
 
 
@@ -365,7 +392,7 @@ Leap 4 v4.0.4 fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800240.jpg" />
 </div>
 
 
@@ -391,7 +418,7 @@ Weather Guru 2.5.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800186.jpg" />
 </div>
 
 
@@ -417,7 +444,7 @@ NTI Dragon Burn 4.5.0.45 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800144.jpg" />
 </div>
 
 
@@ -444,7 +471,7 @@ Mirror for Sony TV 1.4.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799594.jpg" />
 </div>
 
 
@@ -473,7 +500,7 @@ PDF Squeezer 4 v4.3.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799500.jpg" />
 </div>
 
 
@@ -500,7 +527,7 @@ QuickRes 4.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799486.jpg" />
 </div>
 
 
@@ -526,7 +553,7 @@ QuickRes 4.4.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799222.jpg" />
 </div>
 
 
@@ -552,7 +579,7 @@ Cinch 1.2.4 fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799130.jpg" />
 </div>
 
 
@@ -579,7 +606,7 @@ Display Maestro 5 v5.0.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798764.jpg" />
 </div>
 
 
@@ -606,7 +633,7 @@ iNet Network Scanner 2.8.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798755.jpg" />
 </div>
 
 
@@ -633,7 +660,7 @@ Battery Health 3 v1.0.28 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798454.jpg" />
 </div>
 
 
@@ -660,7 +687,7 @@ Disk Drill Media Recovery 4.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798421.jpg" />
 </div>
 
 
@@ -672,32 +699,6 @@ Disk Drill Media Recovery - это самое простое и удобное �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E921B0B9B5033898526EB8BE42BD8418B77DB167
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507759   (798307) от 05.11.2021
-
-Voice Memo 2.3.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798307.jpg" />
-</div>
-
-
-###  Подробнее
-
-Voice Memo позволяет записать сообщение, которое вы можете отправить самому себе в будущем, используя встроенный календарь будильника. Это очень точный способ подробно рассказать себе, чем вы хотите заниматься в определенное время. Напомните себе о важном событии или задаче, используя тон своего голоса, чтобы передать более сильное сообщение. Голосовые сообщения (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.07.2021Разработчик: © 2021 iLifeTouch Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EF6023ECDB6BFB3AF83F028EC88DC99CA1856DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

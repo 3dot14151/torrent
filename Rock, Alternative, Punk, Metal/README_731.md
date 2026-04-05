@@ -1,3 +1,32 @@
+###  Публикация: 1580656   (329928) от 02.10.2022
+
+Dynazty - Final Advent (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Power Of Will (3:55)
+02. Advent (3:48)
+03. Natural Born Killer (3:26)
+04. Yours (4:26)(   Читать дальше...   )Жанр: Hard Rock, Melodic MetalПродолжительность: 00:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13CA5491F753E136BB87CCD3AF39804A42031BC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580808   (329925) от 02.10.2022
 
 Харизма - 15 лет штурмуем небо! (2022) Live [MP3|320 Kbps] <Heavy Metal>
@@ -6,7 +35,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329925.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ B.O.W. (Brotherhood Of Wolves) - A Dump Of Twisted Destinies (2022) [MP3|320 Kbp
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329924.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Tsygun - 2 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Crust, Grindcore, B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329917.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329911.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ House Of Lords - Saints and Sinners (2022) Japanese Edition [FLAC|Lossless|image
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329910.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329902.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Arena - 12 Albums LP (2022) [MP3|320 Kbps] <Arena Rock, Progressive Rock, Neo-Pr
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329836.jpg" />
 </div>
 
 
@@ -210,7 +239,7 @@ Abyssphere - 4 Albums (2010-2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329816.jpg" />
 </div>
 
 
@@ -239,7 +268,7 @@ Pink Floyd - The Endless River (Deluxe) (2014) [FLAC|24/96|WEB|Tracks]<Psychedel
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329804.jpg" />
 </div>
 
 
@@ -268,7 +297,7 @@ Manfred Mann’s Earth Band - Watch (1978) Japanese Edition, Reissue, 2022, Bell
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329775.jpg" />
 </div>
 
 
@@ -297,7 +326,7 @@ Moonspell - From Down Below - Live 80 Meters Deep (2022) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329762.jpg" />
 </div>
 
 
@@ -326,7 +355,7 @@ ParkingLotGrass - Tusk at Hand (2015) [MP3|320 кб/с]<Alt. Rock, Modern Hard R
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329445.jpg" />
 </div>
 
 
@@ -355,7 +384,7 @@ Sara Lov - Some Kind of Champion (2015) [MP3|320 кб/с]<Alternative, Dream Pop
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329436.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ Lifeline - Scream (2015) Japanese Edition [MP3|320 кб/с]<Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329413.jpg" />
 </div>
 
 
@@ -413,7 +442,7 @@ Rod Stewart - Another Country (Deluxe Edition) (2015) [FLAC|Image+cue]<Classic R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329374.jpg" />
 </div>
 
 
@@ -442,7 +471,7 @@ VA - Рок против шерсти (приложение к журналам 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329364.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ Dolphin (Дельфин) - Андрей (2014) Remastered Deluxe Version, 2015 [
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329201.jpg" />
 </div>
 
 
@@ -500,7 +529,7 @@ Butchery - Ferocious Rampage (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329062.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ Runelord - The Battle For Greatness (2018) [FLAC|Lossless|image + .cue] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329061.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ Acausal Intrusion - Seeping Evocation (2022) [FLAC|Lossless|WEB-DL|tracks] <Tech
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329060.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ Ian Blurton's Future Now - Second Skin (2022) [FLAC|Lossless|WEB-DL|tracks] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329059.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ Tankard - Pavlov's Dawgs (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329058.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ Nylist - Divine Vision Torn Apart (2022) [FLAC|Lossless|WEB-DL|tracks] <Deathcor
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329056.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ Black Tongue Reverend - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psy
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329055.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ Dark Divine - Halloweentown (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Metalcore, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329054.jpg" />
 </div>
 
 
@@ -715,33 +744,6 @@ Dark Divine - Halloweentown (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Metalcore, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74C623FD2CA16A01C22B3BB1150F81AD816D50EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580922   (329053) от 03.10.2022
-
-Elysian Fields - Gateway (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Rock Opera>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Heechee Rendezvous (00:27:41)
-02 - Annals of the Heechee (00:32:26)Жанр: Progressive Rock, Rock OperaПродолжительность: 01:00:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:417BB76916CEBE77F58FBB7E8689FF103A406D01
 ```
 
 https://mybot314.ru/tekegram_catalog/

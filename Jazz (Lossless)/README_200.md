@@ -6,7 +6,7 @@ John Hicks, Elise Wood, Walter Booker - Single Petal of a Rose (1994) Mapleshade
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378527.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Ernestine Anderson - Nightlife: Live at Dizzy's Club Coca-Cola (2011) HighNote R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378525.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Andre Previn - Alone: Ballads For Solo Piano (2007) Universal[FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378457.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Art Pepper & Conte Candoli - Mucho Calor (1957) 1987, V.S.O.P. Records[FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378456.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Wild Carrot with Hank Ross - I've Heard That Song Before (2008) Falling Mountain
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378453.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Paolo Fresu & Omar Sosa - Eros (2016) Tuk Music[FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378449.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Jeanne Lee & Ran Blake - The Legendary Duets (1961) 1987, Bluebird[FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378448.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Sir Roland Hanna Trio - Milano, Paris, New York finding John Lewis (2003) Venus 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378315.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ John Coltrane - Lush Life (1957) Reissue, Remastered, 1997, DCC [WavPack|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_378260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_378260.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Bob James & Company - Casino Lights '99 (2000) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_377754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_377754.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Virgil Gonsalves Sextet & Steve White Quartet / Quintet - Jazz In Hollywood Seri
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377705.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ The John Coltrane Quartet - Africa/Brass (1961) /2007, Verve/[FLAC|tracks+.cue]<
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377695.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ The Four Freshmen - Day By Day (1962) 1994, Hindsight Jazz [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377630.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Sainkho / Ned Rothenberg - Amulet (1996) [FLAC|Lossless|tracks + .cue] <Jazz, Fr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377629.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Dan Siegel - Indigo (2014) /M&I Jazz/[FLAC|tracks+.cue]<Smooth Jazz, Contemporar
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377587.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ VA - Smooth Jazz Relaxing (2015) [FLAC|tracks]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377417.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Stan Getz - The Girl from Ipanema - The Bossa Nova Years (1984) 4CD, 1989, Verve
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377387.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Grant Green - Slick! Live At Oil Can Harry's (1975) 2018, Resonance Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376848.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Kei Kobayashi - Softly (2002) Somethin' Else [FLAC|Lossless|tracks + .cue] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376784.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Sammy Davis, Jr. - The Definitive Collection (1950-e - 1970-e) 2006, Hip‐O Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376781.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Jimmy Smith - The Fantastic Jimmy Smith (1953, 1954) 2002, Empire Music Group [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376780.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Jazz Grooves: Best of MapleShade, vol.3 (2010) MapleShade Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376779.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Buddy DeFranco (De Franco) & Martin Taylor - Garden of Dreams (1988) ProJazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376774.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Jazz Ladies (2006) 3CD, Weton-Wesgram [FLAC|Lossless|tracks + .cue] <Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376635.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Simone Kopmajer - Moonlight Serenade (2004) Venus Records[FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375953.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Amy Winehouse - At The BBC (2012) [FLAC (tracks+cue)|Lossless]<Jazz, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_375443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_375443.jpg" />
 </div>
 
 

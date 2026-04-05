@@ -1,3 +1,135 @@
+###  Публикация: 1263764   (285757) от 20.11.2018
+
+Журнал | Популярная механика №12 (194) (декабрь 2018) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал о том, как устроен наш мир. Для всех, кто хочет знать о научных изобретениях, сделанных в России и по всему миру, об инновационных технологиях, последних разработках в области космоса, авиации, автомобилей, оружия и компьютеров, которые в скором будущем могут усовершенствовать нашу жизнь.Жанр: Научно-популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E7F57F84B41BBFB687016CE2441CC5B0A36DB7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963684   (285636) от 09.12.2015
+
+Журнал | Библиотека журнала Похудей №3 Лёгкие блюда для новогоднего стола (2016) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285636.jpg" />
+</div>
+
+
+###  Подробнее
+
+Слово «легкий» в русском языке имеет несколько значений, в применении к новогоднему столу напрашиваются как минимум два. Легкие блюда - легкие в приготовлении, не требующие от хозяйки тяжелой вахты у плиты, которая отнимает все душевные и физические силы и превращает встречу Нового года в очередное испытание.
+Но подсознательно мы считываем и второй смысл: легкие (   Читать дальше...   )Жанр: женские журналы, здоровье, диетологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8A186CB1F86936BCCC02CD2D466832A33EFE211
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963672   (285625) от 09.12.2015
+
+Журнал | Библиотека журнала Похудей №1 Кремлёвская диета (2016) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285625.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из самых известных диет, которую называют также «диетой американских астронавтов». Спросить астронавтов. как она на них подействовала, нет возможности, но вот женщины, прожившие большую часть жизни в Советском Союзе, охотно делятся своим опытом: в те годы, когда выбор продуктов в магазинах был невелик, «кремлевская» диета была чуть ли не единственным способом (   Читать дальше...   )Жанр: Женские журналы, здоровье, диетологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C92186D369CD1187468FBAA7453A062537BF893
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963674   (285621) от 09.12.2015
+
+Журнал | Библиотека журнала Похудей №2 Диета по группе крови (2016) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285621.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одной из самых популярных систем питания на протяжении вот уже многих лет считается диета по группе крови. Автор этой системы, американский натуропат Питep Д'Адамо утверждает: каждая группа крови сформировалась в разное время и изначально была тесно связана с образом жизни людей в те далекие дни. Согласно теории доктора Д'Адамо. и сегодня от группы крови зависит (   Читать дальше...   )Жанр: Женские журналы, здоровье, диетологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC2BDCA17455E4865E97A54677E36DB9C90D9671
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081079   (285566) от 08.12.2016
+
+Подшивка журналов | Роман-газета [432 номера] (1939-1993) [PDF, DJVU, FB2, RTF, DOC, TXT]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман-газета - советский и российский литературный журнал, выходящий ежемесячно с 1927 года и дважды в месяц с 1957.
+К июлю 1987 года (к 60-летию со дня выхода в свет первого номера журнала) издано 1066 номеров «Роман-газеты» общим тиражом свыше 1 миллиарда 300 миллионов экземпляров. За этот период в «Роман-газете» выступило 528 авторов, из них 434 советских писателя (   Читать дальше...   )Жанр: Литературно-художественный журналФормат: PDF, DJVU, FB2, RTF, DOC, TXT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC4D857C469B4253BBB011C668CF840584B747C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 964008   (285495) от 09.12.2015
 
 Газета | 1000 секретов. Готовим в мультиварке №11. Вкусные праздники (2015) [PDF]
@@ -6,7 +138,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285495.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285212.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285197.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285090.jpg" />
 </div>
 
 
@@ -111,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285084.jpg" />
 </div>
 
 
@@ -137,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285073.jpg" />
 </div>
 
 
@@ -163,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284962.jpg" />
 </div>
 
 
@@ -189,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284961.jpg" />
 </div>
 
 
@@ -215,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284758.jpg" />
 </div>
 
 
@@ -243,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284757.jpg" />
 </div>
 
 
@@ -269,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284755.jpg" />
 </div>
 
 
@@ -297,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284738.jpg" />
 </div>
 
 
@@ -323,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284736.jpg" />
 </div>
 
 
@@ -350,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284734.jpg" />
 </div>
 
 
@@ -376,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284733.jpg" />
 </div>
 
 
@@ -402,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284732.jpg" />
 </div>
 
 
@@ -428,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284609.jpg" />
 </div>
 
 
@@ -454,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284589.jpg" />
 </div>
 
 
@@ -480,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284574.jpg" />
 </div>
 
 
@@ -506,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284565.jpg" />
 </div>
 
 
@@ -532,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284507.jpg" />
 </div>
 
 
@@ -544,136 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0AB24B1334598ACC867E9789F6674B1C2733086
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263828   (284506) от 21.11.2018
-
-Журнал | Эксперт №47 (1098) (ноябрь 2018) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Эксперт» — одно из самых влиятельных еженедельных деловых аналитических изданий России. За 14 лет своего существования в непростых политических и экономических условиях изданию удалось не только выжить и сохранить своих читателей, но и расширить их круг, заслужив репутацию несомненного лидера российской деловой журнальной прессы. Все наши знания и опыт нацелены (   Читать дальше...   )Жанр: Экономика, политикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:047775658FB6043BDE608FB9499B9C998F69DCCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263841   (284491) от 21.11.2018
-
-Журнал | Вокруг света №12 (декабрь 2018) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал публикует новые взгляды на известные исторические события, рассказы о знаменитых людях и их судьбах, информацию о новых научных открытиях и технических достижениях. Он был основан в Санкт-Петербурге в 1861 году и с того времени практически без перерывов издаётся на протяжении уже полутора веков. За это время журнал прошел несколько этапов от географического (   Читать дальше...   )Жанр: Научно-популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:508B7339C34AB00E9C1052AE20581B05496C215B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081220   (284449) от 09.12.2016
-
-Журнал | Радиоэлектронные технологии №1 (2017) [PDF]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284449.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Радиоэлектронные технологии» - важными направлениями журнала стали поддержание и развитие имиджа радиоэлектронной отрасли, информирование отечественных и зарубежных партнеров о возможностях предприятий в области создания и производства радиоэлектронных устройств и комплексов, информационная поддержка научно-технических и инновационных технологических разработок (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E17EC5111769252361FFBF4D41A0BCAF4A8CD10C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186760   (284448) от 26.11.2017
-
-Журнал | Ландшафтный дизайн №6 (ноябрь-декабрь 2017) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284448.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Ландшафтный дизайн» - первое российское издание о декоративном садоводстве. Журнал знакомит читателей с наиболее известными садами и парками России и мира, лучшими работами по ландшафтному дизайну. Здесь представлены модные стили и направления ландшафтного дизайна, информация о современных технологиях проведения ландшафтных работ. Журнал позволит вам взглянуть на (   Читать дальше...   )Жанр: Дом, сад, огород, дача, цветоводство, ландшафтный дизайнФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71546A74828A523F73D6CAF42C34F294E107110F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186694   (284427) от 26.11.2017
-
-Журнал | Forbes [Россия] №12 (165) (декабрь 2017) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284427.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Forbes" - ведущий деловой журнал в мире. Миссия журнала – обеспечивать читателей информацией, гарантирующей им успех. Журнал Forbes - независимое бизнес-издание. Forbes не публикует информацию, которая уже вышла в других СМИ. Каждый материал в журнале - эксклюзивный. В журнале: статьи экономистов и политиков специально для Forbes, экономические новости, (   Читать дальше...   )Жанр: Деловой журнал, Бизнес и ПолитикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7A45956B0F4D7DD2CD44B4BAB775F98B7B6BF96
 ```
 
 https://mybot314.ru/tekegram_catalog/

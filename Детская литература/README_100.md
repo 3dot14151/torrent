@@ -1,30 +1,3 @@
-###  Публикация: 916836   (587995) от 14.07.2015
-
-Риталий Заславский (сост.) | Где ты, барвинок, рос, вырастал (1975) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию предлагается сборник песенок, считалок и скороговорок из украинской народной и классической поэзии.
-Удивительная книга, необыкновенная... Читаешь ее - словно по сказочному морю плывешь: от волны к волне, к таинственному острову собственного детства. И радостно на душе, и немножко грустно. Ах, как давно звучали эти милые песенки и потешки на маминых (   Читать дальше...   )Жанр: Детская литература, классическая поэзияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A741130A5D0AE5C7C23E977D74F2B1A5D797FCE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1552355   (587709) от 20.05.2022
 
 Игорь Акимушкин | Это всё антилопы (1977) [PDF]
@@ -33,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587709.jpg" />
 </div>
 
 
@@ -60,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587526.jpg" />
 </div>
 
 
@@ -86,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587520.jpg" />
 </div>
 
 
@@ -112,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587426.jpg" />
 </div>
 
 
@@ -140,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587223.jpg" />
 </div>
 
 
@@ -167,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587120.jpg" />
 </div>
 
 
@@ -193,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586985.jpg" />
 </div>
 
 
@@ -222,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586978.jpg" />
 </div>
 
 
@@ -250,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586488.jpg" />
 </div>
 
 
@@ -278,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586478.jpg" />
 </div>
 
 
@@ -304,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586336.jpg" />
 </div>
 
 
@@ -330,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586007.jpg" />
 </div>
 
 
@@ -356,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585837.jpg" />
 </div>
 
 
@@ -383,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585566.jpg" />
 </div>
 
 
@@ -409,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585538.jpg" />
 </div>
 
 
@@ -436,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585521.jpg" />
 </div>
 
 
@@ -462,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585465.jpg" />
 </div>
 
 
@@ -488,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585408.jpg" />
 </div>
 
 
@@ -515,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584944.jpg" />
 </div>
 
 
@@ -542,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584888.jpg" />
 </div>
 
 
@@ -568,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584815.jpg" />
 </div>
 
 
@@ -594,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584114.jpg" />
 </div>
 
 
@@ -620,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584109.jpg" />
 </div>
 
 
@@ -646,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584020.jpg" />
 </div>
 
 
@@ -672,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583998.jpg" />
 </div>
 
 
@@ -683,6 +656,34 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09F5D48BE64A01FCA94F3C3CA148E02F0265D197
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919173   (583974) от 18.07.2015
+
+Шарль Перро | Кот в сапогах (2004) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583974.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник сказок Ш. Перро включены наиболее популярные из них: Золушка, или хрустальная туфелька; Подарки феи; Спящая красавица; Кот в сапогах; Мальчик-с-пальчик; Ослиная шкура; Синяя борода.
+
+Для младшего школьного возраста.Жанр: СказкиПеревод: И. С. ТургеневФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:276DC16CC5A51792DD451DC3CE073AA4106696AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

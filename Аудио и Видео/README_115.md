@@ -6,7 +6,7 @@ VA - Deep House Rhythms, Vol. 1 (2018) [AAC|~320 Kbps] <Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707354.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Deep House Rhythms, Vol. 2 (2022) [AAC|~309 Kbps] <Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707347.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Diamonds & Pearls Lounge, Vol. 2 (2009) [AAC|~338 Kbps] <Lounge, Chill Out,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707343.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Chill House Vibes Vol 3: Ultimate Chill House Collection (2022) [AAC|~323 K
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707329.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - I Need You Tonight, Vol. 1 (50 Deep-House Babies) (2016) [AAC|~327 Kbps] <D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707324.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Sunset Relaxation, Vol. 1 (2022) [AAC|~305 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707217.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Work & Relax: Urban Chillout Music (2022) [AAC|~330 Kbps] <Lounge, Chill Ou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707207.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Oriental Deep House Gems 3 (2022) [AAC|~320 Kbps] <Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707157.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Notes from the Depth, Vol. 21 (2022) [AAC|~330 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707047.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_707010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_707010.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706991.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706990.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706892.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706736.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706594.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706386.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706355.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706351.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706032.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705955.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705760.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705758.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705654.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705652.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ The New Burlesque Roadshow - Burlesque Show Music (2011) [AAC|~343 Kbps] <Pop, J
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705349.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ VA - Vocal Trance Legends 2022 (2022) [AAC|~336 Kbps] <Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705347.jpg" />
 </div>
 
 

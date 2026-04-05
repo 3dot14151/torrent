@@ -1,3 +1,59 @@
+###  Публикация: 1283339   (739735) от 17.02.2019
+
+VA - Live @ Trancemission Heartbeat, Stadium Live Moscow, Russia 2019-02-15 [MP3|320 Kbps] <Trance, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Feel @ Trancemission Heartbeat, Stadium Live Moscow, Russia 2019-02-15:Жанр: Trance, Progressive HouseПродолжительность: 00:59:51
+N/A
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80D6EA42C9A2B58516625EA3D249BC3CAFD9D830
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283701   (739674) от 17.02.2019
+
+VA - Lost Dubs 2 (2018) Microfunk Music [FLAC|Lossless|WEB-DL|tracks] <Drum n Bass, IDM, Experimental>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oak – Mongoose (06:13)
+02. Bop – Memories (05:19)
+03. Dissident – Release Me From Space (05:35)
+04. A.Fruit – Be Careful With The Clouds (04:20)(   Читать дальше...   )Жанр: Drum n Bass, IDM, ExperimentalПродолжительность: 00:54:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:048FF61BC1348F16C3240BE11B486FE8B70E4747
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283531   (739567) от 17.02.2019
 
 VA - Sick Music 2019 [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
@@ -6,7 +62,7 @@ VA - Sick Music 2019 [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739567.jpg" />
 </div>
 
 
@@ -35,7 +91,7 @@ VA - Female Vocal Trance (2019) [FLAC|Lossless|WEB-DL|tracks] <Trance, Vocal Tra
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739555.jpg" />
 </div>
 
 
@@ -64,7 +120,7 @@ VA - Pure... Chillout (2011) Box Set, 4 CD [FLAC|Lossless]<Electronic, Lounge, C
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739231.jpg" />
 </div>
 
 
@@ -94,7 +150,7 @@ Tony Birch - Gamechanger (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrow
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739136.jpg" />
 </div>
 
 
@@ -123,7 +179,7 @@ The Art Of Noise - Balance (Music For The Eye) (2022) 3CD [FLAC|Lossless|WEB-DL|
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738429.jpg" />
 </div>
 
 
@@ -152,7 +208,7 @@ Lane 8 - Reviver (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738137.jpg" />
 </div>
 
 
@@ -181,7 +237,7 @@ VA - Sleep over to Chill: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737808.jpg" />
 </div>
 
 
@@ -210,7 +266,7 @@ Burial - Antidawn (2022) EP [FLAC|Lossless|tracks + .cue] <Abstract, Dubstep, UK
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737803.jpg" />
 </div>
 
 
@@ -239,7 +295,7 @@ VA - Chilled Space (2022) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Downtempo, Tr
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736921.jpg" />
 </div>
 
 
@@ -268,7 +324,7 @@ Richard Durand - Reactivate (2022) [FLAC|Lossless|WEB|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736895.jpg" />
 </div>
 
 
@@ -297,7 +353,7 @@ Blank & Jones - Relax: Jazzed 3 (2022) [FLAC|Lossless|WEB|tracks] <Chillout, Jaz
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736893.jpg" />
 </div>
 
 
@@ -326,7 +382,7 @@ Jacob Gurevitsch - Discography 10 Releases (2007-2022) [MP3|320 Kbps] <New Age, 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736862.jpg" />
 </div>
 
 
@@ -355,7 +411,7 @@ Duncan Ritchie aka Flowers For Bodysnatchers / The Rosenshoul / Anihila - Discog
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736834.jpg" />
 </div>
 
 
@@ -384,7 +440,7 @@ Airstream - The Book of Sounds (2020) [FLAC|Lossless|WEB-DL|tracks] <Chillout, D
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736690.jpg" />
 </div>
 
 
@@ -413,7 +469,7 @@ Alle Farben - Out Of Space (2020) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chil
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736682.jpg" />
 </div>
 
 
@@ -442,7 +498,7 @@ VA - Ultra Cardio Dance & Aerobic Hits 2020 Workout Collection [MP3|320 Kbps] <H
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736656.jpg" />
 </div>
 
 
@@ -471,7 +527,7 @@ Massive Attack - 4 Albums (1991-2003) [FLAC|Lossless|image + .cue] <Trip Hop, Le
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736505.jpg" />
 </div>
 
 
@@ -500,7 +556,7 @@ V.A. - Cafe Del Mar - XX (Volumen Veinte) (2014) 2CD [FLAC|Lossless]<Lounge, Chi
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736372.jpg" />
 </div>
 
 
@@ -529,7 +585,7 @@ Warner Case - dance music for dancing, vol. 1-2 (2019-2020) [FLAC|Lossless|WEB-D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736199.jpg" />
 </div>
 
 
@@ -558,7 +614,7 @@ Kryder - Axtone House Party(Live @ Ministry Of Sound London 2021-11-19) (2022-01
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735868.jpg" />
 </div>
 
 
@@ -587,7 +643,7 @@ Cosmic Gate - Live @ Sunset Set, Puerto Vallarta, Mexico (2022-01-19) [MP3|320 K
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735866.jpg" />
 </div>
 
 
@@ -616,7 +672,7 @@ MRUKS - REMIXES 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Funky, Retrowave, Synthw
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735737.jpg" />
 </div>
 
 
@@ -643,7 +699,7 @@ VA - Goa Festival Sounds, Vol.4 (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Tr
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735630.jpg" />
 </div>
 
 
@@ -672,7 +728,7 @@ KAAZE - Best Of 2021 Mashups (2021-12-27) [MP3|320 Kbps] <Electro House, Big Roo
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735392.jpg" />
 </div>
 
 
@@ -686,64 +742,6 @@ KAAZE - Best Of 2021 Mashups (2021-12-27) [MP3|320 Kbps] <Electro House, Big Roo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF60379D0D03601E4B1E090A86C2F305558C1D40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528196   (735391) от 31.01.2022
-
-Marc Benjamin - Nicky Romero & Friends Presents NYE (2021-12-31) [MP3|320 Kbps] <Electro Pop, Big Room, Future House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Billie Eilish - Your Power (Marc Benjamin Remix)
-02. Tiësto, KAROL G - Don’t Be Shy
-03. Dua Lipa vs. SAINt JHN & Imanbek vs. Marc Benjamin & Malarkey - Hallucinate vs. Roses vs. I Got 5 On It (Marc Benjamin Mashup)
-04. Marc Benjamin feat. NEVRMIND - Waiting For You (Future Disco Remix)(   Читать дальше...   )Жанр: Electro Pop, Big Room, Future HouseПродолжительность: 00:59:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F85EC1EC6B28F9823B92152135526609A040434F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528062   (735368) от 31.01.2022
-
-InnerSync - Free Spirit (2022) [FLAC|Lossless|WEB|tracks] <Uplifting Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rising Of The Elven Forest (Cinematic Mix) (2:52)
-02. Rising Of The Elven Forest (Original Mix) (8:29)
-03. Treasure Inside (Original Mix) (8:00)
-04. Unbound (Original Mix) (9:09)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 00:46:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7F2CFCC1EEB93C6CC525DCC363FA3B4AAAF9F56
 ```
 
 https://mybot314.ru/tekegram_catalog/

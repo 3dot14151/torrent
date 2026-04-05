@@ -1,3 +1,134 @@
+###  Публикация: 943721   (444044) от 05.10.2015
+
+Koukaku Kidoutai Stand Alone Complex | Ghost in the Shell: Stand Alone Complex | Призрак в доспехах: Синдром одиночки (ТВ-1) [2002, TV, 26 эп.] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444044.jpg" />
+</div>
+
+
+###  Подробнее
+
+В будущем грань между дигитальным и физическим мирами заметно стёрлась, кибертроника изменила жизнь человечества до неузнаваемости, создав новый синтетический уровень существования и сведя людей в единую Сеть. Однако сближение живых организмов и машин оказалось чревато опаснейшими последствиями, предоставив злоумышленникам невиданные доселе возможности манипулирования (   Читать дальше...   )Производство: Production I.GЖанр: приключения, фантастика, меха, киберпанкРежиссер: Камияма КэндзиПеревод: MC Entertainment | Suzaku | Rising Sun (eng)Язык субтитров: Русский (отключаемый), Английский (отключаемый)Формат: mkvПродолжительность: 26 эп., 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A43D082CE800F52F5DF8B2780C0C47732950B5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032495   (443454) от 12.10.2016
+
+Berserk / Берсерк [TV-2] [2016, TV, 12] WEB-DL 720p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет повествует о могучем воине по имени Гатс, он странствует по миру, похожему на средневековую Европу, но с демонами. Означенных демонов Гатс люто ненавидит и истребляет в надежде отомстить одному конкретному и крайне могущественному, в схватке с приспешниками которого он некогда потерял глаз, левую руку и ещё кое-что крайне ценное. Для этих целей Гатс использует (   Читать дальше...   )Производство: Япония, Liden Films / ライデンフィルムЖанр: приключения, фэнтезиРежиссер: Итагаки СинПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA59E542EEDD2045AA4643E975A891E9B348D9E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 828335   (439083) от 06.10.2014
+
+Outbreak Company / Мятежная компания [2013, TV, 12 ep] BDRip Hi10p 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мечты сбываются! Когда Япония первой обнаружила проход в параллельный мир людей, гномов и эльфов, оказалось, что самым востребованным товаром в межмировом обмене является… современная массовая культура! Да, вы не ослышались – партнеры проявили интерес не к ядерной энергии или политическому строю, а именно к манге, аниме и прочим сокровищам Страны Восходящего солнца. Кто же понесет братьям по разуму благую весть о Творце Тэдзуке-сама и Миядзаки, пророке его? Конечно же, истинный отаку, бывший хикикомори, в любом (   Читать дальше...   )Жанр: комедия, фэнтези, пародияРежиссер: Ойкава КэйПеревод: antibillotic & kuro & ximikФормат: MKV |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FA290A8856E0113DADE037D3C886A76A75F7821
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236362   (439024) от 21.09.2018
+
+Isekai Maou to Shoukan Shoujo no Dorei Majutsu / How Not to Summon a Demon Lord / Повелитель тьмы: Другая история мира [2018, TV, 12 ep] HDTV 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439024.jpg" />
+</div>
+
+
+###  Подробнее
+
+В MMORPG-игре «Перепутье» ни один игрок не мог потягаться по силе и стратегии с Диабло — игроком, которого остальные часто называли «Королём демонов». В реальности же Диабло — Такума Сакамото, затворник, который посвятил игре уже несколько лет и знает о ней практически всё.
+Однажды Такума при странном стечении обстоятельств приходит в себя на странном алтаре в окружении (   Читать дальше...   )Жанр: комедия, фэнтезиРежиссер: Мурано ЮтаЯзык озвучки: Японский и РусскийСубтитры: ASS, Встроенные, Полные | НадписиФормат: MKVПродолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CC8D21FF56C8D181B027D7708E3532AD318C7E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944399   (437124) от 08.10.2015
+
+Naruto The Movie 10: The Last Naruto the Movie / Наруто последний фильм [2015, Movie] WEB-DL 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аниме расскажет о Наруто, сильном и отважном воине Ниндзя. Много времени мы наблюдали за этим героем, как он поставил перед собой цель стать воином, и упорно шел к ней. Не останавливаясь ни перед чем, несмотря на падения, он все-таки добился своего. Сейчас Наруто практически достиг совершенства в своем деле, и может по праву называться ниндзя. Мы знаем его как отважного, (   Читать дальше...   )Производство: Япония, Aniplex, Dentsu, ShueishaЖанр: приключения, боевые искусства, сёнэнРежиссер: Цунэо КобаясиОзвучка: Профессиональная (полное дублирование от Reanimedia)Язык субтитров: ОтсутствуютПродолжительность: 1:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B894206474929154A293B22E7DED4B42B3BD0325
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1165480   (432004) от 13.09.2017
 
 Mahou Tsukai no Yome: Hoshi Matsu Hito / The Ancient Magus' Bride: Those Awaiting a Star / Невеста чародея: В ожидании путеводной звезды [2017, OVA, 3 ep] WEB-DL 720p Raw+Rus
@@ -6,7 +137,7 @@ Mahou Tsukai no Yome: Hoshi Matsu Hito / The Ancient Magus' Bride: Those Awaitin
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432004.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ Hundred | Сотня [2016, TV, 12 из 12] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431317.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ Shingeki no Kyojin: Lost Girls / Attack on Titan: Lost Girls / Атака Тит
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430371.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ Juubee Ninpuuchou / Ninja Scroll / Манускрипт ниндзя [1993] BDRi
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425740.jpg" />
 </div>
 
 
@@ -118,7 +249,7 @@ Miru Tights | Созерцая колготки [2019, TV, 13 из 13] BDRip 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424979.jpg" />
 </div>
 
 
@@ -145,7 +276,7 @@ Danshi Koukousei no Nichijou | Daily Lives of High School Boys | Повседн�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424626.jpg" />
 </div>
 
 
@@ -171,7 +302,7 @@ Lapis Re:Lights [TV-1] [2020, TV, 12 из 12] WEB-DL 1080p rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424625.jpg" />
 </div>
 
 
@@ -197,7 +328,7 @@ Kanojo, Okarishimasu / Rent-A-Girlfriend / Девушка на час [2020, TV,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424624.jpg" />
 </div>
 
 
@@ -223,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424622.jpg" />
 </div>
 
 
@@ -249,7 +380,7 @@ Nobunaga the Fool / Чудак Нобунага [2014, TV, 24 ep] WEBRip 720p Ra
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423311.jpg" />
 </div>
 
 
@@ -275,7 +406,7 @@ Kurenai no Buta / Porco Rosso / The Scarlet Pig / Crimson Pig / Порко Ро�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423033.jpg" />
 </div>
 
 
@@ -301,7 +432,7 @@ Peter Grill to Kenja no Jikan | Peter Grill and the Philosopher's Time | Пёт�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420005.jpg" />
 </div>
 
 
@@ -327,7 +458,7 @@ The God of High School / Бог старшей школы [2020, TV, 13 ep] WEB-
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417637.jpg" />
 </div>
 
 
@@ -353,7 +484,7 @@ Choujikuu Kidan Southern Cross | Super Dimensional Cavalry Southern Cross | Ги
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413136.jpg" />
 </div>
 
 
@@ -379,7 +510,7 @@ Dakaretai Otoko 1-i ni Odosarete Imasu | Dakaichi: I'm Being Harassed by the Sex
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413135.jpg" />
 </div>
 
 
@@ -405,7 +536,7 @@ Boku no Hero Academia the Movie 2: Heroes Rising | My Hero Academia the Movie 2:
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411011.jpg" />
 </div>
 
 
@@ -431,7 +562,7 @@ Overlord III / Повелитель [ТВ-3] [2018, TV, 13 ep] WEB-DL 720p Raw+R
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410577.jpg" />
 </div>
 
 
@@ -457,7 +588,7 @@ Keppeki Danshi! Aoyama-kun / Cleanliness Boy! Aoyama-kun / Чистюля Аоя
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410128.jpg" />
 </div>
 
 
@@ -483,7 +614,7 @@ Re:Creators / Воссоздающие [2017, TV, 22 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409966.jpg" />
 </div>
 
 
@@ -509,7 +640,7 @@ Koi to Uso / Love and Lies / Любовь и ложь [2017, TV, 12] WEB-DL 720p
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409824.jpg" />
 </div>
 
 
@@ -535,7 +666,7 @@ Isekai Shokudou / Restaurant to Another World / Ресторанчик из ин
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409822.jpg" />
 </div>
 
 
@@ -546,137 +677,6 @@ Isekai Shokudou / Restaurant to Another World / Ресторанчик из ин
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4782362A692C4E6DFD7F0312A3A9F3638751A3FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 832475   (409701) от 19.10.2014
-
-Towa no Quon / Вечность вечного [2011, MV, 6 из 6] BDrip 1080p Hi10p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в будущем. Среди людского рода начали рождаться люди со сверх-способностями и получили название — пробудившиеся. За ними однако охотится тайная организация Кестос, которая призвана сохранять порядок в человеческом обществе, считая пробудившихся потенциально опасными, они ищут их и уничтожают. Пробудившимся может оказаться любой человек. Им помогает молодой парень (которому уже более 1000 лет) по имени Куон, он же сильнейший из пробудившихся, и главная его цель — объединить всех его сородичей, (   Читать дальше...   )Жанр: приключения, фантастикаРежиссер: Уманосукэ Иида, Мори ТакэсиПродолжительность: 6 эп. ~48 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDD73943057CB674860FF9C6DA6D94B2BC70495E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948740   (408930) от 21.10.2015
-
-Violence Jack: Jigoku Gai / Violence Jack: Evil Town / Жестокий Джек OVA-2 [1988, OVA, 1 эп] DVDRip 400p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408930.jpg" />
-</div>
-
-
-###  Подробнее
-
-После землятресения город "М" погреб под своим руинами всех его жителей, которых выжила только малая горстка. Изолировавшись друг от друга после кровопролитных междоусобных стычек они стараются выжить каждый в своем блоке. Джек как нормальный мужик присоединяется к группе где одни девушки и идет мочит других мужиков. Кровь, кишки, секас и все такое.Производство: ЯпонияЖанр: приключения, эротика, ужасыРежиссер: Итано ИтироЯзык субтитров: Русский (отключаемый)Продолжительность: 59 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0888FDC2C764125922CD8D5B5406F4E15A9D5CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948742   (408929) от 21.10.2015
-
-Violence Jack: Hell's Wind Hen / Violence Jack: Hell's Wind Chapter / Жестокий Джек OVA-3 [1990, OVA, 1 эп] DVDRip 384p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408929.jpg" />
-</div>
-
-
-###  Подробнее
-
-После падения метеорита, вызвавшего многочисленные стихийные бедствия и движения земной коры, цивилизация стремительно деградировала. Города лежат в развалинах; люди стремятся хоть как-то отстроиться и выжить (чему совсем не способствуют постоянные набеги бандитов).
-Мото-банды Ангелов Ада терроризируют мирных жителей, грабят, убивают и насилуют, и мало кто пытается (   Читать дальше...   )Производство: ЯпонияЖанр: приключения, эротика, ужасыРежиссер: Вада ТакуяЯзык субтитров: Русский (отключаемый)Продолжительность: 55 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7335E4D88DE958D6176C3277C7CDF6C5EFD453C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948739   (408927) от 21.10.2015
-
-Violence Jack: Harem Bomber Hen / Violence Jack: Slum King / Жестокий Джек OVA-1 [1986, OVA, 1 эп] DVDRip raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408927.jpg" />
-</div>
-
-
-###  Подробнее
-
-В конце ХХ века на Землю упал метеорит, вызвав многочисленные землетрясения, цунами и прочие стихийные бедствия. Большинство крупных городов Японии оказалось в руинах, в уцелевших населенных пунктах хозяйничают мародеры и стихийные воинские образования. Человек, именующий себя «Слам Кинг», претендует на единовластное правление в Канто. Однако, есть некто (или, быть (   Читать дальше...   )Производство: ЯпонияЖанр: приключения, эротика, ужасыРежиссер: Камидзё ОсамуЯзык субтитров: Русский (отключаемый)Продолжительность: 37 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:512465B374A855A0ED7F40C78F764721CB8EBDFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401440   (406601) от 06.10.2020
-
-Пётр Гриль и время мудреца | Peter Grill to Kenja no Jikan | Peter Grill and the Philosopher's Time [2020, TV, 12 из 12] WEBRip 10-bit 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пётр Гриль — сильнейший боец на континенте. Он встречается с красавицей по имени Любелия, и вроде бы всё хорошо, но есть одна проблема: Любелия до сих пор считает, что детей приносят аисты, если сильно молиться богам. И за два года отношений они дошли только до держания за руки. В то же время другие женщины, такие как две близняшки-огрихи, эльфийка и гоблинша — подруга (   Читать дальше...   )Производство: Студия WolfsbaneЖанр: комедия, эттиРежиссер: ТацумиЯзык озвучки: Русский закадровый (AniDub)Субтитры: Русские надписи, Русский, EnglishПродолжительность: 12 эпизодов по 13 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8065B61840866E1E37B2A7DE203387521EA6BED0
 ```
 
 https://mybot314.ru/tekegram_catalog/

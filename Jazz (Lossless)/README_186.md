@@ -6,7 +6,7 @@ Slide Hampton - Drum Suite (1962) 2006, Mosaic Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431982.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ New York Jazz Quartet - Blues For Sarka (1978) 1998, Enja Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431979.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Nat King Cole - Spotlight on Nat King Cole (1944 - 1960) 1995, Capitol Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431933.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Louis Armstrong - Highlights from His Decca Years (1924 - 1958) 1994, 2CD, GRP [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431931.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Wes Montgomery - The Remasters (All Tracks Remastered) (2020) [FLAC|Lossless|WEB
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431926.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Oliver Lake Steel Quartet - Dat Love (2003) [FLAC|image+.cue]<Post-Bop, Free Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431909.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Oliver Lake Quintet - Dedicated to Dolphy (1996) [FLAC|tracks+.cue]<Contemporary
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431908.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Jaco Pastorius, Kenwood Dennard, Hiram Bullock - PDB (1989) Live / DIW Records /
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_431869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_431869.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ The Australian Jazz Quintet - At The Varsity Drag (1956) /2014, Solid Records/[F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431865.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Omar Sosa - A New Life (Solo Piano) (2003) [FLAC|image+.cue]<Afro-Cuban Jazz, La
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431861.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Omara Portuondo - Magia Negra The Beginning (2014) [FLAC|tracks|WEB-DL]<Vocal, L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431850.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Omar Sosa - Eggun (2013) [FLAC|Lossless]<World Fusion, Contemporary Jazz, Piano 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431848.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Angelo Debarre, Serge Camps, Frank Anastasio - Gypsy Guitars (1989) Hot Club Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431844.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ VA - Explorations Into Dancefloor Jazz Vol. 1-3 (1994-95) [FLAC|Lossless]<Acid J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_431795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_431795.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Al Jarreau - Tomorrow Today (1999) Verve Music [FLAC|Lossless|image + .cue] <Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431775.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Omar Hakim - Rhythm Deep (1989) [FLAC|tracks+cue]<Smooth Jazz, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431745.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Dave Douglas Quintet - Be Still (2012) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_431709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_431709.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Bill Evans - 3 Essential Albums (1959 - 1963) 3CD, Universal, 2017 [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431693.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Jaco Pastorius - Smoke On The Water, Live In Rome, 1986 (2007) [WavPack|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_431587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_431587.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Karrin Allyson - 9 альбомов (1995-2008) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_431579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_431579.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Van Morrison - Born To Sing: No Plan B (2012) [FLAC|Lossless]<Jazz, Blues, Pop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_431513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_431513.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Blue Note Trip - Volumes 1-7 (2003-2008) [FLAC/WavPack|Lossless|image + .cue] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431413.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ The Count Basie Orchestra - Basically Basie (1937 - 1945) 4CD, 2005, JSP Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431390.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ The Johnny Smith - Foursome, Vol. 2 (1957) 2017, Warner [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430889.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ The Johnny Smith - Foursome (1957) 2017, Warner [FLAC|Lossless|tracks + .cue] <C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430888.jpg" />
 </div>
 
 
@@ -758,7 +758,7 @@ Johnny Smith - Moonlight In Vermont (1953) 2016, Warner [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430798.jpg" />
 </div>
 
 

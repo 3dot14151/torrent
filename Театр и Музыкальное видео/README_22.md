@@ -6,7 +6,7 @@
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936480.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936398.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ The Police - Certifiable: Live in Buenos Aires (2008) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936346.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936240.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936181.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936157.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Danielle - Pat It Up (2013) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935316.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934618.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Nine Inch Nails - Another Version Of The Truth, part 1: The Gift (2008) Blu-ray 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933973.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_933637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_933637.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933535.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932834.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Eric Clapton's Crossroads Guitar Festival (2010) Blu-Ray [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932806.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931651.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930596.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Burning Witches - Six Feet Underground (2020) WEB-DLRip [Н.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930557.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Incubus - Концертный тур Honda Civic Tour (2012) [1080i] HDTV
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930513.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930453.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930427.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Enigma - 4 клипа (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928018.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927638.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Dead Can Dance / Toward The Within (1994), remastered 2001 4AD, DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927634.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927621.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Big Love Show 2016. Грандиозный концерт ко Дню всех �
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927590.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ VA- Коллекция клипов в авто (ZAP_part2) (2DIN) (1970-2008)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927318.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ U-ka saegusa IN db [one 1 Live] (2005) DVDRip [H.264/480p]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927119.jpg" />
 </div>
 
 

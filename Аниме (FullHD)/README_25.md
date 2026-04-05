@@ -6,7 +6,7 @@ Military! Шизомилитаризм! [2015, TV, 12] BDrip 1080p Hi10p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678166.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ One Piece Film Z / Ван-Пис: Фильм двенадцатый [2012, MV] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677712.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Muhyo to Roji no Mahouritsu Soudan Jimusho | Muhyo & Roji's Bureau of Supernatur
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670868.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Muhyo to Roji no Mahouritsu Soudan Jimusho 2 | Muhyo & Roji's Bureau of Supernat
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670863.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ RWBY / Red White Black Yellow / Красная, Белая, Чёрная, Жёл
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669120.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Eiga Koe no Katachi | A Silent Voice | Форма голоса [2016, Movie] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668816.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Dragon Age: Dawn of the Seeker / Эпоха дракона: Рождение И�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664520.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Re:Creators | Возрождающие [2017, TV, 22 эп.] BDrip 1080p 10bit ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663764.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Mahou Shoujo Lyrical Nanoha: Reflection | Magical Girl Lyrical Nanoha: Reflectio
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663763.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Gekijouban Fate/Stay Night: Heaven's Feel - Presage Flower | Судьба: Но�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663646.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Mahouka Koukou no Yuutousei | The Honor at Magic High School | Почётная 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662097.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658809.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658562.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Leadale no Daichi nite | In the Land of Leadale | На просторах Лид
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658127.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Planetarian: Chiisana Hoshi no Yume | Planetarian: The Reverie of a Little Plane
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657812.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Planetarian: Hoshi no Hito | Planetarian: Storyteller of The Stars | Плане�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657712.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Grisaia no Kajitsu | The Fruit of Grisaia | Натюрморт в серых т�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657343.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Ikkitousen: Western Wolves | Школьные войны [ТВ-5] [2019, TV, 3 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656115.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654850.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Code Geass: Boukoku no Akito / Code Geass: Akito the Exiled / Изгнанник
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652950.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Appleseed | Яблочное зернышко [2004, Movie] BDRip 1080p HEVC 10-
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652428.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Scarlet Nexus | SCARLET NEXUS: Красные нити | Алый Нексус [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650582.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Koroshi Ai | Love of Kill | Убийственная любовь [2022, TV, 12 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650578.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Comic Girls / Девочки-мангаки [2018, TV, 12] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650386.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Persona 5 the Animation (2018) | Персона 5 (спэшл 2) [2018, Special,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650253.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Kiddy Grade 2 / Kiddy Girl-and / Детское подразделение 2 [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650223.jpg" />
 </div>
 
 

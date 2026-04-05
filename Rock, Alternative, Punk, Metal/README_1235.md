@@ -1,3 +1,32 @@
+###  Публикация: 1806538   (65356) от 13.07.2025
+
+Formless - Eon (2016) [FLAC|Lossless|WEB-DL|tracks] <Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eon
+02. Sins
+03. Salvation
+04. Vitality(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:53:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D0FDC961082AF5A7C9EC07C0CAF319C3D83509D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806610   (65352) от 13.07.2025
 
 Tropical Fuck Storm (TFS) - Fairyland Codex (2025) [FLAC|Lossless|WEB-DL|tracks] <Noise Rock, Psychedelic, Art Punk>
@@ -6,7 +35,7 @@ Tropical Fuck Storm (TFS) - Fairyland Codex (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65352.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Exvamon - Odyssey of Fate (2025) [FLAC|Lossless|WEB-DL|tracks] <Power, Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65351.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Mighty Dead Rabbits - Fly High Again (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65349.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ In The Woods... - Otra (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Gothic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65344.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Black Majesty - Oceans of Black (2025) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65335.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Relligary - Hearts and Minds (2025) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65334.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Maniae - Vestiges (2023) (EP) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65333.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Night Must Fall - Dissonance of Thought (2007) (EP), Released, 2008, Descending 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65332.jpg" />
 </div>
 
 
@@ -236,7 +265,7 @@ Hell - Human Remains (2011) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65319.jpg" />
 </div>
 
 
@@ -265,7 +294,7 @@ Heaven Shall Burn - Heimat (2025) [FLAC|Lossless|image + .cue] <Melodic Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65310.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ Kerosin - Через тернии к монстрам (2025) [FLAC|Lossless|WEB-
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65303.jpg" />
 </div>
 
 
@@ -323,7 +352,7 @@ Upon A Burning Body - 6 Albums (2010-2022) [FLAC|Lossless|WEB-DL|tracks] <Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65292.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ Cryptopsy - An Insatiable Violence (2025) [FLAC|Lossless|image + .cue] <Technica
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65291.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ Fallujah - Xenotaph (2025) [FLAC|Lossless|image + .cue] <Technical Death Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65290.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ Anapilin - Dezintegracija (2021) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65288.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ Reign Of Glory - Slingshot (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65282.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ Daron Malakian and Scars On Broadway - Addicted To The Violence (2025) [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65277.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ Asphodelus - Stygian Dreams (2019) [FLAC|Lossless|image + .cue] <Doom, Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65271.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ As the Sea Parts - Psychosis (2025) [MP3|320 Kbps] <Doom, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65270.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ VA - Rock Rarities - Cover Versions (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65244.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ VA - Classic Dad Rock (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65229.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ VA - Rock Music - Perfect Blend (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65225.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ Eagles - Hotel California (1976) Reissue, 2017, Asylum 2CD [FLAC|Lossless|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65218.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ VA - Chase the Moon (Rock Hits) (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65209.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65207.jpg" />
 </div>
 
 
@@ -714,35 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D5D988F03E76541AE9CDDB08A09E6B2416AFA78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807475   (65203) от 19.07.2025
-
-VA - Feliz dia do Rock (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Queen - Killer Queen (Remastered 2011) (3:04)
-02.  Creedence Clearwater Revival - Run Through The Jungle (3:05)
-03.  Black Sabbath - End Of The Beginning (8:06)
-04.  The Police - Walking On The Moon (Remastered 2003) (5:01)(   Читать дальше...   )Жанр: RockПродолжительность: 01:53:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9192BDC11ADA404D8082124A9866CBC2F68F15B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

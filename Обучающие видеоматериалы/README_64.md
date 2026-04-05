@@ -1,3 +1,30 @@
+###  Публикация: 974134   (975305) от 12.01.2016
+
+Илья Цымбалист, Алексей Лысенко | Фишки прибыльного трафика с Яндекс Директ 3.0 (2015) PCRec [H.264/720p]
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975305.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект видеоинструкций по созданию и оптимизации компаний Яндекс.Директ.
+Фишки, которые могут кардинально повлиять на эффективность действующих рекламных кампаний и которые мы нигде больше не давали. За счет использования этих приемов возможно увеличение эффективности до 50%. Эффективность в данном контексте - это не только денежный выхлоп от рекламы в Директе, (   Читать дальше...   )Производство: РоссияЖанр: SEO, МаркетингПродолжительность: 10:49:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82C077A4438227F51109AC91E2290BCDF6298234
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 973192   (975302) от 12.01.2016
 
 Специалист | Нечаев Д. | Microsoft Visio 2013/2010. Создание схем, графиков и диаграмм (2013) PCRec
@@ -6,7 +33,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975302.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Udemy | Brad Hussey | Bootstrap to WordPress. Theme Development (2014) [H.264/72
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975294.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975291.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ Lynda.com | Изучение языка JavaScript / Learning the JavaScript Lan
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975277.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974737.jpg" />
 </div>
 
 
@@ -146,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974658.jpg" />
 </div>
 
 
@@ -172,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974645.jpg" />
 </div>
 
 
@@ -202,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974503.jpg" />
 </div>
 
 
@@ -228,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974195.jpg" />
 </div>
 
 
@@ -254,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974181.jpg" />
 </div>
 
 
@@ -281,7 +308,7 @@ fstoppers.com | Как стать профессиональным свадеб�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974177.jpg" />
 </div>
 
 
@@ -307,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974101.jpg" />
 </div>
 
 
@@ -334,7 +361,7 @@ Musketier Media | 102 позы в сексе (2010) DVDRip
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974079.jpg" />
 </div>
 
 
@@ -360,7 +387,7 @@ Lynda.com | Python Scripting for Blender (2016) PCRec [H.264/720p-LQ] [RU/EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974005.jpg" />
 </div>
 
 
@@ -388,7 +415,7 @@ Udemy | Ansible - с нуля до профессионала (2018) PCRec [H.26
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973889.jpg" />
 </div>
 
 
@@ -417,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973258.jpg" />
 </div>
 
 
@@ -450,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973242.jpg" />
 </div>
 
 
@@ -481,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973185.jpg" />
 </div>
 
 
@@ -507,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973182.jpg" />
 </div>
 
 
@@ -542,7 +569,7 @@ Universal Pictures UK | Шаг вперед - Официальная трени�
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973179.jpg" />
 </div>
 
 
@@ -572,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973054.jpg" />
 </div>
 
 
@@ -600,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971572.jpg" />
 </div>
 
 
@@ -626,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970473.jpg" />
 </div>
 
 
@@ -655,7 +682,7 @@ videosharp | Новые технологии на С# (2014) PCRec [H.264/720p]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970378.jpg" />
 </div>
 
 
@@ -682,7 +709,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970372.jpg" />
 </div>
 
 
@@ -695,35 +722,6 @@ orenyogaПродолжительность: 01:10:29
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FE4E739427CCA4C50C2F3203479C90852832928
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974656   (970197) от 16.01.2016
-
-Алексей Полевский | Мощный Яндекс.Директ 2.0 (2015) PCRec [H.264/720p]
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970197.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами лучший видеокурс по созданию и ведению рекламных кампаний в Яндекс.Директе!
-Мощный Яндекс.Директ 2.0 – это 39 уроков общей продолжительностью более 11 часов.
-
-Контекстную рекламу можно использовать для всего! Нет, ну мыть ей посуду, конечно, нельзя! Но можно приводить людей в свой магазин моющих средств. В общем, контекстная реклама дает три основных возможности:(   Читать дальше...   )Жанр: БизнесПродолжительность: 11:45:16.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B5A7B578076374065B0993EC53A2CFF9EC23EB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

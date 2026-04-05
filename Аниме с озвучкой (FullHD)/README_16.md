@@ -1,3 +1,107 @@
+###  Публикация: 696397   (539589) от 03.09.2013
+
+Omoide Poroporo / Only Yesterday / Ещё вчера [1991, MV] BDRip Hi10P 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539589.jpg" />
+</div>
+
+
+###  Подробнее
+
+Япония восьмидесятых годов прошлого века. Таэко - одинокая молодая женщина из Токио, типичная служащая в крупной компании, вертящаяся в бешеном ритме столичной жизни. Когда она отправилась в отпуск на ферму своей старшей замужней сестры, переехавшей к мужу в сельскую глубинку, и погрузилась в неспешные деревенские будни, на Таэко нахлынула волна ярких воспоминаний (   Читать дальше...   )Жанр: Романтика, драма, школаРежиссер: Такахата ИсаоПеревод: RUSCICOОзвучка: RUSCICOПродолжительность: 118 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD4ED2370A74EA008C137DE88C1CB98971813F8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543850   (533281) от 19.06.2022
+
+Тусовщик Кунмин | Paripi Koumei | Ya Boy Kongming! [2022, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Военный стратег Кунми́н оставался верен своему делу до конца. Он выигрывал битву за битвой, используя всю силу своего ума. Но, естественно, нельзя наслаждаться чем-то вечно, поэтому битвы и интриги надоели и Кунми́ну. На смертном одре он мечтает о спокойствии и счастье в следующей жизни. И каково же было его удивление, когда он попал в современный Токио, (   Читать дальше...   )Производство: Япония / Студия P.A. Works, Dr. MovieЖанр: КомедияРежиссер: Хомма ОсамуЯзык озвучки: Русский многоголосый, закадровый (AniLibria.TV), ЯпонскийСубтитры: Русские (Софтсаб на надписи), Русские (Софтсаб полные)Продолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC1E6F40B4901CCC3B5A0E40085271DEA076054A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295073   (531946) от 04.07.2019
+
+One Punch Man (2019) / Ванпанчмен [ТВ-2] [2019, TV, 12 ep] WEB-DL 1080p Rus
+
+>>След.
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что можно сделать за один удар? Можно, к примеру, нарубить парочку дровишек для костра, или забить гвоздь в стул, на котором будет сидеть твой хороший друг, или же одним хорошеньким ударом можно вынести ворота замка, в котором томится принцесса под охраной дракона, тем самым спасти её. Наш главный герой - не принц, чья задача победить большого дракона, хотя он способен (   Читать дальше...   )Жанр: приключения, комедия, фэнтезиРежиссер: Сакурай ТикараЯзык озвучки: РусскийСубтитры: ASS, Встроенные, НадписиФормат: MKVПродолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7A667879DD8BCABE6C3DC1120E648DDBE53CEB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542952   (527626) от 23.06.2022
+
+Девушка-целитель | Целительница | Healer Girl [2022, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527626.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это история про девочек, которые учатся лечить от болезней с помощью песен. И пока мы тут у себя мажем разбитые коленки йодом, а при проблемах посерьёзнее едим таблеточки, в очередной альтернативной Японии научились использовать силу голоса.Производство: Япония / Студия Studio 3HzЖанр: Музыкальный, повседневность, приключенияРежиссер: Ириэ ЯсухироЯзык озвучки: Русский многоголосый, закадровый (AniLibria.TV)Субтитры: Русские (Софтсаб на надписи), Русские (Софтсаб полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AF57D457EF87F3B2418A64C7BC381D39D03293A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1544708   (526940) от 24.06.2022
 
 RPG недвижимость | RPG Fudousan | RPG Real Estate [TV-1] [2022, TV, 12 из 12] WEBRip 1080p rus
@@ -6,7 +110,7 @@ RPG недвижимость | RPG Fudousan | RPG Real Estate [TV-1] [2022, TV, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526940.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526937.jpg" />
 </div>
 
 
@@ -60,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524098.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524097.jpg" />
 </div>
 
 
@@ -114,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523309.jpg" />
 </div>
 
 
@@ -140,7 +244,7 @@ Kaguya-sama wa Kokurasetai: Ultra Romantic | Kaguya-sama: Love is War Ultra Roma
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522559.jpg" />
 </div>
 
 
@@ -166,7 +270,7 @@ Kono Healer, Mendokusai | Don't Hurt Me, My Healer! | Этот хилер мен
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518556.jpg" />
 </div>
 
 
@@ -192,7 +296,7 @@ Boku no Hero Academia the Movie: Futari no Hero | My Hero Academia the Movie: Th
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515697.jpg" />
 </div>
 
 
@@ -218,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513325.jpg" />
 </div>
 
 
@@ -246,7 +350,7 @@ Gekijouban Trigun: Badlands Rumble / Trigun the Movie / Триган: Переп
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509915.jpg" />
 </div>
 
 
@@ -274,7 +378,7 @@ Momo e no Tegami / A Letter to Momo / Письмо для Момо [2011, Movie]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501913.jpg" />
 </div>
 
 
@@ -300,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499259.jpg" />
 </div>
 
 
@@ -327,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498379.jpg" />
 </div>
 
 
@@ -355,7 +459,7 @@ Vampire Hunter D / Ди - охотник на вампиров [1985, Movie] BDr
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498103.jpg" />
 </div>
 
 
@@ -381,7 +485,7 @@ Gekijouban Blood-C: The Last Dark | Кровь-С: Последняя тьма [
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484681.jpg" />
 </div>
 
 
@@ -408,7 +512,7 @@ Big Order | Приказ свыше [2016, TV, 10] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476684.jpg" />
 </div>
 
 
@@ -434,7 +538,7 @@ Canaan | Ханаан [2009, TV, 13 из 13 эп.] BDRip 1080p Hi10P raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476390.jpg" />
 </div>
 
 
@@ -461,7 +565,7 @@ Aho Girl | Дурочка [2017, TV, 12] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474786.jpg" />
 </div>
 
 
@@ -487,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467924.jpg" />
 </div>
 
 
@@ -513,7 +617,7 @@ Kotonoha no Niwa / The Garden of Words / Сад изящных слов [2013, M
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446262.jpg" />
 </div>
 
 
@@ -539,7 +643,7 @@ Birthday Wonderland | The Wonderland | В стране чудес [2019, Movie] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444482.jpg" />
 </div>
 
 
@@ -565,7 +669,7 @@ Koukaku Kidoutai Stand Alone Complex | Ghost in the Shell: Stand Alone Complex |
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444044.jpg" />
 </div>
 
 
@@ -576,110 +680,6 @@ Koukaku Kidoutai Stand Alone Complex | Ghost in the Shell: Stand Alone Complex |
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A43D082CE800F52F5DF8B2780C0C47732950B5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943775   (444043) от 05.10.2015
-
-Koukaku Kidoutai S.A.C. 2nd GIG | Ghost in the Shell: Stand Alone Complex 2nd GIG | Призрак в доспехах: Синдром одиночки (ТВ-2) [2004, TV, 26 эп.] BDRip 1080p raw+rus
-
->>След.
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444043.jpg" />
-</div>
-
-
-###  Подробнее
-
-В будущем грань между дигитальным и физическим мирами заметно стёрлась, кибертроника изменила жизнь человечества до неузнаваемости, создав новый синтетический уровень существования и сведя людей в единую Сеть. Однако сближение живых организмов и машин оказалось чревато опаснейшими последствиями, предоставив злоумышленникам невиданные доселе возможности манипулирования (   Читать дальше...   )Производство: Production I.GЖанр: приключения, фантастика, меха, киберпанкРежиссер: Камияма КэндзиПеревод: MC Entertainment | SuzakuЯзык субтитров: Русский (отключаемый), Английский (отключаемый)Формат: mkvПродолжительность: 26 эп., 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:229EFB50DD31B9F6B7DA34E56DEFC6CA9FFB4682
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944399   (437124) от 08.10.2015
-
-Naruto The Movie 10: The Last Naruto the Movie / Наруто последний фильм [2015, Movie] WEB-DL 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аниме расскажет о Наруто, сильном и отважном воине Ниндзя. Много времени мы наблюдали за этим героем, как он поставил перед собой цель стать воином, и упорно шел к ней. Не останавливаясь ни перед чем, несмотря на падения, он все-таки добился своего. Сейчас Наруто практически достиг совершенства в своем деле, и может по праву называться ниндзя. Мы знаем его как отважного, (   Читать дальше...   )Производство: Япония, Aniplex, Dentsu, ShueishaЖанр: приключения, боевые искусства, сёнэнРежиссер: Цунэо КобаясиОзвучка: Профессиональная (полное дублирование от Reanimedia)Язык субтитров: ОтсутствуютПродолжительность: 1:51:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B894206474929154A293B22E7DED4B42B3BD0325
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571556   (431317) от 22.08.2022
-
-Hundred | Сотня [2016, TV, 12 из 12] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в мире, где на Землю нападает загадочная враждебная форма жизни, представителей коей прозвали просто Дикими. Единственное оружие, способное им противостоять, называется Сотня, а те, кто могут использовать Сотню, называются Убийцами. Хаято Кисараги собирается стать Убийцей и для этого поступает в Морскую Академию плавучего города под названием (   Читать дальше...   )Производство: Студия Production IMS / プロダクションアイムズЖанр: Романтика, этти, фантастика, гарем, меха, школаРежиссер: Кобаяси ТомокиЯзык озвучки: Японский, РусскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D609E41D62DCAFB065F2C085051A1ECF58D96FB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411395   (426994) от 25.09.2020
-
-Gekijouban Made in Abyss: Fukaki Tamashii no Reimei | Made in Abyss: Dawn of the Deep Soul | Созданный в Бездне: Рассвет глубокой души [2020, Movie] WEB-DL 1080p rus
-
->>След.
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рико, Рег и Наначи продолжают путешествие вниз по Бездне. Они проходят через Сад цветов стойкости и спускаются на пятый уровень. Там они оказываются на пороге Идофронта — последней базы людей в Бездне. Это самое глубокое место, откуда ещё можно вернуться на поверхность. Их встречает Прушка — приёмная дочь Бондруда, того самого Белого Свистка, который проводил бесчеловечные (   Читать дальше...   )Производство: Япония / Kinema CitrusЖанр: приключения, фэнтези, драмаРежиссер: Кодзима МасаюкиЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 106 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:401061B940E80134B3435C3392A750904910A5A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Reverend and The Makers - ThirtyTwo (2014) [FLAC|Lossless|WEB-DL|tracks] <Britpo
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973357.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Ronan Keating - Destination (2002) SACD [FLAC|Lossless|tracks + .cue] <Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973297.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Julio Iglesias - La Carretera (1995) [FLAC|Lossless|tracks + .cue] <Ballad>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973213.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Julio Iglesias - Crazy (1994) [FLAC|Lossless|tracks + .cue] <Soft Rock, Chanson,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973207.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Julio Iglesias - Tango (1996) [FLAC|Lossless|tracks + .cue] <Ballad, Vocal, Tang
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973195.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - All Woman - 18 Greatest Hits (1994) [FLAC|Lossless|tracks  + .cue]<Pop, Lov
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973144.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Vanessa Paradis - M & J (1988) Japanese Edition [FLAC|Lossless|image + .cue] <Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973117.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Murray Head - Emotions (My Favourite Songs) (2005) Compilation [FLAC|Lossless|WE
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973084.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Kovacs - Cheap Smell (2018) [FLAC|Lossless|tracks + .cue] <Jazz, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973076.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Julio Iglesias - Noche De Cuatro Lunas (2000) [FLAC|Lossless|tracks + .cue] <Bal
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973036.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Chris De Burgh - Now and Then (2008) Compilation [FLAC|Lossless|tracks + .cue] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973004.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - All the Hits Now 2001 Italia (2001) [FLAC|Lossless|tracks + .cue] <Italian 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972099.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Julio Iglesias - A Mis 33 Anos (1978) [FLAC|Lossless|tracks + .cue] <Ballad, Cha
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972028.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Vanessa Paradis - Variations sur le meme t aime (1990) Remastered, 1998, Polydor
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971938.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Mariah Carey - Forever Gold (1999) 2CD [FLAC|Lossless|tracks + .cue] <Pop, Blues
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971936.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ VA - Great Spanish Hits (1996) [FLAC|Lossless|tracks + .cue] <Pop, Folk>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971923.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Alessandra Amoroso - Vivere a colori (2016) [FLAC|Lossless|tracks] <Pop, Vocal
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970818.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ VA - Top Latino 2000 (2000) [FLAC|Lossless|tracks + .cue] <Latin, Merengue, Afro
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970804.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Tracey Thorn (Everything But The Girl) - Love And Its Opposite (2010) [FLAC|Loss
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969782.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Richard Marx - Limitless (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969700.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Everything But The Girl - Temperamental (1999) Remastered, 2015, Edsel Records, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969668.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Everything But The Girl - Walking Wounded (1996) Remastered, 2015, Edsel Records
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969656.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Kovacs - Shades Of Black (2015) 2 CD Limited Dutch Edition [FLAC|Lossless|tracks
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969635.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Asgeir - Bury The Moon (2020) Ásgeir [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968752.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ Roxette - The Ballad Hits (2002) Limited Edition, 2xCD [FLAC|Lossless|tracks + .
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968569.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ Joy Enriquez - The Call (2016) [FLAC|Lossless|tracks] <Pop, Folk, CCM>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967828.jpg" />
 </div>
 
 

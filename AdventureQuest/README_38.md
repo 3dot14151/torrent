@@ -1,3 +1,81 @@
+###  Публикация: 1304060   (523434) от 09.07.2019
+
+Irony Curtain: From Matryoshka with Love (2019) [Multi] (1.0.5) License GOG [Revolutionary Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наше великое государство Матрешка пригласило представителя западных СМИ собственными глазами увидеть величие и блеск коммунизма. Журналист-счастливчик станет первым, кому выпадет честь погреться в лучах великолепия нашего милосердного Вождя, воплощения всего лучшего, что есть в мире. А кроме того, у него невиданные усы.Тип издания: LicenseРазработчик: Artifex MundiЖанр: Приключение, Квест, КомедияЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, ПольскийЯзык интерфейса: Английский, Немецкий, Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44637285130C58F7A3B1D1CDEC637EC36EAC0160
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313720   (522713) от 10.07.2019
+
+Monsters of Little Haven (2019) [Ru/En] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522713.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основе интерактивной новеллы «Monsters of Little Haven» — история из небольшой деревни Литл Хейвен. В центре событий оказывается двенадцатилетний Кеннет и его младшая сестра Эсма — дети семейства Мёрфи, которые чередой запутанных событий нападают на след таинственного монстра. Нелинейность истории позволит узнать самые разные тайны, окружающие семейство Мёрфи, (   Читать дальше...   )Тип издания: RepackРазработчик: Nikita Kaf ProductionsЖанр: Adventure (Novel), 2DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B47CD6135F00781BFDABBD12A64F434E8AFCA96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313727   (522706) от 10.07.2019
+
+Dungeon Of Dragon Knight (2019) [Ru/Multi] (1.0001/dlc) License HOODLUM
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522706.jpg" />
+</div>
+
+
+###  Подробнее
+
+На ваш родной город напали орки и вы находите себе компанию из троих таких же героев. Вы прячетесь в неизвестном лесу. Вдруг перед вами появляется колдунья, показывает дом неподалеку и утверждает, будто может дать вам еду, воду и кров. Однако, когда вы оказываетесь внутри, она исчезает. Перед входом вы замечаете, что на самом деле это пещера. Затем вы узнаете, что (   Читать дальше...   )Тип издания: LicenseРазработчик: HexGameStudioЖанр: Adventure, RPG, Strategy, 3DЯзык озвучки: Английский, КитайскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:260B0626BCBA692ABE303E6DC4D5B8CAAD4C42BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 869134   (522226) от 16.08.2015
 
 Lucius II The Prophecy (2015) [Ru/Multi] (1.0.20150813.b) SteamRip Let'sPlay
@@ -6,7 +84,7 @@ Lucius II The Prophecy (2015) [Ru/Multi] (1.0.20150813.b) SteamRip Let'sPlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522226.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ EBOLA (2019) [Ru/Multi] (1.3) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521952.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Dream (2013) [Ru/Multi] (1.12/upd2) Repack R.G. Freedom
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521263.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Dream (2013) [Ru/Multi] (1.12) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519251.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Where the Water Tastes Like Wine (2018) [Ru/Multi] (1.6.1) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516754.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Mechanism (2018) [Ru/Multi] (1.0.6) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515938.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ The Long Dark (2017) [Ru/Multi] (1.56.49966/dlc) License PLAZA [Episode 1-2]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515700.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Experience 112 [Ru/En] (RePack/1.0) 2008 | Sash HD
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515356.jpg" />
 </div>
 
 
@@ -218,7 +296,7 @@ Inherit the Earth (1994) [En/Ge] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514801.jpg" />
 </div>
 
 
@@ -244,7 +322,7 @@ Journey (2019) [Ru/Multi] (1.47) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513543.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ Planet of the Apes: Last Frontier (2018) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512627.jpg" />
 </div>
 
 
@@ -296,7 +374,7 @@ ENKI (2015) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512493.jpg" />
 </div>
 
 
@@ -322,7 +400,7 @@ Marvel Comics Spider-Man: The Sinister Six [En] (RePack) 1996 | RG Games/Pilotus
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512117.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ Corpse of Discovery (2015) [En] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511544.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ Runaway Антология [Ru] (RePack) 2002-2009 | R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509926.jpg" />
 </div>
 
 
@@ -402,7 +480,7 @@ VANE (2019) [Multi] (1.0/dlc) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508660.jpg" />
 </div>
 
 
@@ -428,7 +506,7 @@ VANE (2019) [Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508625.jpg" />
 </div>
 
 
@@ -454,7 +532,7 @@ Pilot Brothers / Братья Пилоты: По следам полосатог
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507777.jpg" />
 </div>
 
 
@@ -480,7 +558,7 @@ Dead In Bermuda (2015) [En/Fr] (1.01) Repack ALIAS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506847.jpg" />
 </div>
 
 
@@ -506,7 +584,7 @@ STASIS (2015) [Ru/Multi] (1.04.0928) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506832.jpg" />
 </div>
 
 
@@ -532,7 +610,7 @@ Amnesia: The Dark Descent / Амнезия: Призрак Прошлого [Ru/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506055.jpg" />
 </div>
 
 
@@ -561,7 +639,7 @@ Valiant Hearts: The Great War (2014) [Ru/En] (1.1.150818) Rip West4it
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503053.jpg" />
 </div>
 
 
@@ -587,7 +665,7 @@ Valiant Hearts: The Great War (2014) [Ru/Multi] (1.1.150818) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503049.jpg" />
 </div>
 
 
@@ -598,84 +676,6 @@ Valiant Hearts: The Great War (2014) [Ru/Multi] (1.1.150818) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB12F31A9C0B966707F0BB9B6A76BC2E3F826C23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563888   (502218) от 16.07.2022
-
-MADiSON (2022) [Ru/Multi] (1.0.0) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502218.jpg" />
-</div>
-
-
-###  Подробнее
-
-MADiSON - это психологический хоррор от первого лица с напряженным геймплеем и ужасающей, но захватывающей историей. Что бы вы сделали, если бы проснулись в темной запертой комнате с окровавленными руками? Вам предстоит играть за Луку и пережить адские пытки MADiSON - демона, который заставляет вас совершать чудовищные вещи для продолжения многолетнего кровавого (   Читать дальше...   )Тип издания: LicenseРазработчик: BLOODIOUS GAMES LLCЖанр: Action, Adventure, HorrorЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99B347B3A74114A3495A2865B0517D8CDBF50627
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317208   (502050) от 30.07.2019
-
-CENTRALIA (2019) [Ru/Multi] (1.0) License PLAZA
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502050.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная история начнется в Сентралие, штате Пенсильвания. Я жил обычной жизнью, работа, любящая жена, любимая дочка. Я не мог представить себе, что произойдет в роковой день в мае 1992 года. Меня зовут Генри Нельсон, и я расскажу вам свою ужасную историю. Моя жена пропала без вести 7 лет назад, страшная авария в неприметном городке Сентралия, забрала ее жизнь, под (   Читать дальше...   )Тип издания: LicenseРазработчик: indie_games_studioЖанр: Adventure (Horror), Puzzle, 1st Person, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43E9F2259F119A3D6629B24DE5385267EF7E7C60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317296   (502045) от 30.07.2019
-
-CENTRALIA (2019) [Ru/Multi] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502045.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная история начнется в Сентралие, штате Пенсильвания. Я жил обычной жизнью, работа, любящая жена, любимая дочка. Я не мог представить себе, что произойдет в роковой день в мае 1992 года. Меня зовут Генри Нельсон, и я расскажу вам свою ужасную историю. Моя жена пропала без вести 7 лет назад, страшная авария в неприметном городке Сентралия, забрала ее жизнь, под (   Читать дальше...   )Тип издания: RepackРазработчик: indie_games_studioЖанр: Adventure (Horror), Puzzle, 1st Person, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B18A65238BC8E8437CE8BE14DAD6564E6DED744F
 ```
 
 https://mybot314.ru/tekegram_catalog/

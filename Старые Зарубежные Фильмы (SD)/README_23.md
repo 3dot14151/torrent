@@ -1,3 +1,135 @@
+###  Публикация: 1467806   (1017556) от 05.05.2021
+
+Парень по кличке Флинт / Our Man Flint (1966) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Непобедимый и неуязвимый агент Дерек Флинт борется с группой ученых, научившихся управлять погодой и мечтающих переделать мир на свой лад.
+Первый фильм дилогии о супершпионе Дереке Флинте.
+Вторая частьПроизводство: США / 20th Century Fox Film CorporationЖанр: Фантастика, Боевик, Комедия, ПриключенияРежиссер: Дэниэл МаннАктеры: Джеймс Коберн, Ли Дж. Кобб, Гила Голан, Эдвард Малхейр, Бенсон Фонг, Шелби Грант, Сигрид Валдис, Джина Серра, Хелен Фунай, Майкл Ст. КлэрПеревод: Одноголосый любительский, Вадим БеловСубтитры: АнглийскиеПродолжительность: 01:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEBA97AFF409CAC624CD94A8B3028F611DD38E8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468110   (1017431) от 06.05.2021
+
+Ларри Симон. Дом, милый дом / His Home Sweet Home (1919) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередной фильм Ларри Симона. Как обычно полон гэгов, эксцентрики и фарса. Не очень умный, но бесконечно динамичный, безостановочный. Фильм примечателен тем, что  относится к ряду фильмов, которые были сняты как немые (в ту эпоху других и не было) и существовали как немые. Но спустя многие годы итальянские кинематографисты их озвучили, т.е. наложили звуковую дорожку (   Читать дальше...   )Производство: СШАЖанр: Комедия, короткометражный, немое киноРежиссер: Ларри СимонАктеры: Ларри Симон, Люсиль Карлайл, Роза Гор, Фрэнк Хэйес, Фрэнк Александр, Эдди Данн, Джо Рок, Уильям ХауберПеревод: НемойСубтитры: ОтсутствуютПродолжительность: 00:15:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F8237C89D406BE4C900BC55EA7118B6EF8036B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468120   (1017429) от 06.05.2021
+
+Гарольд Ллойд. Марафон / The Marathon (1919) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дочь бывшего боксёра осаждают поклонники. Гарольд — наименее желательный из них по мнению папаши. Правда, он — самый настойчивый...Производство: СШАЖанр: Комедия, короткометражный, немое киноРежиссер: Альфред Дж. ГулдингАктеры: Гарольд Ллойд, Снуб Поллард, Биби Дэниелс, Дороти Уолперт, Сэмми Брукс, Лью Харви, Уоллес Хоу, Бад Джеймисон, Гас Леонард, Гэйлорд ЛлойдПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:13:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2C1254FC47A571FE3D2C9684EE8DF446693BB3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466556   (1017222) от 07.05.2021
+
+Ад в Манитобе (Преисподняя Манитобы) / Die Holle von Manitoba / A Place Called Glory (1965) BDRip [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет вращается вокруг торжества в городе Славы, в котором традиционно проходят поединки. Судьба сталкивает Клинта Бреннера и Риза. Двух соперников, однако, они объединились против общего врага, бандита и злодея Джека Виллайна со своими друзьями, который терроризирует местных фермеров, отнимая у них землю. Финальный поединок в городе Славы приведет к неожиданной (   Читать дальше...   )Производство: Германия (ФРГ), Испания, CCC Filmkunst GmbH, Midega FilmЖанр: Mелодрама, вестернРежиссер: Шелдон РейнольдсАктеры: Лекс Баркер, Пьер Брис, Жерар Тихи, Анхель дель Посо, Марианне Кох, Ханс Нильсен, Карлос Касаравилла, Жорж Риго, Вольфганг Люкши, Альдо Самбрелл, Сантьяго Онтанон, Антонио Молино РойоПеревод: Авторский (Юрий Живов)Субтитры: отсутствуютПродолжительность: 01:33:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FE22413CBD014AA760BA7719435B2027BB014E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468638   (1017085) от 08.05.2021
+
+Гарольд Ллойд. Из трамвая / Off the Trolley (1919) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017085.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшой забавный фильм. Повеса и хулиган Гарольд обращает внимание на миленькую трамвайную кондукторшу. Ну и собственно основное действие и происходит или в трамвае или возле него.Производство: СШАЖанр: Комедия, короткометражный, немое киноРежиссер: Альфред Дж. ГулдингАктеры: Гарольд Ллойд, Снуб Поллард, Биби Дэниелс, Сэмми Брукс, Билли Фэй, Лью Харви, Уоллес Хоу, Бад Джеймисон, Гас Леонард, Мери МоскиниПеревод: НемойСубтитры: ОтсутствуетПродолжительность: 00:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7298049D324B911BF50750973CA773F2DDC96DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1459439   (1017052) от 08.05.2021
 
 Человек, смотрящий на юго-восток / Hombre mirando al sudeste (1986) BDRip [H.264] [VO]
@@ -6,7 +138,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017052.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017030.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016927.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016772.jpg" />
 </div>
 
 
@@ -110,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016771.jpg" />
 </div>
 
 
@@ -137,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016592.jpg" />
 </div>
 
 
@@ -164,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016571.jpg" />
 </div>
 
 
@@ -190,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016439.jpg" />
 </div>
 
 
@@ -216,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016399.jpg" />
 </div>
 
 
@@ -243,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016296.jpg" />
 </div>
 
 
@@ -269,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016293.jpg" />
 </div>
 
 
@@ -296,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016158.jpg" />
 </div>
 
 
@@ -322,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016118.jpg" />
 </div>
 
 
@@ -348,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016070.jpg" />
 </div>
 
 
@@ -374,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015988.jpg" />
 </div>
 
 
@@ -400,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015801.jpg" />
 </div>
 
 
@@ -426,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015637.jpg" />
 </div>
 
 
@@ -452,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015605.jpg" />
 </div>
 
 
@@ -478,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015448.jpg" />
 </div>
 
 
@@ -506,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015325.jpg" />
 </div>
 
 
@@ -532,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015145.jpg" />
 </div>
 
 
@@ -543,138 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20250C99241B87EB4CE98CBCE0C40923EF38A6A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471412   (1015143) от 20.05.2021
-
-Гарольд Ллойд. Доктор Джек / Dr. Jack (1922) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Деревенский доктор Джек Джексон вызван к Больной-маленькой-хорошей-девушке, которая уже обогатила доктора Солсбурга после нескольких лет безуспешного лечения. Его старомодные методы сделали свое дело и шарлатан отправлен восвояси.Производство: СШАЖанр: Комедия, немое киноРежиссер: Фред С. Ньюмейер, Сэм ТейлорАктеры: Гарольд Ллойд, Милдред Дэвис, Джон Т. Принц, Эрик Мэйн, С. Норман Хэммонд, Джеки Кондон, Мики Дэниелс, Ричард Дэниелс, Уильям Гиллеспи, Уоллес ХоуПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:59:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8522AEB11D796CFDBF08A405B8770A7496C2F663
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213816   (1015074) от 20.05.2021
-
-Похитители бриллиантов / 11 Harrowhouse (1974) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ховард Чессер — мелкий коммерсант, покупающий и перепродающий алмазы. Он ведет вполне размеренную жизнь со своей подругой Марэн — наследницей богатого мужа, который оставил ей все состояние при условии, что она не выйдет больше замуж.
-Неожиданно мультимиллионер Клайд Мэсси делает Чессеру выгодное предложение, от которого тот не может отказаться: за хороший гонорар (   Читать дальше...   )Производство: Великобритания / Elliott Kastner ProductionsЖанр: Триллер, комедия, криминал, приключенияРежиссер: Арам АвакянАктеры: Чарльз Гродин, Кэндис Берген, Джеймс Мэйсон, Тревор Говард, Джон Гилгуд, Хелен Черри, Питер Вон, Сирил Шэпс, Леон Грин, Джек Уотсон ...Перевод: Профессиональный многоголосый, двухголосый, авторскийСубтитры: ОтсутствуютПродолжительность: 01:35:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E7DAC864B31EA93470DDA1A94208463EC3AB0B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471674   (1014998) от 21.05.2021
-
-Мэйбл Норманд. Агент налоговой службы и его девушка / The Revenue Man and the Girl (1911) WEBRip [PR]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сколько не пересматривал фильм, так и не нашел кадры в которых была бы Мэйбл Норманд. Тем не менее, эта лента включена во все официальные фильмографии Норманд. Что ж... Видимо, в сохранившейся копии ее кадры не дошли до нас.
-Сам же фильм рассказывает нам драматическую историю любви тех, кто казалось бы должен быть врагами - правительственный агент и девушка, дочь (   Читать дальше...   )Производство: СШАЖанр: Драма, короткометражный, немое киноРежиссер: Дэвид Уорк ГриффитАктеры: Эдвин Аугуст, Дороти Уэст, Мэйбл Норманд, Мэрион СаншайнПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:11:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78B42A374CB6632A2CB0F64DBB071FB21E2C1D13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471658   (1014990) от 21.05.2021
-
-Гарольд Ллойд. Бабушкин внучек / Grandma's Boy (1922) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014990.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все с детства обижали тихого и скромного Гарольда, даже когда он стал мужчиной, ему не везет в любви. Но у него есть замечательная бабушка, которая любит его и желает добра, не давая внука в обиду. Однажды она дает ему "амулет бесстрашия" и это меняет жизнь Гарольда. Вот что значит "быть бабушкиным внучком"...Производство: США, Hal Roach StudiosЖанр: Комедия, семейный, немое киноРежиссер: Фред С. НьюмейерАктеры: Гарольд Ллойд, Милдред Дэвис, Анна Таунсенд, Чарльз Стивенсон, Дик Сазерленд, Ной Янг, Джек Морган, Рой Брукс, Сэмми Брукс, Джек ЭдвардсПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 01:01:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF908E1297973AD9C001F547EB0A1CCFB617FA26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471601   (1014975) от 21.05.2021
-
-Считай до трёх и молись / Count Three and Pray (1955) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший скандалист и бабник, Люк Фарго, возвращается с Гражданской войны в свой родной город на юге США сильно изменившимся человеком. Теперь он священник, имеющий намерение восстановить единственную в городе церковь. Его с недоверием встречают друзья, и с откровенной враждебностью - остальные горожане, так как он сражался на стороне Союза. Особенно яростно против (   Читать дальше...   )Производство: США / Copa ProductionsЖанр: ВестернРежиссер: Джордж ШерманАктеры: Ван Хефлин, Джоэнн Вудворд, Филип Кэри, Рэймонд Бёрр, Эллисон Хэйес, Майрон Хили, Нэнси Калп, Джеймс Гриффит, Ричард Уэбб, Кэтрин ГивниПеревод: Одноголосый любительский, Eugene GreeneСубтитры: Русские (Forced, Full), английскиеПродолжительность: 01:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C1C1F69D1BC6E5A168B2413DCE2725711B55F9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

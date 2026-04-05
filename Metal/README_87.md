@@ -6,7 +6,7 @@ Carpe Diem - In Nomine Honoris (2023) [MP3|320 Kbps] <Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242113.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Breakdowns At Tiffany's - Eternal Lords (2020) [MP3|320 Kbps] <Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241941.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Vengeance - Retaliation (2020) EP [MP3|320 Kbps] <Metallic Hardcore, Beatdown Ha
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241933.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Solar Eruption - The End Is Near (Limited Edition) / Bloody Mary (2019-2020) [MP
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241896.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Graveyhard - 2 Albums (2018-2020) [MP3|320 Kbps] <Stoner, Sludge Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241854.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ Powerwolf - Interludium (2023) 3CD, Deluxe Version [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241847.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Night Spirit - The Spark (2021) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241790.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Throwdown - Take Cover (2020) [MP3|320 Kbps] <Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241764.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Septicflesh - A Fallen Temple (1998) [MP3|320 Kbps] <Atmospheric, Symphonic Deat
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241689.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Sirenia - 1977 (2023) [MP3|320 Kbps] <Symphonic, Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_241673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_241673.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Majesty - Back To Attack (2023) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241412.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Unbeing - Delta (2020) [MP3|320 Kbps] <Progressive Metal, Instrumental Music>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_241022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_241022.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Perfect Nme - Remains to Be Seen (2020) [MP3|320 Kbps] <Thrash Metal, Heavy Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241009.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Paul Wardingham - Day Zero I: Rise Of The Horde (2020) [MP3|320 Kbps] <Progressi
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240963.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Samarithan - Tales Of Doom (2022) [MP3|320 Kbps] <Heavy Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240879.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Deathstars - Everything Destroys You (2023) [MP3|320 Kbps] <Industrial Gothic Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240840.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ MNRVA - Hollow (2022) [MP3|320 kbps] <Doom, Stoner, Sludge Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240758.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Holy Moses - Invisible Queen (2023) [MP3|320 kbps] <Speed, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240742.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Overkill - Scorched (2023) [MP3|320 Kbps] <Thrash-metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240708.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Project Theory - Blood & Loyalty (2020) [MP3|320 Kbps] <Alternative Metal, Rapco
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240673.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ MACHINA BLGE - Barcode (2020) [MP3|320 Kbps] <Industrial, Nu-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240668.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Legends Never Die - Goodbye to a Perfect World (A Cryptic Ending) (2020) [MP3|32
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240642.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Richard Andersson's Space Odyssey - Embrace The Galaxy (2003) [MP3|320 Kbps] <Ne
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240575.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ UADA - Djinn (2020) [MP3|320 Kbps] <Melodic Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240397.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Torrax - Pribehy (2021) [MP3|320 Kbps] <Power Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240347.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Lonewolf - Division Hades (2020) 2xCD [MP3|320 Kbps] <Heavy Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240333.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Onyx & Dope D.O.D. - Shotgunz In Hell (2017) [MP3|320 kbps] <Hip-Hop, Hardcore H
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663038.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Two Feet - Momentum (2017)  EP [MP3|320 Kbps] <Trap, ChillTrap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634754.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Jay-Z - 4:44 (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600106.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Desiigner - New English (2016) [MP3|320 Kbps] <Trap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595821.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Die Antwoord - Mount Ninji and Da Nice Time Kid (2016) [MP3|320 Kbps] <Hip-Hop, 
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527130.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Shahmen - All In The Circle (2015) [MP3|320 кб/с]<Abstract Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519349.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Eminem - Kamikaze (2018) [MP3|320 Kbps] <Hip-Hop, Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483753.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Snoop Dogg - 21 Студийный альбом (1993-2015) [MP3|320 кб/с]<Ra
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474738.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Kaisa - K.M.K. (2010) Bonus Edition [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450631.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Eminem / Slim Shady - 90 Релизов (1995 - 2010) [MP3|128-320 kbps] <Midwes
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_449527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_449527.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Public Enemy - What You Gonna Do When The Grid Goes Down? (2020) [MP3|320 Kbps] 
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427289.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Eminem - The Marshall Mathers LP2 (2013) Deluxe Edition [MP3|320 кб/с]<Rap, H
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390748.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356674.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Shiny Radio ft. DJ ERIK - The Remixplate (2017) [MP3|320 Kbps] <Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319091.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ The 27 Bridges Of Kaya - UNDAJAZZBIT (2017) [MP3|320 Kbps] <Jazzy Hop, Instrumen
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293309.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Rick Rock - Rocket The Album (2015) [MP3|320 кб/с]<Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293151.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Schnitt - Die Nacht der langen Messer (2011) [MP3|320 Kbps] <German Hip-Hop, Rap
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291522.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Eminem - Revival (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263679.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Outkast - Stankonia (2000) [MP3|320 kbps] <Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258556.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ MC Eiht - Lessons 2 (2023) Blue Stamp Music [MP3|320 Kbps] <Rap, West Coast Hip-
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244471.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Rittz - MellowLOvation Music (2023) [MP3|320 Kbps] <Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241352.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ NF - Hope (2023) [MP3|320 Kbps] <Rap, Hip Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240100.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Lloyd Banks - The Course of the Inevitable 3: Pieces of My Pain (2023) [MP3|192 
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238283.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Davodka - Accusé De Réflexion (2017) [MP3|320 Kbps] <Rap, Hip-Hop, French Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233467.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ All Times. Rap Melodies  (2002) [MP3|320 кб/с]<HipHop/Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216008.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Scarlxrd - DeadRising (2021) [MP3|320 Kbps] <Trap, Hardcore Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_173830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_173830.jpg" />
 </div>
 
 

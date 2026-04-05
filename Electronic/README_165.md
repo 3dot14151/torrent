@@ -1,3 +1,61 @@
+###  Публикация: 1126294   (766329) от 17.04.2017
+
+VA - Recline Music: The Remixes (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nicco (ND) - It's Over (Oxia remix) (07:50)
+02. Nicco (ND) - It's Over (Timid Boy remix) (09:22)
+03. Mirco Violi - Gil's Jazz Theory (Anonym's Ass Music mix) (07:13)
+04. Nick Detti - I Do It Good (Mic Newman remix) (07:02)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:55:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:302A601880D2E8F3B9D6973689687F07555890D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393784   (766302) от 02.07.2020
+
+Michael E - I Had the Strangest Dream (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Strangest Dream
+02. Lucid Dreaming (feat. Tim Gelo)
+03. Beautiful Dreamer
+04. While I Was Dreaming (feat. Ashley Slater)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:03:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B5F9D28CE6D9FD9C2549F3843104C2564448819
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126198   (766279) от 17.04.2017
 
 Vanderson - Beyond Time Structure (2017) [FLAC|Lossless|WEB-DL|tracks] <Psybient, Berlin School, Progressive Trance>
@@ -6,7 +64,7 @@ Vanderson - Beyond Time Structure (2017) [FLAC|Lossless|WEB-DL|tracks] <Psybient
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766279.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Space Holidays Vol. 11 (2019) 3CD [MP3|320 Kbps] <Synthpop, Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766177.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Space Holidays Vol. 12 (2020) 3CD [MP3|320 Kbps] <Synthpop, Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766155.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - The Elektrolux Decade - 10 Years Elektrolux (2005) [FLAC|Lossless|tracks+.c
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766121.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Kid Koala - Music to Draw To: Io (2019) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766116.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ nthng - Shine (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766115.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Blind Date - Dreamworld (1986) LP [MP3|320 Kbps] <Electronic, Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766111.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Midnight Danger - Nights at Lake Milsen (2021) EP [FLAC|Lossless|WEB-DL|tracks] 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766106.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Anjunadeep. The Remixes 2021 (2021) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766102.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Weber & Weber - Music Box (2019) Lemongrassmusic [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766043.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Vocal Trance Classics (2021) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766025.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Kohl - Learned Ethics / Imposed Ethics (2018) Umor-Rex [FLAC|Lossless|WEB-DL|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765810.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Sun Moon Stars (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765804.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Pure State Chillout (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765776.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Wolfgang Gsell - Memories & Photographs (2016) [MP3|320 Kbps] <Ambient, Chillout
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765552.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Suanda Spring Vol.4 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765549.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Senssual Miami (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765548.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Smash The House Vol.1 (2017) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765540.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - April Relax Hits (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765538.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Spring Dance: The Best Dance Music (2017) [MP3|320 Kbps] <House, EDM, Dance
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765536.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Aly & Fila - Future Sound Of Egypt 492 (2017) [MP3|320 Kbps] <Trance,Uplifting T
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765525.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Giuliano Rodrigues & Jubba - Techno 2018 (2019) [MP3|320 Kbps] <Minimal, Tech Ho
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765465.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Sounds Of Instruments_02 (Mixed by Navid Tahernia) (2006) Compilation [FLAC
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765463.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Manet - Dark Side Of The Valley (2016) [FLAC|Lossless|Web-DL|tracks] <Dark Ambie
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765462.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Manet - Dark Side Of The Valley (2016) [FLAC|Lossless|Web-DL|tracks] <Dark Ambie
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D5B202AD9249978DA0B38A0E45216E008A06B8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279695   (765461) от 30.01.2019
-
-VA - Sounds Of Instruments_01 (Mixed by Hiroshi Watanabe) (2005) Mixed, Compilation [FLAC|Lossless|image + .cue] <Minimal, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seiichiro Tanaka - Evening Glow (4:58)
-02. Sora a.k.a. DJ SODEYAMA & GONNO - I'm Not (4:13)
-03. Soda Inc. - Morning Prayer (4:12)
-04. Takayuki Higo - Fractal (4:36)(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:10:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4641357732D54D9F653D3F039D7C8E2D9765B76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394161   (765433) от 03.07.2020
-
-VA - Sunny Day Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marga Sol - Bossalova (Original Mix)
-02. Schwarz, Funk - Fallen (Bossa Mix)
-03. Chillson, Marc Hartman - On This Day
-04. St Project - Bossaporita(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:10:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:284BB253120095C2F566F169D8973CD470B881AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

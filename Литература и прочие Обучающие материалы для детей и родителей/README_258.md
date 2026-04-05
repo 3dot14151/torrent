@@ -1,3 +1,58 @@
+###  Публикация: 380086   (501867) от 25.08.2011
+
+Е.В. Колесникова | Лицей для малышей 2-3 лет. Тесты для детей 3 лет (2004) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501867.jpg" />
+</div>
+
+
+###  Подробнее
+
+У книги два основных значения:
+
+1. Оказать практическую помощь родителям и педагогам в обучении и развитии ребенка 2-3-х лет, предоставив им систему учебно-игровых заданий.
+(   Читать дальше...   )Жанр: Обучение, развитиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:680AC9FAF20BEF620D64D949511595DE85DB70C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564151   (501723) от 17.07.2022
+
+Акрам Эль-Бахай | Игра Анук (2022) [FB2, EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анук любила сочинять истории и загадывать желания. И умела делать это не просто так, а чтобы загаданное сбывалось! На свой тринадцатый день рождения она тоже придумала желание… и её маленькая сестра бесследно исчезла из этой реальности, как будто никогда не существовала. Анук испугалась. И сразу же захотела вернуть Майю! Тогда девочке предложили сыграть в игру. Собрать (   Читать дальше...   )Жанр: Детская литература, Фантастика, ПриключенияПеревод: Анна КукесФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A16784E3A21C9D5FFE63ECB382FA4CAAF222A42A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564146   (501720) от 17.07.2022
 
 Сандра Дикманн | В поисках Волка (2021) [PDF]
@@ -6,7 +61,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501720.jpg" />
 </div>
 
 
@@ -33,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501668.jpg" />
 </div>
 
 
@@ -59,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501585.jpg" />
 </div>
 
 
@@ -85,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501469.jpg" />
 </div>
 
 
@@ -112,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501467.jpg" />
 </div>
 
 
@@ -139,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501454.jpg" />
 </div>
 
 
@@ -165,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501451.jpg" />
 </div>
 
 
@@ -194,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501434.jpg" />
 </div>
 
 
@@ -221,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501433.jpg" />
 </div>
 
 
@@ -247,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501432.jpg" />
 </div>
 
 
@@ -275,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501371.jpg" />
 </div>
 
 
@@ -301,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501343.jpg" />
 </div>
 
 
@@ -327,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501326.jpg" />
 </div>
 
 
@@ -353,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501148.jpg" />
 </div>
 
 
@@ -379,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501081.jpg" />
 </div>
 
 
@@ -407,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500997.jpg" />
 </div>
 
 
@@ -433,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500795.jpg" />
 </div>
 
 
@@ -461,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500629.jpg" />
 </div>
 
 
@@ -487,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500626.jpg" />
 </div>
 
 
@@ -514,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500624.jpg" />
 </div>
 
 
@@ -540,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500554.jpg" />
 </div>
 
 
@@ -566,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500487.jpg" />
 </div>
 
 
@@ -593,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500485.jpg" />
 </div>
 
 
@@ -620,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500365.jpg" />
 </div>
 
 
@@ -632,60 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F852E0723D959413C90DC95474440A23B52C6E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317531   (500353) от 01.08.2019
-
-Джон Рональд Руэл Толкиен | Лучшие сказания [сборник] (2019) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500353.jpg" />
-</div>
-
-
-###  Подробнее
-
-В серии Ретромонохром представлены лучшие истории лучших сказочников мира, отечественных и зарубежных.
-Это сказки нашего детства и отрочества — сказки из любимых старых книжек, в обрамлении любимых же иллюстраций.
-Пятый выпуск посвящён творчеству Джона Рональда Роуэла Толкиена (Толкина).Жанр: Проза для детей, Сказки народов мираПеревод: Наталия Леонидовна Рахманова, Андрей Андреевич Кистяковский, Владимир Сергеевич Муравьев, Н. Эстель, Андрей ГореликФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C953E67C0EA211D2C5C590BC76208CA804E535C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317576   (500182) от 01.08.2019
-
-студия Диафильм | Мастер-ломастер (1954) [JPG]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Прочие материалы для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веселые стихи о детях. Для детей младшего возраста.Жанр: Детская прозаФормат: JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2BE51DA385E02577C95BED5F038A30B658E3A26
 ```
 
 https://mybot314.ru/tekegram_catalog/

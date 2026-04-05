@@ -1,3 +1,31 @@
+###  Публикация: 1655910   (203556) от 29.08.2023
+
+Soulsad - Two Funerals (2018) EP [MP3|320 Kbps] <Melodic Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Fallen Garden
+02. Funeral One: Father
+03. Funeral Two: MotherЖанр: Melodic Doom, Death MetalПродолжительность: 00:22:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F2C1C9632BC26F7C3516C515F40D24B4A82AD86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1656046   (203552) от 29.08.2023
 
 Villanos - Bisonte (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner>
@@ -6,7 +34,7 @@ Villanos - Bisonte (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203552.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ another wave project - The Best of (2023) [FLAC|Lossless|WEB-DL|tracks] <Psyched
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203544.jpg" />
 </div>
 
 
@@ -64,7 +92,7 @@ Sons of Ragnar - Lindisfarne (2015) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203542.jpg" />
 </div>
 
 
@@ -93,7 +121,7 @@ Soulsad - Doomed to Funerals (2022) Compilation [MP3|320 Kbps] <Melodic Doom, De
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203540.jpg" />
 </div>
 
 
@@ -122,7 +150,7 @@ Sons of Ragnar - Echoes over Valsgarde (2023) [MP3|320 Kbps] <Melodic Death Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203536.jpg" />
 </div>
 
 
@@ -151,7 +179,7 @@ The Crawling - All of This for Nothing (2023) [FLAC|Lossless|WEB-DL|tracks] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203372.jpg" />
 </div>
 
 
@@ -180,7 +208,7 @@ Perseide - 2 Albums (2018-2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203327.jpg" />
 </div>
 
 
@@ -209,7 +237,7 @@ Tarchon Fist - The Flame Still Burns (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203319.jpg" />
 </div>
 
 
@@ -238,7 +266,7 @@ Solar Tide - A Small Piece Of Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203310.jpg" />
 </div>
 
 
@@ -267,7 +295,7 @@ Jag Panzer - The Fourth Judgement (1997) Reissue, 2007, Century Media [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203298.jpg" />
 </div>
 
 
@@ -296,7 +324,7 @@ Persуide (Perséide) - The Only Thing (2021) [FLAC|Lossless|WEB-DL|tracks] <Mod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203290.jpg" />
 </div>
 
 
@@ -325,7 +353,7 @@ Powderfinger - Vulture Street (20th Anniversary Edition, 2023, Universal Music A
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203288.jpg" />
 </div>
 
 
@@ -354,7 +382,7 @@ Bury the Darkness - Dead Inside (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203286.jpg" />
 </div>
 
 
@@ -383,7 +411,7 @@ Astral Wizard - Astral Wizard (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203281.jpg" />
 </div>
 
 
@@ -412,7 +440,7 @@ Donefor - Sleep On It (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Ha
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203279.jpg" />
 </div>
 
 
@@ -441,7 +469,7 @@ Candlebox - The Long Goodbye (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203276.jpg" />
 </div>
 
 
@@ -470,7 +498,7 @@ Steve Kilbey - The Hall Of Counterfeits (2021) 2 CD, Reissue, 2023, Easy Action 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203273.jpg" />
 </div>
 
 
@@ -499,7 +527,7 @@ Ugly Kid Joe - 5 Studio Albums, 2 Compilations, 4 Singles & EPs (1991 - 2022) 11
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203230.jpg" />
 </div>
 
 
@@ -528,7 +556,7 @@ VA - Massive Rock Hits (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203137.jpg" />
 </div>
 
 
@@ -557,7 +585,7 @@ Eclipse - Megalomanium (2023) [MP3|320 Kbps] <Melodic Heavy Metal, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203061.jpg" />
 </div>
 
 
@@ -586,7 +614,7 @@ Phil Campbell and the Bastard Sons - Kings Of The Asylum (2023) [FLAC|Lossless|W
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203031.jpg" />
 </div>
 
 
@@ -615,7 +643,7 @@ Marduk - Memento Mori (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203019.jpg" />
 </div>
 
 
@@ -644,7 +672,7 @@ The Spirit - Sounds from the Vortex (2017) [FLAC|Lossless|image + .cue] <Black, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203001.jpg" />
 </div>
 
 
@@ -673,7 +701,7 @@ Threnody - Threnody (1997) [WavPack|Lossless|image + .cue] <Progressive, Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203000.jpg" />
 </div>
 
 
@@ -702,7 +730,7 @@ Jag Panzer - The Age of Mastery (1998) [FLAC|Lossless|image + .cue] <Heavy, Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202998.jpg" />
 </div>
 
 
@@ -716,35 +744,6 @@ Jag Panzer - The Age of Mastery (1998) [FLAC|Lossless|image + .cue] <Heavy, Powe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF7064A81178E4EB08F5533CAD1691BE2CDBAC81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656472   (202993) от 31.08.2023
-
-Threnody - As the Heavens Fall (1993) [FLAC|Lossless|image + .cue] <Progressive, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cries
-02. Regrets
-03. Dark Ages
-04. Ode to the Lamented(   Читать дальше...   )Жанр: Progressive, Melodic Death MetalПродолжительность: 00:49:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9940FE81132BBF48EB819F09558DA56CFDC4457A
 ```
 
 https://mybot314.ru/tekegram_catalog/

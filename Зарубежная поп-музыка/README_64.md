@@ -6,7 +6,7 @@ Blue - Colours (2015) [OGG|455-528 кб/с]<Pop, Soul>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282421.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Train - Christmas In Tahoe (2015) [OGG|448-506 кб/с]<Pop, Traditional Christm
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282417.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Time2Dance Best of '90s - '00s, (Vol. 1-2) 2CD (2018) [MP3|320 Kbps] <Europ
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281158.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Eros Ramazzotti - Vita Ce N'è (2018) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281088.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - The Pop Years 1980-1983 (2009) 4CD [MP3|320 Kbps] <Pop, Rock, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280451.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Hands up Party Dance Selection, Vol. 2 (2018) [MP3|320 Kbps] <Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279571.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Hot Party Winter 2019 (2018) [MP3|320 Kbps] <Dance, Lunapop, Indie, Neo Sou
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279519.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ ZOE (Straub) - The Acoustic Sessions (2017) [MP3|320 Kbps] <Acoustic Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279516.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - NOW That's What I Call Music! 20th Anniversary, Vol. 1 (2018) [MP3|320 Kbps
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279471.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ ZOE (Straub) - Debut Deluxe (2016) [MP3|320 Kbps] <French Pop, Gipsy-Swing, Elec
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279468.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Amy Macdonald - Woman Of The World (The Best Of 2007-2018) (2018) [MP3|320 Kbps]
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279463.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Miss Li - Best of 061122‒071122 (2007) 2CD [MP3|320 Kbps] <Indie Pop, Jazz, Fu
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278861.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - 100% Clubland EDM Bangers (2018) 3CD [MP3|320 Kbps] <Dance, Electro, Progre
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277774.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Massara C.A.S.T. - Volerai Volero (1982) 7 Inch [MP3|320 Kbps] <Electronic, Pop,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277386.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ VA - Hits Dance 2018 (2017) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277142.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ LP - Lost On You (2016) [MP3|320 Kbps] <Alternative Rock, Indie Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276747.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ VA - Bravo Hits Jesień (2018) 2CD [MP3|320 Kbps] <Pop  Latin, Reggaeton>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276580.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Robbie Williams - Under the Radar, Vol. 2 (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275977.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Falco - Out Of The Dark (Into The Light) (1998) [MP3|320 kbps]<Pop/Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275846.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ VA - Bravo Hits Zima 2019 (2018) [MP3|320 Kbps] <Dance, Pop, R&B, Hip-Hop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275205.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ VA - Ministry Of Sound: Heartstrings (2018) 3CD [MP3|320 Kbps] <Pop, Folk, Soft 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275204.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ VA - 90'S The Collection 2018 (2018) 2CD [MP3|320 Kbps] <Dance, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275187.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ VA - Absolute Dance Winter 2015 (2014) 2CD [MP3|320 кб/с]<Pop, Dance, Other>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275120.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Mireille Mathieu - Made in France (2017) [MP3|320 Kbps] <Pop, Chanson>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274570.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ VA - Future Trance - Return to the Millennium 2000er (2018) 3CD [MP3|320 Kbps] <
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274127.jpg" />
 </div>
 
 
@@ -736,7 +736,7 @@ VA - 100 Superhits From the 80's (1998) 5CD, Compilation [MP3|320 Kbps] <Electro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273332.jpg" />
 </div>
 
 

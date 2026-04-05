@@ -1,3 +1,32 @@
+###  Публикация: 1341971   (227457) от 30.11.2019
+
+Fun Lovin' Criminals - Another Mimosa (2019) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rumble
+02. Hello Again
+03. Going Down
+04. Daylight (feat. Rowetta)(   Читать дальше...   )Жанр: Alt. Rock, IndieПродолжительность: 00:50:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:105F8A646F621ECEACC69A536551138AD43D4A1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513036   (227443) от 27.11.2021
 
 Emigrate - The Persistence Of Memory (2021) [FLAC|Lossless|image + .cue] <Industrial Metal>
@@ -6,7 +35,7 @@ Emigrate - The Persistence Of Memory (2021) [FLAC|Lossless|image + .cue] <Indust
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227443.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Lacuna Coil - Comalies XX (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227364.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227363.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Epica - Kingdom of Heaven Part 3 - The Antediluvian Universe - Omega Alive (2021
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227302.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227243.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Iggy Pop - Free (2019) [FLAC|Lossless|tracks + .cue] <Jazz, Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227173.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Eagles - Hell Freezes Over (1994) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227001.jpg" />
 </div>
 
 
@@ -215,7 +244,7 @@ Jimi Hendrix - Woke Up This Morning And Found Myself Dead (1986) [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226995.jpg" />
 </div>
 
 
@@ -244,7 +273,7 @@ Pink Floyd - Home (2021) Compilation [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226981.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ Nightmarer - Cacophony of Terror (2018) [FLAC|Lossless|WEB-DL|tracks] <Technical
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_226959.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ Lonewolf - Raised On Metal (2017) [FLAC|Lossless|image + .cue] <Speed Metal, Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226954.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ Octane - 2 Albums (2020-2021) [MP3|320 Kbps] <Sludge Stoner Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226944.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ Catapult The Sun - 2 EP (2020-2022) [MP3|320 Kbps] <Sludge, Doom, Drone>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226934.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ Blake Hobson - 2 Albums (2020-2022) [MP3|320 Kbps] <Progressive Rock, Progressiv
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226927.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226920.jpg" />
 </div>
 
 
@@ -447,7 +476,7 @@ MotoClub A.A. - MotoWar (2022) [MP3|320 Kbps] <Heavy Metal, Humour>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226914.jpg" />
 </div>
 
 
@@ -476,7 +505,7 @@ Occulsed - Crepitation of Phlegethon (2021) [FLAC|Lossless|image + .cue] <Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_226907.jpg" />
 </div>
 
 
@@ -505,7 +534,7 @@ Richard Marx - Paid Vacation (1993) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226906.jpg" />
 </div>
 
 
@@ -534,7 +563,7 @@ Olkoth - At the Eye of Chaos (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_226899.jpg" />
 </div>
 
 
@@ -563,7 +592,7 @@ Ensanguinate - Eldritch Anatomy (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226897.jpg" />
 </div>
 
 
@@ -592,7 +621,7 @@ Dirty Grave - 5 Albums (2014-2022) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226889.jpg" />
 </div>
 
 
@@ -621,7 +650,7 @@ Inmundus - Primordia (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_226888.jpg" />
 </div>
 
 
@@ -650,7 +679,7 @@ Trick Or Treat - Re-Animated (2018) Japanese Edition [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226882.jpg" />
 </div>
 
 
@@ -679,7 +708,7 @@ Occulsed - Parturition of Adulteration (2022) Compilation [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_226880.jpg" />
 </div>
 
 
@@ -708,7 +737,7 @@ Pink Floyd - The Later Years: 1987-2019 (2019) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226879.jpg" />
 </div>
 
 
@@ -722,35 +751,6 @@ Pink Floyd - The Later Years: 1987-2019 (2019) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EADAD6969F17DCB719019397DEF12E7FAF1351CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583901   (226874) от 17.10.2022
-
-Knee - Тафофилия (2022) [MP3|320 Kbps] <Nu-Metalcore, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Страж [00:02:23]
-02 - Мария [00:01:15]
-03 - Занавес [00:01:59]
-04 - Веролом [00:03:07](   Читать дальше...   )Жанр: Nu-Metalcore, Doom MetalПродолжительность: 00:39:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D06C40F33EF2A2994D63AAA273C4437A5928ABA
 ```
 
 https://mybot314.ru/tekegram_catalog/

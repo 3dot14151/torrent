@@ -1,3 +1,56 @@
+###  Публикация: 589510   (147915) от 15.12.2012
+
+Pid [En/Multi5] (L/1.01) 2012 | THETA
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147915.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pid – платформер, где вы выступаете в роли мальчика, оказавшегося на далекой планете. Вам предстоит сразиться со злобными роботами и подружиться с инопланетными жителями, чтобы разгадать великий заговор, держащий всю планету под гипнозом, и вернуться домой.
+Кроме одиночного режима, в Pid есть возможность играть в кооперативе с другом.(   Читать дальше...   )Тип издания: ЛицензияЖанр: Arcade (Platform) / 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскиeЯзык интерфейса: Английский, Французский, Немецкий, Итальянский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:799400E646F2628CA8F6CEB8E7E24AE77D06D526
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086994   (147829) от 26.12.2016
+
+Cabela's Big Game Hunter: Trophy Season (2005) [En] (1.0.0) Unofficial
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cabela's Big Game Hunter 2006 Trophy Season продолжает серию симуляторов охоты Cabela's Big Game Hunter, предлагая игрокам столкнуться с различными опасностями. В игре представлено 36 крупных животных, расположившихся в 12 экстремальных локациях с разными ландшафтами, которые меняются в зависимости от таких факторов, как сезон, погодные условия и время суток.Тип издания: UnofficialРазработчик: Magic Wand ProductionsЖанр: Sport (Hunt, Fish), 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37D6FAD4D884E1AB39B67E1253B7095C0948A9F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 739075   (147537) от 27.12.2013
 
 Call of Juarez: Gunslinger (2013) [Ru/Multi] (1.04/2dlc) SteamRip @nonymous
@@ -6,7 +59,7 @@ Call of Juarez: Gunslinger (2013) [Ru/Multi] (1.04/2dlc) SteamRip @nonymous
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147537.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Minecraft (2013) [Ru] (1.0) Mod
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147338.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ King's Bounty: Warriors of the North [Ru] (Repack/1.3.1) 2012 | a1chem1st
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147206.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ Oddworld: Stranger’s Wrath HD [Ru/En/Multi9] (L/1.5) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146958.jpg" />
 </div>
 
 
@@ -115,7 +168,7 @@ Bratz: The Movie [Wii] [PAL] [Multi 2] (2007)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145201.jpg" />
 </div>
 
 
@@ -141,7 +194,7 @@ Naheulbeuk's Dungeon Master (2023) [Ru/Multi] (1.2) Scene Tenoke
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144498.jpg" />
 </div>
 
 
@@ -167,7 +220,7 @@ Party of Sin [Ru/En/Multi6] (L) 2012 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144097.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ Bulletstorm [Ru/En/Multi7] (L/1.0.7111.0) 2011 2xDVD5
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144057.jpg" />
 </div>
 
 
@@ -221,7 +274,7 @@ Torchlight 2/II [Ru/En] (RePack/1.20.5.3) 2012 | R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143924.jpg" />
 </div>
 
 
@@ -249,7 +302,7 @@ Red Johnson's Chronicles - One Against All [En] (L/1.0) 2012 | SKiDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143789.jpg" />
 </div>
 
 
@@ -276,7 +329,7 @@ Hitman: Absolution. Professional Edition [Ru/En/Multi8] (RePack/1.0.444.0/11 DLC
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143603.jpg" />
 </div>
 
 
@@ -304,7 +357,7 @@ Lost Planet 3 (2013) [Ru/Multi] (1.0.10246/8dlc) SteamRip @nonymous
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142746.jpg" />
 </div>
 
 
@@ -337,7 +390,7 @@ Victorious: Taking the Lead [Wii] [PAL] [Eng] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141453.jpg" />
 </div>
 
 
@@ -365,7 +418,7 @@ Mafia III / Мафия 3 (2016) [Ru/Multi] (1.050.0.1/dlc) Repack R.G. Revenants
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139868.jpg" />
 </div>
 
 
@@ -391,7 +444,7 @@ Black Mesa (2015) [Ru] (0.9.0) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138561.jpg" />
 </div>
 
 
@@ -417,7 +470,7 @@ A New Beginning - Final Cut [Ru/En/De] (Steam-Rip/1.4.4.0392) 2012 | R.G. Игр
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138334.jpg" />
 </div>
 
 
@@ -445,7 +498,7 @@ Black Mesa (2015) [Ru/Multi] (0.9.4522431) Repack xatab [Early Access]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137147.jpg" />
 </div>
 
 
@@ -471,7 +524,7 @@ MySims [Wii] [PAL] [Multi6] (2007)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136407.jpg" />
 </div>
 
 
@@ -497,7 +550,7 @@ Pure Collector's Edition / Pure Коллекционное издание [Ru/En
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136052.jpg" />
 </div>
 
 
@@ -523,7 +576,7 @@ The Dark Eye: Chains of Satinav [Ru/En/Multi6] (Steam-Rip/1.1) 2012 | R.G.Origin
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135799.jpg" />
 </div>
 
 
@@ -552,7 +605,7 @@ A New Beginning - Final Cut [En] (L/1.4.4) 2012 | *HI2U*
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135743.jpg" />
 </div>
 
 
@@ -580,7 +633,7 @@ FIFA 13 [Ru/En/Multi13] (Origin-Rip/1.6) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135476.jpg" />
 </div>
 
 
@@ -612,7 +665,7 @@ Kane & Lynch: Dead Men [En] (L) 2007 | HATRED
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135162.jpg" />
 </div>
 
 
@@ -638,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134523.jpg" />
 </div>
 
 
@@ -655,63 +708,6 @@ NVIDIA видеокарты полностью поддерживаются, и 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:641DD5E9CA287069CB81B1B49BD900BB376AC169
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593815   (133864) от 25.12.2012
-
-Beowulf: The Game / Беовульф [Ru] (RePack) 2007 | R.G. ReCoding
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уникальный шанс почувствовать себя главным героем классической саги «Беовульф», экранизированной оскароносным режиссером Робертом Земекисом.
-
-Беовульф — легендарный воин Севера, в одной его руке сила тридцати людей, благородство и жестокость с трудом уживаются в нем. Жаждущий славы и золота с отрядом верных людей он отправляется в Данию сразить чудовище, наводящее ужас на заснеженные земли. Одержав победу, впадает в грех гордости, жаждет большей славы и становится датским королем. Теперь же, когда королевство объято пламенем войны, пришло время пожинать плоды неумеренных амбиций. Пришло время вести своих людей в бой, уничтожить Титанов уходящей эпохи и сокрушить врагов государства. Только пройдя через все уготованные ему судьбой испытания и взглянув судьбе в глаза, Беовульф поймет, кто он на самом деле.
-(   Читать дальше...   )Тип издания: RePackЖанр: Action (Slasher) / 3D / 3rd PersonЯзык озвучки: Английский / РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20E548419A9829E60A293510E9256916CF9F34D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594541   (133359) от 26.12.2012
-
-The Darkness 2 / II: Limited Edition [Ru/En] (L/1.0/4 DLC) 2012 | 2DVD5
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133359.jpg" />
-</div>
-
-
-###  Подробнее
-
-И придет Тьма…
-В продолжении популярного мистического экшена 2007 года игрокам вновь предстоит исполнить роль Джеки Эстакадо — главы преступного клана Нью-Йорка и носителя древней силы, известной под названием Тьма.
-Со времен событий The Darkness прошло два относительно мирных года. Но после того как на Джеки было совершено покушение, в нем вновь пробудилась Тьма… Лишь пройдя до конца по кровавому пути отмщения, он узнает, кто стоял за нападением и чего добивается скрытая в нем сила. (   Читать дальше...   )Тип издания: ЛицензияЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русские, АнглийскиеЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BE73D3C4043AC360E501C2CC531F1459A786F45
 ```
 
 https://mybot314.ru/tekegram_catalog/

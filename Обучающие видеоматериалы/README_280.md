@@ -1,3 +1,29 @@
+###  Публикация: 1687842   (125505) от 27.12.2023
+
+Елена Левашова | Простой и эффективный способ создания чертежей - RemPlanner (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы ищете простой способ создать обмерный план квартиры, расставить мебель, точки освещения и выключатели? Теперь вы можете это сделать с помощью RemPlanner! Этот онлайн-проектировщик стал популярным инструментом для создания профессиональных чертежей для дизайн-проектов. Он предоставляет широкие возможности для создания качественной технической документации, экономя (   Читать дальше...   )Жанр: Проектирование, ДизайнЯзык озвучки: РусскийПродолжительность: 02:05:02Реклама: Наложение на видео, видео вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0AF87D507F68A77413EF0BBA993D111892ACB4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1687861   (125493) от 27.12.2023
 
 Granich.Design, Саша Буяк, Вадим Гранич | Графсистема Неослав (2023) WEB-DL [AD] [RU]
@@ -6,7 +32,7 @@ Granich.Design, Саша Буяк, Вадим Гранич | Графсисте�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125493.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ Granich.Design, Вадим Гранич | Графсистема Нео-Гео (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125483.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125477.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ Lectoroom, Мария Павлова | Разноцветные пионы в к
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125449.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ Udemy, Ankit Shrivastava | Moonvalley AI Text-to-Video: Full Masterclass, Make A
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125364.jpg" />
 </div>
 
 
@@ -143,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125360.jpg" />
 </div>
 
 
@@ -172,7 +198,7 @@ Domestika, Jessica Roux | Natural Illustration with Digital Painting (2023) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125351.jpg" />
 </div>
 
 
@@ -199,7 +225,7 @@ Udemy, Joseph Heidari | Understanding Node.js: Core Concepts (2023) WEB-DL [EN /
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125277.jpg" />
 </div>
 
 
@@ -226,7 +252,7 @@ Dbystritskaya, Дарья Быстрицкая | Съёмка для бренд�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125258.jpg" />
 </div>
 
 
@@ -254,7 +280,7 @@ Udemy, Louay Zambarakji | The Complete Adobe After Effects Bootcamp: Basic to Ad
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125241.jpg" />
 </div>
 
 
@@ -282,7 +308,7 @@ Brick Visual, Andras Káldos, István Lovák, Péter Pazsiczky | Post-production
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125222.jpg" />
 </div>
 
 
@@ -310,7 +336,7 @@ Bulavina School, Дарья Булавина | Стрим по композиц�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125220.jpg" />
 </div>
 
 
@@ -339,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125144.jpg" />
 </div>
 
 
@@ -368,7 +394,7 @@ Udemy, Valentina Grobler | Free To Speak Foundation (2023) WEB-DL [RU]
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125136.jpg" />
 </div>
 
 
@@ -395,7 +421,7 @@ Kaplan School, Диана Горбач | Танцующая кисть (2023) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125084.jpg" />
 </div>
 
 
@@ -421,7 +447,7 @@ Udemy, Gregory Warner | Fundamentals of Affinity Designer (2018) WEB-DL [EN, RU 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125077.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125072.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ Udemy, Jeremy Hazel | Affinity Designer - Design artistic text and Create Fonts 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125050.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ Balun.Courses, Владимир Балун | System Design - 3-х недельн
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124979.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124972.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ Udemy, Neil Cummings | Build a Microservices app with .Net and NextJS from scrat
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124952.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ Udemy, Manik (Cloudaffle) | TypeScript Design Patterns And SOLID Principles (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124950.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ Udemy, Marat Zhman | React Animation Project SCSS (2023) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124947.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ SMD pro, Андрей Нифедов | Пишем трек с нуля. Виде
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124945.jpg" />
 </div>
 
 
@@ -665,7 +691,7 @@ Udemy, Norbert B. Menyhart | 30+ React Projects, Learn React JS by Building 30+ 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124938.jpg" />
 </div>
 
 
@@ -678,35 +704,6 @@ Udemy, Norbert B. Menyhart | 30+ React Projects, Learn React JS by Building 30+ 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:533AA610137E3BEA239D9BC321C08CF6C6C37BD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689070   (124917) от 31.12.2023
-
-1С Учебный центр №1 | Ведение учета в прикладном решении «1С:Медицина. Больничная аптека» (2021) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124917.jpg" />
-</div>
-
-
-###  Подробнее
-
-В курсе представлены примеры хозяйственных ситуаций, которые охватывают наиболее распространенные операции при ведении учета в больничной аптеке.
-Цели курса:
-✅Формирование знаний и практических навыков ведения учета в программе «1С:Медицина. Больничная аптека»
-✅Освоение работы с сервисом 1С:Номенклатура(   Читать дальше...   )Производство: 1С Учебный центр №1Жанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 03:33:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12F04E5789BDD89049CD94D4BF29050B0C9E9DF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

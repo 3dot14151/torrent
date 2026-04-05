@@ -1,3 +1,29 @@
+###  Публикация: 1225027   (661825) от 14.05.2018
+
+Денис Горелов | Родина слоников [сборник] (2018) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга рассказывает об истории советского кино, точнее, через призму кино – об истории страны, ее народа и культуры. Увлекательное, познавательное и остроумное чтение от одного из лучших и уж точно самого едкого кинокритика России.Жанр: Современная русская литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:228F50E8E781D560E781C90683080CE309B4C40A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 902717   (660029) от 29.05.2015
 
 Олег Ершов | Витрувианский Человек или Загадки Вселенной (2015) [FB2, EPUB]
@@ -6,7 +32,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660029.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660015.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659572.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659050.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658957.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658902.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658895.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658591.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657941.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657084.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656442.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655457.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655105.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654595.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653331.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652988.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652662.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652653.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652597.jpg" />
 </div>
 
 
@@ -512,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652504.jpg" />
 </div>
 
 
@@ -540,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651794.jpg" />
 </div>
 
 
@@ -568,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651478.jpg" />
 </div>
 
 
@@ -594,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651434.jpg" />
 </div>
 
 
@@ -622,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651012.jpg" />
 </div>
 
 
@@ -650,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650502.jpg" />
 </div>
 
 
@@ -663,33 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:753197BFC4B4455429CF4A415E5188E1F3B31DFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227072   (650144) от 24.05.2018
-
-Дэвид Брукс | Путь к характеру (2018) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юмор, мудрость, любопытство и способность открывать интересные идеи сделали Дэвида Брукса популярным автором - его колонки в New York Times читают миллионы.
-В своей новой книге он рассматривает истории людей, каждый из которых прошел свой путь к сильному характеру. Августин и Сэмюэл Джонсон, Филип Рэндольф и Джордж Элиот, Фрэнсис Перкинс и Дороти Дэй... Черные и (   Читать дальше...   )Жанр: Биографии, МемуарыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:931B1F101A99233FEB17673217050379D8B0C871
 ```
 
 https://mybot314.ru/tekegram_catalog/

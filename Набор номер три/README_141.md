@@ -1,3 +1,161 @@
+###  Публикация: 1000257   (858609) от 25.03.2016
+
+Звёздные войны: Пробуждение силы / Star Wars: Episode VII - The Force Awakens (2015) BDRip [H.264] [Line]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Через тридцать лет после гибели Дарта Вейдера и Императора галактика по-прежнему в опасности. Государственное образование Первый Орден во главе с их таинственным верховным лидером Сноуком и его правой рукой Кайло Реном идёт по стопам Империи, пытаясь захватить всю власть. В это нелёгкое время судьба сводит юную девушку Рей и бывшего штурмовика Первого Ордена Финна (   Читать дальше...   )Производство: США, Bad Robot, Lucasfilm Ltd., Truenorth ProductionsЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Джей Джей АбрамсАктеры: Джон Бойега, Дэйзи Ридли, Оскар Айзек, Адам Драйвер, Донал Глисон, Харрисон Форд, Марк Хэмилл, Кэрри Фишер, Макс фон Сюдов, Энди Серкис, Лупита Нионго, Энтони ДэниелсПеревод: Дублированный (чистый звук)Язык субтитров: английскийПродолжительность: 02:18:06Реклама: Удалил 5 вставок голосовой рекламы!
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CC096DA9F638C35552864EBD3A817D2B06C3953
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000374   (858606) от 25.03.2016
+
+Windows XP SP3 IInsideP4 v24.03.2016 [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858606.jpg" />
+</div>
+
+
+###  Подробнее
+
+Образ на основе Micrоsoft Windows XP Professional with Sеrvice Pack 3 VL Russian.
+ru_windows_xp_professional_with_service_pack_3_x86_cd_vl_x14-74146
+Интегрированы Драйвера самых распространённых AHCI-контроллеров AMD, nForce, Intel, JMicron, SiS, VIA от simplix, Установлено обновление по 01.05.2014 от simplix, DirectX Redistributable - Июнь 2010, Windows Media Player (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB2BE918A0E2226F92DE111F2D78A77A4265C66D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975655   (858604) от 25.03.2016
+
+Бородач (2016) SATRip (сезон 1, серии 1-14 из 14)
+
+>>3
+>>11
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обаятельный, но невезучий охранник Александр Родионович Бородач впутывается вместе со своими друзьями в невообразимые истории, пытается покорить сердце стриптизерши Ирины Скоробейниковой, но неминуемо оказывается в отделении полиции, где его с пристрастием допрашивает начальник в исполнении резидента Comedy Club Демиса Карибидиса.Телекомпания: ТНТЖанр: КомедияРежиссер: Заур БолотаевАктеры: Михаил Галустян, Демис Карибов, Евгений Казанцев, Мария Староторжская, Михаил Куряев, Александр Луканичев, Дмитрий Меденников, Ксения Бехтина, Анастасия ЛучининаПеревод: Не требуется (русский язык)Продолжительность: ~ 00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:286E12999337621A18D008CFFFA621AFB1DB55E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109414   (858538) от 27.02.2017
+
+Cent Browser 2.4.2.19 + Portable [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cent Browser - является усовершенствованной версией браузера Chromium, которая объединяет множество полезных функций, таких как прокрутка панели вкладок, жесты мышью, супер перетаскивание и управление поведением вкладок. Это делает веб-серфинг более удобным и комфортным.Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F46B0CA762F16FC7DEF1B3BEBD38B735E8C98B5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109327   (858433) от 27.02.2017
+
+CyberLink PowerDVD Ultra 17.0.1418.60 RePack by qazwsxe [Ru/En]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858433.jpg" />
+</div>
+
+
+###  Подробнее
+
+CyberLink PowerDVD - один из самых мощных на данный момент программных проигрывателей, позволяющий просматривать DVD-Video и Video-CD на вашем компьютере. Главными преимуществами этого проигрывателя можно назвать высокое качество изображения, удобный интерфейс с возможностью смены скинов и лёгкую настройку. Кроме просмотра фильмов с компакт-дисков (DVD и Video-CD), (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E71E763EE8332AA8877D70EAEAEC6FA118ED55F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109269   (858420) от 27.02.2017
+
+Представлена новая Nokia 3310
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_858420.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания HMD Global представила новую версию легендарного телефона Nokia 3310. Об этом сообщает корреспондент с выставки MWC 2017 в Барселоне.Новая Nokia 3310 получила 2,4-дюймовый дисплей с разрешением 320х240 пикселей. Также устройство снабжено 2-мегапиксельной камерой и поддерживает карты памяти microSD. По сравнению с предшественником телефон стал значительно (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104375   (858418) от 27.02.2017
 
 Лунный свет / Moonlight (2016) WEB-DLRip
@@ -6,7 +164,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858418.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858414.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ Sid Meier's Civilization V / Sid Meier's Civilization 5 (2014) [Ru/En] (1.0.3.27
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858412.jpg" />
 </div>
 
 
@@ -84,7 +242,7 @@ AKVIS Plugins Pack 2017.02 (x64) [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858410.jpg" />
 </div>
 
 
@@ -110,7 +268,7 @@ Metal Gear Solid V: The Phantom Pain (2015) [Ru/Multi] (1.1.0/dlc) Repack R.G. �
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858408.jpg" />
 </div>
 
 
@@ -136,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_857991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_857991.jpg" />
 </div>
 
 
@@ -162,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_857985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_857985.jpg" />
 </div>
 
 
@@ -188,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857980.jpg" />
 </div>
 
 
@@ -214,7 +372,7 @@ JetBrains PyCharm Professional 2020.1 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857979.jpg" />
 </div>
 
 
@@ -240,7 +398,7 @@ MInstAll v.17.04.2020 By Andreyonohov & Leha342 (Unpacked) [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857978.jpg" />
 </div>
 
 
@@ -266,7 +424,7 @@ Microsoft® Windows® 7 Ultimate Ru x86/x64 nBook IE11 by OVGorskiy® 04.2020 1 
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857976.jpg" />
 </div>
 
 
@@ -292,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857974.jpg" />
 </div>
 
 
@@ -318,7 +476,7 @@ Batman: Arkham Knight (2015) [Ru/Multi] (1.7/dlc) Repack R.G. Catalyst [Game of 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857973.jpg" />
 </div>
 
 
@@ -344,7 +502,7 @@ Control (2019) [Ru/En] (1.10/dlc) Repack Other s
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857972.jpg" />
 </div>
 
 
@@ -370,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857971.jpg" />
 </div>
 
 
@@ -396,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857970.jpg" />
 </div>
 
 
@@ -422,7 +580,7 @@ Pinnacle Studio 15 HD Content from VM & OB Team (Adorage) [Eng/Rus]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857726.jpg" />
 </div>
 
 
@@ -448,7 +606,7 @@ Microsoft Windows 7 SP1 RUS-ENG x64 -24in1- (AIO)
 >>11
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857725.jpg" />
 </div>
 
 
@@ -476,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857702.jpg" />
 </div>
 
 
@@ -502,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>9
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_857417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_857417.jpg" />
 </div>
 
 
@@ -515,165 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497682   (857415) от 26.09.2021
-
-Консолидация индустрии VPN создает проблемы для потребителя
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_857415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор блога Windscribe раскрывает секреты рынка VPN – кто является глобальными владельцами популярных VPN-сервисов, кому принадлежат сайты с обзорами и оценками VPN-сервисов, и как это влияет на потенциальных клиентов.Большинство из вас, вероятно не подозревают о драмах, разворачивающихся в индустрии VPN. Что ж, это скоро изменится. Отрасль VPN переживает серьезные (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498079   (857405) от 26.09.2021
-
-Windows 10 Enterprise LTSC (x64) Elgujakviso Edition (v.25.09.21) [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857405.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана на основе оригинального образа от MSDN: ru_windows_10_enterprise_ltsc_2019_x64_dvd_9aef5d46.iso
-
-   Интегрированы важные и рекомендуемые обновления по 23.09.2021 года.
-Установлен NET Framework 3.5 (включает .NET 2.0 и 3.0); установлен NET Framework 4.8; включен стандартны просмотр фото. Для получения полной информаций об изменениях, читайте раздел "дополнительная (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A32E200A439BCCB4FE2C26D5867A3F496BFF831
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498020   (857400) от 26.09.2021
-
-Главный герой / Free Guy (2021) BDRip [H.264/1080p] [DVO, PR]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857400.jpg" />
-</div>
-
-
-###  Подробнее
-
-У сотрудника крупного банка всё идёт по накатанной, пока однажды он не выясняет, что окружающий его мир — это часть огромной видеоигры, а сам он в ней — всего лишь второстепенный персонаж. Хватит ли у него духу переписать свой код, обратить на себя внимание прекрасной девушки и, наконец, спасти мир? Одним словом, получится ли из него главный герой?Производство: США, Канада, Япония, 20th Century Studios, 21 Laps Entertainment, Berlanti Productions, Lit Entertainment Group, Maximum EffortЖанр: Фантастика, боевик, комедияРежиссер: Шон ЛевиАктеры: Райан Рейнольдс, Джоди Комер, Тайка Вайтити, Уткарш Амбудкар, Джо Кири, Камилль Костек, Лил Рел Ховери, Кимберли Хоу, Мэтти Кардаропл, Тейт ФлетчерПеревод: Двухголосый любительский (Pazl Voice)Субтитры: Русские (от MENINSUB), Английские (Forced, Full, SDH)Продолжительность: 01:54:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1053C514C6ABFEAABD56061589D2AE0224FB654
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494504   (857398) от 26.09.2021
-
-Аниара: Космическая обитель / Aniara (2018) BDRip [H.264/1080p]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857398.jpg" />
-</div>
-
-
-###  Подробнее
-
-Человечество отправляет поселенцев на Марс на нескольких космических кораблях. Пассажиры избалованы потреблением, так как на судах есть все необходимое современному человеку — это гигантские торговые центры. Но после того, как один из кораблей под названием Аниара сбивается с курса и теряет управление, людям придется столкнуться с непредвиденными последствиями.Производство: Швеция, Дания / Meta Film Stockholm, Meta Film, ViaplayЖанр: Фантастика, драмаРежиссер: Пелла Когерман, Хюго ЛиаАктеры: Эмили Йонсон, Бианка Крузейро, Arvin Kananian, Аннели Мартини, Йенния Сильверйельм, Emma Broomé, Джамил Дрисси, Leon Jiber, Петер Карлберг, Хуан РодригезПеревод: Дублированный (IVI)Субтитры: Русские, английскиеПродолжительность: 01:45:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B4CD13356291D2874FFB284DE51FCD4E8291001
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 799394   (857313) от 06.03.2015
-
-Форс-мажоры / Костюмы в законе / Suits (2014) WEB-DL [H.264/720p-LQ] (сезон 4, серии 1-16 из 16) NewStudio
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Убегая после неудачной попытки сбыта наркотиков, юрист-самоучка  Росс, выдающий себя за выпускника Гарварда, попадает на собеседование к одному из лучших адвокатов по сделкам Нью-Йорка Харви Спектру. Устав от скучных соискателей, мечтающих «верой и правдой служить букве закона», Харви рискует и нанимает Майка: у парня врожденный талант и фотографическая память. Так (   Читать дальше...   )Производство: СШАЖанр: драма, комедияРежиссер: Кевин Брэй, Майкл Смит, Антон КропперАктеры: Гэбриел Махт, Патрик Дж. Адамс, Рик Хоффман, Меган Маркл, Сара Рафферти, Джина Торрес, Ванесса Рэй, Том Липински, Макс Топплин, Ребекка Скул, Джулиан ДеЗотти, Бен Льюис и др.Перевод: Двухголосый закадровый, профессиональный - NewStudioПродолжительность: ~00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A8CD232EBC14B878C4552C1DB1FAC8F6EBF53BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000672   (856947) от 26.03.2016
-
-Adobe Muse CC 2015.1.2.44 RePack by D!akov [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Muse – визуальный конструктор сайтов, функционирующий по принципу «отображение внесённых изменений в реальном времени». Таким образом, разработчику не требуется открывать HTML-код сайта - панель редактирования позволяет работать с веб-страницей, как с изображением. Очевидно, что такой подход ориентирован на создание среды разработки, доступной пользователю (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4568EC33A2622337BA4742BC7B5EE44CEF1AC9F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

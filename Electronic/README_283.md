@@ -1,3 +1,117 @@
+###  Публикация: 1314729   (517137) от 16.07.2019
+
+A Flock Of Seagulls - Inflight - The Extended Essentials (2019) Remix [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Ran (So Far Away) (07:46)
+02. Modern Love Is Automatic (07:20)
+03. Space Age Love Song (05:46)
+04. Wishing (If I Had A Photograph Of You) (08:34)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 01:13:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BD9DB2A3DA54186BFAF9B3D52F23B32E7B4C1AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242021   (517103) от 20.08.2018
+
+VA - Costa - Baltic Wave (Extended Versions) (2018) [FLAC|Lossless|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Costa – Coming To Life (Original Mix)
+02. Costa & Veronica K – The Missing Piece (Extended Mix)
+03. Costa & Hanna Finsen – I Will Wait For You (Original Mix)
+04. Costa – Baltic Waves (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:58:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC5EBB4B525461F582AEF38FD60C3D5CA81576A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008683   (516994) от 20.08.2018
+
+Ghosts Of Paraguay - Discography 11 Releases (2009-2018) [FLAC|Lossless|tracks+.cue, tracks] <Future Garage, Ambient, Dubstep, Modern Classical, Downtempo>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who You Become (05:30)
+ 02. Needing You (05:15)Тип издания: CD, WEBЖанр: Chillstep/UK GarageПродолжительность: 00:10:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:803B894423CE3D487A91677DC4D9E12A3A0497BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242192   (516294) от 21.08.2018
+
+VA - Progressive Trance Vol. 4 (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FEEL & Diana Leah - One Last Time (Extended Mix)
+02. Christina Novelli & Adip Kiyoi - Carousel (Extended Mix)
+03. Elite Electronic - Digital Age (Extended Mix)
+04. Attila Syah & Xpectra & J.Puchler & Joanna Angelina - Forever (Extended Mix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 01:21:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE5191AA98ED911A1B2DB03F8B6E4FA18491CD5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242180   (516252) от 21.08.2018
 
 VA - Redux Ibiza Selection 2017 (Mixed by Maratone) (2018) [MP3|320 Kbps] <Trance>
@@ -6,7 +120,7 @@ VA - Redux Ibiza Selection 2017 (Mixed by Maratone) (2018) [MP3|320 Kbps] <Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516252.jpg" />
 </div>
 
 
@@ -35,7 +149,7 @@ VA - Dirty Sexy House Club 8 (Smashing Tunes) (2018) [MP3|320 Kbps] <Funky, Club
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516234.jpg" />
 </div>
 
 
@@ -64,7 +178,7 @@ Alphaville - So8os (Soeighties) Presents - Curated By Blank & Jones (2014) [FLAC
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516194.jpg" />
 </div>
 
 
@@ -93,7 +207,7 @@ Drab Majesty - Modern Mirror (2019) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Syn
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516050.jpg" />
 </div>
 
 
@@ -122,7 +236,7 @@ VA - Trance Progressive: Music We Love (2022) [MP3|320 Kbps] <Trance, Electro, P
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515639.jpg" />
 </div>
 
 
@@ -151,7 +265,7 @@ Simon Le Grec - 1974 (Unique Electronic Music) (2022) [FLAC|Lossless|WEB-DL|trac
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515638.jpg" />
 </div>
 
 
@@ -180,7 +294,7 @@ VA - Calming Travels: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515637.jpg" />
 </div>
 
 
@@ -209,7 +323,7 @@ VA - Goodmorning: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balea
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515592.jpg" />
 </div>
 
 
@@ -238,7 +352,7 @@ G.E.N.E. - Visionary Voyager (1993) [FLAC|image + .cue]<New Age>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515287.jpg" />
 </div>
 
 
@@ -267,7 +381,7 @@ SiJ - Way To Dream (2015) [FLAC|Lossless|WEB-DL]<Ambient, Modern Classical, New 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515258.jpg" />
 </div>
 
 
@@ -296,7 +410,7 @@ VA - Ultimate Uplifting Trance Anthems (2018) [MP3|320 Kbps] <Trance,Uplifting T
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515137.jpg" />
 </div>
 
 
@@ -325,7 +439,7 @@ VA - Workout Uplifting Trance Anthems (2018) [MP3|320 Kbps] <Trance,Uplifting Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515136.jpg" />
 </div>
 
 
@@ -354,7 +468,7 @@ VA - Dub Hits Vol.8 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515134.jpg" />
 </div>
 
 
@@ -383,7 +497,7 @@ Dinka - Innocence (2012) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515123.jpg" />
 </div>
 
 
@@ -412,7 +526,7 @@ VA - Nothing But... Ibiza Summer 2018 Trance (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515120.jpg" />
 </div>
 
 
@@ -441,7 +555,7 @@ VA - Barcelona to Mykonos - The Circuit Music Guide (2018) [MP3|320 Kbps] <House
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513984.jpg" />
 </div>
 
 
@@ -470,7 +584,7 @@ VA - Power Lifting Platinum Hits Fitness Session (2019) [MP3|320 Kbps] <Funky, C
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513901.jpg" />
 </div>
 
 
@@ -499,7 +613,7 @@ BELLATRIX - Cosmic Dust (2019) [FLAC|Lossless|WEB-DL|tracks] <Spacepop, Spacesyn
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513897.jpg" />
 </div>
 
 
@@ -528,7 +642,7 @@ Sonny Fodera - Rise (2019) [FLAC|Lossless|tracks] <Electronic, House, Tech House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513887.jpg" />
 </div>
 
 
@@ -557,7 +671,7 @@ VA - Audiotec (2004-2018) [FLAC|Lossless|tracks|tracks + .cue] <Psy-Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513884.jpg" />
 </div>
 
 
@@ -586,7 +700,7 @@ BELLATRIX - Cosmic Dust (2019) [MP3|320 Kbps] <Spacepop, Spacesynth, Disco>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513813.jpg" />
 </div>
 
 
@@ -615,7 +729,7 @@ StereOMantra - Vivarium (2019) [FLAC|Lossless|WEB-DL|tracks] <Psybient, Chillgre
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513807.jpg" />
 </div>
 
 
@@ -629,123 +743,6 @@ StereOMantra - Vivarium (2019) [FLAC|Lossless|WEB-DL|tracks] <Psybient, Chillgre
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CD2CF17758F0FD2E2F3AD26F6665933555EC95A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315132   (513629) от 19.07.2019
-
-Aly & Fila - Future Sound Of Egypt 607 (John '00' Fleming Takeover) (2019-07-17) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513629.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ARTBAT - ElementЖанр: TranceПродолжительность: 01:59:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F49B39186A673C7DF027C823549C4572D4E01A4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315274   (513628) от 19.07.2019
-
-Markus Schulz - Global DJ Broadcast (18 July 2019) with guest Nifra (2019) [MP3|320 Kbps] <Trance, Progressive>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Markus Schulz
-01. Pryda - Warrior
-02. Claus Backslash - Reality is Over
-03. Jam & Spoon - Follow Me (Jerome Isma-Ae Remix)Жанр: Trance, ProgressiveПродолжительность: 02:02:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F65C55728995CA92CFC28023CCF30372F49090FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315284   (513624) от 19.07.2019
-
-Armin van Buuren - A State of Trance 923 (2019) [MP3|320 Kbps] <Progressive, Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Armin van Buuren played:
-01 LTN & Christina Novelli - I'd Go Back (The Path Of Life)Жанр: Progressive, TranceПродолжительность: 02:01:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA8CD27ADEA4A44E15FFFA0E1A16A4444FE1EC94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536417   (513519) от 19.08.2012
-
-Jaytech - Multiverse (2012) [MP3|~225 кб/с (V1)]<Progressive House, Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everglade (feat. Serenade)
-02. New Vibe (Album Version)
-03. Rabbit Raiders
-04. Labour Of Love (feat. Nathan Grainger)
-05. Epilson
-06. Innovation (feat. Nathan Grainger)
-07. Through The Maze (feat. Serenade)
-08. Diode
-09. Dr Device
-10. Stranger (feat. Steve Smith)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:16:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B913AB2EC489EC3AE99874C3D43071280C224751
 ```
 
 https://mybot314.ru/tekegram_catalog/

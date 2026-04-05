@@ -1,3 +1,29 @@
+###  Публикация: 1634420   (198231) от 20.05.2023
+
+Lumos, Олег Грознов | Как правильно читать картины? (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198231.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ходе мастер-класса мы узнаем, как понимать картины. Мы обсудим различные составляющие изобразительного искусства: сюжет, композицию, рисунок, колорит и многое другое.Производство: LumosЖанр: ИскусствоЯзык озвучки: РусскийПродолжительность: 01:34:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F24549B169C73734051D2D03916583A5A343B40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1634410   (198221) от 20.05.2023
 
 Школа современного гобелена, Юрий Овсепян | Курс по стилизованной графике (2020) WEB-DL [RU]
@@ -6,7 +32,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198221.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ Heisenbug | Конференция по тестированию не тольк
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198214.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198209.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198207.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Williams Academy, Tamara Williams | Masterclass Photo & Retouch + Brushes (2023)
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198193.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ Fine., Юлия Киселева | Мастер класс по работе с 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198183.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ pixel.one | Создание 2D игр в Unity (2019) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198173.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ Udemy | Библиотека курсов по Matlab (2022) [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198167.jpg" />
 </div>
 
 
@@ -223,7 +249,7 @@ The Gnomon Workshop, Alessandro Cangelosi | Natural Environment Creation Techniq
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198164.jpg" />
 </div>
 
 
@@ -249,7 +275,7 @@ Udemy, Nathan House | The Complete Nmap Ethical Hacking Course : Network Securit
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_198050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_198050.jpg" />
 </div>
 
 
@@ -278,7 +304,7 @@ Changellenge, Денис Хайретдинов, Георгий Пащенко |
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197974.jpg" />
 </div>
 
 
@@ -307,7 +333,7 @@ Skillbox, М. Овчинников, С. Корниенко и др. | Веб-в�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197953.jpg" />
 </div>
 
 
@@ -335,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197932.jpg" />
 </div>
 
 
@@ -364,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197917.jpg" />
 </div>
 
 
@@ -392,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197824.jpg" />
 </div>
 
 
@@ -419,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197821.jpg" />
 </div>
 
 
@@ -445,7 +471,7 @@ LevelOne, Елизавета Волкова  | Сильная речь - что 
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197765.jpg" />
 </div>
 
 
@@ -472,7 +498,7 @@ Udemy | Библиотека курсов по Ansys (2018-2023) WEB-DLRip [EN /
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197757.jpg" />
 </div>
 
 
@@ -499,7 +525,7 @@ Slurm (Слёрм), Марсель Ибраев, Павел Селиванов, 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197733.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197718.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ Songwriting-academy, Олег Шаумаров | Большая Аранжиро
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197716.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ PSY2.0 | Основы сексуального здоровья (2023) WEB-DL [A
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197645.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197643.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197642.jpg" />
 </div>
 
 
@@ -672,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197608.jpg" />
 </div>
 
 
@@ -686,33 +712,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48DB3E3B0D3B773EEF412EED2B3DEBD5A1046086
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637217   (197593) от 03.06.2023
-
-Apeiron, Алексей Арестович | Семинар «Священная рана» (2020) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это один из базовых семинаров для понимания человека и его места в мире. На семинаре вы узнаете о сути Священной раны, законах этого пути, сущности каждого этапа эволюционной лестницы, правилах движения и перехода.
-У каждого есть своя уникальная Ахиллесова пята. В начале пути она кажется слабостью либо недостатком, от которого хочется избавиться и забыть. Человек (   Читать дальше...   )Производство: ApeironЖанр: психология общения, межличностные коммуникации, эзотерика и оккультизмЯзык озвучки: русскийПродолжительность: 03:55:39Реклама: cторонние вставки и наложения на видео (водяной знак спонсора)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0166474D0602E2D3C792AACB1DEB52EB33C92612
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,31 @@
+###  Публикация: 1266562   (270048) от 02.12.2018
+
+Л. Е. Поляков | Цена войны: Демографический аспект (1985) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270048.jpg" />
+</div>
+
+
+###  Подробнее
+
+На большой статистическом и документальном материале автор убеждает в необходимости активной борьбы против войн глобальных и локальных, против гонки вооружений и холодной войны. Войне - нет!
+
+Книга рассчитана на широкий круг читателей, интересующихся проблемами борьбы за мир, демографии, санитарно - демографических последствий современных войн.Жанр: История, политология, экономика, демография, социология, публицистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2883D31551FE6669F733E93B1D200CDD639B6EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338621   (268831) от 16.11.2019
 
 Н. П. Васильев, Ф. Д. Хрустов (ред.) | О советском патриотизме. Сборник статей (1950) [DJVU, PDF]
@@ -6,7 +34,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268831.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268034.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267106.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_266991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_266991.jpg" />
 </div>
 
 
@@ -110,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266567.jpg" />
 </div>
 
 
@@ -138,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265986.jpg" />
 </div>
 
 
@@ -164,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265973.jpg" />
 </div>
 
 
@@ -192,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265689.jpg" />
 </div>
 
 
@@ -218,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265134.jpg" />
 </div>
 
 
@@ -244,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265079.jpg" />
 </div>
 
 
@@ -270,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264959.jpg" />
 </div>
 
 
@@ -296,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264258.jpg" />
 </div>
 
 
@@ -324,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263554.jpg" />
 </div>
 
 
@@ -350,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263544.jpg" />
 </div>
 
 
@@ -376,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263501.jpg" />
 </div>
 
 
@@ -403,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263290.jpg" />
 </div>
 
 
@@ -431,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263288.jpg" />
 </div>
 
 
@@ -457,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262829.jpg" />
 </div>
 
 
@@ -485,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262345.jpg" />
 </div>
 
 
@@ -511,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261825.jpg" />
 </div>
 
 
@@ -539,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259992.jpg" />
 </div>
 
 
@@ -565,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257899.jpg" />
 </div>
 
 
@@ -593,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250060.jpg" />
 </div>
 
 
@@ -621,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249630.jpg" />
 </div>
 
 
@@ -647,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243593.jpg" />
 </div>
 
 
@@ -658,32 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1478EC57A387126ED0B5BF41FDABD2651DFEED0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352719   (243127) от 15.01.2020
-
-Чарльз Грабер | Добрый медбрат (2019) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243127.jpg" />
-</div>
-
-
-###  Подробнее
-
-История Чарльза Каллена, серийного убийцы, который признался властям, что он убил около 400 пациентов в течение своей шестнадцатилетней карьеры медбрата. Его называют «Ангел смерти». Он вводил смертельные дозировки лекарств, «чтобы облегчить страдания» своих жертв-пациентов. Чарльз Грабер расследует причины и следствия этого «леденящего душу», по определению самого (   Читать дальше...   )Жанр: Биографии и мемуары, Документальная литература, Зарубежная публицистикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD154FA2F2442543A43359F7802173FD5ADFE7F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

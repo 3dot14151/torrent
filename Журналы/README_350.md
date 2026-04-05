@@ -1,3 +1,134 @@
+###  Публикация: 942548   (453914) от 01.10.2015
+
+Журнал | Народный лекарь. Спецвыпуск №138 (2015) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый номер журнала расскажет Вам о лечении какого-либо распространенного заболевания. Лучшие рецепты читателей с комментариями специалистов.Жанр: Нетрадиционная медицинаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:033ADE7CE39392771F7E49BF438C6D3E0BFE24DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942825   (453910) от 01.10.2015
+
+Журнал | Домашняя энциклопедия здоровья №3 (57) (сентябрь 2015) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Среди ваших знакомых много гипертоников? Среди моих - очень. Что, впрочем совпадает с официальной статистикой. По данным Всемирной организации здравоохранения, каждый третий житель Земли страдает от повышенного давления.
+И знаете, чем медики объясняют рост «армии» гипертоников?.. Улучшением нашего образа жизни. Физическим трудом сегодня занимаются немногие, а у остальных (   Читать дальше...   )Жанр: Здоровье, домоводствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8101ADB8E12171C949D8CBEDE3C4720D63D19EFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 704857   (453853) от 28.09.2013
+
+Журнал | Women's Health [Россия] №10 (октябрь 2013) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453853.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Women’s Health" – качественное модное глянцевое издание о здоровом образе жизни в современном формате. Это живой, веселый и практичный журнал для современных, активных женщин, он не только о здоровом образе жизни и фитнесе, но и о красоте, стиле, сексе и отношениях. Издание ответит на популярные среди женщин вопросы, как вести здоровый образ жизни, как (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E68BD5D9A95E10F5484CDAEDA8CEC09E377A4A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 704833   (453849) от 28.09.2013
+
+Журнал | Glamour [Россия] №10 (октябрь 2013) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453849.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Glamour" - это пропуск в красивую жизнь. Наш журнал будет большое внимание уделять моде и красоте. Он станет вашим гуру в вопросах создания собственного стиля, независимо от вашего бюджета. Легкий и компактный, "Glamour" идеально вписывается в нашу жизнь.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54BDB1A699A1E8EF246CEB01FCD1A35A98960EDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 704880   (453844) от 28.09.2013
+
+Журнал | Сабрина. Спецвыпуск №11. Шапки и шарфы (2013) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453844.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Сабрина» представляет спецвыпуск «Шапки и шарфы», в котором предложено множество вариантов аксессуаров для холодной погоды. Шапки, шарфы, перчатки, митенки, вязаные шали, накидки и сумочки. Разбавьте серые будни яркими деталями!Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10B6F1EE1344DBF0D0A3F74CF6D21F75ADD83739
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 942545   (453761) от 01.10.2015
 
 Журнал | Интернет-гид №9 (сентябрь 2015) [PDF]
@@ -6,7 +137,7 @@
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453761.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453747.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453739.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453659.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453658.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453640.jpg" />
 </div>
 
 
@@ -162,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453521.jpg" />
 </div>
 
 
@@ -188,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453484.jpg" />
 </div>
 
 
@@ -214,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453325.jpg" />
 </div>
 
 
@@ -240,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453310.jpg" />
 </div>
 
 
@@ -267,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453222.jpg" />
 </div>
 
 
@@ -293,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453149.jpg" />
 </div>
 
 
@@ -319,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453147.jpg" />
 </div>
 
 
@@ -346,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453134.jpg" />
 </div>
 
 
@@ -372,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453132.jpg" />
 </div>
 
 
@@ -398,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452979.jpg" />
 </div>
 
 
@@ -425,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452972.jpg" />
 </div>
 
 
@@ -451,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452965.jpg" />
 </div>
 
 
@@ -477,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452807.jpg" />
 </div>
 
 
@@ -503,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452802.jpg" />
 </div>
 
 
@@ -532,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452693.jpg" />
 </div>
 
 
@@ -543,136 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE38C097A58A21B7DD31BEC24C7EF93688DBBD2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163208   (452624) от 04.09.2017
-
-Журнал | Сад своими руками №9 (сентябрь 2017) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведущее российское издание о саде. Рассказывает о том, как без помощи специалистов создать свой, неповторимый сад, как ухаживать за растениями, как своими руками построить беседку, сделать дорожки, забор, водоем и многое другое. В каждом номере журнала представлены проекты садов и «энциклопедии» растений, что поможет вам собрать коллекцию практических решений для (   Читать дальше...   )Жанр: СадоводствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6DDD2CD7070A21C6D68BA3E571AC1A7A67E3194
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163206   (452621) от 04.09.2017
-
-Журнал | Огородник №9 (сентябрь 2017) [PDF] [Ru, Ua]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452621.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Огородник» - красочный современный журнал для любителей дач и огородов. В каждом номере интересные статьи и полезные советы по уходу за различными культурами, а также по дизайну участка.Жанр: Сад, огород, дачаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29AEE61584ABE4914C316D2DD041D7834EE53318
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163214   (452607) от 04.09.2017
-
-Журнал | Бронеколлекция. Спецвыпуск №1 (13). Самоходные артиллерийские установки "Акация", "Тюльпан" и "Гиацинт" (2017) [FB2]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бронеколлекция - популярный массовый специализированный журнал для любителей истории бронетанковой техники и танкостроения. Издается с 1995 года в качестве приложения к журналу «Моделист-конструктор». В нем публикуются тематические справочники, посвященные бронетехнике разных стран мира и разных периодов, а также монографии, которые рассказывают о наиболее интересных (   Читать дальше...   )Жанр: Военная техникаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C84C7110350B8F30CAF3734F70EE8ABF0549C0BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186847   (452326) от 15.09.2018
-
-Подшивка журналов | The Family Handyman (2018) [PDF] [En] [Обновляемая]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал, посвященный обустройству дома, сада, гаража, мастерской, столярному делу и созданию мебели, DIY проектам. Разнообразные идеи и их реализация: проекты из дерева, советы по ремонту, усовершенствование пространства дома и сада, подбор инструментов и многое другое.Жанр: Домашний мастер, строительствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:894664CE0193A56D7F6C3BA286E519F1E6F45553
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 705075   (452017) от 29.09.2013
-
-Журнал | Мой прекрасный сад [Украина] Спецвыпуск №5 (2013) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Мой прекрасный сад» - самый популярный журнал по декоративному садоводству в Европе. Спецвыпуск построен на советах ландшафтных специалистов, цветоводов, содержит примеры схем обустройства садов.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ABCD277EC4CD9D3020D42F926BE67C4DA8A19FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1421983   (315435) от 06.11.2020
+
+Neil Young & Crazy Horse - Return To Greendale (2020) Live [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Falling from Above (07:41)
+02. Double E (05:32)
+03. Devil's Sidewalk (06:22)
+04. Leave The Driving (06:34)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:20:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6AAED62528E247FBACA7B1EA6B4C0F0E6639DBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422009   (315430) от 06.11.2020
 
 KDRR - Корея (2020) [MP3|320 Kbps] <Punk Rock>
@@ -6,7 +35,7 @@ KDRR - Корея (2020) [MP3|320 Kbps] <Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315430.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Led Zeppelin Salute - Get Some More Led Out (2011) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315429.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Fish - Weltschmerz (2020) 2xCD [FLAC|Lossless|image + .cue] <Progressive Rock, A
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315296.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Royal Hunt - 20th Anniversary: Special Edition (2012) [MP3|320 кб/с]<Progress
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315245.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315231.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ Whitesnake - Love Songs (2020) Remix [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, D
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315131.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ VA - Территория ДДТ (2020) [MP3|320 Kbps] <Rock, Pop & etc.>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315067.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ The Unguided - And the Battle Royale (2017) [MP3|320 Kbps] <Melodic Death Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314998.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314997.jpg" />
 </div>
 
 
@@ -261,7 +290,7 @@ Bryan Adams - 18 Til I Die (1996) [FLAC|tracks+.cue]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314953.jpg" />
 </div>
 
 
@@ -290,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314912.jpg" />
 </div>
 
 
@@ -319,7 +348,7 @@ The Snakes - Once Bitten... (1998) Unofficial Release [FLAC|image + .cue]<Hard R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314837.jpg" />
 </div>
 
 
@@ -348,7 +377,7 @@ Fish - 13th Star (2007) [FLAC|image + .cue]<Alternative Rock, Symphonic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314722.jpg" />
 </div>
 
 
@@ -377,7 +406,7 @@ The Who - Live in Hyde Park 2CD (2015) [MP3|320 кб/с]<Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314717.jpg" />
 </div>
 
 
@@ -406,7 +435,7 @@ Tetrafusion - Absolute Zero (2009) [FLAC|Lossless|image + .cue] <Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314714.jpg" />
 </div>
 
 
@@ -435,7 +464,7 @@ Primus - Brown Album (1997) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314695.jpg" />
 </div>
 
 
@@ -464,7 +493,7 @@ blessthefall - Hard Feelings (2018) [FLAC|Lossless|tracks + .cue] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314690.jpg" />
 </div>
 
 
@@ -493,7 +522,7 @@ Primus - The Desaturating Seven (2017) [FLAC|Lossless|tracks + .cue] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314673.jpg" />
 </div>
 
 
@@ -522,7 +551,7 @@ Dagger Threat - Weltschmerz (2022) [FLAC|Lossless|WEB-DL|tracks] <Hardcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314669.jpg" />
 </div>
 
 
@@ -551,7 +580,7 @@ Loggerhead - Terrestrials (2022) [MP3|320 Kbps] <Sludge, Psych, Doom, Stoner>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314666.jpg" />
 </div>
 
 
@@ -580,7 +609,7 @@ Jimmy Sticks - 2 Albums (2019-2022) [MP3|320 Kbps] <Thrash Groove Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314662.jpg" />
 </div>
 
 
@@ -609,7 +638,7 @@ Varials - Scars For You To Remember (2022) [MP3|320 Kbps] <Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314656.jpg" />
 </div>
 
 
@@ -638,7 +667,7 @@ Bloody Hammers - Washed in the Blood (2022) [MP3|320 Kbps] <Heavy Rock, Doom, Ho
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314654.jpg" />
 </div>
 
 
@@ -667,7 +696,7 @@ The Northern Rocket - 2 Albums (2017-2022) [MP3|320 Kbps] <Heavy Rock, Stoner, G
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314652.jpg" />
 </div>
 
 
@@ -696,7 +725,7 @@ Blind the Eye - The Lion of Lions (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314650.jpg" />
 </div>
 
 
@@ -710,35 +739,6 @@ Blind the Eye - The Lion of Lions (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E16B534B062B8460143CC9C2226AD49BBD54264
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182546   (314641) от 11.11.2017
-
-Дмитрий Ревякин - Змееборец (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Без эмоций
-02. Крючок
-03. Black water
-04. Правды нет(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44618AF51C4EB3FDCBBFE102D41D02CD897AD70E
 ```
 
 https://mybot314.ru/tekegram_catalog/

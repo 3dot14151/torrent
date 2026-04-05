@@ -1,29 +1,3 @@
-###  Публикация: 1406828   (470138) от 05.09.2020
-
-[Udemy] Евгений Новиков | Стань QA специалистом с нуля (2019) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пошаговая инструкция, которая поможет пройти путь от абсолютного новичка до первой работы. Вы получите необходимую базу знаний и навыков для тестирования программного обеспечения. Кроме технических знаний и навыков курс включает практические советы и задания по составлению резюме, подготовке к собеседованию и поиску работы. Этот курс для всех желающих освоить профессию (   Читать дальше...   )Производство: UdemyЖанр: ТестированиеПродолжительность: 03:58:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A04120ED2CB3C091F7D7128D16AFDC763B089E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1406955   (470132) от 05.09.2020
 
 javaops.ru | Junior Java-разработчик веб-приложений - BaseJava (2019) PCRec
@@ -32,7 +6,7 @@ javaops.ru | Junior Java-разработчик веб-приложений - Ba
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470132.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470025.jpg" />
 </div>
 
 
@@ -87,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470021.jpg" />
 </div>
 
 
@@ -113,7 +87,7 @@ javaops.ru | Enterprise Java-разработчик (TopJava) (2019) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470020.jpg" />
 </div>
 
 
@@ -139,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468154.jpg" />
 </div>
 
 
@@ -168,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468152.jpg" />
 </div>
 
 
@@ -197,7 +171,7 @@ Softwaretesting | Погружение в тестирование. Jedi point (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468150.jpg" />
 </div>
 
 
@@ -225,7 +199,7 @@ loftschool | React.js. Разработка веб-приложений (2018) P
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466998.jpg" />
 </div>
 
 
@@ -251,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466186.jpg" />
 </div>
 
 
@@ -285,7 +259,7 @@ Charles Dye | Mix it Like a Record [2012] DVDRip [RUS + ENG]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464533.jpg" />
 </div>
 
 
@@ -311,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464025.jpg" />
 </div>
 
 
@@ -340,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463733.jpg" />
 </div>
 
 
@@ -368,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462904.jpg" />
 </div>
 
 
@@ -394,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461707.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459462.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ OTUS | Разработчик Java (Часть 1-3) (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459396.jpg" />
 </div>
 
 
@@ -477,7 +451,7 @@ EMPO | Аналитика для SEO (2015) PCRec [H.264/720p]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457191.jpg" />
 </div>
 
 
@@ -504,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457054.jpg" />
 </div>
 
 
@@ -530,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457052.jpg" />
 </div>
 
 
@@ -557,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456848.jpg" />
 </div>
 
 
@@ -583,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455427.jpg" />
 </div>
 
 
@@ -611,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455282.jpg" />
 </div>
 
 
@@ -640,7 +614,7 @@ ITVDN | Алгоритмы и структуры данных (2015) PCRec [H.26
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454950.jpg" />
 </div>
 
 
@@ -666,7 +640,7 @@ Skillbox, Павел Козлов и др. | MS Office и инструменты
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454916.jpg" />
 </div>
 
 
@@ -693,7 +667,7 @@ Skillbox, Ренат Шагабутдинов и др. | PowerPoint + Google П�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454911.jpg" />
 </div>
 
 
@@ -706,6 +680,32 @@ Skillbox, Ренат Шагабутдинов и др. | PowerPoint + Google П�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72CE14ED876E59BA9678B63D0C23E8FBA5496FBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 528731   (452914) от 12.08.2022
+
+А. Севастьянов | Сброс пароля администратора в Windows [2011] PCRec
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452914.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данном видеоуроке, рассмотрим пример сброса пароля администратора в Windows, что позволит выполнить вход в систему с привилегированными правами.Жанр: Обучающее видеоПродолжительность: 00:10:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E01468873D86D823D36A7CA28A31ABD1F33D6BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

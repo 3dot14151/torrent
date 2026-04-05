@@ -6,7 +6,7 @@ Cinnamon Chasers (2009-2011) [720p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448413.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448358.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448163.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447722.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Jeff Lynne’s ELO - Live in Hyde Park (2014) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446910.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Avril Lavigne - Live in Calgary Alberta (2007) HDTVRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_446721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_446721.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Selena Gomez and The Scene - Love You Like A Love Song / Селена Гомес
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446661.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Barillo - Dust (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446413.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ KooFee feat. Manu Blanco - El Culito (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446222.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Scorpions - Moment of Glory (Live with the Berlin Philharmonic Orchestra) (2000 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446177.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Sandra Afrika - Neko ce mi nocas napraviti sina (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446087.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Lindsey Stirling - Elements  (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445770.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445677.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ VA - Осенний марафон № 195 / Видеоклипы (Зарубе�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444752.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444038.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Dr. Dre & Snoop Dogg Full Live @ Coachella 2012 HDTVRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443834.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443699.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443628.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Uriah Heep - More Of Classic Heep Live (Video Сollection1972-1978) (2012) VHSRi
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443354.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442682.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442213.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439923.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439728.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_438642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_438642.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Tito & Tarantula - Live in Rockpalast (2008) SATRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438490.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438399.jpg" />
 </div>
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1025742   (709315) от 12.06.2016
+
+Росмен | Большой самоучитель рисования (2006) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Изобразительное искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рисование - это наилучший вид отдыха, метод психологической разгрузки и всегда хорошее настроение.
+Эта книга - прекрасная возможность научиться рисовать пейзаж, животных, людей, а также создавать свой собственный мультик. Авторы предлагают поэкспериментировать с разнообразными материалами, которые вполне доступны каждому, расскажут о "маленьких хитростях" (   Читать дальше...   )Жанр: РисованиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D894330EAE480CA911504ED55CAE3F55060EA1CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025440   (709314) от 12.06.2016
 
 А. Д. Ботвинников и др. | Черчение (7-8 класс) (1992) [PDF, DJVU]
@@ -6,7 +33,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709314.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709279.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709278.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709174.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709017.jpg" />
 </div>
 
 
@@ -137,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708730.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708443.jpg" />
 </div>
 
 
@@ -191,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708442.jpg" />
 </div>
 
 
@@ -218,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708204.jpg" />
 </div>
 
 
@@ -244,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708170.jpg" />
 </div>
 
 
@@ -270,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707837.jpg" />
 </div>
 
 
@@ -297,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707700.jpg" />
 </div>
 
 
@@ -324,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707699.jpg" />
 </div>
 
 
@@ -350,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707528.jpg" />
 </div>
 
 
@@ -376,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707515.jpg" />
 </div>
 
 
@@ -402,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707209.jpg" />
 </div>
 
 
@@ -428,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707205.jpg" />
 </div>
 
 
@@ -454,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707114.jpg" />
 </div>
 
 
@@ -480,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706716.jpg" />
 </div>
 
 
@@ -507,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706706.jpg" />
 </div>
 
 
@@ -533,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706597.jpg" />
 </div>
 
 
@@ -559,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706545.jpg" />
 </div>
 
 
@@ -588,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706462.jpg" />
 </div>
 
 
@@ -617,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706187.jpg" />
 </div>
 
 
@@ -645,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706151.jpg" />
 </div>
 
 
@@ -656,35 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91F0CA88D12E0EC26291550A378586B55BECBBD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220213   (706088) от 18.04.2018
-
-Варвара Еналь | Пустыня Всадников (2017) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый роман цикла «Живые. Эра Драконов».
-Новый цикл «Живые. Эра драконов» является предысторией цикла «Живые» и повествует о приключениях инопланетных подростков до их встречи с юными жителями орбитальной станции МОАГ. Действие происходит в том же мире, но на другой планете.
-
-Мэши всю жизнь прожила в окруженном скалами Третьем Городе. Но однажды она вместе со своим (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85E98067A28D11110DE8362DFFDF663B38DCC3F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

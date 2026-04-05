@@ -1,3 +1,57 @@
+###  Публикация: 230424   (670120) от 24.03.2019
+
+Михаил Николаенко | Самоучитель по радиоэлектронике [2006] [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы можете ознакомиться с книгой, которая представляет собой сборник практических рекомендаций и советов по проектированию, изготовлению и наладке аналоговых и цифровых электронных устройств различного назначения.
+ Каждый читатель в соответствии со своим уровнем подготовки сможет почерпнуть в данной книге рекомендации по выбору и применению стандартных и специализированных (   Читать дальше...   )Жанр: РадиоэлектроникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47548DA46F5DB6A400A2789A3D5017E8C30E648B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137115   (669128) от 25.05.2017
+
+В.П. Дьяконов | Мобильная и портативная аудио- и видеотехника (2004) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описано направление развития бытовой аудио- и видеотехники — мобильные и портативные аудио- и видеоустройства. Прослежена история развития этих устройств от фонографов, граммофонов и магнитофонов до современных мобильных телефонов, МРЗ-плееров и рекордеров на основе жестких дисков и твердотельных модулей флэш-памяти.
+Популярно описаны работа, назначение и технические (   Читать дальше...   )Жанр: ЭлектроникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7569D980840BCFD4546E0C1DB3A6094B316803E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137307   (667758) от 26.05.2017
 
 В.Н. Лепин (ред.) | Помехозащита радиоэлектронных систем управления летательными аппаратами и оружием (2017) [PDF]
@@ -6,7 +60,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667758.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ Infineon Technologies | Полупроводниковая электроник�
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667698.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667077.jpg" />
 </div>
 
 
@@ -88,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666714.jpg" />
 </div>
 
 
@@ -115,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666651.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665426.jpg" />
 </div>
 
 
@@ -167,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665252.jpg" />
 </div>
 
 
@@ -193,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665251.jpg" />
 </div>
 
 
@@ -220,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664671.jpg" />
 </div>
 
 
@@ -248,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664257.jpg" />
 </div>
 
 
@@ -274,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663821.jpg" />
 </div>
 
 
@@ -300,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662114.jpg" />
 </div>
 
 
@@ -327,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662113.jpg" />
 </div>
 
 
@@ -353,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661105.jpg" />
 </div>
 
 
@@ -379,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659646.jpg" />
 </div>
 
 
@@ -405,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658433.jpg" />
 </div>
 
 
@@ -431,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657708.jpg" />
 </div>
 
 
@@ -457,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656893.jpg" />
 </div>
 
 
@@ -485,7 +539,7 @@ REXANT | Электротехническое оборудование. Ката
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655305.jpg" />
 </div>
 
 
@@ -511,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655267.jpg" />
 </div>
 
 
@@ -538,7 +592,7 @@ NEON-NIGHT | Декоративная светотехника 2015 (2015) [PDF]
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655236.jpg" />
 </div>
 
 
@@ -564,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654203.jpg" />
 </div>
 
 
@@ -592,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654133.jpg" />
 </div>
 
 
@@ -618,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653746.jpg" />
 </div>
 
 
@@ -629,58 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28CCA6F5FDB7654A5BC92CF2AB3DCFAB65CCAEED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226340   (653679) от 22.05.2018
-
-М. Тули | Карманный справочник по электронике (1993) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653679.jpg" />
-</div>
-
-
-###  Подробнее
-
-В справочнике содержатся сведения по электронике, необходимые при разработке, монтаже, проверке и обслуживании электронных устройств. Описаны пассивные и активные компоненты электронных цепей, особенности электронных схем. Представлены свойства биполярных и полевых транзисторов, интегральных схем. Для практикующих техников и инженеров, может быть полезен всем, кто (   Читать дальше...   )Жанр: ЭлектроникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC94CC5FEC91F4EC1A5C6090EEFB1FDFD2F37EB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904902   (652992) от 04.06.2015
-
-NSGate | Оборудование для связи и IP-видеонаблюдения NSGate (2015) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652992.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каталог широкого спектра оборудования для связи и IP-видеонаблюдения от компании NSGate. Компания NSGate, основанная в 2003 году, является российским производителем и поставщиком современного телекоммуникационного оборудования и передовых решений для рынка IP-сетей с Ethernet доступом. Оборудование пользуется неизменным спросом на всей территории России, стран СНГ (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6924DA151EB778A446F682A1E3903FD40C7B07A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

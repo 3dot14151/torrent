@@ -1,3 +1,29 @@
+###  Публикация: 1355311   (984922) от 25.01.2020
+
+Лора Томпсон | Представьте 6 девочек (2015) [PDF, FB2, EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный роман о сёстрах Митфорд, имя которых в середине прошлого столетия было в Англии нарицательным. Шесть сестёр стали олицетворением самых разных сторон ХХ века. Диана – «лицо английского нацизма», жена одиозного лидера британских фашистов. Джессика – «лицо коммунизма», воевала в Испании, разоблачала политиков. Нэнси возглавила бум «женского писательства». (   Читать дальше...   )Жанр: Биографии и мемуары, Документальная литература, Современная зарубежная литератураПеревод: Любовь СуммФормат: PDF, FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F66121936DFA24D478183993733BA3E48EAEE0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355206   (984816) от 25.01.2020
 
 Майк Викинг | Lykke. В поисках секретов самых счастливых людей (2018) [PDF, FB2, EPUB, MOBI]
@@ -6,7 +32,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984816.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984595.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984465.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983526.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982351.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982283.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982199.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980681.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979269.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978725.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978610.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978185.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977990.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977945.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977934.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977837.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976802.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976672.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976666.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976662.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976599.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976576.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975563.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975545.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974343.jpg" />
 </div>
 
 
@@ -652,33 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7529221534049E55C309D6F9FCC62D05FC560904
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974751   (974297) от 13.01.2016
-
-Михаил Делягин | Россия перед лицом истории. Конец эпохи национального предательства? (2015) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая книга известного российского экономиста, публициста и политика Михаила Делягина посвящена анализу путей развития России в недалеком будущем. Как повлияет на это будущее противостояние России и Запада, война на Украине, грядущий мировой экономический кризис и какие другие события нам стоит ожидать в ближайшие годы?
-Что надо сделать, чтобы вырвать нашу страну (   Читать дальше...   )Жанр: Публицистика, ПолитикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC9EC11CB96924D52BE3C193A906A400BBC0ABD9
 ```
 
 https://mybot314.ru/tekegram_catalog/

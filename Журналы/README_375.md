@@ -1,3 +1,133 @@
+###  Публикация: 1168499   (408846) от 24.09.2017
+
+Журнал | Загадки истории. Золотая серия №21 (2017) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Засекреченные подробности противостояния разведок СССР и США в годы «холодной войны» и общая история мирового шпионажа! Кем были настоящие «Джеймсы Бонды» прошлого? Как работали спецагенты в императорской России? Была ли легендарная Мата Хари на самом деле гениальной шпионкой? Об этом и многом другом читайте в нашей книге!Жанр: Уникальный журнал для любителей историиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:869617477B4F26EB571C9C694D899036460D47AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573930   (408750) от 02.09.2022
+
+Журнал | Делаем сами №16 (август 2022) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408750.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Делаем сами» — журнал для мастеров и мастериц, находящихся в постоянном поиске свежих творческих идей и решений. Уникальность издания в том, что оно состоит главным образом из писем читателей. В каждом номере: схемы популярных вышивок, идеи для детского творчества, советы по ремонту, оформление дачного участка и дома, секреты рыбалки, новые техники рукоделия, мастер-классы (   Читать дальше...   )Жанр: ДомоводствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A58D86FA9C74AC6E27A34EE64EADFF48E6ACF07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168492   (408730) от 24.09.2017
+
+Журнал | Дом №9 (сентябрь 2017) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408730.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ежемесячный полезный журнал, основанный на личном и профессиональном опыте частных мастеров и высококлассных специалистов, о строительстве и капремонте частных домов и квартир. Виды жилищ, экология и эргономика, материалы, приёмы и хитрости. Журнал полезен и тем, кто строит дом своими руками, и тем, кто руководит строительством своего дома и хочет, чтобы дом получился (   Читать дальше...   )Жанр: Архитектура, строительство, дизайнФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:662EF4DD096A73A8AEDA93CF3EB2E0085B3C9D23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 832940   (408680) от 20.10.2014
+
+Журнал | Сам [Россия] №10 (октябрь 2014) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сам - журнал домашних мастеров: описания, схемы и чертежи самодельных станков и приспособлений, оригинальной мебели, теплиц и других конструкций. Советы по ремонту автомобиля и квартиры, предметов интерьера и бытовых приборов. Много полезного найдут для себя рыболовы и туристы, домашние хозяйки и радиолюбители. Много новых практических идей.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AC3A4308B035929BB5E249B36A34D4C8B98F12B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559777   (408484) от 13.10.2012
+
+Журнал | Broadcasting. Телевидение и радиовещание №5, 6 [август-октябрь 2012] [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408484.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Broadcasting. Телевидение и радиовещание» - журнал для профессионалов электронных средств массовой информации, представляет новые оборудование и технологии в области теле- и радиовещания; освещает наиболее значимые события и мероприятия отрасли; содержит практические материалы об уже реализованных проектах в индустрии.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F22C0CB16E117E0F474E1570CB2257547F8F5EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 559521   (408481) от 13.10.2012
 
 Журнал | PC Advisor №209 (UK) [декабрь 2012] [PDF] [En]
@@ -6,7 +136,7 @@
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408481.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408384.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408375.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408366.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408364.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408357.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408353.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408351.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408344.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408261.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408248.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408235.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408233.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408204.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408156.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408108.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408038.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408030.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408004.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407833.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407646.jpg" />
 </div>
 
 
@@ -539,136 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DEFBF80703466B7D532DB03EB4CB1D576CEA34D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560460   (407560) от 14.10.2012
-
-Журнал | Чудесный крючок. Красиво и легко! №77 [2012] [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Благодаря коллекции "Чудесный крючок. Красиво и легко!", вы сможете шаг за шагом создавать прекрасные модели. Поэтапный метод обучения вязанию крючком. В каждом выпуске журнала описание различных техник вязания крючком. Откройте для себя искусство вязания крючком и создайте великолепный плед, следуя подробным пошаговым инструкциям. Ваша коллекция вдохновит на создание множества модных и стильных вещей для Вас и Вашего дома.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95083E65B0C1FE04D62F381516DEE4458B1483A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560398   (407528) от 14.10.2012
-
-Журнал | Вязание. Красиво и легко! №27 [2012] [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407528.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая коллекция «Вязание. Красиво и легко» - это простой и доступный способ освоить искусство вязания спицами и создать своими руками прекрасный плед, следуя пошаговым инструкциям. В каждом номере Вы найдете подробное описание различных техник вязания спицами, много интересных идей, которые вдохновят Вас на создание модных и стильных вещей для Вас и Вашего дома.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BA1C37B0C85B60B54FCBFE18548B4C5F0AFC6D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560395   (407526) от 14.10.2012
-
-Журнал | Вязание. Красиво и легко! №26 [2012] [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая коллекция «Вязание. Красиво и легко» - это простой и доступный способ освоить искусство вязания спицами и создать своими руками прекрасный плед, следуя пошаговым инструкциям. В каждом номере Вы найдете подробное описание различных техник вязания спицами, много интересных идей, которые вдохновят Вас на создание модных и стильных вещей для Вас и Вашего дома.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F8DF9676A361E5B85F7FB6157CB9E169BA691DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560525   (407525) от 14.10.2012
-
-Журнал | Чудесный крючок. Красиво и легко! №86 [2012] [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Благодаря коллекции "Чудесный крючок. Красиво и легко!", вы сможете шаг за шагом создавать прекрасные модели. Поэтапный метод обучения вязанию крючком. В каждом выпуске журнала описание различных техник вязания крючком. Откройте для себя искусство вязания крючком и создайте великолепный плед, следуя подробным пошаговым инструкциям. Ваша коллекция вдохновит на создание множества модных и стильных вещей для Вас и Вашего дома.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D96BA75F61751448AD7124C4777A6466A426A0DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560519   (407524) от 14.10.2012
-
-Журнал | Чудесный крючок. Красиво и легко! №85 [2012] [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Благодаря коллекции "Чудесный крючок. Красиво и легко!", вы сможете шаг за шагом создавать прекрасные модели. Поэтапный метод обучения вязанию крючком. В каждом выпуске журнала описание различных техник вязания крючком. Откройте для себя искусство вязания крючком и создайте великолепный плед, следуя подробным пошаговым инструкциям. Ваша коллекция вдохновит на создание множества модных и стильных вещей для Вас и Вашего дома.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA68564247A0A38BF64027162E6F24EEA70D4362
 ```
 
 https://mybot314.ru/tekegram_catalog/

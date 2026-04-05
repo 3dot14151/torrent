@@ -6,7 +6,7 @@ Robin Hood: The Legend of Sherwood / Робин Гуд. Легенда Шерв�
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20041.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Warlords III: Darklords Rising (1998) [En] (1.0.2) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19408.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Warhammer 40.000: Dawn of War (2004) [Ru] (1.51/dlc) Repack EXROW
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14347.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Warhammer 40.000: Dawn of War – Dark Crusade (2006) [Ru] (1.20) Repack EXROW
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13614.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Warhammer: Shadow of the Horned Rat (1995) [En] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13410.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Incubation: The Wilderness Missions / Incubation: Второй десант [Ru]
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7605.jpg" />
 </div>
 
 

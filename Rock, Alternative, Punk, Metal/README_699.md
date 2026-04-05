@@ -1,3 +1,32 @@
+###  Публикация: 1576822   (359515) от 17.09.2022
+
+Creedence Clearwater Revival - At The Royal Albert Hall (2022) At The Royal Albert Hall, London, UK, April 14, 1970 [FLAC 2.0|96/24|tracks|WEB-DL] <Southern Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Born On The Bayou (At The Royal Albert Hall / London, UK / April 14, 1970) (05:12)
+02. Green River (At The Royal Albert Hall / London, UK / April 14, 1970) (02:57)
+03. Tombstone Shadow (At The Royal Albert Hall / London, UK / April 14, 1970) (03:38)
+04. Travelin' Band (At The Royal Albert Hall / London, UK / April 14, 1970) (02:10)(   Читать дальше...   )Жанр: Southern Rock, Classic RockПродолжительность: 00:42:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5592D59798542D8488C7BC5E2053D76CC2388690
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1576966   (359513) от 17.09.2022
 
 Blind Guardian - The God Machine (2022) [FLAC|Lossless|image + .cue] <Power Metal>
@@ -6,7 +35,7 @@ Blind Guardian - The God Machine (2022) [FLAC|Lossless|image + .cue] <Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359513.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Pink Floyd - Animals (1977) 2018 Remix, 2022, Parlophone Records Limited [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359510.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Overland - Diamond Dealer (2009) [FLAC|Lossless|image + .cue] <Melodic Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359436.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ The Quireboys - Halfpenny Dancer (2009) [FLAC|Lossless|image + .cue] <Hard rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359427.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359381.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Deep Purple - Extras: The Now What?! B-Sides and Bonus Songs (2022) [FLAC|Lossle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359374.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Slipknot - The End, So Far (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359368.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - Rock Sound: Bugging Your Ears! No.141 (2010) [FLAC|Lossless|tracks + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359276.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - Rock Sound: Bugging Your Ears! No.138 (2010) [FLAC|Lossless|tracks + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359274.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Dark Lunacy - The Rain After The Snow (2016) [MP3|320 Kbps] <Melodic Death Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359232.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ House Vs. Hurricane - Forfeiture (2008) EP [FLAC|Lossless|tracks + .cue] <Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359186.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - Rock Sound: Bugging Your Ears! No. 132 (2010) [FLAC|Lossless|tracks + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359173.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ VA - Rock Sound: Bugging Your Ears! No. 134 (2010) [FLAC|Lossless|tracks + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359170.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ VA - Rock Sound: 100% Volume No. 147 (2011) [FLAC|Lossless|tracks + .cue] <Hardc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359166.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359164.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ VA - Rock Sound: 100% Volume No. 149 (2011) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359157.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ Type O Negative - The Best Of Type O Negative (2006) [APE|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359153.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ VA - Rock Sound: Bugging Your Ears! No.131 (2010) [FLAC|Lossless|tracks + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359140.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ Creux Lies - The Hearth (2018) Cleopatra Records [FLAC|Lossless|tracks + .cue] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359133.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359106.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ Eloy - The Vision, The Sword And The Pyre, Part II (2019) [FLAC|Lossless|tracks 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359072.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ VA - Symphonic & Opera Metal Vol. 1-5 (2015 - 2019) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359058.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ VA - Death ...Is Just the Beginning, MMXVIII (2018) [MP3|320 Kbps] <Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359031.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ Think - We'll Give You a Buzz (1976) Remastered /2008, SouthSide/ [FLAC|image+.c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358967.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ Uriah Heep - Living The Dream (2018) Japan [WavPack|Lossless|image + .cue] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358889.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ Uriah Heep - Living The Dream (2018) Japan [WavPack|Lossless|image + .cue] <Hard
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16E916C0BE4B4E9BC52EC7405B430DC41FC98011
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071545   (358861) от 10.11.2016
-
-Sting - 57TH & 9TH (2016) Deluxe Edition [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can't Stop Thinking About You
- 02. 50,000 (NEW Version)
- 03. Down, Down, Down
- 04. One Fine Day (NEW Version)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCB2F4BA4CEE44BB29AA3F373DEBA43EEE35E516
 ```
 
 https://mybot314.ru/tekegram_catalog/

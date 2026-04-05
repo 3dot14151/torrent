@@ -1,3 +1,55 @@
+###  Публикация: 501563   (259586) от 30.05.2012
+
+[RePack] DiRT Showdown [En] {1.0} 2012 l Naitro
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарные состязания меняют формат: на смену спортивным гонкам приходит автодерби — гонки на выживание. Никаких компромиссов! Газ в пол и только вперед! Тесните соперников, крушите все, что мешает вам двигаться к цели, добейтесь победы на трассе любыми средствами! Волнующая атмосфера, сумасшедший накал страстей, эффектные аварии и разрушения, заезды на бешеных скоростях в любую погоду, внутриигровые социальные функции — все это DiRT Showdown.(   Читать дальше...   )Тип издания: RePackЖанр: Arcade / Racing (Cars) / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A477121669DB0D3AF22AA3CB151FA3F080EF182
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 503226   (259468) от 29.05.2012
+
+Gas Guzzlers: Combat Carnage (RePack/1.0) [En/Ru] 2012 l Audioslave
+
+>>След.
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259468.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gas Guzzlers — динамичные захватывающие гонки на выживание для PC. Игра предлагает множество различных средств передвижения, типов оружия, усовершенствований, бонусов на трассах и оригинальных ландшафтов, а также удобный вид «из-за автомобиля». В самом начале игроку доступен лишь маломощный автомобиль, который станет отправной точкой пути на вершину славы и способом заработка денег в сериях увлекательных гонок (ведь стартового капитала едва хватит на покупку самого автомобиля без каких-либо усовершенствований).(   Читать дальше...   )Тип издания: RePackЖанр: Arcade / Racing (Cars) / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B082A71024E738D1EAFBB9CAFEABC96ED6941F17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 503298   (259465) от 29.05.2012
 
 [RePack] Alan Wake's American Nightmare {1.01.16.9062} [Ru] 2012 l Samodel
@@ -6,7 +58,7 @@
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259465.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259464.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Alan Wake's American Nightmare (RePack/1.01.16.9062) [Ru] 2012 l R.G. World Game
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259459.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Alan Wake's American Nightmare (Rip) [Multi6/-] 2012 l THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259244.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259234.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ Ghost Rider (RePack/Emul) [Ru] 2007 | MarkusEVO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258948.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258656.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258434.jpg" />
 </div>
 
 
@@ -221,7 +273,7 @@ Kerbal Space Program [En] (L/0.15) 2011
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258409.jpg" />
 </div>
 
 
@@ -247,7 +299,7 @@ The Incredible Hulk [Ru/En] (RePack/1.1) 2008 | Soprano
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258185.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ Batman Forever: the arcade game [En] (RePack) 1996 | RG Games (Pilotus)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258147.jpg" />
 </div>
 
 
@@ -301,7 +353,7 @@ Sunkin's Wrath (P) [En] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258131.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ Evidence: The Last Report [Ru] (RePack) 1997 | Pet9948
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258098.jpg" />
 </div>
 
 
@@ -354,7 +406,7 @@ Gene Wars (RePack) [Ru/En]  1996 | RG Games (Pilotus)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258087.jpg" />
 </div>
 
 
@@ -382,7 +434,7 @@ Alan Wake's American Nightmare [Multi6/-] (L) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257354.jpg" />
 </div>
 
 
@@ -410,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257269.jpg" />
 </div>
 
 
@@ -442,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257033.jpg" />
 </div>
 
 
@@ -468,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256521.jpg" />
 </div>
 
 
@@ -494,7 +546,7 @@ Gas Guzzlers: Combat Carnage {1.0} (RePack) [En] 2012 | Naitro
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256496.jpg" />
 </div>
 
 
@@ -520,7 +572,7 @@ Gas Guzzlers: Combat Carnage [En] (L) 2012 | SKIDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256258.jpg" />
 </div>
 
 
@@ -546,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256235.jpg" />
 </div>
 
 
@@ -574,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256203.jpg" />
 </div>
 
 
@@ -603,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256201.jpg" />
 </div>
 
 
@@ -631,7 +683,7 @@ Far Cry 2: The Fortune’s Pack [Ru/En] (RePack/1.3) 2008 l Seraph1
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255981.jpg" />
 </div>
 
 
@@ -646,63 +698,6 @@ Far Cry 2: The Fortune’s Pack [Ru/En] (RePack/1.3) 2008 l Seraph1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:141621C11D4961DAF2D93359A650BB43F82C277E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495986   (255980) от 19.05.2012
-
-[RePack] The Walking Dead: Episode 1 [Ru] 2012 l Fenixx {обновляемая}
-
->>След.
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255980.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Walking Dead: The Game – адвенчура с элементами «хоррора».
-Cюжет освещает приключения новой группы «выживших», которые резонно вознамерились сбежать из Атланты в свете нашествия зомби.Посмотрите на то, что творилось в первые дни неожиданно нагрянувшего апокалипсиса, и примите участие в событиях, которые так или иначе пересекаются с похождениями шерифа Рика Граймса.(   Читать дальше...   )Тип издания: RePackЖанр: Adventure / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D96737B878055F96880AAD035208CC0CBF6D40C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498930   (255979) от 19.05.2012
-
-[RePack] Wargame: European Escalation [Ru/En] 2012 l R.G. ReCoding
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два лагеря, восемь государств, один театр военных действий – Европа!
-"Wargame: Европа в огне" - это увлекательная и зрелищная стратегическая игра в реальном времени, отличающаяся невероятным реализмом и глубиной стратегии.
-Соберите собственную армию из более чем 350 различных видов войск и техники и начните грандиозную военную кампанию в Европе 1980-х, сделав шаг от Холодной войны к Третьей мировой.
-Благодаря передовой технологии IRISZOOM ™ игра Wargame обладает непревзойденным качеством графики: зрелищность этой игры не уступает ее реализму. Готовьтесь командовать сотнями боевых единиц - от танков и вертолетов до пехотных отрядов - на огромных полях сражений площадью до 150 квадратных километров!
-Сетевая служба EugenNet© поддерживает все функции коллективной игры, включая создание кланов, организацию турниров и мировые рейтинги, а в грандиозных сетевых битвах могут участвовать до 8 игроков одновременно!(   Читать дальше...   )Тип издания: RePackРазработчик: Eugen SystemsЖанр: Strategy (Real-time) / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8F25DB47D17EE99D326E62D7E1C6921F79DCC87
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,58 @@
+###  Публикация: 1332349   (313991) от 20.10.2019
+
+Андрей Сазонов | Кожа: мифы и правда о самом большом органе (2019) [MP3]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наша кожа – самый большой по площади и массе орган нашего тела, которому мы либо уделяем чрезмерное внимание, либо не уделяем его совсем. Она всегда перед нашими глазами, со своими морщинками, рубчиками, прыщиками, но, как правило, знаем мы о работе и роли нашей кожи очень мало.
+
+Сегодня нас преследует огромное количество рекламы косметических средств для кожи, массажи (   Читать дальше...   )Жанр: Анатомия и физиология, Здоровье, Научно-популярная литература, Популярно о медицинеПродолжительность: 08:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECFB626204736A98513D7FA219C9A3B271575FD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 583427   (313356) от 02.12.2012
+
+Журнал | АиФ. Спецвыпуск. Вопросы и ответы № 21 [2012] [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый, 2013 год совсем близко. Согласно китайскому календарю, он пройдет под знаком черной водяной Змеи. Что принесет он каждому из нас? Об этом рассказывают разные гороскопы - традиционный зодиакальный, новомодный китайский, а также редкие гороскопы друидов и славян. Все они собраны в этом спецвыпуске "АиФ". Предсказания разделены на четыре раздела: "Здоровье", "Личная жизнь", "Работа" и "Деньги". А в восточном гороскопе вы найдете предсказания по каждой из этих составляющих в отдельности. Это значит, что гороскоп от "АиФ" будет полезен для вас в течение 2013 года.
+Пусть год Змеи будет для вас успешным!Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFEBB868538B0AE9CC72675BE06D5B0A97DED2DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959718   (312550) от 26.11.2015
 
 Журнал | Тайны ХХ века №46 (Ноябрь 2015) [PDF]
@@ -6,7 +61,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312550.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312547.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311896.jpg" />
 </div>
 
 
@@ -86,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310327.jpg" />
 </div>
 
 
@@ -112,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310197.jpg" />
 </div>
 
 
@@ -138,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309934.jpg" />
 </div>
 
 
@@ -164,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307896.jpg" />
 </div>
 
 
@@ -190,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307859.jpg" />
 </div>
 
 
@@ -216,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307790.jpg" />
 </div>
 
 
@@ -242,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307778.jpg" />
 </div>
 
 
@@ -269,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307687.jpg" />
 </div>
 
 
@@ -295,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307652.jpg" />
 </div>
 
 
@@ -321,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307494.jpg" />
 </div>
 
 
@@ -347,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307483.jpg" />
 </div>
 
 
@@ -373,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307317.jpg" />
 </div>
 
 
@@ -399,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306607.jpg" />
 </div>
 
 
@@ -425,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305800.jpg" />
 </div>
 
 
@@ -451,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305696.jpg" />
 </div>
 
 
@@ -477,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305673.jpg" />
 </div>
 
 
@@ -503,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305416.jpg" />
 </div>
 
 
@@ -529,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305394.jpg" />
 </div>
 
 
@@ -556,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304509.jpg" />
 </div>
 
 
@@ -582,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303648.jpg" />
 </div>
 
 
@@ -608,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303594.jpg" />
 </div>
 
 
@@ -622,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C4CAF77217C3C5D7DF7382D9686987E5777E76E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961175   (303486) от 30.11.2015
-
-Газета | Морфей №23 (321) (2015) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303486.jpg" />
-</div>
-
-
-###  Подробнее
-
-В номере: магия зимнего солнцеворота, защита дома от пожара, вспоминаем забытые сны, детское воровство, как уберечь себя от порчи на деньги и, конечно же, сонник!Жанр: Сны, гадания, приметыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95F045F6381E5861715D291EC3EC1C6552A6AC5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961111   (303420) от 30.11.2015
-
-Журнал | Вопросы национализма №1-20 (2010-2014) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303420.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Вопросы национализма" - журнал научной и общественно-политической мысли. Это первое в России периодическое издание, специально посвященное проблемам нации и национализма. Специфика нового журнала еще и в том, что это печатный орган русских националистов, в котором они стремятся критически проанализировать свои убеждения и их основания. "Вопросы национализма" (   Читать дальше...   )Жанр: История, ПублицистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:508409A9B00E9792EFFE3B915D1A77F70677FD3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

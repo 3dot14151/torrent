@@ -1,3 +1,32 @@
+###  Публикация: 1598864   (159467) от 24.12.2022
+
+Microsoft Windows 10.0.19045.2364, Version 22H2 (Updated December 2022) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159467.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 2022 Update (под кодовым названием "22H2") это тринадцатое и текущее крупное обновление для Windows 10. Он имеет номер сборки 10.0.19045.
+
+Оригинальные образы MSDN - Windows 10 Version 22H2 Build 19045.2364.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C66C5EC6659888D1815F9FCC7C11F44D0E69FADD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1085497   (157560) от 21.12.2016
 
 HP 6470b-6570b recovery 2 DVD win 7 sp1 pro x64 (rus), drivers and applications
@@ -6,7 +35,7 @@ HP 6470b-6570b recovery 2 DVD win 7 sp1 pro x64 (rus), drivers and applications
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157560.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Microsoft Windows 10 10.0.16299.125 Version 1709 (Updated Dec. 2017) - Ориг�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156095.jpg" />
 </div>
 
 
@@ -63,7 +92,7 @@ Windows 8.1 6.3 (9600.20207) 86x64 Embedded Industry Enterprise + Pro (4in1) by 
 >>Сборки Windows 8
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154494.jpg" />
 </div>
 
 
@@ -91,7 +120,7 @@ Microsoft Windows 10.0.18363.535 Version 1909 (December 2019 Update) - Ориг�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152608.jpg" />
 </div>
 
 
@@ -118,7 +147,7 @@ Microsoft Windows 10.0.19043.1415, Version 21H1 (Updated December 2021) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151193.jpg" />
 </div>
 
 
@@ -147,7 +176,7 @@ Microsoft Windows 10.0.19042.1415, Version 20H2 (Updated December 2021) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151043.jpg" />
 </div>
 
 
@@ -176,7 +205,7 @@ Microsoft Windows 10.0.17763.194 Version 1809 (December 2018 Update) - Ориг�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150978.jpg" />
 </div>
 
 
@@ -204,7 +233,7 @@ Microsoft Windows 10.0.19042.1415, Version 20H2 (Updated December 2021) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150766.jpg" />
 </div>
 
 
@@ -233,7 +262,7 @@ Microsoft® Windows® 11 Pro-Home Optim Lite x64 25H2 RU by OVGorskiy 10.2025
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150678.jpg" />
 </div>
 
 
@@ -259,7 +288,7 @@ Microsoft Windows 10.0.19043.1415, Version 21H1 (Updated December 2021) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150441.jpg" />
 </div>
 
 
@@ -288,7 +317,7 @@ Windows Server, Version 20H2 (10.0.19042.1415) (Updated December 2021) - Ори�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150395.jpg" />
 </div>
 
 
@@ -314,7 +343,7 @@ Microsoft Windows 10.0.19044.1415, Version 21H2 (Updated December 2021)  - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150375.jpg" />
 </div>
 
 
@@ -341,7 +370,7 @@ Microsoft Windows 11 [10.0.22000.376], Version 21H2 (Updated December 2021) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150324.jpg" />
 </div>
 
 
@@ -367,7 +396,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.405 (Updated December 2021) -
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150270.jpg" />
 </div>
 
 
@@ -393,7 +422,7 @@ Microsoft Windows 11 [10.0.22000.376], Version 21H2 (Updated December 2021) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150073.jpg" />
 </div>
 
 
@@ -419,7 +448,7 @@ Microsoft Windows 10.0.17763.194 Version 1809 (December 2018 Update) - Ориг�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148940.jpg" />
 </div>
 
 
@@ -447,7 +476,7 @@ Microsoft Windows 10.0.19044.1415, Version 21H2 (Updated December 2021)  - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148924.jpg" />
 </div>
 
 
@@ -474,7 +503,7 @@ Recovery USB-flash for Asus X555 LN / Windows 8.1 (х64) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146192.jpg" />
 </div>
 
 
@@ -503,7 +532,7 @@ Microsoft Windows 11 [10.0.22621.2715], Version 22H2 (Updated November 2023) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144866.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ Microsoft Windows 10.0.19045.3693, Version 22H2 (Updated November 2023) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144771.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ Microsoft Windows 10.0.19045.3693, Version 22H2 (Updated November 2023) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142838.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ Windows 7 Профессиональная SP1 x86 (OA CIS and GE) 6.1.7601.1751
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141982.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ Recovery USB-Flash for HP 15-ay512ur / Windows 10 Home (х64) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141650.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ Windows 8.1 with Update 3 [November 2014] - Оригинальные образ�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141502.jpg" />
 </div>
 
 
@@ -668,7 +697,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.2113 (Updated November 2023) 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141000.jpg" />
 </div>
 
 
@@ -679,32 +708,6 @@ Windows Server 2022 впервые обеспечивает расширенну
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:974551BA05A453EB555A9123997340B620BA68B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678550   (140736) от 23.11.2023
-
-Microsoft Windows 11 [10.0.22621.2715], Version 22H2 (Updated November 2023) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46429E75BE03B51BD16BA0C406E644DD1EE8848A
 ```
 
 https://mybot314.ru/tekegram_catalog/

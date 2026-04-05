@@ -1,3 +1,107 @@
+###  Публикация: 315692   (816673) от 29.03.2011
+
+Жизнь, как она есть / Life as We Know It (2010) HDRip
+
+>>След.
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Холли Беренсон — набирающий обороты поставщик продуктов питания, Эрик Мессер — многообещающий директор спортивной сети. После рокового первого свидания единственное, что у них теперь общее, — это ненависть друг к другу и любовь к крестнице Софи. Но когда внезапно они становятся единственными, кто остается у Софи, Холли и Мессер вынуждены забыть о собственных несовпадениях. (   Читать дальше...   )Жанр: драма, комедияРежиссер: Грег БерлантиАктеры: Кэтрин Хайгл, Джош Дюамель, Джош Лукас, Алексис Кладжетт, Бринн Кладжетт, Брук Клагетт, Хэйес МакАртур, Кристина Хендрикс, Сара Барнс, Джессика Ст. КлэрПеревод: ДублированныйПродолжительность: 01:54:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEE9FD1179C469633A067A088D2E6B7A5272B24E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117532   (816625) от 23.03.2017
+
+Тропа гиены / Hyena Road (2015) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816625.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три разных человека, три разных мира, три разных войны — все стоят на пересечении современной войны — в мутном мире меняющейся нравственности, где всё не так, как кажется. До войны у них была спокойная гражданка рядом с близкими людьми, мечты о будущем и возможность самостоятельно принимать решения на своём пути, но подписав контракт ради денег, они стали орудием (   Читать дальше...   )Производство: КанадаЖанр: Драма, ВоенныйРежиссер: Пол ГроссАктеры: Россиф Сазерленд, Пол Гросс, Кларк Джонсон, Аллан Хоуко, Дэвид Ричмонд-Пек, Дженнифер ПудавикПеревод: Многоголосый закадровый, любительский (СПД)Субтитры: Отсутствуют.Продолжительность: 02:00:38Реклама: присутствуют аудио и видео вставки рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0A263A037546B218259594E919FD36B653370E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 882707   (816515) от 29.03.2015
+
+Без изъяна / Flawless (2007) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816515.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие картины разворачивается в Лондоне образца 1960-го года. Майкл Кейн играет привратника, задумавшего обчистить ювелирную компанию, в которой он собственно говоря и трудоустроен. Он находит себе сообщницу в лице управляющей из Америки (Мур), которая помогает ему продумать и организовать всю операцию.Производство: Великобритания, ЛюксембургЖанр: Триллер, драма, криминалРежиссер: Майкл РэдфордАктеры: Деми Мур, Майкл Кейн, Ламбер Вильсон, Натаниель Паркер, Шогэн Сеймур, Николас Джонс, Дэвид Баррасс, Джосс Экленд, Сайлас Карсон, Деррен НесбиттПеревод: Профессиональный многоголосый, любительский двухголосыйЯзык субтитров: АнглийскийПродолжительность: 01:48:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9079F5B0A4F1A95BF1D5323215BE3F5F3DD509A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117752   (816480) от 23.03.2017
+
+Ловушка / A Kind of Murder (2016) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нью-Йорк, шестидесятые годы прошлого века. Стэкхаусы — внешне идеальная семейная пара: молодые, красивые, успешные. Он — удачливый архитектор, она — процветающий риелтор и великолепная хозяйка великолепного дома. На самом деле Уолтер давно думает о разводе, потому что Клара замучила его своими претензиями, истериками, ревностью и угрозами покончить с собой, если (   Читать дальше...   )Производство: СШАЖанр: Триллер, драмаРежиссер: Энди ГоддардАктеры: Патрик Уилсон, Хейли Беннетт, Джессика Бил, Винсент Картайзер, Эдди Марсан, Радек Лорд, Корри Дэниэли, Мишель Пул, Дженнифер Энскат, Крис ХиллПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FB3D93DC7F545F76DF6E2A49377F695BB5A6C8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1117776   (816388) от 23.03.2017
 
 Призраки Элоиз / Eloise (2017) WEB-DLRip
@@ -6,7 +110,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816388.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815862.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815500.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815377.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815367.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815287.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815273.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815268.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815259.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815190.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815141.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815114.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815091.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815061.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815023.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815011.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815006.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814983.jpg" />
 </div>
 
 
@@ -478,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814980.jpg" />
 </div>
 
 
@@ -504,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814909.jpg" />
 </div>
 
 
@@ -531,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814908.jpg" />
 </div>
 
 
@@ -558,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814907.jpg" />
 </div>
 
 
@@ -569,110 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B52C2C4252D6FE17C1B22C008BD7A075E8929BAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197556   (814870) от 07.01.2018
-
-Наемник / American Assassin (2017) HDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тайный наёмник ЦРУ Митч Рэпп раздавлен потерей невесты в результате теракта. Заместитель директора ЦРУ назначает Стэна Хёрли обучать убитого горем, но серьёзно настроенного Митча для предотвращения террористических операций и охоты на преступников. Вместе они исследуют волну, на первый взгляд, случайных нападений на военные и гражданские объекты. Но позже напарникам (   Читать дальше...   )Производство: США / CBS Films, Di Bonaventura Pictures, Lionsgate, Nick Wechsler ProductionsЖанр: Боевик, триллерРежиссер: Майкл КуэстаАктеры: Дилан О’Брайен, Майкл Китон, Шарлотта Вега, Кристофер Бомфорд, Кристофер Уэбстер, Шахид Ахмед, Бастер Ривз, Ник Кавальере, Саймон Коннолли, Юсеф «Джо» Свейд ...Перевод: Дублированный (iTunes)Субтитры: РусскиеПродолжительность: 01:51:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60DE96E46C33D6AD2DF94AC40E10434D327AD273
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197351   (814868) от 07.01.2018
-
-Коматозники / Flatliners (2017) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814868.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пятеро студентов-медиков, одержимых желанием узнать, что происходит с человеком после смерти, решаются на рискованный эксперимент: на время они останавливают друг другу сердце, чтобы погрузиться в состояние клинической смерти и на собственном опыте понять, что происходит с человеком по ту сторону. Но они забывают, что, переступив черту, нужно быть готовым к последствиям.Производство: США / Cross Creek Pictures,  Laurence Mark Productions, Screen GemsЖанр: ужасы, фантастика, триллер, драмаРежиссер: Нильс Арден ОплевАктеры: Эллен Пейдж, Диего Луна, Нина Добрев, Джеймс Нортон, Кирси Клемонс, Кифер Сазерленд, Джейкоб Соли, Анна Арден Оплев, Мигель ЭнтониПеревод: Дублированный (iTunes)Субтитры: Русские форсированные (отдельно)Продолжительность: 01:49:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9641986098C9FA2889CC2252265EAC6569DCE309
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197246   (814867) от 07.01.2018
-
-Бегущий по лезвию 2049 / Blade Runner 2049 (2017) BDRip [H.264]
-
->>След.
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814867.jpg" />
-</div>
-
-
-###  Подробнее
-
-В недалеком будущем мир населен людьми и репликантами, созданными выполнять самую тяжелую работу. Работа офицера полиции Кей — держать репликантов под контролем в условиях нарастающего напряжения… Пока он случайно не становится обладателем секретной информации, которая ставит под угрозу существование всего человечества. Желая найти ключ к разгадке, Кей решает разыскать (   Читать дальше...   )Производство: США, Великобритания, Канада, 16:14 Entertainment, Alcon Entertainment, Columbia PicturesЖанр: Фантастика, Триллер, Драма, ДетективРежиссер: Дени ВильнёвАктеры: Райан Гослинг, Харрисон Форд, Ана де Армас, Сильвия Хукс, Робин Райт, Маккензи Дэвис, Карла Юри, Ленни Джеймс, Дэйв Батиста, Джаред ЛетоПеревод: Дублированный (Blu-ray CEE)Субтитры: Русские (форс. стилизованные, хардсаб), русские (х2), английские (Full + SDH + SDH-Colored)Продолжительность: 02:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E166FE878E101E2C2196650C32812BC4A7DBA63F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197129   (814858) от 07.01.2018
-
-Любовники / Lovers (1999) DVDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанна работает продавщицей в парижском книжном магазине. Однажды к ней заходит молодой серб Драган, который ищет книгу об итальянском художнике… У Жанны и Драгана сразу возникает взаимная симпатия, переходящая в страстные любовные отношения. Но Жанна не знает, что ее новый друг живет во Франции нелегально.Производство: Франция, Bar Nothing, TF1 International, TolodoЖанр: ДрамаРежиссер: Жан-Марк БаррАктеры: Элоди Буше, Сергей Трифунович, Маделин Барр, Матиас Бенгиги, Жан-Кристоф Буве, Патрик Каталифо, Тибо де Монталембер, Ирина Дечермич, Грациелла Делерм, Филипп ДюкенПеревод: Профессиональный (двухголосый закадровый)Субтитры: ОтсутствуютПродолжительность: 01:36:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:787B4E84FDE7FDBD3A9E7DE887C32870344826EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1037458   (613965) от 24.07.2016
+
+Jamie Llewellyn - Muzyka do spania: Marzy delfinow (To Dream of Dolphins) (2014) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dziewczyny delfin
+02. Syrenka (& Juliana)
+03. Muzyka do spania Marzy delfinow
+04. Szukam delfinami(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:39:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8C4C63158300E826A551D8144FDEFA09680A1A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 221675   (612882) от 25.07.2010
 
 VA - Relax. The Fragrance of Fonix Musik /4CD/ (2010) [MP3|256 kbps]<Relax, Chillout>
@@ -6,7 +35,7 @@ VA - Relax. The Fragrance of Fonix Musik /4CD/ (2010) [MP3|256 kbps]<Relax, Chil
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_612882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_612882.jpg" />
 </div>
 
 
@@ -41,7 +70,7 @@ Jean Michel Jarre - The Best Of (2015) [MP3|320 кб/с]<New Age, Electronic, Am
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612290.jpg" />
 </div>
 
 
@@ -70,7 +99,7 @@ VA - Chillout Best Session (2008) [MP3|320 kbps]<Electronic, ChillOut, Ambient, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_611421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_611421.jpg" />
 </div>
 
 
@@ -105,7 +134,7 @@ Grupo Contraste - Native Voice (2004) [MP3|320 кб/с]<Native American, Ethno, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609888.jpg" />
 </div>
 
 
@@ -140,7 +169,7 @@ Mesa Music Consort & Native Flute Ensemble - Wind Riders (2001) [MP3|320 кб/с
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609711.jpg" />
 </div>
 
 
@@ -175,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609703.jpg" />
 </div>
 
 
@@ -210,7 +239,7 @@ Klaus Schulze's U.S.O. - Privée (2016) [MP3|320 Kbps] <Electronic, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606601.jpg" />
 </div>
 
 
@@ -239,7 +268,7 @@ Karushanti - Isle of Skye (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604312.jpg" />
 </div>
 
 
@@ -268,7 +297,7 @@ Max Rende - My World (2019) [MP3|320 Kbps] <New age, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603082.jpg" />
 </div>
 
 
@@ -297,7 +326,7 @@ Deepthi - Valoa (2019) [MP3|320 Kbps] <New age, World Music, Ethno>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603075.jpg" />
 </div>
 
 
@@ -326,7 +355,7 @@ Lynn Tredeau - Shifting Sands (2017) [MP3|320 Kbps] <New Age, Piano, Instrumenta
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602539.jpg" />
 </div>
 
 
@@ -355,7 +384,7 @@ Deva Premal & Miten with Manose - Songs For The Sangha (2015) [MP3|320 кб/с]<
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601149.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ Amure - GEO (2016) 2CD [MP3|320 Kbps] <New Age, Enigmatic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600216.jpg" />
 </div>
 
 
@@ -413,7 +442,7 @@ Kamarius - Call Of The Spirit (2020) [MP3|320 Kbps] <New Age, Native American>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600134.jpg" />
 </div>
 
 
@@ -442,7 +471,7 @@ Echosonica - Midnight Wonderland (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599928.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ Rain Dance - Music Power for Peace (2002) [MP3|320 кб/с]<New Age, Native Amer
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599618.jpg" />
 </div>
 
 
@@ -506,7 +535,7 @@ VA-Enigmatica - 50 Tracks (2005) [MP3|320 кб/с]<New age, Meditative, Relax, F
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599338.jpg" />
 </div>
 
 
@@ -541,7 +570,7 @@ Blue Medicine Music - Indian Groove (2005) [MP3|320 кб/с]<New Age, Native Ame
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599217.jpg" />
 </div>
 
 
@@ -576,7 +605,7 @@ Craig Padilla - Heaven Condensed (2016) [MP3|320 Kbps] <Ambient, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598045.jpg" />
 </div>
 
 
@@ -605,7 +634,7 @@ Enigma Club - Утро Тибета (2002) [MP3|320 кб/с]<New Age, Ethnic Fus
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595584.jpg" />
 </div>
 
 
@@ -637,7 +666,7 @@ TYA - Echoes (2015) [MP3|320 кб/с]<New Age, Chillout, World, Tribal>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589960.jpg" />
 </div>
 
 
@@ -666,7 +695,7 @@ David Hicken - The Art of Piano (2016) [MP3|320 Kbps] <New age, Instrumental, Re
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586446.jpg" />
 </div>
 
 
@@ -695,7 +724,7 @@ Christopher Franke - Enchanting Nature (1994) [MP3|192 kbps]<Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586141.jpg" />
 </div>
 
 
@@ -730,7 +759,7 @@ Zhang Yi - Strings Of Love (2015) [MP3|320 кб/с]<New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584880.jpg" />
 </div>
 
 
@@ -759,7 +788,7 @@ Marcus Viana - Pleiadian Connections (2015) [MP3|320 кб/с]<New Age, Instrumen
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584030.jpg" />
 </div>
 
 
@@ -773,37 +802,6 @@ Marcus Viana - Pleiadian Connections (2015) [MP3|320 кб/с]<New Age, Instrumen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC8A15BC90C44DDF365129D6EBF5EC833AE0535A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358801   (583103) от 05.07.2011
-
-Mel Sutton - Golden Dream (1995) [MP3|160-256 kbps]<New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583103.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Golden Dream (6:09)
-2. Eternal (7:12)
-3. Calm Before the Storm (9:16)
-4. Tempest of Peace (8:02)
-5. The Valley (8:43)
-6. Creation of Silence (6:15)Жанр: New age, RelaxПродолжительность: 00:45:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A62A08144546C8E49B542CADA075A96395375E71
 ```
 
 https://mybot314.ru/tekegram_catalog/

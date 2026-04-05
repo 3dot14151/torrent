@@ -6,7 +6,7 @@ Carmen Lundy - Fade To Black (2022) Afrasia Productions [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234808.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ George Kawaguchi - Best: 50 Years Anniversary (1995) King Record [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234802.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Walt Weiskopf - Song For My Mother (1996) Criss Cross Jazz [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234783.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Bob Brookmeyer - The Dual Role Of Bob Brookmeyer (1954, 1955) 2014, Prestige [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234767.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Sarah Vaughan & Woody Herman - On The Radio: The 1963 'Live' Guard Sessions (200
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234753.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Bob Albanese Trio With Ira Sullivan - One Way / Detour (2009) Zoho [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234736.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Nana Rashid - Music For Betty (2023) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234705.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Danilo Perez - The Journey (1994) [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234640.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Benny Golson - Gettin' With It (1959) 1995, Original Jazz Classics [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234524.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Aberdeen - Held Together (2023) [FLAC|Lossless|WEB-DL|tracks] <Brass Band, Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234502.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ George Kawaguchi & The Super Band - Super Drums 1 + 2 (1985) King Record [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234494.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Amandus - Her Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234450.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Luciana Souza - Storytellers (2020) Sunnyside [FLAC|Lossless|tracks + .cue] <Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234431.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Lynn Cannon - Just Chillin'! (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234427.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Out To Dinner - Episodes Of Grace (2022) Posi-Tone [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234419.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Roberto Gatto - Replay (2012) Parco Della Musica Records [FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234402.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Igor Fedotov - Believe in Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234387.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Jeff Coffin - Between Dreaming And Joy (2022) Ear Up Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234359.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Papik & Sea Breeze - West Coast Rendez Vous (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234343.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Sun Ra Arkestra - Living Sky (2022) Omni Sound [FLAC|Lossless|tracks + .cue] <Av
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234284.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ The United States Army Field Band Jazz Ambassadors - The Legacy Of Stan Kenton (
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234280.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Ron Kalina - Getting My Axes Together (2004) Kalinor Music [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234274.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Eddie Henderson - Shuffle And Deal (2020) Smoke Sessions Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234273.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Benny Golson Group - Remembering Clifford (1998) Milestone [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234271.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Eddie Henderson - Be Cool (2018) Smoke Sessions Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234260.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ European Jazz Trio - Barcelona's Flame (1990) Alfa Jazz [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234254.jpg" />
 </div>
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1246438   (458970) от 12.09.2018
+
+Книжная серия | Игры мировых элит [12 книг] (2014-2017) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия Игры мировых элит- это сборник книг, затрагивающих самые различные аспекты мировой борьбы за власть, информацию и ресурсы.
+Почему для англосаксов Россия всегда была и останется врагом № 1? И самое интересное для современного читателя: каким будет мир в двадцать первом веке? Академик Фурсов утверждает: это будет мир борьбы – той борьбы, которая начинается сегодня (   Читать дальше...   )Жанр: Политика; ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FACBBC4997BABD934FE3E416F8C3FB0448C35B1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1321404   (458944) от 24.08.2019
 
 Владимир Пастухов | Реставрация вместо реформации. Двадцать лет, которые потрясли Россию (2012) [FB2]
@@ -6,7 +33,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458944.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455998.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455905.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454674.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452961.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450389.jpg" />
 </div>
 
 
@@ -166,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448354.jpg" />
 </div>
 
 
@@ -192,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447880.jpg" />
 </div>
 
 
@@ -220,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446373.jpg" />
 </div>
 
 
@@ -247,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446372.jpg" />
 </div>
 
 
@@ -273,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444923.jpg" />
 </div>
 
 
@@ -299,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444711.jpg" />
 </div>
 
 
@@ -325,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444612.jpg" />
 </div>
 
 
@@ -352,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444312.jpg" />
 </div>
 
 
@@ -378,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441840.jpg" />
 </div>
 
 
@@ -406,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440239.jpg" />
 </div>
 
 
@@ -432,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440236.jpg" />
 </div>
 
 
@@ -458,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439790.jpg" />
 </div>
 
 
@@ -486,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438324.jpg" />
 </div>
 
 
@@ -512,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438320.jpg" />
 </div>
 
 
@@ -538,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438095.jpg" />
 </div>
 
 
@@ -566,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437705.jpg" />
 </div>
 
 
@@ -594,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435975.jpg" />
 </div>
 
 
@@ -620,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435968.jpg" />
 </div>
 
 
@@ -648,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435715.jpg" />
 </div>
 
 
@@ -660,32 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46A0D801FDA8C58F4ADCAC2189500FC70CD53ABA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410348   (435653) от 21.09.2020
-
-Наоми Вульф | Вагина. Новая история женской сексуальности (2018) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американская журналистка и писательница Наоми Вульф, автор культового «Мифа о красоте», посвятила свою новую книгу… вагине. Предпринятое Вульф исследование превратилось в увлекательное и полное неожиданных открытий путешествие во внутренний мир женщины. То, как относятся к вагине в разных культурах – с уважением или презрением, внимательно или пренебрежительно, – (   Читать дальше...   )Жанр: Научная литература, МедицинаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6012A365E33093ED03B1D4DC93BC6BF0319BD253
 ```
 
 https://mybot314.ru/tekegram_catalog/

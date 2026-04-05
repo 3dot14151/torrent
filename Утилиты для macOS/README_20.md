@@ -1,3 +1,31 @@
+###  Публикация: 1131728   (706585) от 06.05.2017
+
+Stellar Drive Defrag 3.0.0.3 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа Дефрагментация диска от Stellar – это эффективное программное обеспечение, предназначенное для дефрагментации диска и помощи пользователям Mac по улучшению производительности их систем. Утилита безопасно дефрагментирует сильно фрагментированные файлы, а также данные на жестком диске, сохраняя их должным образом в соседних ячейках памяти
+
+- Позволяет проводить (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: апрель 2017Разработчик: Stellar Information Technology Private LimitedПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79A68F8A7EF9A0623E8B515EAA87AC87C71C8558
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026156   (706041) от 14.06.2016
 
 iStatistica 1.2.2 [Multi/Ru]
@@ -6,7 +34,7 @@ iStatistica 1.2.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706041.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ CyberByte Antivirus and Internet Security Premium 3.0.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705360.jpg" />
 </div>
 
 
@@ -61,7 +89,7 @@ USB Overdrive 3.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704921.jpg" />
 </div>
 
 
@@ -89,7 +117,7 @@ A-Zippr Pro: Better Unarchiver 1.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703340.jpg" />
 </div>
 
 
@@ -115,7 +143,7 @@ Recordam 1.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702925.jpg" />
 </div>
 
 
@@ -142,7 +170,7 @@ picatext - OCR made simple 2.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702821.jpg" />
 </div>
 
 
@@ -171,7 +199,7 @@ Battery Indicator for Mac 2.12.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701280.jpg" />
 </div>
 
 
@@ -197,7 +225,7 @@ PhoneExpander 1.1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700084.jpg" />
 </div>
 
 
@@ -225,7 +253,7 @@ oneSafe 2.0.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698233.jpg" />
 </div>
 
 
@@ -252,7 +280,7 @@ Memory Clean 2 v1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698114.jpg" />
 </div>
 
 
@@ -281,7 +309,7 @@ Cocktail Monterey Edition 15.2.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697665.jpg" />
 </div>
 
 
@@ -307,7 +335,7 @@ InternetSpeedTest 3.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697652.jpg" />
 </div>
 
 
@@ -333,7 +361,7 @@ RAR Extractor Expert Pro 2.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697068.jpg" />
 </div>
 
 
@@ -359,7 +387,7 @@ Serial Box & SerialSeeker 2022 - 03 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693855.jpg" />
 </div>
 
 
@@ -387,7 +415,7 @@ Timing 1.8.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693136.jpg" />
 </div>
 
 
@@ -414,7 +442,7 @@ WindowMizer 4.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692859.jpg" />
 </div>
 
 
@@ -443,7 +471,7 @@ Invisible 1.6.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691474.jpg" />
 </div>
 
 
@@ -471,7 +499,7 @@ quickWallpaper 2.53 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690857.jpg" />
 </div>
 
 
@@ -497,7 +525,7 @@ Batteries 2.2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690717.jpg" />
 </div>
 
 
@@ -523,7 +551,7 @@ Together 3.8.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689364.jpg" />
 </div>
 
 
@@ -552,7 +580,7 @@ Living Earth - Desktop Weather & World Clock 1.25 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688970.jpg" />
 </div>
 
 
@@ -578,7 +606,7 @@ QR Creator PRO 4.1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686561.jpg" />
 </div>
 
 
@@ -604,7 +632,7 @@ OS X Server 5.1.5 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686249.jpg" />
 </div>
 
 
@@ -632,7 +660,7 @@ Horcrux Email Backup 2.9.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684424.jpg" />
 </div>
 
 
@@ -661,7 +689,7 @@ Clean Text Menu 7.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681989.jpg" />
 </div>
 
 
@@ -673,32 +701,6 @@ Clean Text Menu - важный инструмент для профессион�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90591CB86DA3A84BEE66707DD47E183EAD4F8493
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289929   (681672) от 18.03.2019
-
-Temp Monitor 1.2.4 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Temp Monitor - это незаметный инструмент, который будет предупреждать вас о перегреве вашего Mac. В комплекте идет отличная утилита, чтобы помочь вам записывать все показания, когда процессор выходит за пределы температуры, которая может быть опасна для вашего Mac.Тип издания: macOS SoftwareРелиз состоялся: 17.03.2019Разработчик: VIMI StudiosПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Французский, Немецкий, Вьетнамский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D40652C6AE2F1FD2CB14844CB7239CD761DA22D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

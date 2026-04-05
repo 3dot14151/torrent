@@ -6,7 +6,7 @@ MovieSherlock 5.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274144.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Big Mean Folder Machine 2 v2.38 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274126.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Imagenomic Portraiture 3 for Adobe Lightroom CC2015/ClassicCC build 3035 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274104.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Elmedia Player Pro 7 v7.0 (1615) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274078.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Affinity Photo Beta 1.7.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273854.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Murus Pro Suite 1.4.19 (incluye Vallum 3.0.4) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273852.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Affinity Designer Beta 1.7.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273851.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Sketch 52.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273848.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Pastebot 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273781.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ iLock 2.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273771.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Adobe Prelude 2020 v9.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273695.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Vipor Plus CRM - All in One Calendar and Contacts 2.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273646.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Audirvana Plus 2.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273645.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Tweetbot for Twitter 2.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273641.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Capo 3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273628.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ AirMail 3 v3.6.73 (557) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273626.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ SiteSucker 2.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273565.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Adguard 1.4.0 (370) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273557.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Adobe XD 24.1.22.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273541.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Adobe Dreamweaver 2020 v20.0.0.15196 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273532.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ CADintosh X 8.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273508.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Adobe Premiere Rush CC v1.2.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273460.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Cocktail High Sierra Edition 11.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273427.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Scrivener 2.8.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273393.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Navicat Premium 12.0.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273327.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ Pixelmator Pro 1.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273248.jpg" />
 </div>
 
 

@@ -1,85 +1,3 @@
-###  Публикация: 205162   (757686) от 28.05.2010
-
-И твою маму тоже / Y tu mamá también (2001) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_757686.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двое друзей, не обремененных моральными принципами и мучимые подростковыми гормонами, ищут под жарким солнцем Мексики приключений. Ищут — и находят.
-
-Познакомившись на празднике с испанской красоткой Луизой, чье сердце безнадежно разбито, они приглашают ее отправиться в поездку на мифический пляж с романтическим названием «Небесные уста» — в мир фантазий и грез, где исполняются мечты.
-
-Луиза, решив развеяться и заодно излечить свое разбитое сердце, принимает приглашение мальчиков. Они еще не знают самого главного…Жанр: Комедия, ДрамаРежиссер: Альфонсо КуаронАктеры: Марибель Верду, Гаэль Гарсия Берналь, Диего Луна, Диана Брачо, Эмилио Эчеварриа, Ана Лопез Меркадо, Мариа Аура, Андрес Алмейда, Вероника Лангер, Артуро Риос, Марта Аура, Хуан Карлос Ремолина, Сильверио ПалакиосПеревод: Профессиональный одноголосый + профессиональный многоголосый + оригинальная дорожка
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215555   (757676) от 26.03.2018
-
-Величайший шоумен / The Greatest Showman (2017) HDRip [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Финеас Тейлор Барнум всегда мечтал войти в историю, но все его занятия не приносили ему удовольствия. И когда, казалось, весь мир обернулся против него, он решает пойти вслед за своей мечтой. Барнум создает завораживающее представление-сенсацию, которое стало рождением мирового шоу-бизнеса.Производство: США, 20th Century Fox Film Corporation, Chernin Entertainment...Жанр: драма, биография, мюзиклРежиссер: Майкл ГрэйсиАктеры: Хью Джекман, Зак Эфрон, Мишель Уильямс, Ребекка Фергюсон, Зендея, Кила Сеттл, Яхья Абдул-Матин II, Остин Джонсон, Эллис Рубин, Скайлар ДаннПеревод: Многоголосый закадровый (HDrezka Studio)Субтитры: отсутствуютПродолжительность: 01:44:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F1A4D97CB5A7AF3BEBC6EBA491563EA25A37BCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215456   (757669) от 26.03.2018
-
-Роман Израэл, Esq. / Roman J. Israel, Esq. (2017) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757669.jpg" />
-</div>
-
-
-###  Подробнее
-
-История опытного адвоката с твёрдой хваткой, Романа Дж. Израэля, на которого свалилось управление крупной фирмой после того, как его босса настиг сердечный приступ. Оказавшись у власти, Израэль узнаёт о тайных делах своей компании, противоречащих его профессиональным и моральным принципам.Производство: США, Bron Studios, Creative Wealth Media Finance, Cross Creek PicturesЖанр: драма, криминалРежиссер: Дэн ГилройАктеры: Дензел Вашингтон, Колин Фаррелл, Кармен Эджого, Линда Граватт, Аманда Уоррен, Хьюго Армстронг, Сэм Гилрой, Тони Плана, Дерон Хортон, Амари ЧитомПеревод: Профессиональный (многоголосый, закадровый) (iTunes)Субтитры: отсутствуютПродолжительность: 02:02:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F29C22F3D55D1CA7CFE3EF5C70AB8EC0E4D1F8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 781087   (757653) от 27.04.2014
 
 Опасная игра / Real Playing Game (2013) DVDRip [VO]
@@ -88,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757653.jpg" />
 </div>
 
 
@@ -114,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_757595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757595.jpg" />
 </div>
 
 
@@ -141,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757568.jpg" />
 </div>
 
 
@@ -167,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757480.jpg" />
 </div>
 
 
@@ -193,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757467.jpg" />
 </div>
 
 
@@ -219,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757397.jpg" />
 </div>
 
 
@@ -245,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757252.jpg" />
 </div>
 
 
@@ -271,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_757099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757099.jpg" />
 </div>
 
 
@@ -297,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757089.jpg" />
 </div>
 
 
@@ -324,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756909.jpg" />
 </div>
 
 
@@ -350,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756797.jpg" />
 </div>
 
 
@@ -376,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756714.jpg" />
 </div>
 
 
@@ -402,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756416.jpg" />
 </div>
 
 
@@ -428,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756409.jpg" />
 </div>
 
 
@@ -454,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756318.jpg" />
 </div>
 
 
@@ -480,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756139.jpg" />
 </div>
 
 
@@ -506,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755905.jpg" />
 </div>
 
 
@@ -532,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755900.jpg" />
 </div>
 
 
@@ -558,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755896.jpg" />
 </div>
 
 
@@ -584,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755691.jpg" />
 </div>
 
 
@@ -610,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755625.jpg" />
 </div>
 
 
@@ -636,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755595.jpg" />
 </div>
 
 
@@ -662,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755528.jpg" />
 </div>
 
 
@@ -673,6 +591,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D6A6F58147FD79AC7C7C486725D281D58EED790
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018376   (755422) от 20.05.2016
+
+Выживший / The Revenant (2015) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Охотник Хью Гласс серьезно ранен на неизведанных просторах американского Дикого Запада. Товарищ Хью по отряду покорителей новых земель Джон Фицжеральд предательски оставляет его умирать в одиночестве. Теперь у Гласса осталось только одно оружие - его сила воли. Он готов бросить вызов первобытной природе, суровой зиме и враждебным племенам индейцев, только чтобы выжить (   Читать дальше...   )Производство: США, Гонконг, Тайвань, Канада / 20th Century Fox Film Corporation, New Regency Pictures, RatPac Entertainment, Soho VFX, Appian Way, Anonymous ContentЖанр: Триллер, Драма, Приключения, ВестернРежиссер: Алехандро Гонсалес ИньярритуАктеры: Леонардо ДиКаприо, Том Харди, Донал Глисон, Уилл Поултер, Форрест Гудлак, Пол Андерсон, Кристоффер Йонер, Джошуа Бёрдж, Дуан Ховард, Мила Нахеко, Фабрис Адд, Кристофер Розамунд, Роберт Молони, Лукас Хаас, Брендан Флетчер, Тайсон Вуд, МакКалеб Барнетт, Винсент Леклерк, Стефан Леголт, Эммануэль БилодоПеревод: Дублированный, авторский (одноголосый закадровый) х2Язык субтитров: Русский (Forced, Full), АнглийскийПродолжительность: 02:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C16947DA1FD101EB0B74F212CA335721C3E021FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018382   (755420) от 20.05.2016
+
+Дети сексу не помеха / Friends with Kids (2011) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755420.jpg" />
+</div>
+
+
+###  Подробнее
+
+Есть ли секс после свадьбы? Все знают: в медовый месяц — страстный, через пару лет — уже не очень. Но выход есть. Джейсон и Джули решают завести ребенка, но при этом остаться только друзьями. Десять минут, девять месяцев — малыш готов. И уже Джейсон приударяет за шикарной брюнеткой, а Джули встречается с брутальным немцем. Но правда ли, что дети сексу не помеха?Производство: СШАЖанр: Драма, мелодрама, комедияРежиссер: Дженнифер УэстфелдАктеры: Адам Скотт, Дженнифер Уэстфелд, Джон Хэмм, Кристен Уиг, Майя Рудольф, Крис О`Дауд, Меган Фокс, Эдвард Бёрнс, Лулу Слосс, Кэти Фостер, Роберт Халперн, Дэниэл Халперн, Рекха Лютер, Питер К. Хирш, Ли Брайант, Келли Бишоп, Коттер Смит ...Перевод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:47:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B7197876701434A5DB91C15FD68E3DA50A60F29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018522   (755416) от 20.05.2016
+
+Срок жизни / Term Life (2016) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о персонаже по имени Ник Бэрроу, который планирует кражи, а потом продаёт эти проекты тому, кто больше заплатит. Но наступает чёрный день — один из замыслов Ника с треском проваливается, и теперь его смерти жаждут все, начиная с главарей мафии и заканчивая оборотнями в погонах.Производство: СШАЖанр: Драма, криминалРежиссер: Питер БиллингслиАктеры: Джон Фавро, Хейли Стайнфелд, Джонатан Бэнкс, Тараджи П. Хенсон, Винс Вон, Аннабет Гиш, Билл Пэкстон, Терренс Ховард, Мануэль Рульфо, Хорди МольяПеревод: Любительский многоголосый (Parovoz Production)Субтитры: ОтсутствуютПродолжительность: 01:32:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F86BA49CD9EB4FEB57B3B9F527ADAE8878F942D
 ```
 
 https://mybot314.ru/tekegram_catalog/

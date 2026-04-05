@@ -1,135 +1,3 @@
-###  Публикация: 1781773   (26479) от 25.02.2025
-
-Роман Бузунов, София Черкасова | Преднамеренное спокойствие (2024) [EPUB]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тревожность – диагноз или черта характера? Почему от алкоголя, табака и кофе становится только хуже? Отчего пресловутый тайм-менеджмент неэффективен? Можно ли избавиться от навязчивых мыслей и наслаждаться моментом? Нужны ли вам антидепрессанты и снотворные, или обойдемся без них?
-Роман Бузунов и София Черкасова, терапевты с обширным опытом лечения стресса, тревоги, (   Читать дальше...   )Жанр: Психология, ЗдоровьеИздательство: ИД Комсомольская правдаФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:894D7B621841A0AE7772D25837E95985A714D485
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782041   (26362) от 26.02.2025
-
-Кристиаан Л. Харт Ниббриг | Эстетика смерти (2005) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26362.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Кристиаана Л. Харт Ниббрига (р. 1944), профессора Лозаннского университета (Швейцария), обращена к «последним вопросам бытия» и к непрекращающимся усилиям искусства изобразить конец жизни, воспроизвести и повторить «невероятный фокус умирания». Мировая литература, живопись, скульптура и музыка участвуют в «пляске смерти», пронизывающей текст своими ритмами (   Читать дальше...   )Жанр: Философия, искусствоПеревод: А. БелобратовИздательство: Ивана ЛимбахаФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B88A9470244AF52F68351EEFC00EA3A61176825
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782084   (26348) от 26.02.2025
-
-Л.А. Альсевич, С.А. Мазаник, Г.А. Расолько и др. | Дифференциальные уравнения. Практикум (2012) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Даны краткие теоретические сведения и решения типовых задач. Задачи повышенной трудности сопровождаются указаниями. Представлено большое количество задач прикладного характера, снабженных необходимыми сведениями из соответствующих областей физики, механики, биологии, экономики. Приведены задания для контрольных и лабораторных работ.
-Для студентов математических, (   Читать дальше...   )Жанр: МатематикаИздательство: Вышэйшая школаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:375553BE8C2FCAD61E577256E5ABCCBE763B00FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782234   (26318) от 27.02.2025
-
-Карлос Маригелла | Бразильская герилья. Краткий учебник городского партизана (1969) [PDF, EPUB, DOC]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Находясь в подполье, Карлос Маригелла написал множество работ по теории революционной борьбы. Наиболее известная из них — «Краткий учебник городской герильи», написанный в июне 1969 года. Едва эта небольшая книжка вышла из печати, как её тут же перевели на все основные языки мира (а много позже – даже на русский). Эту книжечку зачитывали до дыр и тщательно конспектировали (   Читать дальше...   )Жанр: Военная история. Политология. РуководстваИздательство: Самиздат (данные не указаны)Формат: PDF, EPUB, DOCКачество: Изначально электронное (ebook), обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52A1DFF500126244B7F78232B18DA4E6EA8F9FBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782185   (26281) от 27.02.2025
-
-М. Эйген, П. Шустер | Гиперцикл. Принципы самоорганизации макромолекул (1982) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26281.jpg" />
-</div>
-
-
-###  Подробнее
-
-М. Эйген, известный ученый из ФРГ, лауреат Нобелевской премии, уже знаком советскому читателю по книге "Самоорганизация материи и эволюция биологических макромолекул" (М.: Мир, 1973). В настоящей книге, написанной совместно с австрийским ученым П. Шустером, М. Эйген развивает теорию гиперцикла как одного из принципов самоорганизации макромолекул. Последовательно (   Читать дальше...   )Жанр: БиохимияИздательство: МирФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB663F0F2DB688E49C23749192F5B6C9BF1EE98C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1782181   (26244) от 27.02.2025
 
 М. Эйген | Самоорганизация материи и эволюция биологических макромолекул (1973) [PDF]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26244.jpg" />
 </div>
 
 
@@ -164,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26140.jpg" />
 </div>
 
 
@@ -190,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26102.jpg" />
 </div>
 
 
@@ -216,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26082.jpg" />
 </div>
 
 
@@ -242,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26064.jpg" />
 </div>
 
 
@@ -268,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25981.jpg" />
 </div>
 
 
@@ -296,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25980.jpg" />
 </div>
 
 
@@ -322,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25977.jpg" />
 </div>
 
 
@@ -349,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25962.jpg" />
 </div>
 
 
@@ -375,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25897.jpg" />
 </div>
 
 
@@ -402,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25893.jpg" />
 </div>
 
 
@@ -430,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25872.jpg" />
 </div>
 
 
@@ -458,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25868.jpg" />
 </div>
 
 
@@ -485,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25847.jpg" />
 </div>
 
 
@@ -511,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25787.jpg" />
 </div>
 
 
@@ -537,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25773.jpg" />
 </div>
 
 
@@ -563,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25747.jpg" />
 </div>
 
 
@@ -590,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25745.jpg" />
 </div>
 
 
@@ -616,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25717.jpg" />
 </div>
 
 
@@ -642,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25715.jpg" />
 </div>
 
 
@@ -668,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25689.jpg" />
 </div>
 
 
@@ -679,6 +547,142 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C50EA52F846E833BE4FB055A4441321548BB1FB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783249   (25681) от 05.03.2025
+
+Сергей Бубновский | Активные мышцы: ключ к восстановлению сердца (2025) [FB2, RTF, TXT]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почему возникает гипертония? Какое влияние на сердце оказывают ноги? Можно ли отказаться от таблеток, снижающих давление, и при этом не умереть? Об этом и многом другом рассказывает доктор Бубновский с своей новой книге. Более 50 упражнений для здоровья сердца и сосудов помогут навсегда забыть об аритмии, повышенном давлении и... лишнем весе.
+
+Из книги вы узнаете: (   Читать дальше...   )Жанр: МедицинаИздательство: ЭксмоФормат: FB2, RTF, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9AE85D56ADEE237356B53AB83BD7FCD0D492AB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783335   (25670) от 05.03.2025
+
+Хорст Альтман | Ядовитые растения. Ядовитые животные (2004) [PDF, FB2, DJVU, RTF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25670.jpg" />
+</div>
+
+
+###  Подробнее
+
+К сожалению, в жизни достаточно часто имеют место отравления людей ядами, как токсичных животных, так и растительными. И самое страшное, как это обычно случаются у детей. К счастью, смертельные отравления в таких случаях редки. Однако часто встречаются такие симптомы, как понос и рвота, которые могут крайне отрицательно отразиться на здоровье наших малышей. Поэтому, (   Читать дальше...   )Жанр: Токсикология. Биология. Справочная литература, МедицинаПеревод: Ольга РезниченкоИздательство: БММ АО «Москва»Формат: PDF, FB2, DJVU, RTFКачество: Обработанный скан, Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B6EA1912F274E7161525E59EFFD5DE7BDD0D4C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783349   (25661) от 05.03.2025
+
+Ренад Аляутдин | Лекарственные средства. Справочник пациента (2024) [FB2, EPUB, MOBI]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ренад Николаевич Аляутдин — автор более 300 научных статей, опубликованных на русском и английском языках в отечественных и зарубежных реферируемых научных журналах, 15 монографий и учебников, 8 патентов на изобретение в Российской Федерации, США и Евросоюза в области медицины, в том числе по нанотехнологиям в медицине.
+Р. Н. Аляутдин и его коллеги из Сеченовского (   Читать дальше...   )Жанр: МедицинаИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:735F7DA9EEF02BAC2F87A75484810E7F25EF4D2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784010   (25339) от 08.03.2025
+
+В.Н. Ходак, А.Д. Жиряков (Сост.) | Приемы и способы защиты от собак (2024) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25339.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии представлена методика последовательного формирования у военнослужащих (сотрудников) Росгвардии навыков противодействия нападающим собакам, дано описание возможным и доступным приемам и способам защиты от собак, раскрыты закономерности возникновения опасных ситуаций при взаимодействии человека с собакой и предложена ситуационная классификация возможностей (   Читать дальше...   )Жанр: Учебное пособие, самооборонаИздательство: Издательство ПВИ войск национальной гвардии РФФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFE7E97AE9231D1E29A4904C864B76FB7981F511
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783912   (25301) от 08.03.2025
+
+С.Е. Гербановский (ред.) | Наставление по инженерному делу для пехоты РККА (Инж-П-39) (1941) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Военно-инженерные работы имеют целью обеспечить успех в бою и победу над врагом с наименьшими потерями.
+
+В практическом пособии раскрываются вопросы:
+Задачи инженерного дела в пехоте.(   Читать дальше...   )Жанр: Военное дело. Наставления, памяткиИздательство: Военное Издательство Народного Комиссариата Обороны Союза ССРФормат: PDF, DJVUКачество: Обработанный скан, Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20122FC0AF2F382FFB7B9A64BF24CCCCEE9F644D
 ```
 
 https://mybot314.ru/tekegram_catalog/

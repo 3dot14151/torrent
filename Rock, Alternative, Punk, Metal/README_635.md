@@ -1,3 +1,32 @@
+###  Публикация: 1410865   (431991) от 23.09.2020
+
+Carillon - Love Mirage (2003) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.     Love Mirage
+02.     Heart Hero
+03.     Ro. 12:19
+04.     No Ves?(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:00:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A1EF290F84873BB846FA1FC66436B22F28A07D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410778   (431989) от 23.09.2020
 
 Vous Autres - Sel de Pierre (2020) [MP3|320 Kbps] <Post-Black Metal>
@@ -6,7 +35,7 @@ Vous Autres - Sel de Pierre (2020) [MP3|320 Kbps] <Post-Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431989.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ As Darkness Fell - Below the Fog (2015) [FLAC|Lossless|image + .cue] <Melodic Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431988.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Bleak Revelation - Collapse (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431987.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Mysthicon - Silva - Oculis - Corvi (2020) [FLAC|Lossless|WEB-DL|tracks] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431985.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ En Minor - When The Cold Truth Has Worn Its Miserable Welcome Out (2020) [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431984.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Corrupt-R - Awakening (2020) [MP3|320 Kbps] <Modern Metal, Djent Instrumental>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431930.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ IDLES - Ultra Mono (2020) [MP3|320 Kbps] <Post-Punk>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431929.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Aten - Horns Of Evil (2014) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431927.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Ayreon - Transitus (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431924.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Nick Mason's Saucerful Of Secrets - Live At The Roundhouse (2020) [MP3|320 Kbps]
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431918.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Mary & The Highwalkers - 2CD: Cognition, Hounds (2017-2019) [FLAC 2.0|16,24/44.1
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431914.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Erick Hovey - Blues Farm (2009) [MP3|128 кб/с]<Blues, Rock, Swamp, Country, R
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431870.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ Wendy O. Williams - Kommander of Kaos (1986) [FLAC|image +.cue]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431860.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ AxeWound - Vultures (2012) [MP3|320 кб/с]<Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431782.jpg" />
 </div>
 
 
@@ -424,7 +453,7 @@ Carousel - Round & Round (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431773.jpg" />
 </div>
 
 
@@ -453,7 +482,7 @@ Shiloblaengare - Golden Book of Rock (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431769.jpg" />
 </div>
 
 
@@ -482,7 +511,7 @@ Huntress - Static (2015) [MP3|320 кб/с]<Thrash metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431735.jpg" />
 </div>
 
 
@@ -511,7 +540,7 @@ Papadosio - To End The Illusion Of Separation (T.E.T.I.O.S.) (2012) 2CD[OGG|484-
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431670.jpg" />
 </div>
 
 
@@ -540,7 +569,7 @@ Rotting Christ - Lucifer Over Athens (2015) Limited Digipak 2CD [FLAC|image+.cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431663.jpg" />
 </div>
 
 
@@ -569,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431661.jpg" />
 </div>
 
 
@@ -599,7 +628,7 @@ U.D.O. - The Wrong Side Of Midnight (2007) EP [FLAC|Lossless]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431257.jpg" />
 </div>
 
 
@@ -628,7 +657,7 @@ Rea Garvey - Neon (2018) Island Records [FLAC|Lossless|tracks + .cue] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431046.jpg" />
 </div>
 
 
@@ -657,7 +686,7 @@ VA - Eric Clapton: Life in 12 Bars (2018) 2CD, Compilation [FLAC|Lossless|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431031.jpg" />
 </div>
 
 
@@ -686,7 +715,7 @@ Atlantis - Atlantis (1972) Reissue, 2008, Universal [MP3|320 Kbps] <Krautrock, P
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430807.jpg" />
 </div>
 
 
@@ -715,7 +744,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_430695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_430695.jpg" />
 </div>
 
 
@@ -735,35 +764,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063807   (430367) от 18.10.2016
-
-Gaia Prelude - Another (2010) Japanese Edition [FLAC|Lossless|image + .cue] <Instrumental Neoclassical Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Desire 03:00
-02. Silent Dream 04:02
-03. Genesis 05:07
-04. Genesis 05:15(   Читать дальше...   )Жанр: Instrumental Neoclassical Power MetalПродолжительность: 00:59:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E26A7BB41C9C30808510A545B7DAB71A7C9E259
 ```
 
 https://mybot314.ru/tekegram_catalog/

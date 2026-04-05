@@ -1,3 +1,29 @@
+###  Публикация: 1663973   (186263) от 24.09.2023
+
+Ирина Шпакова | Водопад (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный мастер — класс по живописи рассчитан на начинающих, людей без каких либо художественных навыков.Жанр: РисованиеЯзык озвучки: РусскийПродолжительность: 01:39:03Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B434DE030C1358E789E03E769C6E3BBFFA2EC2C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1663967   (186262) от 24.09.2023
 
 Ирина Шпакова | Берег (2023) WEB-DL [AD] [RU]
@@ -6,7 +32,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186262.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186256.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186250.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186248.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186240.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186234.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Robby Branham | Creating Volumetric Effects with Houdini (2019) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186213.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ The Gnomon Workshop, Timucin Ozger | Controlled Building Demolition FX in Houdin
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186196.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ Udemy, Brad Merrill | Modern Productivity — Superhuman Focus In A Distracted W
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186195.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ The Gnomon Workshop, Simon Littlejohn | Creating an FX Production Shot in Houdin
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186187.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ JUG Ru Group | DotNext 2023. Конференция для .NET‑разрабо
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186184.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ Udemy, Derek Smith | The Complete English Idioms Course - Master English Idioms 
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186179.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ JUG Ru Group | DevOops 2023. Конференция по инженерным р
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186174.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ Udemy, Василий Швалев | Ultimate QGIS: с нуля до экспе�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186172.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186171.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ Thinknetica Pro, Кирилл Храпков  | Проектирование Б�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186142.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_185814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_185814.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ Udemy, Maamir Houssam Eddine | 3d visualization , 3ds max, V-ray, Ps: 3D render 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185808.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ Contrse, Дарья Калугина | Интенсив по фуд-фотогр
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_185799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_185799.jpg" />
 </div>
 
 
@@ -516,7 +542,7 @@ Udemy, Stefan Mitrovic | Ai Youtube Masterclass: Unleash the Passive Income (202
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185787.jpg" />
 </div>
 
 
@@ -542,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_185783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_185783.jpg" />
 </div>
 
 
@@ -571,7 +597,7 @@ Udemy, Martin Yanev | ChatGPT Software Mastery: Build, Deploy & Sell AI Apps (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185767.jpg" />
 </div>
 
 
@@ -597,7 +623,7 @@ Udemy, Terry Mc Gonigle | Английский для собеседований
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185758.jpg" />
 </div>
 
 
@@ -626,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185748.jpg" />
 </div>
 
 
@@ -655,7 +681,7 @@ Pratik Naik | Beauty and portrait retouching (2023) WEB-DL [RU]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185737.jpg" />
 </div>
 
 
@@ -666,35 +692,6 @@ Pratik Naik | Beauty and portrait retouching (2023) WEB-DL [RU]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4E2327C484378D48FDF6544722506B824B7AB53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827218   (185725) от 21.10.2025
-
-Gift Cookies, Ирина Мошкина | 3 в 1. Совершенство в капкейках (2025) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Другие видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185725.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дорогой ученик!
-Мы рады приветствовать тебя на нашем курсе по капкейкам.
-Тебя ждет огромное количество удивительных открытий!
-(   Читать дальше...   )Производство: Gift CookiesЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 03:46:26Реклама: Присутствуют сторонние наложения и вставки в видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:917F8A4929EE73DDC01117C5FDA8004C2FD98565
 ```
 
 https://mybot314.ru/tekegram_catalog/

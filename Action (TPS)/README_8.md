@@ -6,7 +6,7 @@ Batman: Arkham City (2012) [Ru/Multi] (1.1/dlc) License GOG [Game of the Year Ed
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903330.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Max Payne 3 (2012) [Ru/Multi] (1.0.0.216/dlc) SteamRip =nemos= [Complete Edition
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902893.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Death to Spies / Смерть шпионам (2007) [Ru/En] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902643.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Death to Spies: Moment of Truth / Смерть шпионам: Момент ис
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902576.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Kane and Lynch: Dead Men / Kane & Lynch: Смертники (2007) [Ru/En] (1.0)
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901796.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Banzai Escape (2016) [En/Jp] (1.0) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900293.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Resident Evil 6 (2013) [Ru] (1.0.6.165/dlc) Portable PortGamPC
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898458.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Better Late Than DEAD (2016) [Ru/Multi] (1.0) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896759.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Max Payne 3 (2012) [Ru/Multi] (1.0.0.216/dlc) Repack xatab [Complete Edition] (�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896243.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Grand Theft Auto: Vice City [Ru] (L) 2003
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895278.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Grand Theft Auto V (2015) [Ru/Multi] (1.0.1868/1.50) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894598.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Mecha Knights: Nightmare (2021) [En] (1.0) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893337.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Castlevania: Lords of Shadow (2013) [Ru/En] (1.0.2.9/upd2/dlc) Repack R.G. Ме�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890211.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Saints Row 2 (2009) [Ru/Multi] (1.2) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889808.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Bloody Boobs (2017) [Ru/En] (1.0) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886715.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Ryse: Son of Rome (2014) [Ru/En] (1.0.0.153/upd3/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883811.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Global Ops: Commando Libya / Приказано уничтожить: Опера
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878512.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Daemon X Machina (2020) [Multi] (1.0.1/dlc) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877972.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Call of Duty World at War (2008) [Ru/En] (1.7.1263) SteamRip Let'sРlay (only 64
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876869.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Mercenaries 2: World in Flames (2008) [Ru] (1.1.0.0) RePack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876567.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Shadowgrounds (2005) [Ru/En] (1.05) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875590.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Sniper Elite V2 (2012) [Ru] (1.13/dlc) Repack Other s [Complete Pack]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870699.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Star Trek: Hidden Evil (1999) [En] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869504.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ METAL GEAR SOLID 2 SUBSTANCE (2003) [Multi] (1.0cu) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869216.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Styx: Master of Shadows (2014) [Ru/En] (1.02) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867401.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ World War Z: Aftermath (2021) [Ru/Multi] (2.00/dlc) Repack Other s [Deluxe Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865913.jpg" />
 </div>
 
 

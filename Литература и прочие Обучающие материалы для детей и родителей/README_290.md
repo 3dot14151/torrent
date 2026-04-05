@@ -1,3 +1,58 @@
+###  Публикация: 1412784   (413322) от 01.10.2020
+
+Д.М. Златопольский | 400 вопросов по информатике на логику и смекалку (2020) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413322.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге приведены более 400 вопросов по информатике, которые можно предложить учащимся при проведении классных и школьных конкурсов «Что? Где? Когда?» и «Брейн-ринг» и других внеклассных мероприятий. Ряд вопросов может быть использован и на уроках. Вопросы охватывают многие темы школьного курса информатики, имеют разный уровень сложности. В приложениях представлены (   Читать дальше...   )Жанр: Компьютерная литература, Учебные пособияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A21FA15BD30E5E211F29BA81E80512A7BFE7EB3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167927   (412704) от 22.09.2017
+
+ИЗО РОК | Памятка юной санитарки (1934) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы РОККа юные друзья
+Ведем борьбу за санкультуру.
+Всегда мы бодры, всегда здоровы.
+На зов Соввласти всегда готовы!(   Читать дальше...   )Жанр: Медицина, первая помощьФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6C40D88E7EA8E25E4389967F53EE72A3AC90893
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573434   (412664) от 31.08.2022
 
 Эйша Ситро | Зои и Сассафрас. Драконы и зефирки. Книга 1 (2020) [FB2]
@@ -6,7 +61,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412664.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412654.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412537.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412504.jpg" />
 </div>
 
 
@@ -110,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412471.jpg" />
 </div>
 
 
@@ -136,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412364.jpg" />
 </div>
 
 
@@ -163,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412358.jpg" />
 </div>
 
 
@@ -189,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412240.jpg" />
 </div>
 
 
@@ -216,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412223.jpg" />
 </div>
 
 
@@ -242,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412199.jpg" />
 </div>
 
 
@@ -268,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412093.jpg" />
 </div>
 
 
@@ -294,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412076.jpg" />
 </div>
 
 
@@ -320,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412058.jpg" />
 </div>
 
 
@@ -347,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412021.jpg" />
 </div>
 
 
@@ -375,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412012.jpg" />
 </div>
 
 
@@ -401,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411812.jpg" />
 </div>
 
 
@@ -427,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411616.jpg" />
 </div>
 
 
@@ -454,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411602.jpg" />
 </div>
 
 
@@ -481,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411526.jpg" />
 </div>
 
 
@@ -507,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411449.jpg" />
 </div>
 
 
@@ -533,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411447.jpg" />
 </div>
 
 
@@ -562,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411321.jpg" />
 </div>
 
 
@@ -588,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411213.jpg" />
 </div>
 
 
@@ -614,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411111.jpg" />
 </div>
 
 
@@ -627,62 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:613EF49D926221633269F7B80F49D3EF9E722643
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948395   (411104) от 20.10.2015
-
-И.В. Курукин, Ф.Г. Тараторкин | ОГЭ 2016. История. Основной государственный экзамен. Типовые тестовые задания (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие содержит 10 вариантов типовых тестовых заданий Основного государственного экзамена 2016 года.
-Назначение пособия — отработка практических навыков учащихся при подготовке к экзамену (в новой форме) в 9 классе по истории.
-В сборнике даны ответы на все варианты тестов. Приведена подробная инструкция по проверке и оценке работ учащихся.
-Сборник предназначен для (   Читать дальше...   )Жанр: Образовательная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99C166EA69723F9DEF95A22B7A049EDF4E367A07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252299   (410821) от 04.10.2018
-
-В.В. Сафонова и др. | ЕГЭ-2019. Английский язык. Сборник заданий. 400 заданий с ответами (2018) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга содержит задания разных типов и уровней сложности по темам, знание которых проверяется на ЕГЭ, а также краткие теоретические сведения. Ко всем заданиям приводятся ответы. Поможет потренироваться в выполнении заданий, повторить пройденный материал и эффективно подготовиться к сдаче ЕГЭ.
-Книга адресована учащимся старших классов для подготовки к ЕГЭ по английскому (   Читать дальше...   )Жанр: Учебная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E5075E231AC0ABC673FE2FA0799C4984A8A6F23
 ```
 
 https://mybot314.ru/tekegram_catalog/

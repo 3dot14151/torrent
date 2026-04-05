@@ -1,3 +1,61 @@
+###  Публикация: 322114   (754925) от 10.07.2020
+
+Ennio Morricone - The Very Best Of (1995) [APE|Lossless|image + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Man With The Harmonica (2:56)
+02. Chi Mai (5:06)
+03. Cockey's Song (4:05)
+04. For A Few Dollars More (2:40)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:15:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D77E5E8C422EB56614DBCE94D6552E28500D52DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 182244   (754923) от 10.07.2020
+
+Ennio Morricone - The Best Of 50 Years Of Music (2010) [FLAC|Lossless|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ecstasy Of Gold (From The Good The Bad The Ugly) (3:39)
+02. Once Upon A Time In The West (2:57)
+03. Here's To You (From Sacco E Vanzetti) (3:57)
+04. The Master And Margherita (4:58)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7651EF9B044F701476E98B8249115B3CCD7EBE76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216015   (754590) от 28.03.2018
 
 Baraka - Zarathushtra Mantras (2017) [FLAC|Lossless|WEB-DL|tracks] <Ethno folk, Lounge, Jazz>
@@ -6,7 +64,7 @@ Baraka - Zarathushtra Mantras (2017) [FLAC|Lossless|WEB-DL|tracks] <Ethno folk, 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754590.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Tom Holkenborg (Junkie XL) - Alita: Battle Angel (2019) Soundtrack [FLAC|Lossles
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753251.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753170.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Kory Caudill - Tree of Life (2015) [FLAC|Lossless|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752259.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Rosanna Cash - King's Record Shop (1987) [MP3|320 кб/с] <Folk, Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752253.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Dixie Chicks - Wide Open Spaces (1998) [MP3|320 кб/с] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752174.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Deuter - Eternity (2009) [FLAC|Lossless|tracks + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751547.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750935.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Omnia - Reflexions (2018) [FLAC|Lossless|WEB-DL|tracks] <Folk, Celtic, Medieval>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750831.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Meav - The Calling (2013) [MP3|320 кб/с] <Folk, Celtic, Female Vocal>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750085.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Ernesto Cortazar - Concertos Vol. I (2012) [FLAC|Lossless|WEB-DL|tracks] <New Ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750010.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Audiomachine - Exogenesis (2019) [MP3|320 Kbps] <Soundtrack, Trailer music, Clas
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749916.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Singular Mind - Find Myself (2017) [MP3|320 Kbps] <Ambient, Chill Out, Downtempo
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749422.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Impressions from Da Vinchi (2006) 3CD [MP3|320 Kbps] <New Age, Enigmatic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747839.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746900.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Morgan Frazier - The Best (2015) [MP3|~245 кб/с (V0)] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746814.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Playing For Change - PFC 2 - Songs Around the World (2011) [MP3|320 Kbps] <
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746006.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Doug Blair - The End of Chaos (2018) [MP3|320 Kbps] <New Age, Downtempo>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744865.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Ennio Morricone - Conducts Morricone - His Greatest Hits (2016) [FLAC|Lossless|W
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744450.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Thierry David - Yoma (1996) [FLAC|Lossless|tracks + .cue] <Tribal, New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744147.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Thierry David - Ocean Rhapsody (2007) [FLAC|Lossless|tracks + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744133.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Thierry David - The Veil of Whispers (2011) [FLAC|Lossless|tracks + .cue] <New A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744132.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Thierry David - Hypnosis (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_744083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_744083.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Tracy Lawrence - I See It Now (1994) [MP3|320 кб/с] <Country, Folk>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743867.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Tracy Lawrence - I See It Now (1994) [MP3|320 кб/с] <Country, Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C76CFFE8BA0D1481AD7AE23CA3950D418C42EC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282400   (743623) от 13.02.2019
-
-Andrew Lloyd Webber - The Very Best Of Andrew Lloyd Webber. The Broadway Collection (1996) [FLAC|Lossless|image + .cue] <Musical>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Murray Head - Superstar
-02. Yvonne Elliman - I Don't Know How to Love Him
-03. Sarah Brightman - Don't Cry For Me Argentina
-04. Mandy Patinkin & Patti Lupone - High Flying, Adored(   Читать дальше...   )Жанр: MusicalПродолжительность: 01:11:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D686930CF962E1ED4302A824167F74C430551177
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282443   (743615) от 13.02.2019
-
-Allister - Best Of... 20 Years & Counting (2019) [MP3|320 Kbps] <Pop-Punk, Punk Rock>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stay With Me
-02. Radio Player
-03. Runaway
-04. Somewhere on Fullerton(   Читать дальше...   )Жанр: Pop-Punk, Punk RockПродолжительность: 01:03:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CCC16CED43FFACD37DA0F39451D4506326882BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

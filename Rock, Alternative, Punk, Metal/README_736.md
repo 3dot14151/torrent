@@ -1,3 +1,38 @@
+###  Публикация: 260503   (325238) от 26.11.2010
+
+Маврин - Моя свобода (2010) [FLAC|Lossless]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Рождение (1:14)
+02. Моё время (5:29)
+03. Моя свобода (10:17)
+04. Душа (5:55)
+05. Новый день (7:51)
+06. Моё небо (5:38)
+07. Падшая звезда (2:55)
+08. Final (2:08)
+09. Show time (3:46)
+10. Утоли мои печали (5:22)Жанр: Heavy MetalПродолжительность: 00:50:34
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 261853   (325199) от 26.11.2010
 
 Сурганова и Оркестр / 5 сборников (2005-2010) [FLAC|Lossless]<VIP-Punk-Decadence>
@@ -6,7 +41,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325199.jpg" />
 </div>
 
 
@@ -32,7 +67,7 @@ Acromizer - Spreading The Plague (2015) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325000.jpg" />
 </div>
 
 
@@ -61,7 +96,7 @@ Frank Blackfire - Back On Fire (2015) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324994.jpg" />
 </div>
 
 
@@ -90,7 +125,7 @@ Signum Regis - Chapter IV: The Reckoning (2015) [MP3|320 кб/с]<Progressive, P
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324967.jpg" />
 </div>
 
 
@@ -119,7 +154,7 @@ The Wallflowers - Breach (2000) [FLAC|tracks+.cue]<Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324959.jpg" />
 </div>
 
 
@@ -148,7 +183,7 @@ LogoS - L'enigma della vita (2014) [FLAC|image+.cue]<Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324954.jpg" />
 </div>
 
 
@@ -177,7 +212,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324950.jpg" />
 </div>
 
 
@@ -206,7 +241,7 @@ Diviner - Fallen Empires (2015) [MP3|320 кб/с]<Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324928.jpg" />
 </div>
 
 
@@ -235,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324834.jpg" />
 </div>
 
 
@@ -264,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324717.jpg" />
 </div>
 
 
@@ -293,7 +328,7 @@ Roger Waters - The Wall (2015) 2CD Live [MP3|320 кб/с]<Soundtrack, Progressiv
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324713.jpg" />
 </div>
 
 
@@ -322,7 +357,7 @@ Grums - 2 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Doom>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324696.jpg" />
 </div>
 
 
@@ -351,7 +386,7 @@ Zong - Astral Lore (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Stoner, Sp
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324695.jpg" />
 </div>
 
 
@@ -380,7 +415,7 @@ Holocross - Holocross (1988) [FLAC|Lossless|image + .cue] <Thrash, Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324694.jpg" />
 </div>
 
 
@@ -409,7 +444,7 @@ Parius - The Signal Heard Throughout Space (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324693.jpg" />
 </div>
 
 
@@ -438,7 +473,7 @@ The End Is Coming - Ультрадобро (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324692.jpg" />
 </div>
 
 
@@ -467,7 +502,7 @@ Aenaon - Mnemosyne (2022) [MP3|320 Kbps] <Progressive Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324691.jpg" />
 </div>
 
 
@@ -496,7 +531,7 @@ Requiem - Collapse Into Chaos (2021) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324690.jpg" />
 </div>
 
 
@@ -525,7 +560,7 @@ Barale'Space Trip - Barale'Space Trip (2022) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324689.jpg" />
 </div>
 
 
@@ -554,7 +589,7 @@ Attraction - Get Up 'N' Shake (1999) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324688.jpg" />
 </div>
 
 
@@ -583,7 +618,7 @@ Sun Voyager - Sun Voyager (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Sto
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324687.jpg" />
 </div>
 
 
@@ -612,7 +647,7 @@ Teverts - The Lifeblood (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324686.jpg" />
 </div>
 
 
@@ -641,7 +676,7 @@ Get The Shot - Merciless Destruction (2022) [FLAC|Lossless|WEB-DL|tracks] <Hardc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324685.jpg" />
 </div>
 
 
@@ -670,7 +705,7 @@ The Mourning Glory - Dual Nature of All Things (2022) [FLAC|Lossless|WEB-DL|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324684.jpg" />
 </div>
 
 
@@ -699,7 +734,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324629.jpg" />
 </div>
 
 
@@ -713,35 +748,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1878379E574FB6B21F0C5422C79F3D74468F7A6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582082   (324603) от 08.10.2022
-
-Knorkator - Sieg der Vernunft (2022) [FLAC|Lossless|WEB-DL|tracks] <Neue Deutsche Harte>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Die Welt wird nie wieder so, wie sie vorher war [00:03:55]
-02. Sieg der Vernunft [00:03:49]
-03. Der Hofstaat [00:04:04]
-04. Ihr habt gewonnen [00:03:59](   Читать дальше...   )Жанр: Neue Deutsche HarteПродолжительность: 00:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B2160909CF592579E0C2BA01F9CD3417D714D0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

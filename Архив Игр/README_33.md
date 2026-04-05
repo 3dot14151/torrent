@@ -1,3 +1,56 @@
+###  Публикация: 526276   (598797) от 23.07.2012
+
+Hard Reset: Extended Edition [Ru] (Repack/1.51) 2011 | UltraISO
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Будущее. На Земле, разоренной войной с машинами, остался всего один город, где еще живут люди. Герой Hard Reset майор Флетчер — один из обитателей этой твердыни. И именно ему предстоит сыграть главную роль в конфликте, который определит судьбу всего человечества.
+Динамичный шутер Hard Reset соединяет в себе самые яркие черты лучших представителей жанра с непредсказуемым сюжетом и неповторимой атмосферой киберпанка, знакомой по фильмам «Матрица», «Бегущий по лезвию бритвы» и «Призрак в доспехах».(   Читать дальше...   )Тип издания: RepackЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD01B742C481DB9C22D1E606089C2FEE87F62C75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 356299   (598284) от 28.06.2011
+
+Counter-Strike v.1.6 Professional Edition [Ru] 2009 | CS-REDEMAX
+
+>>След.
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Counter-Strike v.1.6 Professional Edition – Это профессиональная сборка для всех видов игроков. В игру были добавлены новые функции, например как: Понижение пинга, Уменьшения разброса пуль, Прыжок с приседанием… Если вам админ испортил конфиг, то вы можете себе монтировать стандартный конфиг или же свой. В этой игре нет ничего лишнего, т.е. вы можете спокойно играть на любых серверах. Т.к. тут 21 патч и все стандартные модели ( HLTV модели). Так же в сборке, вы можете себе выбрать патч игры 26 или 35. (   Читать дальше...)Тип издания: НеофициальныйЖанр: MMO Action (Tactical / Shooter) / 3D / 1st Person / TC / MODЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1407B670BF2495F14E1FFC12688A3BC165C854DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 223320   (597354) от 31.07.2010
 
 Race On [Ru/En] (RePack) 2009 | R.G. ReCoding
@@ -6,7 +59,7 @@ Race On [Ru/En] (RePack) 2009 | R.G. ReCoding
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_597354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_597354.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ CheMax 12.3 [Ru] / 13.5 [En] / CheMax FC 3.1 [Ru/Multi]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_597232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_597232.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Imperator: Rome (2019) [Ru/Multi] (1.0/dlc) Repack xatab [Deluxe Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597202.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ Shank - Дилогия (RePack/1.03/1.0dc120305) [Ru/En] 2010-2012 l VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597069.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ Tom Clancy's Ghost Recon: Future Soldier (RePack/1.3) [Ru/En] 2012 l VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596875.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ Jagged Alliance: Back in Action / Jagged Alliance: Снова в деле + 6 DL
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596711.jpg" />
 </div>
 
 
@@ -167,7 +220,7 @@ Wolfenstein (RePack/1.2) [Ru/En] 2009 l VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596706.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ Universe Sandbox (2015) [Ru/Multi] (30.0.1) License GOG [Early Access]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595870.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ Warlock: Master of the Arcane [Ru] (RePack/1.2.1.42) 2012 | Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595345.jpg" />
 </div>
 
 
@@ -248,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595332.jpg" />
 </div>
 
 
@@ -275,7 +328,7 @@ Deadly Premonition (2013) [Ru/En] (1.01b) Repack Audioslave [Director's Cut]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595243.jpg" />
 </div>
 
 
@@ -301,7 +354,7 @@ Kingdom Come: Deliverance (2018) [Ru/Multi] (1.6) License CODEX [Patch]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593751.jpg" />
 </div>
 
 
@@ -327,7 +380,7 @@ City Car Driving (2016) [Ru] (1.5.8) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593426.jpg" />
 </div>
 
 
@@ -353,7 +406,7 @@ Green Hell (2018) [Ru/En] (0.5.5) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593071.jpg" />
 </div>
 
 
@@ -379,7 +432,7 @@ Youropa (2018) [Ru/Multi] (22925) License SKIDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592820.jpg" />
 </div>
 
 
@@ -405,7 +458,7 @@ The Forest (2014) [Ru/En] (0.19C) Repack xGhost [Early Access]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592186.jpg" />
 </div>
 
 
@@ -431,7 +484,7 @@ The Forest (2014) [En] (0.19с) Repack Crisis2010 [Early Access]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591721.jpg" />
 </div>
 
 
@@ -458,7 +511,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.1.1b/dlc) Repack R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591702.jpg" />
 </div>
 
 
@@ -486,7 +539,7 @@ Zombie Army Trilogy (2015) [Ru/En] (1.6.5.01) Repack R.G. Games
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590275.jpg" />
 </div>
 
 
@@ -512,7 +565,7 @@ Reborn Online (2013) [Ru/En] (2015.07.02) License
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590274.jpg" />
 </div>
 
 
@@ -538,7 +591,7 @@ SolSuite Solitaire 2015 (2015) [Ru/En] (15.7) Repack D!akov
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589021.jpg" />
 </div>
 
 
@@ -564,7 +617,7 @@ Ukiyo no Shishi (2015) [PS3] [JPN] 4.65 [License] [Jp]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588544.jpg" />
 </div>
 
 
@@ -593,7 +646,7 @@ Book of Demons (2016) [En] (0.71.10232+) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588097.jpg" />
 </div>
 
 
@@ -619,7 +672,7 @@ SpaceEngine (2016) [Ru/Multi] (0.9.8.0) License
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588000.jpg" />
 </div>
 
 
@@ -630,60 +683,6 @@ SpaceEngine - реалистичная виртуальная Вселенная
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E22DD4E020272437BAF78B69645386E36AB89CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918253   (587609) от 14.07.2015
-
-World of Tanks (2010) [Ru] (0.9.9) License
-
->>След.
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587609.jpg" />
-</div>
-
-
-###  Подробнее
-
-World of Tanks — это массовая многопользовательская онлайн-игра, полностью посвященная бронированным машинам середины XX века.
-
-Игроки получат возможность плечом к плечу сражаться с поклонниками стальных гигантов со всех уголков планеты, отстаивая свои претензии на мировое танковое господство, а продвинутая система прокачки и развития позволит вам испытать любую (   Читать дальше...   )Тип издания: Официальный клиент (SD+HD)Разработчик: Wargaming.netЖанр: Action / Tank / 3D / 3rd Person / Online-onlyЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1666298DB7AA46059A840DEE0F7BA8CD9F20FD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918251   (587599) от 14.07.2015
-
-60 Seconds! (2015) [Ru/Multi] (1.042) Repack xGhost
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чудесная игра про выживание типичного семьянина в экстремальной ситуации. Соберите как можно больше припасов, прихватите свою семью и разместитесь в бункере, только не надейтесь на тихую жизнь. У каждого члена семьи будут свои потребности, нередко нарушающие нужды других родственников. Управление этим хаосом ляжет на вас.Тип издания: RepackРазработчик: Robot Gentleman StudiosЖанр: Adventure, Indi, StrategyЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский, Английский, Польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2201C98AFCF0FC2C09375EA04ACDC1FCE12CE985
 ```
 
 https://mybot314.ru/tekegram_catalog/

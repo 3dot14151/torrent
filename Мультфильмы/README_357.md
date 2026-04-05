@@ -1,3 +1,135 @@
+###  Публикация: 1207792   (130625) от 09.12.2023
+
+Приключения капитана Врунгеля (1976-1979) BDRemux [H.264/1080p] (серии 01-13 из 13)
+
+>>Мультфильмы
+>>Отечественные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130625.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веселая повесть о невероятных приключениях капитана Врунгеля, его старшего помощника Лома и матроса Фукса, совершивших кругосветное путешествие на яхте «Беда».Производство: СССР, КиевнаучфильмЖанр: Детский, Приключения, Комедия, МузыкальныйРежиссер: Давид ЧеркасскийСубтитры: ОтсутствуютПродолжительность: 02:13:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3A3A2892D9C7FD2FF9F7159BBDAC06ABD6D51A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 610965   (130623) от 09.12.2023
+
+Алиса в стране чудес / Alice in Wonderland (1951) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130623.jpg" />
+</div>
+
+
+###  Подробнее
+
+Убежав из дома, Алиса увидела под старой яблоней большого белого кролика, одетого в куртку и жилет. Достав из кармана часы, кролик торопливо скрылся в подозрительно темной норе. Набравшись смелости, Алиса шагнула вслед за ним...и попала в чудесный сказочный мир, где сбываются самые несбыточные фантазии. Чтобы попасть обратно домой, Алисе придется совершить путешествие (   Читать дальше...   )Производство: США, Walt Disney ProductionsЖанр: мультфильм, мюзикл, фэнтези, приключения, семейныйРежиссер: Клайд Джероними, Уилфред Джексон, Хэмильтон ЛаскиАктеры: Катрин Бомонт, Эд Винн, Ричард Хейдн, Стерлинг Холлоуэй, Джерри Колонна, Верна Фелтон и др.Перевод: Дублированный (вкл. песни), двухголосый, многоголосый, авторскийСубтитры: Русские, АнглийскиеПродолжительность: 01:15:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D5FA9752DB74DD1498A67EE2527395FE68F4A0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 80364   (130618) от 09.12.2023
+
+Великолепный Гоша (1981-1985) DVDRip (10 серий)
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник комических фильмов о незадачливом Гоше, с которым вечно что-то случается...Производство: СССР, ТО «Экран»Жанр: ДетскийРежиссер: Анатолий СолинСубтитры: ОтсутствуютПродолжительность: 10 х ~ 00:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14E8B3BC046EB926EB3D06060EDCC29473B1C4E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300463   (130604) от 09.12.2023
+
+Весь Незнайка (Приключения Незнайки и его друзей, Незнайка в Солнечном городе, Незнайка на Луне) (1971-1999) DVDRip [H.264] (32 серии)
+
+>>Мультфильмы
+>>Отечественные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130604.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Цветочном городе живут коротышки — маленькие человечки, малыши и малышки: Астроном Стекляшкин, поэт Цветик, ученый Знайка, доктор Пилюлькин, музыкант Гусля, художник Тюбик, механики Винтик и Шпунтик, Пончик, Сиропчик и многие-многие другие.
+Но самым известным среди коротышек был малыш по имени Незнайка, который прославился тем, что ничего не знал.Производство: СССР, ТО «Экран»Жанр: Кукольная анимация, Компьютерная анимация, Приключения, МинисериалРежиссер: Юрий Трофимов, В. Голиков, Александр Боголюбов и др.Субтитры: отсутствуютПродолжительность: ~ 00:12:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E7F9D4B4D0ACB2D04761CC01ACC08A3BB898549
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 445027   (130600) от 09.12.2023
+
+Казаки. Сборник мультфильмов (1965-1995) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130600.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Казаки» - серия мультипликационных фильмов, снятых в СССР на украинской киностудии «Киевнаучфильм» режиссёром Владимиром Дахно.
+Главными героями серии являются три запорожских казака: верзила, коротышка и силач (по сценарию носят имена Грай, Око и Тур, соответственно, но в самом сериале всегда безымянны. Верзила хитёр и рассудителен, Коротышка - бодр и воинственен (   Читать дальше...   )Производство: СССР, КиевнаучфильмЖанр: Рисованная анимацияРежиссер: Владимир ДахноСубтитры: ОтсутствуютПродолжительность: 02:26:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C645788D2F26450F0BFFF3AD63E76C60D517151
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447034   (130597) от 09.12.2023
 
 Книга джунглей / The Jungle Book (1967) WEB-DL [H.264/1080p-LQ] [Open Matte]
@@ -6,7 +138,7 @@
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130597.jpg" />
 </div>
 
 
@@ -33,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130593.jpg" />
 </div>
 
 
@@ -59,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130586.jpg" />
 </div>
 
 
@@ -85,7 +217,7 @@ DOTA: Кровь дракона / Dota: Dragon's Blood (2022) WEB-DL [H.264/1080
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130543.jpg" />
 </div>
 
 
@@ -111,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130321.jpg" />
 </div>
 
 
@@ -137,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130255.jpg" />
 </div>
 
 
@@ -163,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130252.jpg" />
 </div>
 
 
@@ -189,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130177.jpg" />
 </div>
 
 
@@ -215,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130169.jpg" />
 </div>
 
 
@@ -241,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130045.jpg" />
 </div>
 
 
@@ -268,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129835.jpg" />
 </div>
 
 
@@ -294,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129708.jpg" />
 </div>
 
 
@@ -320,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129702.jpg" />
 </div>
 
 
@@ -346,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129680.jpg" />
 </div>
 
 
@@ -372,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129677.jpg" />
 </div>
 
 
@@ -398,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129657.jpg" />
 </div>
 
 
@@ -424,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129607.jpg" />
 </div>
 
 
@@ -450,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129577.jpg" />
 </div>
 
 
@@ -476,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129573.jpg" />
 </div>
 
 
@@ -502,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129568.jpg" />
 </div>
 
 
@@ -528,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129565.jpg" />
 </div>
 
 
@@ -540,136 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF1DDDA35FFFCEF3028566965C5AB0272DC6E180
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683187   (129564) от 10.12.2023
-
-Леди Баг и Супер-Кот: Пробуждение силы / Ladybug & Cat Noir: Awakening (2023) BDRip [H.264/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129564.jpg" />
-</div>
-
-
-###  Подробнее
-
-В обыкновенной французскоий школе учатся девочка Маринетт и мальчик Адриан, в которого она влюблена. Казалось бы, классическая история первоий любви, но эти ребята совсем не те, за кого себя выдают. Когда городу угрожает опасность, Маринетт превращается в супергероиню Леди Баг, а Адриан — в Супер-Кота. Их невероятные способности помогают бороться со злом, но при (   Читать дальше...   )Производство: Франция / The Awakening Production, Fantawild Animation, SND Groupe M6Жанр: мультфильм, фэнтези, боевик, мелодрама, комедия, приключенияРежиссер: Джереми ЗагАктеры: Анук Отбуа, Бенжамин Болен, Антуан Томе, Фанни Блок, Жанна Шартье, Мари Шевало, Флора Каприелан, Тьерри Казазиан, Джесси Ламботт, Марсаль ЛеминуПеревод: Дублированный (Paragraph Media)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85DD1C4EDAF83B4C606E5A58ACD0E87A4936C71F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489956   (129548) от 30.04.2012
-
-Лгунишка (1941) TVRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Об утенке-лгунишке, наказанном мамой за невыученные уроки.Жанр: ДетскийРежиссер: Иван Иванов-ВаноПродолжительность: 00:11:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B2BD071C36A6502DDD68DF5176366BFB66EFFCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 396337   (129409) от 21.01.2022
-
-Снеговик-почтовик (1955) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новогодняя сказка о снеговике, который помог зверюшкам победить Волка и организовать в лесу новогодний праздник.Жанр: ДетскийРежиссер: Леонид АмальрикПродолжительность: 00:18:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0864919336FBC7D93C6E2961DB4AB91B0EEDC5D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525767   (129159) от 21.01.2022
-
-Клоун Коко и хотдог / Koko`s Hot Dog (1928) WEBRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ну, никак нельзя в американском мультике обойти такую очень американскую тему как хот-дог. И уж никак нельзя не пошутить о рецептуре блюда под названием "горячая собака". ;)Производство: США, Inkwell StudiosЖанр: Рисованная анимация, КороткометражныйРежиссер: Дэйв ФлейшерАктеры: Макс ФлейшерПеревод: Немой с интертитрамиСубтитры: Английские интертиры, русские встроенные отключаемыеПродолжительность: 00:06:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7AD133C5BCF30B440FE2146255274471982EFE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824689   (129041) от 15.10.2025
-
-Эмоджи фильм / The Emoji Movie (2017) BDRip [AV1/1080p-LQ] [10-bit] [handmade AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаете ли вы, что внутри каждого смартфона есть красочный городок Текстополис, в котором живут эмоджи? И что они ужасно радуются, когда владелец телефона именно их выбирает для своего сообщения? Каждый из эмоджи отвечает лишь за одну эмоцию, и только Джин может выражать несколько эмоций сразу. Он очень хочет стать таким же, как и его собратья, и для этого вместе (   Читать дальше...   )Производство: США / Columbia Pictures, LStar Capital, Sony Pictures AnimationЖанр: мультфильм, фантастика, комедия, приключения, семейныйРежиссер: Энтони ЛеондисАктеры: ТиДжей Миллер, Джеймс Корден, Анна Фэрис, Майя Рудольф, Стивен Райт, Дженнифер Кулидж, Патрик Стюарт, Кристина Агилера, София Вергара, РэйчелПеревод: Дублированный (Пифагор)Язык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: 01:26:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FBED5EB2395447717F2152157179951D0E63615
 ```
 
 https://mybot314.ru/tekegram_catalog/

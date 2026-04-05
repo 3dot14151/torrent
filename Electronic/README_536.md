@@ -1,3 +1,119 @@
+###  Публикация: 444187   (31818) от 06.01.2025
+
+Chicane - Thousand Mile Stare: The Collectors Edition (2CD) (2011) [MP3|320 kbps]<Trance, Chillout, Ambient, Progressive House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Offshore (Man Called Adam Remix) (9:05)
+02. What Am I Doing Here Prt 1 (McAuley & Walsh Remix) (8:46)
+03. Hiding All The Stars (Michael Woods Remix) (7:10)
+04. Locking Down (Dum Dum Project feat 1Shanti Remix) (4:16)(   Читать дальше...   )Жанр: Trance, Chillout, Ambient, Progressive HouseПродолжительность: 01:15:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E19283E6048E3636F3B95E472BAD1BDBA01E5D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102960   (31808) от 06.01.2025
+
+VA - Massive Vocal Trance (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jenaux & Adam Lambert - Broken (Super8 & Tab Radio Edit)  2:57
+02.  Lange & Tom Tyler - On Your Side (Radio Mix)  4:40
+03.  Liuck & Roxanne Emery - Nowhere To Be Found (Craig Connelly Radio Edit)  4:01
+04.  Rodrigo Deem & KARRA - You Said It All (Radio Edit)  4:08(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:17:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F7656C0A010988F18B4873CC6EA48D4A156BC21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 678035   (31804) от 06.01.2025
+
+VA - Adrian & Raz Vocal Trance Top 10 Volume 1 - 3 (2013) [MP3|320 кб/с]<Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Richard Durand - Running On Empty - Richard Durand's In Search Of Sunrise Edit (07:09)
+02. Ana Criado - Little Signs Of Distance - Original (06:58)
+03. Cathy Burton - Heaven - DNS Project Original Mix (07:12)
+04. Seth Hutton - Don't Look Behind You - Solid Stone Remix (07:56)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:31:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:484A5192634991B32C86FCA1EA41341680148E01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 829867   (31789) от 06.01.2025
+
+VA - Manuel Rocca Presents: White Clouds Vol. 2 (2014) [MP3|320 кб/с]<Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vash & Solaris - The Pit (Original Mix) (6:11)
+02. Cold Rush - Touchdown (Original Mix) (7:56)
+03. Lee Miller - Never Back Down (Original Mix) (7:37)
+04. Manuel Rocca - Anhelo (Original Mix) (7:17)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:18:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B02F55E91569C1BAFDB2DAE437274A701359960
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 586054   (31736) от 07.01.2025
 
 Didier Marouani & Space  - New Collection (2009) [MP3|320 кб/с]<Synthpop>
@@ -6,7 +122,7 @@ Didier Marouani & Space  - New Collection (2009) [MP3|320 кб/с]<Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31736.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Vocal Trance Hits 2015-02 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31723.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Bobina - Speed Breaker (2016) [MP3|320 кб/с] <Progressive Trance, Progressive
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31718.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - The Very Best Of Vocal Trance (2014) [MP3|320 кб/с]<Trance, Vocal Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31716.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Vocal Anthems Amsterdam (2020) [MP3|320 Kbps] <Trance, Vocal-Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31708.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Vocal Trance Vol.1 (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31705.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Pure Vocal Trance Hits Vol. 2 (2016) [MP3|320 кб/с] <Trance, Vocal Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31703.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Pure Bliss Vocals Volume 5 (2013) [MP3|320 кб/с]<Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31700.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Pure Bliss Vocals Vol. 3 (2013) [MP3|320 кб/с]<Vocal Trance, Uplifting T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31698.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Vocal Trance Gems - Summer (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31668.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - A Decade Of Female Vocal Trance (2010 - 2020) (2020) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31618.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Markus Schulz - Escape (2020) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31602.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - Pure Bliss Vocals Volume 4 (2013) [MP3|320 кб/с]<Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31589.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - Disco Down The Best of 2021 (2021) [MP3|320 Kbps] <House, Nu-Disco, Electro
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31583.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ VA - Disco Down The Best of 2023 (2023) [MP3|320 Kbps] <House, Nu-Disco, Electro
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31580.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - Armin van Buuren - A State Of Trance 1207 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31371.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ VA - Top 11 November 2024 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31049.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Markus Schulz - Global DJ Broadcast World Tour (DPRTMNT Toronto, Canada) (2025-0
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31048.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ VA - Sun Kissed, Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31045.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Alan Walker - Walkerworld 2.0 (2025) [FLAC 24/44,1,48|Lossless|WEB-DL|tracks] <E
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30970.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - Selected Trance Music 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30952.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ VA - Under Pro Best 2024 (2025) [MP3|320 Kbps] <Progressive House, Melodic House
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30951.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ VA - Under Pro Best 2024 (2025) [MP3|320 Kbps] <Progressive House, Melodic House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C7292587C4B7A7E84C99FCB2ABA0F76C278C413
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773381   (30837) от 15.01.2025
-
-VA - Always Progressive, Vol. 2 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enertia-sound - Moment Of Truth (Original Mix) [6:24]
-02. Mark Found - Donum (Original Mix) [9:12]
-03. Thomas Ferell - Trip To Stockholm (Original Mix) [8:34]
-04. Bee Hunter - Namagashi (Cast Away Sunrise Mix) [6:53](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:18:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96A877BFB7F0B38E9542025A144394F3D539BD9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773241   (30832) от 15.01.2025
-
-VA - Love Lounge, Vol 4 (2025) [MP3|320 Kbps] <Chillout, Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calmabohain - Benirras (Endless Summer Mix) [05:02]
-02. Living Room - Moonchild [04:24]
-03. Alejandro Fernandez Lecce;Paul Eerhart - Sensual (Original Mix) [04:35]
-04. Mirage Of Deep - White Sands (Original Mix) [06:49](   Читать дальше...   )Жанр: Chillout, Balearic, DowntempoПродолжительность: 02:22:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A491F9AC442ADBB124D85BB764015AFCDA98115
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773355   (30827) от 15.01.2025
-
-VA - Armada Music - Trance Legacy III (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren feat. Justine Suissa - Burned With Desire (Rising Star Extended Vocal Mix) [8:37]
-02. System F - Cry (Extended Mix) [7:21]
-03. Cygnus X - Superstring (Rank 1 Extended Remix) [8:15]
-04. Liquid Child - Diving Faces (Club Mix) [6:47](   Читать дальше...   )Жанр: TranceПродолжительность: 03:06:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4199EA1A2EB3B8D4D335582E91DC96D57C51D41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773389   (30826) от 15.01.2025
-
-VA - Top 20 Melodic Techno & Progressive House (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dust (UK) - Home (Extended Mix) (07:07)
-02. Samir Khan - Refraction of Time (Extended Mix) (07:06)
-03. Tuew & Eds Dead - Success (Extended Mix) (06:45)
-04. David Deere, Milad E & Anna Renae - Not Over Yet (Extended Mix) (05:16)(   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:11:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDC537B6D2747D94FE26F2C99921795047E15DC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

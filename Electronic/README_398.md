@@ -1,3 +1,119 @@
+###  Публикация: 1069697   (244713) от 05.11.2016
+
+VA - Lounge Future: Sunrise (2016) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karim Le Mec - Orphan (4:59)
+02. Debris of Theia - Come Back to My Jungle (4:36)
+03. Devillas - Lounge Black Coffee (4:37)
+04. Joybiza - Gambling House (3:44)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:46:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0308EC845DE6B056DA94C59DAA14E9790EE80CF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069709   (244693) от 05.11.2016
+
+VA - Time For Chillout Vol.2 (2016) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexey Kosenko - Awakening (4:32)
+02. Andrew Riqueza - Concentrate (6:16)
+03. AUTUMN STORM - Dreamland (3:28)
+04. CraSET - Miss You (3:33)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:07:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D309D8ABBF7C5EFBF1F4FC93A448F19A43E01AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069665   (244681) от 05.11.2016
+
+VA - Chillout Macchiato (2016) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hints of Soul - Uncommonly Heedful (Original Mix) (5:41)
+02. Aqua Mundi - Balletic (Original Mix) (5:34)
+03. Rey Salinero - Flor de Almendro (Original Mix) (5:52)
+04. Arrojas - Azimuth (Original Mix) (6:06)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:57:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61A334F82060E0135F3E3FA26044D3240A1F079C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452102   (244647) от 05.03.2021
+
+Aura Minimum - Fragments (2021) Strange Key [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Dub Techno>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fragment I (10:59)
+ 02. Fragment II (10:46)
+ 03. Fragment III (16:02)
+ 04. Fragment IV (09:46)(   Читать дальше...   )Жанр: Ambient, Dub TechnoПродолжительность: 00:58:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CACC0F67A39064D119AABC68C1877EF309A9A2E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1069713   (244634) от 05.11.2016
 
 VA - Ambient Top Summer 2016 (2016) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -6,7 +122,7 @@ VA - Ambient Top Summer 2016 (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244634.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Ibiza Sunset Chill Vol.3 (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244608.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ TV Players - Big City Visions (2022) [MP3|320 Kbps] <Synthwave, Retrowave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244559.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Night City Ambient (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244532.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ JJOS - Discography 94 Releases (2011-2022) [MP3|320 Kbps] <Ambient, Chillout, Lo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244524.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Freshly Brewed Vol.1 (Fresh Lounge & Chill Tunes) (2016) [MP3|320 Kbps] <Ba
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244514.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Kainté Kountix (Kainte Kountix) - Assortiments (2019) EP [FLAC|Lossless|tracks 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244383.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Flaminia - Illusion In Fire (2018) Metempsychosis Records [FLAC|Lossless|WEB-DL|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244368.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ I/O - Calm (2001) Room40 [FLAC|Lossless|tracks+.cue] <Ambient, Minimal, Experime
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244359.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Get 2gether Deep House Vol.3 (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244354.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - House Nation Clubbing - Miami (2023) [MP3|320 Kbps] <House, Funky House, So
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244346.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Amsterdam Dance Night (2023) [MP3|320 Kbps] <Electronica, Melodic House & T
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244308.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - Cosy Lounge Vol.1: Smooth Weekend Tunes (2016) [MP3|320 Kbps] <Downtempo, C
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244246.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - Ibiza Winter (2016) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244229.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ V.A. - Lounge & Coffee, Vol. 4 (2023) [FLAC|Lossless|WEB-DL|tracks] <Easy Listen
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244218.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Doubtingthomas - The Changes (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Tech House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244197.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ VA - Underground Heroes Of Trance (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244156.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Timmy Trumpet - Live @ kineticFIELD, EDC Mexico (2022-02-27) [MP3|320 Kbps] <Big
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244113.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Otto Knows - Tomorrowland Friendship Mix (2022-03-10) [MP3|320 Kbps] <Progressiv
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244099.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ VA - Take Your Time (Chill Vibe) (2016) [MP3|320 Kbps] <Chillout, Lounge, Downte
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244053.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - Flower Blooms: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Bal
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243992.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ VA - 25 Years Technoclub Compilation (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243990.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ VA - 25 Years Technoclub Compilation (2023) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7803F381F920DFDCE6878DD508F209986B218970
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626199   (243984) от 13.04.2023
-
-VA - Katty Heath - 30 Vocal Trance Hits (2023) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dart Rayne with Katty Heath & Yura Moonlight - Stole The Sun (Allen & Envy Edit) (4:15)
-02. Kaimo K vs. Cold Rush & Katty Heath - Here I Am 2023 (Original Mix) (4:08)
-03. Allen Watts & Katty Heath - Break Without The Pain (Radio Edit) (3:23)
-04. BiXX & Katty Heath - Let The Love Shine Through (Original Mix) (3:47)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:53:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B516E9547CDBE94A82A280DF77A00B984F614866
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611195   (243982) от 11.02.2023
-
-VA - Keep It Trance Vol. 09 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Darroo - Another Dimension (Original Mix) [11:15]
-02. Airnova - End Game (Original Mix) [3:16]
-03. Matthew Dreamer - Believe (Extended Mix) [6:17]
-04. Raul Mad & Blue Sector - Cassiopeia (Extended Mix) [6:57](   Читать дальше...   )Жанр: TranceПродолжительность: 02:26:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0E8EFED5EACAD2C17CA89788B510F085F9D6C73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625843   (243978) от 13.04.2023
-
-Ghosthost - Testament of a Wretched Dogma (2023) [FLAC|Lossless|WEB-DL|tracks] <Darksynth, Synthwave, Industrial, Gothic-Horror>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Uriel 11-6 (00:01:14)
-02 - Wretched Dogma (00:05:02)
-03 - Crushing Weight of The Body (00:06:23)
-04 - Seraphim's Lost (00:06:07)(   Читать дальше...   )Жанр: Darksynth, Synthwave, Industrial, Gothic-HorrorПродолжительность: 01:11:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:270439D4635716183B5E1C11AFCDC6A137169A26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611318   (243947) от 11.02.2023
-
-VA - Happy Valentine's Day (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Chill Out, Lounge, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Foxtrot Effect - Perfect Weather (4:27)
-02. Solanos - Limoneros (4:26)
-03. Klasse Xxi - Essential Qualities (4:28)
-04. Wahr Heit - Chatoyant (4:28)(   Читать дальше...   )Жанр: Electronic, Chill Out, Lounge, DowntempoПродолжительность: 01:28:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D63535D0F918657DBF5AAD5A7EF1C89420AEDC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1466472   (1015770) от 16.05.2021
+
+Maneesh de Moor - Songs from the Tree of Light (2017) [FLAC|Lossless|WEB-DL|tracks] <World, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The All Seeing Eye
+02. Heal Your Soul
+03. Palo Volador
+04. Madre De La Selva(   Читать дальше...   )Жанр: World, MeditativeПродолжительность: 00:55:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C75F60D43A760609EC7105884195FFB841728132
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470776   (1015492) от 18.05.2021
+
+VA - Pilates and Yoga Music 2021 [FLAC|Lossless|WEB-DL|tracks] <New Age, Lounge>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robin Mahler - Natural Flow (3:18)
+02. Unique Chill - Little Me (2:30)
+03. Bella Element - Beach Living (2:52)
+04. Robin Mahler - The Great Wave off Kanagawa (2:34)(   Читать дальше...   )Жанр: New Age, LoungeПродолжительность: 00:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49007E63964ABE8475092A19C62A6B19A1A048C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1470592   (1015479) от 18.05.2021
 
 VA - We Love Yoga - 2021 Morning Blessings [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -6,7 +64,7 @@ VA - We Love Yoga - 2021 Morning Blessings [FLAC|Lossless|WEB-DL|tracks] <New Ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015479.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Shamanic Channel - Collection (2021) 4альбома [MP3|320 Kbps] <Native Amer
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015292.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Mirage - Classic Guitar Mood (1995) [FLAC|Lossless|tracks + .cue] <Instrumental,
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014887.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Nightwish - Imaginaerum (The Score) (2012) Unofficial Release [APE|Lossless|imag
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014260.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Elbosco - Angelis (1995) [FLAC|Lossless|image + .cue] <New Age, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014026.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Llynya - The Guiding Light - Celtic Mantras (2002) [FLAC|Lossless|image + .cue] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014013.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Aethera - The Caelic Mystery (2005) [FLAC|Lossless|image + .cue] <New Age, Celti
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013858.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Yiruma - f r a m e (2021) Reissue [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013522.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Ben Leinbach - The Spirit of Yoga (2003) [FLAC|Lossless|tracks + .cue] <New Age,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012935.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Roses Never Fade - Roses Never Fade (2009) [FLAC|Lossless|image + .cue] <Folk Ro
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012498.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011928.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Neal Schon - Universe (2020) Reissue, 2021, Neal Schon Music [FLAC|Lossless|trac
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011493.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ The Ugly Guys - Senior Moments (2018) [WavPack|Lossless|image + .cue] <Country R
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011359.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Fernand Deroussen - Islande: Carnet de voyage (2001) [FLAC|Lossless|tracks + .cu
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010005.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Peter Kater - Rapture (2021) [FLAC|Lossless|WEB-DL|tracks] <New age, Piano>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009293.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Piano Peace - Calm Piano & Ocean Waves (2021) [FLAC|Lossless|WEB-DL|tracks] <Ins
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008981.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Johnny Whitehorse - Totemic Flute Chants (2007) [FLAC|Lossless|tracks + .cue] <N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008723.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ David Arkenstone - Celtic Chillout Beats (2021) [FLAC|Lossless|WEB-DL|tracks] <N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008710.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Jivan Gasparian \Дживан Гаспарян - 33 Masterpieces (2010) 3CD Limi
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007872.jpg" />
 </div>
 
 
@@ -556,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007838.jpg" />
 </div>
 
 
@@ -585,7 +643,7 @@ Kárpátia (Karpatia) - Csatazaj (2021) [FLAC|Lossless|tracks + .cue] <Folk Rock
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007170.jpg" />
 </div>
 
 
@@ -614,7 +672,7 @@ Machu Picchu - La Colegiala (1990) Reissue, 1997,  Vilma [FLAC|Lossless|tracks +
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007159.jpg" />
 </div>
 
 
@@ -643,7 +701,7 @@ INXS - WRATH (2021) [FLAC|Lossless|Web-DL|tracks] <Alternative Rock, Pop Rock, N
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007142.jpg" />
 </div>
 
 
@@ -672,7 +730,7 @@ INXS - ORIGINAL SIN (2021) [FLAC|Lossless|Web-DL|tracks] <Alternative Rock, Pop 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007139.jpg" />
 </div>
 
 
@@ -686,64 +744,6 @@ INXS - ORIGINAL SIN (2021) [FLAC|Lossless|Web-DL|tracks] <Alternative Rock, Pop 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B395A7DFC90BCCDE90E5DF42A7454A0A4E29C964
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483706   (1006644) от 15.07.2021
-
-David Wilson - Dreams Of Hollywood Nights (1999) [FLAC|Lossless|image + .cue] <Instrumental Pop, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006644.jpg" />
-</div>
-
-
-###  Подробнее
-
-David Wilson начал свою профессиональную карьеру в середине 80-х, играя каждую ночь в ресторанах и кафе Beverly Hills, California. Здесь он выступал для голливудских знаменитостей, профсоюзных и политических деятелей, спортсменов, артистов, писателей, всех тех, кто объединен словом бомонд. И если человек талантлив, то рано или поздно, он будет замечен в любом случае. (   Читать дальше...   )01. Charade (3:19)
-02. The Days of Wine and Roses (3:48)
-03. Two for the Road (3:07)
-04. Slow Hot Wind (4:49)(   Читать дальше...   )Жанр: Instrumental Pop, Easy ListeningПродолжительность: 00:43:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B67F44F273033E4ABC7835B3958ADE09CC903622
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483979   (1006504) от 16.07.2021
-
-Ансамбль солистов "Русский фестиваль" -  Музыка Цыганкова, Трояновского, Иванова, а также  русские народные песни. (1993) [FLAC|Lossless|image + .cue] <Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Цыганков - Русский сувенир (попурри) (6:50)
-02. Жар - Тема Лары из музыки к к/ф "Доктор Живаго" (3:58)
-03. Цыганков - Мар дяндя (2:42)
-04. Фомин-Подревский - Дорогой длинною (романс) (4:24)(   Читать дальше...   )Жанр: FolkПродолжительность: 01:10:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D10EA6348041E2E0E49B65D343EB4EA4843ED81
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1356231   (980497) от 29.01.2020
+
+Lorne Balfe - Bad Boys for Life / Плохие парни навсегда (Original Motion Picture Score) (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Soundtrack>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Boys for Life (02:47)
+02. It's Good Shit Lieutenant (03:19)
+03. Take Back What's Ours (02:09)
+04. We're Dangerous People (03:46)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:39:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:400EFB816888870B2B2DCFDDF360D75D438CBDA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356271   (980489) от 29.01.2020
+
+Sonya Belousova, Giona Ostinelli - The Witcher / Ведьмак (Music from the Netflix Original Series) (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Soundtrack>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980489.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sonya Belousova, Giona Ostinelli, Joey Batey - Geralt of Rivia (01:52)
+02. Sonya Belousova, Giona Ostinelli - Toss A Coin To Your Witcher (03:10)
+03. Sonya Belousova, Giona Ostinelli, Rodion Belousov - Happy Childhoods Make For Dull Company (03:17)
+04. Sonya Belousova, Giona Ostinelli, Declan de Barra, Lindsay Deutsch - The Time of Axe and Sword Is Now (04:57)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 03:03:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B11BB7F7FF08DACE5C7B90424983C888B5C662F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356229   (980356) от 29.01.2020
 
 Lorne Balfe, VA - Bad Boys for Life / Плохие парни навсегда (Original Score + The Soundtrack) (2020) [MP3|320 кб/с] <Soundtrack, Score>
@@ -6,7 +64,7 @@ Lorne Balfe, VA - Bad Boys for Life / Плохие парни навсегда (
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980356.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Bennett Salvay - Peaceful Warrior / Мирный воин (Original Motion Pictu
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980258.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Yuki Kajiura - Akiresu to kame (Ахиллес и черепаха) (2008) [OGG|
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980256.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Jim Brickman - Grace (2005) [FLAC|Lossless|tracks + .cue] <New Age, Solo Piano>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980253.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Paul Cardall - Saving Tiny Hearts (2014) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979263.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Marco Beltrami & Brandon Roberts - Underwater / Под водой (Original Moti
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979122.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Marco Beltrami & Brandon Roberts - Underwater / Под водой (Original Moti
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979110.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Briza (David Arkenstone) - Ambient Cafe (2006) [FLAC|Lossless|image + .cue] <New
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979005.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Almudena Merino Mino - Dejolull, La Cepa Magica (2015) [MP3|320 кб/с] <New Ag
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978942.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Ennio Morricone - The Good, the Bad and the Ugly (1966) / Хороший, пло
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978790.jpg" />
 </div>
 
 
@@ -302,7 +360,7 @@ Lorne Balfe, VA - Bad Boys for Life / Плохие парни навсегда (
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978728.jpg" />
 </div>
 
 
@@ -331,7 +389,7 @@ VA - Women's Songs - Native Traditions (2011) [MP3|320 Kbps] <Native American>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978723.jpg" />
 </div>
 
 
@@ -360,7 +418,7 @@ Lorne Balfe - Mission Impossible: Fallout / Миссия невыполнима 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978608.jpg" />
 </div>
 
 
@@ -389,7 +447,7 @@ Lorne Balfe - Mission Impossible: Fallout / Миссия невыполнима 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978544.jpg" />
 </div>
 
 
@@ -418,7 +476,7 @@ Lorne Balfe - Bad Boys for Life / Плохие парни навсегда (Orig
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978539.jpg" />
 </div>
 
 
@@ -447,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978291.jpg" />
 </div>
 
 
@@ -479,7 +537,7 @@ Justin Kaleb Driggers - Homesick Blues (2015) [MP3|320 кб/с] <Country Rock>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978184.jpg" />
 </div>
 
 
@@ -508,7 +566,7 @@ VA - Los clasicos argentinos Tango - Vol.06 (1996) [MP3|128 кб/с] <Tango>
 >>Other
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978150.jpg" />
 </div>
 
 
@@ -537,7 +595,7 @@ Rob - Gretel & Hansel / Гретель и Гензель (Original Motion Pictur
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978002.jpg" />
 </div>
 
 
@@ -566,7 +624,7 @@ Rob - Gretel & Hansel / Гретель и Гензель (Original Motion Pictur
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977949.jpg" />
 </div>
 
 
@@ -595,7 +653,7 @@ Ah Nee Mah (Diane & David Arkenstone) - Ancient Visions (2005) [FLAC|Lossless|im
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976958.jpg" />
 </div>
 
 
@@ -624,7 +682,7 @@ Glenn D. Wright & R. Arduini - Best Of New Age (2CD) (1999) [MP3|320 кб/с]<Ne
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976836.jpg" />
 </div>
 
 
@@ -659,7 +717,7 @@ Thomas Newman - 1917 (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/�
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976765.jpg" />
 </div>
 
 
@@ -688,7 +746,7 @@ Era - The Mass (2003) SACD [FLAC|Lossless|tracks + .cue] <New Age, Modern Classi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976718.jpg" />
 </div>
 
 
@@ -702,64 +760,6 @@ Era - The Mass (2003) SACD [FLAC|Lossless|tracks + .cue] <New Age, Modern Classi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCA7DB4B211A8132AB2F552F1E24191575CA9B8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974808   (975681) от 12.01.2016
-
-Michele McLaughlin - Undercurrent (2015) [MP3|320 кб/с] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 11.000 Miles
-02. Living In Awe
-03. Changing Skies
-04. Full Of Love(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A5BAD5BFA2A38F4AA57AFB46B967D8EC9984152
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357094   (975610) от 02.02.2020
-
-Marco Beltrami & Buck Sanders, VA - Ford V Ferrari / Ford против Ferrari (Original Soundtrack + Original Score - FYC) (2019) [MP3|320 кб/с] <Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shelby Races Le Mans (01:37)
-02. Shelby Drives Mulholland (01:29)
-03. Ford Arrives (00:41)
-04. Lee's Got An Idea (00:26)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 01:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB9EB5EF6CBF20FB40F42016DFC1F80FED2101F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

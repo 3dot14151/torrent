@@ -1,135 +1,3 @@
-###  Публикация: 1434863   (147561) от 26.12.2020
-
-Роберт Ф. Шмидт и др. | Физиология человека с основами патофизиологии [В 2-х томах] [2-е издание] (2021) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему возникает жажда? Почему мы должны спать? Почему без дыхания мы не проживем и пяти минут? В этой, ставшей для многих настольной, книге вы узнаете, как «работает» человеческий организм. В ней раскрывается множество тем, в частности физиология клеточного дыхания, работы головного мозга, сердца и почек. Студенты найдут здесь все, что необходимо для учебы. Авторы, (   Читать дальше...   )Жанр: Анатомия и физиология, Учебники и пособия для вузовПеревод: А.Ю. Головина, Д.И. Земледельцев, К.Л. ТарасовФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:392B939C172BF2BCC6ECEE684EF51E3199BD8672
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969254   (147523) от 27.12.2015
-
-Константин Романенко | Борьба и победы Иосифа Сталина. Тайны «Завещания Ленина» (2007) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скрупулезно сопоставляя известные факты и новые документы, автор аргументированно разрушает устоявшиеся мифы, более полувека искажавшие личность И. В. Сталина. В книге исследуются и вскрываются мотивы и действительные причины его поступков и решений. Такой подход позволил впервые в историографии раскрыть историю происхождения политического имени вождя.Жанр: Биографии и МемуарыФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A44ED582AABF1DDA5844D35CF69A803A14C5D4FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969424   (147424) от 27.12.2015
-
-В.И. Коломин | Механика (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дана минимальная теория, составляющая фундаментальное ядро физических знаний, включающее главные содержательные линии фундаментального физического образования: предметную, мировоззренческую и методологическую, которые являются основными ориентирами в формировании профессиональной компетентности будущего специалиста.
-Большое количество задач различной сложности с (   Читать дальше...   )Жанр: ФизикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B492B296C17BF7BE8F0687F7075D37176D0C5F7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969555   (147401) от 27.12.2015
-
-С. Дробязко | Вторая Мировая война 1939-1945 (2006) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147401.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена центральному событию военной истории ХХ века. Она включает краткие сведения о вооруженных силах всех стран - участниц войны, описания ключевых кампаний и операций на разных театрах военных действий от Атлантики до Тихого океана, а также биографии наиболее выдающихся военачальников противоборствующих сторон.
-Издание содержит множество великолепных (   Читать дальше...   )Жанр: Военная исторяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA065A1523B3FE71078E1DDCE1F7C13919C54B34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435050   (147362) от 26.12.2020
-
-Н.М. Брель, Н.А. Пославская | Английский язык. Базовый курс (2021) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147362.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник имеет ярко выраженную практическую и коммуникативную направленность и позволяет в короткие сроки набрать необходимый для полноценного общения и дальнейшего изучения английского языка объем грамматики и лексики. Все главы основного курса сюжетно связаны между собой, что поможет избежать монотонности при изучении учебного материала. Соответствует ФГОС СПО последнего (   Читать дальше...   )Жанр: Иностранный языкФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BB0C7011749A36CD48D5832651B34D0C6720D17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347892   (147356) от 25.12.2019
 
 Роберт Айкс | Великие танковые сражения. Стратегия и тактика. 1939-1945 (2008) [FB2, EPUB, MOBI]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147356.jpg" />
 </div>
 
 
@@ -164,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147349.jpg" />
 </div>
 
 
@@ -190,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147303.jpg" />
 </div>
 
 
@@ -216,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147268.jpg" />
 </div>
 
 
@@ -242,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147267.jpg" />
 </div>
 
 
@@ -268,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147253.jpg" />
 </div>
 
 
@@ -294,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147222.jpg" />
 </div>
 
 
@@ -320,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147214.jpg" />
 </div>
 
 
@@ -346,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147212.jpg" />
 </div>
 
 
@@ -372,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147187.jpg" />
 </div>
 
 
@@ -398,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147135.jpg" />
 </div>
 
 
@@ -424,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147121.jpg" />
 </div>
 
 
@@ -450,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147100.jpg" />
 </div>
 
 
@@ -477,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147079.jpg" />
 </div>
 
 
@@ -505,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147041.jpg" />
 </div>
 
 
@@ -532,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147002.jpg" />
 </div>
 
 
@@ -558,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146953.jpg" />
 </div>
 
 
@@ -584,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146944.jpg" />
 </div>
 
 
@@ -612,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146928.jpg" />
 </div>
 
 
@@ -639,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146881.jpg" />
 </div>
 
 
@@ -665,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146842.jpg" />
 </div>
 
 
@@ -676,6 +544,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4CB062FE92CBF98D9921B3F63497939092C6971
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519775   (146807) от 25.12.2021
+
+В.П. Олофинская | Техническая механика. Курс лекций с вариантами практических и тестовых заданий (2017) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемая книга представляет курс лекций по двум разделам технической механики – «теоретическая механика» и «сопротивление материалов». Каждый раздел содержит варианты практических занятий по основным темам. Данное учебное пособие можно использовать для самостоятельного изучения дисциплины «Техническая механика», в частности при заочном обучении, а так же при (   Читать дальше...   )Жанр: Техническая механикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6A6A07BF4943A7CC853660997ACF7D5F84E4C2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969409   (146706) от 27.12.2015
+
+Григорий Вейхман | Разговорный английский. Канада. Австралия. Новая Зеландия (+ MP3) (2014) [PDF, MP3]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146706.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге  вы найдёте актуальную информацию о современном английском, на котором говорят в Канаде, Австралии, Новой Зеландии, его специфике и особенностях. С её помощью вы узнаете много интересного об этих странах и сможете легко общаться с их жителями и комфортно чувствовать себя там!  Книга предназначена для тех, кто изучает английский язык на курсах и самостоятельно, (   Читать дальше...   )Жанр: Английский языкФормат: PDF, MP3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:718194EAFE9DAC4F125F74B2F9389069738595EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 622126   (146633) от 25.12.2018
+
+Иван Прыжов | История кабаков в России в связи с историей русского народа (Раритетное издание) [1868] [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор книги - русский историк, исследователь народного быта Иван Гаврилович Прыжов (1827-1885). Предлагаемый Вашему вниманию труд является частью амбициозного, но так и нереализованного автором грандиозного исследования о русской (славянской) культуре. Прыжов хотел «на основании законов исторического движения... проследить все главные явления народной жизни, и каждое (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC6A7F7134477E6140146EEAF50C2E575DC361CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678242   (146569) от 20.11.2023
+
+В.И. Суханов | Разработка веб-приложений на платформе Spring (2023) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146569.jpg" />
+</div>
+
+
+###  Подробнее
+
+Последовательно рассматриваются концепции современных платформ Spring, Spring Boot, Angular, популярных у профессиональных разработчиков высоконагруженных веб-приложений. Материал пособия основан на оригинальной документации разработчиков инструментальных средств, на публикациях описаний технологий программирования в интернет-ресурсах и проверенных автором примерах (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Урал.ФУФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0C3BB2A61E47C228A602EBFAC6BC66A3EDA0CAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271987   (146539) от 25.12.2018
+
+В.А. Могилевцев (сост.) | Анатомия фигуры человека. Краткое пособие для художников (2015) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга подготовлена на кафедре академии художеств им. И. Е. Репина под руководством профессора В. А. Могилевцева. Пособие предназначено для практических занятий во время учебного процесса. Снабжено рисунками, таблицами, репродукциями классических произведений и кратким перечнем мышц. Компактная структура издания – все необходимое на одном развороте – позволяет сопоставить (   Читать дальше...   )Жанр: Изобразительное искусствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B06AC3DF8ACFAEB1E8637DB941D5202E9FE7DE1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

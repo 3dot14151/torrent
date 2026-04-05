@@ -1,3 +1,32 @@
+###  Публикация: 1337117   (276028) от 09.11.2019
+
+Andrea Bocelli - Si Forever (2019) The Diamond Edition [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alla Gioia (Ode To Joy)
+02. Return To Love (feat. Ellie Goulding)
+03. Un Rêve De Liberté ("Ali di Liberta'" French Version)
+04. Ragazzo Mio (Danny Boy)(   Читать дальше...   )Жанр: Classical CrossoverПродолжительность: 00:59:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62EF8AA170066A7063C57084844A1D7EACB75EED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337459   (273624) от 11.11.2019
 
 New London Chorale - The Collection Vol.2 (2003) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, Pop, Ballad>
@@ -6,7 +35,7 @@ New London Chorale - The Collection Vol.2 (2003) [FLAC|Lossless|WEB-DL|tracks] <
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273624.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Annie Haslam - Still Life (1985) Limited Edition, Reissue, 1999, Kankard [FLAC|L
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270187.jpg" />
 </div>
 
 
@@ -65,7 +94,7 @@ Peter Hahn & Anna Maria Kaufmann - CD1 Musical (2010) [FLAC|Lossless|image + .cu
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269689.jpg" />
 </div>
 
 
@@ -94,7 +123,7 @@ Katherine Jenkins - Guiding Light (2018) [FLAC|Lossless|WEB-DL|tracks] <Classica
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269147.jpg" />
 </div>
 
 
@@ -123,7 +152,7 @@ Opera Babes ‎ - Beyond Imagination (2002) [FLAC|Lossless|image + .cue] <Classi
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268122.jpg" />
 </div>
 
 
@@ -152,7 +181,7 @@ Peter Hahn & Anna Maria Kaufmann - CD2 Opera (2010) [FLAC|Lossless|image + .cue]
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266082.jpg" />
 </div>
 
 
@@ -181,7 +210,7 @@ Vanessa Mae - The Violin Player [1995][APE]
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265538.jpg" />
 </div>
 
 
@@ -210,7 +239,7 @@ VA - Relaxing Christmas (2017) [FLAC|Lossless|WEB-DL|tracks] <Classical Music>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264397.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Stoa - 4 albums (1993-2008) [FLAC|Lossless] <Neoclassical, Ethereal>
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259928.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ Ophelia's Dream - 3 albums (1997-2004) [FLAC|Lossless] <Neoclassical, Ethereal, 
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259870.jpg" />
 </div>
 
 
@@ -308,7 +337,7 @@ Víkingur Ólafsson, Beethoven, Bach, Schubert - Opus 109 (2025) [FLAC 24/192|Lo
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259868.jpg" />
 </div>
 
 
@@ -335,7 +364,7 @@ Dargaard - 4 albums (1998-2004) [FLAC|Lossless] <Darkwave, Ethereal, Neoclassica
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259384.jpg" />
 </div>
 
 
@@ -368,7 +397,7 @@ VA - Золотая классика. Популярные версии (5CD) (2
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258955.jpg" />
 </div>
 
 
@@ -394,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258824.jpg" />
 </div>
 
 
@@ -422,7 +451,7 @@ Slava Romanchenko - Impressions (2012) [MP3|320 кб/с]<Neoclassic/ Instrumenta
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258619.jpg" />
 </div>
 
 
@@ -457,7 +486,7 @@ Grabesmond - 2 albums (1997-1999) [FLAC/APE|Lossless] <Medieval, Neoclassical, E
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_257435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_257435.jpg" />
 </div>
 
 
@@ -492,7 +521,7 @@ VA - The Classical Album (2011) 2CD [MP3|320 кб/с]<Classical, Vocal, Choral M
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256125.jpg" />
 </div>
 
 
@@ -518,7 +547,7 @@ Daemonia Nymphe - 4 albums (2002-2007) [FLAC|Lossless] <Neofolk, Neoclassical, E
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255724.jpg" />
 </div>
 
 
@@ -553,7 +582,7 @@ Louisa John-Krol - 7 albums (1996-2008) [FLAC|Lossless] <Ethereal, Folk, Neoclas
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255709.jpg" />
 </div>
 
 
@@ -588,7 +617,7 @@ VA - Uplifting Classical Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255668.jpg" />
 </div>
 
 
@@ -617,7 +646,7 @@ Rondo Veneziano - Rondo Veneziano - My Best (8CD) (2010) [FLAC|Lossless]<Neoclas
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254407.jpg" />
 </div>
 
 
@@ -646,7 +675,7 @@ Andre Rieu and his Johann Strauss Orchestra - Thank You, Johann Strauss! (2025) 
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254287.jpg" />
 </div>
 
 
@@ -675,7 +704,7 @@ VA - Niccolo PAGANINI - Complete Chamber Music (2007) [APE|Lossless]<Classical, 
 >>Полные собрания сочинений (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253866.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ Johann Sebastian Bach – Violin Concertos BWV 1041-1043: VA, La Petite Bande, v
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253771.jpg" />
 </div>
 
 
@@ -736,7 +765,7 @@ Johann Sebastian Bach - Violin Concertos Nos.1&2 Double Concerto (BWV 1041-43, 1
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253742.jpg" />
 </div>
 
 
@@ -756,33 +785,6 @@ Concerto for 2 Violins in D minor, BWV 1043
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D37F50402228A509D3829093203D05FF9C70702C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496743   (253218) от 15.05.2012
-
-Johann Sebastian Bach - Violin Concertos BWV 1041, BWV 1042, BWV 1043, BWV 1060: Isaac Stern, New York Philarmonic, conductor Leonard Bernstein (1717-1726) /1995, Sony/ [APE|Lossless]<Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concerto for Violin and Orchestra in A Minor BWV 1041:
-1. I.Жанр: ClassicalПродолжительность: 01:08:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10063B931DA8E76025AC1B64A2A1A9F13B8230FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Paul Bley Trio - Closer (1965) 2008, ESP Disk [FLAC|Lossless|tracks + .cue] <Ava
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237517.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Red Nichols - 1925 - 1927 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237494.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Ethan Philion - Meditations On Mingus (2022) Sunnyside [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237492.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Chucho Valdes - Tumi Sessions (2007) Tumi Music [FLAC|Lossless|tracks + .cue] <A
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237483.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Gabriele Mirabassi & Simone Zanchini - Il gatto e la volpe (2021) Egea [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237471.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Lou Bennett - Enfin! (1963) 1997, RCA Victor [FLAC|Lossless|tracks + .cue] <Hard
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237464.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ The Herb Geller Sextette -  The Herb Geller Sextette (1955) 2005, Membran Music 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237446.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Karin Krog & Laila Dalseth, Per Borthen Swing Department Ltd. - Swingin' (1999) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237383.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Wilbur De Paris And His New New Orleans Jazz - Marchin' And Swingin' (1952) 2005
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237369.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Benny Goodman - The Essential Benny Goodman (1937 - 1958) 2CD, 2015, Not Now Mus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237356.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ The Ruby Braff Trio - Me, Myself And I (1989) Concord Jazz [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237348.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Roy Eldridge - Classic Jazz Archive 1935 - 1945 (2004) 2CD, Membran Music [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237323.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Buck Clayton - Goin' To Kansas City (1960) 1990, Original Jazz Classics [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237212.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Phil Woods - Rights Of Swing (1961) 2001, King Record [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237205.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Willie ''The Lion'' Smith - 1937 - 1938 (1992) Classics [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237204.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Relaxing Piano Crew - Jazz Ballad Piano Played in a Hideaway Restaurant (2022) [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237194.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Fats Waller - 1936 - 1937 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237192.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Fats Waller - 1937 - 1938 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236977.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Chris Standring - The Lovers Remix Collection (2023) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236972.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Johnny Smith - The Classic Roost Album Collection (1955 - 1960) 4CD, 2020, Enlig
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236964.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Tom Harrell - Moving Picture (2017) HighNote [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236960.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Sadao Watanabe - California Shower (1978) 2003, JVC [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236926.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Pete La Roca - Basra (1965) 2015, Blue Note [FLAC|Lossless|tracks + .cue] <Hard 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236911.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Joe Chambers - Dance Kobina (2023) Blue Note [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236901.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Olga Konkova, Carl Morten Iversen, Audun Kleive - Going With The Flow (1997) Cur
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236893.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Shelly Manne & His Men - Boss Sounds! (1966) 2012, Atlantic [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236856.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ DSLR Assistant 3.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222719.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Allegorithmic Substance Alchemist 2019.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222711.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ RightFont 2.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222681.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ balenaEtcher for macOS 1.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222648.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ TechSmith Camtasia 2021 Studio 2021.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222596.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Boxy SVG 4.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222563.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222560.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ SizeUp 1.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222463.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ GM CHM Reader Pro for Mac 2.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222433.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Vox 2.6.6 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222428.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Adobe Media Encoder 2020 v14.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222219.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ RAR Extractor  - Unzi‪p‬ 11.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222100.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Pixelmator 3.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222064.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ LRTimelapse Pro 4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222051.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Rhinoceros 7 v.7.32 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222037.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Fig Player - play mp4 mkv mp3 for Mac 1.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222030.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ PDF Reader Pro Edition 2.7.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222021.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Video Converter X2 for Mac 1.2.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221963.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Things 3.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221891.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ PDF Expert 2.4.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221880.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Adobe Audition 2020 v13.0.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221846.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ SuperDuper! 3.3.1 (v121) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221796.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Soulver 3.1.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221555.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Adobe InCopy 2020 15.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221494.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Clipboard Manager 2.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221475.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Adobe Acrobat Pro  20.013.20064 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221474.jpg" />
 </div>
 
 

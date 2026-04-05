@@ -1,3 +1,84 @@
+###  Публикация: 957497   (327361) от 17.11.2015
+
+Тарас Асачев | Палач (2015) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла «Тёмная сторона».
+Можно ли рассчитывать на новую жизнь? Желать чего то нового, приключений, любви и друзей. Новая жизнь - мечта и романтика. Можно об этом желать, сели все так как вы планируете. А если новая жизнь будет без вашей памяти, там где вы не рассчитывали появиться? Уже не очень? А если судьба решит иначе, за вас? и вы появитесь в странном (   Читать дальше...   )Жанр: ФантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49A8E0DAD2E5132E67068946CAA5CDCC56BE87D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954983   (326320) от 18.11.2015
+
+Райкар | Бета-тест Альверон [Обновляемая] (2015) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение истории виртуального мира "Альверон" и людей в нем запертых.
+
+«Последние три дня выдались весьма насыщенными для нашего клана. Так как городской рейд не остался без последствий. Пятнадцатиметровый провал в верхней части Арманда, породил настающую вакханалию среди городских жителей. Хорошо хоть сам хозяин ухнувшего вниз двухэтажного дома остался (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D761BF66EA827E5496062459ABBA1C3F7161BAB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957302   (326311) от 18.11.2015
+
+Любовь Тильман | Отголоски [Эксклюзивный релиз] (2015) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326311.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уважаемые читатели! Представляю Вашему вниманию очередной сборник рифмованных и прозаических произведений. Здесь, как и в предыдущих моих книгах, собраны рассказы и заметки, короткие замечания, стихи для взрослых и детей. Добавлены две небольшие рубрики: «В словарик иностранца» и «5.7.5». 99% вошедших текстов написаны в период: июль 2014 – июнь 2015. Хочется верить, (   Читать дальше...   )Жанр: Современная проза, поэзия, юморФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28276B49ECD54B57624ADB8C9396A8974976E4E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957943   (325680) от 19.11.2015
 
 Елена Звёздная | Леди Ариэлла Уоторби (2015) [FB2]
@@ -6,7 +87,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325680.jpg" />
 </div>
 
 
@@ -34,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325623.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323988.jpg" />
 </div>
 
 
@@ -88,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323811.jpg" />
 </div>
 
 
@@ -116,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323739.jpg" />
 </div>
 
 
@@ -142,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323658.jpg" />
 </div>
 
 
@@ -168,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322784.jpg" />
 </div>
 
 
@@ -196,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322642.jpg" />
 </div>
 
 
@@ -222,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321660.jpg" />
 </div>
 
 
@@ -248,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321619.jpg" />
 </div>
 
 
@@ -274,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321445.jpg" />
 </div>
 
 
@@ -300,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321428.jpg" />
 </div>
 
 
@@ -329,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321366.jpg" />
 </div>
 
 
@@ -355,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321263.jpg" />
 </div>
 
 
@@ -381,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321262.jpg" />
 </div>
 
 
@@ -407,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321243.jpg" />
 </div>
 
 
@@ -435,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321235.jpg" />
 </div>
 
 
@@ -461,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321199.jpg" />
 </div>
 
 
@@ -490,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321093.jpg" />
 </div>
 
 
@@ -516,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321067.jpg" />
 </div>
 
 
@@ -543,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321062.jpg" />
 </div>
 
 
@@ -571,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321059.jpg" />
 </div>
 
 
@@ -600,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321049.jpg" />
 </div>
 
 
@@ -611,86 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E817C6F3E34F151E11C744AB64CD1EC50C4D0F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181906   (321034) от 08.11.2017
-
-Дмитрий Распопов, Алексей Петров | Проект «ВКокон» (2017) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ты охранник в магазине. Твоя жизнь сплошная чёрная полоса из ипотеки, маленькой зарплаты и злюки-жены, и казалось, что всё, на годы вперёд всё так и останется, если бы не старый друг и испытание нового проекта военных с полным погружением в игру с миром пережившим ядерную катастрофу. Тут и новые знакомства и отличный заработок, к тому же можно вспомнить старые игровые (   Читать дальше...   )Жанр: Боевая фантастика, LitRPGФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:229CFED7B321F8ADB0A5B0E1DE5FF08B131ACD38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074989   (320806) от 22.11.2016
-
-Лора Джо Роулэнд | Смертельное прикосновение (2006) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время скачек в замке Эдо начальник службы разведки сегуна, Эджима Сенцаемон, падает мертвым. Смерть высокопоставленного чиновника приказано расследовать Сано Исиро.
-В то же время, жена Сано, Рейко, присутствует на судебном процессе, где красивая молодая женщина обвиняется в смерти своих родителей и сестры.
-Женщина призналась, но судья задерживает свой вердикт (   Читать дальше...   )Жанр: Исторический детективПеревод: literatuare.blogspotФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD97D07F9866E1C0D43ACB048DE4544657A866AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259283   (320623) от 03.11.2018
-
-Алексей Рудаков | Цикл «Знак Василиска» [3 книги] (2017-2018) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Избежав смерти на костре инквизиции, вольный пилот Поп оказывается на борту Имперского эсминца, ведущего бой с превосходящими силами противника. Начав осваиваться в новом мире, он вербуется поваром на борт транспортного корабля, не подозревая, что именно этот корабль, точнее его груз, стал объектом внимания Братства — пиратского союза этой галактики. Её правитель, (   Читать дальше...   )Жанр: Героическая фантастика, Космическая фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3A184F65937C14151B9AEC5B82310B2478D1E29
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1462444   (241056) от 14.04.2021
+
+RAC - RAC_UNRELEASED (2020) [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro, Breakbeat, Acid>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. UNTITLED_UNR (07:12)
+ 02. TRYBE_UNR (06:18)
+ 03. STORM_UNR (05:16)
+ 04. AQUAPLANE_UNR (06:49)(   Читать дальше...   )Жанр: Techno, Electro, Breakbeat, AcidПродолжительность: 01:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E462DC1B89C9E1163E7C351AB5DAD7856495B55F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462470   (241052) от 14.04.2021
+
+Lyrus - Found In (2019) Touched Music [FLAC|Lossless|WEB-DL|tracks] <IDM, Leftfield, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Headria (03:45)
+ 02. You Solve Me, Sucka' (03:36)
+ 03. Skiesthatmissus (04:53)
+ 04. Omnidirectional Biatchnal (04:29)(   Читать дальше...   )Жанр: IDM, Leftfield, AmbientПродолжительность: 01:09:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCDECA31D57D4342A638C3AB7C86C6B73DC2116B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631338   (241015) от 05.05.2023
+
+VA - Keep It Trance Vol. 11 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. #LoopMonkeys - The Smell (Original Mix) [7:46]
+02. 06R - One Night Snow (Original Mix) [7:04]
+03. 10Stage - My Heart & Soul (Cold Rush Remix) [7:45]
+04. 13 Region - Second Impulse (Original Mix) [6:51](   Читать дальше...   )Жанр: TranceПродолжительность: 02:31:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C826A716BC147B9878327695CD7A1C9D549138F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548467   (240994) от 02.05.2022
+
+Primer - Incubator (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Technopop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Impossible Thoughts (00:03:28)
+02 - Just a Clown (00:03:42)
+03 - If You Need Me (00:03:32)
+04 - Giving Up (00:03:53)(   Читать дальше...   )Жанр: Synthpop, TechnopopПродолжительность: 00:36:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22739B248AD8CDC1A4907FAA1907C287A356A309
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619944   (240961) от 18.03.2023
 
 VA - Trance On The Beach 2023 (2023) [MP3|320 Kbps] <Trance>
@@ -6,7 +122,7 @@ VA - Trance On The Beach 2023 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240961.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Spirit of Trance, Vol. 1 (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240936.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - 6 Years Label Anniversary, Pt. 1 (2023) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_240881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_240881.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - 6 Years Label Anniversary, Pt. 2 (2023) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240871.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Kryder & DEADLINE - Kryteria Radio 286 (2021-04-14) [MP3|192 Kbps] <House, Progr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240850.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Armin van Buuren - A State Of Trance 1116 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240844.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Daniel Avery - More Truth (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electron
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240813.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Black Hole Trance Music 04-23 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240789.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Future Vocal Trance Vol. 1 (2023) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240773.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Smouldering Embers of Aggression - Ghosted (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240651.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ RÜFÜS DU SOL (RUFUS DU SOL) - Collection 7 Releases (2014-2022) [FLAC|Lossless
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240581.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Artist Showcase 2020/21 (2020) Point Source Electronic Arts [FLAC|Lossless|
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240450.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Locust Toybox - When We Implode (2021) [FLAC|Lossless|WEB-DL|tracks] <Leftfield,
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240334.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - Chill & Dance Hits 2023 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240291.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Midnight Fury - Metamorph (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retro
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240184.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - The Best Of Scorchin' Vol. 1 (Mixed By Super8 & Tab) (2023) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240109.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ VA - Sirup Miami 2023 [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240101.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ VA - Ibiza Deep House Megamix (2023) [MP3|320 Kbps] <House, Deep House, Dance, C
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240087.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ VA - Clubbers Culture: Car Audio Trance (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240072.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Space - Deeper Zone (1980) 1996, PolyGram [FLAC|Lossless|image + .cue] <Electro,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239967.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Blush Response - Neuroscape (2023) [MP3|320 Kbps] <Industrial, Techno>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239882.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Röyksopp (Royksopp) - Profound Mysteries II (2022) [FLAC|Lossless|tracks + .cue
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239849.jpg" />
 </div>
 
 
@@ -629,121 +745,6 @@ Röyksopp (Royksopp) - Profound Mysteries II (2022) [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AFA076A5B53FB0B703D6A2B484E07DEF0B1F3F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467422   (239821) от 03.05.2021
-
-Biodub - Minutenschlaf EP (2012) Tiefenrausch [FLAC|Lossless|WEB-DL|tracks] <Dub Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 7pm September Light (10:36)
- 02. Mangroove (05:41)
- 03. Minutenschlaf (07:48)Жанр: Dub TechnoПродолжительность: 00:24:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEE3FE5A21331D8113C15E140CAC96946C5DA0F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626778   (239759) от 17.04.2023
-
-Cybermode Beats - 3 Albums (2023) [MP3|320 Kbps] <Cyberpunk, Dark Electro, Dark Techno>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Splinter Mind [00:04:34]
-02. Anarchy Shards [00:05:05]
-03. Mindmelt [00:04:09]
-04. The Void Overlord [00:05:06](   Читать дальше...   )Жанр: Cyberpunk, Dark Electro, Dark TechnoПродолжительность: 3 CD, 04:33:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24ACD7AD029A1181618DA403F243CE61994895B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635219   (239709) от 26.05.2023
-
-VA - Silent Shore Trance - Essential Classics Vol. 2 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ReOrder & JayCan - Sunset On Biana Beach (Original Mix) [7:59]
-02. Estigma & Irena Love - Cinnamon Sunday (ReOrder Sunrise Mix) [7:33]
-03. Dave Deen - Footprints (Original Mix) [7:00]
-04. Norland - Cloudwalking (Original Mix) [7:04](   Читать дальше...   )Жанр: TranceПродолжительность: 01:20:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4A0BAD6D6F6E30765DA6779D4025AFC74B1F780
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635336   (239693) от 26.05.2023
-
-VA - Levitated - Trance Essentials Vol. 2 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Allen Belg - Hammamet (Original Mix) [6:32]
-02. Derek Palmer - Sands Of Time (Mhammed El Alami Remix) [7:06]
-03. Blue5even - Island Paradise (Beatsole Remix) [7:48]
-04. Bernis - Constellation (Original Mix) [7:14](   Читать дальше...   )Жанр: TranceПродолжительность: 01:11:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D52A3BC4570692BBE20680F9BBDA152567CEAD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

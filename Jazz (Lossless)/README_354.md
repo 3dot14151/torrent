@@ -6,7 +6,7 @@ Bennie Green - Soul Stirrin' (1958) 1997, Blue Note [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67030.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Ella Fitzgerald - Like Someone In Love (1957) 1991, Verve Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67016.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Coleman Hawkins With Billy Byers And His Orchestra - The Hawk In Hi-Fi (1956) 20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67012.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Roy Eldridge And Dizzy Gillespie - Roy And Diz (1954) 1994, Verve Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67004.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Evan Christopher - Django a la Creole (2008) Lejazzetal [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66971.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Jimmy Scott - Falling In Love Is Wonderful (1962) 2002, Rhino Handmade [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66955.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Keiko Lee - Voices (2002) Sony Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66946.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Ken (Kenny) Wheeler & The John Dankworth Orchestra - Windmill Tilter: The Story 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66868.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Art Blakey - Four Classic Albums: Second Set (1958 - 1961) 2CD, 2017, Avid Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66855.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Boney James - Slow Burn (2024) [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66852.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Lewis Nash - Stompin' At The Savoy (2005) M&I Jazz [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66831.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Brother Jack McDuff - Gin And Orange (1969) 2008, Dusty [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66801.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Ahmed Abdul-Malik - Four Classic Albums (1958 - 1962) 2CD, 2017, Avid Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66708.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Kenny Dorham - Four Classic Albums: Second Set (1955 - 1961) 2CD, 2018, Avid Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66707.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Chris Connor - Four Classic Albums Plus (1953 - 1956) 2CD, 2013, Avid Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66657.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Mikio Masuda - Black Daffodils (1998) JVC [FLAC|Lossless|tracks + .cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66571.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Rosemary Clooney & The Count Basie Orchestra - At Long Last (1998) Concord Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66569.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Mikio Masuda - Smokin' Night (1988) JVC [FLAC|Lossless|tracks + .cue] <Post-Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66568.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Chris Connor - Warm Cool: The Atlantic Years (1956 - 1968) 2CD, 1999, 32 Jazz [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66549.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Jazz House Instrumental Volume 4 (Jazzy Soulful Tracks And Instrumental Clu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66491.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Jazz Kissa (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66490.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - GIMME THE FUNK_ 90's Funky Tracks (Funk Grooves & Funky House Tunes from th
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66482.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Best Sound of Chill & Lounge 2025 – Summer Edition (2025) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66479.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Sal Salvador - Frivolous Sal (1956) 1991, Nippon Columbia [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66475.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Barbara Dennerlein - Hot Stuff (1990) Enja Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66473.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Roger Kellaway - The Roger Kellaway Trio (1965) 1997, Original Jazz Classics [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66472.jpg" />
 </div>
 
 

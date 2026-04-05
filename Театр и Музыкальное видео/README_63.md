@@ -6,7 +6,7 @@
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_616416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_616416.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Celtic Woman - Believe (2012) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616277.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615923.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Sensation 2011 - Celebrate Life / St. Petersburg Russia (2011) SATRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615755.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615612.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615135.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_614497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_614497.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614320.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614048.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613919.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612373.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Garbage - Live at Festival Beauregard (2012) HDTVRip 720p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611151.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611149.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Madonna - MDNA Tour (Live in Abu Dhabi) (2012) CAMRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611053.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Aerosmith / Rock for the Rising Sun (2013) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_611009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_611009.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609434.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Rafa Romero - Que No Acabe (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607502.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ AC/DC: Let There Be Rock (1980/2011) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_607217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_607217.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Queen - Rock Montreal & Live Aid (1981) Blu-ray [H.264/1080p] [EN]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605996.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605943.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ AC/DC-No Bull (Live from Plaza De Toros De Las Ventas, Madrid, Spain) (1996) DVD
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_605225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_605225.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605021.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604054.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603798.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602399.jpg" />
 </div>
 
 
@@ -722,7 +722,7 @@ The Eagles - Live '1974 & '1977 (2018) DVD5 [hand made]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602239.jpg" />
 </div>
 
 

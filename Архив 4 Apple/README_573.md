@@ -6,7 +6,7 @@ Disk Drill Enterprise 5.2.1215 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199505.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ AnyTrans for iOS 8.9.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199366.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VMware Fusion Pro 13.0.2 (build 21581413) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199216.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Cinema 4D Studio 2023.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198796.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ XMind PRO 22.11 (3656) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198603.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ CrossOver 22.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198435.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ ZBrush 2023.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198292.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ CrossOver 22.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198004.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Serato DJ Pro Suite 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197398.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ ON1 Sky Swap AI 2023.5 v.17.5.1.14028 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197255.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ iToolab UnlockGo 5.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197174.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Microsoft Office 2021 for Mac LTSC v16.74 VL [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197009.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Davinci Resolve Studio 18.5b4 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196875.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Adobe Illustrator for Mac 2023 v.27.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196802.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Maxon Cinema 4D Studio 2023.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196532.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Audio Hijack 4.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196498.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Disk Drill Enterprise 5.3.1308 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196385.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Screaming Frog SEO Spider 19.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195412.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Adobe After Effects 2023 23.4 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195343.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Davinci Resolve Studio 18.5 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195269.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Adobe Lightroom Classic for Mac 12.3 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195256.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Luminar Neo 1.12.2 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195148.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ JetBrains IntelliJ IDEA Ultimate for Mac 2023.1.4 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195130.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Microsoft Office 2021 for Mac LTSC v.16.75 VL [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195014.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ CleanMyMac X 4.14.1 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194895.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Davinci Resolve Studio 18.5.1 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194251.jpg" />
 </div>
 
 

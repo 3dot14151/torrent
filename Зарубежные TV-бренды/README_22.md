@@ -6,7 +6,7 @@ BBC Radio 1's Big Weekend Exeter 2016 / BBC Radio 1's Big Weekend Exeter 2016 (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809986.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Одиссея Жака Кусто
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809921.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BBC: Как это работает. Таинственный Мир Матер�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809918.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NG. Львиное королевство / Lion Kingdom (2017) HDTV [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809842.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ BBC. Таинственный мир гормонов / The Fantastical World of
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809779.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809736.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Discovery. Динозавры: Возвращение к жизни? / Dinosaurs
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809725.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Discovery. Беар Гриллс: Как остаться в живых / Bear G
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809553.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ PBS. Тайна кода майя / Cracking the Maya Code (2006) HDTVRip [H.264
 >>PBS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809222.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ History Channel. Вселенная (2 сезон: 1-18 серии из 18) / Th
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809194.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Discovery. Техногеника. Вертолеты-гиганты (2017) HDTV
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809012.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ BBC: Сетевой мир / Niall Ferguson's Networld (2020) WEBRip [H.264/1080
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807946.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807219.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806834.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806613.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ BBC: Тайная жизнь льда / The Secret Life of Ice (2011) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806412.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ BBC: Европа: История континента / BBC: Wild Europe (2005)
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806340.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ BBC. Гении из царства животных / Super Smart Animals (2012
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806224.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ BBC: Невидимые миры / Richard Hammond's Invisible Worlds (2010) BDR
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805968.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ NG. Файлы секретных служб: Охрана президента 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805843.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ BBC. Искусство Китая / Art of China (2014) SATRip (серии 1-3 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805840.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ NG. Освещённая пучина / Light the Ocean (2011) HDTVRip [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805678.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ NG. Взгляд изнутри: Гугл / Inside: Google (2010) HDTVRip [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805676.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805563.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ NG. Джон Ф. Кеннеди. Пропавшая пуля / JFK: The Lost Bul
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805559.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Animal Planet. Симпатичные котята и щенки / Too Cute (201
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805354.jpg" />
 </div>
 
 

@@ -1,81 +1,3 @@
-###  Публикация: 1631826   (254436) от 11.05.2023
-
-Ли Воган | Python для хакеров. Нетривиальные задачи и проекты (2023) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254436.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Python для хакеров. Нетривиальные проекты и задачи» делает упор на реальные проекты, так что от экспериментирования с синтаксисом вы сразу перейдете к написанию полноценных программ. Развивая свои навыки разработки на Python, вы будете проводить научные опыты, изучать статистику и решать задачи, которые не давали покоя гениям на протяжении многих лет, и даже займетесь (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82CF5C4A42096A461E4E29A258E0F5E95803B08F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632837   (254424) от 12.05.2023
-
-Билл Карвин | Программирование баз данных SQL. Типичные ошибки и их устранение (2012) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254424.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге каждая тема очень подробно объяняется. В мире существует огромное число книг и интернет-публикаций по языку SQL. Но как отличить хорошие примеры от плохих? Программирование баз данных SQL” – продукт многолетней практической работы. Каждая тема здесь раскрывается подробно, а внимание к деталям превосходит ожидания. Хотя книга предназначена не для новичков, (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: М. РайтманФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4976615980E53A1DD0DF3ADF8C87378DF2D7A14D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633067   (254409) от 13.05.2023
-
-И.Е. Федотов | Модели параллельного программирования (2012) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена рассмотрению некоторых высокоуровневых моделей параллельного и распределенного программирования. В порядке усложнения описываются несколько моделей внутренней организации параллельных программ: ярусно-параллельная форма программы, сети конечных автоматов, сети Петри, модель актеров, а также модель квантовых вычислений. Приводятся примеры программной (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C765CF2B796291B1062500256D9662E17EB2E3D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1836602   (254325) от 11.11.2025
 
 Stack Overflow | CSS для профессионалов. Руководство по разработке в примерах от сообщества Stack Overflow (2025) [PDF]
@@ -84,7 +6,7 @@ Stack Overflow | CSS для профессионалов. Руководство
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254325.jpg" />
 </div>
 
 
@@ -111,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254088.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252263.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252262.jpg" />
 </div>
 
 
@@ -190,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252211.jpg" />
 </div>
 
 
@@ -219,7 +141,7 @@ Florian Rappl | Modern Frontend Development with Node.js (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252206.jpg" />
 </div>
 
 
@@ -245,7 +167,7 @@ Sveta Smirnova, Alkin Tezuysal | MySQL Cookbook, 4th Edition (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252201.jpg" />
 </div>
 
 
@@ -273,7 +195,7 @@ Marten Deinum, и др. | Spring 6 Recipes: A Problem-Solution Approach to Sprin
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251949.jpg" />
 </div>
 
 
@@ -299,7 +221,7 @@ Federico Kereki | Mastering JavaScript Functional Programming, 3rd Edition (2023
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251944.jpg" />
 </div>
 
 
@@ -325,7 +247,7 @@ John Sharp | Microsoft Visual C# Step by Step, 10th Edition (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251940.jpg" />
 </div>
 
 
@@ -354,7 +276,7 @@ Matthew Dowst | Practical Automation with PowerShell (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251938.jpg" />
 </div>
 
 
@@ -380,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251922.jpg" />
 </div>
 
 
@@ -406,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251838.jpg" />
 </div>
 
 
@@ -432,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250941.jpg" />
 </div>
 
 
@@ -459,7 +381,7 @@ Logan S. Helmes | Python Cheat Sheet Encyclopedia (2025) [PDF, EPUB] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250611.jpg" />
 </div>
 
 
@@ -488,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250427.jpg" />
 </div>
 
 
@@ -514,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250423.jpg" />
 </div>
 
 
@@ -541,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250418.jpg" />
 </div>
 
 
@@ -569,7 +491,7 @@ Steve Santello, Alan R. Stagner | Building an RPG with Unreal / Построен
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250300.jpg" />
 </div>
 
 
@@ -595,7 +517,7 @@ Dane Hillard | Publishing Python Packages (2022) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250220.jpg" />
 </div>
 
 
@@ -621,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249927.jpg" />
 </div>
 
 
@@ -647,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249922.jpg" />
 </div>
 
 
@@ -673,7 +595,7 @@ Laurentiu Spilca | Troubleshooting Java: Read, debug, and optimize JVM applicati
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249573.jpg" />
 </div>
 
 
@@ -686,6 +608,84 @@ Laurentiu Spilca | Troubleshooting Java: Read, debug, and optimize JVM applicati
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C36BBF26108AF9ADB6C6282E90EE46EAEBAC91A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638541   (247708) от 08.06.2023
+
+Umesh R. Hodeghatta и др. | Practical Business Analytics Using R and Python (2023) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга показывает, как данные могут быть полезны для решения бизнес-задач. В ней рассматриваются различные методы анализа данных для обнаружения скрытых закономерностей и взаимосвязей, прогнозирования будущих результатов, оптимизации эффективности и повышения результативности работы организаций. Вы узнаете, как анализировать данные, применяя концепции статистики, (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:480B1799A8BD71FFE8392F7773038AF9726AA1A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638612   (247680) от 09.06.2023
+
+Роб Персиваль и др. | JavaScript с нуля до профи (2023) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга демонстрирует возможности javascript для разработки веб-приложений, сочетая теорию с упражнениями и интересными проектами. Она показывает, как простые методы javascript могут применяться для создания веб-приложений, начиная от динамических веб-сайтов и заканчивая простыми браузерными играми. В "javascript с нуля до профи" основное внимание уделяется (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86756FBA8133B1BD9168A4D7875D054E0BF5D818
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639434   (247616) от 13.06.2023
+
+Алексей Хлебников | OpenSSL 3: ключ к тайнам криптографии (2023) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247616.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современный интернет кишит червями, троянцами, незаконными посредниками и другими угрозами. Защита от них в наше время приобретает особую значимость. OpenSSL — один из самых широко используемых и важных проектов с открытым исходным кодом в интернете — предназначен для обеспечения сетевой безопасности. Из этой книги вы узнаете о самых важных возможностях OpenSSL и (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: А.А. СлинкинФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:307E4E143A27B2735ED597547DAABFB0C52BBB24
 ```
 
 https://mybot314.ru/tekegram_catalog/

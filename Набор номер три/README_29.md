@@ -1,3 +1,159 @@
+###  Публикация: 561641   (1024649) от 24.03.2021
+
+Ходячие мертвецы / The Walking Dead (2012) WEB-DL [H.264/720p] (Сезон 3, серии 1-16 из 16) Fox Crime
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал рассказывает историю жизни семьи шерифа после того, как «зомби» — эпидемия апокалипсических масштабов захлестнула земной шар. Шериф Рик Граймс путешествует со своей семьей и небольшой группой выживших в поисках безопасного места для жизни. Но постоянный страх смерти каждый день приносит тяжелые потери, заставляя героев почувствовать глубины человеческой жестокости. (   Читать дальше...   )Производство: США / Circle of Confusion, AMC StudiosЖанр: ужасы, мистика, триллерРежиссер: Эрнест Р. Дикерсон, Билл Джирхарт, Гай ФерлендАктеры: Эндрю Линкольн, Сара Уэйн Кэллис, Лори Холден, Стивен Юн, Чендлер Риггз, Норман Ридус, Айрон Э. Синглтон, Мелисса Сюзанн МакБрайд, Лорен Коэн, Джон Бернтал и др.Перевод: Многоголосый профессиональный - Fox CrimeЯзык озвучки: русскийПродолжительность: ~00:44:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25201045E1EA5FBC8A30BD3E11512CB51D1B723E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456649   (1024501) от 25.03.2021
+
+Microsoft готова купить геймерский чат за 10 млрд долларов
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коммуникационная платформа Discord, популярная у геймеров, рассматривает предложения о покупке от нескольких покупателей, наиболее заметным из которых является Microsoft. Компанию в ходе переговоров оценивают более чем в 10 млрд долларов.Discord — работающая на всех популярных операционных системах платформа для общения, объединяющая чаты, голосовые и видеозвонки, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456760   (1024472) от 25.03.2021
+
+Банк России выпустит банкноты нового дизайна
+
+>>3
+>>9
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Банк России планирует к 2025 году выпустить обновленные банкноты, на которых представит достопримечательности всех федеральных округов. Об этом рассказал заместитель председателя ЦБ Михаил Алексеев.Он напомнил, что банкноты новых номиналов — 200 и 2000 рублей — выпустили в оборот в 2017 году. Они отличаются современным дизайном и защитным комплексом на лучшем мировом (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395226   (1024465) от 25.03.2021
+
+Re:Zero kara Hajimeru Isekai Seikatsu 2nd Season | Re: Жизнь в альтернативном мире с нуля [ТВ-2] [2020, TV, 25 эп.] WebRip 720p raw
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024465.jpg" />
+</div>
+
+
+###  Подробнее
+
+ПродолжениеПроизводство: студия White FoxЖанр: фэнтези, драмаРежиссер: Ватанабэ МасахаруПеревод: CrunchyRollСубтитры: #1: Английские; #2: Русские;Продолжительность: 25 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54B0DC47E8469DCBAEE662389170F129BAD00BBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457356   (1024305) от 26.03.2021
+
+Черный код: в процессорах Intel нашли две критические уязвимости
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024305.jpg" />
+</div>
+
+
+###  Подробнее
+
+В некоторых случаях скрытые функции устройств могут служить для несанкционированного перехвата управления компьютером.В процессорах Intel обнаружили две новые уязвимости, рассказали «Известиям» специалисты по информационной безопасности. Речь о недокументированных производителем возможностях, которые позволяют перехватить контроль над устройством. Доступ к ним открывается (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457149   (1024276) от 26.03.2021
+
+Windows 7/10 Pro х86-x64 by g0dl1ke 21.03.20 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стабильная сборка на базе оригинальных русских Windows 7/10 Pro x86-x64 с обновлениями и отключением телеметрии по рекомендациям simplix, в соавторстве с systempЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07D8B9ABD16EC455CD1F4CA9FCA339A199C4CD88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347616   (1024272) от 26.03.2021
 
 Risen (2009) [Ru] (1.0.96124.0) Repack/Mod ElRizeru
@@ -6,7 +162,7 @@ Risen (2009) [Ru] (1.0.96124.0) Repack/Mod ElRizeru
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024272.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Office 2013-2021 C2R Install + Lite 7.1.8 Portable by Ratiborus [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024270.jpg" />
 </div>
 
 
@@ -61,7 +217,7 @@ Microsoft® Windows® 10 Enterprise LTSC 2019 x86-x64 1809 RU by OVGorskiy 02.20
 >>11
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024268.jpg" />
 </div>
 
 
@@ -87,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024267.jpg" />
 </div>
 
 
@@ -113,7 +269,7 @@ Lufthansa прорабатывает вакцинацию немцев в тра
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024145.jpg" />
 </div>
 
 
@@ -139,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024130.jpg" />
 </div>
 
 
@@ -165,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024119.jpg" />
 </div>
 
 
@@ -191,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024103.jpg" />
 </div>
 
 
@@ -218,7 +374,7 @@ Windows 10 LTSC 2019 Compact x64 [17763.1577] by Flibustier 11.11.2020 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024087.jpg" />
 </div>
 
 
@@ -247,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>13
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023893.jpg" />
 </div>
 
 
@@ -273,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023886.jpg" />
 </div>
 
 
@@ -299,7 +455,7 @@ It Takes Two (2021) [Ru/Multi] (1.0) Repack Other s
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023885.jpg" />
 </div>
 
 
@@ -325,7 +481,7 @@ Assassin's Creed: Valhalla (2020) [Ru/En] (1.1.2/dlc) Repack =nemos= [Gold Editi
 >>14
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023884.jpg" />
 </div>
 
 
@@ -351,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023753.jpg" />
 </div>
 
 
@@ -377,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023726.jpg" />
 </div>
 
 
@@ -403,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023706.jpg" />
 </div>
 
 
@@ -429,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023705.jpg" />
 </div>
 
 
@@ -455,7 +611,7 @@ Mafia: Definitive Edition (2020) [Ru/Multi] (1.0.1/dlc) Repack xatab
 >>20
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023704.jpg" />
 </div>
 
 
@@ -481,7 +637,7 @@ Azur Lane: Slow Ahead! | Azur Lane: Bisoku Zenshin! | Лазурный путь:
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023563.jpg" />
 </div>
 
 
@@ -507,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023557.jpg" />
 </div>
 
 
@@ -515,164 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 
 Microsoft продолжает «расчленение» программной оболочки «Проводник» Windows 10 во благо стабильности работы операционной системы. В 2019 г. самостоятельным компонентом ОС стало меню «Пуск», а с выходом обновления Sun Valley схожая участь может постигнуть и панель задач.Панель задач выносят из «Проводника»
 Microsoft собирается превратить панель задач Windows 10 в (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458842   (1023537) от 30.03.2021
-
-Comodo Internet Security Premium 12.2.2.8012 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Comodo Internet Security - бесплатное комплексное решение безопасности. Включает антивирус и антишпион, фаервол с контент-фильтром, проактивную защиту HIPS, виртуальную среду - песочницу. Защищает от вирусов, интернет-атак и вредоносных веб-сайтов. Comodo Internet Security предлагает всестороннюю, комплексную защиту от внутренних и внешних угроз - новых и еще неизвестных. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CC2491198080461BA79150D676F751110384D94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439392   (1023534) от 30.03.2021
-
-Tensei Shitara Slime Datta Ken (2021) | That Time I Got Reincarnated as a Slime (2021) | О моём перерождении в слизь [ТВ-2, первая часть] [2021, TV, 12 + SP] WEBRip 720p raw
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпион монстров Римуру Буря заканчивает войну орков и получает почетный титул канцлера слизи.
-
-Теперь, когда Альянс Jura Tempest ещё больше разрастается, они встретятся с животным царством Евразании, воссоединятся с королем Газелем, будут расти напряженные отношения между монстрами и людьми, а Римуру столкнется с самым сильным врагом, с которым он когда-либо сталкивался. (   Читать дальше...   )Производство: Студия 8bit / エイトビットЖанр: приключения, комедия, фэнтезиРежиссер: Накаяма АцусиПеревод: официальный (Crunchroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. + SP по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E03703654D8133C962868EEBB391B1562D9ECD25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458368   (1023529) от 30.03.2021
-
-Windows 10 Home 20H2 Build 19042.867 x64 ru by SanLex (edition 2021-03-28) [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на официальном оригинал образе Windows_10_Home_consumer_editions_20h2_Russian_x64 для более приватного / комфортного пользования. Отключены нежелательные службы, телеметрия-сбор данных, отключены-удалены рекламные модули и всё что влияет на приватность (в пределах возможного), оптимизирована для игровой среды. В остальном ничего лишнего не добавлялось (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4780CA62AEE71998443F704E3A13F56731A09723
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458838   (1023524) от 30.03.2021
-
-Acronis True Image 2021 Build 39216 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Acronis True Image — это интегрированный пакет программ, обеспечивающий безопасность всей информации на вашем компьютере. True Image предоставляет возможность создавать резервные копии операционной системы, приложений, пользовательских настроек и всех имеющихся данных, а также надежно уничтожать всю конфиденциальную информацию, ставшую ненужной. C помощью этого программного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C22AE59ED695967276D73AE65A5FCBE1CFD9E5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459028   (1023406) от 31.03.2021
-
-Очередное достижение: 4000 релизов от hali1960!!!
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередное достижение: 4000 релизов от hali1960!!!Уважаемые одноклубники, рад сообщить Вам о возможности поздравить нашего давнего релизёра с новым достижением 4000 релизов на благо трекера и его пользователей. hali1960 на форуме программ давно замечен и всё так же продолжает радовать всех нас свежими релизами изо дня на день. Пожелаем коллеге и неутомимому труженику (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458852   (1023380) от 31.03.2021
-
-В Голливуде снимут ремейк российского фильма
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023380.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Голливуде снимут ремейк российского фантастического фильма «Спутник». Об этом сообщает РИА Новости со ссылкой на пресс-службу компании Art Pictures Studio.«Продюсеры кинокомпаний "Водород", Art Pictures Studio и Hype Film объединились с голливудскими студиями Village Roadshow и 6th and Idaho, чтобы снять англоязычную версию нашумевшего российского триллера (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

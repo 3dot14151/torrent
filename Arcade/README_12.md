@@ -6,7 +6,7 @@ Sonic Forces (2017) [Ru/Multi] (1.04.79/dlc) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790290.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ DYSMANTLE (2021) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790140.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ My Memory of Us (2018) [Ru/Multi] (1.3057) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789253.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mark of the Ninja: Remastered (2018) [Ru/Multi] (1.0rc1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788724.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Wulverblade (2018) [En] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788440.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Graveyard Keeper (2018) [Ru/Multi] (1.404/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788255.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Johnny Graves—The Unchosen One (2017) [Ru/En/Ge] (1.0) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786470.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Sonic Forces (2017) [Ru/En] (1.04.79/dlc) Repack Mizantrop1337
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785181.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Guns, Gore and Cannoli 2 (2018) [Ru/Multi] (1.0.8) Repack xatab (обновля�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785056.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Team Sonic Racing (2019) [Ru/En] (1.0) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784419.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Zombie Derby 2 (2016) [Ru/Multi] (1.1/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783981.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Treasure Adventure World (2018) [En] (1.02) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783740.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Castlevania: Lords of Shadow - Mirror of Fate HD (2014) [Ru/Multi] (1.0.684579) 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783704.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Rock of Ages (2011) [Ru/Multi] (1.11) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782836.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Rock of Ages 2: Bigger & Boulder (2017) [Ru/Multi] (1.07/dlc) Repack R.G. Cataly
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782812.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Redeemer (2017) [Ru/Multi] (1.5) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782366.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Rocket Knight [En/Multi5] (RePack) 2010 | -Ultra-
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_781068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_781068.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Iconoclasts (2018) [Multi] (1.14) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780694.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Dungreed (2018) [En/Co] (2.19) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780329.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ RUINER (2017) [Ru/Multi] (1.06) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779731.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Injustice: Gods Among Us (2013) [Ru/En] (1.0.2787.0upd5/dlc) Repack R.G. Мех�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779704.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Guns, Gore and Cannoli 2 (2018) [Ru/Multi] (1.0.1) License RELOADED
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778779.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Rad Rodgers (2018) [Ru/Multi] (1.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778581.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Rad Rodgers (2018) [Ru/Multi] (1.5.6511) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778419.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Bell Ringer (2016) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778213.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Super Luckys Tale (2017) [Ru/Multi] (1.0/dlc) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778037.jpg" />
 </div>
 
 

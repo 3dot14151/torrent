@@ -1,3 +1,61 @@
+###  Публикация: 1315123   (514649) от 18.07.2019
+
+VA - Art Of Deep House (2019) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514649.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Forerunners - Magnetic Quartz
+002. Yana Remix4life - Clap Your Hand (Original Mix)
+003. Frankie Corsano - Jump
+004. Fonzie Ciaco And Fon21 - Good Times(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 11:26:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D88D0BABB25AE0A0EEB49F3D1D4C891817453639
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242560   (514032) от 23.08.2018
+
+VA - Hot Electro House Party (2018) [MP3|320 Kbps] <Electro Houe, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514032.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Luca Debonaire - Doves Cry (Original Mix )
+002. Fedde Le Grand - Hit The Club
+003. Nathan Thomson - Faded Love
+004. Physical Dreams - Lucky Boy(   Читать дальше...   )Жанр: Electro Houe, Dance, ClubПродолжительность: 10:09:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F93808D02FB9A276E831AEF2BAF33EEC1F3D523B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1315150   (513966) от 19.07.2019
 
 VA - Sublime Drum And Bass (2019) [MP3|320 Kbps] <Bass, D&B, Dubstep>
@@ -6,7 +64,7 @@ VA - Sublime Drum And Bass (2019) [MP3|320 Kbps] <Bass, D&B, Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513966.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Ego Night: Original Mix Electro House (2019) [MP3|320 Kbps] <Electro House,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513965.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Ambient Beautiful (2018) [MP3|320 Kbps] <Ambient, Lounge, Lo Fi>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513942.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Chill Island (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513079.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - SunState Trance Nation (2018) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513057.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Ibiza Beach House Party (2018) [MP3|320 Kbps] <Electro House, Dance, Club>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513050.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - All the Lounge You Need (2015) [MP3|320 кб/с]<Downtempo, Chillout, Loung
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513024.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Play Electro In My House Vol 1 (2015) [MP3|320 кб/с]<Dance, Club, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513017.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Lounge Cafe Lounge Playlist (2015) [MP3|320 кб/с]<Downtempo, Chillout, L
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513016.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Lounge and Chill Out The Best Of (2015) [MP3|320 кб/с]<Downtempo, Chillo
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513013.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Tantric Sex and Lovemaking Music Background Music for a Night of Tenderness
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512931.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Club Hits 2k15 (2015) [MP3|320 кб/с]<Trance, Uplifting Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511944.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Hot And Sexy Lounge Grooves Vol. 1 (2015) [MP3|320 кб/с]<Downtempo, Chil
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511940.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Lounge Music Cafe - Cafe IBIZA (2015) [MP3|320 кб/с]<Downtempo, Chillout
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511932.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Fifty Shades Of Lounge (50 Smooth & Sexy Chill Tunes 4 Erotic Moments) (201
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511874.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - eXXXplicit chill (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511462.jpg" />
 </div>
 
 
@@ -476,7 +534,7 @@ VA - Pumping Storm - 11 (Back to Underground) (2012) [MP3|320 кб/с]<Pumping H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511411.jpg" />
 </div>
 
 
@@ -509,7 +567,7 @@ VA - Carnaval House (2015) [MP3|320 кб/с]<Progressive House, Tech House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511115.jpg" />
 </div>
 
 
@@ -538,7 +596,7 @@ VA - Lounge Deluxe Collection [Cane Garden Bay Records] (2015) [MP3|320 кб/с]
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511111.jpg" />
 </div>
 
 
@@ -567,7 +625,7 @@ VA - A Chill House Affair Vol. 1 (60 Fantastic Summer Tunes) (2015) [MP3|320 к�
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511109.jpg" />
 </div>
 
 
@@ -596,7 +654,7 @@ VA - Playlist: Best Of Lounge & Chillout Playlists (2015) [MP3|320 кб/с]<Down
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511092.jpg" />
 </div>
 
 
@@ -625,7 +683,7 @@ VA - HGM International House Departures (2019) [MP3|320 Kbps] <Electro, Dance, C
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511077.jpg" />
 </div>
 
 
@@ -654,7 +712,7 @@ VA - Beatport Trance Top 100 August [edited by ZIMIANDR] (2015) [MP3|320 кб/с
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511017.jpg" />
 </div>
 
 
@@ -683,7 +741,7 @@ VA - Summer Chill Lounge (50 Selected Chillout Grooves For Love, Sex And Relax) 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510949.jpg" />
 </div>
 
 
@@ -697,64 +755,6 @@ VA - Summer Chill Lounge (50 Selected Chillout Grooves For Love, Sex And Relax) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:923331CC58D8E09A08D92FC29101FF101CF02B1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315879   (510896) от 22.07.2019
-
-VA - Acid Maschine: Hard Techno Compilation (2019) [MP3|320 Kbps] <Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510896.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Twob - Pursuit (Original Mix)
-002. Mark Kramer - Proton X (Original Mix)
-003. Alvinho L Noise - Manifesto (Original Mix)
-004. Space Zombie - Leuchtturm(   Читать дальше...   )Жанр: TechnoПродолжительность: 09:44:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13ED877B9F570F62B521D7CEA0E326AF9844CE4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931642   (510865) от 27.08.2015
-
-VA - Sexy Massage (65 Tracks For Erotic Massage) (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tarena - Waves in Silence - Short Edit (8:22)
-02. Crueger - For Joy (3:36)
-03. Dennis o'Neill - Indio's Sadness (8:05)
-04. Oscar Salguero - Let Me Be Close to You (4:59)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:53:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBD6025D42F9E4ED5A2FB00DEFE25ABCC415BA6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

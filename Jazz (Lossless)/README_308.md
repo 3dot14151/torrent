@@ -6,7 +6,7 @@ John Coltrane - And The Jazz Giants (1956 - 1958) 1986, Prestige [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117930.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Cheikh Ouza - African Smooth (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion &
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117791.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Kitty Kallen - Our Lady... Kitty Kallen (1946 - 1952) 2003, Sepia Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117788.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Adam Astrup - Songs From Before (2024) [FLAC|Lossless|WEB-DL|tracks] <Contempora
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117773.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Julie London - Original Paper Sleeve Collection (1955-1969) (2010) 30CD[FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117686.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Bossa Nova Lounge Club, Romantic Love Songs Academy - Bossa Romance (2024) [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117665.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - The Atlantic New Orleans Jazz Sessions (1955 - 1962) 4CD, 1998, Mosaic Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117624.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Romantic Moods Academy - Happy Valentine's Day 2024 (2024) [FLAC|Lossless|WEB-DL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117618.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Nikos Chatzitsakos - Tiny Big Band 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Conte
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117581.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Alf Kjellman - Feather, But No Wings (1999) 2008, Reflect [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117574.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Barry Harris Trio - Chasin' The Bird (1962) 1996, Original Jazz Classics [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117566.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Barry Harris Trio - Preminado (1960, 1961) 1990, Original Jazz Classics [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117557.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Barry Harris - At The Jazz Workshop (1960) 2006, Riverside [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117555.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Donald Byrd Sextet With Yusef Lateef & Barry Harris - Complete Recordings (1955)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117549.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Donald Byrd - Four Classic Albums (1958 - 1961) 2CD, 2022, Avid Jazz [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117380.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Patrick Mautner - Uptown Downtown (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117379.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Alan Broadbent Trio - Like Minds (2022) Savant [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117369.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Barry Harris Trio - Breakin' It Up (1958) 2007, Jazz Beat [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117361.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Rod Tate - Smooth and Peaceful (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117354.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Christine Ebersole - Strings Attached (2013) Motema [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117353.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ The Barry Harris Sextet - Luminescence! (1967) 1997, Original Jazz Classics [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117150.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Ray Drummond - Excursion (1993) Arabesque Jazz [FLAC|Lossless|image + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117146.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Donald Byrd & Kenny Burrell - All Night Long (1956) 2003, Original Jazz Classics
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117145.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Svend Asmussen - Spotlight (1991) Sonet [FLAC|Lossless|tracks + .cue] <Swing, Vi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117141.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Ultimate Chillout Ambient Lounge I (2024) [FLAC|Lossless|WEB-DL|tracks] <Ch
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117054.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ The Barry Harris Sextet - Bull's Eye! (1968) 2002, Original Jazz Classics [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117045.jpg" />
 </div>
 
 

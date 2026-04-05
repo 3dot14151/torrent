@@ -6,7 +6,7 @@ BBEdit 12 12.6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407417.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Money Pro - Personal Finance 2.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407414.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Lingon X 5.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405056.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Downie 3.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405000.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Serial 1.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404772.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Gemini 2: The Duplicate Finder 2.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404591.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ ScreenFlow 7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404048.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Path Finder 7.6 (1724) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403886.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ CleanMyMac 3.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403666.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Algoriddim djay Pro (Complete FX Pack) 1.4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403149.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Alfred Powerpack 3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403140.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Synalyze It! Pro 1.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402475.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Hazel 4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402473.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ liquivid Video Improve 1.8.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402462.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ OmniGraffle Pro 7.4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402461.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Meta 1.7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402408.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ SketchUp Pro 2017 v17.3.116 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402157.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ ABBYY FineReader OCR Pro for Mac 12.1.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402004.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ ExactScan Pro 17.9.22 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401620.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ App Uninstaller 4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401592.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ OmniOutliner Pro 5.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401549.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ OmniFocus 2.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401521.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Disk Drill Enterprise 3.5.860 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401411.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ VMware Fusion Pro 10.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401124.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401080.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ Fanny Adams - Fanny Adams (1971) [ALAC|Lossless]<Hard Rock>
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401001.jpg" />
 </div>
 
 

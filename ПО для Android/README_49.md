@@ -1,3 +1,107 @@
+###  Публикация: 1402582   (699248) от 15.08.2020
+
+BitVPN - Fast VPN Proxy Master v1.3.2 [En] (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699248.jpg" />
+</div>
+
+
+###  Подробнее
+
+BitVPN является одним из лучших неограниченных прокси-серверов VPN для частного и безопасного доступа в Интернет без каких-либо ограничений. Много серверов различных стран, в том числе и России!Тип издания: Пиратка (открыт Premium)Релиз состоялся: 07.08.2020Разработчик: TOP Blockchain Crypto Wallet Exchange App LtdПоддерживаемая ОС: Android 4.1+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DF3980C6A590366D0B729894D02A75E53BBBC7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064395   (698398) от 22.04.2018
+
+Региональные монеты v2.0 Full [Ru] - региональные монеты царского периода России (Царская Финляндия, Польша и др.)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение-справочник послужит хорошим инструментом как для нумизматов, так и для людей увлекающихся кладоискательством. Каталог содержит региональные монеты царского периода России (Царская Финляндия, Польша и др.).Тип издания: Пиратка (Full)Релиз состоялся: 26.01.2018Разработчик: TrionПоддерживаемая ОС: Android 2.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49D5D4175FCD5A9BF1AB69870BBD592B4BDAACDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064379   (698273) от 22.04.2018
+
+Драгоценные монеты России v2.1 Full [Ru] - Более 1200 памятных и инвестиционных монет России и СССР из драгоценных металлов
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение для нумизматов и просто интересующихся. Может использоваться как инструмент для работы с коллекцией, либо как справочник. Содержит полный перечень памятных и инвестиционных монет России и СССР из драгоценных металлов. Более 1200 монет! Реализована возможность экспорта различных списков в excel. Есть возможность отключать из учета серии и номиналы. Пользователи (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 02.02.2018Разработчик: TrionПоддерживаемая ОС: Android 2.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06DC4DAFE9354386251D036DDEDF397D4C670537
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 893167   (698268) от 10.05.2017
+
+InternetRadio 2.0.1 [Ru] (Авторская раздача)
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очень простое приложение для прослушивания интернет радио. Это первый мой шаг в сторону андроид, если пользователям понравится идея, то буду и дальше развивать этот проект. Программа пока тестируется. Все пожелания и предложения буду стараться учитывать. Программа проверена  на Android 2.3+.Тип издания: FreeРелиз состоялся: 28.04.2015Разработчик: alekseih09Поддерживаемая ОС: Android 2.3+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABA7C5E7176A97911B98047FA7456B1DE6E76523
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1064149   (698148) от 22.04.2018
 
 Банкноты России v2.1 [Ru] - справочная информацию о более 700 банкнотах
@@ -6,7 +110,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698148.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Parom.TV для Android v3.1.1 AdFree [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696373.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691800.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ VMP - ВК Музыка v4.5.0 AdFree [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691793.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_691708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_691708.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ MyPhoneExplorer Client 1.0.43 + 1.8.8 PC [Ru] - Синхронизация с П
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686495.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686388.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ Handyman Calculator Pro v2.3.7 [Ru/Multi] - Полный строительны�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683670.jpg" />
 </div>
 
 
@@ -218,7 +322,7 @@ Microsoft Translator 3.0.205 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680420.jpg" />
 </div>
 
 
@@ -244,7 +348,7 @@ Any Balance v3.9.808 [Ru/En] - баланс телефона на экране
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678882.jpg" />
 </div>
 
 
@@ -270,7 +374,7 @@ Smart Compass Pro 2.6.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678579.jpg" />
 </div>
 
 
@@ -296,7 +400,7 @@ Microsoft Outlook 2.1.209 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678301.jpg" />
 </div>
 
 
@@ -323,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678216.jpg" />
 </div>
 
 
@@ -351,7 +455,7 @@ CalcKit v2.4.2 Premium [Ru/Multi] - Калькулятор Всё-в-одном
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677928.jpg" />
 </div>
 
 
@@ -378,7 +482,7 @@ TIDAL Music v2.56.0 [En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676297.jpg" />
 </div>
 
 
@@ -404,7 +508,7 @@ Deezer v6.2.48.37 [Ru] - музыка, плейлисты и подкасты (�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676148.jpg" />
 </div>
 
 
@@ -430,7 +534,7 @@ AndroiTS Compass Pro 1.01 - Компас (2012) <En>
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_669845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_669845.jpg" />
 </div>
 
 
@@ -457,7 +561,7 @@ Mobi Calculator PRO 1.4.0 Mod by Kirhe [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667712.jpg" />
 </div>
 
 
@@ -483,7 +587,7 @@ Mobi Calculator PRO 1.4.2 Mod by andrey.utasco [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667671.jpg" />
 </div>
 
 
@@ -509,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664049.jpg" />
 </div>
 
 
@@ -535,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662635.jpg" />
 </div>
 
 
@@ -561,7 +665,7 @@ Power VPN Premium 4.9.4 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660787.jpg" />
 </div>
 
 
@@ -572,111 +676,6 @@ Power VPN Premium 4.9.4 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:781B328256AF17137CE637865AC4597282CA5EC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225647   (659622) от 16.05.2018
-
-RSS Reader v1.7.0 [Ru] - чтение RSS-лент
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659622.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение для чтения RSS-лент. Позволяет читать любимые новостные ленты. Поддержка импорта из OPML, автоматическое обновление лент, уведомления о появлении новостей.Тип издания: Пиратка (разблокирована Pro)Релиз состоялся: 18.01.2018Разработчик: Svyatoslav VasilevПоддерживаемая ОС: Android (версия зависит от устройства)Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92F71CA305CD4FBD8A90FAB0AF150A5B7C98E3F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903581   (657485) от 31.05.2015
-
-Азбука для детей (Алфавит) 1.1.2 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите, чтобы ваш ребенок научился читать? Давайте начнем с изучения букв русского алфавита!
-Говорящая азбука станет самым надежным помощником в обучении ребенка чтению. Эта интерактивная игра для малышей создана, чтобы они в игровой форме могли изучать алфавит и правильное написание букв. Это веселое приложение для детей, где они вместе с родителями или же самостоятельно (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 20 мая 2015 г.Разработчик: Educational Games for Kids StudioПоддерживаемая ОС: Android 2.3Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:277C60E5D8A66EF836F10568B83893FE332AAE0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904155   (655109) от 02.06.2015
-
-Root Browser (File Manager) 2.2.3 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655109.jpg" />
-</div>
-
-
-###  Подробнее
-
-Root Browser подойдёт владельцам как рутованных, так и нерутованных устройств. Если у вас есть права пользователя root, тогда это приложение даст вам доступ ко ВСЕЙ файловой системе Андроида. Имея красивый интерфейс, массу возможностей и невысокую цену, Root Browser - это то, что надо!Тип издания: ПираткаРелиз состоялся: 30 мая 2015 годаРазработчик: JRummy Apps Inc.Поддерживаемая ОС: Android 1.6Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAF0B9294C768F2FA002651D3E915AC6D2AD0FF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 789499   (655075) от 02.06.2015
-
-CAD Touch Pro v5.09 [Ru/En] - Редактор и просмотрщик файлов формата DWG/DXF
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655075.jpg" />
-</div>
-
-
-###  Подробнее
-
-CAD Touch Pro – отличная расширенная версия программы CAD Touch для проектирования, которое полностью дает возможность заняться черчением на вашем Андроид устройстве, для профессоналов в различных ключевых областях, такие как архитектура, машиностроение, недвижимость, дизайн дома, и многие другое. В ваших руках полноценный инструмент для черчения, рисования эскизов (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 01.06.2015Разработчик: cadTouch SoftwareЯзык интерфейса: Английский (5.09) / Русский (5.07)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:379D45A8392988A3D4A2A8673C63FC89B04B2C55
 ```
 
 https://mybot314.ru/tekegram_catalog/

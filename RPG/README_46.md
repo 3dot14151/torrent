@@ -1,3 +1,55 @@
+###  Публикация: 1691159   (123373) от 12.01.2024
+
+Space Rangers / Космические рейнджеры (2002) [Ru] (1.6) Repack Decepticon
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое издание популярной тактической ролевой игры. Действие игры происходит в огромном мире, который живет и развивается по своим законам, в нем постоянно происходят разнообразные события: захватываются и освобождаются планеты и целые звездные системы, пираты грабят суда, на планетах совершаются государственные перевороты, а ученые делают новые открытия. В роли представителя (   Читать дальше...   )Тип издания: RepackРазработчик: Elemental GamesЖанр: RPG, Strategy, Adventure, QuestЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08E511703BDDB255701E0EFFF46B19F810DBB420
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691475   (123356) от 12.01.2024
+
+Dragon Quest Treasures (2023) [Multi] (20240111/dlc) Scene Tenoke [Digital Deluxe]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dragon Quest Treasures - ролевое приключение, в центре которого герой Эрик и его сестра Миа. Они живут и путешествуют на корабле викингов по всему миру, пытаясь отыскать древние сокровища. Одного дня они натыкаются на странных существ, таких как Поркус и Мурсулу. Демоны уносят их в другой мир, который носит названием Дракония. Это королевство, известное в первую (   Читать дальше...   )Тип издания: SceneРазработчик: Square Enix, TOSE CO., LTD.Жанр: Экшены, Ролевая играЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D67FDCF4C7B5E3E21E8A3147FA8EFB443FAF44E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220627   (122677) от 16.01.2024
 
 Ys Origin (2012) [En] (2024-01-08) License GOG
@@ -6,7 +58,7 @@ Ys Origin (2012) [En] (2024-01-08) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122677.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Path of the Midnight Sun (2023) [Multi] (2.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122411.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Affogato (2023) [Multi] (1.0.19) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122261.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Kingsvein (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121957.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Above Snakes (2023) [Ru/Multi] (1.4.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121812.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.1) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121806.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Above Snakes (2023) [Ru/Multi] (1.4.5) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121783.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Sovereign Syndicate (2024) [En] (1.0.25) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121628.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Nienix: Cosmic Warfare (2023) [Ru/Multi] (1.0501) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121626.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Eternights (2023) [Multi] (20230920) Scene Tenoke [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121377.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ GRAVEN (2021) [Ru/Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121224.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Monster Hunter Rise (2022) [Ru/Multi] (16.0.2.0/dlc) Scene Razor1911
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121219.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Heroes of Eternal Quest (2024) [Multi] (1.0) Scene Skidrow
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120896.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Gloomhaven (2021) [Multi] (1.1.8307.0/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120582.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Boyfriend Dungeon (2021) [Ru/Multi] (1.3.7294S/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120375.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Star Explorers (2018) [En] (5.4.4a) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120347.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Cris Tales (2021) [Ru/Multi] (1.0.7) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120022.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Lunacid (2023) [En] (1.2.1) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119709.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ The Elder Scrolls V: Skyrim (2021) [Ru/En] (1.6.1170.0.8/dlc) Repack Other s [An
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119584.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Floating Life 2 (2023) [Multi] (1.0.2.58) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119572.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Long Gone Days (2023) [Ru/Multi] (20240130) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119562.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Dungeon Siege: Legends of Aranna / Осада подземелья: Легенд
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119382.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Darkest Dungeon II (2023) [Ru/Multi] (1.04.59290/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119240.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Heroes of Eternal Quest (2024) [Multi] (1.0.16a) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118673.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Heroes of Eternal Quest – окунитесь с головой в настоя
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EF3CDB570B3DF05CDCB70F324DFC4B7E94CEE22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698153   (118667) от 08.02.2024
-
-Legendary Hoplite (2024) [Ru/Multi] (1.0.2) Repack FitGirl [Support Ithaca Bundle]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Legendary Hoplite использует сеттинг, вдохновленной греческой мифологией. У проекта есть своя история, лор и секреты, которые открываются по мере получения достижений. По сюжету вернувшийся из Трои Одиссей недолго правил Итакой, потому что его убил собственный незаконнорожденный сын. После этого город-государство был взят в осаду легионами мертвых. Защищать полис (   Читать дальше...   )Тип издания: RepackРазработчик: TripleBricksGamesЖанр: Экшены, Приключенческие игры, Ролевые игры, СтратегииЯзык озвучки: Английский, ВьетнамскийЯзык субтитров: Русский, Английский, Вьетнамский, Французский и другиеЯзык интерфейса: Русский, Английский, Вьетнамский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:575E15430D0F8CB72847E841532962ED70C24A81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698415   (118483) от 09.02.2024
-
-River Town Factory (2024) [Multi] (1.0.1.0207.1) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118483.jpg" />
-</div>
-
-
-###  Подробнее
-
-River Town Factory – а что вы скажете на то, чтобы открыть фабрику, заняться переработкой нефти или же построить настоящий большой компьютера? И все это в условиях древнего времени? Ведь после того как на Ривер-Таун случайно упал метеорит, у вас появилась собственная мастерская. И отсюда начнется вершится история… Во-первых, займитесь созданием различных автоматизированных (   Читать дальше...   )Тип издания: RepackРазработчик: iFAction StudioЖанр: Инди, Ролевые игры, СимуляторыЯзык субтитров: Английский, Японский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Японский, Китайский (упрощенный, традиционный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0489AB7F4FA17BDB4FD2CADF99EB7E2FA1CC0CD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

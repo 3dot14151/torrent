@@ -6,7 +6,7 @@ iGallery Pro — Best Instagram Uploader 1.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704932.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Disk Map 2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704928.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Kaleidoscope 2.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704816.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Debookee 7.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704698.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Alfred 3 Powerpack v3.8.1 (960) beta [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704697.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Things 3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704324.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ PeakHour 3.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704153.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ KCNcrew Pack 06-15-16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704080.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Blocs 2.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704068.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Alfred Powerpack 3.0.2 (676) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704062.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Xliff Editor 2.8.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704060.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Antivirus Zap Pro 3.10.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704056.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ FSNotes 4 v4.5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704055.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Dash 5.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704052.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Rottenwood 1.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704050.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Stellar Drive Defrag 3.0.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703959.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Outline 3.24.0 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703946.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ ReadKit 2.6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703943.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Algoriddim djay Pro (Complete FX Pack) 2 v2.2.4[Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703940.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ SoundSource 5.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703933.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ The Clock - The Best World Clock 3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703829.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Art Text 3.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703827.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ iA Writer 5.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703810.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Audio Playr 2.5  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703808.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Navicat Premium 15.0.20 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703804.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ Downie 2.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703720.jpg" />
 </div>
 
 

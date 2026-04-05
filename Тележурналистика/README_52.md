@@ -1,29 +1,3 @@
-###  Публикация: 1041713   (582357) от 09.08.2016
-
-В теме. Визит турецкого"Султана" (09.08.2016) SATRip
-
->>След.
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582357.jpg" />
-</div>
-
-
-###  Подробнее
-
-«В теме» - информационно-аналитическая программа. Известные политологи - о самых актуальных событиях и тенденциях в мире.Телекомпания: Москва 24Жанр: ДокументальныйПродолжительность: 00:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7A1D9C0F03C328A57ECD3D2A03C79A21E7FCAED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041941   (581513) от 10.08.2016
 
 В теме. Стратегия победы (10.08.2016) SATRip
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581513.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581509.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581472.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581424.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581145.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581111.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580976.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580936.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580594.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580448.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580190.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580188.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580129.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580032.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579017.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579012.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579009.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578455.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578446.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578396.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578158.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577586.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577438.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576622.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576601.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FF07703802BEAC908C9B7DCF58B899868B455FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042827   (576542) от 14.08.2016
+
+Побег из Кандагара (2006) DVB
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576542.jpg" />
+</div>
+
+
+###  Подробнее
+
+16 августа 1996 года российский экипаж грузового самолета Ил-76 совершил почти невероятное - на собственном самолете летчикам удалось бежать из талибского плена. Этой головокружительной истории предшествовали долгие и мучительные дни ожидания. 1995 год. Одна из российских компаний отправляет из Албании самолет с грузом в столицу Афганистана, Кабул. Обычный коммерческий (   Читать дальше...   )Телекомпания: Россия Студия"Лавр"Жанр: ДокументальныйПродолжительность: 00:38:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA9E5F7D5E49B38D962F5F55EF97831EF4E38D54
 ```
 
 https://mybot314.ru/tekegram_catalog/

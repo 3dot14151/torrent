@@ -1,38 +1,3 @@
-###  Публикация: 531769   (539714) от 06.08.2012
-
-Tina Turner - Simply The Best (1991) [DTS 5.1|image (Upmix)]<Pop, Rock, R&B>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Best (4:21)
-02. Better Be Good To Me (4:04)
-03. Can't Stand The Rain (3:34)
-04. What's Love Got To Do With It (3:47)
-05. Typical Male (4:44)
-06. Private Dancer (4:22)
-07. We Don't Need Another Hero (4:48)
-08. What You Get Is What You See (4:08)
-09. I Don't Wanna Lose You (4:16)
-10. Look Me In The Heart (3:38)(   Читать дальше...   )Жанр: Pop, Rock, R&BФормат: wav+cue'Продолжительность: 01:28:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15B1BAFAD6408CFA58F7B07C733E469005AD2B15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 818710   (539388) от 04.09.2014
 
 Electric Light Orchestra - Zoom (2001) 2LP /2013, Big Trilby Records/ [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progressive Rock>
@@ -41,7 +6,7 @@ Electric Light Orchestra - Zoom (2001) 2LP /2013, Big Trilby Records/ [FLAC 2.0 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539388.jpg" />
 </div>
 
 
@@ -70,7 +35,7 @@ Nicole - Alles fliesst (2005) [DTS 5.1 CD-Extra|44.1/16| .bin+.cue (Audio-DVD)] 
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538090.jpg" />
 </div>
 
 
@@ -99,7 +64,7 @@ Genesis - SACD Anthology (1970-1998) [FLAC 2.0|96/24|tracks+.cue|SACD] <Progress
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537639.jpg" />
 </div>
 
 
@@ -128,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537637.jpg" />
 </div>
 
 
@@ -163,7 +128,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536363.jpg" />
 </div>
 
 
@@ -192,7 +157,7 @@ Electric Light Orchestra - Balance Of Power (1986)  [FLAC 2.0 24/96|image (Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535792.jpg" />
 </div>
 
 
@@ -221,7 +186,7 @@ Triptykon - Studio Albums (2010 - 2020) hand made [restored, declipped] [FLAC 2.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535704.jpg" />
 </div>
 
 
@@ -249,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535070.jpg" />
 </div>
 
 
@@ -278,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534969.jpg" />
 </div>
 
 
@@ -307,7 +272,7 @@ Black Jack - Hot Passion (1979) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Disco>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531262.jpg" />
 </div>
 
 
@@ -336,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525163.jpg" />
 </div>
 
 
@@ -365,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525128.jpg" />
 </div>
 
 
@@ -394,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525127.jpg" />
 </div>
 
 
@@ -423,7 +388,7 @@ Smokie - Midnight Cafe (1976) [FLAC 2.0 24/96|traks(Vinyl-Rip)]<Soft Rock, Pop R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522479.jpg" />
 </div>
 
 
@@ -452,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522404.jpg" />
 </div>
 
 
@@ -480,7 +445,7 @@ David Hazeltine Trio - Senor Blues (2018) [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Ja
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519723.jpg" />
 </div>
 
 
@@ -509,7 +474,7 @@ Genesis - Abacab (1981) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progressive Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518478.jpg" />
 </div>
 
 
@@ -538,7 +503,7 @@ Eric Clapton - Reptile (2001) [FLAC 2.0|88.2/24|tracks|DVD-Audio] <Blues, Rock, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518119.jpg" />
 </div>
 
 
@@ -567,7 +532,7 @@ Black Sabbath - Russian Vinyl Collection/Блэк Сэбэт - Русская к
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516602.jpg" />
 </div>
 
 
@@ -596,7 +561,7 @@ Luciano Pavarotti - The Essential Pavarotti (1991) [FLAC 2.0 24/192|image+.cue (
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516201.jpg" />
 </div>
 
 
@@ -625,7 +590,7 @@ Roger Hodgson - Hai Hai (1987) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514025.jpg" />
 </div>
 
 
@@ -654,7 +619,7 @@ Fleetwood Mac - Say You Will (2003) [MLP 2.0, 5.1 96/24 |DVD-Audio]<rock>
 >>DVD-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513758.jpg" />
 </div>
 
 
@@ -683,7 +648,7 @@ Vangelis - Spiral (1977) [FLAC 2.0 24/192|image+.cue (Vinyl-Rip)]<New Age>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512811.jpg" />
 </div>
 
 
@@ -712,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512612.jpg" />
 </div>
 
 
@@ -741,7 +706,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508167.jpg" />
 </div>
 
 
@@ -755,6 +720,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA39587AED78E12860FA0A7BF1BCE6710E2E3842
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932775   (508163) от 30.08.2015
+
+Francoise Hardy - Star (1977) [FLAC 2.0 24/96 | image+.cue|(Vinyl Rip)]<Chanson>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508163.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Star
+Lyrics By (Adaptation) – F. Hardy
+Written-By – J. Ian
+A2	Chanson Sur Toi Et Nous(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:35:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D97A9DE8AC54A9F4CDA30F63A87D4A3FFF4350E
 ```
 
 https://mybot314.ru/tekegram_catalog/

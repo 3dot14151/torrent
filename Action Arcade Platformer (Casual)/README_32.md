@@ -1,3 +1,55 @@
+###  Публикация: 1766030   (3284) от 12.09.2025
+
+ION Shift (2024) [Ru/Multi] (1.2.3) Repack Let'sРlay
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3284.jpg" />
+</div>
+
+
+###  Подробнее
+
+ION Shift это хардкорный экшн-платформер с мгновенной смертью, созданные для поклонников Katana Zero. В этом хардкорном экшн-платформере игрок управляет пришельцем, перемещающимся по огромному космическому кораблю. Цель проста: выжить любой ценой. Корабль кишит враждебными солдатами, смертельными турелями и лазерными дронами, которые постоянно находятся на страже.Тип издания: RepackРазработчик: Electro Soul GamesЖанр: Экшены, ИндиЯзык субтитров: Русский, Английский, Португальский, Французский и дрЯзык интерфейса: Русский, Английский, Португальский, Французский и др
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5539FF722C741D5CEC089514930EC2970CF00FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817670   (3222) от 12.09.2025
+
+Planet of Lana (2023) [Ru/Multi] (1.1.0.0) Repack Let'sРlay
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Planet of Lana – это грандиозный квест-головоломка, события которого разворачиваются в научно-фантастическом сеттинге и тянутся сквозь галактики и века. Планета, которая когда-то была раем для людей, флоры и фауны, превратилась в нечто совершенно иное. Столетия разногласий породили безликую армию, нарушив естественный порядок вещей. Но эта история вовсе не о войне. (   Читать дальше...   )Тип издания: RepackРазработчик: WishfullyЖанр: Экшены, Приключенческие игры, ИндиЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF1F97E953A71D96577CC9E87DC03DE5A32D1CA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1817957   (2847) от 14.09.2025
 
 Atari 50: The Anniversary Celebration (2022) [Multi] (1.04/dlc) License GOG
@@ -6,7 +58,7 @@ Atari 50: The Anniversary Celebration (2022) [Multi] (1.04/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2847.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ X-Morph Defense (2017) [Ru/Multi] (SVN_29109.TC_129.DATA_12/dlc) Repack Let'sРl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2835.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ NINJA GAIDEN Ragebound (2025) [Ru/Multi] (cs37801) Repack Let'sРlay [Soundtrack
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_916.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Undead West (2024) [Ru/Multi] (1.0.4.4) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_706.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Meganoid (2017) [En] (2.2.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_648.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Primal Planet (2025) [Ru/Multi] (1.0.250909.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147.jpg" />
 </div>
 
 

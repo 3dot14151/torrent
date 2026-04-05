@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058794.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046425.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043789.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039834.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037837.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Sagath - Catacombs (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Hip-Hop, H
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033931.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033522.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033516.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ ndls404 - Kung-Fu (2020) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Instrumental>
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030924.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027677.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Booker - ВЫБЕРИ ЖИЗНЬ (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternati
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022788.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ RAM - TRAUMATIX 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020821.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Leanje - Мертвая петля (2021) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hi
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020133.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018739.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Jah Khalib - Collection 6 Releases (2016-2021) [FLAC|Lossless|WEB-DL|tracks] <Ra
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007228.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ KREC - 8 Альбомов + 3 Компиляции (2001-2010) [FLAC|Lossless]<R
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928477.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Noize MC - Царь Горы (2016) [FLAC|Lossless|image + .cue] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920380.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ RAM (Грязный Рамирес) - Traumatix (2019) [FLAC|Lossless|WEB-DL|tra
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915561.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ RAM (Грязный Рамирес) - Traumatix Ultimate (2019) [FLAC|Lossless|W
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915558.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899931.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ CENTR - Качели (2007) [FLAC|Lossless|tracks + .cue] <Rap>
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869812.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Anacondaz - Выходи за меня (2017) [FLAC|Lossless|WEB-DL|tracks] <Rap
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863803.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ RAM (Грязный Рамирес) - SADEASTWOOD (2020) [FLAC|Lossless|WEB-DL|t
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860245.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Pyrokinesis - Моя Милая Пустота (2019) [FLAC|Lossless|WEB-DL|trac
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856574.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ Jah Khalib - 911 (2020) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848182.jpg" />
 </div>
 
 
@@ -725,7 +725,7 @@ Big Baby Tape & kizaru - BANDANA I (2021) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hi
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804246.jpg" />
 </div>
 
 

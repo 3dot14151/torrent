@@ -1,3 +1,57 @@
+###  Публикация: 1780481   (70470) от 18.02.2025
+
+А.Г. Мордкович, П.В. Семенов, Л.А. Александрова и др. | Алгебра и начала математического анализа. Учебник для 11 класса. Базовый уровень (в 2 частях, часть 2) (2022) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70470.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебнике изложение теоретического материала сопровождается подробным рассмотрением большого числа примеров, практические задания представлены на трёх уровнях сложности. В конце каждой главы приводятся основные факты, вопросы и тест для самопроверки, дополнительные задачи и исторические сведения.Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:133B45EF92E53E5A7664D21A00090E8710FBD0DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780732   (70398) от 19.02.2025
+
+Бьянка Питцорно | Послушай моё сердце (2022) [PDF, FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман Бьянки Питцорно, живого классика итальянской литературы, рассказывает об учебном годе в обычной муниципальной школе в начале 1950-х годов. Несмотря на время действия, книга во многом остаётся созвучной современности, а дети-школьники узнают в ученицах и их школьных буднях себя.
+
+Начинается учебный год, и у 4 «Г» класса теперь новая классная руководительница (   Читать дальше...   )Жанр: детская проза, зарубежные детские книги, современная классикаПеревод: Ксения ТименчикИздательство: СамокатФормат: PDF, FB2, EPUB, MOBIКачество: изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EF4D418B5242C5090C9C1FF018F6DA9AAD7ADF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780719   (70387) от 19.02.2025
 
 Ульф Старк | Мой друг Перси, Буффало Билл и я (2015) [PDF, FB2, EPUB, MOBI]
@@ -6,7 +60,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70387.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70184.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70131.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70127.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70124.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70075.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70071.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70054.jpg" />
 </div>
 
 
@@ -220,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70049.jpg" />
 </div>
 
 
@@ -247,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70016.jpg" />
 </div>
 
 
@@ -273,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70012.jpg" />
 </div>
 
 
@@ -299,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70008.jpg" />
 </div>
 
 
@@ -325,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70006.jpg" />
 </div>
 
 
@@ -352,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69993.jpg" />
 </div>
 
 
@@ -378,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69982.jpg" />
 </div>
 
 
@@ -406,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69974.jpg" />
 </div>
 
 
@@ -432,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69773.jpg" />
 </div>
 
 
@@ -459,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69770.jpg" />
 </div>
 
 
@@ -487,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69762.jpg" />
 </div>
 
 
@@ -515,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69753.jpg" />
 </div>
 
 
@@ -543,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69738.jpg" />
 </div>
 
 
@@ -569,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69688.jpg" />
 </div>
 
 
@@ -595,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69677.jpg" />
 </div>
 
 
@@ -621,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69091.jpg" />
 </div>
 
 
@@ -632,58 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA0C00BFCB0C944FC1EB81A516A899F09D627929
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777735   (69078) от 20.03.2025
-
-А.В. Погорелов | Геометрия. Учебник для 10-11 класса (2022) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник написан в соответствии с требованиями ФГОС. Стиль изложения четкий и немногословный, что позволяет использовать этот учебник и как справочник при подготовке к ЕГЭ. Отдельный параграф посвящен вопросам планиметрии. В учебнике цветом выделены задачи повышенной трудности.Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD4B52EFFA990337373608120E8A2FC8B828D754
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786116   (69056) от 20.03.2025
-
-Журнал | Детская Роман-газета №2 (февраль 2025) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Журналы для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69056.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Детская Роман-газета" — журнал для детей среднего школьного возраста. В лучших традициях русской педагогики. Способствует духовному и нравственному развитию детей. Повести и рассказы, исторические миниатюры, этюды о природе. Многое из того, что проходят на уроках истории, литературы, географии, биологии, в увлекательной и занимательной форме. Рекомендован (   Читать дальше...   )Жанр: детский литературный журналИздательство: ЗАО «Роман-газета»Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E9DF7CE1F467460B24000BCC5DC87D5AACEADDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

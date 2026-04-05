@@ -6,7 +6,7 @@ Paul Rodgers - Free Spirit '2017 (2018) DVD5 [hand made]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563941.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563563.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563110.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562894.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Bon Jovi: Live at Madison Square Garden (2008) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562836.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Караоке
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562765.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Lynyrd Skynyrd - One More For The Fans (2015) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562616.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562042.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Rammstein - In Amerika (2015) BDRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561921.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Aerosmith - Rock For The Rising Sun (2011/2013) [1080i] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561731.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561378.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Dragonforce - In The Line Of Fire ... Larger Than Live (2015) BDRip [H.264/1080p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560803.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Cliff Richard - Still Reelin' and A-Rockin' (Live at Sydney Opera House) (2013) 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560600.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Avril Lavigne - Rock N Roll (2013) HDTV [1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560052.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559443.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559355.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559341.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ The Michael Schenker Group - The 30th Anniversary Concert - Live in Tokyo (2010)
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558963.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558899.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_558896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_558896.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Chris Isaak - Видеоклипы (Best Of) (2006) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558877.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ VA - Летний марафон № 178 / Видеоклипы (Зажигат�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558871.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Remember the first people (Native American clips) (2015) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558870.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558449.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557942.jpg" />
 </div>
 
 
@@ -711,7 +711,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557938.jpg" />
 </div>
 
 

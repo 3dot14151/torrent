@@ -7,7 +7,7 @@ Doctor Arcana and The Secret of Shadowspire (2024) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061400.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mystic Diary 4: Wizard's Legacy (2026) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060661.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Grim Tales 27: The Cursed Bloodline / Страшные сказки 27: Родо
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058813.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Bridge to Another World 13: Fate of the Seasons / Мост в другой ми�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058208.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Montgomery Fox 3 and the Revenge of Victor Draven / Монтгомери Фок�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057978.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Mystery of Myths 3: Whisper of Depth / Загадки мифов 3: Шепот �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057705.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Happy Holidays 6: Season of Love / Счастливые праздники 6: С
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056971.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Crosak (2025) [Ru/Multi] (1.04) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055840.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Midnight Girl (2023) [En] (1.6.1) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055805.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Grim Tales 27: The Cursed Bloodline (2026) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055660.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Halloween: Trick or Treat 3 / Хэллоуин: Кошелек или жизнь
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055520.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Hidden Portals 2: Chronicles of the Sunbound / Скрытые порталы 2: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055104.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Bridge to Another World 13: Fate of the Seasons (2026) [En] (1.0) Unofficial [Co
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054670.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Antiques Hunt: Tales of Cobblestone Streets / Охота за антиквари
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054511.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Adventure Seekers: Lost to Sea / Искатели Приключений: Уне
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053283.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Adventure Seekers: Lost to Sea (2026) [Multi] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051871.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ qomp (2021) [En] (1.0) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051276.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Whispered Secrets 17: Poisoner's Masquerade / Нашёптанные секре�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051062.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Happy Holidays 5: Christmas Never Ends / Счастливые праздники
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050369.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Christmas Stories 14: By Candlelight / Рождественские истори
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050175.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Montgomery Fox 2 and the Case of the Missing Ballerinas / Монтгомери �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049926.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Happy Holidays 5: Christmas Never Ends (2025) [Multi] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049863.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Escape from Mental Hospital / 100 Дверей - Сбеги Из Дурдома 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049666.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Christmas Fables 4: Nutcracker's Tale / Рождественские Басни 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049501.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Christmas Wonderland 16 / Рождественская Страна Чудес 1
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049095.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Chronicles of Albian 3: The Vanishing Village / Хроники Альбиана 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048823.jpg" />
 </div>
 
 

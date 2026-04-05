@@ -6,7 +6,7 @@ Dr. Lonnie Smith - Rise Up! (2008) Palmetto Records[FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901106.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Marbin - Marbin on Audiotree Live (2021) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900876.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Oscar Peterson & Harry Edison - 1974 (1992) Original Jazz Classics [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900530.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Billy Cobham - Drum 'n' Voice - All that Groove (2001) [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900197.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Nils Landgren with Janis Siegel - Some Other Time - A Tribute To Leonard Bernste
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899968.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Art Blakey And The Jazz Messengers - Backgammon (1976) Remaster, 2016, Warner[FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899930.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Manu Katche - Unstatic (2016) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899916.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Peter White - Groovin' (2016) [FLAC|Lossless|image + .cue] <Smooth Jazz, Guitar 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899675.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Jimmy Raney - A (1955) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899415.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Louis Hayes & Junior Cook - Ichi-Ban (1976) Remaster, 2015, Solid Records[FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899414.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Della Reese - Four Classic Albums 1958 - 1961 (2018) 2CD, Avid Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898566.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Billy Cobham - Compass Point (2013) 2CD [FLAC|Lossless|tracks + .cue] <Jazz, Fun
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898544.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Various - Electro Swing II (2009) [FLAC|Lossless|image + .cue] <Electronic, Elec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898479.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Quad - El Bizonte Escapado (2016) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898116.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Quantic & Alice Russell with The Combo Bаrbaro - Look Around The Corner (2012) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898105.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Daisy Jopling Band - Awakening (2017) [FLAC|Lossless|tracks] <Jazz, New Age>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898024.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ The Dave Bailey Sextet - One Foot In The Gutter (1960) Remaster, 2015, Sony Musi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897780.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ The John Coltrane - Quartet Plays (1965) 2009, Verve[FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897772.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ The Slide Hampton Octet - Sister Salvation (1960) Remaster, 2012, Warner[FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897372.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Oscar Peterson And Roy Eldridge - 1974 (1992) Original Jazz Classic [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897074.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Klement Julienne - Panamerican (2006) [FLAC|Lossless|image + .cue] <Electronic, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897041.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Dee Dee Bridgewater - J'ai Deux Amours (2005) [FLAC|Lossless|image + .cue] <Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896919.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ VA - Jazz at Picasso (2008) Live Jazz in Kiev [FLAC|Lossless|image + .cue] <Main
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896425.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Dolf De Vries Trio - Where's That Rainy Day (1986) Remaster, 2016, Solid Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896423.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Art Farmer & Fritz Pauer - Azure (1987) Soul Note[FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896422.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Anna Maria Jopek & Gonzalo Rubalcaba - Minione (2016) [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896219.jpg" />
 </div>
 
 

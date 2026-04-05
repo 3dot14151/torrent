@@ -6,7 +6,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891528.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Vermicide Violence - Coronaviscerated (feat. Jared Dines) COVID-19 (2020) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_890090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_890090.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889948.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889900.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889533.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889519.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Timeflies - I Choose U (2013) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889506.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Metallica - The Night Before Concert at San Francisco’s AT&T Park (2016) WEBRi
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889400.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889395.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889092.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888957.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Inna - Party Never Ends (Ok Edition. CD №4) (2013) [H.264/1080p-LQ] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888941.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Jenifer - L'amour Fou (2012) HDTV [H.264/1080i]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887230.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887110.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Northern Genocide - 3 Music Videos (2015-2019) WEBRip [H.264/1080p-LQ] <Industri
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886991.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Malevolence (UK) 7 Music Videos (2015-2020) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886980.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ NikitA - Игра (2013) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886814.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ NikitA - Avocado (2012) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886643.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886392.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885733.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885421.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885256.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Echoes - Barefoot To The Moon – An Acoustic Tribute To Pink Floyd (2015) Blu-r
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885242.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885232.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885111.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ History of Rock (2016) WEBRip [H.264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884290.jpg" />
 </div>
 
 

@@ -1,3 +1,110 @@
+###  Публикация: 1717488   (52849) от 19.06.2024
+
+Songsterr Guitar Tabs & Chords v5.24.0 Mod by derrin [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Songsterr — приложение для просмотра и разучивания табов и аккордов музыки ваших любимых исполнителей. Приобретая его, вы получаете более 500.000 интерактивных табулатур для гитары, баса и барабанов с возможностью проигрывания.
+Табулатуры
+• Реалистичный звук. Высококачественные инструментальные сэмплы.
+• Отдельные дорожки для каждого инструмента (гитары, баса, барабанов, (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 19.06.2024Разработчик: SongsterrПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5469B47C92028363A6DFFAF0B3FF149183F46401
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731201   (52839) от 19.06.2024
+
+GreenTuber - неофициальный клиент YouTube 0.1.4.2 Mod by MDNIY [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52839.jpg" />
+</div>
+
+
+###  Подробнее
+
+GreenTuber - это неофициальный клиент YouTube, что станет отличной находкой для всех кто хочет существенно повысить комфорт взаимодействия с известным видеохостингом. Удобное управление, различные интересные идеи в механике воспроизведения, сохранение всех главных и классических функций, отсутствие рекламы, работа с закладками, крайне экономный подход к ресурсам (   Читать дальше...   )Тип издания: ModРелиз состоялся: 01.06.2024Разработчик: MaxsortubeПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4993D89772A86D1546D19C0298BF14D3148E4072
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731241   (52824) от 19.06.2024
+
+UpNote - Записка, дневник 9.4.0 Mod by Mixroot [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52824.jpg" />
+</div>
+
+
+###  Подробнее
+
+UpNote - проект, что является платформой для небольших записей и заметок, и для ведения полноценного дневника или же даже журнала событий с многочисленными деталями. При этом есть и система защиты, так что никакие конфиденциальные данные не выйдут за пределы личного пользования. Удобная структура и механика обеспечивает и работу и редактирование. Переделка, обновление, (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 09.06.2024Разработчик: UpNote Co LtdПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2D2FAA7C08E7C6D801B7ADEB0D7E3567DA57CFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731027   (52816) от 19.06.2024
+
+Microsoft Edge 124.0.2478.71 (ARM64) Lite-Mod by Rarity$ [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Edge - это современный веб-браузер для Android с ИИ функциями. Отличается высокой скоростью работы, хорошей производительностью и совместимостью со всеми современными веб-стандартами. Microsoft Edge - это скорость, производительность и совместимость со всеми вашими любимыми сайтами и расширениями.Тип издания: Lite-Mod (облегчённый)Релиз состоялся: 29.04.2024Разработчик: Microsoft CorporationПоддерживаемая ОС: Android 8.0+ (Только для ARM64)Язык интерфейса: Русский, Английский и Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:601166426F9B851AD2AB1A0EF38975FBED35175B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1731151   (52800) от 19.06.2024
 
 Today Weather - Прогноз погоды 2.2.1-15.140524 Mod by Kirlif' [Ru/Multi]
@@ -6,7 +113,7 @@ Today Weather - Прогноз погоды 2.2.1-15.140524 Mod by Kirlif' [Ru/M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52800.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ O Launcher 12.3 (ARM64) Mod by AppModz [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52793.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ Today Weather - Прогноз погоды 2.2.2-6.070624 Mod by Balatan [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52773.jpg" />
 </div>
 
 
@@ -84,7 +191,7 @@ Today Weather - Прогноз погоды 2.2.2-6.070624 Mod by youarefinished
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52769.jpg" />
 </div>
 
 
@@ -110,7 +217,7 @@ SuperImage Pro - AI Enhancer 3.0.2 (ARM64) Mod by ApplicazioniCR [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52711.jpg" />
 </div>
 
 
@@ -136,7 +243,7 @@ FiiNote / Быстрые заметки v12.9.0.23 Mod by Alex.Strannik [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52696.jpg" />
 </div>
 
 
@@ -162,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52494.jpg" />
 </div>
 
 
@@ -189,7 +296,7 @@ Zedge™ Wallpapers & Ringtones 8.48.1 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52410.jpg" />
 </div>
 
 
@@ -215,7 +322,7 @@ Motion Portrait v1.7.1 Mod by APKMods [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52355.jpg" />
 </div>
 
 
@@ -241,7 +348,7 @@ Folder Player Pro v5.27 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52320.jpg" />
 </div>
 
 
@@ -267,7 +374,7 @@ VivaVideo Video Editor v9.17.5 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52225.jpg" />
 </div>
 
 
@@ -293,7 +400,7 @@ SnapEdit - AI photo editor v6.5.8 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52217.jpg" />
 </div>
 
 
@@ -319,7 +426,7 @@ Purvpn 9.8 [En/Farsi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52099.jpg" />
 </div>
 
 
@@ -348,7 +455,7 @@ Grab Photos From Videos / Фото из видео v11.2.0 Mod by Mixroot [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52097.jpg" />
 </div>
 
 
@@ -374,7 +481,7 @@ YouCut - Video Editor v1.631.1191 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52036.jpg" />
 </div>
 
 
@@ -400,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51955.jpg" />
 </div>
 
 
@@ -426,7 +533,7 @@ OfficeSuite Pro + PDF 14.5.52368 Lite-Mod by Balatan [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51903.jpg" />
 </div>
 
 
@@ -452,7 +559,7 @@ ReLens - Фокус и размытие DSLR 3.3.3 Mod by AjeethK [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51902.jpg" />
 </div>
 
 
@@ -478,7 +585,7 @@ Video Compressor v1.2.62 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51540.jpg" />
 </div>
 
 
@@ -505,7 +612,7 @@ Battery One: Батарея 1.8.0 Lite-Mod by NURIK [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51499.jpg" />
 </div>
 
 
@@ -531,7 +638,7 @@ Battery One: Батарея 1.8.0 Mod by Fxolan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51477.jpg" />
 </div>
 
 
@@ -557,7 +664,7 @@ Psiphon Pro 397 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51263.jpg" />
 </div>
 
 
@@ -568,111 +675,6 @@ Psiphon Pro дает вам беспрецедентный доступ к ва�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4FF305BB09C11550FF70B27EE15B22E6A85D647
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733059   (50776) от 07.07.2024
-
-Таблица Калорийности v3.10.7 Mod by vadj [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50776.jpg" />
-</div>
-
-
-###  Подробнее
-
-Функциональный дневник питания Таблица Калорийности - это счетчик калорий, где легко делать подсчет кбжу. Похудение теперь не проблема. Удобный калькулятор калорий позволит правильно худеть и произведет расчет ккал и бжу. Приложение Таблица Калорийности - это трекер питания и незаменимый помощник для любителей здорового образа жизни (ЗОЖ), кто предпочитает делать (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 04.07.2024Разработчик: Dine4Fit, a.s.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD563FE9459951F81BF57776271BD26013281774
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735303   (50767) от 07.07.2024
-
-OsmAnd+ — Карты & GPS Офлайн v4.8.1 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>Навигация для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50767.jpg" />
-</div>
-
-
-###  Подробнее
-
-OsmAnd+ - это приложение с картами всего мира на основе OpenStreetMap (OSM). Позволяет осуществлять навигацию с учётом предпочитаемых дорог и габаритов транспортного средства. Планировать маршруты с учетом уклонов и записывать GPX треки без подключения к интернету.
-OsmAnd+ является приложением с открытым исходным кодом. Мы не собираем данные о пользователях и вы (   Читать дальше...   )Тип издания: Live ModРелиз состоялся: 06.07.2024Разработчик: OsmAndПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C693DEF511BB2FF24B605BB4006A0AC21FF9A89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735250   (50756) от 07.07.2024
-
-PictureThis - Plant Identification v4.1 Mod by youarefinished [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Распознавайте растения мгновенно. Быстро, точно и содержательно! Помимо описания растений и советов по уходу, наслаждайтесь красивыми фото растений со всего мира. PictureThis помогает более 70 млн пользователей определять, изучать и наслаждаться всеми видами растений: цветами, деревьями, суккулентами, кактусами и другими!Тип издания: GoldРелиз состоялся: 06.07.2024Разработчик: Glority LLCПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB3277BDE53D96335590D49815F82BCBC387C8AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735257   (50754) от 07.07.2024
-
-Plus Messenger (Telegram+) v10.14.2.0 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Plus Messenger - неофициальное приложение для обмена сообщениями, на основе Telegram API. Весьма крутой альтернативный клиент для Telegram. Много настроек. Развивается. Вкладки. Категории. В наличии весьма немалое количество дополнительных настроек. Быстро обновляется. Plus без проблем синхронизируется со всеми вашими устройствами и может использоваться на планшетах (   Читать дальше...   )Тип издания: ModРелиз состоялся: 03.07.2024Разработчик: rafalenseПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DBC5453C428E2D23B2598CCFB01F93B7FA0360E
 ```
 
 https://mybot314.ru/tekegram_catalog/

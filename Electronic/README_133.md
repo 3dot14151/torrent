@@ -1,3 +1,61 @@
+###  Публикация: 1274137   (794119) от 06.01.2019
+
+Dreamtime - Particles (2015) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Spacesynth, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave, Retro (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phantasm (5:24)
+02. Cosmoride II (4:42)
+03. Typhoon (6:17)
+04. Guru Meditation (4:24)(   Читать дальше...   )Жанр: Spacesynth, SynthpopПродолжительность: 00:45:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C5B78D0937387DF7A0E014B751FF97ABDE3232D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274132   (794117) от 06.01.2019
+
+Dreamtime - Innerstellar Jam (2013) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Spacesynth, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave, Retro (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Retrological Mind (5:03)
+02. Hexadecimal Memories (5:07)
+03. Kauas Pois (6:07)
+04. Brainhunt (6:20)(   Читать дальше...   )Жанр: Spacesynth, SynthpopПродолжительность: 00:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AD59EEDE739F0FED4D23BAFEF97960BDC18032D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274206   (794096) от 06.01.2019
 
 VA - Dream Dance Vol.86 (2019) [FLAC|Lossless|WEB-DL|tracks] <Trance, ProgressiveTrance, UpliftingTrance>
@@ -6,7 +64,7 @@ VA - Dream Dance Vol.86 (2019) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressiv
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794096.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Artificial Intelligence I - II (1992/1994) Warp Records [FLAC|Lossless]<IDM
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794093.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Mysterious Station Dark The Best Of 2017 (Mixed by Dr Riddle) (2018) [MP3|3
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794069.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Urban Dance Vol.23 (2018) 3CD [MP3|320 Kbps] <House, Club, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794068.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Takashi Wada - Discography 8 Releases (2004-2015) REALJO[K]E Recordings, Onitor,
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794022.jpg" />
 </div>
 
 
@@ -149,7 +207,7 @@ Sonny Fodera - Wide Awake (2021) [FLAC 2.0|44.1/24/16|tracks|WEB-DL] <Deep House
 >>Trance, House, Techno (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793968.jpg" />
 </div>
 
 
@@ -178,7 +236,7 @@ RaLax - Discography 10 Releases (2012-2018) [FLAC|Lossless|WEB-DL|tracks] <IDM, 
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793961.jpg" />
 </div>
 
 
@@ -207,7 +265,7 @@ VA - Ace Ventura - Christmas Selection Vol. 4 (2017) [MP3|320 Kbps] <Psytrance  
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793949.jpg" />
 </div>
 
 
@@ -236,7 +294,7 @@ VA - A State Of Trance 1000 - Celebration Mix (Mixed by Armin van Buuren) (2021)
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793915.jpg" />
 </div>
 
 
@@ -265,7 +323,7 @@ VA - Deep House Edition #001 (2016) [MP3|320 кб/с] <Deep House, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793721.jpg" />
 </div>
 
 
@@ -294,7 +352,7 @@ VA - Coastal Selections 003 (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793714.jpg" />
 </div>
 
 
@@ -323,7 +381,7 @@ VA - wave 001 (2016) [MP3|192-320 Kbps] <Electronic>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793712.jpg" />
 </div>
 
 
@@ -352,7 +410,7 @@ Pet Shop Boys - Collection 25 Releases (1986-2020) 43 CD [FLAC|Lossless|tracks +
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793640.jpg" />
 </div>
 
 
@@ -382,7 +440,7 @@ VA - Play Acoustic Music (2017) [MP3|320 Kbps] <Downtempo, Acoustic, Instrumenta
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793611.jpg" />
 </div>
 
 
@@ -411,7 +469,7 @@ VA - Dinner and Jazz Vol.1: Finest Lounge and Smooth Jazz Music (2017) [MP3|320 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793608.jpg" />
 </div>
 
 
@@ -440,7 +498,7 @@ VA - Chill Out Classics (2016) [MP3|320 Kbps] <Downtempo, Chillout, Vocal>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793514.jpg" />
 </div>
 
 
@@ -469,7 +527,7 @@ VA - Rhythm Code 5 (2020) Shanti Planti [FLAC|Lossless|WEB-DL|tracks] <Psychill,
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793473.jpg" />
 </div>
 
 
@@ -498,7 +556,7 @@ VA - Midnight Flight Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tra
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793386.jpg" />
 </div>
 
 
@@ -527,7 +585,7 @@ VA - Electronic Sound Presents Coldcut: The Ninja Mix (2017) [FLAC|Lossless|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793373.jpg" />
 </div>
 
 
@@ -558,7 +616,7 @@ FM-84 - Los Angeles (2015) EP [MP3|320 Kbps] <Electronic, Synthwave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793251.jpg" />
 </div>
 
 
@@ -587,7 +645,7 @@ Clubroot - Discography 9 Releases (2009-2020) Lo Dubs Records [FLAC|Lossless|tra
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793225.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Yves De Mey - Bleak Comfort (2018) Latency [FLAC|Lossless|WEB-DL|tracks] <Experi
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793061.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793058.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Anthony Linell - A Sense Of Order (2018) Northern Electronics [FLAC|Lossless|WEB
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793056.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Anthony Linell - A Sense Of Order (2018) Northern Electronics [FLAC|Lossless|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4E09FEC933D62F771ACA3A597C06A1FDB9813A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274629   (793053) от 07.01.2019
-
-Umami - In Exchange For Everything (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghostnote (5:40)
- 02. Terra Mount feat. Monolink (7:34)
- 03. Behind The Wheel (7:24)
- 04. Number Of The Beast (4:58)(   Читать дальше...   )Жанр: Deep House, Tech House, DowntempoПродолжительность: 01:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26554B75B0A9EE7D3F89CB596F76F223CAE710D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274470   (792992) от 07.01.2019
-
-Voiski - The Bat Who Wanted To See The Sun (2019) Dolly [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taking Flight (06:14)
-02. The Valley of Nothingness (04:53)
-03. The Parrot's Excuse (05:44)
-04. Simorgh in Persia's Sky (05:41)Жанр: TechnoПродолжительность: 00:22:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:163018409CBEE3C28A0602F86B6D78C28C2986BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,56 @@
 https://t.me/izofen
+###  Публикация: 1863214   (1063915) от 
+
+Три товарища / Three comrades (1938) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063915.jpg" />
+</div>
+
+
+###  Подробнее
+
+Германия рубежа 20-30-х годов. Ожоги войны, навсегда оставшиеся в душах людей, постоянно напоминают о себе. Трое друзей - Готтфрид Ленц, Отто Кестер, Роберт Локамп и его юная возлюбленная Пат - учатся жить в мире, где так много боли и зла, предательства и малодушия. Каждый из героев оказывается у нравственного рубежа, каждый делает свой выбор и каждый расплачивается (   Читать дальше...   )Производство: США / Metro-Goldwyn-Mayer, Loew's Inc.Жанр: драма, мелодрама, экранизацияРежиссер: Фрэнк БорзегиАктеры: Роберт Тейлор, Маргарет Саллаван, Франшо Тоун, Роберт Янг, Гай Кибби, Лайонел Этуилл, Генри Халл, Чарли Грейпвин, Монти Вулли, Рицца Аллен и дрПеревод: Двуголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:38:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:951503B393A945858B960FB612B7265ACACCEE27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863243   (1063872) от 
+
+Свидетель обвинения / Witness for the Prosecution (1957) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация одноимённой пьесы Агаты Кристи, написанной по её же одноимённому рассказу... Сэр Уилфриду Робартсу, тяжело больному адвокату, врачи запретили заниматься уголовными делами. Выполнять их рекомендации он может, только благодаря заботливой домашней медсестре мисс Плимсолл. Но когда его поверенный приводит к нему домой подозреваемого в убийстве Леонарда Воула, (   Читать дальше...   )Производство: США / Edward Small ProductionsЖанр: драма, детективРежиссер: Билли УайлдерАктеры: Тайрон Пауэр, Марлен Дитрих, Чарльз Лотон, Эльза Ланчестер, Джон Уильямс (II), Генри Дэниелл, Йен Вульф, Торин Тэтчер, Норма Варден, Уна О`КоннорПеревод: дублированный (Киностудия им. М. Горького), профессиональный многоголосый (Film Prestige), любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:56:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEC6570F689099D301CDDD97088BEBC7E3D46645
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861990   (1063103) от 
 
 Вожди Атлантиды / Warlords of Atlantis (1978) BDRip [H.264]
@@ -7,7 +59,7 @@ https://t.me/izofen
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1063103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063103.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062114.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061931.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061561.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061384.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061356.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061241.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060917.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060812.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060328.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059823.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059514.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059421.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059225.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059218.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059101.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059028.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058591.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058188.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057815.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057812.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057809.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057597.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057270.jpg" />
 </div>
 
 
@@ -626,58 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8AF5B5D6E0C7496174DE8A26D5729EA1638B0E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854362   (1057180) от 17.02.2026
-
-Зорро / Zorro (1975) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авантюрист Диего, сопровождая своего друга Мигуэля в испанские колонии, где тот должен получить пост губернатора Нового Арагона, становится свидетелем его убийства. Желая отомстить за друга, Диего забирает бумаги Мигуэля и выдаёт себя за губернатора. Чтобы не вызвать подозрение у опасного противника, полковника Уэрты, терроризирующего страну и виновного в смерти (   Читать дальше...   )Производство: Италия, Франция / Les Productions Artistes Associés, Mondial Televisione FilmЖанр: боевик, мелодрама, комедия, приключения, вестернРежиссер: Дуччо ТессариАктеры: Ален Делон, Оттавия Пикколо, Энцо Черузико, Мусташ, Джакомо Росси Стюарт, Джампьеро Альбертини, Марино Мазе, Райка Юрий, Адриана Асти, Стенли БейкерПеревод: Дублированный (киностудия «Союзмультфильм»), многоголосый профессиональный Останкино, ТВЦентр, R5 Cinema Prestige), авторский (К. Дьяконов)Язык озвучки: Русский, итальянскийСубтитры: Английские, итальянскиеПродолжительность: 02:05:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F444D05676C9E2DC2301FA204DA4B54AEF8367F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853608   (1056775) от 14.02.2026
-
-Непрощенная / The Unforgiven (1960) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056775.jpg" />
-</div>
-
-
-###  Подробнее
-
-Техас, 1850-е годы. Глава семьи Захария погиб много лет назад от рук индейцев, защищая свой дом и семью. Мать одна воспитала трёх своих сыновей и девочку Рэйчел, чьи родители также были убиты индейцами. Неожиданно индейцы выясняют, что в девушке течёт кровь племени кайова, и приходят забрать свою соплеменницу. Испугавшись, никто не приходит на помощь осаждённой семье. (   Читать дальше...   )Производство: США / Hecht-Hill-Lancaster Productions, James Productions Inc.Жанр: вестерн, драма, мелодрамаРежиссер: Джон ХьюстонАктеры: Берт Ланкастер, Одри Хепберн, Оди Мерфи, Джон Сэксон, Чарльз Бикфорд, Лиллиан Гиш, Альберт Сэлми, Джозеф Уайзмен, Джун Уолкер, Кипп ХэмилтонПеревод: Двуголосый профессиональный (Film Prestige)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 02:01:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDD079D5F3E9C4A93CCC0DC4A7DDD96F418BCEF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

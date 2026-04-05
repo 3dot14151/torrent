@@ -6,7 +6,7 @@ BBC. Horizon: Юпитер раскрывает свои тайны / Jupiter Re
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443989.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BBC: Ада Лавлейс: первая леди программировани
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441597.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BBC. Тайные агенты Елизаветы I / Elizabeth I's Secret Agent
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439625.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BBC. История Христианства / A History of Christianity (2009) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434606.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ BBC: История хирургии.  Кровавое начало [5 из 5] 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433148.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ BBC Horizon: Человек на Марсе. Экспедиция на крас�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431279.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429345.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ BBC: Супервулкан / BBC: Supervolcano (2005) HDTV [1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_428639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_428639.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427047.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ BBC: Новая Европа с Майклом Пэйлином / New Europe Wit
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_426662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_426662.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424823.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ BBC. Дикая природа: шпион среди антилоп гну / Tr
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422583.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ BBC: Райские птицы с Дэвидом Аттенборо / Attenborou
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421036.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ BBC: Horizon. Как победить хакеров / Defeating the Hackers (20
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413920.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ BBC: Знакомьтесь, ваши предки неандертальцы / 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408530.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ BBC: Джек Потрошитель: следствие возобновляе�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407891.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ BBC: Тайная жизнь близнецов / The Secret Life of Twins (2015
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403054.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ BBC: Уникальные способности животных / Animal Super
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401225.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393831.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ BBC: Коронация (Коронация с ее Величеством Ко�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387600.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ BBC. Тайны взросления / The Secret Life of Growing Up (2016) DVB 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386973.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ BBC: Что такое красота? / What is beauty? (2009) DVBRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380619.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ BBC. Британские времена года / The Great British Year (2013
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380224.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ BBC. Вселенная / Universe / Das Universum - Faszination Weltall (2022) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378582.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ BBC: Битва экзопланет / Battle of the exoplanets (2018) IPTVRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378358.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ BBC: Пингвин: Шпион под прикрытием / Penguins - Spy In 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377379.jpg" />
 </div>
 
 

@@ -1,3 +1,61 @@
+###  Публикация: 1705603   (63382) от 10.03.2024
+
+VA - The Orient Collective - Moonlight Desert Odyssey (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Noam Garcia, Diego Galloso, Tibetania - Mantra (9:12)
+02. Tibetania, Air Paradise - Shawarma (6:14)
+03. Soldatov, Tibetania - Pegasus (4:17)
+04. Tibetania, Lost Bird - Jara (5:55)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:12:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0066449E8CE10F74618F1698450786B5ABFB80D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741690   (46915) от 13.08.2024
+
+Marilyn Monroe - The World Of Marilyn Monroe (2006) 2CD [WavPack|Lossless|image + .cue] <Stage & Screen>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Runnin Wild
+ 02. I'm Thru With Love
+ 03. When Love Goes Wrong
+ 04. My Heart Belongs To Daddy(   Читать дальше...   )Жанр: Stage & ScreenПродолжительность: 00:28:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F6A7C52BD49CF94C8CC556C9C6DB958C05D5E5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1753942   (41151) от 07.10.2024
 
 VA - The Orient Collective - Blossoms (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
@@ -6,7 +64,7 @@ VA - The Orient Collective - Blossoms (2024) [FLAC|Lossless|WEB-DL|tracks] <Worl
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41151.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - The Orient Collective - Divine Oracle (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40870.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - The Orient Collective - Ethernal (2024) [FLAC|Lossless|WEB-DL|tracks] <Worl
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40780.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - The Orient Collective - Forest Spirits (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40052.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - The Orient Collective: Mandala (2024) [FLAC|Lossless|WEB-DL|tracks] <World,
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39074.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Feelin's - Love Melody Vol.2 (2008) [WavPack|Lossless|image + .cue] <Romantic Me
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37081.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36787.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - The Orient Collective: Sanctuary (2024) [FLAC|Lossless|WEB-DL|tracks] <Worl
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36759.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - 300 Greatest Rock Drum Perfomances (vol.1-2) (2008) [FLAC|Lossless]<All Sty
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35809.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - The Orient Collective: Timeless Sands (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35403.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Can't Hardly Wait (Music From The Motion Picture (1998) CD, Compilation [FL
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35115.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - The Orient Collective: Spirits of the East (2025) [FLAC|Lossless|WEB-DL|tra
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31364.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - The Orient Collective: Ancient Beauty (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17251.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Pioneer LaserActive - The Art Of Entertainment - Private Music Sampler (199
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16723.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - The Orient Collective: Earth And Sky (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16325.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - The Orient Collective: Sacred Earth (2025) [FLAC|Lossless|WEB-DL|tracks] <W
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16231.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - The Orient Collective : Ayahuasca (2025) [FLAC|Lossless|WEB-DL|tracks] <Wor
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16169.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Secret Garden - Secret Summer (2025) [FLAC|Lossless|WEB-DL|tracks] <Celtic, Neo-
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13662.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - The Orient Collective: Mystic Sands (2024) [FLAC|Lossless|WEB-DL|tracks] <W
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8443.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - The Orient Collective: Tibetan Spirits (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4405.jpg" />
 </div>
 
 

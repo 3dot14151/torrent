@@ -1,3 +1,30 @@
+###  Публикация: 1420803   (331118) от 02.11.2020
+
+[TanStack] Tanner Linsley | React Query - Основы / React Query - Essentials (2020) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331118.jpg" />
+</div>
+
+
+###  Подробнее
+
+Официальное и эксклюзивное руководство по освоению состояния сервера в ваших приложениях от первоначального создателя и сопровождающего библиотеки.
+В этом курсе вы узнаете, как использовать React Query в качестве предпочтительного оружия для победы и преодоления проблем и препятствий, связанных с состоянием сервера.Производство: TanStackЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 02:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:334E1BA67C025C5229915347D5640FC25C6E4884
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1420796   (331045) от 02.11.2020
 
 Jan Urschel | Скалистые ландшафты в Blender 2.82 / Rocky Landscapes in Blender 2.82 (2020) PCRec [EN]
@@ -6,7 +33,7 @@ Jan Urschel | Скалистые ландшафты в Blender 2.82 / Rocky Land
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331045.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330823.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329961.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329955.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ Udemy, Mammoth Interactive, John Bura | The Complete Course To Advance Your Codi
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328715.jpg" />
 </div>
 
 
@@ -136,7 +163,7 @@ Udemy, Elshad Karimov | Java Data Structures and Algorithms Masterclass (2022) W
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328573.jpg" />
 </div>
 
 
@@ -164,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328072.jpg" />
 </div>
 
 
@@ -193,7 +220,7 @@ Sova Film | Дышите свободно. Перкуссионный масса
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327588.jpg" />
 </div>
 
 
@@ -219,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327193.jpg" />
 </div>
 
 
@@ -247,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327182.jpg" />
 </div>
 
 
@@ -274,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327180.jpg" />
 </div>
 
 
@@ -300,7 +327,7 @@ Flipped Normals | Creating a Full Character in Zbrush (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326032.jpg" />
 </div>
 
 
@@ -329,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325576.jpg" />
 </div>
 
 
@@ -355,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325166.jpg" />
 </div>
 
 
@@ -382,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323816.jpg" />
 </div>
 
 
@@ -409,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323659.jpg" />
 </div>
 
 
@@ -435,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323521.jpg" />
 </div>
 
 
@@ -461,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323511.jpg" />
 </div>
 
 
@@ -489,7 +516,7 @@ Jan Urschel | Процедурные городские пейзажи в Blende
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321887.jpg" />
 </div>
 
 
@@ -515,7 +542,7 @@ Jan Urschel | Погодные эффекты в Blender 2.81 / Weather Effects 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321780.jpg" />
 </div>
 
 
@@ -541,7 +568,7 @@ Jan Urschel | Дизайн Sci-Fi окружения в Blender 2.82 / Sci-Fi En
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321665.jpg" />
 </div>
 
 
@@ -568,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321108.jpg" />
 </div>
 
 
@@ -595,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321103.jpg" />
 </div>
 
 
@@ -624,7 +651,7 @@ Gumroad, Pierrick Picaut| Фэнтезийная башня на скале - П
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320303.jpg" />
 </div>
 
 
@@ -651,7 +678,7 @@ Udemy, Nikolay Naydenov | Lobo - 3D character in Blender course (2022) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320236.jpg" />
 </div>
 
 
@@ -664,35 +691,6 @@ Udemy, Nikolay Naydenov | Lobo - 3D character in Blender course (2022) PCRec [EN
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74245F32900DD3798EDF156BEBD466DF2A692FEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074254   (319936) от 22.11.2016
-
-Бизнес Молодость | Интенсив (2015) PCRec
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный двухдневный тренинг Бизнес Молодости
-
-В «Интенсиве» участвуют разные люди
-Школьники, студенты, взрослые и пенсионеры;(   Читать дальше...   )Жанр: Тергетинг, ВидеокурсПродолжительность: 11:31:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53EF9DA40639E40E0454DB52B3BE6D816C883F7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

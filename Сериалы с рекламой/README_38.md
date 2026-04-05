@@ -1,3 +1,55 @@
+###  Публикация: 1670340   (172036) от 20.10.2023
+
+Отключение / Apagon (2022) HDRip (сезон 1, серии 1-5 из 5) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Магнитная буря вызывает повсеместное отключение электроэнергии. В этой новой реальности разворачиваются пять историй, в которых персонажи изо всех сил пытаются приспособиться к миру без электричества, телекоммуникаций и транспортных средств, в котором им приходится сталкиваться со своими самыми основными потребностями, инстинктами и страхами.Производство: Испания / Buendía EstudiosЖанр: драмаРежиссер: Рауль Аревало, Иза Кампо, Исаки Лакуэста и др.Актеры: Луис Кальехо, Микель Фернандес, Мария Васкес, Айноа Сантамария, Хесус Карроса, Зои Арнао, Мелина Мэтьюз, Патриция Лопез, Naira Lleó, Конча Дельгадо и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийПродолжительность: ~00:45:00 серияРеклама: Присутствуют видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F8415A7E98952ED3BC5279494653D78C09DD4A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671451   (171391) от 24.10.2023
+
+Жизнь - не детская игрушка / Vivere non e un gioco da ragazzi (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 6) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Леле – хороший мальчик из скромной семьи, который ходит в школу с детьми болонской элиты. В свои 18 лет он влюблен в Серену – красивую и умную "королеву школы". Денег нет, а впечатление на девочку произвести хочется – так он оказывается втянут в торговлю наркотиками на дискотеках. В один из вечеров он продает таблетку своему другу Мирко, которого на следующий (   Читать дальше...   )Производство: Италия / PicomediaЖанр: детективРежиссер: Роландо РавеллоАктеры: Николь Гримаудо, Клаудио Бизио, Стефано Фрези, Riccardo de Rinaldis Santorelli, Matilde Benedusi, Alessia Cosmo, Ginevra Culini, Pietro De Nova, Luca Geminiani, Лучиа Машино и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~00:50:00 серияРеклама: Присутствуют видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42747A981F4582030F4FBF579E3D0360DE590A6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1671452   (171375) от 24.10.2023
 
 Жизнь - не детская игрушка / Vivere non e un gioco da ragazzi (2023) WEBRip (сезон 1, серии 1-6 из 6) ViruseProject [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171375.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170751.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170276.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170147.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169577.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169576.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169561.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169555.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169535.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169507.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169036.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168730.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168708.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168197.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168191.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168144.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166046.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166025.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166002.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165937.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165863.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165829.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165468.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165158.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19728B12F6064A4AD289868B3F8B06EB5A0146D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432079   (165136) от 16.12.2020
-
-В неведении / The Sleepers (2019) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-6 из 6) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165136.jpg" />
-</div>
-
-
-###  Подробнее
-
-1989 год. Мария Скалова - профессиональная скрипачка, бежавшая 12 лет назад со своим мужем, диссидентом Виктором, из тоталитарной Чехословакии в Великобританию. Но теперь социалистический режим ослаблен и Мария хотела бы через много лет наконец-то навестить свою семью. Но вскоре после возвращения в Прагу выясняется, что это решение было роковой ошибкой. Виктор при (   Читать дальше...   )Производство: Чехия / HBO EuropeЖанр: триллер, драмаРежиссер: Иван ЗахариасАктеры: Татьяна Паугофова, Мартин Мышичка, Ян Власак, Ленка Власакова, Петр Лненичка, Хэтти Морахэн, Кристина Малерова, Джим Хай, Иван Г’Вера, Мартин Хофманн м д.р.Перевод: Двуголосый закадровый (ViruseProject)Субтитры: РусскиеПродолжительность: ~01:00:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FBB1167B0F253D18766E29CFE88FBAD23D3052C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673446   (164961) от 01.11.2023
-
-Женщина в стене / The Woman in the Wall (2023) WEB-DLRip (сезон 1, серии 1-6 из 6) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет сериала строится вокруг женщины по имени Лорна Брейди. Главная героиня однажды утром обнаруживает то, что меньше всего ожидала увидеть: в её доме появляется труп неизвестной женщины. Лорна понятия не имеет, кто она такая, поэтому с огромным волнением принимает то, что происходит в её собственном доме. Героиня не спешит обращаться в полицию, ведь знает, что (   Читать дальше...   )Производство: Великобритания / Motive Pictures, Showtime Networks, British Broadcasting Corporation (BBC)Жанр: триллерРежиссер: Гарри Вутлифф, Рашна СуриАктеры: Рут Уилсон, Дэрил МакКормак, Саймон Делани, Филлипа Данн, Марк Хубермэн, Хильда Фэй, Фрэнсис Томелти, Дермот Краули, Эбби Фиц, Caoimhe Farren и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийПродолжительность: ~00:55:00 серияРеклама: Присутствуют видео вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E444098C81FF6FB067485213A8293CB43F39BE8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

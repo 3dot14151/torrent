@@ -1,55 +1,3 @@
-###  Публикация: 1392706   (769070) от 27.06.2020
-
-Джордж Лейн | Краткая история. Монголы (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769070.jpg" />
-</div>
-
-
-###  Подробнее
-
-В период своего расцвета Монгольская империя, сформировавшаяся в XIII веке в результате завоеваний Чингисхана и его преемников, включала в себя самую большую из когда-либо существовавших единую государственную территорию, простираясь от Восточной Европы до Японского моря и от русского Новгорода до Юго-Восточной Азии. Краткое изложение истории Монгольской империи (   Читать дальше...   )Жанр: ИсторияПродолжительность: 11:20:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB5F8B85861C12A06191208C41AD712B163442A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213553   (768125) от 17.03.2018
-
-Виктор Артёмов, Юрий Лубченков | Рождение Новороссии. От Екатерины II до Александра I (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новороссия возникла и развивалась как составная часть Русского Мира, где национальная и религиозная толерантность, широта души, уважение традиций и духовность всегда были и есть его основой того мира, что вырос из Древнерусского государства, Московской Руси, Российской империи, а потом - и СССР. Как образовалась Новороссия? Кто создавал и что способствовало развитию (   Читать дальше...   )Жанр: Отечественная историяПродолжительность: 17:12:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D153E340059C0070BBB45C1B6D436BAB18702C7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213911   (767326) от 18.03.2018
 
 Лев Полушкин | Братья Орловы. Легенда и быль (2018) [MP3]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767326.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766937.jpg" />
 </div>
 
 
@@ -112,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766865.jpg" />
 </div>
 
 
@@ -140,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766860.jpg" />
 </div>
 
 
@@ -167,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764825.jpg" />
 </div>
 
 
@@ -193,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764314.jpg" />
 </div>
 
 
@@ -220,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763965.jpg" />
 </div>
 
 
@@ -246,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761364.jpg" />
 </div>
 
 
@@ -272,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759882.jpg" />
 </div>
 
 
@@ -299,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759269.jpg" />
 </div>
 
 
@@ -325,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757628.jpg" />
 </div>
 
 
@@ -351,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757452.jpg" />
 </div>
 
 
@@ -377,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757449.jpg" />
 </div>
 
 
@@ -403,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757372.jpg" />
 </div>
 
 
@@ -432,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753883.jpg" />
 </div>
 
 
@@ -459,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753706.jpg" />
 </div>
 
 
@@ -485,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752109.jpg" />
 </div>
 
 
@@ -512,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751978.jpg" />
 </div>
 
 
@@ -539,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751859.jpg" />
 </div>
 
 
@@ -565,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748828.jpg" />
 </div>
 
 
@@ -591,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748396.jpg" />
 </div>
 
 
@@ -617,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748336.jpg" />
 </div>
 
 
@@ -643,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747742.jpg" />
 </div>
 
 
@@ -669,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746964.jpg" />
 </div>
 
 
@@ -680,6 +628,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8078B899490C696EE3387ED70531945A6212A7BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020185   (746902) от 25.05.2016
+
+Михаил Строганов | Поколение победителей (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поколение победителей рождалось в страшные годы Первой мировой войны, в дни национальной трагедии эпохи гражданской, в смутное безвременье НЭПа, когда и любящие и ненавидящие Россию в один голос утверждали, что с ней покончено навсегда. Что не пройдет и четверти века, как русские исчезнут с лица земли, растворившись в водовороте истории...
+Необученные и необстрелянные (   Читать дальше...   )Жанр: историческая публицистикаПродолжительность: 02:02:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:742D42739F41C7C8A2147E0C64EB0C5471E1A19D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019955   (746897) от 25.05.2016
+
+Жорж Ленотр | Повседневная жизнь Версаля при королях (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга известнейшего французского историка Жоржа Ленотра погружает читателя в обыденную жизнь французских королей, протекавшую под сводами великолепного Версаля. Читатель знакомится с их бытом, причудами, вкусами и пристрастиями, а также узнает об изнанке дворцовой жизни, женских капризах, сплетнях и ветрености, которые порой существенно влияли на внутреннюю и внешнюю (   Читать дальше...   )Жанр: ИсторияПродолжительность: 10:55:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46271939E6DE0A7848C20BC6E2EEE72A4748422C
 ```
 
 https://mybot314.ru/tekegram_catalog/

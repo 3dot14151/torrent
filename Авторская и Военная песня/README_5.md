@@ -6,7 +6,7 @@
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106601.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105591.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105022.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104841.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103387.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103369.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103363.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102469.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102407.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ VA - Песни нашей победы (2010) [MP3|320 kbps]<Военная п�
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101835.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ VA - Единственной и любимой (2007) [MP3|320 kbps]<Военн
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101778.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101343.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100653.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ VA - Мы военной разведки спецназ (2005) [MP3|256 кб/с
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90469.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ VA - Война закончилась давно (2005) [MP3|320 kbps]<Воен
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90016.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ VA - Поклонимся Великим Тем Годам (2010) [MP3|320 kbps]
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90010.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ VA - Песни Великой Отечественной войны (2000) [MP3
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89889.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ VA - Мы Вас помним и чтим (2010) [MP3|320 kbps]<Ретро, во
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89820.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ VA - Для всех, кто служит (2006 - 2008) (2CD)[MP3|320 кб/с]<�
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89818.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ VA - Мы Вас помним, Вы заслужили (2010) [MP3|320 kbps]<В�
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89606.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ VA - Песни о Великой войне (2005) [MP3|320 kbps]<Военна�
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89236.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89115.jpg" />
 </div>
 
 
@@ -716,7 +716,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81377.jpg" />
 </div>
 
 
@@ -749,7 +749,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81273.jpg" />
 </div>
 
 
@@ -775,7 +775,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80990.jpg" />
 </div>
 
 
@@ -810,7 +810,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_72947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72947.jpg" />
 </div>
 
 

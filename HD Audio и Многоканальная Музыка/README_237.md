@@ -1,32 +1,3 @@
-###  Публикация: 1766996   (33452) от 21.12.2024
-
-Katy Perry - 1432 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33452.jpg" />
-</div>
-
-
-###  Подробнее
-
-• 01. Katy Perry - WOMAN’S WORLD (2:43)
-• 02. Katy Perry, 21 Savage - GIMME GIMME (2:58)
-• 03. Katy Perry, Kim Petras - GORGEOUS (3:17)
-• 04. Katy Perry, Doechii - I'M HIS, HE'S MINE (3:18)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59513F493F280A67AE83713DE35C95DC92B59441
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1767920   (33267) от 23.12.2024
 
 Erotic Jazz Music Ensemble, Jazz Erotic Lounge Collective, Marco Rinaldo, Sensual Lounge Music Universe - Silk Sheets: Sensual Sax Jazz Lounge (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
@@ -35,7 +6,7 @@ Erotic Jazz Music Ensemble, Jazz Erotic Lounge Collective, Marco Rinaldo, Sensua
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33267.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Romantica De La Guitarra, Academia de Música Sensual - Spa Erótico: Relaxing L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33266.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Instrumental Piano Universe, Marco Rinaldo, Sexual Music Collection, Sexual Pian
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33264.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Sexual Music Collection, Romantic Love Songs Academy - Midnight Jazz Confessions
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33262.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Carlita - Sentimental (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33235.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Romantica De La Guitarra, Romantic Time - Sensual Jazz (2024) [FLAC 24/44.1|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33232.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Ill Niño (Ill Nino) - Studio Albums (7 releases) (2002-2024) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33037.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ The Wind Blowers - Whiskey & Shadows (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33027.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ The Magician - Voyage (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <deep house, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32829.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Marcus Trummer - From The Start (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32605.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Robbie Williams - Better Man (Original Motion Picture Soundtrack) (2024) [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32428.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Just Magnetic - Life Electric (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32319.jpg" />
 </div>
 
 
@@ -380,7 +351,7 @@ Matteo Lombardi, Vittorio Iannucci, Marty Zylstra - Warrior Anthems (2025) [FLAC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32306.jpg" />
 </div>
 
 
@@ -409,7 +380,7 @@ Stranger Vision - FAUST Act I: Prelude To Darkness (2024) [FLAC 24/44.1|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32305.jpg" />
 </div>
 
 
@@ -438,7 +409,7 @@ Marvin J. Galaxy - Mean Ways (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32304.jpg" />
 </div>
 
 
@@ -467,7 +438,7 @@ Dave Hobbs - Opus One (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electric Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32301.jpg" />
 </div>
 
 
@@ -496,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32244.jpg" />
 </div>
 
 
@@ -525,7 +496,7 @@ Patriarkh (ex- Batushka) - Prophet Ilja (2025) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32096.jpg" />
 </div>
 
 
@@ -554,7 +525,7 @@ The Smoothies - January Cozy Nights (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32095.jpg" />
 </div>
 
 
@@ -583,7 +554,7 @@ Accept - Studio Albums (23 releases) (1979-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32066.jpg" />
 </div>
 
 
@@ -612,7 +583,7 @@ S.U.P. - Anomaly (1995) Limited Edition, Reissue, 2016, Overpowered Records [FLA
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31990.jpg" />
 </div>
 
 
@@ -641,7 +612,7 @@ Mutagenic Host - The Diseased Machine (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31988.jpg" />
 </div>
 
 
@@ -670,7 +641,7 @@ Pink Floyd - Live At Usher Hall (Edinburgh, UK, 5 November 1974) (2024) Live [FL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31915.jpg" />
 </div>
 
 
@@ -699,7 +670,7 @@ Pink Floyd - Live At The Hippodrome (Bristol, UK, 13 December 1974) (2024) Live 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31898.jpg" />
 </div>
 
 
@@ -728,7 +699,7 @@ Pink Floyd - Live At Empire Pool (Wembley, London, UK, 15 November 1974) (2024) 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31897.jpg" />
 </div>
 
 
@@ -742,6 +713,35 @@ Pink Floyd - Live At Empire Pool (Wembley, London, UK, 15 November 1974) (2024) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4334D22AA4832768421EAE483140D5B934F4D6F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771020   (31894) от 05.01.2025
+
+Pink Floyd - Live At The Hippodrome (Bristol, UK, 14 December 1974) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Raving And Drooling (Live At The Hippodrome, Bristol, UK, 14 December 1974) [14:03]
+02 - You've Got To Be Crazy (Live At The Hippodrome, Bristol, UK, 14 December 1974) [15:54]
+03 - Shine On You Crazy Diamond (Live At The Hippodrome, Bristol, UK, 14 December 1974) [22:39]
+04 - Speak to Me (Live At The Hippodrome, Bristol, UK, 14 December 1974) [4:25](   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 02:13:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABC447C9B269FD1DDAA220AF47D0D608050C02BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

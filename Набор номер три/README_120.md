@@ -1,3 +1,163 @@
+###  Публикация: 993353   (890694) от 07.03.2016
+
+Новая версия Windows 10 выйдет в июне
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890694.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Microsoft ведет разработку следующего крупного обновления операционной системы Windows 10. Апдейт (рабочее название — Redstone) выйдет в двух частях. Первая (RS1) увидит свет уже в июне этого года, а вторая (RS2) — весной 2017-го.Как сообщает сайт WinBeta, Microsoft уже выпустила несколько предрелизных сборок Redstone участикам программы тестирования Windows (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994137   (890690) от 07.03.2016
+
+Nox App Player 3.1.0.0 [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nox App Player - мощный эмулятор операционной системы Android, позволяющий запускать приложения для этой "оси" прямо на ПК с Windows. От подобных эта программа отличается достаточно высокой производительностью, наличием дополнительных параметров управления, набором встроенных инструментов оптимизации и простой настройкой.
+Эмулятор построен на платформе (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5306FA413A657D15B3FD5255E17E9B0600FE98EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994024   (890689) от 07.03.2016
+
+Омерзительная восьмерка / The Hateful Eight (2015) BDRip [H.264/720p] [Line]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890689.jpg" />
+</div>
+
+
+###  Подробнее
+
+США после Гражданской войны. Легендарный охотник за головами Джон Рут по кличке Вешатель конвоирует заключенную. По пути к ним прибиваются еще несколько путешественников. Снежная буря вынуждает компанию искать укрытие в лавке на отшибе, где уже расположилось весьма пестрое общество: генерал конфедератов, мексиканец, ковбой… И один из них — не тот, за кого себя выдает.Производство: США / The Weinstein Company LLC,Жанр: триллер, драма, криминал, детектив, вестернРежиссер: Квентин ТарантиноАктеры: Курт Рассел, Сэмюэл Л. Джексон, Тим Рот, Майкл Мэдсен, Дженнифер Джейсон Ли, Ченнинг Татум, Уолтон Гоггинс, Зои БеллПеревод: Дублированный (чистый звук, без рекламы) Авторский (одноголосый, закадровый) Д.Есарев, А.МатвеевЯзык субтитров: Русский, АнглийскийПродолжительность: 02:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B98D490FF7A27C8D602F242F506BAAAE7F5CC5FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994204   (890684) от 07.03.2016
+
+Where's My Mommy? (2016) [En] (1.0) Repack R.G. Механики
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пупи жила счастливой жизнью рядом с матерью в темном и влажном месте, которое считала своим домом. Но однажды произошло мощное землетрясение, после которого мать Пупи куда-то исчезла. И тогда героиня решила отправиться на ее поискиТип издания: RepackРазработчик: Exquisite GamesЖанр: ArcadeЯзык озвучки: АнглийскийЯзык субтитров: -/-Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8D8EC99CF9D6243BF1DB3CAEBC186CC70469E22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994370   (890674) от 07.03.2016
+
+The Sims 4 v.1.13.104.1010 (2015) [En] [OS X WineSkin]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Твои истории. Твой выбор. Твои правила в The Sims 4. Создавайте симов с сильным характером и уникальной внешностью. Управляйте разумом, телом и сердцем своих симов и играйте с жизнью!
+• Создайте кого угодно
+• Постройте идеальный дом
+• Играйте с жизньюТип издания: OS X WineSkinРелиз состоялся: 2015Разработчик: Electronic ArtsПоддерживаемая ОС: OS X 10.9 и вышеЖанр: God Sim, 3DЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A90559E72DDFA9D7434AF32A116841123881BFA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 732530   (890339) от 15.02.2015
+
+Великолепный век / Muhtesem Yuzyil (2013) WEBRip, SATRip (сезон 4, серии 110-155) ТК Домашний
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет основан на реальных событиях, произошедших во времена правления султана Сулеймана I, и рассказывает о периоде жизни девушки Роксоланы, взятой в плен турками и названной Хюррем. Позже она стала первой официальной женой Сулеймана, но для этого ей пришлось пройти сложный путь…Производство: ТурцияЖанр: драма, мелодрама, историяРежиссер: Дурул Тайлан, Ягмур Тайлан, Мерт Байкал, Ягыз Альп АкайдынАктеры: Небахат Чехре, Окан Ялабык, Нур Айсан, Сельма Эргеч, Халит Эргенч, Филиз Ахмет, Tansel Öngel, Селим Байрактар, Барсу Туна, Альп Ойкен...Перевод: Дублированный (телеканал "Домашний")Продолжительность: ~ 01:30:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D670E12BBB1C514BE0DA25B527AF4EB0409E215
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493537   (890279) от 06.09.2021
 
 Хакерская версия кабеля Lightning позволяет похищать учетные данные
@@ -6,7 +166,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890279.jpg" />
 </div>
 
 
@@ -32,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890210.jpg" />
 </div>
 
 
@@ -58,7 +218,7 @@ Bluetack Internet Security IP Filter (ipfilter.dat) для eMule, uTorrent etc. 
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890207.jpg" />
 </div>
 
 
@@ -86,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890206.jpg" />
 </div>
 
 
@@ -112,7 +272,7 @@ Battlefield 1 (2016) [Ru/Multi] (1.0.47.30570/upd3) Rip R.G. Механики
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890205.jpg" />
 </div>
 
 
@@ -138,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890076.jpg" />
 </div>
 
 
@@ -164,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890069.jpg" />
 </div>
 
 
@@ -190,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890068.jpg" />
 </div>
 
 
@@ -216,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890067.jpg" />
 </div>
 
 
@@ -242,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890066.jpg" />
 </div>
 
 
@@ -268,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890064.jpg" />
 </div>
 
 
@@ -294,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890063.jpg" />
 </div>
 
 
@@ -320,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890061.jpg" />
 </div>
 
 
@@ -346,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890059.jpg" />
 </div>
 
 
@@ -372,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890056.jpg" />
 </div>
 
 
@@ -398,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890055.jpg" />
 </div>
 
 
@@ -424,7 +584,7 @@ Mass Effect 3 Digital Deluxe Edition + 10 DLC [Ru/En] (RePack/1.05.5427.124) 201
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889931.jpg" />
 </div>
 
 
@@ -452,7 +612,7 @@ Minecraft (2011) [Ru/Multi] (1.7.5) Repack Kron
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889866.jpg" />
 </div>
 
 
@@ -481,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889806.jpg" />
 </div>
 
 
@@ -507,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889699.jpg" />
 </div>
 
 
@@ -518,165 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66EDE97182182AE1CB863DBCAE9C7D9755A89345
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970328   (889693) от 31.03.2020
-
-AIMP for Android 3.01 (build 972) [Ru/Multi]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легкая мобильная версия аудиоплеера для платформы Android.Тип издания: FreeРелиз состоялся: 22.03.20Разработчик: Artem IzmaylovПоддерживаемая ОС: Android 4.4 +Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70ADEE93FBE5F3048724FCAED68295090F6F4D0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371310   (889668) от 31.03.2020
-
-Названы суммы штрафов за нарушение карантина
-
->>3
->>25
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Правительство одобрило ужесточение наказания за нарушение карантина
-Российское правительство одобрило поправки об ужесточении ответственности за нарушение карантина, заявил премьер-министр Михаил Мишустин."Сейчас наша основная задача — это работать на опережение, минимизировать распространение вируса", — сказал он на совещании с вице-премьерами.Так, согласно (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371439   (889666) от 31.03.2020
-
-Плохие парни навсегда / Bad Boys for Life (2020) WEB-DL [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889666.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детективы Майк Лоури и Маркус Бёрнетт снова в деле! Правда, их отстраняют от всех операций, но разве отчаянных друзей когда-нибудь что-либо останавливало? Ведь на этот раз на Майка открывает охоту некто из его прошлой жизни. Так что парням придется отжечь по полной!Производство: США, Мексика, Columbia Pictures, 2.0 Entertainment, Columbia Pictures Mexico, Don Simpson/Jerry Bruckheimer Films, Overbrook EntertainmentЖанр: Боевик, Триллер, Комедия, КриминалРежиссер: Адиль Эль Арби, Билал ФаллаАктеры: Уилл Смит, Мартин Лоуренс, Ванесса Энн Хадженс, Александр Людвиг, Чарльз Мелтон, Паола Нуньес, Кейт дель Кастильо, Ники Джем, Джо Пантольяно, Джейкоб СкипПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), Украинские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: 02:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF4D6BA7E5ACCDC226905622DDEC3FAB6C75F82F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371474   (889657) от 31.03.2020
-
-Джентльмены / The Gentlemen (2019) WEBRip [H.264/720p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гай Ричи представляет необычную криминальную комедию «Джентльмены» со звёздным актёрским составом. Сюжет рассказывает об американском экспате Микки Пирсоне (Мэттью МакКонахи), который создал невероятно прибыльную наркотическую империю в Лондоне. Появляются слухи, что Пирсон готов отойти от дел, продав свой бизнес. Тут же появляется множество желающих заполучить бизнес (   Читать дальше...   )Производство: США, MiramaxЖанр: Боевик, комедия, криминалРежиссер: Гай РичиАктеры: Мэттью МакКонахи, Чарли Ханнэм, Мишель Докери, Джереми Стронг, Лайн Рени, Колин Фаррелл, Генри Голдинг, Том Ву, Чиди Аджуфо, Хью ГрантПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full)Продолжительность: 01:53:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89D37FF85362427D17F749FFD09F47D37FE07AD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 184745   (889152) от 20.03.2010
-
-Конфуций / Kong Zi / Confucius (2009/2010) DVDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889152.jpg" />
-</div>
-
-
-###  Подробнее
-
-История жизни знаменитого китайского мыслителя и философа Конфуция.
-Китай еще не был единым в «Период Весен и Осеней». Страна представляла собой лоскутное одеяло из феодальных княжеств и государств, постоянно соперничающих друг с другом за превосходство и территории.
-В Княжестве Лу все было как везде: условный правитель не имел реального авторитета, а настоящая власть (   Читать дальше...   )Производство: Китай / Beijing Dadi Century Limited, Dadi Entertainment, China Film GroupЖанр: драма, биография, историяРежиссер: Ху МэйАктеры: Чоу Юнь-Фат, Цзяньбинь Чэнь, Чжоу Сюнь, Яо Лу, Жэнь Цюань, Ван Бань, Чжан Кайли, Цзяо Хуан, Ран Чен, Лу ИПеревод: Двухголосый закадровый, профессиональныйПродолжительность: 01:58:21
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 184912   (889150) от 20.03.2010
-
-Концерт / Le concert (2009) DVDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший дирижер, а ныне уборщик Андрей Филипов собирает свой старый оркестр, участники которого по просшествию 30 лет стали продавцами, бродягами или алкоголиками, и отправляется в Париж на концерт. Это путешествие сопровождает масса комических ситуаций.Производство: Франция, Италия, Бельгия, РумынияЖанр: Комедия, МузыкаРежиссер: Раду МихайлеануАктеры: Алексей Гуськов, Мелани Лорен, Дмитрий Назаров, Валерий Баринов, Франсуа Берлеан, Миу-Миу, Лионель Абелански, Василь Альбинет, Лорен Батье, Рамзи Бедиа, Жаклин Биссет, Мария Динулеску, Роже Дюма, Гийом Жалльен, Анна Каменкова, Александр Комиссаров, Ион Сапдару, Валентин Теодосю, Влад ИвановПеревод: Русский оригинал (французский без перевода)Продолжительность: 01:57:43
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

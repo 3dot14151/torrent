@@ -1,29 +1,3 @@
-###  Публикация: 1218714   (721261) от 10.04.2018
-
-Н. С. Чаев и др. (ред. и сост.) | Булавинское восстание [1707—1708 гг.] (1935) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящий сборник материалов по истории крестьянских и национальных движений накануне образования империи посвящен Булавинскому восстанию (1707—1708 гг.). Он включает в свой состав преимущественно неопубликованные ранее материалы, хранящиеся в московских и ленинградских архивах. Что же касается материалов, опубликованных ранее и в других изданиях, то из них были (   Читать дальше...   )Жанр: История, политология, документалистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA3EF8BBF689067EE59C8671913FB067B1610817
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129704   (720804) от 29.04.2017
 
 Г. Брылов и др. (сост.) | Писатель перед судом рабочего читателя. Вечера рабочей критики (1928) [PDF]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720804.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720710.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720451.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720411.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720228.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719520.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_719328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_719328.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718837.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716800.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716798.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716723.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716146.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716032.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713667.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712987.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712845.jpg" />
 </div>
 
 
@@ -452,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712572.jpg" />
 </div>
 
 
@@ -478,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712557.jpg" />
 </div>
 
 
@@ -504,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712547.jpg" />
 </div>
 
 
@@ -530,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712051.jpg" />
 </div>
 
 
@@ -556,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711968.jpg" />
 </div>
 
 
@@ -582,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711965.jpg" />
 </div>
 
 
@@ -611,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711963.jpg" />
 </div>
 
 
@@ -637,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711918.jpg" />
 </div>
 
 
@@ -663,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711650.jpg" />
 </div>
 
 
@@ -674,6 +648,34 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB48BF326053FC0685ADB49FC9E78CBED7AD0E9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286498   (711220) от 03.03.2019
+
+П. Н. Амосов и др. (сост.) | Октябрьская революция и фабзавкомы [3 книги] (1927-1929) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711220.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роль фабрично-заводских комитетов в развитии и углублении русской революции от Февраля до Октября 1917 г. и в укреплении ее завоеваний после октября настолько значительна, что в истории революции их деятельности по справедливости должна быть отведена одна из крупнейших глав.
+
+С первого дня своего возникновения после февральского переворота и вплоть до полного слияния (   Читать дальше...   )Жанр: История, политология, публицистика, документалистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C3CF3FEC37EC5460C579BE0F4E35AE2B024F267
 ```
 
 https://mybot314.ru/tekegram_catalog/

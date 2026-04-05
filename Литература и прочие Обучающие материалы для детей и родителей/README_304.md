@@ -1,3 +1,55 @@
+###  Публикация: 1416994   (362844) от 18.10.2020
+
+Р.Л. Тоалсон | Лесной хозяин (2020) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362844.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весь мир Леноры переворачивается с ног на голову, и она вынуждена отправиться жить к чудаковатому родственнику – дяде Ричарду. Тот живёт в богатом поместье. Дядя вечно занят и лишь запрещает племяннице ходить в лес – больше из него и слова не вытянешь. Очень скоро одиночество и печаль по прошлому приводят девочку именно туда, куда ей не велят ходить, – к загадочной (   Читать дальше...   )Жанр: Детская литература/ФантастикаПеревод: А. Ф. РодинаФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D80E77F99A178D2ACF5EC1CDD24BFCE5D9CE9386
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417082   (362842) от 18.10.2020
+
+Виктор Бакурский | Детская энциклопедия РОСМЭН. Танки (2014) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга знакомит юных читателей с удивительным миром танков. Автор рассказывает не только об их почти столетней истории и самых интересных образцах, об участии в двух мировых войнах и ряде локальных конфликтах, но и о легендарных бронированных машинах, оказавших наибольшее влияние на ударную мощь бронетанковых соединений и на развитие бронетанковой техники. Книга (   Читать дальше...   )Жанр: Энциклопедия/Познавательная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD1A67D85B9240FAF3E2FF569C6B4F67A0853659
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1417064   (362740) от 18.10.2020
 
 В.Н. Алексеев, Т.А. Алексеева, Р.Г. Апресян и др. | 365 рассказов. 365 рассказов на весь год (2008) [PDF]
@@ -6,7 +58,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362740.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362725.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362592.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362448.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361885.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361880.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361830.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361824.jpg" />
 </div>
 
 
@@ -223,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361695.jpg" />
 </div>
 
 
@@ -250,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361358.jpg" />
 </div>
 
 
@@ -276,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361283.jpg" />
 </div>
 
 
@@ -303,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361223.jpg" />
 </div>
 
 
@@ -329,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360955.jpg" />
 </div>
 
 
@@ -355,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360934.jpg" />
 </div>
 
 
@@ -382,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360748.jpg" />
 </div>
 
 
@@ -409,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360592.jpg" />
 </div>
 
 
@@ -435,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360565.jpg" />
 </div>
 
 
@@ -462,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360541.jpg" />
 </div>
 
 
@@ -488,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360524.jpg" />
 </div>
 
 
@@ -514,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360500.jpg" />
 </div>
 
 
@@ -540,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360209.jpg" />
 </div>
 
 
@@ -567,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360208.jpg" />
 </div>
 
 
@@ -593,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360158.jpg" />
 </div>
 
 
@@ -620,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360106.jpg" />
 </div>
 
 
@@ -631,61 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD10F64EF4D83A62EE9238AAE8F5BCBDDCE5B9CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417309   (359979) от 19.10.2020
-
-Рената Кирилина, Любовь Стрекаловская | Красивый почерк от А до Я. Обучение с удовольствием (2018) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная книга актуальна как для родителей младших школьников, так и для родителей учащихся средних классов, имеющих неразборчивый почерк. Ведь почерк влияет на успеваемость ребёнка. В книге очень много правил и алгоритмов для создания красивого и аккуратного почерка. Информация о том, как писать каждую букву и цифру в деталях Увлекательные упражнения и тексты для (   Читать дальше...   )Жанр: Обучение и развитие детейФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F8C136FA548CC9D3D3F5BA429C0B883406DEDD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 308783   (359726) от 19.10.2020
-
-Б.С.Волков, Н.В.Волкова | Подготовить ребенка к школе... Как? (2006) [MP3]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Мультимедийные материалы для родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Практикум содержит изложенные в доступной форме рекомендации и комментарии специалистов-психологов.
-Даются упражнения по развитию готовности Вашего ребенка к будущим школьным занятиям.
-В приложении Вы найдете методы диагностики готовности ребенка к школе.
-Постоянное совершенствование своих знаний о Вашем ребенке - залог успешного воспитания!(   Читать дальше...   )Жанр: Воспитание детей, ПрактикумФормат: MP3
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D04516775A06101A010D35C087A07996C3F72629
 ```
 
 https://mybot314.ru/tekegram_catalog/

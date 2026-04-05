@@ -1,164 +1,3 @@
-###  Публикация: 981656   (949461) от 02.02.2016
-
-Иван Жуков | Планшет с нуля! Все типы планшетов в одной книге (2016) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вот он – та самая, такая необходимая инструкция, которую вы не нашли в коробке со своим планшетом. Очень простая и понятная, написанная специально для тех, кто впервые взял в руки планшет. В этой книге вы найдете пошаговые алгоритмы и множество иллюстраций. Вы потратите минимум времени и сможете:
-
-• научиться правильно включать, выключать, заряжать ваш планшет;
-(   Читать дальше...   )Жанр: Компьютеры и программыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F83DF1195D99B9CBDE2AEA7B03ADD4A2620B49ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 625329   (949397) от 02.03.2013
-
-И.Н. Блинов, В.С. Романчик | Java2. Практическое руководство [2005] [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга предназначена для начинающих и продолжающих изучение Java-технологий. В первой части даны основы языка Java и концепции объектно-ориентированного программирования. Во второй части изложены наиболее важные аспекты применения языка. В третьей части приведены основы программировании распределенных информационных систем с применением сервлетов, JSP, баз данных и собственных тегов разработчика.
-В конце каждой главы даны тестовые вопросы по материалу главы и задания для выполнения по рассмотренной теме. В приложениях приведены дополнительные материалы, относящиеся к использованию HTML, XML в информационных системах, основанных на применении Java-технологий, а также краткое описание популярной технологии Struts для разработки распределенных систем, объединяющей возможности J2EE и XML.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25E4E655670ABB448C1DE0B1D89600EA49F8EEB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981820   (949390) от 02.02.2016
-
-Джон Форман | Много цифр. Анализ больших данных при помощи Excel (2016) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Казалось бы, термин "большие данные" понятен и доступен только специалистам. Но автор этой книги доказывает, что анализ данных можно организовать и в простом, понятном, очень эффективном и знакомом многим Excel. Причем не важно, сколько велик ваш массив данных. Техники, предложенные в этой книге, будут полезны и владельцу небольшого интернет-магазина, и (   Читать дальше...   )Жанр: ExcelФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FF9B9F79C04966B4D7A292556516411491A0E05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982240   (947896) от 03.02.2016
-
-В.Э Бояркин, А.И. Филатов | 1С:Предприятие 8. Конвертация данных: обмен данными между прикладными решениями + CD (2008) [DJVU, ISO]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947896.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге подробно рассмотрен обмен данными в формате XML, являющийся на сегодняшний день общепринятым средством представления данных. Описаны процедуры разработки правил, применение которых обеспечит перенос информации из одной информационной системы в другую, в том числе и обмен данными между типовыми конфигурациями "1С:Предприятия".
-К книге прилагается (   Читать дальше...   )Жанр: БухгалтерияФормат: DJVU, ISO
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57BC07A461A38AEF9A0414C7F6830106ED1A009A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982094   (947895) от 03.02.2016
-
-Джесс Чедвик и др. | ASP.NET MVC 4. Разработка реальных веб-приложений с помощью ASP.NET MVC (2013) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научитесь работать с ASP.NET MVC 4 и узнайте, как строить современные серверные веб-приложения. Это руководство поможет понять, каким образом работает инфраструктура, и объяснит, как использовать различные средства для решения множества реальных сценариев разработки, с которыми чаще всего приходится сталкиваться. Кроме того, вы узнаете, как работать с HTML, JavaScript, (   Читать дальше...   )Жанр: программированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7EE5BE721AEE70417BEAD7CF23B7251F6D7BCEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982355   (947795) от 03.02.2016
-
-Джозеф Хокинг | Unity в действии. Мультиплатформенная разработка на C# (2016) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Unity зачастую представляют как набор компонентов, не требующих программирования, что в корне неверно. Для создания успешной игры необходимо многое: великолепная работа художника, программистские навыки, интересная история, увлекательный геймплей и дружная и слаженная работа команды разработчиков.  А еще нельзя забывать про безупречную визуализацию и качественную (   Читать дальше...   )Жанр: Компьютеры и программыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C3510DDDBDD8E0DF8A2E2F7850CCC4A0A487630
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362666   (947758) от 24.02.2020
 
 Николай Полещук | Путь к nanoCAD (2017) [PDF]
@@ -167,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947758.jpg" />
 </div>
 
 
@@ -193,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947549.jpg" />
 </div>
 
 
@@ -219,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947145.jpg" />
 </div>
 
 
@@ -246,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946826.jpg" />
 </div>
 
 
@@ -272,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946787.jpg" />
 </div>
 
 
@@ -300,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945327.jpg" />
 </div>
 
 
@@ -326,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945312.jpg" />
 </div>
 
 
@@ -352,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943430.jpg" />
 </div>
 
 
@@ -378,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940519.jpg" />
 </div>
 
 
@@ -404,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939184.jpg" />
 </div>
 
 
@@ -430,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939095.jpg" />
 </div>
 
 
@@ -456,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938593.jpg" />
 </div>
 
 
@@ -483,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938240.jpg" />
 </div>
 
 
@@ -509,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937989.jpg" />
 </div>
 
 
@@ -535,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936456.jpg" />
 </div>
 
 
@@ -561,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934404.jpg" />
 </div>
 
 
@@ -587,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933078.jpg" />
 </div>
 
 
@@ -613,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932966.jpg" />
 </div>
 
 
@@ -639,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932952.jpg" />
 </div>
 
 
@@ -667,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931962.jpg" />
 </div>
 
 
@@ -678,6 +517,164 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B453D4369CEF881B04A6934D3EB00D15B84D8684
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365411   (930295) от 07.03.2020
+
+Иван Жуков | Компьютер для моих любимых родителей! (2016) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы подарили своим родителям компьютер, но у вас не хватает времени, терпения, сил, чтобы в сотый раз объяснять, на какую кнопочку нажимать и почему файл нельзя сохранить в мониторе? А может быть, все наоборот. Ваши дети подарили вам компьютер, но они не в состоянии толком объяснить, как он работает, торопятся и говорят на каком-то тарабарском языке. Вместе с этой (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30E2199A38D27BE2E01A72E3209E2EA9BF26D1D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365542   (930148) от 07.03.2020
+
+Джозеф Албахари, Бен Албахари | C# 8.0. Карманный справочник (2020) [DJVU]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930148.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скорая помощь для программистов на C# 8.0!
+Когда вам нужны ответы на вопросы по программированию на языке C# 8.0, этот узкоспециализированный справочник предложит именно то, что необходимо знать - безо всяких длинных введений или раздутых примеров. Легкое в чтении и идеальное в качестве краткого справочника, данное руководство поможет опытным программистам на C#, (   Читать дальше...   )Жанр: ПрограммированиеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A4D7C24AD093BD42CD654CFE1401FBC53C4C9A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365518   (930015) от 07.03.2020
+
+Е.В. Филиппов | Настольная книга 1С:Эксперта по технологическим вопросам (2015) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930015.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Настольная книга 1С:Эксперта по технологическим вопросам» посвящена теории и практике решения проблем производительности и параллельности в информационных системах на платформе «1С:Предприятие 8». В работе приводятся теоретические сведения, необходимые для понимания основных механизмов, обеспечивающих функционирование платформы «1С:Предприятие 8» и СУБД как многоуровневой (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4308E0F9E1F501E2878C2CC32B17E9DAA386A02F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365443   (928692) от 08.03.2020
+
+Джозеф Албахари, Бен Албахари | C# 8.0. Карманный справочник (2020) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928692.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скорая помощь для программистов на C# 8.0!
+Когда вам нужны ответы на вопросы по программированию на языке C# 8.0, этот узкоспециализированный справочник предложит именно то, что необходимо знать - безо всяких длинных введений или раздутых примеров. Легкое в чтении и идеальное в качестве краткого справочника, данное руководство поможет опытным программистам на C#, (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7B264B83129A37D0793925B53035367B00910CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365695   (928685) от 08.03.2020
+
+Александр Фролов | Создание смарт-контрактов Solidity для блокчейна Ethereum. Практическое руководство (2019) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга поможет быстро приступить к созданию смарт-контактов Solidity и распределенных приложений DApp для блокчейна Ethereum. Она состоит из 12 уроков с практическими заданиями. Выполнив их, читатель сможет создавать собственные локальные узлы Ethereum, публиковать смарт-контракты и вызывать их методы, обмениваться данными между реальным миром и смарт-контрактами (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D319C153B6CF2A748789182D99531ED8F0842E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265025   (928557) от 08.03.2020
+
+Книжная серия | Заметки для профессионалов [48 книг] (2018) [PDF] [En] [Обновляемая]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928557.jpg" />
+</div>
+
+
+###  Подробнее
+
+В каждой книге представлены десятки, а то и сотни страниц профессиональных подсказок и трюков по программированию с использованием различных программ, приложений и языковЖанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A7BD275C536E4C27C221AC0199393209CB93D05
 ```
 
 https://mybot314.ru/tekegram_catalog/

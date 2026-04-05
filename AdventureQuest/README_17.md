@@ -1,3 +1,81 @@
+###  Публикация: 1377790   (849480) от 23.04.2020
+
+The Shattering (2020) [Ru/Multi] (1.0) Repack xatab
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы ничего не помните. Всё, что вы видите — это белый цвет вокруг вас. Вы слышите голос. Вы видите часы, медленно раскачивающиеся перед вашими глазами. The Shattering помещает вас в ум Джона Эванса, где вы боретесь изо всех сил, пытаясь собрать воедино фрагменты вашего прошлого и настоящего. Не помнить — это одно, но что происходит, когда ваш ум ведёт вас по извилистому (   Читать дальше...   )Тип издания: RepackРазработчик: Super Sexy SoftwareЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DC01891B22639C914A5B2CE29870018BE371AD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377944   (849462) от 23.04.2020
+
+The Flower Collectors (2020) [Ru/Multi] (1.0.4.1) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детективная история, действие которой происходит в атмосфере непростой политической ситуации Барселоны 1977 года. Вам предстоит играть за Хорхе — бывшего следователя с тяжелым прошлым, прикованного к инвалидной коляске. Сидя в одиночестве на своем балконе, вы наблюдаете в бинокль за тем, как жизнь проходит мимо. Пока однажды в дождливую ночь не становитесь свидетелем (   Читать дальше...   )Тип издания: LicenseРазработчик: Mi'pu'mi Games GmbHЖанр: Приключение, От первого лица, ДетективЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19CBEB1876B8607124D1CA296E8C64746D34969D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499395   (849267) от 01.10.2021
+
+Impostor Factory (2021) [Ru/Multi] (7455447) License TiNYiSO
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849267.jpg" />
+</div>
+
+
+###  Подробнее
+
+У доктора Уоттса и доктора Розалин необычная работа: они дают людям ещё один шанс прожить свою собственную жизнь, с самого начала. Но эта история не о них. Наверное. Вместо этого, она рассказывает о Куинси. Позвольте рассказать Вам один случай, который с ним случился. Однажды Куинси пригласили на модную тусовку, проходящую в подозрительно оторванном от мира особняке. (   Читать дальше...   )Тип издания: LicenseРазработчик: Freebird GamesЖанр: Adventure, Mystery, Horror, ThrillerЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3C8D1DEC39D0906E28718634CA3F1CD5E8C6C5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1387327   (849044) от 01.10.2021
 
 Those Who Remain (2020) [Ru/Multi] (1.0191) Repack Other s
@@ -6,7 +84,7 @@ Those Who Remain (2020) [Ru/Multi] (1.0191) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849044.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Amigdala (2016) [En] (1.0) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848227.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Layers of Fear (2016) [Ru/Multi] (5.1.3.48304/upd 2) Repack SpaceX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846429.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Adam's Venture: Origins (2016) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846202.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Dap (2021) [En] (1.0.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845817.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Meridian 157 (2019-2021) [Ru/Multi] (1.0.6/1.0.6/1.0.6.0/1.0.3.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845815.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Heaven's Hope (2016) [En/De] (1.0) License CODEX [Special Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844734.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Adam's Venture: Origins (2016) [Ru/Multi] (1.0) Repack Choice
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844577.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ Adam's Venture: Origins (2016) [Ru/Multi] (1.0/dlc) Repack =nemos=
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844363.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ Inspector Waffles (2021) [Multi] (1.0.2.10) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844151.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ LUNA The Shadow Dust (2020) [Graphic] (1.0.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844114.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ Hektor (2015) [En] (1.1.0b) Repack xGhost
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843477.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ Swordbreaker: The Game / Мечелом (2015) [Ru/En] (1.0 u1) Repack DARKSiDER
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842622.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ A Juggler's Tale (2021) [Ru/Multi] (1.13) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842334.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ Monumental (2016) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841283.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ Wick (2015) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841270.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ Distraint (2015) [Ru/Multi] (03.04.16) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841172.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ BREATHEDGE (2021) [Ru/En] (1.1.0.4/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840812.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ Children Of Morta (2019) [Ru/Multi] (1.2.74/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837629.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ Anna's Quest (2015) [Ru/Multi] (1.1.0214) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836047.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ The Witness (2016) [Ru/Multi] (1.0/upd17) Repack SpaceX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836035.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ Maid of Sker (2020) [Ru/Multi] (1.4.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836005.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ Deponia: The Complete Journey (2014) [Ru/En] (3.3.0155) Repack R.G. Механи
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835783.jpg" />
 </div>
 
 
@@ -591,88 +669,6 @@ Deponia: The Complete Journey (2014) [Ru/En] (3.3.0155) Repack R.G. Механи
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FDF587A138769F375EDEEBB174B08CB20080F9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450502   (834751) от 10.10.2021
-
-Breathedge (2021) [Ru/Multi] (1.1.0.4/dlc) License GOG
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Breathedge – это ироничная приключенческая игра про выживание в открытом космосе. Вам предстоит примерить на себя роль простого парня, который всего-то вёз дедушкины останки на космические похороны, а оказался в водовороте межгалактического заговора.Тип издания: LicenseРазработчик: RedRuins SoftworksЖанр: Экшены, Приключенческие игры, Инди, СимуляторыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:924206FDD775E8DC936980CB9C309A3F02956ED4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 311340   (833399) от 20.03.2011
-
-Broken Sword: Тень тамплиеров. Расширенное издание / Broken Sword: Shadow of the Templars. Director's Cut [Ru\En] (L) 2011 | R.G. Origins
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833399.jpg" />
-</div>
-
-
-###  Подробнее
-
-Париж. Осень. В Пале-Рояль совершено зверское убийство… Отправляясь на интервью с известным политиком, молодая корреспондентка Нико и не подозревала, что окажется втянутой в ужасный заговор.
-
-В римейке знаменитого квеста 1996 года, который удостоился множества наград и стал классикой жанра, вместе с энергичной француженкой Нико Коллар и отважным американцем Джорджем Стоббартом игроки проведут расследование таинственного и крайне опасного дела. Им предстоит побывать в разных странах и тщательно осмотреть немало любопытных и странных мест, решить множество загадок, уходящих корнями в древность, и в результате раскрыть заговор, связанный с мистическими секретами Ордена тамплиеров.
-
-«Broken Sword: Тень тамплиеров. Расширенное издание» представляет захватывающую детективную историю, в основу которой положен сюжет оригинальной игры, быстро завоевавшей любовь среди поклонников квестов во всем мире. Запутанные интриги, стремительно развивающиеся события, интересные головоломки, самобытный юмор — игра доставит удовольствие (   Читать дальше...   )Тип издания: ЛицензияЖанр: AdventureЯзык озвучки: АнглийскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493913   (833208) от 11.10.2021
-
-The Magister (2021) [En] (1.0.0.4) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833208.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детективная RPG о загадочном убийстве. Ищите подозреваемых на землях империи и побеждайте их ментально в ходе сложных и разветвлённых диалогов. А если что-то пойдёт не так, начнётся пошаговая схватка на тактической карте. Собирайте и настраивайте колоду для битв или используйте "тактическую дипломатию", чтобы решать дело миром. Собирайте улики и ищите мотивы, (   Читать дальше...   )Тип издания: LicenseРазработчик: Nerdook ProductionsЖанр: Card Game, RPG, Adventure, DetectiveЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDF93279980334E77AB563547D29997C2EB19FE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,133 @@
+###  Публикация: 1823181   (117542) от 10.10.2025
+
+Инквизиция / Беатриче Ченчи / Beatrice Cenci (1969) BDRip [H.264] [DVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117542.jpg" />
+</div>
+
+
+###  Подробнее
+
+В фильме показаны реальные события из жизни Франческо Ченчи и его дочери Беатриче в 1599 году... Итальянский вельможа Франческо Ченчи был настолько жесток, что даже его близкие родственники решают расправиться с ним. Беатриче Ченчи задумывает и осуществляет убийство собственного отца руками любовника Олимпо и нанятого помощника Каталано. Убийство будет раскрыто, (   Читать дальше...   )Производство: Италия / Filmena S.R.L.Жанр: драма, историяРежиссер: Лучио ФульчиАктеры: Томас Милиан, Адриенн Ла Русса, Жорж Вильсон, Мави, Антонио Касагранде, Игнацио Спалла, Макс Стеффен Захариас, Раймон Пеллегрен, Массимо Саркьелли, Мирко ЭллисПеревод: профессиональный двухголосый (TV), авторский (Антон Алексеев; Владимир Сонькин)Язык озвучки: русский, итальянскийСубтитры: английскиеПродолжительность: 01:33:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCE514D18EAB222208D7C4FC0AE2782D32115F78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699954   (117440) от 15.02.2024
+
+Восстание семинолов / Seminole Uprising (1955) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лейтенант Кэм Элиот получает задание пресечь бесчинства индейцев под командованием хитрого Чёрного Кота. Тем временем Сьюзан, дочь полковника Ханна, мечется между Кэмом и капитаном Дадли, пытаясь решить, кто же ей больше годится в мужья. Соперничество двух офицеров приводит к тому, что с невинных женщин и детей снимают скальпы, храбрые молодые люди отдают свои жизни, (   Читать дальше...   )Производство: США / Sam Katzman ProductionsЖанр: вестернРежиссер: Эрл БелламиАктеры: Джордж Монтгомери, Карин Бут, Уильям Фоусет, Стивен Рич, Эд Хинтон, Джон Пиккард, Джим Молони, Рори Маллинсон, Фред Ховард, Рас КонклинПеревод: Одноголосый любительский, Alassea (Алексей Крюков)Язык озвучки: Русский, английскийСубтитры: РусскиеПродолжительность: 01:11:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDD984D2673FFF5A8EB1D0D055A504B785FB2643
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700033   (117352) от 15.02.2024
+
+Теща Джерри / Jerry's Mother-In-Law (1913) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Есть темы и сюжеты, которые называют "вечными". Например, вопросы жертвенности, выбора между любовью и долгом, любовь к родине, родительская ответственность. Темы, которые существуют из века в век. Во все времена, у всех народов. Вот еще одна "Вечная" тема - взаимоотношения зятя и тещи! Ну, ведь правда же? :)Производство: США, Vitagraph Company of AmericaЖанр: короткометражный, комедия, немое киноРежиссер: Джеймс ЯнгАктеры: Сидни Дрю, Клара Кимболл Янг, Кейт Прайс, Л. Роджерс Литтон, Джеймс ЯнгПеревод: немой с интертитрами (В. Сачков)Субтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:16:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8594592E7D95EBD7D7E84F3E6504D7532F9C7C47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700229   (117241) от 16.02.2024
+
+Моя собачья жизнь / Mitt liv som hund / My life as a dog (1985) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на полуавтобиографическом романе Рейдара Йонссона.. Двенадцатилетний Ингмар живёт с матерью, которая больна туберкулёзом, и со старшим братом. Отец по делам службы находится в Африке. Чтобы избавить мать от забот и дать ей немного подлечиться, парнишку отправляют на лето к дяде, в отдалённый посёлок, где всё ему чуждо и непривычно. Но именно там Ингмар (   Читать дальше...   )Производство: Швеция / FilmTeknik, Svensk Filmindustri (SF)Жанр: драма, комедияРежиссер: Лассе ХалльстрёмВ ролях: Антон Гланзелиус, Томас фон Брёмссен, Анки Лиден, Мелинда Киннаман, Кикки Рундгрен, Леннарт Юльстрём, Инг-Мари Карлссон, Лейф Эриксон, Кристина Карлвинд, Ральф Карлссон, Вивека Дален, Арнольд Альфредсон, Фриц Элофссон, Дидрик Густавссон, Виви ЙоханссонПеревод: дублированныйЯзык озвучки: русский, шведскийСубтитры: русские, английскиеПродолжительность: 01:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EF07A8A07248240FFA20B17DA304F4A4534FF65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700395   (117143) от 16.02.2024
+
+Бремя сильного / The Strong Man's Burden (1913) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один сын, старший, полицейский, второй - вор. Но мать любит обоих и обоих хочет видеть на смертном одре. И старший, более сильный в этой жизни, берет на себя бремя выполнить желание матери.Производство: США, Biograph CompanyЖанр: короткометражный, драма, немое киноРежиссер: Энтони О’СалливанАктеры: Кейт Брюс, Гарри Кэри, Лайонел Бэрримор, Уильям Дж. Батлер, Клер МакдауэллПеревод: немой с интертитрами (В. Сачков)Субтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:15:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8557D743C793FD7F65CDB6B6A3E336E1261B552
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700018   (117095) от 17.02.2024
 
 Цыганка / Sky West and Crooked (1966) BDRip [H.264] [VO]
@@ -6,7 +136,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117095.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117058.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116880.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116879.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116846.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116674.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116673.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116518.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116431.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116348.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116325.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116180.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116162.jpg" />
 </div>
 
 
@@ -345,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116085.jpg" />
 </div>
 
 
@@ -371,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116011.jpg" />
 </div>
 
 
@@ -397,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115703.jpg" />
 </div>
 
 
@@ -423,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115579.jpg" />
 </div>
 
 
@@ -449,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115476.jpg" />
 </div>
 
 
@@ -475,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115332.jpg" />
 </div>
 
 
@@ -501,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115305.jpg" />
 </div>
 
 
@@ -527,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115231.jpg" />
 </div>
 
 
@@ -538,137 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C841BCEED2BA0C068F2F7EFF2196E6CBCEACE7A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703201   (115180) от 28.02.2024
-
-7 килограмм за 7 дней / 7 chili in 7 giorni (1986) WEB-DLRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два несостоявшихся врача решают открыть клинику для похудения, переделав для этого загородную виллу жены одного из них, несмотря на возражения её многочисленных родственников. Первый же заезд клиентов в их заведение превращается в череду забавных событий, к тому же родственники жены создают блистательным "специалистам диетологии" дополнительные трудности.Производство: Италия / C.G. Silver FilmЖанр: КомедияРежиссер: Лука ВердонеАктеры: Ренато Поццетто, Карло Вердоне, Тициана Пини, Елена Фабрици, Сильвия Анникьярико, Франко Диоджене, Фьямметта Баралла, Сальваторе Поркаро, Аннабелла Скьявоне, Франко АддуччиПеревод: Одноголосый любительский, А.ГерусовЯзык озвучки: Русский, итальянскийСубтитры: Итальянские, английскиеПродолжительность: 01:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5730A3B3DC19870D23B89D19D5E553838A10C6AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703245   (115166) от 28.02.2024
-
-Дневник сельского священника / Journal d un cure de campagne / Diary of a Country Priest (1951) BDRip [H.264] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по одноимённому роману Жоржа Бернаноса... В небогатый провинциальный приход Амбрикур на севере Франции прибывает молодой священник, только что закончивший семинарию. Он полон планов, однако проблемы со здоровьем сильно мешают его служению. Вдобавок выясняется, что прихожане отнюдь не горят желанием что-то менять в своей жизни. Но, преодолевая силой духа (   Читать дальше...   )Производство: Франция / Union Generale Cinematographique (UGC)Жанр: драмаРежиссер: Робер БрессонАктеры: Клод Лейдю, Жан Ривейр, Андре Гибер, Рашель Беран, Николь Море, Николь Ладмираль, Мартина Лемэр, Антуан Бальпетре, Жан Дане, Гастон Северен, Иветт Этьеван, Бернар Юбренн, Леон Арвель, Марсиаль Моранж, Жильбер ТербуаПеревод: профессиональный многоголосый, авторский, любительский одноголосыйЯзык озвучки: русский, французскийСубтитры: русские, английскиеПродолжительность: 01:55:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12D2DAE2EDB64DC68170B81882F3A293FBA5A219
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703289   (115153) от 28.02.2024
-
-Маквей из Южных морей / McVeagh of the South Seas (1914) WEBRip [PR]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Романтически-приключенческая фильма о том как на далеких островах Южных морей американцы добывают жемчуг. Ну, как добывают... Добывают-то конечно туземцы. А белые господа жесткой рукой когда просто отбирают, когда обменивают за "огненную воду". И попутно несут дикарям христианскую веру и прочие блага цивилизации.
-Жаль, что качество копии невысоко.Производство: США, Progressive Motion Picture CompanyЖанр: драма, приключения, немое киноРежиссер: Сирил Брюс, Гарри КэриАктеры: Гарри Кэри, Ферн Фостер, Херберт Расселл, Кэтлин Батлер, Джек ТерриПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:58:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20C98F147849B04A2A08843058E17204B09CCE0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703534   (115080) от 29.02.2024
-
-Изабелла, дьявольская герцогиня / Isabella, Duchessa Dei Diavoli / Isabella, Duchess of the Devils (1969) DVDRip  [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Родителей Изабеллы, герцога и герцогиню де Фрессак, убил зловещий барон фон Нюттер. Девочку чудом спас цыган и теперь, лишь много лет спустя узнав о своем подлинном происхождении, воспитанная цыганами аристократка готова отомстить узурпатору и вернуть свое наследие.Производство: Италия, Германия (ФРГ) / Cinesecolo, Hape Film, Internazionale Nembo Distribuzione Importazione Esportazione Film (INDIEF)Жанр: боевик, драма, мелодрама, приключенияРежиссер: Бруно КорбуччиАктеры: Бриджит Скай, Миммо Пальмара, Фред Уильямс, Элина Де Уитт, Сальваторе Боргезе, Марио Новелли, Энцо Андронико, Томас Астан, Джойя ДезидериПеревод: Одноголосый любительский (den904)Язык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:29:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8029B7546E3B64D99F3FB9675EB5EC2794C5F065
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703545   (115073) от 29.02.2024
-
-Дьявол во плоти / Diavolo in corpo (1986) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация романа Раймонда Радиге "Le Diable au corps"... Итальянский старшеклассник Андреа влюбляется в Джулию, женщину старше его. Жених Джулии, левый радикал, заключён в тюрьму и в настоящее время предстаёт перед судом за политические преступления. Андреа и Джулия встречаются и начинают сексуальные отношения, встречаясь в её квартире. Ситуация осложняется, (   Читать дальше...   )Производство: Франция, Италия / Film Sextile, Istituto Luce, Ital-Noleggio CinematograficoЖанр: драма, мелодрама, эротика, экранизацияРежиссер: Марко БеллоккьоАктеры: Марушка Детмерс, Федерико Питцалис, Анита Лауренци, Альберто Ди Стасио, Риккардо Де Торребруна, Катрин Дайамант, Анна Орсо, Лидия Брокколино, Стефано Аббати, Клаудио Ботоссо, Джермано Басиле, Брунелла Касолари, Лучиано Д`Амико, Лоренцо Д`Аванзо, Раффаель Де НуччиоПеревод: профессиональный двухголосый, авторскийЯзык озвучки: русский, итальянскийСубтитры: английскиеПродолжительность: 01:55:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A94318EBFE01F8501320110F647DFE6D12D286F
 ```
 
 https://mybot314.ru/tekegram_catalog/

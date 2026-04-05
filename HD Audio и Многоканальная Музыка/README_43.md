@@ -1,32 +1,3 @@
-###  Публикация: 846624   (301711) от 02.12.2014
-
-Pink Floyd - The Endless River (2014) [LPCM 2.0, Dolby Digital 5.1, DTS 5.1 | Audio-DVD] <Progressive Rock, Art Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Things left unsaid [04.26]
-02. It's what we do [06.17]
-03. Ebb and flow [01.55]
-04. Sum [04.48](   Читать дальше...   )Жанр: Progressive Rock, AmbientПродолжительность: 00:52:55 + 00:39:14 (дополнительные материалы)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43109B07FEB7B803519454C1F8AB036FBF335061
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184337   (301186) от 17.11.2017
 
 Level 42 - Level 42 (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] < Jazz-Funk>
@@ -35,7 +6,7 @@ Level 42 - Level 42 (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] < Jazz-Funk>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301186.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Rush - Signals (1982)  [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progressive Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301096.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Engelbert Humperdinck - Энгельберт Хампердинк (1978) [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300797.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Rainbow - Rising (1976) /2011 SHM-SACD/ [DSD 2.0 1bit/2822,4kHz |SACD-R]<Heavy m
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300046.jpg" />
 </div>
 
 
@@ -153,7 +124,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299830.jpg" />
 </div>
 
 
@@ -182,7 +153,7 @@ Daturana - Mindfly (2016) Limited Edition, 2017, Nasoni Records [FLAC 2.0|192/24
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299047.jpg" />
 </div>
 
 
@@ -211,7 +182,7 @@ Billy Idol - Billy Idol (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop Roc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298783.jpg" />
 </div>
 
 
@@ -237,7 +208,7 @@ Bomfunk MC's - In Stereo (2000) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Electronic
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298522.jpg" />
 </div>
 
 
@@ -266,7 +237,7 @@ Slade - Old New Borrowed And Blue (1974) [DSD 128|tracks (Vinyl-Rip)]<Glam-Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297336.jpg" />
 </div>
 
 
@@ -295,7 +266,7 @@ Marina & the Diamonds - Electra Heart (2012) [FLAC 2.0|192/24|image + .cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297142.jpg" />
 </div>
 
 
@@ -324,7 +295,7 @@ Dire Straits - Brothers In Arms (UK-1985) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Cla
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296999.jpg" />
 </div>
 
 
@@ -359,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296009.jpg" />
 </div>
 
 
@@ -388,7 +359,7 @@ Queen - News Of The World (1977) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295593.jpg" />
 </div>
 
 
@@ -417,7 +388,7 @@ Pink Floyd - The Endless River (2014) 2LP [FLAC 2.0 24/96|image (Vinyl-Rip)] <Pr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295386.jpg" />
 </div>
 
 
@@ -446,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295056.jpg" />
 </div>
 
 
@@ -475,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295020.jpg" />
 </div>
 
 
@@ -504,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293750.jpg" />
 </div>
 
 
@@ -533,7 +504,7 @@ Rockets -Pi 3,14 (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electro, Synth
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293301.jpg" />
 </div>
 
 
@@ -562,7 +533,7 @@ VA - Jazz Collection Non Stop Part I (2018) [FLAC 2.0|44,1/16|image+.cue|MC-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293150.jpg" />
 </div>
 
 
@@ -591,7 +562,7 @@ Gazebo - Telephone Mama (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Italo-D
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293131.jpg" />
 </div>
 
 
@@ -620,7 +591,7 @@ Den Harrow - Overpower (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Italo-Di
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293124.jpg" />
 </div>
 
 
@@ -649,7 +620,7 @@ VA - Italo Maxi-Hits (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]  <Electroni
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292955.jpg" />
 </div>
 
 
@@ -678,7 +649,7 @@ Mylene Farmer - Interstellaires (2015) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292941.jpg" />
 </div>
 
 
@@ -707,7 +678,7 @@ Russ Ballard - Russ Ballard (1984)  [DSD 2.0|2822,4/1|image|Vinyl-Rip] <Rock>
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292863.jpg" />
 </div>
 
 
@@ -736,7 +707,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291980.jpg" />
 </div>
 
 
@@ -750,6 +721,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67EEF2AFD12F51EDB48791740FFB29622387481C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185385   (291424) от 22.11.2017
+
+Marina & the Diamonds - The Family Jewels (2010) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop Rock, Indie Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291424.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Are You Satisfied? 3:21
+A2 Shampain 3:12
+A3 I Am Not A Robot 3:35
+A4 Girls 3:29(   Читать дальше...   )Жанр: Pop Rock, Indie RockПродолжительность: 00:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16CE4C77D2E1CB5B3211C8D91D85230E892E4C8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

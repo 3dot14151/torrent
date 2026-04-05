@@ -1,3 +1,81 @@
+###  Публикация: 1593263   (181112) от 26.11.2022
+
+Павлиний хвост (1946) BDRemux [H.264/1080p]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Медведь приходит к доктору Айболиту и просит приклеить ему хвост. Из предложенных ему хвостов он выбирает павлиний.Производство: СССР, СоюзмультфильмЖанр: детский, рисованная анимацияРежиссер: Леонид Амальрик, Владимир ПолковниковАктеры: Леонид Пирогов, Георгий Вицин, Владимир Благообразов, Юлия ЮльскаяСубтитры: ОтсутствуютПродолжительность: 00:10:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA06CF2BBF9E5431688821D69751FA3A66B8449A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593264   (181102) от 26.11.2022
+
+Тараканище (1963) BDRemux [H.264/1080p]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181102.jpg" />
+</div>
+
+
+###  Подробнее
+
+По сказке К. Чуковского о страшном-престрашном Тараканище, который до смерти напугал всех зверей, но был проглочен обыкновенным маленьким воробышком.Производство: СССР, СоюзмультфильмЖанр: детский, рисованная анимацияРежиссер: Владимир ПолковниковАктеры: Сергей Цейц, Юрий Филимонов, Нина Никитина, Алексей ГрибовСубтитры: ОтсутствуютПродолжительность: 00:17:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98C92BBA6C29322DB058AC3A790B1BB2A45F2643
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593255   (181066) от 26.11.2022
+
+Бибигон (1981) BDRemux [H.264/1080p]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бибигон - крохотный лилипут, который свалился на Землю с Луны, затем слетал на Луну же за своей сестрой Цинцинелой и победил злобного индюка-колдуна Брундуляка.Производство: СССР, СоюзмультфильмЖанр: детский, кукольныйРежиссер: Сергей Олифиренко, Борис АблынинАктеры: Корней Чуковский, Маргарита Корабельникова, Александр Очеретянский, Нина Шмелькова, Татьяна ШатиловаСубтитры: ОтсутствуютПродолжительность: 00:19:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FB578F9B3976E82751465EF9704A28F0DBC75A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593261   (181057) от 26.11.2022
 
 От двух до пяти (1983) BDRemux [H.264/1080p]
@@ -6,7 +84,7 @@
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181057.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181012.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181006.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180983.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180947.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180182.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179973.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179835.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179823.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179754.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179160.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179135.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178637.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178619.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178616.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178515.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177873.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177769.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177759.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177284.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177240.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177231.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177118.jpg" />
 </div>
 
 
@@ -591,84 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8098A67A174273542594A586A4E0C9687B85C304
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594846   (177114) от 02.12.2022
-
-Чиполлино (1961) BDRemux [H.264/1080i]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знакомая каждому с детства сказка Джанни Родари рассказывает о мальчике-луковке и его друзьях из «фруктово-овощного» сказочного мира, которые борются за справедливость и мечтают о добре.Производство: СССР, СоюзмультфильмЖанр: детский, рисованная анимацияРежиссер: Борис ДежкинАктеры: Нина Гуляева, Эраст Гарин, Сергей Мартинсон, Григорий Шпигель и др.Субтитры: ОтсутствуютПродолжительность: 00:37:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB04D4B10167F07EC77A12B5A66C8FC40CD51422
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594764   (177111) от 02.12.2022
-
-Царевна-лягушка (1954) BDRip [H.264/1080p-LQ] [handmade remastered AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177111.jpg" />
-</div>
-
-
-###  Подробнее
-
-В некотором царстве, в некотором государстве жил-был царь. И задумал он женить своих сыновей. Решили они послать свои стрелы в разные стороны, какая куда попадет, там и невесту искать. Попала посланная Иваном-царевичем стрела на болотную кочку, где сидела лягушка…Производство: СССР / СоюзмультфильмЖанр: мультфильм, детский, короткометражка, рисованная анимацияРежиссер: Михаил ЦехановскийАктеры: Алексей Грибов, Маргарита Куприянова, Георгий Милляр, Александр Румнев, Владимир Грибков, Борис Чирков, Анатолий ВербицкийСубтитры: ОтсутствуютПродолжительность: 00:38:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2959B167FCD4C8015E68E743A4F2D46157645DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667459   (176755) от 08.10.2023
-
-Топтыжка (1964) BDRip [H.264/1080p-LQ] [handmade]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176755.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сказка о маленьком медвежонке, подружившемся с зайчишкой. В фильме использованы рисунки художника Чарушина.Производство: СССР / СоюзмультфильмЖанр: мультфильм, короткометражкаРежиссер: Фёдор ХитрукАктеры: Елена ПонсоваСубтитры: ОтсутствуютПродолжительность: 00:09:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:392A283E70335C069AC70F9CC91CEF14EFFC2090
 ```
 
 https://mybot314.ru/tekegram_catalog/

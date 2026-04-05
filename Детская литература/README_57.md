@@ -1,29 +1,3 @@
-###  Публикация: 1212604   (775817) от 12.03.2018
-
-И. Лебедев (илл.) | Морозко (1913) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775817.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сказка для детей младшего возраста.Жанр: Детская проза, СказкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9094AB14DAF6CCEC76E634EC4C613751ABE65A48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212603   (775815) от 12.03.2018
 
 Сказка о серебряном блюдечке и наливном яблочке (1913) [JPG]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775815.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775810.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775809.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775078.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775072.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774999.jpg" />
 </div>
 
 
@@ -191,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774994.jpg" />
 </div>
 
 
@@ -217,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774841.jpg" />
 </div>
 
 
@@ -243,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774395.jpg" />
 </div>
 
 
@@ -269,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774369.jpg" />
 </div>
 
 
@@ -297,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774356.jpg" />
 </div>
 
 
@@ -323,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774343.jpg" />
 </div>
 
 
@@ -351,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773357.jpg" />
 </div>
 
 
@@ -377,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773264.jpg" />
 </div>
 
 
@@ -403,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773263.jpg" />
 </div>
 
 
@@ -429,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773259.jpg" />
 </div>
 
 
@@ -456,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773100.jpg" />
 </div>
 
 
@@ -482,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773097.jpg" />
 </div>
 
 
@@ -508,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772848.jpg" />
 </div>
 
 
@@ -535,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772681.jpg" />
 </div>
 
 
@@ -562,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772004.jpg" />
 </div>
 
 
@@ -588,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772000.jpg" />
 </div>
 
 
@@ -617,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771729.jpg" />
 </div>
 
 
@@ -643,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771596.jpg" />
 </div>
 
 
@@ -669,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771464.jpg" />
 </div>
 
 
@@ -680,6 +654,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E3574BD6A3ED95C6326C4002D15A435CF41C52D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016155   (771126) от 13.05.2016
+
+Л. Н. Елисеева (сост.) | Хрестоматия для маленьких (1987) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771126.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пятое издание хрестоматии вошли произведения устного народного творчества, стихи и рассказы русских, советских и зарубежных писателей, рекомендованные "Программой воспитания и обучения в детском саду" для чтения и рассказывания детям в возрасте от первого года жизни до пяти лет, а также литературный материал для дополнительного чтения.Жанр: Детская литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEF9FB27D9D17E00FF8AA483928AC908DF74BC7F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,67 @@
+###  Публикация: 1318702   (490757) от 08.08.2019
+
+Audiomachine - Life (2017) [FLAC|Lossless] <Soundtrack, Trailer music, Classical Crossover>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Promises to Keep [02:17]
+02. Reunited [02:36]
+03. Remember Not to Forget [03:13]
+04. Try Again Tomorrow [03:09](   Читать дальше...   )Жанр: Soundtrack, Trailer music, Classical CrossoverПродолжительность: 01:12:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CB038A47B762FDF952AF05001CE049EB6C49020
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544424   (490629) от 07.09.2012
+
+VA - Usher Audio Demonstation CD (2004-2010) 5CD[FLAC|Lossless]<High-End Audiophile Test>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Longtenghuyue - Roaring of the Tiger and Dragon [03:36]
+02. Oyster Sisters and Gary Karr Gairuikaer - A Melody of Hong Chun [03:22]
+03. New Age - Flower Woman [04:46]
+04. Johanne Blouin - Les enfants oublies [03:33]
+05. Jotka Hosprova - Csardas [05:08]
+06. Rossini 'Mr. Chino Bruce' - I1 Signor Bruschino [04:33]
+07. Puccini - La Boheme: Introduction [00:32]
+08. Puccini - La Boheme: Non Sono in Vena [04:10]
+09. Mikis Theodorakis Duolaijisi - Delicate Dawn [02:58]
+10. Mighty Echoes Quartet - Under the Boardwalk [03:26](   Читать дальше...   )Жанр: High-End Audiophile Test ( Pop, Rock, Classical, Jazz Compilations )Продолжительность: 01:08:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1567160   (476306) от 01.08.2022
 
 Art Of Noise - The Best Of The Art Of Noise - The Art Of Love (1992) [FLAC|Lossless|image + .cue] <Ambient, Experimental, Electronic>
@@ -6,7 +70,7 @@ Art Of Noise - The Best Of The Art Of Noise - The Art Of Love (1992) [FLAC|Lossl
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476306.jpg" />
 </div>
 
 
@@ -35,7 +99,7 @@ VA - When Lotus is opening (2005) [FLAC|Lossless|tracks] <DreamMusic>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468156.jpg" />
 </div>
 
 
@@ -66,7 +130,7 @@ James Last - 16 альбомов (1987 – 2019) [FLAC|Lossless|image, track + .
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446680.jpg" />
 </div>
 
 
@@ -96,7 +160,7 @@ VA - Vargo Lounge Summer Celebration 1 (2013) [FLAC|Lossless|image + .cue]<Chill
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446618.jpg" />
 </div>
 
 
@@ -125,7 +189,7 @@ VA - 100 Instrumental - Hits (2008) 5CD [APE|Lossless]<Instrumental>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_441945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_441945.jpg" />
 </div>
 
 
@@ -154,7 +218,7 @@ Anthony Ventura - Je t'aime - Traum-Melodien  (1973-1982) 10 CD [FLAC|Lossless] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437174.jpg" />
 </div>
 
 
@@ -183,7 +247,7 @@ François Mardirossian - Moondog Piano Works (2019) [FLAC|Lossless|tracks + .cue
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433867.jpg" />
 </div>
 
 
@@ -212,7 +276,7 @@ VA - Meesters Der Sfeermuziek 2 - De beste Orkesten (2002) 3 CD [FLAC|Lossless|i
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433862.jpg" />
 </div>
 
 
@@ -241,7 +305,7 @@ Mattias Uneback - Voyage Beneath The Sea: The Adventurous Sounds of Mattias Uneb
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431825.jpg" />
 </div>
 
 
@@ -270,7 +334,7 @@ Malando & His Tango Orchestra - Malando Best Selection (2019) [FLAC|Lossless|ima
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431642.jpg" />
 </div>
 
 
@@ -301,7 +365,7 @@ VA - Romantic Guitars (1995) [FLAC|Lossless|image + .cue] <Instrumental, Guitar>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429483.jpg" />
 </div>
 
 
@@ -330,7 +394,7 @@ Lo Yan - Audiophile Latin Guitar (2010) [FLAC|Lossless]<Guitar, Instrumental>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_402794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_402794.jpg" />
 </div>
 
 
@@ -365,7 +429,7 @@ Manuel Granada - The Hi-Fi Sound of Spanish Guitar (2007) [FLAC|Lossless]<Guitar
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_402789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_402789.jpg" />
 </div>
 
 
@@ -400,7 +464,7 @@ Tony Anderson - Chasm (2018) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Instrume
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345182.jpg" />
 </div>
 
 
@@ -429,7 +493,7 @@ Cigarettes After Sex - I. (2012) [FLAC|Lossless|WEB-DL|tracks] <Dream Pop, Indie
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335562.jpg" />
 </div>
 
 
@@ -458,7 +522,7 @@ Rudolf Werthen, I Fiamminghi, Juan Jose Mosalini - Tango - La Elegia De Quienes 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327551.jpg" />
 </div>
 
 
@@ -487,7 +551,7 @@ VA - TANGO. selected by Eduardo Makaroff (2007) / Wagram Music [FLAC|image+cue]<
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327503.jpg" />
 </div>
 
 
@@ -516,7 +580,7 @@ VA - Die Hit-Giganten: Instrumental Hits (2009) 2CD [FLAC|image+.cue]<Pop, Elect
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325628.jpg" />
 </div>
 
 
@@ -545,7 +609,7 @@ The Man from RavCon - Strange Universe (2016) [FLAC|Lossless|image + .cue] <Inst
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323152.jpg" />
 </div>
 
 
@@ -574,7 +638,7 @@ Kevin Kern - 8 альбомов (1996 - 2005) [APE|Lossless|image + .cue] <New A
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321528.jpg" />
 </div>
 
 
@@ -604,7 +668,7 @@ VA - Classic Christmas (2020) [FLAC|Lossless|WEB-DL|tracks] <Christmas Music>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304158.jpg" />
 </div>
 
 
@@ -633,7 +697,7 @@ VA - Emmanuelle (The Original Soundtrack Music) (1974) [FLAC|image + .cue]<Sound
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303089.jpg" />
 </div>
 
 
@@ -662,7 +726,7 @@ Riccardo Cocciante - Notre Dame De Paris  (2000) English Version [FLAC|Lossless|
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299651.jpg" />
 </div>
 
 
@@ -691,7 +755,7 @@ Riccardo Cocciante - Notre Dame De Paris, Opera Tratta Dal Romanzo Di Victor Hug
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299056.jpg" />
 </div>
 
 
@@ -705,61 +769,6 @@ Riccardo Cocciante - Notre Dame De Paris, Opera Tratta Dal Romanzo Di Victor Hug
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C25BCFC8BA531DB90C5D22A84322B38469AF2167
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 143074   (279028) от 24.11.2018
-
-Various Artists - Наши песни - Песни Победы (2001) [APE|lossless]<Военные песни>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Военные песниПродолжительность: 01:02:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9851A021B636A2C72DE7C8F2F7A1C572F908118E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189449   (266983) от 10.12.2017
-
-Kronos Quartet & Trio Da Kali - Ladilikan (2017) [FLAC|Lossless|tracks + .cue] <Mande Music, Chamber Music>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_266983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tita (06:54)
-02. Kanimba (04:39)
-03. Eh Ya Ye (04:51)
-04. Garaba Mama (03:02)(   Читать дальше...   )Жанр: Mande Music, Chamber MusicПродолжительность: 00:46:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:475C6494CC704769578CD300E060B3EC9F7AD2C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

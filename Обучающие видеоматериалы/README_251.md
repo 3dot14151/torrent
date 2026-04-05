@@ -1,3 +1,31 @@
+###  Публикация: 1597464   (166206) от 14.12.2022
+
+Liveclasses, Никита Чесноков | Blender: быстрый старт (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blender – самая быстро развивающаяся и очень популярная программа для создания 3D графики и анимации. Она совершенно бесплатная и простая в освоении. С её помощью можно создавать 3D графику широкого спектра: 3D модели для игр, видео-эффекты для кино, анимацию для моушн-дизайна, персонажную анимацию для мультипликации и многое другое.
+
+Хотите заняться моделированием (   Читать дальше...   )Производство: LiveclassesЖанр: Создание видео, 3DЯзык озвучки: РусскийПродолжительность: 02:36:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B56266623F72B0655B56ABE5B60698764C129CE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597466   (166203) от 14.12.2022
 
 Liveclasses, Никита Чесноков | Blender: расширенные возможности (2022) WEB-DL [RU]
@@ -6,7 +34,7 @@ Liveclasses, Никита Чесноков | Blender: расширенные в�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166203.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165990.jpg" />
 </div>
 
 
@@ -61,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165965.jpg" />
 </div>
 
 
@@ -87,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165912.jpg" />
 </div>
 
 
@@ -113,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165911.jpg" />
 </div>
 
 
@@ -139,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165908.jpg" />
 </div>
 
 
@@ -165,7 +193,7 @@ Digital Tutors, Ron Friedman | Animating a Dialogue Scene in Maya (2013) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165891.jpg" />
 </div>
 
 
@@ -191,7 +219,7 @@ RepairClinic | Как ремонтировать бытовую технику (
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165853.jpg" />
 </div>
 
 
@@ -220,7 +248,7 @@ TCM Security, Heath Adams | Open-Source Intelligence (OSINT) Fundamentals (2020)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165753.jpg" />
 </div>
 
 
@@ -246,7 +274,7 @@ RTFX Animation, Ринат Тимеркаев | Основы 2D FX анимац�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165679.jpg" />
 </div>
 
 
@@ -272,7 +300,7 @@ kobezzza.channel, Андрей Кобец | Интенсив ‌‌«РЕФЛЕ�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165677.jpg" />
 </div>
 
 
@@ -298,7 +326,7 @@ Motion Design School, Данила Михайлов | Рисование спе�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165647.jpg" />
 </div>
 
 
@@ -324,7 +352,7 @@ kobezzza.channel, Андрей Кобец | Интенсив ‌‌«РАБОТ�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165641.jpg" />
 </div>
 
 
@@ -350,7 +378,7 @@ kobezzza.channel, Андрей Кобец | Интенсив «ITERABLE API» (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165636.jpg" />
 </div>
 
 
@@ -376,7 +404,7 @@ kobezzza.channel, Андрей Кобец | Интенсив ‌«‌PROMISE API
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165631.jpg" />
 </div>
 
 
@@ -402,7 +430,7 @@ kobezzza.channel, Андрей Кобец | Интенсив ‌‌‌«РЕГУ
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165569.jpg" />
 </div>
 
 
@@ -429,7 +457,7 @@ kobezzza.channel, Андрей Кобец | Интенсив ‌«‌ООП В J
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165553.jpg" />
 </div>
 
 
@@ -455,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165526.jpg" />
 </div>
 
 
@@ -484,7 +512,7 @@ kobezzza.channel, Андрей Кобец | Интенсив "TYPESCRIPT" (2022)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165512.jpg" />
 </div>
 
 
@@ -511,7 +539,7 @@ Danil K, Данил Куширмский | Сборник курсов по ли
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165507.jpg" />
 </div>
 
 
@@ -539,7 +567,7 @@ The Gnomon Workshop, Charleston Silverman | Unreal Engine 5 Lighting Fundamental
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165479.jpg" />
 </div>
 
 
@@ -565,7 +593,7 @@ kobezzza.channel, Андрей Кобец | Интенсив "ИНТЕНСИВ �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165459.jpg" />
 </div>
 
 
@@ -591,7 +619,7 @@ Domestika, Mattey | Cinema 4D Создавайте яркие 3D иллюстр�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165447.jpg" />
 </div>
 
 
@@ -620,7 +648,7 @@ Udemy, Nexttut, Victor Yamakado | Zbrush Character Likeness Sculpting Tutorial (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165404.jpg" />
 </div>
 
 
@@ -648,7 +676,7 @@ IAmTimCorey, Tim Corey | .NET Core AppSettings: Углубленный Курс 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164950.jpg" />
 </div>
 
 
@@ -660,34 +688,6 @@ AppSettings - это мощь (и сложность одновременно!) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B407DF3D4199C8C06F8629CF39E217CCA9DA412
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673514   (164919) от 01.11.2023
-
-Strogoorganic, Мария Винокур, Эля Ямилева | Курс начинающего садовода для занятых женщин с помощью методики "Нисо" (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164919.jpg" />
-</div>
-
-
-###  Подробнее
-
-ПРЕВРАТИТЕСЬ В УМЕЛОГО САДОВОДА ЗА 4 МЕСЯЦА
-Уделяйте участку всего 1 день в неделю и обеспечьте семью вкусным урожаем
-Советы, вырванные из разных источников, без системного подхода и базовых знаний о том, как устроена природа, увы, не работают! Важно понимать ее законы и механизмы, знать, о чем просит земля и как о ней позаботиться. Пройдите комплексное обучение (   Читать дальше...   )Производство: StrogoorganicЖанр: Обучающий курс, онлайн-практикумЯзык озвучки: РусскийПродолжительность: 229:17:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E7692E15CA0EF6754931B525C4429D4D94878F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

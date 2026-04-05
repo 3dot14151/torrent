@@ -6,7 +6,7 @@ Waltr 2 v2.0.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812639.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ ON1 Resize 2022 v16.0.1.11291 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812415.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Cover Desk 1.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812399.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812394.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Image2icon - Make your icon‪s‬ 2.16 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812365.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Bandizip: Archiver 7.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812359.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ ON1 Portrait AI 2022 v16.0.1.11291 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812307.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Rhinoceros 7 v7.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812292.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Transmit 5.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812288.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Serial 2 v2.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812278.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Carbon Copy Cloner 6 v6.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812224.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Sublime Text Dev 4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812220.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Cabinet - Quick access for your photos 1.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812180.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Arq 5.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812165.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ PhotoMill X (aka Reformator) 1.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812068.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Downie 2.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812067.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Movavi Screen Recorder 22.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811982.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Remote Desktop Manager Enterprise Edition 2021.2.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811972.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Teorex DupHunter 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811921.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ InstaBro | Instagram Browser 5.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811891.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Scrutiny 9 v9.6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811848.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ IconJar 1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811776.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Repix Pro 2.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811742.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Get Backup Pro 3 v3.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811741.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ MWeb: Markdown writing, note taking, static blog generator 3.3.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811740.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Slidepad 1.0.31 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811739.jpg" />
 </div>
 
 

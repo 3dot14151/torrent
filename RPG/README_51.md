@@ -1,3 +1,55 @@
+###  Публикация: 1715756   (59840) от 13.04.2024
+
+Inkbound (2024) [Multi] (1.0.0) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Inkbound - это тактическая РПГ, в которой вы сможете ощутить себя в роли героя в захватывающем онлайн-коперативном рогалике, который полностью переосмысливает игровой процесс пошаговых боев. Вы можете играть как в одиночку, так и в команде с другими геймерами, исследуя магические и опасные книги в библиотеке Афинеума и борясь за спасение этого богатого и постоянно (   Читать дальше...   )Тип издания: RepackРазработчик: Shiny ShoeЖанр: Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий, Японский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEF639125BDC92B07A17DB01563FB40AA42FD044
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657819   (59782) от 14.04.2024
+
+Fallout 4 (2015) [Ru/En] (1.10.163.0/dlc) Repack dixen18 [Game of the Year Edition]
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fallout 4 - это продолжение знаменитой постапокалиптической серии, события которой развиваются спустя несколько лет после окончания Fallout 3. Протагонистом игры становится единственный выживший из Убежища 111, которое находилось неподалеку от Бостона. Волей судьбы главному герою предстоит покинуть свой дом, чтобы пуститься в полное опасностей приключение, где на (   Читать дальше...   )Тип издания: RepackРазработчик: Bethesda Game StudiosЖанр: RPG, Action, Open WorldЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B8E3FA18EC135E9ADED4E355C5BDEE8BFCC413E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1716066   (59758) от 14.04.2024
 
 Terra Memoria (2024) [Multi] (2024.3.13a) Repack FitGirl [Deluxe Edition]
@@ -6,7 +58,7 @@ Terra Memoria (2024) [Multi] (2024.3.13a) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59758.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Beat Slayer (2024) [Multi] (1.1.14) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59746.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ The Thaumaturge (2024) [Ru/Multi] (71.135/dlc) Repack Decepticon [Digital Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59744.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Pathfinder: Gallowspire Survivors (2024) [Ru/Multi] (1.0.3719) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59554.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Acolyte of the Altar (2024) [En] (1.0.69) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59529.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Lotus Lantern: Rescue Mother (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59521.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ INSPIRE (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59456.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Shanghai Summer (2024) [Ru/Multi] (1.6.20.2) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59451.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Sheba: A New Dawn (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59426.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Jupiter Hell (2021) [En] (1.8h) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59364.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Sword Art Online: Last Recollection (2023) [Ru/Multi] (1.21/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59237.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Our Adventurer Guild (2024) [En] (1.071) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59070.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Lotus Lantern: Rescue Mother (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59004.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ The Legend of Heroes: Trails of Cold Steel III (2020) [Multi] (1.06/dlc) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58946.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Astria Ascending (2021) [Multi] (1.0.154/dlc) License GOG [Digital Collector's E
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58922.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Eiyuden Chronicle: Hundred Heroes (2024) [Ru/Multi] (1.0/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58909.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Mato Anomalies (2023) [Multi] (rc3/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58884.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Demon Lord Reincarnation (2023) [En] (1.0.6.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58852.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Fallout 3 (2009) [Ru/En] (1.7.0.3/dlc) Repack dixen18 [Game of the Year Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58835.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Kingsgrave (2024) [Ru/Multi] (1.0.0.2.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58827.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Bloody Spell (2022) [Multi] (20240414/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58739.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Decision: Red Daze (2022) [Ru/Multi] (1.3.3(4)) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58729.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Eiyuden Chronicle: Hundred Heroes (2024) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58723.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Tamarak Trail (2024) [Ru/Multi] (1.0.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58695.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Tamarak Trail - это увлекательное приключение, кот
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD3B12E2E886F396C4186B34314F758339184BEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718433   (58623) от 25.04.2024
-
-Eclipse: Echo of Dimension (2024) [Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Eclipse: Echo of Dimension – отправьтесь навстречу невероятным приключениям. Внимательно изучайте таинственные руины некогда существовавшей цивилизации. И приготовьтесь к тому что между измерениями будут размыты границы. С каждым новым шагом открывается нечто новое. Погрузитесь с головой в эпический симулятор ходьбы, дополненный приключениями. Где вас ожидает незабываемое (   Читать дальше...   )Тип издания: RepackРазработчик: Lu Jiawei, FROSTI AESTECHЖанр: Приключенческие игры, Казуальные игры, Инди, Ролевые игры, СимуляторыЯзык субтитров: Английский, КитайскийЯзык интерфейса: Английский, Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E62BBCCDB82AE7EABF03D3F2A4A1BB52F2D0EB9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718440   (58601) от 25.04.2024
-
-Life Eater (2024) [En] (1.0) Scene Tenoke
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Life Eater - это симулятор культиста, сочетающий в себе черты хоррора и магического реализма. Примерьте на себя роль современного друида, который живет в обычном спальном районе и работает на обычной работе лишь для того, чтобы раз в год исполнять свое истинное предназначение: проводить ритуал, призванный спасти мир от гибели.Тип издания: SceneРазработчик: Strange ScaffoldЖанр: Ролевые игры, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D8468084D3E2D60D31F59C495A3BB876DD774E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

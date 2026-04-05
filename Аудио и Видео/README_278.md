@@ -6,7 +6,7 @@ VA - Buddah's Chill 8 (2017) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129130.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Buddah's Chill 1 (2010) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129128.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Ibiza Lounge (2022) [AAC|~298 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129109.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - The Very Best of Chill Out, Vol. 2 (2015) [AAC|~325 Kbps] <Lounge, Chill Ou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129108.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Marc Hartman - Jigzaw (2022) [AAC|~327 Kbps] <Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129107.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Buddah's Chill 7 (2016) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129105.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Buddah's Chill 2 (2013) [AAC|~322 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129103.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Buddah's Chill 5 (2015) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129101.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Scorpions - Rock Believer (Deluxe) (2022) [AAC|~355 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127145.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Dan Ogus - Scattering The Christmas Roots 20-12-23 (2023) [AAC|192 Kbps] <Blues,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125573.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115730.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115729.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115724.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87041.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84302.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77604.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77414.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76953.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76741.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75545.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ VA - Grand Prix 70's (2010) [AAC|320 Kbps] <Electronic, Italo-Disco, Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71773.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Digital Emotion - Greatest Hits (2007) [AAC|320 Kbps] <Electronic, House, Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71751.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ VA - Italo Disco - The Lost Legends Vol. 16 (2018) [AAC|320 Kbps] <Electronic, I
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71536.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ VA - Dance Classics Gold 2 (1991) [AAC|320 Kbps] <Electronic, Hip Hop, Funk, Dis
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71490.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ VA - Dance Classics Gold 3 (1992) [AAC|320 Kbps] <Electronic, Hip Hop, Funk, Dis
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71489.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ VA - Dance Classics Gold 4 (1993) [AAC|320 Kbps] <Electronic, Hip Hop, Funk, Dis
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71439.jpg" />
 </div>
 
 

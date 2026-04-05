@@ -1,3 +1,32 @@
+###  Публикация: 1578582   (343651) от 24.09.2022
+
+Asylum - Tyrannicide (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Eternal Violence (03:54)
+02 - Victim Complex (04:00)
+03 - Cruelty Obsessed (04:17)
+04 - Tyrannicide (03:57)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:38:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:004BAE30CB2A76DEDBFC5EE10851029FD1F56DB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578502   (343650) от 24.09.2022
 
 Freedom Hawk - Take All You Can (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stone, Doom>
@@ -6,7 +35,7 @@ Freedom Hawk - Take All You Can (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343650.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Meridian - The Fourth Dimension (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343648.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Atme - Mantrakora (2021) EP [FLAC|Lossless|image + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343647.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Yurcash (Юркеш) - 2 альбома (2006-2007) Дискография [APE|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343577.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Razor - Cycle Of Contempt (2022) [FLAC|Lossless|WEB-DL|tracks] <Speed, Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343556.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Silent Knight - Full Force (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343553.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Stratovarius - Elements Pt.2 (2003) [OGG Vorbis|484 Kbps] <Rock, Speed Metal, Sy
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343550.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ B52 - 2 Albums (2017-2019) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343547.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343544.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ The Darkness - Easter is Cancelled (2019) Deluxe Edition [MP3|320 kbps] <Hard Ro
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343543.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Purpendicular - Venus To Volcanus (2017) [FLAC|Lossless|image + .cue] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343538.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Kings Of Mercia - Kings Of Mercia (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343535.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Talas - 1985 (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343525.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Tom Keifer Band (ex-Cinderella) - Rise (2019) [FLAC|Lossless|image + .cue] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343522.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ KDRR - Из Сибири с любовью (2022) [MP3|320 Kbps] <Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343514.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Lunatic Soul (Mariusz Duda, ex.Riverside) - Under The Fragmented Sky (2018) EP [
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343435.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343376.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Skrik - 5 Relises (2017-2022) [MP3|320 Kbps] <Crust Hardcore, Metallic Hardcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343372.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Frayle - 3 Albums, 1 EP, 3 Singles (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <At
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343246.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ SpellBook - Deadly Charms (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Doom Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343245.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Scream Taker - Kill The Beautiful (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343192.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Twenty One Pilots - Trench (2018) [FLAC|Lossless|tracks + .cue] <Hip Hop, Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342912.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Russell Means - The Radical (1996) [MP3|192 Kbps] <Rockin' Blues>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342837.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Bad Suns - Disappear Here (2016) [FLAC|Lossless|tracks] <Alternative Rock, Indie
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342671.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Green Grey - WTF?! (2016) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342661.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Green Grey - WTF?! (2016) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F5696AECF5DA2C513344022138C1162E3C75F34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180097   (342638) от 03.11.2017
-
-Sleeping Romance - Alba (2017) [MP3|320 Kbps] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture - Twilight
-02. Where the Light Is Bleeding
-03. Lost in My Eyes
-04. Touch the Sun(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0ACA159F47C75B2038E835FE91CBB0C4E3FC5B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

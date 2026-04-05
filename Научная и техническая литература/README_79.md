@@ -1,133 +1,3 @@
-###  Публикация: 977946   (963366) от 23.01.2016
-
-Ю.М. Батурин (ред.) | Мировая пилотируемая космонавтика. История. Техника. Люди (2005) [PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы держите в руках уникальное издание. Впервые в космической литературе в одной книге подробно рассказывается обо всех пилотируемых космических программах, осуществлённых в СССР, России, США, Китае и других странах. В книге в увлекательной форме подробно описаны все 239 (!) пилотируемых полётов, выполненных в период 1961-2004 гг. Приводятся воспоминания непосредственных (   Читать дальше...   )Жанр: КосмонавтикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E73286F6CDB470004A0F3B24708F9E08EBC57418
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977943   (963364) от 23.01.2016
-
-П.А. Бакулев, А.А. Сосновский | Радиолокационные системы. Лабораторный практикум (2007) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приведен комплекс лабораторных работ по изучению принципа работы современных радиолокационных систем (РЛС) и входящих в них устройств; проанализированы функционально схемы блоков РЛС, исследованы их характеристики и параметры, в том числе и с использованием ЦВМ. Все лабораторные работы изложены с единых методических позиций и выполняются либо на макетах, либо методом (   Читать дальше...   )Жанр: РадиолокацияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71DC2C52BBD40D440D080E2E35B0BC89492EB112
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978508   (963351) от 23.01.2016
-
-Иванец Н.Н. | Руководство по наркологии. Практическое пособие в 2-х томах (2002) [DJVU]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963351.jpg" />
-</div>
-
-
-###  Подробнее
-
-В руководстве представлены современные данные о биологических, клинических, терапевтических, социальных, профилактических, правовых и этических аспектах наркологии. В первом томе рассмотрены механизмы этиопатогенеза наркологических заболеваний и токсического действия психоактивных веществ (ПАВ), проблемы иммунитета при алкоголизме и наркоманиях. Проанализированы (   Читать дальше...   )Жанр: Медицинская литература, НаркологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBBB049E661CE891A41291CC4F3E7203EB6620FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978322   (963345) от 23.01.2016
-
-В.Н. Осташков | Практикум по решению инженерных задач математическими методами (2013) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Практикум по решению инженерных задач математическими методами — В учебном пособии реализуются принципы вариативности исследовательских профессионально-ориентированных задач и технических проблем, допускающих моделирование математическими средствами, в основном известными студентам технических университетов из курса высшей математики. Анализируются эвристические (   Читать дальше...   )Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2AF2FD6417B1D0566C4362CCA6E813CC185C3CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978288   (963339) от 23.01.2016
-
-А.А. Сивков и др. | Основы электроснабжения (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963339.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии изложены основы электроснабжения промышленных предприятий. Отдельное внимание уделено электроприемникам промышленных предприятий, их характеристикам по надежности электроснабжения и режимам работы. Приведены электрические нагрузки и их графики, коэффициенты, характеризующие графики нагрузки, а также методы расчета электрических нагрузок.Рассматривается (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:021D754A03EEB235C8AE28E1BB32A47670441D7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978056   (963300) от 23.01.2016
 
 Евгэн Наконечный | Украденное имя. Почему русины стали украинцами (2015) [PDF]
@@ -136,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963300.jpg" />
 </div>
 
 
@@ -162,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963291.jpg" />
 </div>
 
 
@@ -190,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963290.jpg" />
 </div>
 
 
@@ -216,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963237.jpg" />
 </div>
 
 
@@ -242,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963231.jpg" />
 </div>
 
 
@@ -268,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963218.jpg" />
 </div>
 
 
@@ -294,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963209.jpg" />
 </div>
 
 
@@ -320,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963126.jpg" />
 </div>
 
 
@@ -346,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963086.jpg" />
 </div>
 
 
@@ -373,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963085.jpg" />
 </div>
 
 
@@ -399,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963050.jpg" />
 </div>
 
 
@@ -425,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963042.jpg" />
 </div>
 
 
@@ -452,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963037.jpg" />
 </div>
 
 
@@ -479,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962978.jpg" />
 </div>
 
 
@@ -507,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962620.jpg" />
 </div>
 
 
@@ -533,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962516.jpg" />
 </div>
 
 
@@ -561,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962404.jpg" />
 </div>
 
 
@@ -587,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962291.jpg" />
 </div>
 
 
@@ -613,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962166.jpg" />
 </div>
 
 
@@ -642,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961814.jpg" />
 </div>
 
 
@@ -669,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961779.jpg" />
 </div>
 
 
@@ -680,6 +550,141 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:279531772D7B8CEAAA511680281145981F3B85DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 268654   (961775) от 14.02.2020
+
+В.И. Киселев | Службы безопасности рейха (1939 - 1945) [2002] [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ни в одной стране в ХХ веке органам безопасности не придавалось столь большого значения, как в Германии. В какой-то мере конкуренцию Третьему Рейху мог составить только Советский Союз.
+Данное издание разделено на три глобальных части, посвященных вермахту, полиции и службам СС.
+Издание содержит много редких и интересных иллюстраций.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6DA2E843670DADD97EA1A8A135C3CC2AFCEEB71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978654   (960870) от 25.01.2016
+
+В.П. Дьяконов | Сверхскоростная твердотельная электроника [2 тома] (2013) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960870.jpg" />
+</div>
+
+
+###  Подробнее
+
+В первом томе описана элементная база твердотельных электронных устройств общего назначения нано- и пикосекундного диапазона времен - от туннельных и диодов с накоплением заряда, биполярных, полевых и лавинных транзисторов до новых S-диодов, лавинных обострителей, дрейфовых диодов с резким восстановлением, SOS-диодов и интегральных микросхем.
+Во втором томе описаны (   Читать дальше...   )Жанр: ЭлектроникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EF99AFC576948D3D459F026E5120C691C323380
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360259   (960793) от 15.02.2020
+
+А.Г. Ветошкин | Основы инженерной защиты окружающей среды (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приведены классификация и характеристики основных видов загрязнений, даны классификации методов и процессов защиты атмосферы, гидросферы, литосферы от химических и физических видов загрязнений. Рассмотрены основные закономерности процессов инженерной защиты окружающей среды, включая гидромеханические, массообменные, физико-химические и тепловые процессы защиты атмосферного (   Читать дальше...   )Жанр: ЭкологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87ED91933A0E6BA8ADCFC136DA779C3853120A04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979281   (960746) от 25.01.2016
+
+Алексей Ардашев | Базовая подготовка Спецназа. Экстремальное выживание (2016) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Таких книг в открытом доступе еще не было! Это – первый самоучитель по созданию бойцов специального назначения. Единственное общедоступное пособие по экстремальному выживанию элитных подразделений и базовой подготовке русского Спецназа, не имеющей равных.
+Выживание и экстремальная медицина, общефизическая и психологическая подготовка, огневая подготовка, снайперская (   Читать дальше...   )Жанр: Научная литература, Руководства, CпецслужбыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03B4FF8649135D7D54E538FDB01888ECB84857FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360292   (960737) от 15.02.2020
+
+Константин Носов | Гладиаторы: История. Вооружение. Организация зрелищ (2019) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ave, Caesar, morituri te salutant. «Славься, Цезарь, идущие на смерть приветствуют тебя» – именно так гладиаторы приветствовали римского императора, отправляясь на арену.
+На протяжении восьми столетий, вплоть до IV в. нашей эры, гладиаторские игры были любимым кровавым развлечением римлян. Слава этих бойцов была сродни славе нынешних олимпийцев. Их увековечивали (   Читать дальше...   )Жанр: История Древнего мираФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B42469A92852B86D72F11FA0ABD515BA47BD29B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

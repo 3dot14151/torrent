@@ -6,7 +6,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_264120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_264120.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263126.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262785.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262762.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261732.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260802.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260084.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259914.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258344.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257248.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255534.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255255.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255150.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254529.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252224.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250977.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250861.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250619.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250505.jpg" />
 </div>
 
 
@@ -501,6 +501,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1834490   (250407) от 03.11.2025
+
+Дни затмения (1988) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_250407.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой русский врач работает в захолустном туркменском городке. Пыльные дороги, непроницаемые лица, дома из глины и фанеры, унылое треньканье азиатской музыки, разноязыкая речь, чуждые обычаи... Доктор лечит детей, пытается что-то писать, но конец света для него уже наступил....Производство: СССР / Ленфильм, Студия Троицкий мостЖанр: драма, артхаусРежиссер: Александр СокуровАктеры: Алексей Ананишнов, Эскендер Умаров, Ирина Соколова, Владимир Заманский, Кирилл Дудкин, Виктор Беловольский.Субтитры: русские, английскиеПродолжительность: 02:11:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A91E925D7EF21F6058ABDC40CECCE888FCD8A9E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 685778   (250123) от 15.03.2022
 
 Страсти по Владимиру (1990) SATRip
@@ -509,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250123.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249487.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249452.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248876.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248018.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_246586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_246586.jpg" />
 </div>
 
 
@@ -654,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491433   (246375) от 03.05.2012
-
-На вес золота (1983) SATRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший боевой командир Красной Армии Завгородний назначается начальником Сивашских соляных промыслов. Соль для молодой Советской республики - на вес золота. Завгороднему предстоит восстановить работу промыслов, несмотря на жестокое сопротивление белогвардейцев.Жанр: ВоенныйРежиссер: Евгений ШерстобитовАктеры: Иван Гаврилюк, Наталия Красноярская, Роман Хомятов, Николай Гаврилов, Сергей Гаврилюк, Георгий Дворников, Артур Нищенкин, Николай Олейник, Валерий Панарин, Андрей ПодубинскийПродолжительность: 01:15:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C985063FB8FE42386E468DEF58BA2740FD9A9E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

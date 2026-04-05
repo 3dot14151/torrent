@@ -6,7 +6,7 @@ John Coltrane & Archie Shepp - New Thing At Newport (1965) 2009, Verve[FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888241.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Masabumi Kikuchi - End For The Beginning (1973) Remaster, 2015, Unversal[FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888237.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Bob Brookmeyer - Back Again (1978) 1990, Gazell[FLAC|Lossless|tracks + .cue] <Ma
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888001.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Paul Quinichette - For Basie (1957) 2001, Silen[APE|Lossless|image + .cue] <Main
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887998.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Lee Konitz - frescalalto (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Post-Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887995.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ The Horace Silver Quintet - A Fistful Of Silver: Blowin' The Blues Away & Finger
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887968.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Mellow Motif - Mellow Motif (2010) [FLAC|Lossless|image + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887961.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Bugge Wesseltoft - Songs (2011) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887958.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Rhoda Scott Lady Quartet - We Free Queens (2017) [FLAC|Lossless|WEB-DL|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887946.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Daymé Arocena - Nueva Era (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Afro-Cub
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887921.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - The Acid Jazz Test Part Three (1995) [FLAC|Lossless|image + .cue] <Acid Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887891.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Oscar Peterson Trio - Encore At The Blue Note (1993) 1998, Telarc[FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887801.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Billy Taylor Trio - At Town Hall (1954) Remaster, 2014, Universal[FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886595.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ The Dave Bailey Quintet - Two Feet In The Gutter (1961) Remaster, 2015, Sony Mus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886591.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Art Blakey & The Jazz Messengers - Blue Night (1985) Remaster, 2015, Solid Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886589.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Malia & Boris Blank - Convergence (2014) [FLAC|Lossless]<Electronic, Future Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886431.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Nicki Parrott - The Look of Love (2013) [FLAC|Lossless|image + .cue] <Contempora
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886421.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Wade Legge Trio (1953-1955) 2016, Fresh Sound Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886118.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Marcus Johnson - Chocolate City Groovin' (1998) Encoded Music [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886106.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Onaje Allan Gumbs - That Special Part Of Me (1998) MCA Records[FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886097.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Stanley Cowell - Musa: Ancestral Streams (1974) 2006, Bomba Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886059.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Monika Roscher Bigband - 2 Album (2012, 2016) [FLAC|Lossless|WEB-DL|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886050.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Various Artists - Hammond Street (2001) [FLAC|Lossless|image + .cue] <Acid Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886007.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Oscar Peterson - Keyboard 1950 (2005) Membran Music [FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885623.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Duke Pearson - Now Hear This (1968) Remaster, 2014, Universal[FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884801.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Kosuke Mine with Kimiko Kasai - Yellow Carcass In The Blue (1971) Remaster, 2013
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884786.jpg" />
 </div>
 
 

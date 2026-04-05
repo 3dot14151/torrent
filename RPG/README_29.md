@@ -1,3 +1,55 @@
+###  Публикация: 1558762   (425107) от 25.08.2022
+
+Being a DIK Season 1 (2020) [En] (0.4.8.14/dlc) License GOG [18+]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой человек из малообеспеченной семьи уезжает от овдовевшего отца и летней любви, чтобы поступить в колледж в Burgmeister & Royce. Когда его бросят в жизнь первокурсника и уговорят присоединиться к многообещающему братству Delta Iota Kappa, он откроется в новом мире, наполненном конфликтами, алкоголем, наркотиками и сексом.Тип издания: LicenseРазработчик: Dr PinkCakeЖанр: Ролевая игра, Визуальные новеллы, ДрамаЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1584A0883C3A1B4006914E275188D56801D8A5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324427   (424982) от 09.09.2019
+
+OCTOPATH TRAVELER (2019) [Multi] (1.0) License CPY
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424982.jpg" />
+</div>
+
+
+###  Подробнее
+
+Получившая немало наград ролевая игра OCTOPATH TRAVELER™ теперь и на ПК! Восемь странников. Восемь искателей приключений. Восемь обличий. Отправляйтесь в приключение по прекрасному бескрайнему миру Орстерры и узнайте о необычных судьбах каждого из восьми героев.Тип издания: LicenseРазработчик: Square Enix, ACQUIRE Corp.Жанр: RPG, Action, AdventureЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49B397521FC06BFC4C145335BBDEC5022BF5F5FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1073289   (423253) от 17.09.2017
 
 Tyranny (2016) [Ru/Multi] (1.2.0.0124/dlc) Repack R.G. Catalyst
@@ -6,7 +58,7 @@ Tyranny (2016) [Ru/Multi] (1.2.0.0124/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423253.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Heroes of Might and Magic V: Gold Edition / Heroes of Might and Magic V: Зол�
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_422717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_422717.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Tower of Time (2018) [Ru/Multi] (1.2.4.2476) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421849.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Diluvion: Resubmerged (2017) [Ru/Multi] (1.2.33/dlc) License PLAZA [Fleet Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421714.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ King's Bounty II (2021) [Ru/Multi] (1.7/dlc) License GOG [Duke's Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420564.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Darkwood (2017) [Ru/En] (1.1 Hotfix 4) Repack Covfefe
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416314.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Noelle Does Her Best (2022) [Multi] (2/dlc) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416079.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Dragon Age - Anthology / Эпоха Дракона - Антология (2009-20
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415636.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Pine (2019) [Ru/Multi] (Patch 13) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415284.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Shadows: Heretic Kingdoms (2014) [Ru/En/De] (1.0.0.8172) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415212.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Wasteland 2: Director's Cut (2014) [Ru/En] (1.0/upd1) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415143.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Wasteland 3 (2020) [Ru/Multi] (1.1.1/dlc) License HOODLUM
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413313.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Wasteland 2: Director's Cut (2015) [Ru/Multi] (1.0/u1) Repack R.G. Games
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412908.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Rezrog (2017) [Ru/En] (1.1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412814.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Kingdoms of Amalur: Re-Reckoning (2020) [Ru/Multi] (SC:6879) Repack xatab (об�
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411012.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Final Fantasy XII International: Zodiac Job System (En) [RePack/Emulator] 2007 |
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410945.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Overlord: Fellowship of Evil (2015) [En/Multi] (1.0) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410639.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Legends of Dawn Reborn (2015) [Ru/Multi] (2.01s) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408931.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ Seven: The Days Long Gone (2017) [Ru/Multi] (1.2.0/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408900.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ Gerda: A Flame in Winter (2022) [Ru/Multi] (1.1.14-00f6b) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407225.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ Middle-earth: Shadow of Mordor (2014) [Ru/Multi] (rc2/dlc) License GOG [Game of 
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407217.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ Kingdom Hearts [En] [RePack/Emul] 2002 | MoveXX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406264.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ R.A.W.: Realms of Ancient War / R.A.W.: Проклятье древних кор
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405660.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ Lichdom: Battlemage (2014) [En] (1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402903.jpg" />
 </div>
 
 
@@ -620,61 +672,6 @@ Lichdom: Battlemage – это игра от первого лица, основ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF922D780FF5362D5887E14B70F9A1CD1898AB99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564556   (402654) от 23.10.2012
-
-Of Orcs And Men [Ru/En] (Repack/1.0.0.2) 2012 | Fenixx
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402654.jpg" />
-</div>
-
-
-###  Подробнее
-
-Возглавьте восстание орков и гоблинов!
- Огромная империя людей ведет войну с зеленокожими народами, желая захватить территории, принадлежащие оркам и гоблинам. Люди порабощают и истребляют зеленокожих.
- В этой грандиозной ролевой игре ваши герои – могучий боец из элитного отряда орков и ловкий лазутчик-гоблин должны выполнить важное и крайне опасное задание – убить императора! Сражайтесь не на жизнь, а на смерть, чтобы выполнить свою великую миссию. Повышайте уровень, обучайтесь, развивайте навыки – и освободите свой народ от владычества империи людей!(   Читать дальше...   )Тип издания: Repack (Лицензии)Жанр: RPG / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:761B347EFB54DF255E5240BDBE1FD0C34E9611D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564235   (402582) от 23.10.2012
-
-Might & Magic: Heroes VI. Gold Edition / Герои Меча и Магии 6. Золотое издание [Ru/En/Multi11] (RePack/1.8.0) 2011 | R.G. Catalyst
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта история начинается в 564-м году эпохи Седьмого Дракона.
- В смутное время второго затмения Кровавой Луны и восстания императора Демонов – Кха-Белеха. Легендарный предводитель Архангелов, убитый во время войны старших рас, теперь воскрешен. Он вынашивает планы по грядущему вторжению Демонов и замышляет восстановить свои силы, убить старых заклятых врагов и захватить контроль над миром Асхан. Однако, он недооценивает силу Династии Грифона. Меч и Магия: Герои VI рассказывают историю Династии Грифонов в то время, когда они еще были герцогами Святой Империи и не восседали на Имперском Троне. В пяти кампаниях раскроется история детей Славы, герцога Грифонов. Пять героев Святой Империи поведут свои войска в бой.. но чем кончится эта история? Вскоре наши герои поймут, что в этой Империи далеко не все гладко. Так начинается эпос о романтике и любви, предательстве и тайнах, убийствах и спасении жизней. Все пять кампаний связаны друг с другом единым сюжетом, но вы можете начать играть за любую из сторон. Но перед этим вам предстоит познакомиться с герцогом Грифонов, отцом будущих пятерых героев.(   Читать дальше...   )Тип издания: RePackРазработчик: Black Hole EntertainmentЖанр: Strategy (Turn-based) / 3DЯзык озвучки: Русский / АнглийскийЯзык субтитров: Русский / Английский / Multi11Язык интерфейса: Русский / Английский / Multi11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:222B196CF345807211657C8A8520C9AF441B84E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

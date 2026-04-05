@@ -1,3 +1,159 @@
+###  Публикация: 1115741   (826538) от 18.03.2017
+
+Территория заблуждений с Игорем Прокопенко (2017.03.18) SATRip
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый день приносит научные сенсации, которые противоречат нашим привычным знаниям. Невероятные находки археологов опровергают учебники истории. Новейшие открытия астрономов начисто ломают знания о жизни Вселенной. А последние исследования медиков - рушат, казалось бы, незыблемые истины даже о жизни и смерти. В результате даже ученые все чаще приходят к неутешительному (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 01:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF0E97562887A5B31F252C45C83DECB99BA8C9D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 657161   (826534) от 12.04.2016
+
+Animal Planet. Чудеса голубой планеты. Семь континентов / Magia Wielkiego Blekitu. Siedem kontynentow / The Magic Of The Big Blue. Seven Continents (2011) HDTVRip [H.264/720p-LQ] (7 серий из 7)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826534.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совершите удивительное путешествие по самым красивым и удивительным уголкам нашей голубой планеты и насладитесь её чудесами и природными феноменами.Производство: Польша, Best Film COЖанр: Документальный, природа, флора, фауна, путешествие, туризмРежиссер: Дариуш СепиолоПеревод: ДублированныйПродолжительность: 7 x ~00:45:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 649288   (826533) от 12.04.2016
+
+Ниндзя. Воины-тени / Ninja. Shadow Warriors (2011) HDTVRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ниндзя появились в XIV веке в горных районах Ига и Кога, где тайные общины воинов и бывших крестьян обучались воинскому искусству. Со временем ниндзя в совершенстве овладели навыками ведения партизанской войны, шпионажа и диверсии, необходимые для защиты своей независимости от жаждавших власти князей близлежащих угодий. В фильме рассказана удивительная история ниндзя (   Читать дальше...   )Жанр: документальный, исторический, военное делоПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 00:51:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502691   (826507) от 15.10.2021
+
+История The Velvet Underground / The Velvet Underground (2021) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм Тодда Хейнса с эксклюзивными интервью и архивными кадрами предлагает авангардный взгляд на историю легендарной американской рок-группы. Мировая премьера картины состоялась на Каннском кинофестивале 7 июля 2021 года.Производство: США, Killer Content, Killer Films, Motto PicturesЖанр: Документальный, история, музыкаРежиссер: Тодд ХейнсПеревод: Многоголосый профессиональный (Невафильм)Субтитры: Русские (Forced, Full, SDH), английские (Forced, Full, SDH), немецкие, французские, иврит, украинскиеПродолжительность: 02:00:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D41CAAA50D1CD381BEB0FF82A398EE71984696B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502688   (826503) от 15.10.2021
+
+Спорт XX века (2021) WEBRip [H.264/1080p] (серии 1-4 из 8) (Обновляемая)
+
+>>Документалистика и Телепередачи
+>>Отечественная история
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждая серия иллюстрирует конкретное десятилетие истории отечественного спорта. С погружением в эпоху XX века помогают архивные материалы, документы, виртуальная студия и эксперты. Зрителей ждёт повествование о победах, биографиях, противостояниях и статистике, словом — о главных событиях спортивной жизни страны.Производство: Россия, ИП «Ефимов» по заказу ООО «МТС Медиа»Жанр: Документальный, история, спортРежиссер: Сергей ОрловЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: серии x ~01:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA9142E8962520AAC52E7DE5AA962045F9705B69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006521   (826425) от 12.04.2016
+
+Без обмана. Масло масляное (2016.04.11) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это масштабное потребительское расследование, задача которого дать зрителям подробные советы, как не попасть в неприятности за собственные деньги. В центре программы оказываются самые разные товары и услуги потребительского рынка, их "судят" авторитетные эксперты и рядовые люди. Корреспонденты программы часто выступают в роли тайных агентов, внедряющихся (   Читать дальше...   )Производство: РоссияТелекомпания: ТВЦЖанр: Документальный, расследованиеСубтитры: ОтсутствуютПродолжительность: ~ 00:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A36F9DEB91BA667B4738FA80D54C9748A3AF575B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1115737   (826352) от 18.03.2017
 
 Научное расследование Сергея Малозёмова. Еда живая и мертвая (2017.03.18) SATRip
@@ -6,7 +162,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826352.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826341.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826168.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826161.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ BBC: Терри Пратчетт: Снова в чёрном / Terry Pratchett: 
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826160.jpg" />
 </div>
 
 
@@ -139,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826155.jpg" />
 </div>
 
 
@@ -166,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826149.jpg" />
 </div>
 
 
@@ -192,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826148.jpg" />
 </div>
 
 
@@ -218,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826147.jpg" />
 </div>
 
 
@@ -245,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826038.jpg" />
 </div>
 
 
@@ -271,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826036.jpg" />
 </div>
 
 
@@ -299,7 +455,7 @@ History Channel: Поворот наворот / Counting Cars (2012-2015) HDTVR
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_825967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_825967.jpg" />
 </div>
 
 
@@ -325,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825915.jpg" />
 </div>
 
 
@@ -351,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825913.jpg" />
 </div>
 
 
@@ -377,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825898.jpg" />
 </div>
 
 
@@ -404,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825892.jpg" />
 </div>
 
 
@@ -431,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825885.jpg" />
 </div>
 
 
@@ -457,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825800.jpg" />
 </div>
 
 
@@ -485,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825799.jpg" />
 </div>
 
 
@@ -512,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825700.jpg" />
 </div>
 
 
@@ -523,162 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D53356C52D5BBD48531C765673A039344F8D1A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006806   (825480) от 13.04.2016
-
-Осторожно, мошенники! Смертельная рента (2016.04.12) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наверное, каждый хоть раз становился жертвой мошенников: будь то игра в "моментальные" лотереи, приобретение ненужных, а иногда и вредных пищевых добавок или общение с вымогателями денег по телефону, для пополнения мобильного счёта бедного чада, оставшегося без связи. В помощь нежелающим наступать на старые грабли зрителям на канале "ТВ Центр" (   Читать дальше...   )Производство: РоссияТелекомпания: ТВЦЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: ~ 00:24:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC9EDC2A5204987A83227C41EF60B60476234949
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007023   (825478) от 13.04.2016
-
-Нереальные аферисты. Купля-продажа авто (2016) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825478.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой серии программы телеканала Москва24 "Нереальные аферисты" пойдет рассказ о том, как мошенники наживаются на рынке продажи автомобилей. Как ухитряются продать угнанный автомобиль намного дороже реальной стоимости? Какие ноу-хау используют сегодня в Москве "авто-преступники"?Производство: Москва 24Жанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:20:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34FA500F13BA5B831FEEF983CFEB1916A94B5B62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006833   (825405) от 13.04.2016
-
-Вечерний Ургант (2016.04.12) SATRip (cезон 9, выпуск 49)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825405.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:30:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B89CDE551F63AC5562FAB9B7B6E74A685C7BC10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007031   (825170) от 13.04.2016
-
-Танцы. Битва сезонов (2016.04.09) WEB-DLRip [H.264/720p-LQ] (Выпуск 3)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825170.jpg" />
-</div>
-
-
-###  Подробнее
-
-26 марта в 19:30 на телеканале ТНТ стартует новое шоу – «ТАНЦЫ. Битва сезонов». Лучшие участники двух сезонов самого масштабного танцевального проекта страны встретятся лицом к лицу на одной сцене. Мы все так давно этого ждали! Борьба развернется за приз в 3 000 000 рублей и звание – «Лучший из лучших танцоров страны». Наставники шоу Егор Дружинин и Мигель сформируют (   Читать дальше...   )Телекомпания: ТНТЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: 01:37:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79EDF78905DBC47C337CC20BE007F37A930D9C5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502909   (825140) от 16.10.2021
-
-Своя игра (16.10.2021) WEBRip [H.264/1080p] (выпуск 1)
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «Студия 2В»Телекомпания: «НТВ»Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0820D9449ACBC11A5CC5A4F0E4D05893C8BC9837
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502920   (825132) от 16.10.2021
-
-Своя игра (16.10.2021) WEBRip [H.264/1080p] (выпуск 2)
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «Студия 2В»Телекомпания: «НТВ»Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2073DC22361C6DB74EB47FDB2EED0BF4EF879298
 ```
 
 https://mybot314.ru/tekegram_catalog/

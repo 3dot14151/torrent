@@ -1,66 +1,3 @@
-###  Публикация: 218012   (631017) от 15.07.2010
-
-Автоматические Удовлетворители - Альбом тел. 1979-1994. Претензии не принимаются и сингл Огуречный лосьон (2009 переиздание) [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_631017.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Огуречный лосьон
-2. Удовольствие
-3. БуржуиЖанр: RockПродолжительность: 00:11:35
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 218594   (630782) от 15.07.2010
-
-Гарик Сукачев - Любимые песни.RU (2003) [FLAC|Lossless]<Рок>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_630782.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Дроля
-2. Напои меня водой
-3. Ритка Дорофеева
-4. Playboy
-5. Дорожная
-6. Банька по белому
-7. 10000 км
-8. Ольга
-9. Горит Огонь
-10. Моя бабушка курит трубку(   Читать дальше...   )Жанр: РокПродолжительность: 01:15:49
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 521492   (626746) от 11.07.2012
 
 Вольная стая - Стая (2007) [Monkey's Audio|lossless] <Heavy Metal>
@@ -69,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_626746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_626746.jpg" />
 </div>
 
 
@@ -104,7 +41,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625847.jpg" />
 </div>
 
 
@@ -134,7 +71,7 @@ Alexander Palitsin - Beauty of the Rain (2022) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625660.jpg" />
 </div>
 
 
@@ -163,7 +100,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625361.jpg" />
 </div>
 
 
@@ -192,7 +129,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625291.jpg" />
 </div>
 
 
@@ -221,7 +158,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625187.jpg" />
 </div>
 
 
@@ -250,7 +187,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_624890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_624890.jpg" />
 </div>
 
 
@@ -276,7 +213,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624650.jpg" />
 </div>
 
 
@@ -305,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_624290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_624290.jpg" />
 </div>
 
 
@@ -340,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624112.jpg" />
 </div>
 
 
@@ -369,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623812.jpg" />
 </div>
 
 
@@ -398,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623652.jpg" />
 </div>
 
 
@@ -427,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622569.jpg" />
 </div>
 
 
@@ -456,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_621599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_621599.jpg" />
 </div>
 
 
@@ -491,7 +428,7 @@ Lumen - Всегда 17, всегда война (2015) 2CD Live [FLAC|image+.cu
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621552.jpg" />
 </div>
 
 
@@ -520,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621420.jpg" />
 </div>
 
 
@@ -549,7 +486,7 @@ Unreal - 3 альбома 3 сингла (2006 - 2013) [FLAC - APE |Lossless]<Go
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_619545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_619545.jpg" />
 </div>
 
 
@@ -578,7 +515,7 @@ Sounduk - Том третий (Наше время) (2013) [FLAC|image + .cue]<R
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618994.jpg" />
 </div>
 
 
@@ -607,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618422.jpg" />
 </div>
 
 
@@ -636,7 +573,7 @@ Project NT - Имена и Тени (2015) [FLAC|image + .cue]<Experimental, Psy
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618317.jpg" />
 </div>
 
 
@@ -665,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616707.jpg" />
 </div>
 
 
@@ -694,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616703.jpg" />
 </div>
 
 
@@ -723,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615949.jpg" />
 </div>
 
 
@@ -752,7 +689,7 @@ Znaki - Пазлы (2017) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615525.jpg" />
 </div>
 
 
@@ -766,6 +703,64 @@ Znaki - Пазлы (2017) [FLAC|Lossless|tracks + .cue] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBB11A002A3C0F73DDE0D2A654EA9FC0564DA855
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 685185   (614529) от 31.07.2013
+
+Настя - Звездная серия. Рок Энциклопедия (2003) [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Снежные Волки (2:26)
+02. Ариандна (4:50)
+03. Невеста (5:08)
+04. Москва (4:32)(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AA0FC1B9B156BC163EE6143C9BFD7A9C38FFCB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146719   (614451) от 29.06.2017
+
+СерьГа - Приметы (2017) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сказочный лес
+02. Приметы
+03. Крылья за спиной
+04. Блюз Шапито(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E204846B9D93EBE483F3A59ACEE41B62FF259654
 ```
 
 https://mybot314.ru/tekegram_catalog/

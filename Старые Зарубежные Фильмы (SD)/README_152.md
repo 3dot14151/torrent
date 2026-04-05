@@ -1,3 +1,133 @@
+###  Публикация: 1190849   (265851) от 11.12.2017
+
+Заговор «Параллакс» / The Parallax View (1974) WEB-DLRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265851.jpg" />
+</div>
+
+
+###  Подробнее
+
+По роману Лорен Сингер. Репортер Джо Фрэйди случайно оказался одним из свидетелей убийства политического деятеля. Когда остальные семь очевидцев преступления один за другим умирают при загадочных обстоятельствах, наш герой начинает сомневаться в истинности официальной версии, гласящей, что убийство - дело рук одиночки-психопата. Джо начинает мерещиться целая группировка (   Читать дальше...   )Производство: США / Doubleday Productions, Gus, Harbor ProductionsЖанр: Триллер, ДрамаРежиссер: Алан Джей ПакулаАктеры: Уоррен Битти, Пола Прентисс, Уильям Дэниелс, Уолтер МакДжинн, Хьюм Кронин, Келли Тордсэн, Чак Уотерс, Эрл Хиндмэн, Уильям Джойс, Бетти Мюррэй, Билл МакКинни, Джо Энн Харрис, Тэд Геринг, Ли Пулфорд, Дория Кук-Нельсон, Джим ДэвисПеревод: Многоголосый закадровый, Двуголосый закадровыйСубтитры: Английские (отдельным файлом)Продолжительность: 01:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74436A7317F3DA120DA86858AFC997D2A3BFA071
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190965   (265846) от 11.12.2017
+
+Турист поневоле / The Accidental Tourist (1988) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265846.jpg" />
+</div>
+
+
+###  Подробнее
+
+После смерти сына, Мэкон Лири, путешествующий писатель, не живет, а существует. Жена Мэкона, кажется, тоже испытывает душевные муки и, не в силах больше бороться за свой брак, решает, что им будет лучше расстаться. После расставания Мэкон встречает удивительную и немного эксцентричную молодую женщину, которая вновь возвращает его к жизни. Но она ли ему нужна?Производство: США / Warner Bros. PicturesЖанр: Драма, МелодрамаРежиссер: Лоуренс КэзданАктеры: Уильям Хёрт, Кэтлин Тёрнер, Джина Дэвис, Эми Райт, Дэвид Огден Стайерз, Эд Бегли мл., Билл Пуллман, Роберт Хай Гормен, Брэдли Мотт, Сет ГрэйнджерПеревод: Двуголосый закадровый (iTunes Russia)Субтитры: Русские (полные, форсированные), английскиеПродолжительность: 02:01:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B984A3E9A4D87075E9F1E27E2BB866D16ACB2E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267639   (265722) от 07.12.2018
+
+В то же время, в следующем году / Same Time, Next Year (1978) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие начинается в 1951 году на курорте в Северной Калифорнии. Дорис, 24-летняя домохозяйка из Окленда, и Джордж, 27-летний бухгалтер из Нью-Джерси, знакомятся за ужином, сходятся ближе, и возникает любовный роман. На следующее утро они просыпаются в одной кровати, говорят о том, что произошло, оба осознают, что, когда они оба будут счастливо женаты с шестью детьми (   Читать дальше...   )Производство: США / The Mirisch Corporation, Universal PicturesЖанр: Драма, Мелодрама, КомедияРежиссер: Роберт МаллиганАктеры: Эллен Бёрстин, Алан Алда, Иван Бонар, Берни Каби, Космо Сардо, Дэвид Норткатт, Уильям КантреллПеревод: Профессиональный (двухголосый закадровый)Субтитры: АнглийскиеПродолжительность: 01:58:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:802045273C158E75111D2BA52E9E00D5B94D3895
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 120404   (265680) от 11.12.2017
+
+Колодец смерти / The Dead Pit (1989) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доктор Ремзи проводил бесчеловечные опыты с пациентами психиатрической клиники, за что и был убит коллегой доктором Сваном в своей подземной лаборатории. Спустя двадцать лет в ту же клинику попадает девушка по имени Джейн. Она не сумасшедшая, просто у нее отказала память. В лечебнице у девушки начинаются кошмары и видения, но это только начало того ужаса, в который (   Читать дальше...   )Жанр: УжасыРежиссер: Бретт ЛеонардАктеры: Джереми Слейт, Шерил Лоусон, Стефен Грегори Фостер, Дэнни ГокнауэрПеревод: Одноголосый закадровыйПродолжительность: 1:37:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC1549E5626D5D9DD6C1E3ED79530608384D85F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339644   (265325) от 20.11.2019
+
+Кот / Il gatto (1977) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Амадео и Офелия — брат и сестра средних лет, вместе проживающие в старом доме. Из дома начинают выселять жильцов. Герои не хотят уезжать, а когда умирает их любимый кот, талисман их жизни, оба они меняются: Амадео начинает ухаживать за молодой Вандой, а Офелия обольщает священника Дона Пеззоллу. Тем временем полиция ищет убийцу кота.Производство: Италия, Франция / Rafran CinematograficaЖанр: КомедияРежиссер: Луиджи КоменчиниАктеры: Уго Тоньяцци, Марианджела Мелато, Мишель Галабрю, Далила Ди Лаззаро, Жан Мартен, Альдо Реджани, Адриана Инноченти, Филипп Леруа, Армандо Бранча, Марио БрегаПеревод: Двуголосый профессиональный, Тоникс МедиаСубтитры: ОтсутствуютПродолжительность: 01:45:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DF329C8E880FBBCD823144CCF0063227DC479A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1267930   (265063) от 08.12.2018
 
 Глубокие воды / Eaux profondes (1981) BDRip [H.264]
@@ -6,7 +136,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265063.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265022.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264579.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264454.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264428.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264199.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264125.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264098.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264093.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264075.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263866.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263807.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263720.jpg" />
 </div>
 
 
@@ -345,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263693.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263440.jpg" />
 </div>
 
 
@@ -399,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263407.jpg" />
 </div>
 
 
@@ -425,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263391.jpg" />
 </div>
 
 
@@ -451,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263262.jpg" />
 </div>
 
 
@@ -477,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263220.jpg" />
 </div>
 
 
@@ -504,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263150.jpg" />
 </div>
 
 
@@ -530,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262777.jpg" />
 </div>
 
 
@@ -542,136 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4D038C36238525EC3FD2C34F135C99BED499038
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192733   (262714) от 18.12.2017
-
-А ей ни слова обо мне / Don't Tell Her It's Me (1990) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Художник-мультипликатор Гус Кубичек влюбляется в очень красивую женщину. В результате болезни парень остался без волос на голове, а ей, как выясняется, нужен супермужчина, о которых пишут в любовных бестселлерах. При помощи сестры Лиззи художник превращается в эдакого супермужественного голубоглазого жеребца в кожаной куртке и попадает в точку.Производство: Великобритания, США / Hemdale, Sovereign PicturesЖанр: Мелодрама, КомедияРежиссер: Малкольм МаубрэйАктеры: Шелли Лонг, Стив Гуттенберг, Джейми Герц, Кайл МакЛоклен, Медкен Эмик, Кевин Сканнелл, Перри Анзилотти, Нада Деспотович, Бет Грант, Дон ХудПеревод: Двуголосый закадровый, авторскийСубтитры: АнглийскиеПродолжительность: 01:42:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40F597BC96853BBA609CC4B0563304BD81D1C6B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192798   (262710) от 18.12.2017
-
-Монахини в бегах / Nuns on the Run (1990) DVDRip [H.264] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Львиная доля событий разворачивается в стенах женского монастыря. Сюда судьба забрасывает двух незадачливых преступников Брайена Хоупа и Чарли МакМануса, которые украли у своих «сотоварищей» пару чемоданов с деньгами и попытались найти местечко, где можно было бы пересидеть. В монастыре им пришлось не только переодеться, но и поменять имена…Производство: Великобритания / Handmade Films Ltd.Жанр: Комедия, КриминалРежиссер: Джонатан ЛиннАктеры: Эрик Айдл, Робби Колтрэйн, Камилла Кодури, Дженет Сазмэн, Дорис Хэйр, Лайла КэйПеревод: Многоголосый закадровыйСубтитры: отсутствуютПродолжительность: 01:28:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82D094A1CD3F7D4D449D22B9223AC905EA53B769
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341288   (262605) от 27.11.2019
-
-Лондонский туман / Fumo di Londra (1966) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данте Фонтана — итальянский антиквар, осуществляет свою давнюю мечту и отправляется в Лондон на аукцион. Там он знакомится с герцогиней, которая приглашает его к себе в гости в замок. Испытав ряд приключений, Данте Фонтана узнаёт Англию с двух сторон: викторианскую и современную.Производство: Италия / Fono RomaЖанр: КомедияРежиссер: Альберто СордиАктеры: Альберто Сорди, Фиона Льюис, Эми Далби, Альфредо Маркетти, Клара Бинди, Майкл Трубшоу, Массимо Унгаретти, Романо Джомини, Памела Холлиер, Джордж ДжонсПеревод: Одноголосый любительский, dimadimaСубтитры: ОтсутствуютПродолжительность: 01:45:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47BC636872CF478E2642C38F079BF59B15EB360B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193275   (262097) от 21.12.2017
-
-Ужас красной маски / Il terrore della maschera rossa (1960) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой солдат Марко возвращается с войны и поступает на службу к жестокому и властному герцогу Астольфо. Герой быстро разочаровывается в своем хозяине и примыкает к отряду повстанцев, которым командует таинственный всадник в красной маске, защитник обиженных и угнетенных крестьян.Производство: Италия / De Paolis I.N.C.I.R., Jonia FilmЖанр: Мелодрама, ПриключенияРежиссер: Луиджи КапуаноАктеры: Лекс Баркер, Чело Алонсо, Ливио Лоренцон, Лиана Орфей, Франко Фантазия, Энрико Глори, Уго Сассо, Бруно Шипиони, Луиджи ТозиПеревод: Одноголосый закадровый (Andi999)Субтитры: ОтсутствуютПродолжительность: 01:17:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DBB3C57D6F277AEAD5BEAE97E57DB5AAA71BFCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194001   (261730) от 23.12.2017
-
-Судья и его палач / Der Richter und sein Henker (1975) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261730.jpg" />
-</div>
-
-
-###  Подробнее
-
-1948 год. Двое молодых людей, прожигающих жизнь в Стамбуле, от нечего делать заключают пари на убийство их общей знакомой. Убийство происходит в людном месте, средь бела дня, но вину убийцы доказать не удается. Тридцать лет спустя обнаруженный в ущелье Тваннбах труп полицейского сведет двух злейших врагов — один из них стал полицейским комиссаром, другой преступником (   Читать дальше...   )Производство: Германия (ФРГ), Италия / MFG-Film, T.R.A.C.Жанр: Триллер, Драма, Криминал, ДетективРежиссер: Максимилиан ШеллАктеры: Джон Войт, Жаклин Биссет, Мартин Ритт, Роберт Шоу, Хельмут Квалтингер, Габриэле Ферцетти, Рита Калдерони, Фридрих Дюрренматт, Норберт ШиллерПеревод: Двуголосый закадровый (Фортуна-Фильм)Субтитры: ОтсутствуютПродолжительность: 01:28:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E46214DBF267BDCDA7FF64620AFF88678F34296F
 ```
 
 https://mybot314.ru/tekegram_catalog/

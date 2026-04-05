@@ -1,3 +1,55 @@
+###  Публикация: 1616245   (205926) от 03.03.2023
+
+Книжные серии | Библиотека детского сада [66 книг] (1983-2015) [FB2, PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205926.jpg" />
+</div>
+
+
+###  Подробнее
+
+В свое время отбор книг для издания в серии «Библиотека детского сада» велся очень тщательно. Ведь эти книги были предназначены не просто для занимательного чтения, а для помощи воспитателям при проведении занятий с детьми, в соответствии с программой дошкольного образования. Серия четко делится на несколько разделов. Книги, входящие в каждый раздел, адресованы детям (   Читать дальше...   )Жанр: Детская литература, сказки, стихиФормат: FB2, PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5221C44E2CB179C906D10C5F07B315DC506D6E19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830672   (205646) от 27.10.2025
+
+А.В. Пёрышкин | Физика. Учебник для 8 класса (2022) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205646.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник физики для 8 класса доработан в соответствии с федеральным государственным образовательным стандартом (второго поколения). Издание включает разделы: "Тепловые явления", "Электрические явления", "Электромагнитные явления", "Световые явления", а также дополнительную интересную информацию, лабораторные работы, вопросы (   Читать дальше...   )Жанр: УчебникИздательство: ЭкзаменФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3322D88CB3923B1746656D6B84B09BC660C85DE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1830689   (205641) от 27.10.2025
 
 И.Л. Касаткина | Репетитор по физике. Для 7-9 классов (2025) [PDF]
@@ -6,7 +58,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205641.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204530.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203889.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203651.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203365.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203238.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202976.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202891.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202859.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202074.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201693.jpg" />
 </div>
 
 
@@ -299,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201367.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201283.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201189.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201181.jpg" />
 </div>
 
 
@@ -405,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201159.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201138.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201122.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200922.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200849.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200790.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200661.jpg" />
 </div>
 
 
@@ -592,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200554.jpg" />
 </div>
 
 
@@ -618,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200438.jpg" />
 </div>
 
 
@@ -632,60 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F99D5BC19917741E444F442ACF035966030C6BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625201   (200162) от 09.04.2023
-
-Т.С. Степанова (сост.) | Математика. Весь школьный курс в таблицах (2018) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное пособие составлено в виде таблиц, систематизирующих и обобщающих теоретические сведения по школьному курсу математики.
-В книге в доступной форме изложены все разделы математики, изучаемые в средней школе.
-Пособие рекомендуется использовать для коллективной работы в школе и индивидуальных занятий дома.Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80083AC815AF7A35F08D6D7CF7A94DE04BF6E86C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625616   (200121) от 10.04.2023
-
-Книжная серия | 100 вопросов и ответов [15 книг] (2020-2021) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как доступно рассказать маленькому почемучке о Вселенной и космосе, удивительном мире животных и растений, странах и континентах, интересных местах нашей планеты и истории России? В этом поможет серия красочно иллюстрированных энциклопедий «100 вопросов и ответов». Научно-популярное издание для младшего и среднего школьного возраста.Жанр: Научно-популярная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48FB230B5D219BC00406B785E8BCB53097AC04D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ The Crusaders, Down to the Bone - The Very Best of Fusion Jazz (2012) [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87975.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87372.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ VA - Oldies For A Rainy Day LPCD45 (2008) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87306.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Warren Wolf - Warren Wolf (2011) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85883.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Jack Lee & Bob James - Botero (2009) [FLAC|Lossless]<Jazz, Acoustic, Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85467.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ VA - The Electro Swing Revolution Vol.2 (2011) [APE|Lossless]<Electro Swing, Nu 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85463.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Monty Alexander - Harlem-Kingston Express Live! (2011) [FLAC|Lossless]<Jazz, Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85269.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ VA - Rollins' Choice: Selections From Blue Note (2CD) (2010) [FLAC|Lossless]<Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84093.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Don Burrows & The Mell-O-Tones - Non-Stop Flight: Great Music of the Swing Era (
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84063.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Marcel Loeffler - Source Manouche (2006) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84029.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Great Jazz Trio - Standard Collection Vol.1 - Summertime (1988) [FLAC|Lossless]<
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83835.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Esperanza Spalding - Radio Music Society (2012) [FLAC|Lossless]<Contemporary Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83677.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ VA - RCA Victor: 80th Anniversary (1997)[9CD Box Set] [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82810.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Caravan Palace - Panic (2012) [FLAC|Lossless]<Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82482.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Saori Yano - BeBop at The Savoy (2010) [FLAC|Lossless]<Jazz,  Be Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82414.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Gerald Albright - New Beginnings (2006) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82382.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Aldo Romano - Inner Smile (2011) [FLAC|Lossless]<Contemporary Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81990.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Hiromi Sano And King Orchestra - Aishu No Mood Sax Kayo (2007) [FLAC|Lossless]<S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81972.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ VA - 100 Best Jazz Piano Standards (2006) 6 CD [APE|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81824.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Acoustic Mood Orchestra - Songs from the Heart of Love (2001) [FLAC|Lossless]<Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81585.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Katie Melua - Secret Symphony (2012) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80146.jpg" />
 </div>
 
 
@@ -715,7 +715,7 @@ VA - We Can Work It Out (Covers & Cookies of Lennon, Mc'Cartney & The Beatles) (
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79123.jpg" />
 </div>
 
 
@@ -750,7 +750,7 @@ VA - Playboy Jazz - In a Smooth Groove (2004) [FLAC|Lossless]<Jazz, Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78078.jpg" />
 </div>
 
 
@@ -785,7 +785,7 @@ Sam Yahel, Ari Hoenig, Mike Moreno & Seamus Blake - Jazz Side of the Moon: The M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77495.jpg" />
 </div>
 
 
@@ -819,7 +819,7 @@ Chick Corea, Eddie Gomez and Paul Motian - Further Explorations (2012) [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77475.jpg" />
 </div>
 
 
@@ -853,7 +853,7 @@ Perry Como - Legends (2001) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76463.jpg" />
 </div>
 
 

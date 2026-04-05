@@ -1,3 +1,55 @@
+###  Публикация: 922200   (569873) от 28.07.2015
+
+Эрнст Гофман | Золотой горшок (1991) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569873.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник немецкого писателя-романтика Эрнста Теодора Амадея Гофмана (1776 — 1822) вошли лучшие произведения: «Золотой горшок», «Щелкунчик и мышиный король», «Песочный человек», «Крошка Цахес, по прозванию Циннобер», «Королевская невеста». В немецком романтизме не было художника более сложного и противоречивого, вместе с тем более своеобразного и самобытного. По (   Читать дальше...   )Жанр: Зарубежная литература для детей, Сказочная фантастикаПеревод: Вл. С. Соловьев, Э. Г. Бородина-Морозова, И. С. Татаринова, А. А. МорозовФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB7E79E279728067A6ECD127CCD9675A86DD6120
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922215   (569871) от 28.07.2015
+
+Е. Благинина | Считалки малыша (2007) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стихи для самых маленьких.Жанр: Стихи для детейФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71C6524860AE62E9EB0FA081574D76D4FB7497E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 922339   (569830) от 28.07.2015
 
 Энн Файн | Дневник кота-убийцы (2011) [FB2]
@@ -6,7 +58,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569830.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569828.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569809.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569386.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569284.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569081.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569045.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568989.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568926.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568915.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568910.jpg" />
 </div>
 
 
@@ -299,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568756.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568753.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568712.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568708.jpg" />
 </div>
 
 
@@ -405,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568638.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568605.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568114.jpg" />
 </div>
 
 
@@ -485,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568113.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568058.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568054.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568021.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567495.jpg" />
 </div>
 
 
@@ -616,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567489.jpg" />
 </div>
 
 
@@ -628,59 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F6DECBE433FE62D99F9DD172B062F2B8288F833
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555754   (567481) от 05.06.2022
-
-Константин Ушинский | Книги – мои друзья. Плутишка кот. Любимые сказки (2014) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаем вашему вниманию иллюстрированный сборник сказок великого русского педагога Константина Дмитриевича Ушинского. В издание вошли: «Плутишка кот», «Охотник до сказок», «Бишка», «Лиса Патрикеевна» и другие самые лучшие сказки.Жанр: Детская литература, СказкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9D601FB0C81D2116A967A45CD9BFCF5A740C641
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152295   (567306) от 22.07.2017
-
-Н.Н.  Плавильщиков | Юным любителям природы (1975) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга в помощь любителям природы. Ее написал известный энтомолог доктор биологических наук Н.Н. Плавильщиков. Но в ней рассказывается не только о жизни насекомых. Автор знакомит с сезонными изменениями в природе; рассказывает, какие можно провести наблюдения и поставить опыты над растениями и животными.
-Много интересных сведений и полезных советов сообщает в (   Читать дальше...   )Жанр: Научно-популярнаяФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15C52E6D644936DDAC9664C816BD18A5B6610CFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

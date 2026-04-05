@@ -1,32 +1,3 @@
-###  Публикация: 1604677   (210036) от 14.01.2023
-
-Thinknetica Pro, Александр Борисов | Безопасность приложений на Ruby on Rails (2022) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Онлайн-воркшоп для Rails-разработчиков, которые хотят сделать свои приложения безопасными и не допустить кражу данных.
-За время воркшкопа вы научитесь:
-понимать, какие проблемы с информационной безопасностью существуют в веб-приложениях
-решать проблемы с информационной безопасностью в приложениях на Ruby on Rails(   Читать дальше...   )Производство: Thinknetica ProЖанр: ВоркшопЯзык озвучки: РусскийПродолжительность: 05:33:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:798F42DC5C214A7C962EFF22A5DABF56CE1625BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1605791   (209588) от 19.01.2023
 
 BAS, Павел Дуглас | Создание Чекеров на BAS (2022) WEB-DL [AD] [RU]
@@ -35,7 +6,7 @@ BAS, Павел Дуглас | Создание Чекеров на BAS (2022) W
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209588.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Udemy, Sean Campbell | .NET Microservices: CQRS & Event Sourcing with Kafka (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208887.jpg" />
 </div>
 
 
@@ -91,7 +62,7 @@ Udemy, Michael Pogrebinsky | Java Multithreading, Concurrency & Performance Opti
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208821.jpg" />
 </div>
 
 
@@ -119,7 +90,7 @@ Udemy, Michael Pogrebinsky | Software Architecture & Design of Modern Large Scal
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208804.jpg" />
 </div>
 
 
@@ -147,7 +118,7 @@ JUG Ru Group | Mobius 2023 Spring. Конференция для мобильн�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208682.jpg" />
 </div>
 
 
@@ -173,7 +144,7 @@ Udemy, Michael Pogrebinsky | Distributed Systems & Cloud Computing with Java (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208660.jpg" />
 </div>
 
 
@@ -202,7 +173,7 @@ Udemy, Klimentij Bulygin | UX c нуля: как стать проектиров
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208332.jpg" />
 </div>
 
 
@@ -230,7 +201,7 @@ JUG Ru Group | JPoint 2022. Международная Java‑конференц
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208117.jpg" />
 </div>
 
 
@@ -258,7 +229,7 @@ Udemy, Richard Chesterwood | Docker - Hands On for Java Developers (2021) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207989.jpg" />
 </div>
 
 
@@ -286,7 +257,7 @@ Udemy, Alexander Batashov | Ruby on Rails - 2020. Создание Интерн�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207957.jpg" />
 </div>
 
 
@@ -312,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207909.jpg" />
 </div>
 
 
@@ -338,7 +309,7 @@ Slurm (Слёрм), Марсель Ибраев, Павел Селиванов |
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207853.jpg" />
 </div>
 
 
@@ -364,7 +335,7 @@ Slurm (Слёрм), Всеволод Севостьянов | Ansible: Infrastru
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207849.jpg" />
 </div>
 
 
@@ -393,7 +364,7 @@ Udemy, Denis Panjuta | The Complete Android 12 & Kotlin Development Masterclass 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207543.jpg" />
 </div>
 
 
@@ -421,7 +392,7 @@ Profit | Современные фреймворки на PHP (2022) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207471.jpg" />
 </div>
 
 
@@ -447,7 +418,7 @@ WebCademy | Интенсив по JavaScript. Калькулятор рассч�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207320.jpg" />
 </div>
 
 
@@ -476,7 +447,7 @@ Udemy, Bogdan Stashchuk | The Complete Apache Kafka Practical Guide (2022) WEB-D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207156.jpg" />
 </div>
 
 
@@ -502,7 +473,7 @@ Udemy, Awesome Tuts | The Most Comprehensive Guide To Unity Game Development Vol
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207095.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Profbuh8.ru, Елена Грянина | ЗУП 3.1 кадровый и зарп
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207039.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Udemy, Maximilian Schwarzmüller, Manuel Lorenz | 100 Days Of Code - 2021 Web De
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206863.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Stephane Maarek | Ultimate AWS Certified Cloud Practitioner - 2023 (2023) WEBRip
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206766.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Udemy, Maximilian Schwarzmüller | Angular - The Complete Guide (2022 Edition) (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206659.jpg" />
 </div>
 
 
@@ -643,7 +614,7 @@ Infostart, Николай Бондаренко | Базовый курс по р
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206618.jpg" />
 </div>
 
 
@@ -672,7 +643,7 @@ Scott Duffy | AZ-104 Microsoft Azure Administrator Exam Prep (2021) WEBRip [EN /
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206608.jpg" />
 </div>
 
 
@@ -700,7 +671,7 @@ Thinknetica Pro, Максим Данилов | Возможности Django Adm
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206552.jpg" />
 </div>
 
 
@@ -714,6 +685,32 @@ Thinknetica Pro, Максим Данилов | Возможности Django Adm
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECD8FFBA8A4EBA223442D016C18D186D9E380BA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615160   (206537) от 24.02.2023
+
+Udemy, Eric Roby | FastAPI - The Complete Course (Beginner + Advanced) (2022) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206537.jpg" />
+</div>
+
+
+###  Подробнее
+
+FastAPI — The Complete Course 2022 (Beginner + Advanced) — это учебный курс RESTful API с языком программирования Python и фреймворком FastAPI, опубликованный Udemy Academy. В этом учебном курсе, помимо Python и платформы FastAPI, вы узнаете о SQLAlchemy, протоколе OAuth, а также о том, как получить доступ и авторизовать пользователей, JWT или JSON Web Token и многое (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 17:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66E726FFD172A32204283A23E94E85DEFB27F52E
 ```
 
 https://mybot314.ru/tekegram_catalog/

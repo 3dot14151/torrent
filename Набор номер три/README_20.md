@@ -1,3 +1,159 @@
+###  Публикация: 1367422   (1032150) от 11.02.2021
+
+State of Decay 2 (2020) [Ru/Multi] (1.0.417403u24/dlc) Repack xatab [Juggernaut Edition]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как будешь выживать ты? Мертвые восстали из могил, и цивилизация пала. Даже военные не смогли остановить зомби, и человечество оказалось на грани исчезновения. Собирай выживших, создавай свое сообщество, узнай, сможет ли оно выстоять, и научись выживать в нечеловеческих условиях.Тип издания: RepackРазработчик: Undead LabsЖанр: Action (Survival horror), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90FCFC550DCAC01D3EAB739F58140AF433933B62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446831   (1032003) от 12.02.2021
+
+Disney закроет студию с 34-летней историей. Она создала «Ледниковый период»
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032003.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кинокомпания The Walt Disney Company закроет студию Blue Sky Studios, основанную в 1987 году, из-за вызванного пандемией кризиса. В своё время студия создала франшизу «Ледниковый период», мультфильмы «Рио» и Рио-2.Минувший 2020 год оказался сложным для Disney по ряду причин, в том числе из-за сложностей в работе студий, закрытия тематических парков и приостановленных (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620199   (1031999) от 20.03.2023
+
+Россия вошла в десятку крупнейших товарных экспортеров в мире
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Россия, нарастившая экспорт товаров в 2022 году до 591,5 миллиарда долларов, поднялась за год на две позиции среди крупнейших экспортеров в мире и заняла десятое место, следует из расчетов "РИА Новости" на основе данных национальных статистических служб.Крупнейшими товарными экспортерами в мире по итогам прошлого года остались Китай (3,6 триллиона долларов), (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619033   (1031984) от 20.03.2023
+
+WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2023.03.14 [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031984.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузочный диск на базе Windows 10 и 8 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED6F0ACCFDDC8DC61CEC8D636FD3C47360AFAD38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524351   (1031983) от 20.03.2023
+
+God of War (2022) [Ru/Multi] (1.0.12) Repack West4it
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031983.jpg" />
+</div>
+
+
+###  Подробнее
+
+God of War – новый взгляд на популярную серию, где бессмертный полубог принимает решение измениться. Для Кратоса это значит нарушить цикл насилия, недоверия и предательства, которое было с незапамятных времен в его семействе. Именно этот цикл привел его к самым ужасным решениям – сделке с Аресом, убийству семьи, сумасшествию и мести, что в итоге стало причиной уничтожения (   Читать дальше...   )Тип издания: RepackРазработчик: PlayStation PC LLCЖанр: Action, Adventure, RPGЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F828D7B931CDF05955DBF7A0530D8E26A11D6495
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446907   (1031956) от 12.02.2021
+
+Роспотребнадзор запретил использовать смартфоны в образовании
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031956.jpg" />
+</div>
+
+
+###  Подробнее
+
+По новым санитарным правилам, детям запрещено использовать для обучения личные мобильные телефоны, заявили в Роспотребнадзоре.Это не распространяется на планшеты и ноутбуки, пояснила начальник управления санитарного надзора ведомства Ирина Шевкун.Ранее внимание на то, что до 80% детей пользуются для обучения смартфонами, обратил директор НИИ гигиены и охраны здоровья (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446858   (1031949) от 12.02.2021
 
 АВТОВАЗ объявил о начале продаж LADA Niva Travel в России
@@ -6,7 +162,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031949.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Microsoft начала «стыдить» неподдерживаемые ПК 
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031755.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031745.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031705.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ Euro Truck Simulator 2 (2013) [Ru/Multi] (1.39.4.17s/dlc) Repack xatab
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031692.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ Ooyuki Umi no Kaina | Kaina of the Great Snow Sea | Кайна в великом
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031524.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ Adobe Photoshop 2023 24.3.0.376 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1031515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1031515.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ Adobe Photoshop for Mac 2023 v.24.2 [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031514.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ Streets of Rage 4 / Bare Knuckle 4 (2020) [Ru/Multi] (08g-r18163/dlc) License GO
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031512.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031470.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031467.jpg" />
 </div>
 
 
@@ -293,7 +449,7 @@ ZOMBI / ZombiU (2015) [Ru/Multi] (1.1) Repack West4it
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031454.jpg" />
 </div>
 
 
@@ -319,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031453.jpg" />
 </div>
 
 
@@ -345,7 +501,7 @@ Windows 10 Pro 20H2 b19042.804 x64 ru by SanLex (edition 2021-02-10) [Ru]
 >>14
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031451.jpg" />
 </div>
 
 
@@ -371,7 +527,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl - Новый Арсенал (2007/2016) [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031448.jpg" />
 </div>
 
 
@@ -397,7 +553,7 @@ KMS Tools Portable by Ratiborus 10.02.2021  [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031447.jpg" />
 </div>
 
 
@@ -423,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031317.jpg" />
 </div>
 
 
@@ -449,7 +605,7 @@ ChatGPT попытался сбежать от своего разработчи
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031309.jpg" />
 </div>
 
 
@@ -475,7 +631,7 @@ No Game No Life / Нет игры, нет жизни [2014, TV, 12 эп.] HDTV 7
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031307.jpg" />
 </div>
 
 
@@ -501,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031305.jpg" />
 </div>
 
 
@@ -512,162 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40DD6DBFEC08305606BF75E3784B4E29513184BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610543   (1031299) от 23.03.2023
-
-Фишер (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031299.jpg" />
-</div>
-
-
-###  Подробнее
-
-1986 год. В районе правительственных дач на Рублевском шоссе одного за другим убивают подростков. Интеллигентный следователь Валерий Козырев, его дерзкий напарник из Ростова Евгений Боков и совсем молодая следователь Наталья Добровольская начинают расследование, даже не подозревая, как сильно оно изменит судьбу каждого из них. Единственный свидетель, способный опознать (   Читать дальше...   )Производство: Россия / Арт Пикчерс ВижнЖанр: детектив, драма, криминал, триллерРежиссер: Сергей Тарамаев, Любовь ЛьвоваАктеры: Иван Янковский, Александра Бортич, Александр Яценко, Сергей Гилев, Анна Снаткина, Роман Евдокимов, Ольга Озоллапиня, Алексей Гришин, Станислав Соломатин, Диана МилютинаПродолжительность: ~01:04:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE0C822A871EF9BC99D47C391C1B47DBD042427A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547240   (1031298) от 23.03.2023
-
-Dune: Spice Wars (2022) [Ru/Multi] (0.4.20.22997) Repack Other s
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031298.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стратегия в реальном времени с 4X-элементами создана разработчиками знаменитой Northgard. Действие игры происходит в невероятной вселенной «Дюны» Фрэнка Герберта. Вам предстоит возглавить фракцию и сражаться за контроль над суровой пустынной планетой Арракис.Тип издания: RepackРазработчик: Shiro GamesЖанр: Strategy (Real-Time), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C17D1C7561046323A7DF5F2EB5C056CD71B9E03B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396593   (1031236) от 15.02.2021
-
-Spotify Music v8.6.0.830 MOD [Ru/Multi] (обновляемая)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слушать песни в Spotify можно совершенно бесплатно. Здесь вы можете без труда найти музыку любимых исполнителей и создать персональный плейлист, в который могут войти ваши избранные композиции, например, музыка из фильмов и сериалов или песни о любви.Тип издания: Пиратка (Mod)Релиз состоялся: 09.02.2021Разработчик: Spotify Ltd.Поддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23C99D51B893B8137531A0E8CFE3F622B2A65314
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443765   (1031233) от 15.02.2021
-
-MultiBoot HDD 2021 Final [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных,установки Windows,Linux.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B520FF667AB70A241D8AB6D8761621E140B2AED8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447822   (1031085) от 16.02.2021
-
-Роспотребнадзор зарегистрировал первый в мире тест для британского COVID-19
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031085.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эпидемиологи Роспотребнадзора разработали и зарегистрировали тест-систему на выявление мутации коронавируса N501Y (так называемого британского штамма), сообщается в понедельник на сайте надзорного ведомства.«Набор реагентов успешно прошел клинические испытания и зарегистрирован для использования в Российской Федерации (Регистрационное удостоверение № 2021/13517), (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602245   (1031080) от 24.03.2023
-
-Tensei Oujo to Tensai Reijou no Mahou Kakumei / Магическая революция перерожденной принцессы и гениальной юной леди [2023, TV, 12] WEBRip 720p raw
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031080.jpg" />
-</div>
-
-
-###  Подробнее
-
-В прошлой жизни принцесса Анна-София мечтала о магических способностях и, попав в фэнтезийный мир, разработала на основе своих воспоминаний магикологию — уникальную магическую теорию. Во время тестового полёта на метле она видит, как её брат расторгает помолвку с Эуфиллией. Тогда Анна-София решает сделать её свой ассистенткой, что предполагает совместное проживание (   Читать дальше...   )Жанр: фэнтези, комедия, юрятина.Режиссер: Тамаки СингоЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FA8D534969BDF55B6B17FF0B70E4317CAACF956
 ```
 
 https://mybot314.ru/tekegram_catalog/

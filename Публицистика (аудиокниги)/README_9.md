@@ -1,3 +1,137 @@
+###  Публикация: 1338968   (267885) от 17.11.2019
+
+Под общ. ред. Ж.Ф. Марфиной, И. Г. Скибы | Дневники "сепаратистов" (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267885.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге собраны воспоминания жителей города Луганска о военных событиях лета 2014 года. В ней отображены реальные события, реальные чувства и судьбы людей, переживших общую беду в Луганске и за его пределамиЖанр: ПублицистикаПродолжительность: 03:17:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9C2E86CBBB239A6AD37585925CD3CD805D45D00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267138   (267626) от 05.12.2018
+
+Меир Шалев | Секреты обманчивых чудес (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267626.jpg" />
+</div>
+
+
+###  Подробнее
+
+Меира Шалева любят не только в его родном Израиле, но и во всем мире. Особенно в России, где выпущены и пользуются неизменным успехом все его романы. Но одно необычное произведение Шалева давно ожидало российского читателя. Теперь оно перед вами.
+Это не роман, а книга о книгах: Меир Шалев совершает путешествие по страницам любимых произведений, знакомых ему с юности. (   Читать дальше...   )Жанр: Публицистика, ЛитературоведениеПродолжительность: 13:48:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD90ACD41E7CF27CEE3F4015953A744896C0FD6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267377   (266515) от 06.12.2018
+
+Владимир Малявин | Тайный канон Китая (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266515.jpg" />
+</div>
+
+
+###  Подробнее
+
+С древности в Китае существовала утонченная стратегия коммуникации и противоборства, которая давала возможность тем, кто ею овладел, успешно манипулировать окружающими людьми – партнерами, подчиненными, начальниками.
+Эта хитрая наука держалась в тайне и малоизвестна даже в самом Китае. Теперь русский читатель может ознакомиться с ней в заново исправленных переводах (   Читать дальше...   )Жанр: Зарубежная публицистика, Военное дело, спецслужбыПродолжительность: 09:08:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D87F9354E6743F6190DB7E7BA84A6029D1C289EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838722   (261301) от 24.11.2025
+
+Джон Дуглас, Марк Олшейкер | Охотник за разумом. Особый отдел ФБР по расследованию серийных убийств (2025) [MP3, Дмитрий Чепусов]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарный профайлер ФБР Джон Дуглас, прототип Джека Кроуфорда из «Молчания ягнят», раскрывает мрачные тайны самых жестоких серийных убийц и преступников.
+За двадцать пять лет работы в Отдела содействия расследованиям специальный агент Джон Дуглас стал легендой ФБР, первым разработав методику психологического профилирования и начав интервьюировать серийных убийц, (   Читать дальше...   )Жанр: ПублицистикаИздательство: ЭксмоПродолжительность: 14:01:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89058BC6C3A03313373CA40CC98DEBC8C8C8CA5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838520   (260626) от 23.11.2025
+
+Борис Палант | Билль о Правах (2019) [MP3, Александр Клюквин]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260626.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стала бы Америка великой страной без своей Конституции и Билля о правах?
+В своем труде известный нью-йоркский адвокат, юрист-международник, Борис Палант развернуто и аргументированно показывает читателю то, какое огромное значение Конституция и «Билль о правах» (документ, содержащий десять первых поправок к Конституции США) сыграли в развитии демократии в США. Они (   Читать дальше...   )Жанр: ПублицистикаИздательство: СОЮЗПродолжительность: 08:58:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B249BB15D70EE77518D01C60E2A922A44F27FB9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1837515   (257497) от 17.11.2025
 
 Юрий Мухин | Статьи с официального сайта (Часть 1) (2013) [MP3, Сергей Дмитриев]
@@ -6,7 +140,7 @@
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257497.jpg" />
 </div>
 
 
@@ -32,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249685.jpg" />
 </div>
 
 
@@ -60,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245043.jpg" />
 </div>
 
 
@@ -86,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239891.jpg" />
 </div>
 
 
@@ -114,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238289.jpg" />
 </div>
 
 
@@ -140,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237883.jpg" />
 </div>
 
 
@@ -166,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236621.jpg" />
 </div>
 
 
@@ -192,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236601.jpg" />
 </div>
 
 
@@ -218,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236076.jpg" />
 </div>
 
 
@@ -247,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235995.jpg" />
 </div>
 
 
@@ -273,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235186.jpg" />
 </div>
 
 
@@ -299,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234793.jpg" />
 </div>
 
 
@@ -325,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233994.jpg" />
 </div>
 
 
@@ -352,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233846.jpg" />
 </div>
 
 
@@ -378,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232888.jpg" />
 </div>
 
 
@@ -405,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232691.jpg" />
 </div>
 
 
@@ -433,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230635.jpg" />
 </div>
 
 
@@ -460,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230464.jpg" />
 </div>
 
 
@@ -486,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_225487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225487.jpg" />
 </div>
 
 
@@ -512,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_225451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225451.jpg" />
 </div>
 
 
@@ -539,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224922.jpg" />
 </div>
 
 
@@ -551,136 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB181898854BFCB4DA1A2E7816E005F2AF1C4E74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651036   (223918) от 04.08.2023
-
-Альберт Поделл | Паспорт человека мира. Путешествие сквозь 196 стран (2019) [MP3, Пожилой Ксеноморф]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223918.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альберт Поделл – это как Марко Поло наших дней, но если честно, он намного круче. У нашего героя было совсем немного денег, а вместо собственного корабля – трещащие по швам самолёты где-то в странах третьего мира. Он раскладывал спальник у границ с вооружёнными солдатами, в кемпингах среди сумасшедших туристов, на обочинах безлюдных дорог, в опасных тропических джунглях, (   Читать дальше...   )Жанр: зарубежные приключения, истории из жизни, книги о путешествиях, отдых / туризмПеревод: Екатерина ТортуноваИздательство: ЭксмоПродолжительность: 11:15:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90DD13FCB91E1A2335735ECE7271CB8E727C8F52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425189   (221976) от 20.11.2020
-
-Дарелл Хафф | Как лгать при помощи статистики (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221976.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой всемирно известной книге Дарелл Хафф рассказывает о различных способах злоупотребления статистикой в целях обмана аудитории и манипулирования ее мнением. Каждый день на вас пытаются повлиять, чтобы сподвигнуть на покупку какого-то «нужного» продукта или на выбор «правильного» кандидата: «Благодаря пасте “Чистые зубы” образование кариеса снижается на 23 %!»; (   Читать дальше...   )Жанр: Публицистика, Познавательная литератураПродолжительность: 04:04:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09103B98616B9FF755CC209815DE4B2AB40EA2C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512114   (219580) от 02.12.2021
-
-Сергей Михеев | Традиции (2019-2021) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы много говорим о политике, деньгах, конфликтах. А на самом деле человек живет более простыми и глубокими вещами. Возвращаемся к традиционным ценностям в радиопередаче «Традиция»!Жанр: ПублицистикаПродолжительность: 34:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49C94223B04420ACBB8AB0405E622346B82F8ED2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641779   (210727) от 24.06.2023
-
-Стивен Пинкер | Рациональность (2023) [MP3, Стефан Барковский]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прямо сейчас человечество достигает новых высот научного понимания — и в тоже время, кажется, постепенно сходит с ума. Почему вид, меньше чем за год разработавший вакцины против ковида, погряз в фальшивых новостях, медицинском шарлатанстве и теориях заговора? Пинкер сразу отказывается от циничного клише, гласящего, что человек попросту нерационален — что это вечный (   Читать дальше...   )Жанр: ПублицистикаПродолжительность: 13:22:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65DE168CA5F02CC4BF5B0290405741B4A1C93C16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644685   (209615) от 06.07.2023
-
-Уолтер Айзексон | Альберт Эйнштейн (2023) [MP3, Пожилой Ксеноморф]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уолтер Айзексон, автор знаменитой биографии Стивена Джобса, написал книгу об одном из самых известных ученых XX века, Альберте Эйнштейне. Он не только подробно и доступно изложил суть научных концепций и открытий автора теории относительности, но и увлекательно рассказал об Эйнштейне-человеке. В книге приводится множество документальных материалов – письма, воспоминания, (   Читать дальше...   )Жанр: ПублицистикаИздательство: CorpusПродолжительность: 21:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:952029FD45BD3E49EC94C655A0A45A5FA9E26404
 ```
 
 https://mybot314.ru/tekegram_catalog/

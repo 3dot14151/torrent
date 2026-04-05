@@ -6,7 +6,7 @@
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533220.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527204.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512329.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493714.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492163.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490107.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490084.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488602.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452575.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450810.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_446856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_446856.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436456.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435669.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427465.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423084.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420121.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406032.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405468.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399591.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391627.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390598.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386828.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385631.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373917.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373806.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372435.jpg" />
 </div>
 
 

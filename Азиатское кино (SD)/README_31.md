@@ -1,3 +1,55 @@
+###  Публикация: 924066   (560723) от 02.08.2015
+
+Секрет детективного расследования: Сеть в Эдо / Onmitsu doshin: Oedo sosamo (1979) TVRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560723.jpg" />
+</div>
+
+
+###  Подробнее
+
+После объединения Японии, некоторые ниндзя стали служить в тайной полиции. В фильме они раскрывают тайные планы врагов властей города Эдо.Производство: ЯпонияЖанр: Драма, КриминалРежиссер: Акинори МацуоАктеры: Хироки Мацуката, Тэцуро Сагава, Санаэ Цутида, Рино Такасе, Такея Накамура, Keiko Orihara, Тосиро Мифунэ, Куниясу Ацуми...Перевод: Одноголосный закадровыйПродолжительность: 01:34:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:517876788E317B88E35FE728D76C24857E06DB3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 530821   (560229) от 03.08.2012
+
+Зомби 108 / Заброшенный город / Zombie 108 (2012) DVDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560229.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 108-ом районе тайваньской столицы случается утечка некоего токсичного вещества и начинается вирусная зомби-эпидемия. Власти направляют туда спецназ для спасения остатков населения, но эвакуация осложняется сопротивлением со стороны местных бандитов. Впрочем ситуация складывается настолько критическая, что волей-неволей приходится забыть о взаимной неприязни и объединиться перед общей угрозой.Жанр: УжасыРежиссер: Джо ЧенАктеры: Моррис Ронг, Ивонн Йао, Джош-Хиякава Уилсон, Тиа Бо, Джек Као, По ТайПеревод: Одноголосый закадровый, любительский (den904)Продолжительность: 01:23:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20278AA57B64819B6D6137727679E2C0DB733313
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045224   (558981) от 23.08.2016
 
 Спасти мистера Ву / Jie jiu Wu xian sheng / Saving Mr. Wu (2015) BDRip
@@ -6,7 +58,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558981.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558862.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557315.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556822.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556706.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554776.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553430.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552087.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549470.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548370.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548369.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548022.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547755.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547368.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547326.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542911.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542694.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541871.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541128.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540233.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540021.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536945.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536941.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536926.jpg" />
 </div>
 
 
@@ -624,58 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD263573ADC7019836EF57B6E77EA652CB06EED7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049173   (536447) от 09.09.2016
-
-Дикие дни / Days of Being Wild / A Fei jing juen (1990) DVDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536447.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Дикие дни", чем то проще, чем "Любовное настроение". Но без этой картины, "Любовное настроение" и "2046" были бы другими. Здесь все и началось. Взаимоотношение он и она. Романтические 60 годы. Пустой восточный город. Вечер и ночь. И дождь... Не прекращающий дождь. И живая камера Кристофера Дойла. Построение кадра, очень фотографическое. (   Читать дальше...   )Производство: Гонконг, In-Gear FilmЖанр: ДрамаРежиссер: Кар Вай ВонгАктеры: Лесли Чун, Мэгги Чун, Энди Лау, Карина Лау, Ребекка Пан, Джеки ЧунПеревод: Двуголосый закадровыйЯзык субтитров: РусскийПродолжительность: 01:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28CB75856A34E8191533DCAB93A410A4F2DE18FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050268   (536365) от 09.09.2016
-
-Бабочка и меч / San lau sing woo dip gim (Butterfly & Sword) (1993) DVDRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536365.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трех героев, друзей детства, наняли для того чтобы раскрыть заговор против Императора. Любовная составляющая: персонаж Донни Йена влюблен в женщину, которую играет Мишель Йео, а она влюблена в персонажа Тони Люна, а тот в свою очередь влюблен в другую девушку, Бабочку, которая не знает о том, что он из мира боевых искусств. Красиво снятый фильм с приключенческим (   Читать дальше...   )Производство: Тайвань, Гонконг, Chang-Hong Channel Film & Video CoЖанр: БоевикРежиссер: Дон Кит МакАктеры: Мишель Йео, Донни Йен, Тони Люн Чу Вай, Джимми Лин, Джои ВанПеревод: Одноголосый закадровыйПродолжительность: 1:23:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E93D34E200E16FD5C439AA3B74C744ED76EB363
 ```
 
 https://mybot314.ru/tekegram_catalog/

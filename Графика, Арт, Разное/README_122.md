@@ -1,3 +1,29 @@
+###  Публикация: 1263539   (287822) от 19.11.2018
+
+Обои - Desktop Wallpapers (4K) Ultra HD. Part (197) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в (4K) Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A921C248A4F898DFAD4D56E077EEA32D8BEEB1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263541   (287809) от 19.11.2018
 
 Обои - Ultra HD 3840x2160 Wallpaper Pack 356 [JPG]
@@ -6,7 +32,7 @@
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287809.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287615.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287323.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287316.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287315.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287136.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286982.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Desktop Wallpapers Full HD. Part (513) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286005.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Desktop Wallpapers (4K) Ultra HD. Part (272) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285998.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Desktop Wallpapers (4K) Ultra HD. Part (277) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285995.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Desktop Wallpapers (4K) Ultra HD. Part (271) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285991.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Desktop Wallpapers Full HD. Part (520) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285982.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Desktop Wallpapers Full HD. Part (518) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285978.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Desktop Wallpapers (4K) Ultra HD. Part (276) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285973.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Desktop Wallpapers (4K) Ultra HD. Part (273) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285844.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Desktop Wallpapers (4K) Ultra HD. Part (275) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285843.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Desktop Wallpapers (4K) Ultra HD. Part (270) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285842.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Desktop Wallpapers (4K) Ultra HD. Part (274) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285841.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Desktop Wallpapers Full HD. Part (519) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285838.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Desktop Wallpapers (4K) Ultra HD. Part (278) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285833.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Desktop Wallpapers Full HD. Part (514) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285832.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Desktop Wallpapers (4K) Ultra HD. Part (279) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285827.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Desktop Wallpapers (4K) Ultra HD. Part (282) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285821.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Desktop Wallpapers (4K) Ultra HD. Part (281) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285811.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285527.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFF94EB3969360DA2F20557CD1FB96961634A309
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186453   (285487) от 25.11.2017
-
-Обои - Beautiful Sundowns [JPEG, PNG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивый сборник закатов над реками, лесами, деревьями, полями, морями и т.д. С помощью которого Вы сможете украсить Ваш рабочий стол и наслаждаться великолепием природного явления.Формат: JPEG, PNGРазрешение файлов: 1280x1024 - 2560x1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE1A4603E0E9AEAB62853DFB1EFF20AE1F1C4423
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Miss Sophie Lee and The Parish Suites - Traverse This Universe (2016) Sophieleem
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355028.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Carmen McRae - The Sound Of Silence & Portrait Of Carmen (1968) 2001,  Collectab
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355022.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Dave Liebman & Franco D'Andrea - Nine Again (1990) Red Record [FLAC|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354828.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ V.A. - Smooth Jazz n Chill Vol. 7 (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354649.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Bud Shank & Bob Cooper - European Tour '57 (2006) Lone Hill Jazz [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354599.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Tiny Grimes - Five Classic Albums (1958, 1959) 4CD, 2017, Real Gone Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354413.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Les & Larry Elgart - Best Of Big Bands (1940-e) 1990, CBS [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354095.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Art Tatum - Trio Days (1944) 1999, Ars Nova [FLAC|Lossless|tracks + .cue] <Strid
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354093.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Nelson Riddle & His Orchestra - The Silver Collection (1972) 1989, MPS [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354082.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Walt Dickerson Quartet - Impressions of a Patch of Blue (1965) /1999, Verve Musi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353792.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Dizzy Gillespie - One Night In Washington (1955) /2013, Warner/[FLAC|tracks+.cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353790.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Weather Report - Live In London (80-e) 2020, Angel Air [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353679.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Glenn Miller Orchestra - The 40's Glenn Miller Orchestra (1993) [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353673.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Harry Connick, Jr. - That Would Be Me (2015) /Columbia Records/[FLAC|image+.cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353669.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Pat Metheny - Selected Recordings ECM (2004) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353660.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - The Future Sound of Jazz 3 (1998) [FLAC|tracks +.cue]<Future Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353656.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Gregory Porter - Nat King Cole & Me (2017) Deluxe [FLAC|Lossless|WEB-DL|tracks] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353558.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Dave Koz - A New Day (2020) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353534.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Laurent Coq Blowing Trio - The Thing To Share (2006) Cristal Records[FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352876.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Boyd Raeburn - And His Orchestra 1945-1946 (2000) Storyville[FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352875.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Nicki Parrott - Sakura Sakura (2012) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_352733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_352733.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Jack McDuff - Legends Of Acid Jazz (1964) 1997, Prestige [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352460.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Alexander Hawkins Mirror Canon - Break a Vase (2022) [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352447.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Jerry Bergonzi - Intersecting Lines (2014) Savant [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352380.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Papik - Music Inside (2012) [FLAC|Lossless|image + .cue] <Vocal Jazz, Nu Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352292.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ Paolo Conte - Paris Milonga (2000) [FLAC|Lossless|tracks + .cue] <Jazz-Pop, Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352286.jpg" />
 </div>
 
 

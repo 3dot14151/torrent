@@ -1,3 +1,119 @@
+###  Публикация: 1237504   (551540) от 24.07.2018
+
+The Exaltics - Das Heise Experiment 2 (2018) Solar One Music [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Experimental, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 0001100.3.0 (02:18)
+ 02. 00022.000.8 (04:24)
+ 03. 00033.001.4 (04:12)
+ 04. 00044.00.1.5 (In Zusammenarbeit Mit Rudolf Klorzeiger) (05:56)(   Читать дальше...   )Жанр: Electro, IDM, Experimental, AmbientПродолжительность: 00:49:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EFB5372E61C5B3F133EE1CFB90AC82C15970E89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237563   (551533) от 24.07.2018
+
+Digilio Lounge Music - Relax Chillout Music Summer (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mountain Road 5:08
+02. For Only A Moment 4:05
+03. Serenade 5:07
+04. Blessings Peace 4:10(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 04:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D359715CAEFF28A6BBA245730373B563FC2C6E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237452   (551528) от 24.07.2018
+
+Spiritual Evolution - Genesis (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551528.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. In The Beginning (01:37)
+2. Let There Be Light (06:50)
+3. Earth (06:40)
+4. Oceania (05:45)(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 01:02:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DDBDCFB8BDA4CD62BFE3DFF4F6B93C810E26709
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014068   (551350) от 24.07.2018
+
+Synthetic Epiphany - Discography 16 Releases (2012-2018) [FLAC|Lossless|WEB-DL|tracks] <Dubstep, UK Garage, Glitch, Ambient, D'n'B, Chillwave, Deep House, Downtempo>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Assimilate (06:11)
+ 02. Fractures (05:00)
+ 03. Bipolar (04:07)
+ 04. Aimsir (04:54)(   Читать дальше...   )Тип издания: WEBЖанр: Dubstep, UK Garage, Glitch, Ambient, D'n'B, Chillwave, Deep House, Downtempo •Продолжительность: 00:51:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C08EA6A2DC278EB3D69376E4673E2ACAE3FF9207
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008358   (551304) от 24.07.2018
 
 Bliss - Discography 8 Releases (2001-2013) Denmark [FLAC|Lossless|tracks+.cue, tracks] <Downtempo, Ambient, Chillout, Lounge, Modern Classical>
@@ -6,7 +122,7 @@ Bliss - Discography 8 Releases (2001-2013) Denmark [FLAC|Lossless|tracks+.cue, t
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551304.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - House Clubhits Summer Edition 2019 (2019) 2CD [MP3|320 Kbps] <House, Club H
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551216.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Classy Beach Chillout (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551188.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Satin Lounge Vol.2 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551187.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Magic Moments 20 Selected Chillout Songs (2016) [MP3|320 Kbps] <Downtempo, 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551186.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Advanced Modern Mood Music Vol.2 (2016) [MP3|320 Kbps] <Downtempo, Chillout
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551185.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Come Easy Tunes, Vol. 1 (Easy Jazzy Sunny Music) (2016) [MP3|320 Kbps] <Dow
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551183.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Advanced Modern Mood Music Vol.4 (2016) [MP3|320 Kbps] <Downtempo, Chillout
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551181.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Caribbean Beach Lounge Vol.4 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551180.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Advanced Modern Mood Music Vol.3 (2016) [MP3|320 Kbps] <Downtempo, Chillout
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551179.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Advanced Modern Mood Music Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillout
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551178.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Advanced Modern Mood Music Vol.5 (2016) [MP3|320 Kbps] <Downtempo, Chillout
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551176.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - Summer Hits (2019) [MP3|320 Kbps] <Trance, Vocal Trance, Progressive Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551139.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - Chill Crossover - The 21st Century Soul Music (2016) [MP3|320 Kbps] <Lounge
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551102.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ VA - Suanda Chillout - Mixed By RIB & Seven24 (2016) [MP3|320 Kbps] <Chillout, L
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551101.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Olivier Orand | Hol Baumann | OP 11 - Discography 10 Releases (2006-2019) Ultima
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550904.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Pessimist - Pagans (2017) Osiris Music UK [FLAC|Lossless|WEB-DL|tracks] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550654.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550652.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Super Sapien - Ethereon (2018) WoNKed Records [FLAC|Lossless|WEB-DL|tracks] <Dow
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550651.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Super Sapien - Awakening (2017) WoNKed Records [FLAC|Lossless|WEB-DL|tracks] <Do
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550638.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Binary Park - Nothing (2016) Infacted Recordings [FLAC|Lossless|WEB-DL|tracks] <
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550630.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ VA - Florescence (2017) IMMINENT [FLAC|Lossless|WEB-DL|tracks] <Future Garage, A
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550621.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ VA - Florescence (2017) IMMINENT [FLAC|Lossless|WEB-DL|tracks] <Future Garage, A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0840AF0235D2693E2DC835B89C6BEA8F0DE18A32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237664   (550618) от 25.07.2018
-
-VA - STAVRLS (2018) IMMINENT [FLAC|Lossless|WEB-DL|tracks] <Future Garage, Ambient, Dubstep, Drum n Bass, Downtempo>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Broken. - Dear Friend (05:00)
-02. Azaleh - Moonlight (04:28)
-03. Twisted Psykie - Your Medicine (05:17)
-04. Dashevsky - Paper Boats (05:56)(   Читать дальше...   )Жанр: Future Garage, Ambient, Dubstep, Drum n Bass, DowntempoПродолжительность: 02:02:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7823C043BF1F8243F9A434C885A372CA517F7958
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047446   (550373) от 29.08.2016
-
-VA - Amalfi Coast Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don Gorda - Hang Out Time (06:45)
-02. Enrico Donner - Prefabricated Dreams (06:47)
-03. Don Gorda Project - Feeling Free (05:44)
-04. Cane Garden Quartet - Ageless (05:53)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:26:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1A099D1A73277C17C9B06D5B78B84C95E7D93D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047143   (550370) от 29.08.2016
-
-VA - Satin Lounge Vol.1 (2015) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zuco 103 - Outro Lado
-02. Five Seasons - Guapo
-03. Frank Popp Ensemble - Just Say Goodbye
-04. Chin Chillaz - Trinity(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:13:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F8CF773EB4F8A4E692F5F5298E7DB08C4ECB895
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047170   (550369) от 29.08.2016
-
-VA - Ibiza Dreams, Vol. 1 (Finest Island Chill Out Mix) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gods Blue Chest - Floating (Beach Mix) (6:04)
-02. Roberto Sol, Florito - Tomorrow (4:50)
-03. Naoki Kenji - Tsunami (6:24)
-04. Peter Pearson - Always In My Dream (5:41)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:25:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DA121800D65C30B480EC1BBF7E2999E49995D34
 ```
 
 https://mybot314.ru/tekegram_catalog/

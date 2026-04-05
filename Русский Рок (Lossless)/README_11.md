@@ -1,67 +1,3 @@
-###  Публикация: 1098910   (906634) от 31.01.2017
-
-Сурганова & Оркестр - Песни военных лет (2017) [FLAC|lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Нам нужна одна победа (03:07)
-02. Журавли (04:01)
-03. Песня о далёкой Родине (02:55)
-04. Самолёты (03:03)(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FF93AD9D8F040AF30674999AE03A9CD34A620E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 181970   (904730) от 10.03.2010
-
-Океан Ельзи - Dolce Vita (2010) [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Онлайн (3:52)
-02. Небо над Дніпром (4:17)
-03. Надя (3:56)
-04. Я так хочу... (4:42)
-05. На лінії вогню (3:01)
-06. Більше для нас (3:30)
-07. Ордени (3:49)
-08. З тобою (3:05)
-09. Ще один день (4:13)
-10. Королева (4:17)(   Читать дальше...   )Жанр: RockПродолжительность: 00:56:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369283   (903809) от 23.03.2020
 
 Frostnatt - Den Russiske Tomheten (2020) [FLAC|Lossless|Web-DL|tracks] <Atmospheric Black Metal, Instrumental, Post-Black Metal>
@@ -70,7 +6,7 @@ Frostnatt - Den Russiske Tomheten (2020) [FLAC|Lossless|Web-DL|tracks] <Atmosphe
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903809.jpg" />
 </div>
 
 
@@ -99,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900399.jpg" />
 </div>
 
 
@@ -128,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898809.jpg" />
 </div>
 
 
@@ -157,7 +93,7 @@ VA - Песни простого человека. Трибьют группе �
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898765.jpg" />
 </div>
 
 
@@ -186,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898631.jpg" />
 </div>
 
 
@@ -215,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894573.jpg" />
 </div>
 
 
@@ -244,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892446.jpg" />
 </div>
 
 
@@ -275,7 +211,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892411.jpg" />
 </div>
 
 
@@ -304,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891576.jpg" />
 </div>
 
 
@@ -333,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888872.jpg" />
 </div>
 
 
@@ -362,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888849.jpg" />
 </div>
 
 
@@ -391,7 +327,7 @@ The Starkillers - Дикий Восток (2020) [FLAC|Lossless|WEB-DL|tracks] <
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887050.jpg" />
 </div>
 
 
@@ -420,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886704.jpg" />
 </div>
 
 
@@ -446,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885906.jpg" />
 </div>
 
 
@@ -475,7 +411,7 @@ VA - Александр Башлачёв. Серебро и слёзы. Триб
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885668.jpg" />
 </div>
 
 
@@ -504,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885039.jpg" />
 </div>
 
 
@@ -533,7 +469,7 @@ VA - Romantic Collection: Русский рок (1999) [FLAC|Lossless|tracks + .
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884045.jpg" />
 </div>
 
 
@@ -562,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882475.jpg" />
 </div>
 
 
@@ -591,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880810.jpg" />
 </div>
 
 
@@ -620,7 +556,7 @@ Arcane Grail - Mysteries Of The Ancient Charnel (2006) [FLAC|Lossless|image + .c
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880145.jpg" />
 </div>
 
 
@@ -647,7 +583,7 @@ Amatory - 5 альбомов (2003-2010) Дискография [FLAC|Lossless]<
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878743.jpg" />
 </div>
 
 
@@ -676,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878440.jpg" />
 </div>
 
 
@@ -705,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876471.jpg" />
 </div>
 
 
@@ -734,7 +670,7 @@ Znaki - Покруче фантастики (2015) [FLAC|Lossless|tracks + .cue]
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875585.jpg" />
 </div>
 
 
@@ -748,6 +684,64 @@ Znaki - Покруче фантастики (2015) [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:130438CFB8C878BF30700719AD482D75F9612F08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997336   (875466) от 16.03.2016
+
+Чиж & Co и Юрий Морозов - Концерт в зале около Финляндского вокзала (2002) [FLAC|Lossless|image + .cue] <Blues Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мишень (4:53)
+02. Still Got The Blues	(4:30)
+03. Юрий Морозов - Волки (4:06)
+04. Смутные Дни	(4:05)(   Читать дальше...   )Жанр: Blues Rock, Soft RockПродолжительность: 01:02:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75E28A5A8A58DC348F140331C317C99B83916121
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997344   (875465) от 16.03.2016
+
+Владимиров & Чиж & Co - На Грани Изумруда (2007) [FLAC|Lossless|tracks + .cue] <Blues Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_875465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Белая звезда (5:25)
+02. Бронзовая птица (3:48)
+03. Фонарик (3:02)
+04. Кошки (5:00)(   Читать дальше...   )Жанр: Blues Rock, Soft RockПродолжительность: 00:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C8F059C52956562F7F76AFA0479719E6350F01B
 ```
 
 https://mybot314.ru/tekegram_catalog/

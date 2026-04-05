@@ -1,135 +1,3 @@
-###  Публикация: 994206   (889794) от 08.03.2016
-
-Э. М. Чудинов | Нить Ариадны: Философские ориентиры науки (1979) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889794.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге доктора философских наук, профессора Э. М. Чудинова на основе анализа творчества крупнейших ученых раскрывается значение философских идей в конкретном научном исследовании.
-
-Книга рассчитана на молодежь, интересующуюся проблемами современной науки.Жанр: История, философия, науковедениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A38959962011BF520236530B1944389BE3B8A6E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994184   (889776) от 08.03.2016
-
-В.В. Спичак (ред.) | Современные методы измерения, обработки и интерпретации электромагнитных данных (2009) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889776.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассматриваются возможности пятого поколения ЭМ измерительной аппаратуры, а также современные методы обработки электромагнитных данных, основанные на применении новейших математических алгоритмов. Большое внимание уделено методам интерпретации электромагнитных данных в классе трёхмерных моделей среды, а также с учётом анизотропии пород. Исследуются электромагнитные (   Читать дальше...   )Жанр: ГеофизикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00472B637ECD50D7AA763C386778C8A1F8E286C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994537   (889749) от 08.03.2016
-
-Сергей Плеханов | Святослав — первый русский император (2014) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный роман о жизни великого русского князя Святослава Игоревича Храброго и его роли в мировой истории. В условиях мощнейшей идеологической и военной агрессии южных империй против языческого Севера он сумел не только сохранить государство своих отцов, но и создать собственную империю, включавшую разные народы и климатические зоны – от холодного Белого моря, (   Читать дальше...   )Жанр: Биографии и Мемуары, Историческая прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:163A35A6DFE52450701DA2E2B92EEAB040FAE2CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994297   (889733) от 08.03.2016
-
-В.Н. Никулин и др. | Лабораторный практикум по биологической химии (2012) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889733.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебно-методическом пособии дается краткое теоретическое введение в предусмотренные ФГОС ВПО и рабочими учебными программами разделы, дающие представления о химической сущности и биологическом значении наблюдаемых явлений. Изложен порядок проведения лабораторных работ, в которых используются современные и наиболее доступные методы химического анализа биологических (   Читать дальше...   )Жанр: Химия, биологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:737E11EE924B5CB4C610CE10FE5748233D9E6911
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994283   (889695) от 08.03.2016
-
-Г.Н. Шелованова | Материалы и элементы электронной техники (2007) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889695.jpg" />
-</div>
-
-
-###  Подробнее
-
-В виде презентации подробнейшим образом представлен курс лекций, разбитый на модули, по дисциплине Материалы и элементы электронной техникиЖанр: Электронные компонентыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:428E402615A1014B452F7248AD97493EC6FAFE7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994741   (889633) от 08.03.2016
 
 Михаил Савинов | Военное дело Древней Руси IX-XI вв. [Русские рати в походе и бою] (2013) [FB2]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_889633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_889633.jpg" />
 </div>
 
 
@@ -164,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889518.jpg" />
 </div>
 
 
@@ -191,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889234.jpg" />
 </div>
 
 
@@ -219,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889220.jpg" />
 </div>
 
 
@@ -245,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888880.jpg" />
 </div>
 
 
@@ -271,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888765.jpg" />
 </div>
 
 
@@ -297,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888726.jpg" />
 </div>
 
 
@@ -323,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888529.jpg" />
 </div>
 
 
@@ -349,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888478.jpg" />
 </div>
 
 
@@ -375,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888469.jpg" />
 </div>
 
 
@@ -401,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888467.jpg" />
 </div>
 
 
@@ -427,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888435.jpg" />
 </div>
 
 
@@ -455,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888432.jpg" />
 </div>
 
 
@@ -483,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888429.jpg" />
 </div>
 
 
@@ -509,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888423.jpg" />
 </div>
 
 
@@ -535,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888421.jpg" />
 </div>
 
 
@@ -561,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888407.jpg" />
 </div>
 
 
@@ -587,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888352.jpg" />
 </div>
 
 
@@ -613,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888235.jpg" />
 </div>
 
 
@@ -639,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888230.jpg" />
 </div>
 
 
@@ -665,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888227.jpg" />
 </div>
 
 
@@ -676,6 +544,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:156239219291391126B4B5D30263B8CF28C82CCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371788   (888181) от 01.04.2020
+
+Джеффри Миллер | Соблазняющий разум. Как выбор сексуального партнера повлиял на эволюцию человеческой природы (2020) [FB2]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888181.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стройно объяснить происхождение разума не удавалось еще никому. В этой концептуальной книге эволюционный психолог Джеффри Миллер выносит на суд общественности свою оригинальную идею – теорию происхождения уникальных умственных способностей человека в ходе полового отбора. Ключевым механизмом отбора автор считает выбор полового партнера, который осуществляли доисторические (   Читать дальше...   )Жанр: Антропология, Научно-популярная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:903BF1C687E47820EAF3576C6A1CA2BF1246523F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371937   (888145) от 01.04.2020
+
+Алексей Стейнерт | Все про этикет. Иллюстрированный гид (2017) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы живем в век спешки, когда ни на что не остается времени. В сумасшедшем темпе жизни мы стали забывать о правилах поведения и приличия, ухудшая тем самым атмосферу отношений вокруг себя. Однако наши предки еще несколько веков назад задумались об этой проблеме – и создали целую науку под названием «этикет». Правила этикета касаются всех сфер жизни человека и помогают (   Читать дальше...   )Жанр: Энциклопедия, Этикет, СаморазвитиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B9359F91BAD7F2A751C56A5FDFFA6EF2678AE0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994888   (888117) от 09.03.2016
+
+Л. Г. Воронин | Физиология сна (1974) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888117.jpg" />
+</div>
+
+
+###  Подробнее
+
+В брошюре приводятся современные сведения о сне, бодрствовании и переходных состояниях. Рассматривается парадоксальный сон, электрофизиологические данные о котором свидетельствуют об активном состоянии мозга во время самого глубокого сна. Рассказывается о механизмах сна, его лечебной роли, гипнозе, гипнопедии. Содержание брошюры рассчитано на широкий круг читателей.Жанр: Естествознание, физиологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DBE8CABD9D2F7EEF15539DBC0965B0B237F8CDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994904   (888073) от 09.03.2016
+
+П. Н. Третьяков | У истоков древнерусской народности (1970) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга посвящена одному из важнейших вопросов древней и раннесредневековой истории нашей страны — процессу образования древнерусской народности — общего предка трех восточнославянских национальностей — русской, украинской и белорусской.
+
+Далеко не все вопросы, относящиеся к истории образования древнерусских раннесредневековых группировок и древнерусской народности, (   Читать дальше...   )Жанр: История, этнография, археологияФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:118D5D3A8956152BF0BF09ACB278F26520606479
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994889   (888002) от 09.03.2016
+
+Рената Равич | Копилка семейного здоровья (2016) [FB2]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как научиться просто, быстро и эффективно помогать себе, своим детям, близким и друзьям до прихода врача, а заодно и сэкономить на лекарствах в кризис? Можно ли помочь онкологическим больным в домашних условиях? Что поможет снять стресс и найти скрытые резервы человеческого духа? В книге известного специалиста по нелекарственным методам оздоровления Ренаты Равич (   Читать дальше...   )Жанр: ЗдоровьеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4B20CA8C87BD4F9C9D99C1F1A5A6AE507D05235
 ```
 
 https://mybot314.ru/tekegram_catalog/

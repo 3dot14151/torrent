@@ -1,3 +1,30 @@
+###  Публикация: 1682968   (130719) от 09.12.2023
+
+Stepik, Арсений Смирнов | Веб-дизайн: ключ к успеху (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс ключ к успеху в понимании и использовании всех инструментов и возможностей Figmа и веб-дизайна. Пока другие хвастаются, наши ученики создают продающие сайты.
+От того как будет выглядеть сайт напрямую зависит количество продаж, в связи с этим для предпринимателей и бизнеса стало необходимо большое количество веб-дизайнеров, которые смогли бы создать качественный, (   Читать дальше...   )Производство: StepikЖанр: ДизайнЯзык озвучки: РусскийПродолжительность: 17:42:28Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDF1ED37EFC54174257BEE56E14BAB1079D2CB8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683116   (130687) от 09.12.2023
 
 Курсы писательского мастерства | Предновогодняя распродажа проекта (2023) WEB-DL [AD] [RU]
@@ -6,7 +33,7 @@
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130687.jpg" />
 </div>
 
 
@@ -35,7 +62,7 @@ Udemy, Alex Cordebard | The Ultimate Blender 3D Animated Short AI Course (2023) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130686.jpg" />
 </div>
 
 
@@ -61,7 +88,7 @@ Udemy, Unreal magic | Unreal Engine 5:Enhance animation skill with Ladder Climbi
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130682.jpg" />
 </div>
 
 
@@ -90,7 +117,7 @@ Greech, Анастасия Гречушникова, Вадим Киселев |
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130680.jpg" />
 </div>
 
 
@@ -119,7 +146,7 @@ Udemy, Mrawan Hussain | BLENDER: Creating Jeep Gladiator Rubicon from A to Z (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130662.jpg" />
 </div>
 
 
@@ -146,7 +173,7 @@ ArtCraft, Александр Шаповалов | 3D Pro. Game environment pipel
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130532.jpg" />
 </div>
 
 
@@ -173,7 +200,7 @@ Udemy, Jonathan Elliott | Blue Team Boot Camp: Defending Against Hackers (2020) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130504.jpg" />
 </div>
 
 
@@ -199,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130257.jpg" />
 </div>
 
 
@@ -228,7 +255,7 @@ Udemy, Gary Pettie, Ben Tristem | Math For Video Games: The Fastest Way To Get S
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130206.jpg" />
 </div>
 
 
@@ -256,7 +283,7 @@ School of Motion, Mark Christiansen | VFX For Motion After Effects (2020) PCRec 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130191.jpg" />
 </div>
 
 
@@ -283,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130157.jpg" />
 </div>
 
 
@@ -309,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130148.jpg" />
 </div>
 
 
@@ -335,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130113.jpg" />
 </div>
 
 
@@ -361,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130109.jpg" />
 </div>
 
 
@@ -387,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129922.jpg" />
 </div>
 
 
@@ -416,7 +443,7 @@ Proko, Stan Prokopenko | Figure drawing fundamentals (2012) WEBRip [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129827.jpg" />
 </div>
 
 
@@ -445,7 +472,7 @@ School of Motion, EJ Hassenfratz | Cinema 4D Basecamp (2018) PCRec [En]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129821.jpg" />
 </div>
 
 
@@ -472,7 +499,7 @@ Udemy, Bradley Jadir | DaVinci Resolve for Wedding Film Makers (2023) WEB-DL [EN
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129634.jpg" />
 </div>
 
 
@@ -500,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129616.jpg" />
 </div>
 
 
@@ -527,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129456.jpg" />
 </div>
 
 
@@ -556,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129444.jpg" />
 </div>
 
 
@@ -582,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129439.jpg" />
 </div>
 
 
@@ -611,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129390.jpg" />
 </div>
 
 
@@ -639,7 +666,7 @@ Strogoorganic | Органическое Садоводство - Междуна
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129262.jpg" />
 </div>
 
 
@@ -668,7 +695,7 @@ Class101, Inhyuk Lee | Advancing to Intermediate Illustration - Steps after Lear
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128983.jpg" />
 </div>
 
 
@@ -682,34 +709,6 @@ Class101, Inhyuk Lee | Advancing to Intermediate Illustration - Steps after Lear
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22E81E82ECE817642CE852879C0CC4CC7869EF05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525855   (128981) от 22.01.2022
-
-Дмитрий Шумаков | Технология монтажа водяного теплого пола (2015) WEB-DL [Пакет VIP]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четвертое издание единственного в рунете наглядного и практического видеокурса по монтажу систем водяного теплого пола.
-Отснятый полностью с нуля видеокурс шаг за шагом расскажет Вам, как своими руками смонтировать и запустить одну из самых экономичных и самую комфортную систему отопления.
-Когда Вы всерьез начнете применять информацию из курса «Технология монтажа (   Читать дальше...   )Жанр: СтроительствоПродолжительность: 13:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:666801024AF154D91290AF1F8879D96B3D6CC3F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

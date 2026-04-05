@@ -1,3 +1,133 @@
+###  Публикация: 923165   (564331) от 31.07.2015
+
+Пчёлка Майя / Maya The Bee – Movie (2014) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарная пчелка доросла до большого экрана.Производство: Австралия, Германия / Buzz Studios, Fish Blowing Bubbles, Flying Bark ProductionsЖанр: мультфильм, фэнтези, приключенияРежиссер: Алекс СтадерманнПерсонажи: Коко Джек Гиллис , Нина Шаттон , Коди Смит-МакФи , Ноа Тейлор , Мириам Маргулис , Ричард Роксбург , Джеки Уивер , Джастин Кларк , Энди МакФи , Косма Шива Хаген , Нина Хаген , Константин фон ЯщероффПеревод: Дублированный (Лицензия)Субтитры: ОтсутствуютПродолжительность: 01:27:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:297277625DE0377B2EC1141B88825C311D0EFA69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922861   (564328) от 31.07.2015
+
+Аладдин / Aladdin (1992) BDRemux [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет мультфильма рассказывает нам о бедняке по имени Аладдин, и о его приключениях. Визирь султана Джафар хочет найти волшебную лампу с джинном внутри, для того чтобы завладеть Аграбой и миром. Джин из этой лампы может исполнить любое желание. Однако лишь уличный воришка Аладдин может заполучить эту волшебную лампу. Аладдину и его друзьям (Абу, Яго и принцессе Жасмин) (   Читать дальше...   )Производство: США / Walt Disney Pictures, Silver Screen Partners IV, Walt Disney Feature AnimationЖанр: мультфильм, мюзикл, фэнтези, мелодрама, комедия, приключения, семейныйРежиссер: Рон Клементс, Джон МаскерАктеры: Скотт Венгер, Робин Уильямс, Линда Ларкин, Джонатан Фриман, Фрэнк Уэлкер, Гилберт Готтфрид, Дуглас Сил, Чарльз Адлер, Джек Эйнджел, Кори БертонПеревод: профессиональный (полное дублирование), профессиональный (двухголосый закадровый), авторский (одноголосый закадровый)Язык субтитров: русский, украинский, английскийПродолжительность: 01:30:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:896FAF90B2C06AF0804379151B4FDB75FB60AAEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923333   (564252) от 31.07.2015
+
+Пчёлка Майя / Maya The Bee – Movie (2014) HDRip [H.264]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарная пчелка доросла до большого экрана.Производство: Австралия, Германия / Buzz Studios, Fish Blowing Bubbles, Flying Bark ProductionsЖанр: мультфильм, фэнтези, приключенияРежиссер: Алекс СтадерманнПерсонажи: Коко Джек Гиллис , Нина Шаттон , Коди Смит-МакФи , Ноа Тейлор , Мириам Маргулис , Ричард Роксбург , Джеки Уивер , Джастин Кларк , Энди МакФи , Косма Шива Хаген , Нина Хаген , Константин фон ЯщероффПеревод: Дублированный (Лицензия)Субтитры: ОтсутствуютПродолжительность: 01:27:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F6234FB4E0F88149DB5B633F0611A05282EDBF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 690394   (563925) от 18.08.2013
+
+Том и Джерри: Гигантское приключение / Tom and Jerry's Giant Adventure (2013) BDRip [H.264]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563925.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом новом полнометражном мультфильме Том и Джерри - одни из последних зверушек, оставшихся в парке развлечений "Город сказок". Здесь "мечты оживают, если ты веришь в это". Мальчик Джек хочет спасти парк от рук жадного миллиардера и вместе со своими верными друзьями - котом и мышонком - решает продать своего бычка... за пригоршню волшебных бобов. (   Читать дальше...   )Жанр: Фантастика, комедия, мультфильм, полнометражныйРежиссер: Спайк Брандт, Тони СервонеАктеры: Том Уилсон, Гаррисон Кейллор, Пол Рубенс, Грей Делайл, Иаков БертранПеревод: ДублированныйЯзык субтитров: Русские, английскиеПродолжительность: 00:57:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E2B437307B42078BFE9A3455B267F0C8A709E65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 690676   (563628) от 18.08.2013
+
+Том и Джерри: Гигантское приключение / Tom and Jerry's Giant Adventure (2013) BDRip [H.264/720p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563628.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом новом полнометражном мультфильме Том и Джерри - одни из последних зверушек, оставшихся в парке развлечений "Город сказок". Здесь "мечты оживают, если ты веришь в это". Мальчик Джек хочет спасти парк от рук жадного миллиардера и вместе со своими верными друзьями - котом и мышонком - решает продать своего бычка... за пригоршню волшебных бобов. (   Читать дальше...   )Жанр: Детский, Комедия, Приключения, СемейныйРежиссер: Спайк Брандт, Тони СервонеПерсонажи: Том Уилсон, Гаррисон Кейллор, Пол Рубенс, Грей Делайл, Иаков БертранПеревод: ДублированныйЯзык субтитров: Русский, AнглийскийПродолжительность: 00:57:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C78804EA9F61E879AA48DA1110F9D4C8B9392031
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 690829   (563621) от 18.08.2013
 
 Планета Халка / Planet Hulk (2010) BDRip [H.264]
@@ -6,7 +136,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563621.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563609.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563222.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563057.jpg" />
 </div>
 
 
@@ -112,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562944.jpg" />
 </div>
 
 
@@ -138,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562928.jpg" />
 </div>
 
 
@@ -164,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562830.jpg" />
 </div>
 
 
@@ -190,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562731.jpg" />
 </div>
 
 
@@ -216,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562489.jpg" />
 </div>
 
 
@@ -242,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561459.jpg" />
 </div>
 
 
@@ -268,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561141.jpg" />
 </div>
 
 
@@ -294,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561001.jpg" />
 </div>
 
 
@@ -320,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560884.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560882.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560881.jpg" />
 </div>
 
 
@@ -398,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560840.jpg" />
 </div>
 
 
@@ -424,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560318.jpg" />
 </div>
 
 
@@ -450,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560231.jpg" />
 </div>
 
 
@@ -477,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560139.jpg" />
 </div>
 
 
@@ -503,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560129.jpg" />
 </div>
 
 
@@ -529,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560114.jpg" />
 </div>
 
 
@@ -540,136 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CD83978D91DFD3C4F14CC13FD44FFD8AD125A66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234981   (560053) от 11.07.2018
-
-Белый клык / Croc-Blanc (2018) WEB-DLRip [EN / RU, EN Sub]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560053.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основу мультфильма легла классическая повесть американского писателя Джека Лондона, которая рассказывает о приключениях Белого клыка, полусобаки-полуволка, чьи отец, братья и сестры погибли, а их с матерью приручил индеец. Познакомившись с людьми и собаками, Белый клык вскоре понимает, что здесь ему придется сражаться за выживание так же яростно, как и в дикой (   Читать дальше...   )Производство: Франция, Люксембург, США / Superprod, Bidibul Productions, Big Beach FilmsЖанр: Мультфильм, ПриключенияРежиссер: Александр ЭспигаресПерсонажи: Ник Офферман, Рашида Джонс, Пол Джаматти, Флула Борг, Стив Гликман, Доминик Пинон, Виржини Эфира, Эдди Спирс, Рафаэль Персонас, Дэвид Боат ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, Английские (отдельным файлом)Продолжительность: 01:27:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B8138016261EBAFDC4F271E6DCEEBB5571D5504
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 365333   (559633) от 19.07.2011
-
-Кот Базилио и мышонок Пик (1974) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: Киевнаучфильм / СССРЖанр: Детский, Рисованая анимацияРежиссер: Константин ЧикинРоли озвучивают: Людмила Козуб, Григорий Шпигель, Владимир Коршун, Андрей ИгнатенкоПродолжительность: 00:08:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BC67283DCE8AE1C963D4E5C0A75247F2A706B23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 814553   (559024) от 20.08.2014
-
-Оз: Возвращение в Изумрудный Город / Legends of Oz: Dorothy's Return (2013) BDRip [H.264/720p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559024.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дороти снова магическим образом переносится в страну Оз, чтобы спасти от беды ее жителей. Но оказывается, что старые друзья Дороти — Страшила, Железный Дровосек и Храбрый Лев — исчезли. Путешествуя по стране в поисках своих друзей, Дороти встречает новых попутчиков — Капитана Зефира, Фарфоровую Принцессу и филина Савву. Дороти должна помочь таким разным героям объединиться, (   Читать дальше...   )Производство: США, Индия / Prana Animation StudiosЖанр: Мультфильм, Мюзикл, СемейныйРежиссер: Уилл Финн, Дэн Ст. ПьерАктеры: Лиа Мишель, Патрик Стюарт, Джеймс Белуши, Дэн Эйкройд, Келси Грэммер, Меган Хилти, Хью Дэнси, Оливер Платт, Бернадетт Питерс, Мартин Шорт...Перевод: Профессиональный (дублированный)Язык субтитров: АнглийскийПродолжительность: 01:32:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CE2BF80BD7FC32ADFE1B5E544A531B3B8370926
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 530962   (558800) от 04.08.2012
-
-Как котенку построили дом (1963) DVDRip [Реставрация "Крупный план"]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558800.jpg" />
-</div>
-
-
-###  Подробнее
-
-О том, как строительные машины маленькому котенку построили новый  дом.Жанр: Детский, КукольныйРежиссер: Роман КачановПродолжительность: 00:10:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:914A178DE1F425F3BBB3F75D0A5462827483555B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531179   (558741) от 04.08.2012
-
-Маргарита / Margarita (2009) [H.264/720p-LQ] HDTVRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Симпатичный добрый мультфильм для просмотра всей семьёй.Жанр: мультфильм, короткометражкаРежиссер: Алекс СервантесПерсонажи: Маленькая девочка МаргаритаПеревод: Без слов / НемойПродолжительность: 00:13:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:269CC5A7623B9A0516076E4E3D117597602F9BD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

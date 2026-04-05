@@ -6,7 +6,7 @@ VA - Licence to Chill 2022 (2022) [AAC|~301 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669417.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Ibiza Feeling (2022) [AAC|~300 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669416.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Caravan Palace - Panic (2013) [AAC|~333 Kbps] <Jazz, Neo Swing, Electro Swing, G
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669324.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Sunrise Avenue, Vol. 6 (20 Lounge & Chill-Out Pearls) (2015) [AAC|~350 Kbps
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669320.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Caravan Palace - Caravan Palace (2008) [AAC|~337 Kbps] <Jazz, Neo Swing, Electro
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669315.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Sunrise Avenue, Vol. 8 (20 Lounge & Chill-Out Pearls) (2016) [AAC|~355 Kbps
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669266.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Sunrise Avenue, Vol. 4 (20 Lounge & Chill-Out Pearls) (2015) [AAC|~342 Kbps
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669254.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669235.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669085.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669065.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668956.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668678.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668677.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668676.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668663.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668584.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668577.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668503.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668021.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Organic Patch - Chill Breaks (2022) [AAC|~314 Kbps] <Chill Out, Ambient, Downtem
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667898.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667751.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ VA - Лучшие дворовые песни (2020) [AAC|~304 Kbps] <Chanson, P
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667728.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667674.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667597.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667129.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667061.jpg" />
 </div>
 
 

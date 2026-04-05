@@ -1,3 +1,29 @@
+###  Публикация: 1037070   (615283) от 23.07.2016
+
+Киану / Keanu  (2016) BDRip [H.264/720p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615283.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре сюжета окажутся двое друзей, которые вынуждены прикинуться гангстерами ради спасения украденного домашнего питомца - кота по кличке Киану.Производство: США, New Line Cinema, Principato Young ManagementЖанр: боевик, комедияРежиссер: Питер АтенсиоАктеры: Джордан Пил, Кигэн-Майкл Ки, Тиффани Хэддиш, Метод Мэн, Даррел Бритт-Гибсон, Джейсон Митчелл, Джамар Малачи Нейборс, Луис Гусман, Уилл Форте, Ниа Лонг, Роб Хюбель, Мэдисон ВульфПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:39:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E837468E909B7C67A8DC232E9D565F82DFE296B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037074   (615167) от 23.07.2016
 
 Нервы на пределе / High Strung (2016) WEB-DL [H.264/1080p-LQ] [EN]
@@ -6,7 +32,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615167.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615077.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613553.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613338.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612535.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612258.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612064.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611002.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610905.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608308.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606368.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606199.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604534.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604168.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604077.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603646.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603620.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602445.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601812.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599629.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598156.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597739.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596241.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596141.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595718.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B818CDFD531ED9B887BB1D168FA44AB0F9131338
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039034   (595539) от 01.08.2016
-
-Терминатор 2: Судный День / Terminator 2: Judgment Day (1991) Blu-ray [H.264/1080p] [EN / KOR, SP, CH, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595539.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действия художественного фильма «Терминатор 2: Судный день» происходят спустя более десяти лет после первой встречи Сары Коннор с терминатором, который пытался уничтожить ее и не допустить рождение сына Джона. Сара выжила и родила сына, но вскоре попала в психиатрическую лечебницу, а Джон живет с приемными родителями. Но будущее неумолимо приближается и судный день (   Читать дальше...   )Производство: США, Pacific Western, Canal+, Carolco Pictures Inc., Lightstorm EntertainmentЖанр: Боевик, Фантастика, ТриллерРежиссер: Джеймс КэмеронАктеры: Арнольд Шварценеггер, Линда Хэмилтон, Эдвард Ферлонг, Роберт ПатрикПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: Корейский, Английский, Испанский, Китайский 1, Китайский 2Продолжительность: 02:17:00Реклама: Нет
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87A3B9BE26A4B0ED3A75164B0C594858388A835A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1045217   (556920) от 25.08.2016
-
-Каунт Бейси - Когда Садится Солнце (1985) Записи 1940 - 1950гг. [FLAC 1.0|96/24|image+.cue|Vinyl-Rip] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Когда Садится Солнце
-02. Пьеса Для Фортепиано
-03. Какой Медленный Блюз
-04. Привет, Мама Лоди(   Читать дальше...   )Жанр: JazzПродолжительность: 00:41:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CA72C8EA6F00CD75F694F84876057A3284DA01B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045758   (556844) от 25.08.2016
 
 Автограф - Ирландия. Ольстер (1981) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Prog Rock>
@@ -35,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556844.jpg" />
 </div>
 
 
@@ -63,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556831.jpg" />
 </div>
 
 
@@ -92,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556778.jpg" />
 </div>
 
 
@@ -121,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556681.jpg" />
 </div>
 
 
@@ -150,7 +121,7 @@ Ann Mortifee - Into the Heart of the Sangoma (2005) [DTS 5.0 CD-DA|44.1/16|image
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556678.jpg" />
 </div>
 
 
@@ -179,7 +150,7 @@ Rob Halford (Judas Priest, Fight, Two) - Studio Albums (12 releases) (1993 - 201
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556392.jpg" />
 </div>
 
 
@@ -208,7 +179,7 @@ Mike Oldfield - Crises (1983) Deluxe Edition, remaster 2013 [DTS 5.1 CD-DA|44.1/
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556383.jpg" />
 </div>
 
 
@@ -235,7 +206,7 @@ Duran Duran - Liberty (1991) Unofficial Release, 1992, Not On Label [FLAC 2.0|19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556249.jpg" />
 </div>
 
 
@@ -264,7 +235,7 @@ Johnny Cash - The Johnny Cash Collection 1955 - 1971 (1971) [FLAC 2.0|96/24|imag
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554635.jpg" />
 </div>
 
 
@@ -293,7 +264,7 @@ Stars On 45 - Звёзды Дискотек - 2 (1982) [WavPack 2.0|192/32|track
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551667.jpg" />
 </div>
 
 
@@ -322,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549186.jpg" />
 </div>
 
 
@@ -351,7 +322,7 @@ Chicago - Chicago 18 (1987) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz Rock, Po
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549161.jpg" />
 </div>
 
 
@@ -380,7 +351,7 @@ VA - Панорама '86. Фестиваль Молодежной Популя�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549071.jpg" />
 </div>
 
 
@@ -409,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548151.jpg" />
 </div>
 
 
@@ -439,7 +410,7 @@ Tin Machine - Tin Machine II (1991) [FLAC 2.0 24/192|image|Vinyl-Rip] <Alternati
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547897.jpg" />
 </div>
 
 
@@ -468,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546298.jpg" />
 </div>
 
 
@@ -497,7 +468,7 @@ Def Leppard - Pyromania (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Hard Roc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545605.jpg" />
 </div>
 
 
@@ -526,7 +497,7 @@ Alan Parsons - A Valid Path (2006) [FLAC 2.0|48/24|image+.cue|Audio-DVD] <Progre
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544718.jpg" />
 </div>
 
 
@@ -555,7 +526,7 @@ Pussycat - Blue Lights (1981) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Disco, Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544636.jpg" />
 </div>
 
 
@@ -584,7 +555,7 @@ David Lanz & Paul Speer - Desert Vision (1997) 2005 [DTS 5.1 CD-DA|44.1 /16|imag
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544111.jpg" />
 </div>
 
 
@@ -613,7 +584,7 @@ Harry Secombe - At Your Request (1958) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543687.jpg" />
 </div>
 
 
@@ -642,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542648.jpg" />
 </div>
 
 
@@ -671,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542556.jpg" />
 </div>
 
 
@@ -700,7 +671,7 @@ Pink Floyd - The Division Bell (1994) 2LP, 20th Anniversary /2014, Parlophone Re
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541029.jpg" />
 </div>
 
 
@@ -729,7 +700,7 @@ Lady Gaga - 2 альбома (2008, 2011) [DTS 5.1|Tracks (upmix)]<Pop, dance>
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539717.jpg" />
 </div>
 
 
@@ -758,6 +729,41 @@ Lady Gaga - 2 альбома (2008, 2011) [DTS 5.1|Tracks (upmix)]<Pop, dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:638ECCAF0B71D7E2996E9C7BC9A31B6600EA569A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531769   (539714) от 06.08.2012
+
+Tina Turner - Simply The Best (1991) [DTS 5.1|image (Upmix)]<Pop, Rock, R&B>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Best (4:21)
+02. Better Be Good To Me (4:04)
+03. Can't Stand The Rain (3:34)
+04. What's Love Got To Do With It (3:47)
+05. Typical Male (4:44)
+06. Private Dancer (4:22)
+07. We Don't Need Another Hero (4:48)
+08. What You Get Is What You See (4:08)
+09. I Don't Wanna Lose You (4:16)
+10. Look Me In The Heart (3:38)(   Читать дальше...   )Жанр: Pop, Rock, R&BФормат: wav+cue'Продолжительность: 01:28:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15B1BAFAD6408CFA58F7B07C733E469005AD2B15
 ```
 
 https://mybot314.ru/tekegram_catalog/

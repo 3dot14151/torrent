@@ -1,81 +1,3 @@
-###  Публикация: 1523279   (750980) от 11.01.2022
-
-Измена / Доверие / Trust (2021) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Брук и Оуэн — идеальная, на первый взгляд, пара. Молодые, красивые и успешные — она владеет частной галереей, а он работает телеведущим. Идиллию нарушает появление чертовски соблазнительного художника Ансгара, чьи откровенные картины предстоит продавать Брук. Одна деловая поездка Брук и Ансгара в Париж может изменить всё: между ними нарастает сексуальное напряжение, (   Читать дальше...   )Производство: США / DeCubellis Films, Untravelled WorldsЖанр: Мелодрама, триллер, драмаРежиссер: Брайан ДеКьюбелисАктеры: Виктория Джастис, Мэттью Даддарио, Кэтрин МакНамара, Люсьен Лависконт, Ронни Чиэн, Линдси Броад, Роза Гилмор, Клэр Кэтрин, Хилари Эдсон, Александр БлэйзПеревод: Дублированный (Lucky Production)Язык озвучки: РусскийСубтитры: Русские (forced, full) - отдельноПродолжительность: 01:34:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDC0B0F8952682977C3937F478F61DC2430FF7BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523410   (750978) от 11.01.2022
-
-Проклятие пиковой дамы / Queen of Spades (2021) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из-за того что мама всё время на работе, 13-летняя Анна проводит много времени со своей бебиситтершей и её приятелями. Однажды компания становится свидетелем страшного случая и после решает проверить правдивость старинной русской легенды о пиковой даме. Ребята уговаривают Анну провести ритуал со свечой и зеркалом, и когда злобная сущность начинает сильно портить (   Читать дальше...   )Производство: Канада / Engine 5 Films, evelFILMЖанр: УжасыРежиссер: Патрик УайтАктеры: Ава Престон, Дэниэл Кэш, Эрик Осборн, Джэми Блох, Кэйлен Ом, Набил Рахо, Криста Маршан, Мишель ЛеБланк, Микаэль Конде, Генри КвоПеревод: Дублированный (Кипарис)Язык озвучки: РусскийСубтитры: Русские (forced) - отдельноПродолжительность: 01:32:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CACC044B52C337D822AC7CDA9EF41D3A0FE303FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523364   (750974) от 11.01.2022
-
-Спенсер / Spencer (2021) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Брак принцессы Дианы и принца Чарльза трещит по швам. Злые языки судачат о романе на стороне и прогнозируют развод. Тем не менее, на рождественские праздники в поместье Сандрингем королевская семья изображает мир. Они едят и пьют за одним столом, традиционно выезжают на охоту, но сможет ли Диана продолжать эту игру?Производство: Великобритания, Германия, США, Чили / FABULA, FilmNation Entertainment, First Look Media, Komplizen Film, Shoebox FilmsЖанр: Биография, драма, мелодрамаРежиссер: Пабло ЛарраинАктеры: Кристен Стюарт, Джек Фартинг, Тимоти Сполл, Джек Нилен, Фредди Спрай, Шон Харрис, Стелла Гонет, Рихард Заммель, Элизабет Беррингтон, Лоре СтефанекПеревод: Дублированный (Кириллица)Язык озвучки: РусскийСубтитры: Русские (full) - отдельноПродолжительность: 01:56:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE24A423C66863122EA031FA4E468F00DAC59CC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1523360   (750967) от 11.01.2022
 
 Обитель зла: Раккун-Сити / Resident Evil: Welcome to Raccoon City (2021) WEB-DLRip [H.264]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750967.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750925.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750828.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750719.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750718.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_750711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_750711.jpg" />
 </div>
 
 
@@ -242,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750636.jpg" />
 </div>
 
 
@@ -268,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750631.jpg" />
 </div>
 
 
@@ -294,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750626.jpg" />
 </div>
 
 
@@ -320,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750617.jpg" />
 </div>
 
 
@@ -346,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_750601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_750601.jpg" />
 </div>
 
 
@@ -376,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750560.jpg" />
 </div>
 
 
@@ -402,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750115.jpg" />
 </div>
 
 
@@ -429,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750111.jpg" />
 </div>
 
 
@@ -456,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750050.jpg" />
 </div>
 
 
@@ -482,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749960.jpg" />
 </div>
 
 
@@ -508,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749959.jpg" />
 </div>
 
 
@@ -535,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749818.jpg" />
 </div>
 
 
@@ -561,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_749782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749782.jpg" />
 </div>
 
 
@@ -587,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749750.jpg" />
 </div>
 
 
@@ -613,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_749618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749618.jpg" />
 </div>
 
 
@@ -639,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_749603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749603.jpg" />
 </div>
 
 
@@ -665,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_749602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749602.jpg" />
 </div>
 
 
@@ -676,6 +598,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00B98E44EE6D353B767BE28465C55F2F43AE9C0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281535   (749582) от 09.02.2019
+
+Богемская рапсодия / Bohemian Rhapsody (2018) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чествование группы Queen, их музыки и их выдающегося вокалиста Фредди Меркьюри, который бросил вызов стереотипам и победил условности, чтобы стать одним из самых любимых артистов на планете. Фильм прослеживает головокружительный путь группы к успеху благодаря их культовым песням и революционному звуку, практически распад коллектива, поскольку образ жизни Меркьюри (   Читать дальше...   )Производство: Великобритания, СШАЖанр: Драма, биография, музыкаРежиссер: Брайан СингерАктеры: Рами Малек, Люси Бойнтон, Гвилим Ли, Бен Харди, Джозеф Маццелло, Эйдан Гиллен, Аллен Лич, Том Холландер, Майк Майерс, Аарон МакКаскер и др.Перевод: Дублированный (Лицензия)Субтитры: Русские (Forced, full), украинские (Forced, full), английские (SDH, SDH Colored)Продолжительность: 02:14:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06442CD23CB665F444F17E60CD7FBD78A931147F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019627   (749479) от 23.05.2016
+
+Запретная Зона 3D / Bunker of the Dead (2015) HDRip [H.264] [Line]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749479.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двое друзей Пол и Маркус находят в одном из старых дневников описание расположения секретного подземного бункера времен Второй Мировой войны. Вооружившись специальным 3D девайсом, передающим изображение «от первого лица» один из них отправляется на место, а второй помогает на расстоянии, отслеживая его перемещения и давая правильные советы.Производство: ГерманияЖанр: Ужасы, боевик, комедияРежиссер: Маттиас Олоф ЕйхАктеры: Сарита Брэдли, Патрик Янс, Кристиан Джангуирт, Хуан Карлос Лопез, Эстер Мааб, Андреас ПейпПеревод: Дублированный (чистый звук)Субтитры: ОтсутствуютПродолжительность: 01:16:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9483CE30A49819165A45B25E312BA66AAA47F450
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281628   (749460) от 09.02.2019
+
+Ничего хорошего в отеле «Эль рояль» / Bad Times at the El Royale (2018) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749460.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семь незнакомцев, у каждого из которых есть своя тайна, встречаются в заброшенном отеле «Эль Рояль» на озере Тахо. И этой ночью у каждого будет шанс на искупление… прежде чем всё пойдет к чертям.Производство: СШАЖанр: Триллер, драма, криминал, детективРежиссер: Дрю ГоддардАктеры: Крис Хемсворт, Дакота Джонсон, Джефф Бриджес, Синтия Эриво, Джон Хэмм, Кэйли Спэни, Льюис Пуллман, Ксавье Долан, Ник Офферман, Ши Уигхэ и др.Перевод: Дублированный (Лицензия Blu-ray CEE)Субтитры: Русские (полные + форс.), английские (Full), английские (SDH)Продолжительность: 02:21:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:708136009698A0E33347D1D86B96E52A5F3CAE4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

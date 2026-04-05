@@ -1,3 +1,59 @@
+###  Публикация: 1417776   (353675) от 22.10.2020
+
+Moneydance 2021 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Менеджер по личным финансам
+Moneydance - это простое в использовании программное обеспечение для личных финансов, в котором есть все необходимые функции: онлайн-банкинг и оплата счетов, управление счетами, составление бюджета и отслеживание инвестиций.
+Moneydance с легкостью справляется с несколькими валютами и практически с любыми финансовыми задачами.Тип издания: macOS SoftwareРелиз состоялся: 21.10.2020Разработчик: The Infinite KindПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7541C7E0574E18EF18F63701D0C523C80A90BA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256621   (353570) от 22.10.2018
+
+Magic Retouch Pro 4.3 - panel for Adobe Photoshop [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Magic Retouch Pro - плагин для Photoshop, с которым вы можете сделать профессиональный уровень ретуши фотографий без каких-либо знаний о ретуши. Полная ретушь кожи и цифровое решение для макияжа. Плагин имеет все необходимые инструменты, чтобы сделать красоту ретуши прямо в Photoshop.
+
+Magic Retouch Pro, может быть использован в режиме панели плагина. Панель также (   Читать дальше...   )Тип издания: macOS / Windows SoftwareРелиз состоялся: 2018Разработчик: Intaglio Graphics & MultimediaПоддерживаемая ОС: OS X / WindowsЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4A3D77F9D9C5288B3EF104A49560705E1524ED8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1178902   (353556) от 29.10.2017
 
 DesiGN Brochures Templates 2.7 [En]
@@ -6,7 +62,7 @@ DesiGN Brochures Templates 2.7 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353556.jpg" />
 </div>
 
 
@@ -34,7 +90,7 @@ Fake 1.8.10 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353440.jpg" />
 </div>
 
 
@@ -60,7 +116,7 @@ Boxy: email client for "Inbox by Gmail" 2.0.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353295.jpg" />
 </div>
 
 
@@ -89,7 +145,7 @@ Nisus Writer Pro 3.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352430.jpg" />
 </div>
 
 
@@ -115,7 +171,7 @@ Runway 1.8.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352396.jpg" />
 </div>
 
 
@@ -143,7 +199,7 @@ Artstudio Pro 4.1.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352321.jpg" />
 </div>
 
 
@@ -169,7 +225,7 @@ NetNewsWire 4.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352279.jpg" />
 </div>
 
 
@@ -196,7 +252,7 @@ DivX Pro 9 [Eng]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_352225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_352225.jpg" />
 </div>
 
 
@@ -224,7 +280,7 @@ BestZip 2-Unarchive 7z&rar&zip 1.6.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352198.jpg" />
 </div>
 
 
@@ -250,7 +306,7 @@ PureBasic 6.00 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352190.jpg" />
 </div>
 
 
@@ -276,7 +332,7 @@ FileMaker Pro 19 v.19.5.4.401 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352188.jpg" />
 </div>
 
 
@@ -303,7 +359,7 @@ Xilisoft Video Converter Ultimate 7.3.0 [Eng]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_352101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_352101.jpg" />
 </div>
 
 
@@ -329,7 +385,7 @@ Mirror for Sony TV 3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351999.jpg" />
 </div>
 
 
@@ -358,7 +414,7 @@ Artistry Photo Pro: Photo Edit 3.0.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351994.jpg" />
 </div>
 
 
@@ -384,7 +440,7 @@ NotePlan - Markdown Calendar 1.6.30 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351895.jpg" />
 </div>
 
 
@@ -411,7 +467,7 @@ Hot Door CADtools 10 for Adobe Illustrator 10.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351589.jpg" />
 </div>
 
 
@@ -437,7 +493,7 @@ Forecast Bar - Weather + Radar 5.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351559.jpg" />
 </div>
 
 
@@ -464,7 +520,7 @@ Rectangle 0.36 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351483.jpg" />
 </div>
 
 
@@ -490,7 +546,7 @@ KeePassXC 2.6.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351482.jpg" />
 </div>
 
 
@@ -516,7 +572,7 @@ DesiGN Flyers Templates 1.9 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351278.jpg" />
 </div>
 
 
@@ -542,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351277.jpg" />
 </div>
 
 
@@ -568,7 +624,7 @@ Archiver 3 v3.0.9 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351241.jpg" />
 </div>
 
 
@@ -597,7 +653,7 @@ Boinx Mousepose 3.2.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351179.jpg" />
 </div>
 
 
@@ -626,7 +682,7 @@ VirtualBox 6.1.16 for Mac v6.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350937.jpg" />
 </div>
 
 
@@ -639,61 +695,6 @@ VirtualBox активно развивается с частыми обновл�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E403BF37DB183155C4F1DFA902CB6B913B5BB99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953231   (350842) от 03.11.2015
-
-AppCleaner 3.1 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350842.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перенести программу в Корзину недостаточно для того, чтобы удалить ее с компьютера. Разбросанные по разным папкам служебные данные, которые были нужны удаленному приложению, все равно останутся на месте. Убрать этот «мусор» позволит утилита AppCleaner.
-
-Конечно, это не единственное средство так называемой чистой деинсталляции программ. Как и другие аналогичные утилиты, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 ноября 2015Разработчик: FreeMacSoftПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD4542DBA75202CD603CDEAC910E019C8912B835
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577982   (350292) от 21.09.2022
-
-DxO ViewPoint 3 v.3.4.0 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350292.jpg" />
-</div>
-
-
-###  Подробнее
-
-DxO ViewPoint — окончательная победа над геометрическими искажениями.
-DxO ViewPoint — программное решение, посвященное исправлению искаженных элементов на краях фотоснимка, а также устранения трапецеидальных искажений и других проблем с перспективой. На основе разработанной DxO Labs технологии геометрической коррекции, DxO ViewPoint позволяет легко и эффективно восстановить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.09.2022Разработчик: © 2022 DxO LabsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский , Французский, Немецкий и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8148196C7B09CB3D21B2A62970497263C3E6402
 ```
 
 https://mybot314.ru/tekegram_catalog/

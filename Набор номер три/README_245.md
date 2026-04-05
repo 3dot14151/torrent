@@ -1,3 +1,163 @@
+###  Публикация: 368034   (722088) от 15.02.2022
+
+Serious Sam / Крутой Сэм (2003) [Ru] (1.0) License [Gold Edition / Золотое издание]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722088.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крутой Сэм опять в бою. Сэм не удержим в борьбе с врагом всего человечества Менталом! После скитания по Египту среди пирамид Сэм находит космический корабль. На нём Крутой Сэм пытается добраться до логова Ментала...
+
+Но не фарт, корабль терпит крушение в горах Южной Америки. Теперь Сэму предстоит битва за битвой на пути к логову Ментала...
+(   Читать дальше...   )Тип издания: LicenseРазработчик: CroteamЖанр: Шутeр от первого лицаЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD3426B3FCDEC7B4CB1D81341609F48E24E1A896
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129041   (722008) от 28.04.2017
+
+Елена Мизулина указала на опасность развития новой интернет-зависимости
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_722008.jpg" />
+</div>
+
+
+###  Подробнее
+
+По словам сенатора, зависимость от просмотра порнофильмов сопоставима с наркозависимостью
+Зависимость от просмотра порнофильмов, формирующаяся из-за доступности соответствующих роликов в интернете, сопоставима с наркозависимостью. Об этом в среду заявила сенатор Елена Мизулина, выступая на Форуме безопасного интернета, который проходит в ТАСС."Сегодня во всю (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129515   (721924) от 28.04.2017
+
+Westboro (2017) [Ru/En] (1.00) License CODEX
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721924.jpg" />
+</div>
+
+
+###  Подробнее
+
+2039. Вода больше не является экологически возобновляемым ресурсом. Большинство источников слишком загрязнены и токсичны, чтобы быть пригодными для какого-либо использования человеком. По мере того как население планеты выросло до 12.4 млрд, водный кризис стал проблемой номер один. Оставшиеся запасы рано или поздно закончатся. Транснациональная корпорация SICON удерживает (   Читать дальше...   )Тип издания: LicenseРазработчик: Carbomb SoftwareЖанр: Action (Top-Down), Adventure, RPG, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BE68C9CBFF73F5A039F84ED651FABBC69CDF3C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128898   (721921) от 28.04.2017
+
+AMD Radeon Vega будет сравнима по производительности с NVIDIA GTX 1080 Ti и Titan Xp
+
+>>3
+>>24
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_721921.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время сеанса AMA (сообщество задает вопросы) с ресурсом Tom's Hardware, менеджер по маркетингу процессоров AMD Дональд Волигроски (Donald Woligroski) ответил на множество вопросов, связанных с платформой AMD Ryzen, а также он не уклонился от ответов по поводу производительности грядущих видеокарт Radeon Vega. И пусть Дональд и не из графического сегмента AMD, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129256   (721920) от 28.04.2017
+
+Логан / Logan (2017) WEBRip [H.264] [AVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721920.jpg" />
+</div>
+
+
+###  Подробнее
+
+В недалеком будущем уставший от жизни Логан заботится о больном профессоре Икс, который прячется неподалеку от мексиканской границы. Но Логан больше не сможет скрывать свое прошлое, когда встретится с юным мутантом, которого преследуют темные силы.Производство: СШАЖанр: Фантастика, Боевик, ДрамаРежиссер: Джеймс МэнголдАктеры: Хью Джекман, Патрик Стюарт, Дафни Кин, Бойд Холбрук, Стивен Мерчант, Элизабет Родригес, Ричард Э. Грант, Эрик Ла Салль, Элиз Нил, Куинси ФаусПеревод: Одноголосый закадровый, авторский - SolodСубтитры: вшитые китайские. заблюрены.Продолжительность: 02:17:20Реклама: отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65DB45CD99F3C7682DEFF8030DB33466B4393F1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023880   (721823) от 06.06.2016
+
+Freemake Video Converter 4.1.9.14 RePack by CUTA [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721823.jpg" />
+</div>
+
+
+###  Подробнее
+
+Freemake Video Converter - это бесплатное универсальное приложение, которое предлагает вниманию пользователей инструменты для быстрого конвертирования видеоматериалов в распространенные форматы, их последующего редактирования и записи на оптические носители. С помощью Freemake Video Converter энтузиасты также смогут выполнять некоторые другие действия, например, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB7911CE9AF29749ACE4839FF5CFB379D6EF7A10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 710884   (721741) от 27.05.2014
 
 Однажды в сказке / В Некотором Царстве / Давным-давно / Once Upon A Time (2013) WEB-DLRip [сезон 3, серии 01-22 из 22] (Кубик в Кубе)
@@ -6,7 +166,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721741.jpg" />
 </div>
 
 
@@ -32,7 +192,7 @@ ZverDvD Final 2014.5 + Alkid SE [Ru] (Официальная раздача)
 >>21
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721740.jpg" />
 </div>
 
 
@@ -59,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_721706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_721706.jpg" />
 </div>
 
 
@@ -85,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_721505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_721505.jpg" />
 </div>
 
 
@@ -111,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_721504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_721504.jpg" />
 </div>
 
 
@@ -138,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721488.jpg" />
 </div>
 
 
@@ -164,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721486.jpg" />
 </div>
 
 
@@ -190,7 +350,7 @@ Acronis True Image 19.0.6571 / Universal Restore 11.5.40028 / Disk Director 12.0
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721485.jpg" />
 </div>
 
 
@@ -216,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721484.jpg" />
 </div>
 
 
@@ -242,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720984.jpg" />
 </div>
 
 
@@ -268,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_720969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_720969.jpg" />
 </div>
 
 
@@ -297,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720895.jpg" />
 </div>
 
 
@@ -326,7 +486,7 @@ Mafia III / Мафия 3 (2016) [Ru/En] (1.090.0.1/dlc) Repack xatab [Digital De
 >>46
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720894.jpg" />
 </div>
 
 
@@ -352,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_720811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_720811.jpg" />
 </div>
 
 
@@ -380,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_720669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_720669.jpg" />
 </div>
 
 
@@ -407,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_720627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_720627.jpg" />
 </div>
 
 
@@ -433,7 +593,7 @@ ABBYY Lingvo X6 Professional 16.2.2.133 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720613.jpg" />
 </div>
 
 
@@ -459,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720612.jpg" />
 </div>
 
 
@@ -485,7 +645,7 @@ KMS Tools Portable 01.08.2020 by Ratiborus [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720611.jpg" />
 </div>
 
 
@@ -511,7 +671,7 @@ Windows 7 SP1 4in1 (x64) Elgujakviso Edition (v.25.02.19) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720384.jpg" />
 </div>
 
 
@@ -524,165 +684,6 @@ Windows 7 SP1 4in1 (x64) Elgujakviso Edition (v.25.02.19) [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B95CF07F5FEE9970BD2ECA42FD87B785475E6AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285411   (720380) от 26.02.2019
-
-Зелёная книга / Green Book (2018) WEBRip [H.264/720p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720380.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утонченный светский лев, богатый и талантливый музыкант нанимает в качестве водителя и телохранителя человека, который менее всего подходит для этой работы. Тони «Болтун» — вышибала, не умеющий держать рот на замке и пользоваться столовыми приборами, зато он хорошо работает кулаками. Это турне навсегда изменит жизнь обоих.
-Основано на реальных событиях.Производство: США / Participant Media, DreamWorks, Amblin PartnersЖанр: Драма, Комедия, БиографияРежиссер: Питер ФарреллиАктеры: Вигго Мортенсен, Махершала Али, Линда Карделлини, Себастьян Манискалко, Димитар Маринов, Майк Хаттон, П.Дж. Бирн, Джозеф Кортезе, Мэгги Никсон, Фон ЛьюисПеревод: Дублированный (iTunes), многоголосый закадровый (HDRezka Studio)Субтитры: Русские (полные)Продолжительность: 02:10:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99493727A9DBC6ECA8E476BBE0ED46E9246399DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069291   (720379) от 26.02.2019
-
-OS X FOR BDU - ACTUALLY BUILDS [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720379.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузочные разделы (5.hfs) с инсталляторами OS X 10.7.5 - macOS 10.14.3, для восстановления на второй раздел флешки через BDU.
-+ Инсталляторы разделов для восстановления (RecoveryHD).
-+ BDU_FAQ_STARCOM_v1.0.3.pdf.Тип издания: Авторская раздачаРелиз состоялся: 24 Февраля, 2019.Разработчик: Apple IncЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB4CC05E63127EB9D6394111BD6ADD30DC9C4677
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531523   (720148) от 16.02.2022
-
-Intel будет предлагать дополнительные функции процессоров за отдельную плату
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_720148.jpg" />
-</div>
-
-
-###  Подробнее
-
-Технология Intel SDSi позволит процессорам Xeon устанавливать новые обновления сразу после покупки.Компания Intel намерена предоставлять пользователям возможность разблокировать дополнительные функции процессоров за отдельную плату. Технология Intel SDSi позволит процессорам Xeon внедрять новые функции и устанавливать обновления непосредственно на процессоры сразу (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129351   (719970) от 29.04.2017
-
-Microsoft советует не устанавливать Creators Update для Windows 10 вручную
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_719970.jpg" />
-</div>
-
-
-###  Подробнее
-
-Корпорация Microsoft около двух недель назад представила финальную версию нового кумулятивного апдейта для своей ОС Windows 10. Это обновление добавляет несколько новых функций плюс исправляет существующие проблемы операционной системы. Правда, на днях в своем блоге корпорация разместила обращение к пользователям, в котором просит не устанавливать Creators Update (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129662   (719964) от 29.04.2017
-
-Викинг (2016) BDRip [H.264/720p-LQ] [Unrated, GER Transfer]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раннее Средневековье. Время тяжелых мечей и темных законов крови. Правящий род в раздоре. Вина за случайную смерть брата легла на Великого Князя. По закону мстить ему должен младший брат - бастард. За отказ убивать он заплатит всем, что у него было, потому что «для мира нужно больше мечей, чем для войны».Производство: Россия / Дирекция КиноЖанр: История, ДрамаРежиссер: Андрей КравчукАктеры: Данила Козловский, Светлана Ходченкова, Максим Суханов, Игорь Петренко, Андрей Смоляков, Владимир Епифанцев, Александра Бортич, Ростислав БершауэрПеревод: Не требуется (Русский, Лицензия BD GER)Субтитры: ОтсутствуютПродолжительность: 02:22:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:940F2D146D9772C052A4B2574C9F7EF18B2D4709
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 790261   (719730) от 28.05.2014
-
-Трудно быть Богом (2013) BDRip [H.264]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: Россия / Ленфильм, Студия СеверЖанр: Драма, ФантастикаРежиссер: Алексей ГерманАктеры: Леонид Ярмольник, Юрий Цурило, Наталья Мотева, Александр Чутко, Евгений Герчаков, Валентин Голубенко, Пётр Меркурьев, Олег Ботин, Константин Быков, Юрий ДумчевПеревод: Не требуетсяПродолжительность: 02:57:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31939742AD7C4C889CAE0F0582E303F27863AE8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

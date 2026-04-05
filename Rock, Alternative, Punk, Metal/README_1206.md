@@ -1,3 +1,38 @@
+###  Публикация: 473205   (84272) от 25.03.2012
+
+The Korea - Колесницы Богов (2012) [FLAC|Lossless]<Progressive Metalcore / Djent>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кобра (3:47)
+02. Ватерлиния (4:46)
+03. Манускрипт (5:18)
+04. Зомби (5:02)
+05. Нева (2:52)
+06. Я Понял, Чего Ты Ждёшь (4:48)
+07. Армада (4:48)
+08. Валгалла (3:48)
+09. Поцелуй Иуды (4:36)
+10. Xiii (2:53)(   Читать дальше...   )2012Жанр: Progressive Metalcore / DjentПродолжительность: 00:50:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 472775   (84134) от 24.03.2012
 
 The Byrds - [31 альбом] Дискография (1965-2008) [MP3|320 кб/с]<Folk-Rock,Psych-Folk>
@@ -6,7 +41,7 @@ The Byrds - [31 альбом] Дискография (1965-2008) [MP3|320 кб/�
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84134.jpg" />
 </div>
 
 
@@ -41,7 +76,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83930.jpg" />
 </div>
 
 
@@ -76,7 +111,7 @@ Meshuggah - Koloss (2012) [FLAC|Lossless]<Progressive Post-Thrash / Math Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83918.jpg" />
 </div>
 
 
@@ -111,7 +146,7 @@ Overkill - 15 альбомов (1988 - 2010) Japanese Edition [FLAC|Lossless]<Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83851.jpg" />
 </div>
 
 
@@ -146,7 +181,7 @@ Pythia - 2 альбома (2009 - 2012) [FLAC|Lossless]<Power Metal,Symphonic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83825.jpg" />
 </div>
 
 
@@ -189,7 +224,7 @@ VA - Time Life - Hard and Heavy Box Set 9CD (2008) [MP3|320 кб/с]<Rock, Hard 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83639.jpg" />
 </div>
 
 
@@ -215,7 +250,7 @@ Esperanto - 3 альбома [Дискография] (1973-1975) [MP3|320 кб/
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83619.jpg" />
 </div>
 
 
@@ -248,7 +283,7 @@ Cannibal Corpse - 12 альбомов (1990 - 2012) [MP3|320 кб/с]<Brutal dea
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83514.jpg" />
 </div>
 
 
@@ -283,7 +318,7 @@ Bruce Springsteen - Wrecking Ball (2012) [MP3|320 кб/с]<Folk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83406.jpg" />
 </div>
 
 
@@ -318,7 +353,7 @@ Manny Charlton Band (ex-Nazareth) - Stonkin' (2000) [FLAC|Lossless]<Classic Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83259.jpg" />
 </div>
 
 
@@ -352,7 +387,7 @@ Judas Priest - 16 Альбомов (1974-90) 2011 Remastered / 2012, Sony Music,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83149.jpg" />
 </div>
 
 
@@ -381,7 +416,7 @@ Led Zeppelin - The Best Ballads (2002) [MP3|320 кб/с]<Classic Rock | Blues Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82921.jpg" />
 </div>
 
 
@@ -416,7 +451,7 @@ Soulfly - Enslaved (2012) [FLAC|Lossless]<Groove Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82826.jpg" />
 </div>
 
 
@@ -451,7 +486,7 @@ Marilyn Manson - No Reflection (Single) (2012) [MP3|320 кб/с]<Alternative, In
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82824.jpg" />
 </div>
 
 
@@ -478,7 +513,7 @@ Soen - Cognitive (2012) [FLAC|Lossless]<Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82813.jpg" />
 </div>
 
 
@@ -513,7 +548,7 @@ George Strait - [41 альбом] Дискография (1981 - 2009) [MP3|~192
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82796.jpg" />
 </div>
 
 
@@ -548,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82681.jpg" />
 </div>
 
 
@@ -583,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82594.jpg" />
 </div>
 
 
@@ -618,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82040.jpg" />
 </div>
 
 
@@ -644,7 +679,7 @@ Shocking Blue - The Very Best Of (1989) G.G.K. [APE|Lossless]<Rock, Nederbeat, P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82021.jpg" />
 </div>
 
 
@@ -679,7 +714,7 @@ Blue October - Any Man In America (2011) [MP3|320 кб/с]<Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81800.jpg" />
 </div>
 
 
@@ -714,7 +749,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81704.jpg" />
 </div>
 
 
@@ -749,7 +784,7 @@ Lee Small - Jamaica Inn (2012) [FLAC|lossless]<Hard Rock / Blues>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81656.jpg" />
 </div>
 
 
@@ -784,7 +819,7 @@ ZZ Top - The Best Blues & Ballads (2001) [MP3|320 кб/с]<Rock, Blues>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81453.jpg" />
 </div>
 
 
@@ -819,7 +854,7 @@ Tiamat – Wildhoney (1994) Original Non-Remastered Pressing /1994, Century Medi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81211.jpg" />
 </div>
 
 
@@ -829,41 +864,6 @@ Tiamat – Wildhoney (1994) Original Non-Remastered Pressing /1994, Century Medi
 02. Whatever That Hurts (05:48)
 03. The Ar (05:04)
 04. 25th Floor (01:50)(   Читать дальше...   )Жанр: Progressive, Death, Goth MetalПродолжительность: 00:42:04
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464568   (81162) от 10.03.2012
-
-Heaven's Gate (Heavens Gate) - 3 альбома (1989-1992) [FLAC|Lossless]<Heavy/Power-metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Under Fire
-02. Hell For Sale!
-03. He's The Man
-04. Starts 'N' Stripes
-05. America
-06. Atomic
-07. Rising Sun
-08. No Matter
-09. Up An' Down
-10. Don't Bring Me Down(   Читать дальше...   )1989-1992Жанр: Heavy/Power-metalПродолжительность: 02:43:05
 
 ## Скачать торент
 ```bash

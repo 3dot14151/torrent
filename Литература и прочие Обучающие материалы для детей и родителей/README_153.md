@@ -1,3 +1,29 @@
+###  Публикация: 1018603   (755523) от 20.05.2016
+
+Мартин Гарднер, Сэм Лойд | Самые знаменитые головоломки мира (1999) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник математических задач и увлекательных головоломок, принадлежащий перу одного из классиков этого жанра Сэма Лойда, несомненно доставит большое удовольствие всем любителям занимательной математики.Жанр: Головоломки, развлеченияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:508B5851A6EBE808AC84EAD94CDB90A14BF26DED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1395463   (755489) от 10.07.2020
 
 Е. Измайлова (ред.) | Сделать счастливыми наших детей [3 книги] (2016) [EPUB]
@@ -6,7 +32,7 @@
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755489.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755478.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_755405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_755405.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755315.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755308.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755305.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755192.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755165.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755156.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755155.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755058.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755054.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755037.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754654.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754372.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753824.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753805.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753788.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753742.jpg" />
 </div>
 
 
@@ -512,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753738.jpg" />
 </div>
 
 
@@ -540,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753722.jpg" />
 </div>
 
 
@@ -568,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753642.jpg" />
 </div>
 
 
@@ -594,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753415.jpg" />
 </div>
 
 
@@ -620,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753363.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753303.jpg" />
 </div>
 
 
@@ -657,34 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A97472C3013CAE411CDECD38D30CAFE1C49D967A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523260   (753161) от 10.01.2022
-
-Андрей Шляхов | Генетика на пальцах (2022) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Генетику принято считать трудной для понимания, но на самом деле все логичное понять легко, если двигаться в правильном направлении – от простого к сложному. Эта книга как раз так и написана. Она познакомит вас с основами генетики и многочисленными способами ее практического применения, а также даст научные ответы на имеющиеся у вас вопросы.
-
-Чем ДНК отличается от (   Читать дальше...   )Жанр: Генетика, Детская познавательная и развивающая литература, Научно-популярная литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3240E6D4A517C2FDED697C0D8425572C4B5DEE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

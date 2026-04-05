@@ -6,7 +6,7 @@ Zombieville USA 1.0.4 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503989.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_503935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_503935.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503750.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503661.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503658.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Football Scores - 365Scores 12.0.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503621.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ SmartNews: Local Breaking News 22.7.20 Mod by TryRoom [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503527.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Easy Notes - Заметки и блокнот 1.1.31.0707 Mod by Apps Store [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503435.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ PowerDirector - Видеоредактор 10.3.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503432.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Digitally Imported DI.FM Radio 13.08.15 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503178.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Auto Swapping Sim Full v2.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503097.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Charge - Icon Pack 2.8 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503096.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ CPU-Z V1.15 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503087.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Farming Simulator 16 v1.0.0.6 [Mod Money] [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503083.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ AutomateIt Pro v4.1.155 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503012.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Battleheart 1.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502936.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502464.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ InShot - Фото и видеоредактор 1.840.1360 Mod by Apps Store [Ru
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501487.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ BSPlayer Pro 3.14.238-20220704 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501440.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ MAYDAY! Вынужденная посадка v.1.0.18. [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501246.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ AR Ruler App v1.7.4 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501182.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501169.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Edjing Pro – Music DJ Mixer 1.1.2 Build 26 [En] - Диджеинг, ремик
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501162.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Greenify версия: 2.7.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500998.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500995.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Gem Miner: Dig Deeper 1.3 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500881.jpg" />
 </div>
 
 

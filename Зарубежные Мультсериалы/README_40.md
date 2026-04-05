@@ -1,3 +1,55 @@
+###  Публикация: 1605527   (255078) от 17.04.2023
+
+Звёздные войны: Бракованная партия / Star Wars: The Bad Batch (2023) WEB-DLRip [H.264/1080p] (сезон 2, серии 1-16 из 16) NewComers, AlexFilm, HDRezka Studio, Lostfilm
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет сосредоточен вокруг экспериментального отряда генно-модифицированных клонов, которые не попали под действие чипов во время поступления «Приказа 66» и стали врагами новому имперскому порядку. Пятеро солдат не могут заставить себя казнить невинных гражданских лиц и обвиняются в государственной измене. Главные герои находят поддержку в лице молодого рекрута, ребенка (   Читать дальше...   )Производство: США, Disney+, Lucasfilm Animation, Lucasfilm Ltd.Жанр: мультфильм, фантастика, фэнтези, боевик, драма, приключенияРежиссер: Стюарт Ли, Сол Руис, Брэд РауАктеры: Ди Брэдли Бэйкер, Эрнесто Баутиста, Мин-На Вэнь, Арчи Панджаби, Бен Дискин, Мэттью Вуд, Мишель Энг, Фредди Принц мл., Боб Берген, Гвендолин Ео, Том Кэйн, Бонни Вайлд, Эндрю Кисино, Стефен СтэнтонПеревод: Многоголосый профессиональный (NewComers, AlexFilm, HDRezka Studio, Lostfilm)Язык озвучки: русский, английскийСубтитры: русские (Forced, Full), английские (SDH), немецкие, французские, итальянские, испанские, голландские, португальскиеПродолжительность: ~00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FD5525DAC8A4B10395B16AF215873F73F449213
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 384253   (254725) от 27.04.2023
+
+Пираты темной воды / The Pirates of Dark Water (1991-1992) DVDRip (Сезон 1-3, Серии 21 из 21) Radamant
+
+>>След.
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254725.jpg" />
+</div>
+
+
+###  Подробнее
+
+В таинственном и полном опасностей водном мире планеты Мер бесстрашный 17-летний принц Рен должен спасти свое королевство от безжалостного повелителя пиратов Блота, отыскав легендарные тринадцать Сокровищ Правления.Производство: США, Fil Cartoons Inc.Жанр: детский, приключения, фэнтезиРежиссер: Дон Ласк, Рэй Паттерсон, Пол СоммерАктеры: Джордж Ньюберн, Гектор Элизондо, Фрэнк Уэлкер, Джоди Бенсон и др.Перевод: Одноголосый любительский (Radamant)Субтитры: ОтсутствуютПродолжительность: ~ 00:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B391B776ABE2D64F62DC85022BDC49CC9F3ACA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 496646   (253849) от 17.05.2012
 
 Финес и Ферб / Phineas and Ferb (1 сезон, 26 серии из 26) (2007-2008) [H.264/720p] HDTVRip
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253849.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251772.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249429.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249425.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ Splinter Cell: Караул смерти / Splinter Cell: Deathwatch (2025) WEBR
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248586.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247830.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Splinter Cell: Караул смерти / Splinter Cell: Deathwatch (2025) WEB-
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247716.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247676.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247673.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247211.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247176.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246923.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246271.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246266.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246102.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246077.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245581.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245361.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244770.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244208.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243787.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243492.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243461.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243120.jpg" />
 </div>
 
 
@@ -619,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2222F26AB4F12435AFD1C23D8405612AFDA86038
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624245   (242681) от 05.04.2023
-
-Гэри и его демоны / Gary and His Demons (2023) WEBRip [H.264/1080p-LQ] (сезон 2, серии 1-10 из 10) HDRezka Studio
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гэри — ветеран правительственного департамента по отлову и уничтожению демонов, который был создан после масштабного вторжения сил зла в наш мир. В войне с силами Ада он потерял много друзей и любимую, но приобрёл стальной цинизм, язвительное чувство юмора и желание уйти на пенсию. Но вот беда, ему до сих пор не нашли замену. И снова ему одному приходится тянуть (   Читать дальше...   )Производство: Канада, Mondo MediaЖанр: Для взрослых, ужасы, фэнтези, боевик, драма, комедияРежиссер: Марк Литтл, Лу СолисАктеры: Марк Литтл, Кайл Дули, Кайла Лоретт, Мигель Ривас, Сара Гарсиа, Эмма Хантер, Палома Нунез, Дэвид БерниПеревод: профессиональный многоголосый (HDRezka Studio)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: ~00:11:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0B3BD0F23DA714CFBD9C26D115FD0BDE4570DAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538227   (242512) от 11.04.2022
-
-Думлэндс / Doomlands (2022) WEB-DLRip (сезон 1, серия 1-10 из 10) NewStation
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал рассказывает о жизни печально известного Дэнни Дума и начинающего бармена Ланди, которые разливают пиво по адской пустоши в своем передвижном пабе «Оазис». Столкнувшись с безжалостными пустынными бандами, уродами, крадущими память, и даже ужасными граффити в ванной, все, что нужно сделать этой команде, чтобы выжить, — это не убивать друг друга.Производство: США, Канада, Look Mom! ProductionsЖанр: Для взрослых, мультфильм, комедия, приключенияРежиссер: Марк Литтл, Кайла Лоретт, Джош О'кифАктеры: Кайла Лоретт, Эшли Поупелка, Марк Литтл, Скотт Фарли, Джош КруддасПеревод: Многоголосый профессиональный (NewStation) Присутствует ненормативная лексика!Субтитры: отсутствуютПродолжительность: ~00:10:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E052884EC245F4B630706AE2F8BD04BA6DDA9618
 ```
 
 https://mybot314.ru/tekegram_catalog/

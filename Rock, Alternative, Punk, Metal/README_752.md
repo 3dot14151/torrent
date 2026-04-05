@@ -1,3 +1,32 @@
+###  Публикация: 1260723   (309977) от 08.11.2018
+
+Suzi Quatro - Original Hits (1995) [MP3|320 Kbps] <Glam Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can The Can
+02. Daytona Demon
+03. All Shook Up
+04. Keep A Knockin'(   Читать дальше...   )Жанр: Glam Rock, Hard RockПродолжительность: 00:54:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BB8A9493286CF0900345E4DB10A0130589AA31F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 960120   (309953) от 27.11.2015
 
 Aerosmith - Collections (2007) [MP3|~225 кб/с (V1)]<Rock, Hard Rock>
@@ -6,7 +35,7 @@ Aerosmith - Collections (2007) [MP3|~225 кб/с (V1)]<Rock, Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309953.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309941.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Foreigner - The Very Best...And Beyond (1992) [FLAC|tracks+.cue]<Hard Rock, Aren
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309937.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Fish - Songs From The Mirror (1993) [FLAC|image + .cue]<Folk Rock, Pop Rock, Pro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309935.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Waterparks - FANDOM (2019) Limited Edition [FLAC|Lossless|tracks + .cue] <Pop Pu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309870.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ All That Remains - Victim of the New Disease (2018) [MP3|320 Kbps] <Melodic Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309842.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Bee Gees - This Is Where I Came In (2001) [FLAC|tracks+.cue]<Soft Rock, Pop Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309816.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Last Temptation - Last Temptation (2019) [FLAC|Lossless|tracks + .cue] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309727.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Nico Vega - Wars (2018) EP [MP3|320 Kbps] <Alternative Rock, Indie Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309723.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ The Rasmus - Dark Matters (2017) [FLAC|Lossless|image + .cue] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309677.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ The Hu - The Gereg (Digipak) (2019) [FLAC|Lossless|image + .cue] <Folk Rock, Ove
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309538.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309453.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Jeff Lynne's ELO - From Out Of Nowhere (2019) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309367.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Swans - Leaving Meaning (2019) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Post-P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309366.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Imagine Dragons - Origins (2018) European Deluxe [FLAC|Lossless|tracks + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309345.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309314.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Imagine Dragons - Origins (2018) Deluxe Edition [MP3|320 Kbps] <Indie Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309138.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Rock Candy Funk Party (featuring Joe Bonamassa) - 4 albums (2013-2017) Discograp
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309125.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ The Blackbirds - No Destination (1968) Remastered, 2005, Long Hair [MP3|320 Kbps
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309074.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Cliff Richard - Just... Fabulous Rock 'n' Roll (2016) [FLAC|Lossless|WEB-DL|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309066.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Tony Carey - For You: Best Of 1988 - 1990 (1993)  [FLAC|Lossless|image + .cue]<C
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308893.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Mors Principium Est - 5 albums (2003-2014) [MP3|320kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308872.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ TCP (Temporal Chaos Project) - Temporal Chaos (2016) [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308852.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ USM (United States Of Mind) - Silver Step Child (2000) [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308847.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ Black Sabbath - Best Ballads (1996) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308722.jpg" />
 </div>
 
 
@@ -714,35 +743,6 @@ Black Sabbath - Best Ballads (1996) [MP3|320 Kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90F67873EC5F55FEBC0C80E7C3939B8D82F3A22A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422561   (308695) от 09.11.2020
-
-S.O.T.O. - Origami (2019) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. HyperMania
-02. Origami
-03. BeLie
-04. World Gone Colder(   Читать дальше...   )Жанр: Hard Rock, Melodic MetalПродолжительность: 00:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A18D9FEE837EF20CB13647925CB81EF063EEE77
 ```
 
 https://mybot314.ru/tekegram_catalog/

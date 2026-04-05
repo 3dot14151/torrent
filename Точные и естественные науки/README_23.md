@@ -1,3 +1,84 @@
+###  Публикация: 1068120   (382659) от 31.10.2016
+
+В. Бэльше | Происхождение человека (1908) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемая книжка обращается к возможно более широким кругам ,— к тем, которым остается неизвестной масса превосходных, но гораздо более пространных новейших сочинений по научному языку. Она написана так сжато, что может быть прочтена в какой-нибудь один свободный час; но, я думаю, что изложенных в ней фактов достаточно на несколько часов серьезного размышления. (   Читать дальше...   )Жанр: История, науковедение, естествознание, биология, антропологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B14C94014ADBFB697B6FF532E11F79FD55A6B9D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068007   (382495) от 31.10.2016
+
+И. Я. Депман | Из истории математики (1950) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вниманию читателей предлагается книга известного отечественного педагога и историка математики И.Я . Денмана (1885-1970), в которой описывается, как возникли и развивались основные разделы и понятия начальной математики. В книге рассказано о зарождении математики у древнейших народов - вавилонян, египтян, индусов; дана картина математических знаний у армян, народов (   Читать дальше...   )Жанр: История, науковедение, математика, педагогика, арифметика, алгебра, геометрияФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CA486A2A25A293625660130AA1CD603A60E1929
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067992   (382226) от 31.10.2016
+
+Э. Геккель | Красота форм в природе (1899-1904) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382226.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Красота форм в природе» — литографическая книга немецкого биолога Эрнста Геккеля. Первоначально публиковалась в период с 1899 по 1904 годы в комплектах по 10 оттисков, полная версия из 100 оттисков вышла в 1904 году.
+
+Второе издание книги, которое содержало лишь 30 оттисков, вышло в 1924 году.
+(   Читать дальше...   )Жанр: История, науковедение, естествознание, экологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AA717B2202A961DAC564D766255BBF753444E66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948989   (379476) от 22.10.2015
 
 Б. Е. Райков | Предшественники Дарвина в России (1956) [DJVU]
@@ -6,7 +87,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379476.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379369.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378341.jpg" />
 </div>
 
 
@@ -86,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378192.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377422.jpg" />
 </div>
 
 
@@ -140,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377335.jpg" />
 </div>
 
 
@@ -166,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373360.jpg" />
 </div>
 
 
@@ -192,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372271.jpg" />
 </div>
 
 
@@ -218,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372150.jpg" />
 </div>
 
 
@@ -246,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372144.jpg" />
 </div>
 
 
@@ -272,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371879.jpg" />
 </div>
 
 
@@ -300,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371091.jpg" />
 </div>
 
 
@@ -326,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359986.jpg" />
 </div>
 
 
@@ -352,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356693.jpg" />
 </div>
 
 
@@ -381,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356556.jpg" />
 </div>
 
 
@@ -407,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354430.jpg" />
 </div>
 
 
@@ -435,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354146.jpg" />
 </div>
 
 
@@ -463,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354112.jpg" />
 </div>
 
 
@@ -489,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352124.jpg" />
 </div>
 
 
@@ -515,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350001.jpg" />
 </div>
 
 
@@ -541,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347047.jpg" />
 </div>
 
 
@@ -567,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343950.jpg" />
 </div>
 
 
@@ -593,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342662.jpg" />
 </div>
 
 
@@ -607,93 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3732FDBE78BBECF39F9A4DEECE3C4171F4831D6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073001   (342551) от 17.11.2016
-
-З. П. Пехова, Н. А. Дубовой (ред.) | Мали. Справочная карта (1985) [JPG, PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342551.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данное издание входят:
-1) Подробная справочная карта Мали с административным делением (масштаб 1:2 500 000).
-2) Указатель географических названий в алфавитном порядке.
-3) Обложка с выходными данными.(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:310BD02022ECBE2A583EE40DAD9037FF0DD31AD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073675   (338440) от 19.11.2016
-
-В. П. Селезнёв (ред.) | Марокко. Справочная карта (1983) [JPG, PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338440.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данное издание входят:
-1) Подробная справочная карта Марокко с административным делением (масштаб 1:1 750 000).
-2) Указатель географических названий в алфавитном порядке.
-3) Обложка с выходными данными.(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9504BEC4FFBA794AE4D0FE8F1B1272B21268B77E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074225   (338437) от 19.11.2016
-
-ГУГК | Мексика. Справочная карта (1980) [JPG, PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338437.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данное издание входят:
-1) Подробная справочная карта Мексики с административным делением (масштаб 1:4 000 000).
-2) Указатель географических названий в алфавитном порядке.
-3) Обложка с выходными данными (утеряна).(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A8D1B03FF5A65E6B7E4ADC087C18B518E959F5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

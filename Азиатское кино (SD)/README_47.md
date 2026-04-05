@@ -1,3 +1,55 @@
+###  Публикация: 1837069   (256383) от 15.11.2025
+
+Затоичи / Zatoichi (2003) BDRip [H.264]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256383.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм по мотивам серии романов Кана Симодзавы о слепом массажисте, мастере кэндзюцу и иайдо по имени Затоичи... Япония. XIX век. Слепой странник Затоичи зарабатывает игрой в кости и массажем. Но на самом деле он искусный боец. Однажды он попадает в городок, находящийся во власти шайки Гиндзо. Здесь Затоичи знакомится с сёстрами-гейшами, которые хотят отомстить за (   Читать дальше...   )Производство: Япония / Office Kitano, Bandai Visual Company, DENTSU Music And EntertainmentЖанр: драма, криминал, боевикРежиссер: Такэси КитаноАктеры: Такэси Китано, Таданобу Асано, Митиё Окусу, Гадаруканару Така, Дайгоро Татибана, Юко Дайкэ, Юи Нацукава, Иттоку Кисибэ, Сабуро Исикура, Акира Эмото, Бэн Хиура, Кодзи Миура, Хидебо, Рон II, СудзиПеревод: дублированный, профессиональный многоголосый, авторский (Дмитрий Пучков)Язык озвучки: русский, японскийСубтитры: русские, английскиеПродолжительность: 01:55:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E6167F0D86FA85445009BB3C3754B84FCF73D69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625893   (255253) от 12.04.2023
+
+Убить Пок-сун / Gil Boksun / Kill Boksoon (2023) WEB-DLRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наёмная убийца Пок-сун считается одной из лучших в этом деле, и она дорожит своей профессиональной репутацией, но последнее время женщину больше беспокоит, что дочь-подросток стала от неё отдаляться. Пок-сун изо всех сил старается быть хорошей матерью и пытается найти баланс между работой и воспитанием ребёнка, но скрывать от дочери сферу своей деятельности ей становится (   Читать дальше...   )Производство: Южная Корея / Netflix, See At FilmЖанр: боевик, драма, криминалРежиссер: Пён Сон-хёнАктеры: Чон До-ён, Соль Гён-гу, Ким Щи-а, Исом, Ку Гё-хван, Ли Ён, Чхве Бён-мо, Ким Ги-чхон, Пак Кван-джэ, Чан Ин-сопПеревод: Многоголосый профессиональный (TVShows), авторский (Юрий Сербин)Язык озвучки: русский, английскийСубтитры: английские (forced, full, SDH), русские, украинскиеПродолжительность: 02:19:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88F7734C96B84523319750851B4F647F850F1A10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626662   (255169) от 15.04.2023
 
 Я дарю тебе свою первую любовь / Boku no hatsukoi wo kimi ni sasagu (2009) BDRip [H.264] [MVO]
@@ -6,7 +58,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255169.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255143.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254872.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254848.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254421.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252730.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252323.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252020.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250757.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250360.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250083.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249403.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249352.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249051.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247647.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247471.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245961.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245397.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244968.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244657.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243285.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242990.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242719.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242189.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEBB88E4C83B341E92D1B85F54BA2DABDF99372E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544685   (241866) от 16.04.2022
-
-Сезон дождей / Re dai yu (2019) BDRip [H.264]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лин преподаёт китайский в сингапурской старшей школе. Отношения с мужем ни к черту: брак разваливается из-за того, что Лин на протяжении многих лет так и не смогла зачать ребенка. Странная дружба с учеником помогает ей снова почувствовать себя женщиной...Производство: Сингапур, Тайвань, Giraffe Pictures, Hooq, RedianceЖанр: драма, мелодрамаРежиссер: Энтони ЧэньАктеры: Ео Яннянн, Ко Цзяле, Кристофер Ли (I), Ян ШибиньПеревод: дублированный (iTunes)Субтитры: английскиеПродолжительность: 01:42:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F991CDC7F0650F919B785361C69C74F81889397
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376499   (241802) от 18.04.2020
-
-Сыновья / Мои сыновья / Musuko / My Sons (1991) WEB-DLRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь у Тэцуо не из легких — хорошего образования он ещё не получил, поэтому найти достойную работу ему пока трудно. Вдобавок он влюбился в очаровательную глухонемую девушку с местного завода.Производство: Япония / Shochiku Films Ltd.Жанр: Мелодрама, комедияРежиссер: Ёдзи ЯмадаАктеры: Рэнтаро Микуни, Масатоси Нагасэ, Эми Вакуи, Миэко Харада, Рюдзо Танака, Миёко Асада, Рёити Ямагути, Сакаэ Умэдзу, Кэн НакамотоПеревод: Одноголосый любительский (D.I.M.)Субтитры: Английские - отдельным файломПродолжительность: 02:00:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:694382BDCC62C89E25320B6FA921D370E8BC63E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

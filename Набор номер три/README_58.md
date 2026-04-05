@@ -1,3 +1,163 @@
+###  Публикация: 1350546   (984295) от 25.01.2020
+
+Приключения Харли Блин
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приглашаем Вас принять участие в игре
+«ПРИКЛЮЧЕНИЯ ХАРЛИ БЛИН»
+Супермен и Бэтмен, держат весь мир в железных рукавицах. Они остановили все войны и повернули историю вспять, в совершенно иное, «правильное» русло, в нём нет войн, коррупции и бандитизма, никто не занимается честным разбоем. Существует легенда, что однажды, придет Мессия, Харли Квинн (позывной ─ (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355211   (984293) от 25.01.2020
+
+[Игра] Досчитаем до миллиона картинками! v.49
+
+>>3
+>>98
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Смысл: участник размещает одну картинку, содержащую число, которое на 1 больше предыдущего.  Требования:
+1) в одном сообщении одна картинка;  2) избегать повторов; иначе вступает в силу п.4)
+3) чёткие и достаточного размера цифры на изображении для однозначного толкования;(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182535   (984292) от 25.01.2020
+
+Дракоша Тоша (2017-2019) WEB-DLRip [H.264/720p-LQ] (сезон 1-2, серии 1-52 из 52) [Обновляемая]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984292.jpg" />
+</div>
+
+
+###  Подробнее
+
+В обычной семье панд живет необычный друг – живая игрушка дракончик по имени Тоша. Родители-панды о нем не догадываются, а дети-медвежата не могут без него прожить и дня, потому что Дракоша Тоша и его помощник баночка с волшебными мыльными пузырями Тойройчик могут любой скучный день превратить в фантастические приключение, а заодно дать ответы на все вопросы маленьких (   Читать дальше...   )Производство: Россия / Студия компьютерной анимации "Петербург"Жанр: Развивающий анимационный сериал для малышейРежиссер: Марина МошковаАктеры: Андрей Левин, Юлия РудинаПерсонажи: Дракоша Тоша, Няша, Яша, ТойройчикПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: ~ 00:05:30 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14608BA9E5B112AFC9153AF9907D4837177F8A3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 741152   (984250) от 02.01.2014
+
+Call of Duty: Ghosts (2013) [Ru/Multi] (1.0 Upd6) SteamRip @nonymous
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Call of Duty: Ghosts – новая часть в серии Call of Duty. Название игры ассоциирует её с главными героями — элитным подразделением призраков, в котором когда то служил Гоуст, или лейтенант Саймон Райли, культовый персонаж серии, предательски убитый Шепардом во второй части франшизы. Мир игры приближен к постапокалипсису, что является новинкой в серии. По сюжету, из-за (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Infinity Ward / Raven Software / Neversoft EntertainmentЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, Английский, Французский, Немецкий, Итальянский, ИспанскийЯзык субтитров: Русский, Английский, Французский, Немецкий, Итальянский, ИспанскийЯзык интерфейса: Русский, Английский, Французский, Немецкий, Итальянский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4F401FDF1AF128FC2DF9BDA974A4E308804ACEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 740616   (984247) от 02.01.2014
+
+Навител Navitel 8.5.0.974 - автонавигация для автонавигаторов и автомагнитол (30.12.2013) <Ru/Multi>
+
+>>3
+>>13
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Навигационная программа Навител отображает текущее местоположение пользователя на карте и способна с помощью отображения маневра на экране навигатора и голосом подсказать водителю, когда и куда необходимо повернуть на автоматически проложенном маршруте для скорейшего прибытия в необходимое место. Также Навител может предсказать время прибытия в точку назначения, (   Читать дальше...   )Разработчик: http://www.navitel.ru/Язык интерфейса: Multilanguage/Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B5CD36B21F2E8C67B0A0E9C6EC8DDF1F5B7C4E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971851   (984141) от 04.01.2016
+
+Ракета SpaceX Falcon 9, совершившая успешную посадку, готова к повторному запуску
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984141.jpg" />
+</div>
+
+
+###  Подробнее
+
+Элон Маск, основатель и руководитель аэрокосмической компании SpaceX, сообщил, что первая ступень ракеты-носителя, которая использовалась для запуска нескольких спутников на околоземную орбиту и которая совершила первую успешную мягкую посадку на поверхность Земли, находится в хорошем состоянии и "готова к повторному запуску". Элон Маск опубликовал снимок (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971842   (984056) от 04.01.2016
 
 Proxiator 1.2 Portable [Multi/Ru]
@@ -6,7 +166,7 @@ Proxiator 1.2 Portable [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984056.jpg" />
 </div>
 
 
@@ -32,7 +192,7 @@ FxFactory Pro 5.0.7 (4742) [En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984047.jpg" />
 </div>
 
 
@@ -60,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984044.jpg" />
 </div>
 
 
@@ -86,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984042.jpg" />
 </div>
 
 
@@ -112,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983956.jpg" />
 </div>
 
 
@@ -140,7 +300,7 @@ WIM Project / Windows XP + Windows 7 / Pre-RC /  2010 Rus (by CtrlSoft)
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983881.jpg" />
 </div>
 
 
@@ -173,7 +333,7 @@ MAGIX Video Pro X5 12.0.10.28 [Английский]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983633.jpg" />
 </div>
 
 
@@ -199,7 +359,7 @@ Kaspersky World 1.3.8.99 [MULTi / Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983556.jpg" />
 </div>
 
 
@@ -227,7 +387,7 @@ Primal Fears [Ru/En/Multi4] (RePack/1.0.489) 2013 | Fenixx
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983546.jpg" />
 </div>
 
 
@@ -256,7 +416,7 @@ NoNaMe Club PokerTour V.8
 >>38
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983536.jpg" />
 </div>
 
 
@@ -283,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>11
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983384.jpg" />
 </div>
 
 
@@ -309,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983378.jpg" />
 </div>
 
 
@@ -335,7 +495,7 @@ Apple отказалась от планов по шифрованию резе�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983301.jpg" />
 </div>
 
 
@@ -361,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983233.jpg" />
 </div>
 
 
@@ -387,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983133.jpg" />
 </div>
 
 
@@ -413,7 +573,7 @@ Windows 7 Professional SP1 x64 Game OS 2.8 by CUTA [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983130.jpg" />
 </div>
 
 
@@ -439,7 +599,7 @@ System USB-Flash 10 v.13.1.0.2961 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983127.jpg" />
 </div>
 
 
@@ -465,7 +625,7 @@ Microsoft Windows 7 SP1-u with IE11 (2 x 3in1) - DG Win&Soft 2020.01 (en-US, ru-
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983126.jpg" />
 </div>
 
 
@@ -491,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982757.jpg" />
 </div>
 
 
@@ -517,7 +677,7 @@ WPI Сборник для Android'a by ProGmerVS© v.2.0.13 от 15.09.2013 [201
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982755.jpg" />
 </div>
 
 
@@ -528,163 +688,6 @@ WPI Сборник для Android'a by ProGmerVS© v.2.0.13 от 15.09.2013 [201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E689A561AEA138565D345C3438A0C09CB26605B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548280   (982753) от 03.01.2014
-
-Black Mesa (2012) [Ru/Multi] (1.0) Repack RG Games
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Black Mesa («Чёрная Меза», ранее известная как Black Mesa: Source) — ремейк культовой компьютерной игры Half-Life 1998 года на движке Source. Представляет собой модификацию для игры Half-Life 2.
-Разработчики намерены воссоздать оригинальную вселенную Half-Life, используя расширенные возможности движка Source, переработать все текстуры, модели и уровни, создать реалистичный геймплей. В игре не будет нового оружия, однако они решили добавить к защитному костюму H.E.V функцию «спринт». Также создатели модификации заявили, что собираются сделать полностью синхронную сюжетную линию, лишь несколько изменив её, не нарушая баланса. Также в игру планируют ввести достижения.(   Читать дальше...   )Тип издания: RepackРазработчик: LeakFreeЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Итальянский, Испанский, Норвежский, Немецкий, ФинскийЯзык интерфейса: Русский, Английский, Итальянский, Испанский, Норвежский, Немецкий, Финский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:614A1EF48F6378F4534B49FCF7EFEA78DAAE1DC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972421   (982626) от 05.01.2016
-
-Project I.G.I. (2000) [Ru/Multi] (1.0) Repack R.G. Revenants
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982626.jpg" />
-</div>
-
-
-###  Подробнее
-
-В игре мы выступаем в роли секретного агента Дэвида Джонса, которому поручают секретное задание по спасению из лап террористов Иосифа Прибоя, по данным спецслужб имеющего информацию о недавнем похищении преступниками атомной бомбы. Постепенно клубок сюжетных хитросплетений развязывается, и мы выходим на след самих террористов, которых и должны в конечном итоге обезвредить.Тип издания: RepackРазработчик: Innerloop Studios и Vision ParkЖанр: Action (Tactical, Shooter), 3D, 1st Person, StealthЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AF2DBA73C33C2878F712B5483B9CDE30DE706F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972068   (982616) от 05.01.2016
-
-Проекты - VideoHive - 3D Portrait (v.1) - 13766531 [AEP]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для лёгкой реализации анимированных портретов. С помощью данного готового проекта вы сможете с лёгкостью анимировать статичные фотографии(портреты) не прилагая особого труда.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C349126FDD3026E937CBBDB1054C9A1A81464B73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972429   (982606) от 05.01.2016
-
-IGI 2: Covert Strike / I.G.I. 2: Скрытый удар (2003) [Ru/Multi] (1.3) Rip R.G. Revenants
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэвид Джонс – бывший десантник специального подразделения SAS, ныне – суперагент секретной организации IGI. Его задача – расстроить планы крупнейшей террористической организации и предотвратить начало Третьей мировой войны. Три его главных союзника – оружие, тактика и маскировка. В его распоряжении – компьютер-картограф из специального оборудования IGI и всевозможные (   Читать дальше...   )Тип издания: RipРазработчик: Innerloop StudiosЖанр: Action (Tactical, Shooter), 3D, 1st Person, StealthЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39B7B40284EF4A0C8074D4291CD1E71B6006EF91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972390   (982599) от 05.01.2016
-
-Про Любовь (2015) WEB-DLRip [H.264]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что такое любовь? На этот вопрос пытаются ответить герои фильма. Вереница самых разных персонажей и историй переплетаются в этом фильме. Маленькие истории о самом разном и все о любви: молодая пара, предпочитающая жить в образах японских аниме-героев; секретарша, получившая непристойное предложение от своего босса; японка, приехавшая в Москву в поисках русского мужчины; (   Читать дальше...   )Производство: Россия, Кинокомпания «Магнум»Жанр: КомедияРежиссер: Анна МеликянАктеры: Рената Литвинова, Михаил Ефремов, Мария Шалаева, Василий Ракша, Юлия Снигирь, Владимир Машков, Алексей Филимонов, Евгений Цыганов, Александра Бортич, Мария ДанилюкПеревод: Не требуется (русский) iTunesПродолжительность: 01:55:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2102F15FFB8923135D14273DE283B8FD2227721
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 844606   (982597) от 05.01.2016
-
-Metal War Online: Retribution (2013) [Ru] (1.0.5.0.0.2064) Repack Irenis
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Metal War Online - это клиентская сессионная MMO-игра в Sci-Fi сеттинге. Cобытия, захлестнувшие мир MWO, основаны на противостоянии двух крупнейших корпораций Global Resource Network и Morgan Industries. Обе структуры боролись за особые месторождения, позволяющие производить синтетическую кровь невиданных доселе качества и свойств.Тип издания: RepackРазработчик: GD-Team LtdЖанр: MMO Action, RacingЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:573015A813870FEBD588E8FDB30F24C766FF8403
 ```
 
 https://mybot314.ru/tekegram_catalog/

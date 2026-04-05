@@ -6,7 +6,7 @@ Servamp | Сервамп [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480969.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kengan Ashura | Кэнган Асура [2019, Web, 12 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480772.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Shokugeki no Souma: Ni no Sara / Shokugeki no Soma: The Second Plate / Кули�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478611.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Meitantei Conan: Zero no Tea Time | Detective Conan: Zero's Tea Time | Дете�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478487.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477979.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ New Game! | Новая игра! [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476655.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Macross Frontier / Макросс Фронтир [2008, TV, 25] BDrip 720p Hi10b
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476437.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Penguin Highway | Тайная жизнь пингвинов [2018, Movie] BDrip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475080.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Qualidea Code [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474617.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ D.Gray-man Hallow | Грэй-мен: Святой [2016, TV, 13 эп.] HDTVRip 7
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474605.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Gekijouban Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka: Orion no Ya 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473154.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Cannon Busters | Приятели с пушками | Пушечные ядра 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473153.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Aoharu x Kikanjuu / Aoharu x Machinegun / Юность и оружие [2015, TV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472789.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Tokyo Kushu / Tokyo Ghoul / Токийский гуль [2014, TV, 12] HDTV 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472687.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Ben-Tou / Жрач-ка [2011, TV, 12] BDrip 720p Hi10bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472456.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Rokka no Yuusha | Герои шести лепестков [2015, TV, 12 эп.] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470488.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Amaama to Inazuma / Sweetness and Lightning / Сладость и молния [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470401.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Kakegurui Twin | Безумный азарт: Близнец [2022, Web, 6 из 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470182.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Mondaiji-tachi ga Isekai kara Kuru Sou Desu yo? / Проблемные дети 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469711.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Bananya | Бананя [2016, TV, 13] HDTV 720p Hi10p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468220.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Onsen Yousei Hakone-chan / Young Hot Spring Fairy Hakone-chan / Юный дух 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468107.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Totsukuni no Shoujo (2022) | Девочка из Чужеземья (OVA-2) [202
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468016.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Mashiro-iro Symphony: The Color of Lovers / Белоснежная симфон�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465501.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Ore, Twintail ni Narimasu. | Gonna Be the Twin-Tail!! | Я, два хвоста 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464094.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Ore ga Ojou-sama Gakkou ni "Shomin Sample" Toshite Gets-sareta Ken | Прост�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463950.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Kurokami The Animation | Black God | Тёмная богиня [2009, TV, 23 э�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463936.jpg" />
 </div>
 
 

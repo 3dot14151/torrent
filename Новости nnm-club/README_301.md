@@ -1,3 +1,55 @@
+###  Публикация: 1535060   (12604) от 04.07.2025
+
+Medieval Dynasty (2020) [Ru/Multi] (2.4.0.4/dlc) License GOG [Digital Supporter Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12604.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре Medieval Dynasty вам предстоит примерить на себя роль юноши, который сбежал от войны и хочет взять жизнь в свои руки. Изначально вы одиноки, неопытны и бедны, однако вам предстоит многому научиться, возглавить других и основать процветающую династию, которая будет процветать многие века. Раннее Средневековье в Европе. Миром правят дворяне и церковь. Разные (   Читать дальше...   )Тип издания: LicenseРазработчик: Render CubeЖанр: Приключение, Ролевая игра, ВыживаниеЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9744DF235034D7223FC8DA8006239B75949E14F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804935   (12572) от 04.07.2025
+
+Первое достижение: 1000 релизов от almikl
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12572.jpg" />
+</div>
+
+
+###  Подробнее
+
+ Первое достижение: 1000 релизов от almikl Дорогие друзья и гости клуба...В очередной раз перебирая списки релизёров было замечено, что один товарищ пытался "проскочить" незамеченным. Но у нас в клубе не принято быть непоздравленным!Поэтому прошу знакомиться с самым незаметным работником тыла, но несмотря на это прилагающим немало сил для поддержания дружеской (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804362   (12305) от 07.07.2025
 
 Чем советские киносказки 1970-х годов отличаются от фильмов 1960-х?
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12305.jpg" />
 </div>
 
 
@@ -35,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12174.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ MInstAll v.03.07.2025 By Andreyonohov (ISO) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12095.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12039.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11888.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11882.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11870.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.5.1/dlc) Repack FitGir
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11777.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11763.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11689.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11674.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11673.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11656.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ Dr.Web CureIt! (2025.07.13) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11568.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11460.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11367.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11355.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11255.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11200.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11038.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ Cтроительство энергоблока № 5  на Белоярск�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10986.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10942.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10646.jpg" />
 </div>
 
 
@@ -618,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10636.jpg" />
 </div>
 
 
@@ -629,61 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808135   (10625) от 23.07.2025
-
-Windows 10 PRO 22H2 19045.3324 (х64) remaked as Windows 7/Windows Vista by windows umbrella (v6, 07.2025)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 с интерфейсом Windows 7 и  Windows Vista. ОС подходит для слабых ПК. Данная ОС подходит для пользователей которые не пользуются онлайн услугами Microsoft.Язык интерфейса: Русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1FACC0A72D864FCBD978B6792DFBFB8F686F6B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180158   (10624) от 23.07.2025
-
-Ozzy Osbourne - 49 аlbums, 2 Box-Set, 144CD (1980-2022) [FLAC|Lossless|image + .cue | tracks + .cue] <Heavy Metal, Hard Rock>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10624.jpg" />
-</div>
-
-
-###  Подробнее
-
-О́ззи О́сборн — британский рок-певец, музыкант, один из основателей и участник группы Black Sabbath, оказавшей значительное влияние на появление таких музыкальных стилей, как хард-рок и хеви-метал. Успешность его карьеры и популярность принесли ему неофициальный титул «Крёстный отец хэви-метала». После ухода из Black Sabbath начал сольную карьеру. На декабрь (   Читать дальше...   )Список альбомов:
-1980 | Blizzard Of Ozz
-1981 | Diary Of A Madman
-1983 | Bark At The Moon(   Читать дальше...   )Жанр: Heavy Metal, Hard' n' Heavy  †Продолжительность: 4d 11:47:25  †
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAB94FAB287E2912CFCFB7D720446E6B36542BDF
 ```
 
 https://mybot314.ru/tekegram_catalog/

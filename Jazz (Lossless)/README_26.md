@@ -6,7 +6,7 @@ Blossom Dearie - My New Celebrity Is You (2020) 1976 [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968800.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Chet Baker Quartet featuring Russ Freeman 1953 (1998) Pacific Jazz [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968745.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Astrud Gilberto - Jungle (2002) Magya [FLAC|Lossless|tracks + .cue] <Brazilian J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968689.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Putte Wickman & Jan Lundgren - We Will Always Be Together (2004) Gazell Records[
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967877.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Maria Schneider Orchestra - Concert In The Garden (2004) ArtistShare[FLAC|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967833.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Vintage Gramola - Welcome to the Vintage Sound (2020) [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967234.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Mongezi Feza & Bernt Rosengren Quartet - Free Jam (1972) 2CD, 2004, Ayler Record
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966886.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Irvin Mayfield Sextet - Live At The Blue Note (1999) Half Note[FLAC|tracks+.cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966838.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Big Band Legends: Swing Era (1930-e) 2005, Delta Music[FLAC|tracks+.cue] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966832.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Glenn Frey (Ex. Eagles) - After Hours (Deluxe Edition) (2012) [FLAC|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966728.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Ivan Paduart 3 + Rick Margitza - Still (2002) A Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966354.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Hot Club de Norvège (Hot Club de Norvege) - Moment's Notice (2020) [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966205.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Duke Ellington - Presents... (1956) 2005, Bethlehem[FLAC|tracks+.cue] <Swing, Bi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965788.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Cedar Walton - Animations & Soundscapes (1978/1980) 2010, Soul Brother Records[F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965786.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Al Cohn - Four Classic Albums Plus 1954 - 1957 (2009) 2CD, Avid Jazz [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965188.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Mel Torme & Tony Bennett - The Song Stylists (1950-e - 1960-e) 1993, TKO Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965169.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Ellis Marsalis - The Classic (1963) 1991, AFO Records[FLAC|tracks+.cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964815.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Michel Camilo - Solo (2005) Telarc[FLAC|tracks+.cue] <Post-Bop, Latin Jazz, Pian
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964795.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Chet Baker - The Early Years (1952-1954) 4CD, 2005, Proper Records[FLAC|tracks+.
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964728.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Oscar Peterson - History Of An Artist 1972 - 1974 (1993) 2CD, Pablo [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964355.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Cafe Del Mar - Jazz (2013) [FLAC|Lossless]<Lounge, Jazzy, Easy Listening>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963899.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Mike LeDonne - Night Song (2005) Savant Records[FLAC|tracks+.cue] <Post-Bop, Pia
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963727.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Ariane Nielsen - It's About Time (2015) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963720.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Anandi - Anandi (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963719.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Wes Montgomery & The Billy Taylor Trio (1963/1965) 2005, Lonehill[FLAC|tracks+.c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963717.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Quincy Jones - The Big Sound Of Quincy Jones (1956/1957/1960) 2CD, 2011, Not Now
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963704.jpg" />
 </div>
 
 

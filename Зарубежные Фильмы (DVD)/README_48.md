@@ -1,81 +1,3 @@
-###  Публикация: 725713   (321805) от 27.11.2013
-
-Тихоокеанский рубеж / Pacific Rim (2013) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда из морских глубин поднялись легионы чудовищ, известных как Кайдзу, началась война, которой суждено было забрать миллионы жизней и свести «человеческие ресурсы» почти к нулю всего за несколько лет. Чтобы сражаться с пришельцами, было создано специальное оружие: огромные роботы, названные Джегерами, они управлялись одновременно двумя пилотами, чьи сознания соединены (   Читать дальше...   )Производство: США / Warner Bros., Legendary Pictures, Disney Double Dare You (DDY)Жанр: фантастика, боевикРежиссер: Гильермо дель ТороАктеры: Чарли Ханнэм, Идрис Эльба, Ринко Кикути, Роберт Казински, Макс Мартини, Чарли Дэй, Берн Горман, Клифтон Коллинз мл., Рон Перлман, Диего КлаттенхоффПеревод: Полное дублирование (лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский, Английский, Арабский, Чешский, Эстонский, Иврит, Латышский, Литовский, ПортугальскийПродолжительность: 02:05:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F34119EE346A79C1EF196277CB20A38FDD16570
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 416927   (321322) от 29.11.2011
-
-Пеликан / Nicostratos le pelican (2011) DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321322.jpg" />
-</div>
-
-
-###  Подробнее
-
-После смерти жены мужчина отказывается выходить на улицу и не хочет общаться с единственным сыном. Жизнь теряет смысл, перестает для него существовать. Однажды мальчик находит птенца пеликана, которого решает оставить у себя. Он выкармливает птицу, и между ними завязываются теплые дружеские отношения. Пеликан помогает мальчику вновь обрести своего отца и возродить (   Читать дальше...   )Производство: Франция, Греция / Wesh Wesh Productions, Studio 37, Nexus FactoryЖанр: Драма, КомедияРежиссер: Оливье ОрлеАктеры: Эмир Кустурица, Тибо Ле Геллек, Джейд-Роуз Паркер, Франсуа-Ксавье Демезон, Геннадиос Пацис, Нтинос Понтикопоулос, Димитрис Сарикизоуглоу, Сократис ПацикасПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: Русские, УкраинскиеПродолжительность: 01:28:26
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180983   (321211) от 08.11.2017
-
-Мумия / The Mummy (2017) DVD9 [Custom]
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Посреди безжалостной пустыни в величественном саркофаге погребена дочь египетского фараона, но настанет день, и она явится в наш мир вернуть себе то, что принадлежит ей по праву. Отныне миром правят боги и монстры.Производство: США / Universal Pictures, Dark Universe, Perfect World PicturesЖанр: Фэнтези, боевик, триллер, приключенияРежиссер: Алекс КуртцманАктеры: Том Круз, Расселл Кроу, Аннабелль Уоллис, София Бутелла, Джейк Джонсон, Кортни Б. Вэнс, Марван Кензари, Саймон Атертон, Стивен Томпсон, Джеймс АрамаПеревод: Дублированный, Авторский (одноголосый закадровый)Субтитры: Русские, английскиеПродолжительность: 01:49:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C7196A3EF260D16BC69ABD744247B15DB26E4BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181037   (321037) от 08.11.2017
 
 Мумия / The Mummy (2017) DVD9
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321037.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320835.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320827.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320309.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320308.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320299.jpg" />
 </div>
 
 
@@ -240,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320297.jpg" />
 </div>
 
 
@@ -266,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320159.jpg" />
 </div>
 
 
@@ -292,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319492.jpg" />
 </div>
 
 
@@ -318,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318923.jpg" />
 </div>
 
 
@@ -344,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318297.jpg" />
 </div>
 
 
@@ -370,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318290.jpg" />
 </div>
 
 
@@ -398,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318282.jpg" />
 </div>
 
 
@@ -424,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318082.jpg" />
 </div>
 
 
@@ -450,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318074.jpg" />
 </div>
 
 
@@ -476,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318068.jpg" />
 </div>
 
 
@@ -502,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318066.jpg" />
 </div>
 
 
@@ -528,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317940.jpg" />
 </div>
 
 
@@ -554,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317933.jpg" />
 </div>
 
 
@@ -580,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317903.jpg" />
 </div>
 
 
@@ -606,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317800.jpg" />
 </div>
 
 
@@ -632,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317793.jpg" />
 </div>
 
 
@@ -658,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317699.jpg" />
 </div>
 
 
@@ -669,6 +591,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 582336   (317318) от 30.11.2012
+
+Срочная доставка / Premium Rush (2012) DVD5
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_317318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нью-йоркский посыльный в один прекрасный день забирает некий конверт в Колумбийском университете. Но оказывается, что содержимое послания очень интересует одного коррумпированного полицейского, который начинает преследование героя.Производство: США / PariahЖанр: Боевик, триллерРежиссер: Дэвид КеппАктеры: Джозеф Гордон-Левитт, Дания Рамирез, Шон Кеннеди, Ким Перфетто, Энтони Чишолм, Эшли Остин Моррис, Уоли Паркс, Кевин Болджер, Аасиф Мандви, Лорен Эшли КартерПеревод: Многоголосый закадровый, профессиональныйСубтитры: Вшитые отключаемыеЯзык субтитров: Русский, Английский, Украинский, Арабский, Иврит, Хинди, Болгарский, Хорватский, Чешский, Эстонский, Греческий, Венгерский, Исландский, Литовский, Польский, Португальский, Румынский, Словацкий, Словенский, ТурецкийПродолжительность: 01:27:15
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 725983   (317042) от 29.11.2013
+
+Фантом / Phantom (2013) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Капитан советской подводной лодки держит в своих руках судьбу всего мира. Вынужденному покинуть свою семью, ему приходится возглавить секретную миссию окутанную тайной…Производство: СШАЖанр: ТриллерРежиссер: Тодд РобинсонАктеры: Эд Харрис, Дэвид Духовны, Уильям Фихтнер, Лэнс Хенриксен, Джонатон Шек, Джейсон Бех, Дагмара Доминчук, Дерек Магияр, Шон Патрик, Флэнери Джейсон, Грей-Стенфорд...Перевод: Профессиональный (многоголосый закадровый)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский, Английский, Испанский, Нидерландский, Немецкий, Итальянский, Болгарский, Эстонский, Греческий, Латышский, Литовский, Польский, РумынскийПродолжительность: 01:34:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B00B5F7AA62355CDFE67763A21EA5F7F204F4AFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 726992   (316735) от 29.11.2013
+
+Фантом / Phantom (2013) DVD5
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kапитан советской подводной лодки держит в своих руках судьбу всего мира.
+Вынужденному покинуть свою семью, ему приходится возглавить секретную миссию окутанную тайной…Производство: США / RCR Media Group, Trilogy Entertainment Group, Solar FilmworksЖанр: триллерРежиссер: Тодд РобинсонАктеры: Эд Харрис, Дэвид Духовны, Уильям Фихтнер, Лэнс Хенриксен, Джонатон Шек, Джейсон Бех, Дагмара Доминчук, Дерек Магияр, Шон Патрик, Флэнери Джейсон, Грей-СтенфордПеревод: Профессиональный (многоголосый закадровый) (Лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский, Английский, Испанский, Нидерландский, Немецкий, Итальянский, Болгарский, Эстонский, Греческий, Латышский, Литовский, Польский, РумынскийПродолжительность: 01:34:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0E8A26F642DD184BFCABD1543A2419BA9BF3F3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

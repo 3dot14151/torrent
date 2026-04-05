@@ -1,3 +1,148 @@
+###  Публикация: 1551788   (589428) от 17.05.2022
+
+Windwaker - Love Language (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore. Metalcore. Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beautiful [00:03:35]
+02. Lucy [00:03:36]
+03. Nighthawk [00:03:54]
+04. Dopamine Freestyle [00:02:08](   Читать дальше...   )Жанр: Post-Hardcore. Metalcore. ElectronicПродолжительность: 00:40:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78F810B48E99387F0F44AFFC09F41BA8007C739E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551630   (589426) от 17.05.2022
+
+Anonymonkey - Human Suit (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invisible Stranger
+02. Theme From Anonymonkey
+03. Clowns
+04. Real Life Fairy Tale(   Читать дальше...   )Жанр: Psychedelic Rock, Progressive RockПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ED4099E9CE8D9EF4FA28C7A9C55E8234609E5AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551321   (589424) от 17.05.2022
+
+Суперкульт - Клеймо (2022) [FLAC|Lossless|WEB-DL|tracks] <Post Punk, Experimental Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Клеймо (00:01:06)
+02 - Змея (00:05:17)
+03 - Наркотики (00:03:37)
+04 - Ты не одна (00:04:41)(   Читать дальше...   )Жанр: Post Punk, Experimental RockПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9974FE0EDAB1E0A99BA1A566650FBF1336D12B63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551237   (589391) от 17.05.2022
+
+Cancer Bats - 15 Albums (2005-2022) [FLAC|Lossless|WEB-DL|tracks + .cue|tracks] <Post-Hardcore, Southern Rock, Hardcore Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Radiate [00:03:04]
+02. The Hoof [00:03:00]
+03. Lonely Bong [00:03:07]
+04. Friday Night [00:02:54](   Читать дальше...   )Жанр: Post-Hardcore, Southern Rock, Hardcore PunkПродолжительность: 17 CD, 10:47:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:188FD31EE6CE9A62B2FF4151B96457ABF63B66FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917630   (589122) от 12.07.2015
+
+The One-Eyed Show - Brothers, Cousins And Fools (2014) [MP3|320 кб/с]<70's Rock, Juke Joint Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moses
+02. The Big Finnish
+03. Her
+04. Colorblind(   Читать дальше...   )Жанр: 70's Rock, Juke Joint BluesПродолжительность: 00:57:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B939A41F766877190F20594D5817E1215AE15D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 917579   (589120) от 12.07.2015
 
 Ego Likeness - When The Wolves Return (2015) [OGG|453-540 кб/с]<Alternative, Industrial Rock, Darkwave, Gothic, Electronic, Female Vocal>
@@ -6,7 +151,7 @@ Ego Likeness - When The Wolves Return (2015) [OGG|453-540 кб/с]<Alternative, 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589120.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Jimi Hendrix - It’s Going To Be A Bit Loud (1969) [MP3|320 кб/с]<Psychedeli
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589102.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Medusa's Disco - 5 Albums (2014-2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589002.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Ravanna - Девять Кругов (2022) [MP3|320 Kbps] <Alternative Metal, Po
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588960.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588910.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Adrana - Foreshadow (2015) [MP3|320 кб/с]<Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588685.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Aeverium - Break Out (2015) Deluxe Edition 2CD [MP3|320 кб/с]<Nu Melodic Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588648.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ The Shadows - The Absolutely Essential 3CD Collection (2014) [MP3|320 кб/с]<I
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588636.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Malevolence - Malicious Intent (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Groove M
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588530.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Earth Altar - Earth Altar (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Ston
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588515.jpg" />
 </div>
 
 
@@ -295,7 +440,7 @@ Vinnum Sabbathi - Gravity Works (2017) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Dr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588513.jpg" />
 </div>
 
 
@@ -324,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588486.jpg" />
 </div>
 
 
@@ -351,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588473.jpg" />
 </div>
 
 
@@ -380,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588257.jpg" />
 </div>
 
 
@@ -409,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588184.jpg" />
 </div>
 
 
@@ -438,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588172.jpg" />
 </div>
 
 
@@ -467,7 +612,7 @@ Climates - 1 альбом + 1 EP + 2 Singles (2012-2014) [MP3|192-320 кб/с]<M
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588074.jpg" />
 </div>
 
 
@@ -496,7 +641,7 @@ Dystopia Na! - Dweller On The Threshold (2015) [MP3|320 кб/с]<Experimental Po
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588070.jpg" />
 </div>
 
 
@@ -525,7 +670,7 @@ Gorgoroth - Instinctus Bestialis (2015) [FLAC|image+.cue]<Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588065.jpg" />
 </div>
 
 
@@ -554,7 +699,7 @@ Exovex - Radio Silence (2015) [MP3|320 кб/с]<Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587989.jpg" />
 </div>
 
 
@@ -583,7 +728,7 @@ Ozzy Osbourne - No Rest For The Wicked (1988) [FLAC|image + .cue]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587933.jpg" />
 </div>
 
 
@@ -597,148 +742,6 @@ Ozzy Osbourne - No Rest For The Wicked (1988) [FLAC|image + .cue]<Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6D591DBE273DCA93663E4A68F129367FDE7FC9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917951   (587814) от 14.07.2015
-
-Between the Buried and Me - Coma Ecliptic (2015) [FLAC|tracks +.cue]<Progressive Metal / Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587814.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Node
-2. The Coma Machine
-3. Dim Ignition
-4. Famine Wolf(   Читать дальше...   )Жанр: Progressive Metal / MetalcoreПродолжительность: 1:08:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7753C4B0E38774F694431EB0C988064FBBA2A65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 185514   (587795) от 14.07.2015
-
-Троя - Мир в Огне (2008) [MP3|320 kbps]<Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_587795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Melodic Power MetalПродолжительность: 00:40:30
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552313   (587708) от 20.05.2022
-
-CoreLeoni - III (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let Life Begin Tonight (4:35)
-02. Purple Dynamite (3:33)
-03. Guilty Under Pressure (3:42)
-04. Sometimes (3:52)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF169A075857817CC0999801C557A57B3AF896B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552341   (587703) от 20.05.2022
-
-Anvil - Impact Is Imminent (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take a Lesson (4:21)
-02. Ghost Shadow (3:08)
-03. Another Gun Fight (4:04)
-04. Fire Rain (2:43)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E7A04C9027F282609772972C71641512C6B6EF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552421   (587699) от 20.05.2022
-
-James LaBrie - Beautiful Shade Of Grey (2022) [FLAC 2.0|44,1/24|tracks|WEB-DL] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Devil in Drag (5:37)
-02. SuperNova Girl (4:23)
-03. Give and Take (4:44)
-04. Sunset Ruin (5:10)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:48:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02292E0846D93810959022D8B234D67C3255ECD1
 ```
 
 https://mybot314.ru/tekegram_catalog/

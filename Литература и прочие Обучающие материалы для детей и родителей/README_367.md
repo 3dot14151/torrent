@@ -1,3 +1,55 @@
+###  Публикация: 1425632   (220345) от 21.11.2020
+
+Валентина Дмитриева | Большая книга развивающих игр: загадки, логические игры, ребусы, головоломки (2010) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Настольные игры и Поделки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220345.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой красочной книге представлены разнообразные ребусы, лабиринты, логические игры, кроссворды, загадки. В книге вы найдете описания веселых игр и упражнений для развития у детей интеллекта, мышления, логики, речи.Жанр: Иргы/Досуг/Развитие ребенкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A702652FB445B6D9418A4E81625335CF202A6DDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 736964   (220263) от 21.12.2013
+
+Н. В. Нищева | Веселая артикуляционная гимнастика (2009) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наглядно-дидактическое пособие предназначено для подготовки артикуляционного аппарата ребенка к формированию звуков среднего и позднего онтогенеза. Может быть использовано как в работе с детьми, имеющими речевую патологию, так и с их нормально развивающимися сверстниками для профилактики нарушений звукопроизношения. Каждое упражнение гимнастики иллюстрировано забавными картинками и описано в четверостишии. Для взрослого, занимающегося с ребенком, даны методические рекомендации.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64D30D895B6274C23B257CB8D3E8D647E6432BDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1084479   (220136) от 18.12.2016
 
 Евгения Бахурова | Учим английский легко. Как? (2016) [PDF]
@@ -6,7 +58,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220136.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220128.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220089.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220066.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219923.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219840.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219505.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219335.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219329.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219142.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219085.jpg" />
 </div>
 
 
@@ -299,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219024.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218994.jpg" />
 </div>
 
 
@@ -356,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218975.jpg" />
 </div>
 
 
@@ -385,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218941.jpg" />
 </div>
 
 
@@ -411,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218923.jpg" />
 </div>
 
 
@@ -437,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218887.jpg" />
 </div>
 
 
@@ -463,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218885.jpg" />
 </div>
 
 
@@ -489,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218836.jpg" />
 </div>
 
 
@@ -517,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218824.jpg" />
 </div>
 
 
@@ -543,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218810.jpg" />
 </div>
 
 
@@ -569,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218800.jpg" />
 </div>
 
 
@@ -598,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218792.jpg" />
 </div>
 
 
@@ -626,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218711.jpg" />
 </div>
 
 
@@ -637,63 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:222A663C02162414505A61F668BA1964BAD9FDA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425965   (218688) от 22.11.2020
-
-Тамислав Сенчански | Умному школьнику. Введение в науку! Что такое химия, физика, биология? (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сотни опытов из разных разделов физики, химии, биологии (силы, движение, оптика, звук, электричество, магниты…) помогут объяснить явления живой и неживой природы, узнать, как работают разные части нашего тела.
-
-Некоторые из этих опытов просты, другие посложнее, но все можно выполнить с «оборудованием», которое легко найти дома или в ближайшем магазине. Проведение (   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04308DE5F43E9FD02ECA06046F11EA817CE50E6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425863   (218647) от 22.11.2020
-
-Любовь Черкасова | Литературные аргументы к сочинению на ОГЭ и ЕГЭ. Карманный справочник (2018) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие содержит сгруппированные по темам литературные аргументы, с помощью которых можно написать сочинение на высший балл. Книга поможет учащимся овладеть навыками подбора аргументов и написания на их основе сочинения на любую тему.
-
-Издание адресовано учащимся 9–11 классов для подготовки к ОГЭ и ЕГЭ по русскому языку и литературе, итоговому сочинению.
-(   Читать дальше...   )Жанр: ЕГЭ/ЛитератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36FFED6740851FF04645E42FF87743DADFB92503
 ```
 
 https://mybot314.ru/tekegram_catalog/

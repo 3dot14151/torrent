@@ -6,7 +6,7 @@ National Geographic. Возмездие / Avenging Evil (2018) HDTVRip [H.264/72
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765249.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765214.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NG. Откуда берутся диктаторы (Корни диктатур�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765087.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NG: Разгадка египетских тайн / Egypt unwrapped (2008) HDTV
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765038.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764434.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Animal Planet: Хищник в городе: лев на свободе / Urban 
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764381.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ NG: Инстинкт выживания: Китай. Яростная река /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764301.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ NG: Инстинкт выживания: Пустыни / Primal survivor: Deser
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764300.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Discovery. Как устроена Вселенная / How the Universe Works (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763116.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ BBC. Horizon: Возможно ли создать звезду на Земле?
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762635.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ BBC. Horizon. Как развить творческие способности?
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762630.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ NG. Грандиозные переезды - Перенос древнего Е
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761953.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ NG: Просто магия / General Magic (2018) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761878.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761726.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761572.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ BBC. Все о космосе / The Complete Cosmos (1998) DVDRip [1, 2 сери
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761318.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ BBC: Утерянные города Египта / Egypt's Lost Cities (2011) [
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761299.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Discovery: Новый Мир. Метро будущего / Discovery: Next Worl
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760973.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ NG: Взгляд изнутри. Крупнейший круизный лайн�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760785.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ BBC. Древний Египет: Жизнь и смерть в Долине Ц�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760691.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ NG. Суперсооружения. Мегазаводы. Суперавтомо
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760680.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ NGW: Огромная акула-молот / Mega Hammerhead (2016) HDTV [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760336.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ NGW: Дикие острова гигантов / Savage Island Giants (2016) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760328.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ BBC Horizon: Остановить мужские самоубийства / Stop
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760255.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760192.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ BBC: Рождение человечества. Битва за планету �
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759540.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426275.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_426161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_426161.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_426150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_426150.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425960.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NGW. Окаванго: Река мечты / Okavango: River of Dreams (2019) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425182.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NG: Леопарды дельты Окаванго / Leopards of Dead Tree Islan
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425073.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ NG: Затерянная гробница Александра Великого 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425064.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424823.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424701.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ NGW: Невероятная Африка. Последний лес / Extraordin
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424612.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Discovery. Взрывая историю / Blowing up History (2016) HDTVRip [H.
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423594.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423465.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ NGW: Испытания в дикой природе / Trials of the Wild (2018)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423008.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ BBC. Дикая природа: шпион среди антилоп гну / Tr
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422583.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ NGW: Невероятная Африка. Назинга / Extraordinary Africa.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422458.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ NGW: Невероятная Африка. Сокровища Восточног�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422452.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Discovery. Как это работает? / How it's made? (2016-2019) WEB-DL [
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422422.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Discovery. Дороги России: Ладога (2016) HDTVRip [720p-LQ]
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421114.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ BBC: Райские птицы с Дэвидом Аттенборо / Attenborou
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421036.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_419503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_419503.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_419370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_419370.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ NGW: Африканские охотники / Africa's Hunters (2018) HDTVRip [
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418667.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Discovery: Жизнь отвратительных животных / Nasty by N
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418663.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418510.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ History Channel. Супербомбы / Rise of the Superbombs (2017) HDTVRip
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417758.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ History Channel. Супербомбы / Rise of the Superbombs (2017) HDTVRip
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417606.jpg" />
 </div>
 
 

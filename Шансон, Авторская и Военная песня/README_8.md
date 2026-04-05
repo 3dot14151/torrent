@@ -1,3 +1,32 @@
+###  Публикация: 1365948   (927007) от 09.03.2020
+
+Группа Запретка - Кореша встречайте (2020) [MP3|320 Kbps] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927007.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Кореша встречайте!
+2. Освободился
+3. А я такой блатной
+4. Две души(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:47:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AE6B324A9C45B83AAEBFE2EB42BAC165013F809
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 834587   (926518) от 25.01.2015
 
 Владимир Высоцкий - 100 лучших песен Высоцкого (5CD) (2007) [MP3|320 кб/с]<Авторская песня>
@@ -6,7 +35,7 @@
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926518.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925978.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Per Un' Ora D' Amore (2002) [FLAC|Lossless|tracks + .cue] <Chanson, Vocal, 
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922229.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922165.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921875.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917129.jpg" />
 </div>
 
 
@@ -174,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916413.jpg" />
 </div>
 
 
@@ -200,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914094.jpg" />
 </div>
 
 
@@ -229,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913448.jpg" />
 </div>
 
 
@@ -258,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911799.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908481.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904154.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ VA - Сборник Авторской Песни (2000) S&V #06/2000 [FLAC|Loss
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903985.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894526.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894449.jpg" />
 </div>
 
 
@@ -444,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894195.jpg" />
 </div>
 
 
@@ -473,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893964.jpg" />
 </div>
 
 
@@ -502,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893920.jpg" />
 </div>
 
 
@@ -531,7 +560,7 @@ VA - Новый шансон (2001) [FLAC|Lossless|tracks + .cue]<Шансон>
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893851.jpg" />
 </div>
 
 
@@ -560,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892274.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892023.jpg" />
 </div>
 
 
@@ -618,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890619.jpg" />
 </div>
 
 
@@ -647,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890402.jpg" />
 </div>
 
 
@@ -682,7 +711,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885474.jpg" />
 </div>
 
 
@@ -709,7 +738,7 @@ Tony Carreira - Le coeur des femmes (2017) [FLAC|Lossless|tracks] <French Chanso
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885453.jpg" />
 </div>
 
 
@@ -723,35 +752,6 @@ Tony Carreira - Le coeur des femmes (2017) [FLAC|Lossless|tracks] <French Chanso
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31D65D7A7070636641BDD4F7E919807E76C14B8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495261   (882396) от 11.09.2021
-
-Влад Забелин - Новое и лучшее (2000) [FLAC|Lossless|tracks + .cue]<Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Воры в законе 4:18
-02. Мама, я вернусь 5:05
-03. Белый снег 4:36
-04. Стукач 4:14(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:03:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EB45ED89740929018A8967D9ECCF0C1912CEF87
 ```
 
 https://mybot314.ru/tekegram_catalog/

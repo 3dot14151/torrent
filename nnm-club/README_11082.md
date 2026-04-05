@@ -1,25 +1,25 @@
-###  Публикация: 1148625   (603487) от 07.07.2017
+###  Публикация: 1148172   (603951) от 06.07.2017
 
-Anna Wise - The Feminine: Act II (2017) [FLAC|Lossless|tracks + .cue] <Alternative, Electronic, Pop, R&B>
+Ignasi Terraza Trio - Imaginant Miro (2014) Swit Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603951.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Coconuts 04:18
-02.Some Mistakes 02:59
-03.Boss Bitch 01:04
-04.Stacking That Paper 03:50(   Читать дальше...   )Жанр: Alternative, Electronic, Pop, R&B
+01. Imaginant Miro [04:15]
+02. El Segador [04:36]
+03. Nocturn [05:20]
+04. Polaritats [05:33](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:47:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E82A71CF2A645B7AD7911C4FFBE944AFE5382EB0
+magnet:?xt=urn:btih:93F5D28CCD5A53EE3060D257B8BAAC1DC375125F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148691   (603486) от 07.07.2017
+###  Публикация: 1148387   (603950) от 06.07.2017
 
-VA - Complextro Collection [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Complextro>
+Frank Tate, Harry Allen, Dave McKenna - Live in Belfast (2001) Nagel-Heyer [FLAC|Lossless|image + .cue] <Mainstream Jazz>
 
->>
->>
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_603486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603950.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pex L - Alive [04:09]
-02. Pixl - Rat Twist [04:01]
-03. Belzebass - Wtf [04:27]
-04. Blaynoise - Devil&s Dance [04:32](   Читать дальше...   )Жанр: ComplextroПродолжительность: 05:11:15
+01. Four Brothers [8:44]
+02. On The Alamo [9:44]
+03. I'll Only Miss Her Whwn I Think Of Her [8:11]
+04. Fred [7:18](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:18:15
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:79E04025AC7ED96A540D7E3C04EDB7AE75B21978
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,25 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148598   (603485) от 07.07.2017
+###  Публикация: 1148149   (603949) от 06.07.2017
 
-VidCoder 2.56 + Portable [Multi/Ru]
+Ignasi Terraza Trio - Let Me Tell You Something (1999) 2006, Swit Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
 
->>Архив торрентов
->>Архив Программ
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603949.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатный видеоконвертер с многопоточной и пакетной обработкой файлов. В состав программы входит несколько фильтров, возможен предварительный просмотр видео. VidCoder позволяет настраивать качество итоговых файлов по ряду параметров: битрейту, размеру и т.п. Также есть несколько готовых наборов настроек для оптимизации видео под возможности мобильных устройств.Язык интерфейса: Русский, Английский, др.
+01. When It's Sleepytime Down South [05:42]
+02. Misty [04:28]
+03. Love for Sale [06:16]
+04. I Can't Get Started [05:20](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:56:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1A661DD9E769067197773FF5EF449125361075D5
+magnet:?xt=urn:btih:991136198C2516884223F2DBFAC3AE50B0A91B4C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,25 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148589   (603484) от 07.07.2017
+###  Публикация: 1148154   (603948) от 06.07.2017
 
-Уна / Una (2016) WEB-DLRip [MVO] [AD]
+Ignasi Terraza Trio - Jazz a les Fosques I (1999) 2006, Swit Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
 
->>
->>
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_603484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603948.jpg" />
 </div>
 
 
 ###  Подробнее
 
-15 лет назад юная Уна сбежала из дома со взрослым Рэем… Спустя годы в одном из журналов Уне попадается фотография бывшего: у него новая жизнь, новая семья и новое имя. Их внезапная встреча обнажит не только погребенные навсегда воспоминания, но и вытащит на поверхность потаенные желания, которые грозят разрушить их жизни до основания.Производство: Великобритания, США, КанадаЖанр: Драма, триллерРежиссер: Бенедикт ЭндрюсАктеры: Руни Мара, Риз Ахмед, Бен Мендельсон, Тобайас Мензис, Тара Фитцджеральд, Наташа Литтл, Поппи Корби-Туч, Изобель Моллой, Киаран МакМенамин, Ричард Каннингэм ...Перевод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:36:18Реклама: Присутствуют вставки голосовой, видео и текстовой рекламы!
+01. Candy [05:41]
+02. September Song [06:25]
+03. Love for Sale [05:56]
+04. I Remember Clifford [07:13](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:06:05
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:528D506D2736AEA991875CAC7077025708A7AFF7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148309   (603483) от 07.07.2017
+###  Публикация: 1148161   (603947) от 06.07.2017
 
-Jonn serrie - Thousand star (2009) [FLAC|Lossless|tracks + .cue] < New Age, Ambient>
+Susana Sheiman & Ignasi Terraza Trio - Swing Appeal (2011) Swit Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603947.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Thousand Star (8:16)
-02.Flow Of Time's Arrow (7:22)
-03.Belle E'Poque 3012 (8:16)
-04.The Visionary (9:05)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:05:29
+01. I'm Glad There Is You [05:35]
+02. P.S. I Love You [04:15]
+03. Spring Can Really Hang You Up the Most [05:13]
+04. Just One of Those Things [03:02](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:46F5A0B05A4FC17596013746F81C5F9A93176754
+magnet:?xt=urn:btih:D0599BC5588194726DCF98FA25DB54C34E90BB8C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,25 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148094   (603482) от 07.07.2017
+###  Публикация: 1148175   (603946) от 06.07.2017
 
-На холостом ходу / Running on Empty (1988) DVDRip
+Ignasi Terraza - Sol-IT (2010) 2CD, 2012, Swit Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603946.jpg" />
 </div>
 
 
 ###  Подробнее
 
-17-летний Денни, старший сын в семье Энни и Артура Поуп. Вот уже 15 лет семейство Поупов живет под вымышленными именами. Когда-то, в бурные 60-е, родители Денни под воздействием больших перемен в обществе и политике стали активистами антивоенного движения и попали в «черные списки». С тех пор у них началась нелегальная жизнь. Но сыновья подросли, и кочевать с места (   Читать дальше...   )Производство: США / Double Play, Lorimar Film EntertainmentЖанр: ДрамаРежиссер: Сидни ЛюметАктеры: Кристин Лати, Ривер Феникс, Джадд Хирш, Йонас Эйбри, Марта Плимптон, Эд Краули, Л. М. Кит Карсон, Стивен Хилл, Аугуста Дэбни, Дэвид МаргулисПеревод: Двуголосый закадровыйСубтитры: отсутствуютПродолжительность: 01:51:30
+CD1:
+01. You're My Everything [05:02]
+02. These Foolish Things [05:07]
+03. Round Midnight [04:58](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:42:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0E9B1851191841C351D65F28AB5E152447672D2D
+magnet:?xt=urn:btih:82C4EA76AEA7707F9EC1CD59F93B83A3192F5401
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -163,28 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148517   (603481) от 07.07.2017
+###  Публикация: 1148190   (603945) от 06.07.2017
 
-Instant Translate – translator, dictionary, voice 3.0.1 [Multi/Ru]
+The Pharaohs - Awakening (1971) 1996, Scarab Records, Luv 'N Haight, Ubiquity Recordins  -  LHCD 025 [FLAC|Lossless|tracks + .cue] <Jazz-Funk>
 
->>
->>
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_603481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603945.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Переводите даже за пределами браузера!
-Большое и удобное всплывающее окно, к которому всегда есть доступ из панели задач.
-Также вы можете назначить горячую клавишу, чтобы открывать его ещё быстрее!
-(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 06 июля 2017Разработчик: Andrii Liakh, Oleksii ChernikovПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Немецкий, Украинский
+01. Damballa (8:03)
+02. Ibo (3:51)
+03. Tracks of My Tears (4:08)
+04. Black Enuff (2:57)(   Читать дальше...   )Жанр: Jazz-FunkПродолжительность: 00:42:40
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:0C7C3CFB8EF04C5E3BCC343F5771FF72C6E69F23
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -192,26 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148554   (603480) от 07.07.2017
+###  Публикация: 1148403   (603944) от 06.07.2017
 
-Звонница (изд.) | Дневник кающегося [Перечень смертных грехов и страстей] (2014) [DJVU]
+Roland Kirk - I Talk With The Spirits (1964) 1998, Verve [WavPack|Lossless|image + .cue] <Hard Bop>
 
->>
->>
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_603480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603944.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Учение о страстях, которое в древности было известно многим опытным христианам, сегодня, к горькому сожалению, практически забыто. Даже названия страстей для большинства - неизвестны. Тем более, мало кто знает противоположные им добродетели. Страсти, как сорняки, надо пропалывать на грядке своего сердца, а добродетели, как добрые плоды, терпеливо выращивать.
-Данное (   Читать дальше...   )Жанр: ХристианствоФормат: DJVU
+01. Serenade to a Cuckoo [04:34]
+02. We'll Be Together Again / People (from 'Funny Face') [04:41]
+03. A Quote From Clifford Brown [04:25]
+04. Trees [06:21](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:40:56
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:2DAEC1E108238EE0DD91E4BAA8D7B913D5AF7E61
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -219,28 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148630   (603479) от 07.07.2017
+###  Публикация: 1148157   (603943) от 06.07.2017
 
-VA - Sport Music Fitness Personal Trainer (2017) [MP3|320 Kbps] <Electronic, Trance, Progressive>
+Toni Sola & Ignasi Terraza Trio - Night Sounds (2000) 2007, Swit Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
 
->>
->>
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_603479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603943.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Ronnie Minder - Tomorrow's Another Day (Hardenbrook's Raving Mad Electro Mix) (feat. Aaron Jakubenko)
-2. Ronnie Minder - City Of Angels (Lennox From Melbourne To LA Remix)
-3. Ron's Labyrinth - Tenchu (Lennox Remix)
-4. Technoir - I Would Do It All Again (Sandro Van Thun Remix)(   Читать дальше...   )Жанр: Electronic, Trance, ProgressiveПродолжительность: 06:02:48
+01. The End of a Love Affair [04:37]
+02. You've Changed [05:20]
+03. Just in Time [04:29]
+04. Quintessence [05:41](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:54:22
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:147DB13DB1AE52745D53AA82908A7A9DAE2DADDE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -248,334 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547198   (603478) от 27.04.2022
+###  Публикация: 1148407   (603942) от 06.07.2017
 
-Speckmann Project - Fiends of Emptiness (2022) [MP3|320 Kbps] <Death Metal, Oldschool>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Absolute Power [00:02:28]
-02 - Indifferent [00:02:37]
-03 - A Sick Carnival [00:02:09]
-04 - Destroy the Weak [00:02:34](   Читать дальше...   )Жанр: Death Metal, OldschoolПродолжительность: 00:35:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A6C80FFC203A90046A3CFE7E6E3B62B3F60CA2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547248   (603477) от 27.04.2022
-
-Submerge 3 v3.8.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Submerge - это самый простой способ добавления субтитров к вашим фильмам и телешоу.
-Фильм с субтитрами будет воспроизводиться практически на всех «девайсах», таких как ваш компьютер, смартфон, портативное устройство или игровая приставка. Submerge поддерживает множество текстовых форматов субтитров в качестве входных данных, и вы можете экспортировать фильм (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.04.2022Разработчик: © 2022 Bitfield ABПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Арабский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEA3A61920234CDC0A4CF5DB5688A9D949AC40BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547194   (603476) от 27.04.2022
-
-Inlights - Cliffhanger (2022) [MP3|320 Kbps] <Post-Hardcore, Easycore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Turn the Light [00:03:02]
-02 - Take Me Home [00:03:39]
-03 - I Hurt You [00:02:56]
-04 - Brand New World [00:03:08](   Читать дальше...   )Жанр: Post-Hardcore, EasycoreПродолжительность: 00:32:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40D45426DD8692E89592E9D718607562B03ECC13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547191   (603475) от 27.04.2022
-
-Dead Days - Tyrants (2022) [MP3|320 Kbps] <Post Hardcore, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tyrants [00:00:39]
-02. In the Company of Wolves [00:03:23]
-03. Suffering [00:03:13]
-04. Immortal [00:03:54](   Читать дальше...   )Жанр: Post Hardcore, MetalcoreПродолжительность: 00:24:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA36D57E71A10CC61397B9EFEE72E50179534093
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547078   (603474) от 27.04.2022
-
-Nomad Desert - 3 Relise (2021-2022) [MP3|320 Kbps] <Heavy Stoner Rock>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_603474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Insectoids [00:03:24]
-02. Opium Dens [00:03:50]
-03. Bad Ass Barbarian Women [00:03:30]
-04. They Call me Zeus [00:03:03](   Читать дальше...   )Жанр: Heavy Stoner RockПродолжительность: 3 CD, 01:07:43
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547307   (603473) от 27.04.2022
-
-Speckmann Project - Fiends of Emptiness (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Oldschool>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Absolute Power [00:02:28]
-02 - Indifferent [00:02:37]
-03 - A Sick Carnival [00:02:09]
-04 - Destroy the Weak [00:02:34](   Читать дальше...   )Жанр: Death Metal, OldschoolПродолжительность: 00:35:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:073DB337C6982981D8A7070122B4DC0E53C9D5BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547097   (603472) от 27.04.2022
-
-Dozethrone - 13 Albums (2019-2022) [MP3|320 Kbps] <Sludge Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Tomb of Despots [00:15:15]
-02. Where the Bodies Are Embalmed [00:16:02]
-03. The Mask of Red Death [00:13:02]Жанр: Sludge Doom MetalПродолжительность: 13 CD, 08:27:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8B3BF85CBE91085B9EF3CCDE61E571E171A61D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547216   (603471) от 27.04.2022
-
-GoodTask 7.0.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603471.jpg" />
-</div>
-
-
-###  Подробнее
-
-У многих из нас каждый день настолько плотный график, такое количество важных задач, которые нужно выполнить, что ненароком, можно о чем-то случайно забыть.
-GoodTask — это элегантная и мощная «напоминалка», которая прекрасно взаимодействует со стандартным приложением Reminders и Календарем. Какую бы заметку вы в нем не оставили, она тут же будет отображаться в GoodTask. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.04.2022Разработчик: © 2022 haha interactiveПоддерживаемая ОС: OS X 10.13+Язык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8369B005B9917B869AB1F8417EE3CC5828F34BC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547220   (603470) от 27.04.2022
-
-inPixel 2.0 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакетная обработка изображений, папок и множественных представлений. Преобразование, изменение размера, переименование, добавление водяных знаков, настройка, улучшение, применение фильтров, эффектов, создание значков и наборов значков, изменение цветового пространства.
-Создайте пресет, и все готово. inPixel всегда будет рядом с вами, в фоновом режиме или в строке (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.11.2020Разработчик: © 2022 Quentin AppsПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBB0FDC31EEFED882B09B3BEF8B8A0B27DCFF9E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547214   (603469) от 27.04.2022
-
-FSNotes 5.4.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603469.jpg" />
-</div>
-
-
-###  Подробнее
-
-FSNotes - это менеджер текстовых заметок для macOS и представляет собой современное переосмысление нотационной скорости (nvALT) на стероидах. В нашем приложении рассматриваются следующие открытые форматы: plain / text, Markdown и RTF, а также хранятся данные в файловой системе. Вы можете просматривать, редактировать и копировать данные в своем любимом внешнем редакторе (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.04.2022Разработчик: © 2022 Oleksandr GlushchenkoПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Украинский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43B227D6E212EF05D1704F4BDDB71E30BB317855
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547232   (603468) от 27.04.2022
-
-SQLPro for SQLite 2022.32 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603468.jpg" />
-</div>
-
-
-###  Подробнее
-
-SQLPro for SQLit‪e - профессиональный менеджер баз данных SQLite.Тип издания: macOS SoftwareРелиз состоялся: 27.04.2022Разработчик: © 2022 Hankinsoft Development Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85E77471259A94CD6AF827B725686BAB495680F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547108   (603467) от 27.04.2022
-
-Greenbeard - Variant (2022) [MP3|320 Kbps] <Stoner Metal, Doom Metal>
+VA - Ibiza Landscape Vol. 10 (2017) [MP3|320 Kbps] <Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603942.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Creatures of the Night
-02. Burns Like Basketweave
-03. Get in the Car. No Time to Explain
-04. Diamond in the Devil's Grinder(   Читать дальше...   )Жанр: Stoner Metal, Doom MetalПродолжительность: 00:33:19
+01. Sunvision - Shadow (Original Mix)
+02. RnaDh3 - Forever In My Heart (Original Mix)
+03. Vokoglok - Sight (BadEQ Remix)
+04. Yuri Yavorovskiy - The Cycle (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:56:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B987BA13B72E5A108EB7F96480F80B8E9602F491
+magnet:?xt=urn:btih:D378555DE80A8FBBF63E7D0B7B24691FE05701D0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -583,28 +288,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547325   (603466) от 27.04.2022
+###  Публикация: 1148423   (603941) от 06.07.2017
 
-Экспедиция Восход - Трансатлантика. Часть 1 (2022) [MP3|320 Kbps] <Alternative Rock, Pop-Punk>
+Monster Energy NASCAR Cup Series 2017. 17-й Этап. Daytona-Coke Zero 400 (01.07.2017) HDTVRip [H.264/720p-LQ] [EN]
 
->>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603941.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Жди на той стороне [00:03:12]
-02. Гольфстрим [00:02:41]
-03. Не мой дом [00:03:12]
-04. На слишком правильном пути [00:02:47](   Читать дальше...   )Жанр: Alternative Rock, Pop-PunkПродолжительность: 00:28:52
+1 июля 2017 года
+Monster Energy NASCAR Cup Series 2017 является 69-м сезоном профессиональных гонок автомобилей в США и 46-м сезоном современной эпохи NASCAR Cup Series.
+17-й Этап. Coke Zero 400. Дейтона-Бич (штат Флорида, США)
+Дистанция: 400 миль (640 км), 160 кругов  (круг - 2,5 мили (4,0 км))(   Читать дальше...   )Телекомпания: NBC SportsЖанр: СпортЯзык озвучки: АнглийскийСубтитры: Английские (отключаемые)Продолжительность: 03:22:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7D801C6E774D1F6D78211B213AFE54A9EE59A23E
+magnet:?xt=urn:btih:24D61D8367B7B28567B4029843EDB029E10425FA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -612,25 +317,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547359   (603465) от 27.04.2022
+###  Публикация: 1148365   (603940) от 06.07.2017
 
-Елена Коростенская | Хранитель, почти ангел (2022) [MP3, Сергей Хусаинов]
+Бокс. Роберт Истер vs Денис Шафиков / Robert Easter Jr vs Denis Shafikov (30.06.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603940.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Повесть в увлекательной форме знакомит юного читателя с некоторыми страницами нашей недавней истории при помощи главных героев: мальчика–подростка и его ангела-хранителя. Показывает, что может произойти, если быть неосторожным и напрасно рисковать своей жизнью.Жанр: ФантастикаПродолжительность: 02:14:04
+30 июня 2017 года
+Профессиональный бокс.
+Роберт Истер-младший (США) — Денис Шафиков (Россия)
+Статус: Чемпионский бой за титул чемпиона мира по версии IBF в легком весе(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 00:57:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:26C950D14EA0E5E3E289DF4A2DBF94CBDCC3F937
+magnet:?xt=urn:btih:80BF6EC85293DAEAD6960790EED67C871D52CAB2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -638,28 +346,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547215   (603464) от 27.04.2022
+###  Публикация: 1148401   (603939) от 06.07.2017
 
-Откровения Дождя (Revelations Of Rain) - 5 Albums (2007-2016) [FLAC|Lossless|image + .cue] <Doom Metal, Slow Death Metal>
+A Better Finder Rename 10.19 [En]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603939.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Алтарь блудниц (8:54)
-02. Сквозь ночь Фобетора (6:46)
-03. Эшафот (8:29)
-04. В грусти и радости (9:08)(   Читать дальше...   )Жанр: Doom Metal, Slow Death MetalПродолжительность: 5 CD, 05:44:47
+A Better Finder Rename является лучшим решением для автоматизации процесса переименования большого количества файлов. Программа работает как отдельное приложение, однако может быть вызвано и из контекстного меню Finder.
+Под простым и понятным интерфейсом A Better Finder Rename скрываются гибкие настройки переименования файлов. В программе есть полный комплект настроек, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 05 июля 2017Разработчик: Frank ReiffПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AFF8C5DD591883FB2A7788F9E2B4FFA86E1B9906
+magnet:?xt=urn:btih:97C044F8CAD83847298DEA2701EEE6090C4A883E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -667,27 +373,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547277   (603463) от 27.04.2022
+###  Публикация: 1148291   (603938) от 06.07.2017
 
-Хоккей. НХЛ 2021-2022. Аризона Койотс - Миннесота Уайлд (26.04.2022) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+И. И. Иоффе | Новый стиль (1932) [PDF]
 
->>Спорт и активный отдых
->>Хоккей
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603938.jpg" />
 </div>
 
 
 ###  Подробнее
 
-27 апреля 2022, среда. 03:00 МСК
-Стадион: Эксел Энерджи-центр (Сент-Пол, США), 18 383 зрителя (95% при вместимости 19 326)
-Главный судья: Грэм Скиллитер (Ла Ронж, Канада); Главный судья: Гарретт Рэнк (Эльмира, Канада)Телекомпания: BSЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:46:54
+Постановление ЦК ВКП(б) от 23 апреля 1932 года о перестройке литературно-художественных организаций ставит важнейшую задачу создания высокохудожественных произведений. Эта задача может быть успешно разрешена только при наличии творческих исканий и развертывании творческой дискуссии.
+
+Предлагаемая вниманию читателя книга Иоффе „Новый стиль" содержит ряд ошибочных (   Читать дальше...   )Жанр: История, политология, искусствоФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FE9486AB34CEC2D5A39B5F63A704467B3FDB2CE4
+magnet:?xt=urn:btih:97373FECF73EF3969097058D33F090D7FAEFA151
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -695,28 +401,321 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547201   (603462) от 27.04.2022
+###  Публикация: 1148267   (603937) от 06.07.2017
 
-Эйфори.Я - Кофе (2022) [MP3|320 Kbps] <Alt. Rock, Post Grunge>
+Script Debugger 6.0.5 [En]
 
->>Rock, Alternative, Punk, Metal
->>Русский рок
+>>
+>>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_603937.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - ХБПВР [00:03:37]
-02 - Стая (feat. Round Hills) [00:03:18]
-03 - Свинец [00:04:13]
-04 - Трудно дышать [00:03:42](   Читать дальше...   )Жанр: Alt. Rock, Post GrungeПродолжительность: 00:36:15
+Script Debugger предлагает пользователям всё, что необходимо для быстрого создания авторских скриптов AppleScript. Ни одна из утилит не сравнится с Script Debugger в быстроте и простоте создания, редактирования и отладки скриптов AppleScript. Встроенный браузер Dictionary предлагает пользователю больше информации, чем любая другая утилита.
+
+Редактор полностью поддерживает (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 05 июля 2017Разработчик: Late Night Software LtdПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB9710E6EBC26963938A2D06C5E37268F975A311
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148292   (603936) от 06.07.2017
+
+VA - Sportsorica Vol.2 (2017) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yuri Yavorovskiy vs Alex007 - Record Games
+02. Neil Hunter - Phoenix
+03. Anton Kotov - The Independens
+04. Alex007 - Road By Rail(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 00:58:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:795211BA55173B003083B5B774A943184E875122
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148397   (603935) от 06.07.2017
+
+VA - Inspirations Uplifting Trance Hymns (2017) [MP3|256-320 Kbps] <Uplifting, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603935.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. AirLab7 - Reminiscent Of My Teen Life (Original Mix)
+002. Alan Morris & Ana Criado - Border Line (Original Mix)
+003. Flash Brothers, Susie Ledge - Where I Belong (Incognet Remix)
+004. Ana Criado - Still There's You (A.R.D.I. Remix)(   Читать дальше...   )Жанр: Uplifting, Vocal TranceПродолжительность: 10:24:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69592796C4C8B43B314A2BF1A5A43209ACAC34CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547075   (603934) от 26.04.2022
+
+Microsoft Edge 100.0.1185.50 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Edge – кроссплатформенный веб-браузер на базе Chromium. Отличается высокой скоростью работы, хорошей производительностью и совместимостью со всеми современными веб-стандартами. Microsoft Edge – это скорость, производительность и совместимость со всеми вашими любимыми сайтами и расширениями. Начните работу с браузером так, как вам удобно, импортировав закладки, (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABC311C0D14FD44850F2F69A4BE2DC82B8B34B69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547092   (603933) от 26.04.2022
+
+Бегство рогатых викингов (2018) WEB-DLRip [H.264]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603933.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ещё один день, и Джонни Воробьёву исполнится девять лет. Тогда он наконец-то освободится от своего летнего «рабства» в летнем лагере под присмотром несносной старшей сестры и сможет спокойно проводить каникулы с своими друзьями. Но Джонни даёт благородное обещание остановить зловредного Тольку Самохина и его банду рогатых викингов и прекратить их набеги на ребятишек (   Читать дальше...   )Производство: Россия / Ассоциация НП «КОТ»Жанр: Семейный, Комедия, Детский, ПриключенияРежиссер: Илья БелостоцкийАктеры: Евгений Олещук, Илья Плясухин, Даша Чистякова, Мирослав Быков, Никита Смирнов, Никита Липунов, Алексей Ломакин, Алина Бабушкина, Артём Кожевников, Андрей ЛауферСубтитры: ОтсутствуютПродолжительность: 01:10:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2245C963DBD0DED9AB77DB933DB53EE4ED8B8B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547099   (603932) от 26.04.2022
+
+Макс Далин | «Мир Королей» Книга 1. Убить некроманта (2021) [MP3, Ярослав Леухин]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_603932.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дольф – король Междугорья. Некромант. Диктатор, ненавидимый собственным народом и обвиняемый во всех смертных грехах, в число которых входят содомия, некрофилия, убийство родственников ближних и дальних, сношения с силами Ада, завоевательные походы, ещё и ещё убийства… Что из этого правда, а что нет, Дольф расскажет сам, не пытаясь себя обелить…Жанр: Героическое фэнтези, Книги про вампиров, Русское фэнтезиПродолжительность: 11:53:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547057   (603931) от 26.04.2022
+
+Ник Перумов | Я, Всеслав (Сборник) (2022) [MP3, Илья Дементьев]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_603931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Боги большинства стран мира пали под натиском Белого Христа. Теперь могучий чародей, хранитель Русского Меча – артефакта, не раз спасавшего нашу землю от врагов, – и главный защитник всей русской земли князь Всеслав Полоцкий вынужден скрываться в забытой глубинке, пока его родная страна превращается в младшего партнера Западного мира.
+Но на протяжении многих веков (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтези, Русское фэнтезиПродолжительность: 05:26:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547080   (603930) от 26.04.2022
+
+Adobe Substance 3D Designer 12.1.0 [Multi]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_603930.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откройте для себя силу процедурного творчества. С помощью Substance 3D Designer создавайте бесшовные материалы и узоры, фильтры изображений, источники света или даже 3D-модели. Каждый актив может выводить бесконечное количество вариантов.Тип издания: macOS SoftwareРелиз состоялся: 26.04.2022Разработчик: © 2022 Adobe SystemsПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546974   (603929) от 26.04.2022
+
+Photo Art Filters - DeepStyle 1.0.2 [Multi]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_603929.jpg" />
+</div>
+
+
+###  Подробнее
+
+DeepStyle — крутой революционный фоторедактор, который сочетает в себе нейронные сети и искусственный интеллект, чтобы сделать ваше цифровое искусство потрясающим. Он превращает ваши фотографии во впечатляющие произведения искусства, используя разнообразные фильтры и стили, включая стиль аля Пикассо, аниме, комиксы, мультфильмы, эскизы и т. д., а также ваши собственные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.12.2017Разработчик: © EffectmatrixПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Традиционный китайский, Упрощенный китайский и Японский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547093   (603928) от 26.04.2022
+
+Юлиан Семенов | ТАСС уполномочен заявить (2020) [MP3, Всеволод Кузнецов]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_603928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Москва. Конец 1970-х годов. По данным контрразведки СССР сотрудники ЦРУ завербовали одного из ведущих специалистов, обладающего секретной информацией о советских поставках в дружественную нам южноафриканскую страну Нагонию. Учитывая предельно сложную обстановку в Нагонии, связанную с попытками американцев устроить государственный переворот, разоблачение вражеского (   Читать дальше...   )Жанр: ДетективПродолжительность: 10:57:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546984   (603927) от 26.04.2022
+
+RAR Extractor Max-Unzip Winrar 8.7.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603927.jpg" />
+</div>
+
+
+###  Подробнее
+
+RAR Extractor Max унаследовал преимущества RAR Extractor Pro, разработчики переработали интерфейс и добавили более мощные функции.
+Поддержка разархивирования RAR, winmail.dat, ZIP, 7z, tbz, sti, tar, xar, lha, lzh, hqx, bin, bz2, bzip2, bz, xz, iso, cid, nrg, mdf, taz, lzma, exe, msi, cpio, lzx, jar, swf, xip, ace, arj, pak, pkg, apk, lbr, lqr, cab, rpm, cpt, sea, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.04.2022Разработчик: © 2020 by Elimisoft.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:552ED098317BBD753667EF5C5A403FFEF1891D1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547007   (603926) от 26.04.2022
+
+Venomode - Phrasebox 1.2.4 VSTi, AAX (x86/x64) [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Phrasebox — это фразовый арпеджиатор, который дает вам беспрецедентный контроль над воспроизведением. С помощью Phrasebox вы можете создавать выразительные многослойные мелодии, которые не ограничены по времени и длине по сравнению с традиционными пошаговыми арпеджиаторами.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:896F08CD8DEA48BA201644EAF4770006E1004B75
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,84 @@
+###  Публикация: 1199957   (796833) от 19.01.2018
+
+Лао-цзы | Дао Дэ Цзин (2014) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796833.jpg" />
+</div>
+
+
+###  Подробнее
+
+В трактате Дао-дэ цзин (IV—III в. до н.э.) излагаются основы даосизма, философии Лао-цзы.
+В центре доктрины — учение о великом Дао, всеобщем Законе и Абсолюте. Дао господствует везде и во всем, всегда и безгранично.
+Его никто не создал, но все происходит от него. Невидимое и неслышимое, недоступное органам чувств, постоянное и неисчерпаемое, безымянное и бесформенное, (   Читать дальше...   )Жанр: Философия, эзотерикаПродолжительность: 03:16:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B2FE5BB6E12C44F7F3ED7C89DDEAF5B50A9BFB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011732   (796350) от 28.04.2016
+
+Светлана де Роган-Левашова | Откровение (2012) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Светлана довольно подробно описала свою жизнь в тот период – нелёгкую жизнь одарённого ребёнка, которого окружающие не понимают, боятся, а подчас даже ненавидят. Она первая очень интересно и доходчиво описала другие материальные уровни нашей планеты: эфирный, астральный и ментальный. Рассказала много интересного об обитателях этих уровней, о некоторых особенностях (   Читать дальше...   )Жанр: эзотерика, автобиографияПродолжительность: 24:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEF019F654C870ABFD5A4D47725E2A0174578D18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012052   (795572) от 29.04.2016
+
+Александр Ракитин | Справочник садовода-любителя (2015) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор, не претендуя на исчерпывающую информацию, подготовил настоящий справочник, в котором в доступной для начинающих садоводов форме приведен необходимый минимум сведений и пояснительного материала.
+Рекомендации, содержащиеся в данном справочнике, рассчитаны на граждан, имеющих садовые участки в Московской области и прилегающих к ней областях Центрального Нечерноземья.Жанр: СправочникПродолжительность: 09:57:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:498F3C82C3E6C7C83B0844D85FF7C07318CAEABE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012013   (795519) от 29.04.2016
 
 Наталья Жирмунская | Умный компост (2014) [MP3]
@@ -6,7 +87,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795519.jpg" />
 </div>
 
 
@@ -34,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795345.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793997.jpg" />
 </div>
 
 
@@ -88,7 +169,7 @@ George Carlin | Подкасты (1977-2008) [MP3]
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793989.jpg" />
 </div>
 
 
@@ -115,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793986.jpg" />
 </div>
 
 
@@ -141,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793870.jpg" />
 </div>
 
 
@@ -167,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793779.jpg" />
 </div>
 
 
@@ -193,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793581.jpg" />
 </div>
 
 
@@ -219,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792179.jpg" />
 </div>
 
 
@@ -245,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791440.jpg" />
 </div>
 
 
@@ -271,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790872.jpg" />
 </div>
 
 
@@ -297,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788805.jpg" />
 </div>
 
 
@@ -326,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788798.jpg" />
 </div>
 
 
@@ -355,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788790.jpg" />
 </div>
 
 
@@ -381,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788775.jpg" />
 </div>
 
 
@@ -410,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786564.jpg" />
 </div>
 
 
@@ -437,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786130.jpg" />
 </div>
 
 
@@ -463,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785934.jpg" />
 </div>
 
 
@@ -489,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785278.jpg" />
 </div>
 
 
@@ -515,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784907.jpg" />
 </div>
 
 
@@ -543,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784507.jpg" />
 </div>
 
 
@@ -569,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784366.jpg" />
 </div>
 
 
@@ -595,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780386.jpg" />
 </div>
 
 
@@ -606,87 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C075D19FB5BFB1C0AC9CA70CD88AD216B050E01B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207941   (780219) от 20.02.2018
-
-Диоген Лаэртский | О жизни, учениях и изречениях знаменитых философов (2018) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780219.jpg" />
-</div>
-
-
-###  Подробнее
-
-Диоген из Лаэрты в Киликии (первая половина III в. н.э.), грамматик афинский, оставил нам единственную написанную в античности "историю философии" – 10 книг, в которых излагаются учения древнегреческих мыслителей, начиная с семи мудрецов и кончая стоической и эпикурейской школами. Его трактат представляет собой любопытнейшую и интереснейшую античную смесь (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураПродолжительность: 22:40:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C48C458641B957F8225A9A395CE8818D30CB326E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052001   (778050) от 05.03.2018
-
-Юрий Окуловский | Научное мышление (2016) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778050.jpg" />
-</div>
-
-
-###  Подробнее
-
-ЦЕЛЕВАЯ АУДИТОРИЯ: Школьники старших классов и студенты бакалавриата
-
-Этот курс — о научном, рациональном мышлении в самом широком смысле. Вы научитесь строить логические умозаключения, вести дискуссии, разоблачать лженауку и псевдологические манипуляции. Мы поговорим о том, как проводить исследования — не только в "большой" науке, но и в повседневных вопросах (   Читать дальше...   )Жанр: лекцииПродолжительность: 20:56:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D90394DDC7EDE678315E5C0DEB58574DBE5D44C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014007   (776410) от 07.05.2016
-
-Аристотель | Политика (2008) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аристотель (384-322 до н.э.) – знаменитейший древнегреческий философ, оказавший исключительное влияние на развитие западноевропейской философии. Главное место среди его произведений, посвященных государству и обществу, занимает «Политика».
-В своем труде Аристотель рассматривает основы государственного устройства, конституцию и законодательство, формы государственного (   Читать дальше...   )Жанр: ФилософияПродолжительность: 14:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65D2D6E982D3A276602B0AE07AE79D5713588008
 ```
 
 https://mybot314.ru/tekegram_catalog/

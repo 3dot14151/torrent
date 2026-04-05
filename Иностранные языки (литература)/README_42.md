@@ -6,7 +6,7 @@ Julie Lachance | Basic English. Second edition (2015) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54086.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Roger Berry | From Words to Grammar (2015) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54062.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Christine C.M. Goh, Anne Burns | Teaching Speaking (2012) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54040.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Julie Lachance | Practice Makes Perfect: Basic English. Premium Fourth Edition (
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53982.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Tom Booth | English for Everyone. Teacher's Guide (2018) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53953.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Collins Dictionaries | English Visual Dictionary (2020) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53869.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Oxford University | Oxford Writing Tutor (2010) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53846.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Bruce Stirling | Pre-TOEFL Guide. Academic English Practice (2017) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53740.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ U.O. Alday | Colloquial Spanish: The Complete Course for Beginners (2010) [PDF] 
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53716.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53685.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Mohammad. Alhawary | Arabic Grammar in Context (2016) [EPUB, MP3] [EN/AR]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53667.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Carol Fehringer | German Grammar in Context. Third edition (2019) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53636.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Adrian Wallwork | Top 50 Vocabulary Mistakes (2018) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53522.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Bruce Stirling | TOEFL Strategies. A Complete Guide to the iBT (2016) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53517.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Learnhotenglish | English Unlocked! Book III (2016) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53447.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Christopher Seely, Kenneth G. Henshal | The Complete Guide to Japanese Kanji (20
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53429.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Emma Eberlein O.F. Lima, Samira A. Lunes | Falar, ler, escrever portugues. Um cu
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53425.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Department of Linguistics | Language Files. Twelfth edition (2017) [EPUB] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53344.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Tammi J. Schneider, Shelley L. Birdsong | The Bible Book (2018) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53300.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Diane Engelhardt | Perfect Phrases for ESL. Third edition (2022) [EPUB] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53231.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Joseph M. Williams, Joseph Bizup | Style. The Basics of Clarity and Grace. Fifth
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53196.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Rob Franek (editor) | Cracking the SAT Premium Edition with 7 Practice Tests (20
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53194.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Eliane Kurbegov | Practice Makes Perfect. French Conversation. Third edition (20
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53105.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Helen Gubby | English Legal Terminology Legal Concepts in Language. Fourth editi
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53100.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Rod Ellis, Natsuko Shintani | Exploring Language Pedagogy through Second Languag
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52888.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Lingo Mastery | Spanish Short Stories for Beginners (2018) [EPUB] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52875.jpg" />
 </div>
 
 

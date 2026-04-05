@@ -1,3 +1,29 @@
+###  Публикация: 1241523   (519069) от 18.08.2018
+
+Дикая Азия: Меж двух миров / Wild Asia: Between Two Worlds (2010) BDRemux [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во многих азиатских городах, дикие животные были частью народной повседневной жизни на протяжении веков. В северном индийском городе Бхаратпур, племена макак-резусов жили на протяжении поколений своей жизнью и диетой продиктованой жителями города. Но большинство по-настоящему дикие животные остаются за пределами города. Так как на все больших и больших пустыных земелях (   Читать дальше...   )Производство: США, Razor Digital Entertainment, Natural History New Zealand Ltd, NHK, Discovery Channel, NDR Naturfilm Studio Hamburg, Fernseh AllianzЖанр: Документальный, природа, флора, фаунаРежиссер: Ричард ТомасПеревод: Одноголосый закадровый, профессиональныйСубтитры: АнглийскиеПродолжительность: 00:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2F0BDBF4321EA09375ED212335A3630D0E7C569
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1561408   (515585) от 04.07.2022
 
 Дикие гризли Юкона / Yukon's Wild Grizzlies (2021) HDTV [H.264/1080i]
@@ -6,7 +32,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515585.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Nat Geo Wild: Дикая Тасмания. Страна Дьявола / Wild Ta
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515147.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Nat Geo Wild: Животные-рекордсмены: Секс / Ultimate Anima
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513566.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ BBC: Мир природы: Последний гризли / Natural Wold:The L
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513482.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510112.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Nat Geo Wild: Дикая Америка: Падальщики Йелоустоу
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509499.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507221.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505908.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505771.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503360.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503358.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503333.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503295.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502613.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502494.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501134.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500135.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499669.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499667.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ Nat Geo Wild: Чудаки животного мира. Африканская �
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499274.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499124.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498567.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ BBC. Истоки жизни. Зарождение (Первая жизнь с �
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495206.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492487.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492451.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32B7BB6579C82D49037E6BEC144716C8D7508716
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565605   (492309) от 24.07.2022
-
-Глубоко в сердце: история дикой природы Техаса / Deep in the Heart: A Texas Wildlife Story (2022) WEB-DL [H.265/2160p] [4K, HDR, 10-bit] [EN / EN, Spa Sub]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Техас — бывшая самостоятельная страна с огромной территорий, превышающей территорию такой страны, например, как Франция. Разумеется, и климат, и ландшафт на этой огромной территории различны: от севера, где зимой может выпасть снег, к югу с его звенящим испепеляющим зноем, от побережья Мексиканского залива до пустынь на границе с Нью-Мексико. Визуально ошеломляющее (   Читать дальше...   )Производство: США, Fin & Fur FilmsЖанр: документальный, природаРежиссер: Бен МастерсПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английские, испанскиеПродолжительность: 01:42:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5325C183E8EAD7975A43781C0652DDA70D380AF3
 ```
 
 https://mybot314.ru/tekegram_catalog/

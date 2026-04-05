@@ -6,7 +6,7 @@ NGW: В мире дикой природы. Долина смерти / Into The
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565736.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NG: Кладбище воинов. Флотилия проклятых / Warrior
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565734.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NG: Живая Земля / X-Ray Earth (Faszination Erde) (2011) BDRip [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565691.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NG: С точки зрения науки: Великое оледенение /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563820.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NGW: Дикая Арктика / Wild Arctic (2018) HDTV [H.264/1080i] (Сери
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563566.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NGW: Дожить до рассвета / Dead by Dawn (2019) HDTVRip [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563137.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563086.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ NGW: Дикие охотники. Рыбы / Wild Hunters. Fish (2019) HDTV [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559646.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ NG. Ограбление по-египетски / The Egyptian Job (2011) SATRi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558516.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557006.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ NG: Дикая природа Америки / Untamed Americas (2012) BDRip [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556403.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ NG: Человечество из космоса / Mankind from Space (2015) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556399.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ NGW: 72 самых опасных животных Австралии / 72 Dange
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556241.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ NG: Научные глупости / Science of stupid (2013) HDTVRip [H.264/72
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556239.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ NG: Взлом Системы / Hacking the System (2014) HDTVRip [H.264/1080p-L
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556209.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ NG. Международный аэропорт Дубай / Ultimate Airport Du
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555660.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ NG: Враждебная планета / Hostile Planet (2019) HDTVRip (Сез�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555640.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555631.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ NG: Загадки исполинов каменного века / Riddle of th
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555541.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554832.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ NG: Герои Средиземноморья / Heroes of the Mediterranean (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554428.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ NGW: Тайны дикой природы / Secrets Of The Wild (2013) HDTV [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554388.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ NGW: Городские джунгли / Urban Jungle (2014) HDTV [H.264/1080i-L
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554151.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ NGW. Стая: Львы / The Pack: Lions (Leslie Schwerin) (2010) HDTV [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554149.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ NGW. Тигр в бегах / Tiger on the Run (2015) HDTV [H.264/1080i]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554147.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ NGW: Убийцы с большого озера / The lakeshore Killers (2015) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554141.jpg" />
 </div>
 
 

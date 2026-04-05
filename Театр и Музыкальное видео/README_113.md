@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233799.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233471.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233394.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233260.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Depeche Mode: 101 (1989) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232765.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232034.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Joe Bonamassa - Live From The Royal Albert Hall (2009) DVD5 + DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231872.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ ZZ TOP - Double Down Live 1980 * 2008 (2009) DVD9+DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231853.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231460.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Joe Bonamassa "Live at rock palast" DVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231235.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Joe Bonamassa - An Acoustic Evening At The Vienna Opera House (2013) DVD9 + DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231161.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Lita Ford-The Complete Video Collection (2003) DVD9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230982.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ ROCKPOP IN DORTMUND: Scorpions, Def Leppard, QuietRiot, Judas Priest, Ozzy Osbou
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230950.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230764.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230391.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Deep Purple: Around The World Live (2008) (4 DVD Box Set) 3*DVD9 + DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230250.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Echoes - Barefoot To The Moon (An Acoustic Tribute To Pink Floyd) (2015) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_229852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229852.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229441.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ DVJ Bazuka - Rock'n'Roll (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229407.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Bob Marley - Concert tribute to Bob Marley(+бонус) (1999) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229323.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ ZZ Top - Live At Montreux 2013 (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228900.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227792.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227672.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226174.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226061.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225900.jpg" />
 </div>
 
 

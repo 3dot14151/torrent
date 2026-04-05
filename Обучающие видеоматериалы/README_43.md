@@ -1,3 +1,30 @@
+###  Публикация: 1460577   (1022366) от 06.04.2021
+
+Maven Analytics, Chris Dutton и др. | Power BI Specialist (2021) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот путь предназначен для пользователей, которые ищут исчерпывающее практическое руководство по самообслуживанию бизнес-аналитики с помощью Power BI Desktop, Power BI Service и Advanced DAX.
+Вы узнаете, как подключать и подготавливать данные из внешних источников, создавать реляционные модели данных и вычисления DAX, а также создавать настраиваемые интерактивные (   Читать дальше...   )Производство: Maven AnalyticsЖанр: Power BI, аналитикаЯзык озвучки: АнглийскийПродолжительность: 29:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2C0DCAA4173739DD272D57154C76FF6632E1166
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460347   (1022358) от 06.04.2021
 
 Maven Analytics, Chris Dutton и др. | Become a Excel Specialist (2021) PCRec [En]
@@ -6,7 +33,7 @@ Maven Analytics, Chris Dutton и др. | Become a Excel Specialist (2021) PCRec 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022358.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ Udemy, Алексей Решетов |  Web разработка в деталя
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022354.jpg" />
 </div>
 
 
@@ -62,7 +89,7 @@ Skillbox | Профессия Интернет-маркетолог от middle 
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022323.jpg" />
 </div>
 
 
@@ -89,7 +116,7 @@ Jeff Minakata | OSINT: Open-Source Intelligence (level 2) (2021) PCRec [En / En,
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022198.jpg" />
 </div>
 
 
@@ -115,7 +142,7 @@ LABA | IT-рекрутер. Где искать и как нанимать ай�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022171.jpg" />
 </div>
 
 
@@ -141,7 +168,7 @@ Udemy, Mrawan Hussain |  Создание и риггинг Железного �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022168.jpg" />
 </div>
 
 
@@ -168,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022164.jpg" />
 </div>
 
 
@@ -195,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022157.jpg" />
 </div>
 
 
@@ -224,7 +251,7 @@ Udemy, Skills Factory | Профессия разработчик Python. С н�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022146.jpg" />
 </div>
 
 
@@ -253,7 +280,7 @@ Udemy, Cronis Academy | Complete Algorithms Complexity and Big O Notation Course
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022067.jpg" />
 </div>
 
 
@@ -280,7 +307,7 @@ Udemy, Paulo Dichone | d3.js - Complete Developer Data Visualization Guide  (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022060.jpg" />
 </div>
 
 
@@ -309,7 +336,7 @@ Maven Analytics, Dustin Cabral | Intro to Tableau Desktop (2021) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022049.jpg" />
 </div>
 
 
@@ -337,7 +364,7 @@ Udemy, Danil Chigirev | Angular Architecture. How to Build Scalable Web Applicat
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022045.jpg" />
 </div>
 
 
@@ -365,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022017.jpg" />
 </div>
 
 
@@ -392,7 +419,7 @@ Udemy, Stephane Maarek | Apache Kafka Series - Kafka Connect Hands-on Learning  
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021983.jpg" />
 </div>
 
 
@@ -420,7 +447,7 @@ Skillbox, Николай Смирнов и др. | Таргетолог с ну�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021980.jpg" />
 </div>
 
 
@@ -448,7 +475,7 @@ The Tech Resume, Gergely Orosz | The Tech Resume. Inside out [Video Course + Ebo
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021910.jpg" />
 </div>
 
 
@@ -476,7 +503,7 @@ Udemy, Денис Цветцих | Как улучшить Enterprise архит
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021879.jpg" />
 </div>
 
 
@@ -502,7 +529,7 @@ Udemy, Shikhar Verma | Red Hat System Administration I-II (RH124, SA1-SA2, RHEL8
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021872.jpg" />
 </div>
 
 
@@ -529,7 +556,7 @@ Udemy, Inder Singh | MERN Stack:React, Socket io, Nextjs, Express,MongoDb, Nodej
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021868.jpg" />
 </div>
 
 
@@ -558,7 +585,7 @@ Udemy, Денис Цветцих | Чистая архитектура на пр
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021851.jpg" />
 </div>
 
 
@@ -584,7 +611,7 @@ WingFox, Maria Anikina | Создание реалистичных волос в
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021849.jpg" />
 </div>
 
 
@@ -610,7 +637,7 @@ DevelopedByEd, Dev Ed  | The Creative Javascript Course (2021) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021705.jpg" />
 </div>
 
 
@@ -639,7 +666,7 @@ SF Education, Барсукова Юлия | Презентации для про
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021692.jpg" />
 </div>
 
 
@@ -668,7 +695,7 @@ SF Education, Роман Павлов | Word: продвинутые возмо�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021691.jpg" />
 </div>
 
 
@@ -682,33 +709,6 @@ SF Education, Роман Павлов | Word: продвинутые возмо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BF999169F2887575B430AA8D019195B17BA165E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438519   (1021673) от 10.04.2021
-
-Udemy, Colt Steele | The Web Developer Bootcamp 2021 (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Материалы всего курса обновлены 04.2021.
-Привет! Добро пожаловать в совершенно новую версию The Web Developer Bootcamp, самого популярного курса Udemy по веб-разработке. Этот курс был полностью переработан, чтобы подготовить студентов к рынку труда 2021 года, с более чем 60 часами совершенно нового контента. Это единственный курс, который вам нужен для изучения веб-разработки. (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 63:09:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27D108ACDC8240512A55078B537789C884F13E5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

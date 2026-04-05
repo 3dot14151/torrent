@@ -1,3 +1,55 @@
+###  Публикация: 1192372   (263068) от 17.12.2017
+
+А.В. Пантелеев, Т.А. Летова | Методы оптимизации в примерах и задачах (2015) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены аналитические методы решения задач поиска экстремума функций многих переменных на основе необходимых и достаточных условий. Изложены численные методы нулевого, первого и второго порядков решения задач безусловной минимизации, а также численные методы поиска условного экстремума. Описаны алгоритмы решения задач линейного программирования, целочисленного (   Читать дальше...   )Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27C67BC11408AB407753A95AEC1C0BB28EB9F02F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192361   (263043) от 17.12.2017
+
+Е.А. Карелин | Заочное обучение печников 3 разряда (2010) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263043.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обучение состоит из теоретического курса и лабораторно-практических работ (макетирование печей). Теоретический курс и лабораторно-практические работы содержат в себе освоение кухонных очагов, отопительно-варочных (в том числе, дачных), отопительных, русских, банных печей, каминов и печей-каминов, что соответствует квалификации - печник 3-4 разряда.Жанр: СтроительствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C05D4E994FD893E628FD40DC98AD4E5A6154FCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1192084   (263035) от 17.12.2017
 
 В.Е. Карпов, К.А. Коньков | Основы операционных систем (2016) [PDF]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263035.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261920.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261756.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261754.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261691.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261690.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261686.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261181.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260896.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260884.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260770.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260552.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260293.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260273.jpg" />
 </div>
 
 
@@ -380,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259587.jpg" />
 </div>
 
 
@@ -406,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258972.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258345.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255821.jpg" />
 </div>
 
 
@@ -485,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255165.jpg" />
 </div>
 
 
@@ -512,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254982.jpg" />
 </div>
 
 
@@ -540,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254914.jpg" />
 </div>
 
 
@@ -567,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254584.jpg" />
 </div>
 
 
@@ -593,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254406.jpg" />
 </div>
 
 
@@ -619,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254389.jpg" />
 </div>
 
 
@@ -631,60 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:634623D94DB093D5A8EBFA7428CFEB021F67E348
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497252   (253457) от 16.05.2012
-
-Л.М.Балабанова | Судебная патопсихология (вопросы определения нормы и отклонений). Психология в системе силовых структур государства [1998] [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253457.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассматриваются патопсихологические особенности, механизм и мотивации преступных действий лиц с психическими аномалиями. Исследуются общепризнанные положения судебной патологии и обосновывается необходимость разработки и применения объективных методов диагностики эмоционально-значимых состояний, особенно при проведении судебно-психологистической экспертизы. В связи с этим анализируются системные принципы детерминации психофизиологических функции человека в аспекте индивидуальной нормы и разрабатывается концепция индивидуальной нормы состояния.
-Для курсантов, слушателей, студентов юридических специальностей вузов, а также практических работников правоохранительных органов.1998Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A6634B4B2772871FABC9BE91FEBFAFDC9159166
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635038   (252080) от 23.05.2023
-
-А.В. Бабич | Введение в UML (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс поможет составить представление о UML, убедиться в его простоте и полезности, поверить в свои способности к UML-моделированию, наметить направления дальнейшего совершенствования своих знаний.
-Курс не сделает из читателя профессионала, но поможет понять основополагающие концепции рассматриваемой технологии, на которые читатель сможет в дальнейшем "нарастить" (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C24FF5F047B5E8FA98846D110344A46E38F72356
 ```
 
 https://mybot314.ru/tekegram_catalog/

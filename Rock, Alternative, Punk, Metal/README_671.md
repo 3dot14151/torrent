@@ -1,3 +1,32 @@
+###  Публикация: 1574626   (383913) от 06.09.2022
+
+SkiZma - Unfairytales (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Heads of Tales
+02 - Slot Machine
+03 - Anomalines
+04 - Division(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:44:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B32559AF0C53F7451FFC6115DBA9B2C9B36BF67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 152095   (383893) от 12.11.2009
 
 Ляпис Трубецкой - Парад-Алле 2CD "Капитал+Манифест" (2009) [FLAC][lossless]<Punk>
@@ -6,7 +35,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_383893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_383893.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ Ends With A Bullet - I´m Still Standing (2022) [FLAC|Lossless|WEB-DL|tracks] <M
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383855.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ Gallia - 3 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Fe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383851.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383761.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ Ozzy Osbourne - 3 Singles (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Har
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383750.jpg" />
 </div>
 
 
@@ -147,7 +176,7 @@ Warlung - Optical Delusions (2020) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383723.jpg" />
 </div>
 
 
@@ -176,7 +205,7 @@ Holy Roller Baby - Frenzy (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Blues
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383633.jpg" />
 </div>
 
 
@@ -205,7 +234,7 @@ Paul Sabu - Kidd Glove (1995) [FLAC|Lossless|image + .cue] <Rock,  Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383632.jpg" />
 </div>
 
 
@@ -234,7 +263,7 @@ Sinner's Blood - The Mirror Star (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383631.jpg" />
 </div>
 
 
@@ -263,7 +292,7 @@ Crust (aus) - The Wake (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, G
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383630.jpg" />
 </div>
 
 
@@ -292,7 +321,7 @@ Prox - At Last (1979) LP [MP3|320 Kbps] <Krautrock, Space Rock, Prog Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383629.jpg" />
 </div>
 
 
@@ -321,7 +350,7 @@ Ascension of the Watchers - Apocrypha (2020) [FLAC|Lossless|WEB-DL|tracks] <Goth
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383627.jpg" />
 </div>
 
 
@@ -350,7 +379,7 @@ Smith & Myers - Volume 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383626.jpg" />
 </div>
 
 
@@ -379,7 +408,7 @@ The Vivisectors - Weird Tales Of Ghasly Islands (2012) [MP3|320 кб/с]<Black S
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383593.jpg" />
 </div>
 
 
@@ -414,7 +443,7 @@ Dynazty - Firesign (2018) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383566.jpg" />
 </div>
 
 
@@ -443,7 +472,7 @@ Impellitteri - The Nature Of The Beast (2018) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383562.jpg" />
 </div>
 
 
@@ -472,7 +501,7 @@ MaYaN - Dhyana (2018) 2CD [MP3|320 Kbps] <Symphonic Death Metal, Opera>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383559.jpg" />
 </div>
 
 
@@ -501,7 +530,7 @@ VA - Smooth Rock Classics (2018) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383557.jpg" />
 </div>
 
 
@@ -530,7 +559,7 @@ Ozric Tentacles - Space For The Earth (2020) [FLAC|Lossless|WEB-DL|tracks + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383538.jpg" />
 </div>
 
 
@@ -559,7 +588,7 @@ Venom Prison - Primeval (2020) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Hardc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383530.jpg" />
 </div>
 
 
@@ -588,7 +617,7 @@ Awaken - Monsters & Machines (2020) [MP3|320 Kbps] <Alternative Metal, Modern Ha
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383528.jpg" />
 </div>
 
 
@@ -617,7 +646,7 @@ The Unguided - Father Shadow (2020) [FLAC|Lossless|WEB-DL|tracks] <Modern Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383511.jpg" />
 </div>
 
 
@@ -646,7 +675,7 @@ Eden's Curse - Eden's Curse: Revisited (2017) [FLAC|Lossless|image + .cue] <Melo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383421.jpg" />
 </div>
 
 
@@ -675,7 +704,7 @@ Soulemission - Tales Of Inevitable Death (2016) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383369.jpg" />
 </div>
 
 
@@ -704,7 +733,7 @@ Roads Of Glass - Deadking (2016) [MP3|320 Kbps] <Progressive Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383368.jpg" />
 </div>
 
 
@@ -718,35 +747,6 @@ Roads Of Glass - Deadking (2016) [MP3|320 Kbps] <Progressive Metalcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E97C3A6F5A0B437FB28636604FBB8977510BC096
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068027   (383367) от 31.10.2016
-
-Roads To Nowhere - Lifeless (2016) [MP3|320 Kbps] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Artist [04:31]
-02. Left Alone [04:09]
-03. Unforgivable [03:01]
-04. Beneath [04:12](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:52:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BB54E4A1AD49309E4E99F7060767B142C4F2FA9
 ```
 
 https://mybot314.ru/tekegram_catalog/

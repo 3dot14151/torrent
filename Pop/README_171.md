@@ -1,177 +1,3 @@
-###  Публикация: 1555803   (565477) от 06.06.2022
-
-Christina Aguilera - Aguilera (2022) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ya Llegué [00:03:03]
-02 - Pa Mis Muchachas (feat. Nathy Peluso, Becky G, NICKI NICOLE) [00:03:36]
-03 - Somos Nada [00:03:01]
-04 - Santo (feat. Ozuna) [00:03:03](   Читать дальше...   )Жанр: PopПродолжительность: 00:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10BBFBA1EC23459B07518708CBF16FFEDF4CA02A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304334   (565420) от 25.05.2019
-
-Benelux & Nancy Dee - Benelux & Nancy Dee (1980) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Souvenirs (3:38)
-02. Do It (5:59)
-03. Save Your Life (3:00)
-04. Let Your Heart Beat (3:49)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:36:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10F9C800D0CCF8B5F85887FDC889CAE4C04A4176
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044629   (565338) от 20.08.2016
-
-Snoopy - Snoopy (1979) LP [MP3|320 Kbps] <Electronic, Disco, Reggae, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's All In The Bible (3:11)
-02. Down The Bayou (3:06)
-03. Rain, Snow And Ice (2:47)
-04. Honolulu (3:04)(   Читать дальше...   )Жанр: Electronic, Disco, Reggae, PopПродолжительность: 00:35:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAE595CF1C068EF653FFE3C16CEC111838CF4E4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152685   (565162) от 23.07.2017
-
-Digital Emotion - Best Of (2015) Compilation [FLAC|Lossless|tracks + .cue] <Electro, Hi NRG, Disco, Eurodance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Up, Action
-02. Go Go Yellow Screen
-03. The Beauty & The Beast
-04. Don't Stop(   Читать дальше...   )Жанр: Electro, Hi NRG, Disco, EurodanceПродолжительность: 01:18:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28A2F098E8026273027D7559201B0D62492D6802
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304237   (565128) от 25.05.2019
-
-VA - Now That's What I Call Music! 69 (2019) USA Series [FLAC|Lossless|tracks + .cue] <Pop, Rock, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ariana Grande - Breathin'  (3:13)
-02. Bastille & Marshmello - Happier  (3:32)
-03. DJ Snake, Selena Gomez & Ozuna feat. Cardi B. - Taki Taki  (3:31)
-04. The Chainsmokers feat. Kelsea Ballerini - This Feeling  (3:15)(   Читать дальше...   )Жанр: Pop, Rock, ElectronicПродолжительность: 00:50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AE9C0B963F8516421CE6A183DBC82255CD72461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203316   (565119) от 25.05.2019
-
-Маргарита Суханкина-Маруна - Неизданные песни (2002) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Остановиться (4:10)
-02. Не исчезай (4:14)
-03. Отелло (4:30)
-04. Слишком поздно (3:51)(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC93CA59337CA0573D075F9AA7C1CF8601B3B32A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 529677   (564925) от 01.08.2012
 
 Olialia Pupytes - Išpildyk mano norus (2009) [MP3|~225 кб/с (V1)]<Pop>
@@ -180,7 +6,7 @@ Olialia Pupytes - Išpildyk mano norus (2009) [MP3|~225 кб/с (V1)]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564925.jpg" />
 </div>
 
 
@@ -215,7 +41,7 @@ Selena Gomez - Stars Dance (Deluxe Edition) (2013) /Scene/ [FLAC (tracks)|Lossle
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564170.jpg" />
 </div>
 
 
@@ -244,7 +70,7 @@ VA - Acoustic Love Songs (2018) [MP3|320 Kbps] <Pop, Folk, Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564072.jpg" />
 </div>
 
 
@@ -273,7 +99,7 @@ Claude-Michel Schonberg - Harmonie Du Couple (La Musique) (1982) [MP3|320 Kbps] 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563986.jpg" />
 </div>
 
 
@@ -302,7 +128,7 @@ C.C. Catch - The Album -Remastered (2017) [FLAC|Lossless|tracks + .cue] <Electro
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563802.jpg" />
 </div>
 
 
@@ -331,7 +157,7 @@ Smash - Viva Amnesia (2019) [MP3|320 Kbps] <Electro-House, Club-House, Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563577.jpg" />
 </div>
 
 
@@ -360,7 +186,7 @@ Trix - 2 Albums (1981, 1982) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563441.jpg" />
 </div>
 
 
@@ -389,7 +215,7 @@ Laid Back - Healing Feeling (2019) [FLAC|24/44.1|Lossless|WEB-DL|tracks] <Pop, R
 >>Pop (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563408.jpg" />
 </div>
 
 
@@ -418,7 +244,7 @@ Rosebud - Discoballs (A Tribute To Pink Floyd) (1978) LP [MP3|320 Kbps] <Electro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563299.jpg" />
 </div>
 
 
@@ -447,7 +273,7 @@ VA - The Best Nostalgia Album. In The World... Ever! (1997) Compilation [FLAC|Lo
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563254.jpg" />
 </div>
 
 
@@ -476,7 +302,7 @@ VA - BRAVO Hits 98 (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563004.jpg" />
 </div>
 
 
@@ -505,7 +331,7 @@ Britney Spears - Glory (2016) Deluxe Version [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562979.jpg" />
 </div>
 
 
@@ -534,7 +360,7 @@ Michael Jackson - Thriller: 25th Anniversary Edition (1982) Remastered, 2008, Ep
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562972.jpg" />
 </div>
 
 
@@ -563,7 +389,7 @@ Stensound Party Group - Vom Zillertal bis Arenal (Unknown) [FLAC|Lossless|image 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562088.jpg" />
 </div>
 
 
@@ -592,7 +418,7 @@ Power Play - Come On Take Me Higher - Do It One More Time (1977) LP, Mixed [MP3|
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562075.jpg" />
 </div>
 
 
@@ -621,7 +447,7 @@ Laid Back - Healing Feeling (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Sy
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561708.jpg" />
 </div>
 
 
@@ -650,7 +476,7 @@ Men At Work - 3 Albums (1981-1985) CD [MP3|320 Kbps] <Electronic, New Wave, Pop 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561615.jpg" />
 </div>
 
 
@@ -679,7 +505,7 @@ Juli Fabian & Zoohacker - Shine (2015) [MP3|320 кб/с]<Euro Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561030.jpg" />
 </div>
 
 
@@ -708,7 +534,7 @@ VA - Ibiza Lounge Deluxe (2015) [MP3|320 кб/с]<Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560919.jpg" />
 </div>
 
 
@@ -737,7 +563,7 @@ Natalie Imbruglia - Male (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560908.jpg" />
 </div>
 
 
@@ -751,6 +577,180 @@ Natalie Imbruglia - Male (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAA2D37683855EA2FA6D025309845166CD768AAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924158   (560808) от 02.08.2015
+
+Natalie Imbruglia - Male (2015) [FLAC|tracks|WEB-DL]<Pop, Adult Alternative, Soft Rock, Covers>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Instant Crush (4:57)
+02. Cannonball (3:28)
+03. The Summer (3:18)
+04. I'll Follow You Into The Dark (3:25)(   Читать дальше...   )Жанр: Pop, Adult Alternative, Pop Rock, Soft Rock, CoversПродолжительность: 00:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E70EA0ABFB80333C165D0FDF2AD3D373F3FB215F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235294   (560373) от 11.07.2018
+
+Donna Summer - Summer: The Original Hits (2018) [MP3|320 Kbps] <Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Feel Love 03:46
+02. Love To Love You Baby 03:21
+03. I Remember Yesterday 04:42
+04. On My Honor 03:31(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:17:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03BC717A6E37D8D16F3F303D12F1A748EF38DF76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304912   (560063) от 28.05.2019
+
+VA - Fox Giganten (Die besten Discofox Schlager Hits 2019 fur deine Tanz Party) (2019) [MP3|320 Kbps] <Schlager, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kay Dorfel - Malinconia
+02. Tommy Fischer - Du machst mich kopflos
+03. Michael Fischer - Unser Moment
+04. Tom Mathis - Parlez vous francais(   Читать дальше...   )Жанр: Schlager, PopПродолжительность: 03:00:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80154D634B107F7F668121B7FCFA09A09CDAFDD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304894   (559941) от 28.05.2019
+
+Sigrid - Sucker Punch (2019) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sucker Punch (03:14)
+02. Mine Right Now (03:23)
+03. Basic (03:37)
+04. Strangers (03:53)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FE6645081699D2AE7B050E9561689C4F68D34F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304885   (559917) от 28.05.2019
+
+VA - Inakustik Clearaudio 40 Years Excellence Edition (2018) [FLAC|Lossless|image + .cue] <Pop,  Folk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.   Charly Antolini - Jammin' (03:42)
+02.   Cameron Carpenter - Toccata & Fuge (08:47)
+03.   Yelena Eckemoff - Mommy's Shawl (05:06)
+04.   Brenda Navarrete - Mulata Linda (03:44)(   Читать дальше...   )Жанр: Pop,  FolkПродолжительность: 01:20:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:561703EBFE2A795EB7BE15E24DF35D4E253FFFB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556384   (559857) от 09.06.2022
+
+VA - Feelin' Good (2004) 2xCD [FLAC|Lossless|image + .cue] <Pop, Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559857.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Billy Idol - Hot in the City
+02. Spice Girls - Say You'll Be There
+03. KC and The Sunshine Band - That's the Way (I Like It)(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 02:19:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:071754BBFA20739759F608C0A81AD71E713E487F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,59 @@
+###  Публикация: 1199645   (1029898) от 21.02.2021
+
+Ruxpin - Discography 15 Releases (1999-2019) Mikrolux, n5MD, Elektrolux, SSSP [FLAC|Lossless|tracks+.cue, tracks] <IDM, Ambient, Leftfield, Downtempo, Electro>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ruxpin - Roadmap (05:05)
+ 02. Dimitar Dodovski - Lontano (05:02)Тип издания: CD, Web, VinylЖанр: IDM/Techno/Dub TechnoПродолжительность: 12:59:51 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2447414C795A9D70C3F22B62917E4A17EEA8FE01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943424   (1029859) от 21.02.2021
+
+Endless Melancholy - Discography 45 Releases (2012-2021) [FLAC|Lossless|WEB-DL]<Modern Classical, Minimal, Ambient, Post Rock>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blossoms (feat. Lights Dim) (06:22)
+ 02. A Place Called Home (04:00)
+ 03. Nowhere, Never (02:35)
+ 04. Rivers Of Time (feat. EUS) (06:30)(   Читать дальше...   )Тип издания: WEBЖанр: Modern Classical, Minimal, Ambient, Post Rock •Продолжительность: 17:47:52 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E17FC62D0649EE7AE1748DD4F1518E7BFD0C1B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449581   (1029777) от 22.02.2021
 
 Planet of Sound & Cider Sky - Together (2014) [FLAC|Lossless|WEB-DL|tracks] <House, Deep House>
@@ -6,7 +62,7 @@ Planet of Sound & Cider Sky - Together (2014) [FLAC|Lossless|WEB-DL|tracks] <Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029777.jpg" />
 </div>
 
 
@@ -33,7 +89,7 @@ FX909 - Wake Up EP (2021) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029754.jpg" />
 </div>
 
 
@@ -61,7 +117,7 @@ Critical Event, Askel & Elere - Inveigle / Endling (2020) [FLAC|Lossless|WEB-DL|
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029753.jpg" />
 </div>
 
 
@@ -88,7 +144,7 @@ Motiv & Zar - Your Power / Lost In Space (2020) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029751.jpg" />
 </div>
 
 
@@ -115,7 +171,7 @@ VA - You Know How We Do (2004) Sonicterror Recordings [FLAC|Lossless|tracks+.cue
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029748.jpg" />
 </div>
 
 
@@ -144,7 +200,7 @@ VA - Thumbs Up For Cardio Dance 2021 Workout Compilation (2021) [MP3|320 Kbps] <
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029730.jpg" />
 </div>
 
 
@@ -173,7 +229,7 @@ G.H.T - 2 Albums (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <EBM, Dark Electro>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029617.jpg" />
 </div>
 
 
@@ -202,7 +258,7 @@ VA - Future Trance - Rave Classics (2023) [MP3|320 Kbps] <Electro House, Progres
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029607.jpg" />
 </div>
 
 
@@ -231,7 +287,7 @@ VA - Voxxx Series A (2004) Ventilator Tonträger [FLAC|Lossless|WEB-DL|tracks] <
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029594.jpg" />
 </div>
 
 
@@ -260,7 +316,7 @@ Geroyche - Voxxx Series A.1 (2005) Ventilator Tonträger [FLAC|Lossless|WEB-DL|t
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029592.jpg" />
 </div>
 
 
@@ -289,7 +345,7 @@ Erell Ranson - MOA1201 (2020) Móatún 7 [FLAC|Lossless|WEB-DL|tracks] <IDM, Lef
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029588.jpg" />
 </div>
 
 
@@ -318,7 +374,7 @@ VA - Soul Diary Chapter.1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029579.jpg" />
 </div>
 
 
@@ -347,7 +403,7 @@ Monument Banks - Old Flame EP (2020) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029575.jpg" />
 </div>
 
 
@@ -376,7 +432,7 @@ VA - Armada Chill 002 (2015) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Downtemp
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029571.jpg" />
 </div>
 
 
@@ -405,7 +461,7 @@ Jerome Chassagnard (Jérôme Chassagnard) - Discography 8 Releases (2008-2020) H
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029477.jpg" />
 </div>
 
 
@@ -434,7 +490,7 @@ VA - Ibiza XXL - The Summer Hits 2023 (2023) [MP3|320 Kbps] <Dance, Club, House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029414.jpg" />
 </div>
 
 
@@ -463,7 +519,7 @@ VA - Armin van Buuren - A State Of Trance 1114 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029411.jpg" />
 </div>
 
 
@@ -490,7 +546,7 @@ V.A. - The Best Chillout Ever (2023) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, T
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029409.jpg" />
 </div>
 
 
@@ -519,7 +575,7 @@ VA - Cafe De Anatolia - Desert Rose (2023) [MP3|320 Kbps] <Organic House, Progre
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029400.jpg" />
 </div>
 
 
@@ -548,7 +604,7 @@ Insect Jazz - Hum & Buzz (1997) Elektrolux [FLAC|Lossless|tracks+.cue] <Electro,
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029388.jpg" />
 </div>
 
 
@@ -577,7 +633,7 @@ VA - Space Odyssey - Trip Four: Journey To The Sun (2018) [OGG Vorbis|480 Kbps] 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029368.jpg" />
 </div>
 
 
@@ -606,7 +662,7 @@ Andrew Coleman | Animals On Wheels - Discography 11 Releases (1997-2020) Ninja T
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029324.jpg" />
 </div>
 
 
@@ -635,7 +691,7 @@ The Field - Discography 19 Releases (2005-2018) Kompakt [FLAC|Lossless|WEB-DL|tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029323.jpg" />
 </div>
 
 
@@ -664,7 +720,7 @@ VA - Ferry Corsten - Resonation Vol.1 (2021) [MP3|320 Kbps] <Trance, Progressive
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029317.jpg" />
 </div>
 
 
@@ -678,61 +734,6 @@ VA - Ferry Corsten - Resonation Vol.1 (2021) [MP3|320 Kbps] <Trance, Progressive
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F9D83C1EF1864C68C9254986B65225D53EB40DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031149   (1029267) от 24.02.2021
-
-Tosca - Discography 33 Releases (1995-2018) Studio !K7, G-Stone [FLAC|Lossless|tracks+.cue, tracks] <Trip Hop, Dub, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Supersunday (Megablast Remix) (07:45)Тип издания: CD, WebЖанр: Trip Hop, Dub, Downtempo, Soul-Jazz, Lounge •Продолжительность: 23:43:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76E874544FDAE644ACD8E7B23050BBF28E4134CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113947   (1029262) от 24.02.2021
-
-Germind - Discography 46 Releases (2012-2021) Plexus Music, Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Progressive Trance, Downtempo, Goa Trance>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Photons Memories (05:53)
- 02. The Circle Of Sansara (07:51)
- 03. Subway Of The Future (06:29)
- 04. Ether Dunes (06:48)(   Читать дальше...   )Жанр: Psybient, Ambient, Progressive Trance, Breaks, Downtempo, Goa Trance •Продолжительность: 35:18:18 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8299FCE6FBF82BBAE8AC5749AC1C8B2ADDACDE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

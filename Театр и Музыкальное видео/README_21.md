@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940689.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Queen + Paul Rodgers: Super Live in Japan (2006) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940296.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940219.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Siouxsie - Dreamshow: Live At The Royal Albert Hall With The Millennia Ensemble 
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940159.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940090.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Madness - At Madstock (1998) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940075.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939972.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939794.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939718.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939489.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Eagles - Farewell I Tour - Live From Melbourne (2004/2013) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939421.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Ringo Starr & His All Starr Band Live 2006 (2008) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939392.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Steve Miller Band - Live from Chicago (2008) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938794.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ VA - Best of pop 2003 (2003) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938727.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Axel Rudi Pell - Live Over Europe (2008) 2*DVD-9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938550.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938507.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ VA - Танцевальный рай - The Best (2007) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938388.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Def Leppard - Mirror Ball - Live & More (2011) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938374.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938372.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Modern Talking - Music & Video Stars (2013) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938140.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Helene Fischer – Best of Live/So wie ich bin (2010) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938073.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937526.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936671.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936636.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Def Leppard - Mirror Ball - Live & More (Bonus DVD) (2011) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936559.jpg" />
 </div>
 
 
@@ -709,7 +709,7 @@ Eric Clapton - Slowhand at 70: Live at The Royal Albert Hall (2015) BDRemux [H.2
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936530.jpg" />
 </div>
 
 

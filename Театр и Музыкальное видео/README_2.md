@@ -6,7 +6,7 @@
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035380.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035311.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035067.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034838.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034812.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034100.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Riverside - Lost 'N' Found - Live In Tilburg (2020) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033970.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033953.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Gabriella Quevedo - Fingerstyle Guitarist (2014-2021) WEBRip [H.264/1080p-LQ] <A
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033915.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033826.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Laibach - The Future (Blast from the Past remix) (2023) WEB-DL [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032498.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032172.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Toy-Box - The Sailor Song (1999) WEB-DLRip [H.264/1080p] [handmade remastered up
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030665.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ VA «20 Years Of Nuclear Blast» 2007 2DVD
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030591.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029331.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Uriah Heep - Live at Wacken Open Air 2019 (2021) WEBRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028835.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028702.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028161.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028152.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028118.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Alice Cooper - The Detroit Stories / Alice Cooper - The Detroit Stories (2021) D
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028023.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027796.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027530.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Accept - Герои мирового рока в честь 25-летия АО �
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027509.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027454.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Little Big - Sex Machine (2021) WEBRip [VP9/2160p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027337.jpg" />
 </div>
 
 

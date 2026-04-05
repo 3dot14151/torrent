@@ -1,3 +1,55 @@
+###  Публикация: 1052454   (527763) от 14.09.2016
+
+Minecraft: Story Mode - A Telltale Games Series (2015) [Ru/Multi] (1.0.0.2) License CODEX [Episodes 1-8]
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Minecraft: Story Mode предлагает отправиться в популярный мир, но уже в виде сюжетного приключения. Проект является не аддоном, а отдельной игрой, где сюжет, как и в других играх Telltale Games, развивается в зависимости от принимаемых игроком решений. Сюжет Minecraft: Story Mode, как сейчас принято, поделен на несколько эпизодов, составляющих первый сезон.Тип издания: LicenseРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, и другиеЯзык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73747ABEDA8253219F742F3F641AFB220D107373
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156729   (526822) от 08.08.2017
+
+Evil Genome (2017) [En/Ch] (1.2.022) License PLAZA
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра Evil Genome студии Crystal Depths Studio — это однопользовательская трехмерная приключенческая  RPG-игра  действие которой происходят в пустыне (Metroidvania). Героиня Лахесис (Lachesis) поможет вам исследовать обширный мир пустыни, испытать себя в различных битвах, а также развить свой собственный характер!Тип издания: LicenseРазработчик: Crystal Depths StudioЖанр: Arcade (Platform), ActionЯзык озвучки: Английский, КитайскийЯзык субтитров: Английский, КитайскийЯзык интерфейса: Английский, Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B03AE4EFE942943F656A4BE5BBB77E728105DAAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1053010   (526507) от 16.09.2016
 
 Toki Tori Dilogy (2010-2013) [Ru/Multi] (1.0.7526.8583/1.0.15191.9550) Repack Let'sPlay
@@ -6,7 +58,7 @@ Toki Tori Dilogy (2010-2013) [Ru/Multi] (1.0.7526.8583/1.0.15191.9550) Repack Le
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526507.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ From Shadows (2017) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525795.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Blazing Chrome (2019) [Ru/Multi] (0.0.6) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519926.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Eets Munchies (2014) [En] (1.0) License
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519352.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Symphony [Ru/En] (RePack/1.0) 2012 | SEYTER
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517574.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ Symphony [Ru/En] (RePack/1.0) 2012 | VANSIK
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517524.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ Rollcage: Dilogy / Rollcage: Дилогия (1999-2000) [En] (1.3.8/1.1.8) Repac
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514822.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ Double Dragon Trilogy (2013) [Ru/Multi] (1.0/upd3) License HI2U
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513568.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ Bit Trip Presents Runner 2: Future Legend of Rhythm Alien (2013) [En] (1.0/dlc) 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512640.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ Angry Birds: Anthology / Angry Birds: Антология (2011-2013) [En] (4.0 /
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512489.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ Snowy: Treasure Hunter 3 / Снежок. Охотник за сокровища�
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510237.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ PixelJunk Nom Nom Galaxy (2014) [En/Multi] (1.1) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509855.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ Valdis Story Abyssal City (2013) [Ru/En] (1.0.0.25) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509831.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ Calvino Noir (2015) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509822.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ Calvino Noir (2015) [Ru/Multi] (1.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509816.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ Mega Man Legacy Collection (2015) [Ru/Multi] (1.0) License TiNYiSO
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507767.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ Cast of the Seven Godsends (2015) [Ru/Multi] (1.0/upd10) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506840.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ Guacamelee (2014) [Ru/Multi] (1.0) Repack R.G. Механики [Super Turbo Cha
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504101.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ Azure Striker Gunvolt (2015) [Ru/Multi] (1.0.760608) License RELOADED
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504092.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ Valdis Story: Abyssal City (2013) [Ru/En] (1.0.0.25) Repack R.G. Механик�
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503090.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ BGE Mario 2011 [En] (P) 2011
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502984.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ Awesomenauts [En/Multi6) (L/Steam-Rip/1.3) 2012 | R.G. Игроманы
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501955.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ Giana Sisters: Dream Runners (2015) [Ru/En] (1.0) Repack R.G. Freedom
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500196.jpg" />
 </div>
 
 
@@ -616,7 +668,7 @@ Red Goddess Inner World (2015) [En/Multi] (1.0) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499013.jpg" />
 </div>
 
 
@@ -627,60 +679,6 @@ Red Goddess: Inner World – приключенческий платформер
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12EFBF7CA06C411DFAB77F8DE678548383A00D9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935434   (499010) от 08.09.2015
-
-Daydreamer (2015) [En] (1.0) License RELOADED
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир Daydreamer`а нарисован по мотивам постапокалиптических картин Роланда Вомака. Вы - единственный выживший, вам предстоит спасти Бессмертного Хранителя Врат, последнюю надежду умирающего мира.
-
-В игре много хардкорных битв с боссами, выполненных в стиле аркадных игр 90-х, дополненных современными фишками, позволяющими расширять возможности персонажа, чтобы тот (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Roland StudiosЖанр: Arcade (Platform)Язык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A40E20EE5A4ECD0024BF48B8AAF98E3B8E8AA1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935387   (498962) от 08.09.2015
-
-Exile's End (2015) [En] (1.0) Unofficial
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ламповый ретро-экшен-платформер в стиле таких классических игр как Flashback и Another World! Ролики и музыка в игре, представлена 8-ми и 16-битной эпохи Японии. Авторы игры вдохновлялись научно-фантастическими фильмами и аниме 80-х годов, а также геймплеем классических игр с Amiga и Commodore 64.Тип издания: Неофициальное изданиеРазработчик: Magnetic RealmsЖанр: Action / PlatformerЯзык озвучки: -/-Язык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2CDB65354E8AEEDFA5771555AEC42B23F1C124E
 ```
 
 https://mybot314.ru/tekegram_catalog/

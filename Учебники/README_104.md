@@ -1,3 +1,55 @@
+###  Публикация: 588500   (157027) от 13.12.2012
+
+И.А.Максимихин | Как построить модель корабля [1956] [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая книга помогает учащемуся систематизировать приобретение и накопление знаний и опыта в постройке моделей кораблей. В книгу включены вопросы по организации рабочего места, подбору инструментов и материалов, по навыкам работы и дан ряд сведений практического порядка для изготовления некоторых моделей кораблей, судов и яхт, а также основные теоретические сведения.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:631E7A2ABFB7D0A78A7647A2C3031B6B3904CAA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587512   (156916) от 27.12.2022
+
+В.А. Ильин и др. | Курс высшей математики и математической физики [7 выпусков в 8 книгах] (1967 - 1985) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный курс высшей математики и математической физики от профессоров Московского Государственного Университета.Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEF767BFE0DF6018A3A3D7569BD67DC2064F6809
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1600525   (156725) от 27.12.2022
 
 А.В. Кирилина | Черчение мебели (2022) [PDF]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156725.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156596.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156443.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156391.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156365.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156162.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155434.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155404.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155329.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155294.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155251.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155185.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155023.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154983.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154947.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154350.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154314.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154285.jpg" />
 </div>
 
 
@@ -485,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154238.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154227.jpg" />
 </div>
 
 
@@ -538,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154122.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154107.jpg" />
 </div>
 
 
@@ -591,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154055.jpg" />
 </div>
 
 
@@ -618,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153928.jpg" />
 </div>
 
 
@@ -630,58 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADD76797CE2DB535B627370FF32C98B8B259D08D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518612   (153927) от 20.12.2021
-
-В.Г. Дурнев, О.В. Зеткина | Алгоритмические проблемы в комбинаторной теории групп (2019) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комбинаторную теорию групп можно охарактеризовать как теорию групп, которые описываются порождающими и определяющими соотношениями или, как теперь часто говорят, своим заданием. В книге для изложения фундаментальных теорем комбинаторной теории полугрупп и групп достаточно подробно рассматриваются основные теоретико-групповые конструкции - свободное произведение групп (   Читать дальше...   )Жанр: Компьютерная литератураФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F10B87C6C8883589CBE2B79C4F8105C570EC89AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600833   (153825) от 29.12.2022
-
-П.Н. Матханов | Основы анализа электрических цепей. Линейные цепи (1981) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153825.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассматриваются современные методы анализа пассивных и активных линейных цепей во временной и частотной областях;особое внимание уделяется сущности процессов в цепи и фундаментальным понятиям,важным для изучения любых линейных систем.Второе издание существенно переработано и дополнено:наряду с изложением аналитических методов с матрично-топологической формулировкой (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF6576194B97D0A62161E65A4A49E5D2DE0CA219
 ```
 
 https://mybot314.ru/tekegram_catalog/

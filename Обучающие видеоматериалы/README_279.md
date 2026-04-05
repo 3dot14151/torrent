@@ -1,3 +1,31 @@
+###  Публикация: 1687054   (126166) от 25.12.2023
+
+Skillbox, Александр Крупин, Евгений Дмитриев | DevOps-инженер. Advanced (2022-2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы научитесь администрировать Linux, настраивать веб-серверы и освоите методологию DevOps: будете автоматизировать разработку сложных IT-продуктов. C нуля освоите методологию DevOps: объедините процессы разработки и эксплуатации, ускорите внедрение и доставку новых функций до пользователя.
+
+Этот курс входит в состав "Профессия DevOps-инженер PRO" является (   Читать дальше...   )Производство: SkillboxЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 11:09:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D10FC7A666D8BFC2CA75155FC7CA1BC1D4FC1337
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1687059   (126161) от 25.12.2023
 
 Skillbox, Евгений Дмитриев | DevOps-инженер. Docker (2022-2023) WEB-DL [RU]
@@ -6,7 +34,7 @@ Skillbox, Евгений Дмитриев | DevOps-инженер. Docker (2022-
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126161.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ Udemy, Uzochukwu Eddie Odozi | Microservices with NodeJS, React, Typescript and 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126150.jpg" />
 </div>
 
 
@@ -60,7 +88,7 @@ Podlodka Crew| Python Crew #2. Python для энтепрайза (2023) WEB-DL 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126149.jpg" />
 </div>
 
 
@@ -87,7 +115,7 @@ Udemy, Thomas Harle | Unreal 5 Niagara - Advanced Niagara (2023) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126145.jpg" />
 </div>
 
 
@@ -116,7 +144,7 @@ Udemy, Brad Traversy | PHP From Scratch 2024 | Beginner To Advanced (2023) WEB-D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126137.jpg" />
 </div>
 
 
@@ -145,7 +173,7 @@ Udemy, Oner Oncer | 3ds Max + Corona Render Photorealistic 3D Rendering Course (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126131.jpg" />
 </div>
 
 
@@ -171,7 +199,7 @@ Asya-Design, Александра Бавыкина | 3D моделировани
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126103.jpg" />
 </div>
 
 
@@ -197,7 +225,7 @@ Joakim Karlsson | The trio (2020) WEB-DL [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126101.jpg" />
 </div>
 
 
@@ -223,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126023.jpg" />
 </div>
 
 
@@ -252,7 +280,7 @@ Udemy, Hussein Nasser | Fundamentals of Backend Engineering (2023) WEB-DL [EN / 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126014.jpg" />
 </div>
 
 
@@ -278,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126013.jpg" />
 </div>
 
 
@@ -307,7 +335,7 @@ Udemy, Colt Steele | JavaScript Pro: Mastering Advanced Concepts and Techniques 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126009.jpg" />
 </div>
 
 
@@ -333,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125998.jpg" />
 </div>
 
 
@@ -362,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125996.jpg" />
 </div>
 
 
@@ -390,7 +418,7 @@ ProFinansy, Наталья Котовская | Финансовая подуш�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125873.jpg" />
 </div>
 
 
@@ -416,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125868.jpg" />
 </div>
 
 
@@ -444,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125826.jpg" />
 </div>
 
 
@@ -473,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125810.jpg" />
 </div>
 
 
@@ -499,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125793.jpg" />
 </div>
 
 
@@ -525,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125791.jpg" />
 </div>
 
 
@@ -553,7 +581,7 @@ Asya-Design, Александра Бавыкина | Курс по 3D визуа
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125763.jpg" />
 </div>
 
 
@@ -579,7 +607,7 @@ Udemy, Neil Bettison | The Blender 4 Ultimate Guide (2023) WEB-DL [EN] [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125678.jpg" />
 </div>
 
 
@@ -607,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125631.jpg" />
 </div>
 
 
@@ -635,7 +663,7 @@ Kalacheva School, Анна Цымбал | Новые основы леттери
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125629.jpg" />
 </div>
 
 
@@ -662,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125622.jpg" />
 </div>
 
 
@@ -676,32 +704,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:932FBE7CEE6D5D58906CFE81FB19FCA7353A3683
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687842   (125505) от 27.12.2023
-
-Елена Левашова | Простой и эффективный способ создания чертежей - RemPlanner (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы ищете простой способ создать обмерный план квартиры, расставить мебель, точки освещения и выключатели? Теперь вы можете это сделать с помощью RemPlanner! Этот онлайн-проектировщик стал популярным инструментом для создания профессиональных чертежей для дизайн-проектов. Он предоставляет широкие возможности для создания качественной технической документации, экономя (   Читать дальше...   )Жанр: Проектирование, ДизайнЯзык озвучки: РусскийПродолжительность: 02:05:02Реклама: Наложение на видео, видео вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0AF87D507F68A77413EF0BBA993D111892ACB4B
 ```
 
 https://mybot314.ru/tekegram_catalog/

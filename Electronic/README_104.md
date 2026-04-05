@@ -1,3 +1,61 @@
+###  Публикация: 1110395   (853814) от 02.03.2017
+
+VA - In Search of Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853814.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Seven24 - Rescue Me - Bryan Milton Remix 5:15
+002. Robien M - Catch a Glimpse 4:14
+003. R.I.B. - Escape to You 4:41
+004. Alexander Volosnikov - Bird of Mind 5:51(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:17:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89FDBF0E0FCE1D645E9403FF979DFF0BEFA0A6A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110234   (853813) от 02.03.2017
+
+VA - Airport Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lamar Ensemble - Das Parfum  6:07
+02.  The Sura Quintet - Observing You  5:56
+03.  Arrojas - Sensual Waves  5:35
+04.  Rey Salinero - Tell Me Why  4:42(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E52B8E4C275975FA69BE5D888A655836E9AE4D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110398   (853809) от 02.03.2017
 
 VA - Mout: Deep Spirit Vol.8 (2017) [MP3|320 Kbps] <Deep House>
@@ -6,7 +64,7 @@ VA - Mout: Deep Spirit Vol.8 (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853809.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Tropical Village Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853802.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Deep Desire (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853801.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Beautiful Lounge Collection Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853799.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Jan Blomqvist - Remote Control (2016) [FLAC|Lossless|WEB-DL|tracks] <House, Deep
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853697.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Workout in Da House (2020) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853663.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Cyan - Transmission (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853565.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Goa Culture - Season 3 (Compiled by Magnifico) (2020) [FLAC|Lossless|WEB-DL
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853563.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Peter Pearson - Under the Spell (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853278.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Before Sunset: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Bal
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852746.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Charlotte de Witte b2b Enrico Sangiuliano - The Age Of Love Stream (2021-08-12) 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852733.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - House vs. Deep House Show Love (2021) [MP3|320 Kbps] <House, Deep House, Te
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852424.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Lovely Mood Lounge Vol.25 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852279.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Electro Vibes Lounge Vol.6 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Loun
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852278.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Enhanced Miami (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852272.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Deep House Paris Vol 3 (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852176.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Last Night In Miami (20 Deep-House Experiencias) (2017) [MP3|320 Kbps] <Hou
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852175.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Bye Bye Winter! (20 Crazy House Tunes) (2017) [MP3|320 Kbps] <Funky, Club H
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852167.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Bye Bye Winter! (20 Groovy Deep-House Tunes) (2017) [MP3|320 Kbps] <Funky, 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852163.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Katri - Shamanic Dream (2017) EP [MP3|320 Kbps] <Psytrance>
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852083.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ VA - Goa Trance Vol.34 (Compiled by DJ TULLA) (2017) [MP3|320 Kbps] <Trance, Psy
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852082.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ VA - Fitness Tech Beats (2017) [MP3|320 Kbps] <Minimal, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852081.jpg" />
 </div>
 
 
@@ -642,7 +700,7 @@ VA - Armada Miami (The House Edition) (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852080.jpg" />
 </div>
 
 
@@ -671,7 +729,7 @@ Drexciya - Journey Of The Deep Sea Dweller I - IV (2011-2013) [FLAC|Lossless|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852052.jpg" />
 </div>
 
 
@@ -685,64 +743,6 @@ Drexciya - Journey Of The Deep Sea Dweller I - IV (2011-2013) [FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20824BC7B9CEE49A245F57744BCCE67225BDCF7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110403   (852034) от 03.03.2017
-
-VA - Selected Edm Compilation 17 (2017) [MP3|320 Kbps] <Club House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852034.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Pumping Guys - Everybody in the Place (Original Mix) 4:38
-002. DJ Favorite - Drop That Bass (Big Room Mix) 5:37
-003. Brasslover - This Is the Drop (Original Mix) 3:38
-004. DJ Swagygy - Back Ones Again (Original Mix) 4:23(   Читать дальше...   )Жанр: Club House, Electro HouseПродолжительность: 01:14:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18F1F7118CBEEC1172B58CB21EEC50029CF2A0F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110168   (852022) от 03.03.2017
-
-VA - Vocal Trance (2017) [FLAC|Lossless|WEB-DL|tracks] <Trance, Vocal Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  4 Strings & Fenna Day - Enough (Radio Edit)  3:28
-02.  Davey Asprey & Ellie Lawson - Bridge The Divide (Radio Edit)  3:23
-03.  Nitrous Oxide & Katty Heath - Neverending Dawn Of You (Cold Rush Edit)  4:15
-04.  Kaimo K & Sarah Lynn - Hearts Unite (Radio Edit)  3:16(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:33:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7681815CF4E7E5FC515A2DCEC0038853180992CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

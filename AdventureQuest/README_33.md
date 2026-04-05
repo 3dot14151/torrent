@@ -1,3 +1,82 @@
+###  Публикация: 1038217   (607786) от 27.07.2016
+
+Minecraft: Story Mode (2015) [Ru/Multi] (1.0.0.1) License RELOADED [Episodes 1-7]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Minecraft: Story Mode предлагает отправиться в популярный мир, но уже в виде сюжетного приключения. Проект является не аддоном, а отдельной игрой, где сюжет, как и в других играх Telltale Games, развивается в зависимости от принимаемых игроком решений.
+Сюжет Minecraft: Story Mode, как сейчас принято, поделен на несколько эпизодов, составляющих первый сезон. Протагонистом (   Читать дальше...   )Тип издания: LicenseРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FE21C714D291ECF152E8418A3A7CC79F7FAE9C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147698   (607270) от 03.07.2017
+
+The Talos Principle (2014) [Ru/Multi] (1.0.301136/dlc) SteamRip Let'sPlay [Gold Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607270.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Talos Principle - это философская головоломка с видом от первого лица от студии Croteam, создателей легендарной серии Serious Sam, написанная в соавторстве с Томом Жубертом (FTL, The Swapper) и Йонасом Киратзесом (The Sea Will Claim Everything). Словно пробудившись от глубокого сна, вы оказываетесь в странном, диковинном мире, полном древних руин и сложных машин.Тип издания: SteamRipРазработчик: CroteamЖанр: Adventure (Puzzle), 3D, 1st PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B31881D525BB42C9DFD252210107C88197D69CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297397   (604039) от 22.04.2019
+
+Clocker (2019) [Ru/Multi] (1.1.0) License HI2U
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604039.jpg" />
+</div>
+
+
+###  Подробнее
+
+Clocker - игра-головоломка о ВРЕМЕНИ. В этой игре повествуется история между отцом и дочерью, используя технику двойных главных героев. Управляйте двумя отдельными персонажами по одному, и вы будете постепенно разгадаете головоломки, продвигаясь по временной шкале и находя приключения. В игре представлены уникальные временные механизмы, художественный рисованный (   Читать дальше...   )Тип издания: LicenseРазработчик: Wild Kid GamesЖанр: Adventure, Puzzle, RPG, 2DЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9A7629704A55FFB698171F14AB7AE3FDA4B3557
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297419   (604018) от 22.04.2019
 
 Clocker (2019) [Ru/Multi] (1.1.0) Repack Other s
@@ -6,7 +85,7 @@ Clocker (2019) [Ru/Multi] (1.1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604018.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603641.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ Ben The Exorcist (2017) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602801.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ Paws: Pitter (2016) [Ru/Multi] (1.2/dlc) License GOG [Patter Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602799.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ Tunnels of Despair (2018) [Ru/Multi] (1.06) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602695.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ The Stanley Parable (2022) [Ru/Multi] (1.04) Repack Other s [Ultra Deluxe]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602267.jpg" />
 </div>
 
 
@@ -162,7 +241,7 @@ SIMULACRA (2017) [En] (1.0.48) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602103.jpg" />
 </div>
 
 
@@ -188,7 +267,7 @@ The Cat Lady (2012) [Ru/Multi] (1.7) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601557.jpg" />
 </div>
 
 
@@ -214,7 +293,7 @@ Downfall: A Horror Adventure Game / Downfall: История в стиле хо�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601555.jpg" />
 </div>
 
 
@@ -240,7 +319,7 @@ VALKYRIE DRIVE -BHIKKHUNI- (2017) [En/Jp] (1.0) Repack Covfefe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600893.jpg" />
 </div>
 
 
@@ -266,7 +345,7 @@ Reflecting Fate (2017) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599560.jpg" />
 </div>
 
 
@@ -292,7 +371,7 @@ The Eyes of Ara (2016) [En] (1.0.01) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595596.jpg" />
 </div>
 
 
@@ -318,7 +397,7 @@ The Eyes of Ara (2016) [En] (1.0.01) License POSTMORTEM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595591.jpg" />
 </div>
 
 
@@ -344,7 +423,7 @@ Captain Morgane And The Golden Turtle [Multi5/+] (RePack) 2012 l Fenixx
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595321.jpg" />
 </div>
 
 
@@ -370,7 +449,7 @@ Rising Islands (2016) [Ru/Multi] (1.010) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594201.jpg" />
 </div>
 
 
@@ -396,7 +475,7 @@ Slap Village (2016) [En/Multi] (1.0) License POSTMORTEM [Episode 1]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594155.jpg" />
 </div>
 
 
@@ -422,7 +501,7 @@ Slap Village (2016) [En/Multi] (1.0) Repack Other s [Chapter 1]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594115.jpg" />
 </div>
 
 
@@ -448,7 +527,7 @@ Close to the Sun (2019) [Ru/Multi] (108) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593442.jpg" />
 </div>
 
 
@@ -474,7 +553,7 @@ AER Memories of Old (2017) [Ru/Multi] (1.0.4.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592830.jpg" />
 </div>
 
 
@@ -500,7 +579,7 @@ Layers of Fear: Inheritance (2016) [Ru/Multi] (1.1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588093.jpg" />
 </div>
 
 
@@ -526,7 +605,7 @@ The Subject (2018) [En] (2.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587899.jpg" />
 </div>
 
 
@@ -552,7 +631,7 @@ Lorelai (2019) [En] (1.0.4/dlc) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587838.jpg" />
 </div>
 
 
@@ -578,7 +657,7 @@ Pneuma: Breath of Life (2015) [Ru] (1.0.0.0) Repack xGhost
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587613.jpg" />
 </div>
 
 
@@ -589,84 +668,6 @@ Pneuma: Breath of Life - является атмосферной головол�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15FA5AD64B99075095BAEF833A4393539C00BC79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040381   (587118) от 04.08.2016
-
-Half Dead (2016) [Ru/Multi] (1.0) License HI2U
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587118.jpg" />
-</div>
-
-
-###  Подробнее
-
-Half dead - это мультиплеерная научно-фантастическая игра о жестоком телешоу. Целью его участников является выживание в комплексе, полном опасных для жизни ловушек.Тип издания: LicenseРазработчик: Room710GamesЖанр: Survival Adventure, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1447C3DB07BF77EA132E5CFE9BBAEDBD8B4883FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040269   (587067) от 04.08.2016
-
-Near Death (2016) [En] (1.0) Repack Other s
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Near Death – приключенческий экшен на выживание, события которого разворачиваются в Антарктиде на заброшенной научно-исследовательской станции Сутро и ее окрестностях. Вам предстоит выступить в роли пилота, чей самолет потерпел крушение недалеко от станции в разгар смертельной метели, и постараться выжить в условиях критических температур и плохой видимости. Отрезанные (   Читать дальше...   )Тип издания: RepackРазработчик: Orthogonal GamesЖанр: Action, Adventure, 1st Person, IndieЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97F409B1011623BCC534E92855257B4D000C8E70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918751   (585592) от 16.07.2015
-
-AR-K: The Great Escape (2015) [En/Sp] License
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эпизод 3 серии AR-K. Помогите Алисии Ван Волиш сбежать из Района 8 и обнаружить источник таинственной "Золотой Сферы" в научно-фантастическом приключении, полном тайн, кислотного юмора, веселых испытаний. Погрузитесь в мир игры в классическом жанре "point and click", основанной на истории, написанной юмористом Грегом Ракой.Тип издания: ЛицензияРазработчик: Gato SalvajeЖанр: AdventureЯзык озвучки: Английский, ИспанскийЯзык субтитров: Английский, ИспанскийЯзык интерфейса: Английский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FF48C3326722500F2457AEA56D4F2B53938B6C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

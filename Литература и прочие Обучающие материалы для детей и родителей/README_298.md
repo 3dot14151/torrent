@@ -1,3 +1,55 @@
+###  Публикация: 1253864   (379617) от 11.10.2018
+
+Клавдия Лукашевич (сост.) | Сказки современных русских писателей. Том 1(1910) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник сказок для детей старшего дошкольного и младшего школьного возраста.Жанр: Детская проза. Сказка.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76AA8C90CC8B856EC9DC03F74741C407F497D35E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253859   (379615) от 11.10.2018
+
+Василий Авенариус | Первый русский изобретатель Иван Петрович Кулибин (1909) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нижегородский "посадский" Иван Петрович Кулибин после нескольких лет упорного труда, многих бессонных ночей, построил в 1767 году удивительные часы. "Видом и величиною между гусиным и утиным яйцом", они были заключены в затейливую золотую оправу. Часы были столь замечательны, что были приняты в дар императрицей Екатериной II. Они не только показывали (   Читать дальше...   )Жанр: Детская прозаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAB54F6EC0F8A2C19DC93E7A532C404BAFC787B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948525   (379591) от 22.10.2015
 
 Лев Кассиль и др. | Школьные годы [4 книги. Обновляемая] (1988-1990) [DJVU]
@@ -6,7 +58,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379591.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_379480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_379480.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379471.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379160.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378942.jpg" />
 </div>
 
 
@@ -142,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378834.jpg" />
 </div>
 
 
@@ -170,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378828.jpg" />
 </div>
 
 
@@ -198,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378762.jpg" />
 </div>
 
 
@@ -224,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378515.jpg" />
 </div>
 
 
@@ -251,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378307.jpg" />
 </div>
 
 
@@ -280,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378175.jpg" />
 </div>
 
 
@@ -306,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378172.jpg" />
 </div>
 
 
@@ -332,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378168.jpg" />
 </div>
 
 
@@ -358,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378103.jpg" />
 </div>
 
 
@@ -384,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377885.jpg" />
 </div>
 
 
@@ -410,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377797.jpg" />
 </div>
 
 
@@ -436,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377626.jpg" />
 </div>
 
 
@@ -462,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377526.jpg" />
 </div>
 
 
@@ -488,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377411.jpg" />
 </div>
 
 
@@ -514,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_377256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_377256.jpg" />
 </div>
 
 
@@ -540,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377144.jpg" />
 </div>
 
 
@@ -566,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377119.jpg" />
 </div>
 
 
@@ -592,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376985.jpg" />
 </div>
 
 
@@ -618,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376531.jpg" />
 </div>
 
 
@@ -631,59 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAD9631DB420286DC70A393A905432417FBF9F21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069095   (376249) от 03.11.2016
-
-Марина Бородицкая (пер.) | Королевская считалка (2012) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376249.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новый сборник Марины Бородицкой вошли и прежде издававшиеся, и новые переводы из английской детской классики. Особенность этих переводов в том, что они и сами очень быстро становятся классикой. Потому что над такими стихами с улыбкой переглядываются автор и читающий ребёнку взрослый. Написанные вроде бы для детей, они сопровождают нас всю жизнь. Вы держите в руках (   Читать дальше...   )Жанр: Детская проза, фольклорФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B288EB1962349A77E46CA9BD2C8B3A858B5B8465
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069248   (376248) от 03.11.2016
-
-В. Фиников (сост.) | Попался, сверчок! (1975) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376248.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книгу французских народных сказок под названием «Попался, сверчок!» вошли лучшие сказки из семи французских сборников фольклора. Тут и мудрые притчи о животных, и весёлые бытовые сказки о фермерах, о сапожниках, плотниках и солдатах, язвительно насмешливые истории о жадных церковниках и богатеях, а также увлекательные волшебные сказки.
-Любимый герой французских (   Читать дальше...   )Жанр: Детская проза, СказкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DF1FC81E9512EEB5E31B3C42EC5687CC5ADE44D
 ```
 
 https://mybot314.ru/tekegram_catalog/

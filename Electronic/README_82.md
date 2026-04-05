@@ -1,3 +1,61 @@
+###  Публикация: 991475   (906056) от 28.02.2016
+
+VA - Live In Montreal (Mixed By John Digweed) (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Downtempo, Deep House, Tech House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Continuous Dj Mix 1 (72:12)
+02. Continuous Dj Mix 2 (77:06)
+03. Continuous Dj Mix 3 (72:35)
+04. Continuous Dj Mix 4 (78:25)(   Читать дальше...   )Жанр: Downtempo, Deep House, Tech House, TechnoПродолжительность: 16:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C0A9B5E70A6AF1B1C464176CCD2AF356DDDC699
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991573   (906000) от 28.02.2016
+
+VA - Workout Motivation Vol 2 (Pres By Sam Booka) (2016) [MP3|320 кб/с] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calippo - Back There
+02. KRTO Ft Silk - Something About You (Phunk Investigation Remix)
+03. Nicola Fasano - Festival Circus
+04. Robyn The Bank - Collide (The Ironix Remix)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:17:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D305FCDF5019C32301CF652D0EE6D18BA1E7D639
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991526   (905994) от 28.02.2016
 
 VA - LTJ Bukem - Logical Progression Level 1 (2001) [FLAC|Lossless|tracks + .cue] <Drum n Bass>
@@ -6,7 +64,7 @@ VA - LTJ Bukem - Logical Progression Level 1 (2001) [FLAC|Lossless|tracks + .cue
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905994.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Best Of Del Mar, Vol 4 - 50 Beautiful Chill Sounds (2015) [MP3|320 кб/с]
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905990.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Vintage Latin Cafe: Lounge & Beat Latino (2016) [MP3|320 кб/с] <Lounge, 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905915.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Moby - Hotel : Ambient (2014) Reissue [FLAC|Lossless|tracks + .cue] <Ambient>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905912.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Scooter - Ace (2016) [FLAC|Lossless|image + .cue] <Techno, Hardstyle, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905905.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Moby - Long Ambients 1: Calm. Sleep. (2016) [MP3|~245 кб/с (V0)] <Ambient, Dr
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905841.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Dub Backups Collection (1997-2000) Elektrolux [FLAC|Lossless|tracks+.cue] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905710.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Dj Бинокль - Ночное Видение (2006) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905708.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ VA - Mixed by Dj K.Doomski (2005) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905707.jpg" />
 </div>
 
 
@@ -261,7 +319,7 @@ Dj Бинокль - Tribalhouse 2 (2004) [MP3|256 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905706.jpg" />
 </div>
 
 
@@ -287,7 +345,7 @@ Kirill Doomsky - Housemission II - Only One In The World (2004) [MP3|320 Kbps] <
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905705.jpg" />
 </div>
 
 
@@ -316,7 +374,7 @@ VA - Resonance Vol.2 (Mixed By DJ Arseniy) (2005) [MP3|320 Kbps] <House, Progres
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905703.jpg" />
 </div>
 
 
@@ -345,7 +403,7 @@ Dj Бинокль - Tribalhouse 1 (2003) [MP3|256 Kbps] <House, Disco, Progressi
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905702.jpg" />
 </div>
 
 
@@ -374,7 +432,7 @@ Dj Бинокль - Rafinad (2007) [MP3|320 Kbps] <Trance, Techno, Electro>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905698.jpg" />
 </div>
 
 
@@ -403,7 +461,7 @@ Phanatic - Bounce Showcase (Phanatic) (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905651.jpg" />
 </div>
 
 
@@ -432,7 +490,7 @@ VA - Kontor Festival Sounds 2020.01: The Beginning (2020) [MP3|320 Kbps] <House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905646.jpg" />
 </div>
 
 
@@ -461,7 +519,7 @@ VA - Битва Dj - Chief MC Vs. Бинокль Vs. Anna Lee (2003) [MP3|320 Kb
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905634.jpg" />
 </div>
 
 
@@ -490,7 +548,7 @@ VA - We Love Trance (2020) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905627.jpg" />
 </div>
 
 
@@ -519,7 +577,7 @@ VA - DJ Maretimo - Masterpieces Vol. 2 (2020) [MP3|320 Kbps] <Balearic, Downtemp
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905574.jpg" />
 </div>
 
 
@@ -548,7 +606,7 @@ Technimatic | Technicolour & Komatic - Discography 57 Releases (2007-2021) Shogu
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905338.jpg" />
 </div>
 
 
@@ -574,7 +632,7 @@ VA - Cool as Chill: Best Of Deluxe Lounge & Chillout Tunes (2017) [MP3|320 Kbps]
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905325.jpg" />
 </div>
 
 
@@ -603,7 +661,7 @@ VA - Tea Time Lounge: Chillout Your Mind (2017) [MP3|320 Kbps] <Chillout, Lounge
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905324.jpg" />
 </div>
 
 
@@ -632,7 +690,7 @@ Christian Loffler - Lys (2020) [FLAC 2.0|96/24|tracks|WEB-DL] <Electronic, Tech 
 >>Trance, House, Techno (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905235.jpg" />
 </div>
 
 
@@ -661,7 +719,7 @@ Soap&Skin - Discography 20 Releases (2008-2020) [PIAS] Recordings [FLAC|Lossless
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905160.jpg" />
 </div>
 
 
@@ -672,61 +730,6 @@ Soap&Skin - Discography 20 Releases (2008-2020) [PIAS] Recordings [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49028D425DFAF76CAAA0A19F3CD6306336BADBC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281668   (905159) от 28.08.2021
-
-Glåsbird (Glasbird) - Discography 8 Releases (2018-2021) Whitelabrecs [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Modern Classical>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Land Sleeps (07:57)
- 02. Icebound (03:54)
- 03. Skating Baikal (07:14)
- 04. Quiet Snowstorms (04:28)(   Читать дальше...   )Тип издания: CD, Web •Жанр: AmbientПродолжительность: 05:08:54 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1073F7572F22E63389985FFAE5970DCD436BB9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973622   (905150) от 28.08.2021
-
-Minor Rain - Discography 29 Releases (2012-2021) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Liquid Funk, Microfunk, Downtempo>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Floating Cell (05:24)Тип издания: WebЖанр: Drum & Bass, Liquid Funk, Microfunk, Downtempo •Продолжительность: 07:29:06 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F3DF0E95E74B35114BEB0C01FCC8AFFE639D692
 ```
 
 https://mybot314.ru/tekegram_catalog/

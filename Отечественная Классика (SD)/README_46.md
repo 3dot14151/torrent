@@ -1,3 +1,55 @@
+###  Публикация: 425707   (275503) от 21.12.2011
+
+Богдан Хмельницький (1941) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275503.jpg" />
+</div>
+
+
+###  Подробнее
+
+1648 год. Украина под гнетом Речи Посполитой. Шляхта бесчинствует, сжигая станицу за станицей. Гетман войска запорожского Богдан Хмельницкий собирает на сечи армию защитников отечества.Жанр: Драма, историческийРежиссер: Игорь СавченкоАктеры: Николай Мордвинов, Борис Безгин, Никита Ильченко, Михаил Жаров, Ростислав Ивицкий, Антон Дунайский, Борис Андреев, Гарэн Жуковская, Дмитрий Милютенко, Генрих ГрайфПродолжительность: 01:54:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7939B75D55D07F94DC9D4DE2E6874704C67307DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 424487   (275407) от 21.12.2011
+
+Родные берега (1943) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275407.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм состоит из новелл Три гвардейца и Пропавший без вести. На советских экранах фильм не демонстрировался. Новелла "Три гвардейца" - экранизация повести В. Кожевникова "Родные берега". Трое солдат пробираются в оккупированный фашистами город. В момент атаки советских войск они должны вызвать панику в тылу врага… Новелла "Пропавший безвести" (   Читать дальше...   )Жанр: Мелодрама, Драма, ВоенныйРежиссер: Владимир Браун, Николай СадковичАктеры: Иван Переверзев, Фаина Раневская, Лидия Смирнова, Александр Хвыля, Виктор Щеглов, Иван Бобров, Семен Гольдштаб, Григорий Михайлов, Виктор Проклов, Андрей СоваПродолжительность: 00:57:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93B609E7E3BA85FC1B8C32A150C2BFC658C5B8C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 423837   (275330) от 21.12.2011
 
 Полковник в отставке (1978) TVRip
@@ -6,7 +58,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275330.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274114.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273152.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272979.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272846.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272826.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271741.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271722.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271616.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270479.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269078.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268753.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267788.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267490.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266651.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265790.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264985.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263009.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262990.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262426.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262069.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259732.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257296.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256670.jpg" />
 </div>
 
 
@@ -625,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C46A49E5CDDA6C0DA1604C964695807D05662A97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 385315   (256355) от 10.11.2025
-
-У озера (1969) DVDRip (1-2 серии)
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм-размышление об ответственности человека перед другими людьми, родной природой и окружающим нас миром. А еще это история любви юной Леночки Барминой к взрослому солидному человеку, несущему на своих плечах тяжкий груз ответственности за деятельность огромного предприятия, стоящего прямо на берегу Байкала.Производство: СССР, Киностудия им. М. ГорькогоЖанр: ДрамаРежиссер: Сергей ГерасимовАктеры: Василий Шукшин, Наталья Белохвостикова, Олег Жаков, Николай Ерёменко мл., Валентина Теличкина, Сергей Герасимов, Наталья Аринбасарова, Михаил Ножкин, Вадим Спиридонов, Наталья Гвоздикова и др.Субтитры: отсутствуютПродолжительность: 02:53:04 (01:35:32+01:17:32)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F40FB6DCEC00E1264407AE37AC751E9BA61488D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 659467   (256354) от 10.11.2025
-
-Стакан воды  (1979) DVDRip [H.264] (1-2 серии из 2)
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда маленькое государство оказывается под угрозой захвата со стороны намного более сильного, спасти его может только одно: появление конкурента, сравнимого с захватчиком. В изящной и остроумной пьесе Скриба военные действия разворачиваются вокруг молодого офицера, в которого влюбились одновременно скромная продавщица ювелирного магазина, всесильная герцогиня Мальборо (   Читать дальше...   )Производство: СССР / МосфильмЖанр: Мелодрама, Комедия, ИсторияРежиссер: Юлий КарасикАктеры: Кирилл Лавров, Алла Демидова, Наталия Белохвостикова, Светлана Смирнова, Петерис Гаудиньш, Игорь Дмитриев, Юрис Стренга, Александр Вокач, Нина Веселовская, Григорий Всеволодов, Николай Ерофеев, Константин Чистяков, Анна Фроловцева, Лариса Жуковская, Светлана Данильченко, Михаил ЛооПродолжительность: 01:04:34 + 01:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:653807F4592F3903DDBC9BC04F17E35846BF74B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

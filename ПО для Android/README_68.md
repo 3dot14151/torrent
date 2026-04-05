@@ -1,3 +1,107 @@
+###  Публикация: 1837233   (256733) от 16.11.2025
+
+Йога на стуле v1.0.9 Mod by vadj [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256733.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение «Йога на стуле» для пожилых – простые и безопасные движения для улучшения гибкости, баланса и силы! Присоединяйтесь к нашему персонализированному 30-дневному плану йоги на стуле с мягкими и низкоударными движениями, которые помогают снизить риск падений, укрепить мышцы, поддерживать контроль веса и улучшить общее самочувствие.Тип издания: PremiumРелиз состоялся: 14.11.2025Разработчик: EZ HealthПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7073E96D944424304437AA8DA18458C3C747E09B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837268   (256728) от 16.11.2025
+
+PictureThis - Plant Identification v5.16.0 Mod by youarefinished [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Распознавайте растения мгновенно. Быстро, точно и содержательно! Помимо описания растений и советов по уходу, наслаждайтесь красивыми фото растений со всего мира. PictureThis помогает более 70 млн пользователей определять, изучать и наслаждаться всеми видами растений: цветами, деревьями, суккулентами, кактусами и другими!Тип издания: GoldРелиз состоялся: 14.11.2025Разработчик: Glority LLCПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5E27B6C1EAB27AC64F321B8784ED99C5DB35F38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837172   (256727) от 16.11.2025
+
+Универсальный Пульт для ТВ v1.7.5 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите получить максимум от Вашего телевизора? Мы хотим помочь вам с этим, поэтому создали UniMote - универсальный пульт дистанционного управления для любого телевизора. Наше приложение поможет вам управлять своим телевизором и ваше устройство Android станет пультом дистанционного управления для Smart TV, Андроид ТВ, Google TV, Samsung, LG, TCL, Sony и т. д. Вы можете (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 11.11.2025Разработчик: SensusTech LLCПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:563974ABD368C3338EBE4FCFBAA1BB90ABDF9580
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837201   (256717) от 18.11.2025
+
+MIUI Hidden Settings Activity v1.6.11 Mod by TryRoom [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы можете использовать это приложение как средство изменения настроек, быстрый ярлык, разблокировать секретные настройки miui. Некоторые распространенные варианты использования: отключение приложения Miui, инженерный режим Xiaomi и Qualcomm, DNS miui 10, настройки специальных возможностей Mi, настройки VPN, изменение dpi Mi, увеличение частоты обновления 120 Гц, (   Читать дальше...   )Тип издания: Premium / ModРелиз состоялся: 11.11.2025Разработчик: SingAppПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AB3B0E2993E12B58BC5363E6D01A22B395070BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1837225   (256716) от 16.11.2025
 
 All File Reader and Viewer v55 Mod by vadj [Ru/Multi]
@@ -6,7 +110,7 @@ All File Reader and Viewer v55 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256716.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ SnapEdit - AI photo editor v7.5.2 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256683.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ FBReader Premium v3.8.21 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256682.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ PhotoDirector v20.7.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256625.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Bria Mobile: VoIP Softphone v6.21.3 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256609.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Mary’s recipes: рецепты, меню v6.7.0 Mod by Alex.Strannik [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256605.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Vanced Tube v5.5.80.151 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256599.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256589.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ FBReader Premium – Favorite Book Reader v3.1.5 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255557.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ vpnify - Безлимитный VPN 2.0.4 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254940.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ Lexilize FlashCards v4.8.5 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254906.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ Dr.Web Security Space Life v12.9.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254696.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252801.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ RAR for Android v7.20 build 128 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252439.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ Beat Find / Распознавание музыки v1.6.61 Mod by NURIK [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252356.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ Background Video Recorder Pro v13.9.77 Mod by NURIK kz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252300.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ Photo Studio PRO v2.8.7.4631 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252299.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252297.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ WPS Office + PDF v18.22 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252296.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ Plus Messenger (Telegram+)  v12.1.1.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252293.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252124.jpg" />
 </div>
 
 
@@ -558,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251904.jpg" />
 </div>
 
 
@@ -570,113 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7469DE856C3810E77B8DFFC5369B35019A9DE3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835784   (251902) от 07.11.2025
-
-Кегель тренажер v10.2.0 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251902.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплекс несложных упражнений и ежедневные напоминания - вот простой способ укрепить мышцы тазового дна! Вам надоело выполнять одни и те же упражнения и чувствовать, что результаты не улучшаются? В этом приложении 10 различных тренировок, это означает, что у вас всегда есть возможность выбрать новый комплекс. Быстро и легко - все упражнения длятся от 30 секунд до (   Читать дальше...   )Тип издания: ProРелиз состоялся: 06.11.2025Разработчик: Olson Applications LtdПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCEF4BFCF1D56A8D6A854B5239BA18CD31F83915
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835785   (251900) от 07.11.2025
-
-Табата ®. Интервальные тренировки / Tabata Training v4.10 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение-помощник для высокоинтенсивных интервальных тренировок. Иллюстрации. Обширная база упражнений. Возможность создавать собственные тренировки. 4 минутная тренировка заменяет час в тренажерном зале. Табата - это высокоинтенсивный интервальный тренинг:
-• 20 секунд интенсивной тренировки
-• 10 секунд отдыха
-• повторить 8 разТип издания: PremiumРелиз состоялся: 06.11.2025Разработчик: AxiomMobileПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A605DDF7E2D0A878DD34E52572CD6DACAFFAD4C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835757   (251892) от 07.11.2025
-
-Цифровое ТВ v4.3.5 Mod by vadj [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильмы, сериалы, мультфильмы, новости, музыка и спорт - это прямой эфир самых популярных общероссийских телеканалов в отличном качестве специально для Вас! С приложением Цифровое ТВ популярные программы доступны круглосуточно и абсолютно бесплатно. Теперь Вы не пропустите любимые передачи или прямой эфир матчей, стоя в пробке, отдыхая на даче или ожидая рейс в аэропорту. (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 07.11.2025Разработчик: Лайм Эйч ДиПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82FE84E8D63FF3ED1808A9E027ACFD7D0315852F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835787   (251889) от 07.11.2025
-
-Скользящий график смен v4.0.0 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весьма удобный инструмент для расчёта и учёта смен при работе по скользящему графику. Несколько графиков. Темы оформления. Будильник. Напоминания.  Нет необходимости долго разбираться в многочисленных настройках, просто выберите готовый график из списка, или составьте свой график смен, и нажмите на нужную дату, с которой начать расчёт графика работы. В приложении (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 07.11.2025Разработчик: 4th floor appsПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB4EF97E8FAB1ABD967891A3383E51BFCFE6543F
 ```
 
 https://mybot314.ru/tekegram_catalog/

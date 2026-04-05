@@ -1,3 +1,61 @@
+###  Публикация: 1110072   (855681) от 01.03.2017
+
+AutoPrompt 1.0.8 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855681.jpg" />
+</div>
+
+
+###  Подробнее
+
+AutoPrompt  - это простое приложение для меню-бара, которое время от времени будет Вас спрашивать  что Вы делает в этот момент.
+AutoPrompt  - это  интуитивный интерфейс для списков задач и их продолжительность. Просто запишите вашу текущую задачу всякий раз, когда  AutoPrompt  Вас об этом попросит. Создайте свой ежедневный рабочий лист во время  работы.
+
+Идеология  приложения (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28 февраля 2017Разработчик: InspiringLife.coПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0DF8EAECAA655BD5F3E1C4E27E18A161B1EE51D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001074   (855636) от 27.03.2016
+
+SubsMarine 1.2.3 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855636.jpg" />
+</div>
+
+
+###  Подробнее
+
+Найти субтитры для видео и телевизионных шоу
+SubsMarine - полезная утилита, которая самостоятельно сможет найти субтитры для фильма или ТВ-сериала. SubsMarine просканирует указанные пользователем папки на наличие видео файлов, и найдет и скачает нужные субтитры.
+
+Благодаря этой малютке можно забыть о долгом и утомительном поиске подходящих субтитров. В настройках (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2016Разработчик: CocoaWithChurrosПоддерживаемая ОС: Mac OS X 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9169911F19C16E730E4C210CB1D14562C56F5C50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000995   (855350) от 27.03.2016
 
 OS X Server 5.1 [Multi]
@@ -6,7 +64,7 @@ OS X Server 5.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855350.jpg" />
 </div>
 
 
@@ -34,7 +92,7 @@ Script Debugger 7 v7.0.12 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855203.jpg" />
 </div>
 
 
@@ -62,7 +120,7 @@ SonicWeb Internet Radio Player 2.5 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854916.jpg" />
 </div>
 
 
@@ -88,7 +146,7 @@ Filmwizard Full 3.4.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854644.jpg" />
 </div>
 
 
@@ -114,7 +172,7 @@ Big Sur Cache Cleaner 16.1.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854529.jpg" />
 </div>
 
 
@@ -140,7 +198,7 @@ CopyClip 2 v2.9.98.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854418.jpg" />
 </div>
 
 
@@ -167,7 +225,7 @@ MathWorks MATLAB R2021b v9.11.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853997.jpg" />
 </div>
 
 
@@ -193,7 +251,7 @@ Troga - Translate. Forget. Recall. Repeat 1.7.8 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853840.jpg" />
 </div>
 
 
@@ -220,7 +278,7 @@ Watermark Pro 1.72 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853787.jpg" />
 </div>
 
 
@@ -247,7 +305,7 @@ Tune Sweeper 4 v4.25 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853673.jpg" />
 </div>
 
 
@@ -273,7 +331,7 @@ Magnet - Snap windows into various sizes and positions 2.1.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853469.jpg" />
 </div>
 
 
@@ -299,7 +357,7 @@ Photopaw 3.2.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852891.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Easy Batch Rename 1.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852890.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ CopyLess 1.8.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852115.jpg" />
 </div>
 
 
@@ -379,7 +437,7 @@ Chocolat 3.2.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852113.jpg" />
 </div>
 
 
@@ -408,7 +466,7 @@ Day One Classic 1.10.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852108.jpg" />
 </div>
 
 
@@ -435,7 +493,7 @@ SMARTReporter 3.1.9 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852103.jpg" />
 </div>
 
 
@@ -461,7 +519,7 @@ OmniOutliner Pro 4.5.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852096.jpg" />
 </div>
 
 
@@ -489,7 +547,7 @@ Cosmicast 2.0.4 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851887.jpg" />
 </div>
 
 
@@ -515,7 +573,7 @@ Bongiovi Digital Power Station (DPS) 2.2.7.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851138.jpg" />
 </div>
 
 
@@ -542,7 +600,7 @@ Adobe Animate 2021 v21.0.9 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850897.jpg" />
 </div>
 
 
@@ -568,7 +626,7 @@ Adobe Zii 2021 - Universal Patcher 6.1.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850890.jpg" />
 </div>
 
 
@@ -594,7 +652,7 @@ DBeaver Ultimate Edition 21 v21.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850804.jpg" />
 </div>
 
 
@@ -620,7 +678,7 @@ Adobe XD v44.0.12 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850792.jpg" />
 </div>
 
 
@@ -632,60 +690,6 @@ Adobe XD - это новый творческий инструмент от ко
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6525A0401E289D5698600463239AE30A80D7558
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499141   (850791) от 30.09.2021
-
-Adobe InDesign 2021 v16.4 [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программное обеспечение для настольных систем Adobe InDesign представляет собой универсальное приложение для публикации контента, которое обеспечивает точный контроль над дизайном и типографикой на уровне пикселов. Скачав портативное приложение на вы сможете создавать стильные выразительные страницы для печати, планшетных ПК и других экранов. Удобная адаптация макетов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2021Разработчик: Adobe SystemsПоддерживаемая ОС: macOS 10.14 и новееЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF0130178BF266C12152009A038F45DDE60239A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001944   (850554) от 30.03.2016
-
-VersionsManager 1.1.0 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850554.jpg" />
-</div>
-
-
-###  Подробнее
-
-VersionsManager - утилита,  позволяющая просматривать и произвольно удалять старые 'версии'  документов, которые были автоматически  сохранены Вашим Mac. Начиная с Mac OS X 'Lion' 10.7, большинство приложений Mac автоматически хранит не только последнюю версию любого документа, но и все предыдущие промежуточные сохраненные версии. (см. здесь)
-
-Эти предыдущие версии (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 29 марта 2016Разработчик: © CoreCodeПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41905F8263A73616A66F68B5AC0A1DC0C2E53F6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

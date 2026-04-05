@@ -1,3 +1,38 @@
+###  Публикация: 413532   (326904) от 25.11.2011
+
+Ex.T.R.A. - Сткло и сталь (2010) [MP3|320 kbps]<Ska, Alco ska>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Que Paso Amigos
+02 - Один на миллион
+03 - Кабак
+04 - Ska Moscow
+05 - Mr. Beerman
+06 - Безобразный Алкоголик
+07 - Так Прохидят Годы
+08 - Коля
+09 - Стекло и Сталь
+10 - Алиса(   Читать дальше...   )2010Жанр: Ska, Alco skaПродолжительность: 00:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AEFF3F4277CEAC5327655C26316FA7195592B50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957650   (326771) от 18.11.2015
 
 KIROV - Волны И Вибрации (2015) [MP3|320 кб/с]<Indie-Rock>
@@ -6,7 +41,7 @@ KIROV - Волны И Вибрации (2015) [MP3|320 кб/с]<Indie-Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326771.jpg" />
 </div>
 
 
@@ -35,7 +70,7 @@ Black Ferns - Black Ferns (2015) [OGG|448-488 кб/с]<Alternative Rock, Psyched
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326766.jpg" />
 </div>
 
 
@@ -64,7 +99,7 @@ Megadeth - Fatal Illusion (2015) Single [MP3|320 кб/с]<Heavy Metal, Thrash Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326724.jpg" />
 </div>
 
 
@@ -92,7 +127,7 @@ Dirty Sound Magnet - What Lies Behind (2012) [MP3|320 кб/с]<Blues rock, Hard 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326711.jpg" />
 </div>
 
 
@@ -121,7 +156,7 @@ The Warrior Kings - The Warrior Kings (2012) [MP3|320 кб/с]<Blues rock, Hard 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326708.jpg" />
 </div>
 
 
@@ -150,7 +185,7 @@ Les Enfants de DAGON - De Profundis (2022) [FLAC|Lossless|WEB-DL|tracks] <Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326490.jpg" />
 </div>
 
 
@@ -179,7 +214,7 @@ Korrosive - Toxic Apokalypse (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326489.jpg" />
 </div>
 
 
@@ -208,7 +243,7 @@ Desolate - Sanity Obliterated (2012) Compilation [FLAC|Lossless|tracks] <Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326488.jpg" />
 </div>
 
 
@@ -237,7 +272,7 @@ Creepy Willie - The Creepy Willie Show (2022) [FLAC|Lossless|WEB-DL|tracks] <Exp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326487.jpg" />
 </div>
 
 
@@ -266,7 +301,7 @@ Tomb Of Finland - 3 Albums (2015-2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326486.jpg" />
 </div>
 
 
@@ -295,7 +330,7 @@ Krankheit - Gargantua (2022) [FLAC|Lossless|WEB-DL|tracks] <Gothic Industrial Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326485.jpg" />
 </div>
 
 
@@ -324,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326484.jpg" />
 </div>
 
 
@@ -353,7 +388,7 @@ Mephistofeles - Violent Theatre (2022) [FLAC|Lossless|WEB-DL|tracks] <Psych Ston
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326483.jpg" />
 </div>
 
 
@@ -382,7 +417,7 @@ Rage - Spreading The Plague (2022) EP [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326482.jpg" />
 </div>
 
 
@@ -411,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326419.jpg" />
 </div>
 
 
@@ -437,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326417.jpg" />
 </div>
 
 
@@ -466,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326416.jpg" />
 </div>
 
 
@@ -495,7 +530,7 @@ Butterfly Temple - ...окольное братство нетленного м�
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326415.jpg" />
 </div>
 
 
@@ -524,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326409.jpg" />
 </div>
 
 
@@ -553,7 +588,7 @@ Borealis - Illusions (2022) [MP3|320 Kbps] <Melodic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326407.jpg" />
 </div>
 
 
@@ -582,7 +617,7 @@ Lost Society - If The Sky Came (2022) [MP3|320 Kbps] <Metalcore, Nu-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326404.jpg" />
 </div>
 
 
@@ -611,7 +646,7 @@ Manfred Mann’s Earth Band - Chance (1980) Japanese Edition, Reissue, 2022, Bel
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326403.jpg" />
 </div>
 
 
@@ -640,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326394.jpg" />
 </div>
 
 
@@ -669,7 +704,7 @@ Lita Ford - 14 albums, 25 CD (1983-2016) [FLAC|Lossless|image + .cue | tracks + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326042.jpg" />
 </div>
 
 
@@ -701,7 +736,7 @@ Katana - The Greatest Victory (2015) [MP3|320 кб/с]<Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325834.jpg" />
 </div>
 
 
@@ -715,35 +750,6 @@ Katana - The Greatest Victory (2015) [MP3|320 кб/с]<Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07E0C99104BE75EF594AEEC3F8DFDDD5FAFA4EF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957948   (325802) от 19.11.2015
-
-Саша Самойленко & TOMAS band - Время-Весы (2015) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Одна звезда
-02. Время-Весы
-03. Над кукушкиным гнездом
-04. Брат(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7E30FB58E588A0ECA44880A9C95536B63EE48A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

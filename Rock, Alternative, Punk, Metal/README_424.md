@@ -1,3 +1,156 @@
+###  Публикация: 1226232   (655844) от 20.05.2018
+
+Praying Mantis - Gravity (2018) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keep It Alive
+02. Mantis Anthem
+03. Time Can Heal
+04. 39 Years(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:02:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41AF901CDD541681A46C7206F70E6090B8434FB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226407   (655841) от 20.05.2018
+
+Lords of Black - Icons of the New Days (2018) Japan [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Innuendo (Queen Cover)
+02. Only (Anthrax Cover)
+03. Tears of the Dragon (Bruce Dickinson Cover)
+04. Edge of the Blade (Journey Cover)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:47:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21C7468A9C4ADFC1B766D002E0683C60C45325EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226205   (655838) от 20.05.2018
+
+Bonfire - Temple of Lies (2018) Ltd. Ed. [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Beginning
+02. Temple Of Lies
+03. On The Wings Of An Angel
+04. Feed The Fire (Like The Bonfire)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:09:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77D5EAD57B13E0AAD923BF77DB2340AEC702A8C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515505   (655818) от 26.06.2012
+
+Mordor - Glamour, Glamour (2008) [MP3|320 kbps] <Heavy Metal / Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мордор (03:54)
+02. Гламур! (04:33)
+03. На дне (04:40)
+04. D.J.Voorda (04:07)
+05. Страх (04:06)
+06. Hombre Pajaro (04:14)
+07. Суперзвёзды (04:34)
+08. Фитнесс - убийца (03:20)
+09. Машинист (03:47)
+10. Голограмма Пустоты (04:03)(   Читать дальше...   )Жанр: Heavy Metal / IndustrialПродолжительность: 00:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22182EE950AC6829ED46021658731C9D3657CF96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140343   (655789) от 06.06.2017
+
+Jorn - Life on Death Road (2017) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лейбл Frontiers Music Srl выпустит новый студийный альбом норвежского вокалиста Йорна Ланде (Jorn Lande) "Life On Death Road" 2 июня.
+
+Йорн – однозначно один из величайших рок-певцов XXI века, и его голос вновь звучит во всю мощь на его девятом сольном диске с оригинальным материалом. Ему аккомпанирует новый состав музыкантов, который обеспечил релизу более (   Читать дальше...   )01. Life on Death Road (7:20)
+02. Hammered to the Cross (The Business) (5:29)
+03. Love Is the Remedy (4:53)
+04. Dreamwalker (4:59)(   Читать дальше...   )Жанр: Hard'n'HeavyПродолжительность: 01:05:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9008E6F0E0827F0C8CA5E9949DA1DA46F3816832
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1226473   (655766) от 20.05.2018
 
 At The Gates - To Drink From The Night Itself (2018) [MP3|320 Kbps] <Melodic Death Metal>
@@ -6,7 +159,7 @@ At The Gates - To Drink From The Night Itself (2018) [MP3|320 Kbps] <Melodic Dea
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655766.jpg" />
 </div>
 
 
@@ -35,7 +188,7 @@ Unreal - Discography 9 альбомов (2006-2012) [MP3|128-320 кб/с]<Gothic
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655748.jpg" />
 </div>
 
 
@@ -61,7 +214,7 @@ Circus - Movin' On (1977) Remastered /1990, Decoder/ [FLAC|image+.cue]<Progressi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655692.jpg" />
 </div>
 
 
@@ -90,7 +243,7 @@ Epsilon – Epsilon (1971) Remastered /1993, Bellaphon/ [FLAC|image+.cue]<Progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655686.jpg" />
 </div>
 
 
@@ -119,7 +272,7 @@ Aunt Mary - Aunt Mary (1970) Remastered /2004, Pan Records/ [FLAC|tracks+.cue]<P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655684.jpg" />
 </div>
 
 
@@ -148,7 +301,7 @@ Debler - Noctem Diaboli (2015) [MP3|320 кб/с]<Melodic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655683.jpg" />
 </div>
 
 
@@ -177,7 +330,7 @@ Mortis Mutilati - Melopee Funebre (2015) [MP3|320 кб/с]<Depressive Black Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655682.jpg" />
 </div>
 
 
@@ -206,7 +359,7 @@ Exxasens - 3 albums (2008-2011) [FLAC|Lossless] <Post-Rock, Space Rock, Instrume
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_655622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_655622.jpg" />
 </div>
 
 
@@ -240,7 +393,7 @@ Room Experience - Room Experience (2015) [FLAC|Lossless]<Melodic Hard Rock / AOR
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655571.jpg" />
 </div>
 
 
@@ -269,7 +422,7 @@ Serenity In Fire - Give Him Your Soul (2015) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655566.jpg" />
 </div>
 
 
@@ -298,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655547.jpg" />
 </div>
 
 
@@ -327,7 +480,7 @@ Kiss - Kissworld: The Best of Kiss (2017) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655485.jpg" />
 </div>
 
 
@@ -356,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655480.jpg" />
 </div>
 
 
@@ -391,7 +544,7 @@ Renaissance - DeLane Lea Studio (1973) Remastered /2015, Purple Pyramid Records/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655469.jpg" />
 </div>
 
 
@@ -420,7 +573,7 @@ Nekrogoblikon - Heavy Meta (2015) [MP3|320 кб/с]<Melodic Death Metal, Folk Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655467.jpg" />
 </div>
 
 
@@ -449,7 +602,7 @@ Spooky Tooth - The Island Years (1967-1974) 9CD Box Set Remastered /2015, Univer
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655456.jpg" />
 </div>
 
 
@@ -478,7 +631,7 @@ If These Trees Could Talk - Red Forest (2012) [FLAC|Lossless|tracks + .cue] <Pos
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_655429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_655429.jpg" />
 </div>
 
 
@@ -507,7 +660,7 @@ Hidria Spacefolk - 7 albums (2001-2007) [FLAC|Lossless] <Space, Progressive, Psy
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_655329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_655329.jpg" />
 </div>
 
 
@@ -538,7 +691,7 @@ BrainStorm - 7 Steps Of Fresh Air (2015) [FLAC|Lossless]<Brit-pop, pop-rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655244.jpg" />
 </div>
 
 
@@ -567,7 +720,7 @@ The Royal Philharmonic Orchestra - Plays Prog Rock Classics (2015) [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655240.jpg" />
 </div>
 
 
@@ -597,7 +750,7 @@ Yes - Progeny: Seven Shows From Seventy-Two (2015) 14CD Box Set [FLAC|image+.cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655239.jpg" />
 </div>
 
 
@@ -611,151 +764,6 @@ III. I Get Up I Get Down(   Читать дальше...   )Жанр: Progressiv
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:178D2E06367F792FCED346A975831282427052C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 512970   (655198) от 26.06.2012
-
-The Offspring - Days Go By (2012) [FLAC|Lossless]<Alternative Rock, Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_655198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Future Is Now
-02. Secrets From The Underground
-03. Days Go By
-04. Turning Into You(   Читать дальше...   )Жанр: Alternative Rock, Punk RockПродолжительность: 00:42:49
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904235   (655182) от 02.06.2015
-
-СерьГа - Чистота (2015) [FLAC|image+.cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Время готовить костёр (3:23)
-02. Хоровод (2:55)
-03. Ромео и Джульетта (4:52)
-04. Чистота (4:29)(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:561B0FBCE78B87D68A131E4BBC0693B2A7934AEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903997   (655138) от 02.06.2015
-
-Scorpions - Wind Of Change: The Collection (2013) [MP3|320 кб/с]<Rock, Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crazy World [05:10]
-02. Alien Nation [05:44]
-03. Tease Me Please Me [04:37]
-04. No Pain No Gain [03:47](   Читать дальше...   )Жанр: Rock, Hard Rock, Heavy MetalПродолжительность: 01:19:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E31CE3E38B029A512904EBA3B78F0F3CDBF62F52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539620   (655053) от 28.03.2022
-
-Colder Suns - Ex-Display (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Chemicals (00:04:48)
-02 - I.A.N (00:05:13)
-03 - Waiting For Red (00:02:59)
-04 - Creepers (00:03:57)(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2C6D20149CE0DF9F5422CBEAE6870B8B2D59385
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539723   (655049) от 28.03.2022
-
-Greyborn - Leeches (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Leeches (00:04:12)
-02 - Bits & Pieces (00:05:07)
-03 - Jharia (00:06:56)
-04 - After Dark (00:03:40)(   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:24:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0540B19D4A951E02527603E516637D61AA140529
 ```
 
 https://mybot314.ru/tekegram_catalog/

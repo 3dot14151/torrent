@@ -1,3 +1,57 @@
+###  Публикация: 1053778   (634567) от 18.06.2017
+
+Sony PlayStation 2 (2017) [PS2] [NTSC-U] [License] [Redump 20170613] (#-I)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634567.jpg" />
+</div>
+
+
+###  Подробнее
+
+1871 проверенных по базе ReDump образов игр для PlayStation 2 региона NTSC-U.
+В раздаче НЕТ образов демонстрационных дисков и дисков с бонусами к играм - это тема для отдельной раздачи (в сети пока нет полной коллекции).
+Redump.org это база данных и сообщество, хранящее достоверную информацию о когда либо вышедшей играх на оптических носителях для разных платформ. (   Читать дальше...   )Тип издания: LicenseЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAC912D9A80825B2B684CC7E3E6B97AE37F4BD67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 800971   (634156) от 02.07.2014
+
+Звездные войны / Star Wars (1977-2005) BDRip [720p] [hand made 60fps] [Антология]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: СШАЖанр: Фантастика, Фэнтези, БоевикРежиссер: Джордж ЛукасАктеры: Марк Хэмилл, Харрисон Форд, Кэрри Фишер, Билли Ди Уильямс, Энтони Дэниелс, Питер Мейхью, Себастьян Шоу, Иен МакДермид, Фрэнк Оз, Джеймс Эрл ДжонсПеревод: ДублированныйЯзык субтитров: Rus (форс.), Rus (полные), Eng (полные)Продолжительность: 02:14:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35D71848B86FD10EF56CE14788E7E5311B898A35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1034240   (633799) от 13.07.2016
 
 Movavi Video Converter 16.2.0 RePack by KpoJIuK [Multi/Ru]
@@ -6,7 +60,7 @@ Movavi Video Converter 16.2.0 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633799.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Lineage 2: Helios (2015) [Ru] (3.0.08.07.01) License
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633793.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ KMSAuto Lite 1.1.8 Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633207.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633095.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633094.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ Simplify3D 4.1.2 [Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633093.jpg" />
 </div>
 
 
@@ -162,7 +216,7 @@ We Happy Few (2018) [Ru/Multi] (1.8/dlc) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633092.jpg" />
 </div>
 
 
@@ -188,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633032.jpg" />
 </div>
 
 
@@ -214,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633030.jpg" />
 </div>
 
 
@@ -240,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632775.jpg" />
 </div>
 
 
@@ -266,7 +320,7 @@ S.T.A.L.K.E.R. - Потерянный Мир. Месть Зоны (Mod/Add-on/1.
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632567.jpg" />
 </div>
 
 
@@ -292,7 +346,7 @@ S.T.A.L.K.E.R: Shadow of Chernobyl / S.T.A.L.K.E.R.: Тень Чернобыля
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632560.jpg" />
 </div>
 
 
@@ -320,7 +374,7 @@ Gokukoku no Brynhildr | Brynhildr in the Darkness | Брунгильда во т
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632304.jpg" />
 </div>
 
 
@@ -348,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631901.jpg" />
 </div>
 
 
@@ -375,7 +429,7 @@ Battlefield: Bad Company 2 (2010) [Ru] (795745/dlc) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631892.jpg" />
 </div>
 
 
@@ -401,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631891.jpg" />
 </div>
 
 
@@ -428,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_631720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_631720.jpg" />
 </div>
 
 
@@ -454,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_631564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_631564.jpg" />
 </div>
 
 
@@ -481,7 +535,7 @@ AusLogics BoostSpeed 8.0.0.0 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631267.jpg" />
 </div>
 
 
@@ -507,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631232.jpg" />
 </div>
 
 
@@ -533,7 +587,7 @@ Adguard Премиум 5.10.2037.6352 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631158.jpg" />
 </div>
 
 
@@ -559,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631123.jpg" />
 </div>
 
 
@@ -587,7 +641,7 @@ Adobe Muse CC 2015.0.0.597 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631102.jpg" />
 </div>
 
 
@@ -613,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630917.jpg" />
 </div>
 
 
@@ -624,61 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E3A6212CB7E80696269B79EC325CBE298DA8AF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520447   (630353) от 09.07.2012
-
-Test Battlefield BC 2 Multiplayer only [Ru] (Rip) 2010 | Nexus
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_630353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тестовая версия игры для открытой тест группы.
-
-Только для владельце аккаунта, которые успели зарегистрироваться по ссылке http://sso.emulatornexus.com/register.php или http://emulatornexus.com/forum/ucp.php?mode=register
-Для желающих протестировать, комментарии (без флуда) просьба сразу в тему.(   Читать дальше...   )Тип издания: RipЖанр: Action, 3D, 1st persoonЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035088   (629807) от 15.07.2016
-
-Adobe Media Encoder CC 2015.3 (v10.3) Multilingual
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Media Encoder CC 2015.3 - это программа кодирования, которая позволяет кодировать аудио- и видеофайлы в различные форматы распространения для различных приложений и аудиторий. Такие видео- и аудиоформаты характеризуются повышенной степенью сжатия. Используя эту программу, можно экспортировать видео в форматы, поддерживаемые различными устройствами, от DVD-проигрывателей (   Читать дальше...   )Язык интерфейса: Английский / Голландский / Испанский / Итальянский / Китайский (упрощенный) / Китайский (традиционный) / Корейский / Немецкий / Польский / Португальский / Русский / Турецкий / Французский / Чешский / Шведский / Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C91D0D17C13436D7957C09814A529686C7243C1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

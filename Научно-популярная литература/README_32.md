@@ -1,29 +1,3 @@
-###  Публикация: 1407248   (466273) от 07.09.2020
-
-Ричард Форти | Трилобиты. Свидетели эволюции (2014) [PDF, DJVU]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед нами первая популярная книга на русском языке о трилобитах. Миллионы лет назад эти необычайные животные самых немыслимых форм и размеров, хищные и смирные, крошки и гиганты, царили в океанах и на суше… а потом исчезли. О загадках их ушедшей жизни интеллигентно и остроумно рассказывает Ричард Форти, большой знаток трилобитов, влюблённый в них с самого детства. (   Читать дальше...   )Жанр: Научно-популярная литератураФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E351E34711D3C46F7D4906B34E07CF2F9BCA936C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940007   (466139) от 25.09.2015
 
 Майкл Файер | Абсолютный минимум. Как квантовая теория объясняет наш мир (2016) [EPUB]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466139.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463999.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463624.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463318.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462526.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462239.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461909.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460213.jpg" />
 </div>
 
 
@@ -244,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459495.jpg" />
 </div>
 
 
@@ -271,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459181.jpg" />
 </div>
 
 
@@ -299,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456701.jpg" />
 </div>
 
 
@@ -325,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456697.jpg" />
 </div>
 
 
@@ -353,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454797.jpg" />
 </div>
 
 
@@ -379,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453323.jpg" />
 </div>
 
 
@@ -405,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450921.jpg" />
 </div>
 
 
@@ -431,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450919.jpg" />
 </div>
 
 
@@ -457,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450915.jpg" />
 </div>
 
 
@@ -483,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_447625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_447625.jpg" />
 </div>
 
 
@@ -509,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443604.jpg" />
 </div>
 
 
@@ -535,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442660.jpg" />
 </div>
 
 
@@ -561,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442560.jpg" />
 </div>
 
 
@@ -587,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442350.jpg" />
 </div>
 
 
@@ -613,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442196.jpg" />
 </div>
 
 
@@ -640,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439404.jpg" />
 </div>
 
 
@@ -666,7 +640,7 @@ F. Kudriavtsev | The Golden Ring (Золотое кольцо) [1983] [PDF] [En]
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436825.jpg" />
 </div>
 
 
@@ -677,6 +651,32 @@ F. Kudriavtsev | The Golden Ring (Золотое кольцо) [1983] [PDF] [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E286D887A7901B4269F56C6A4768A978FEC0AF32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165118   (436592) от 11.09.2017
+
+Фрэнк Райан | Таинственный геном человека (2017) [FB2]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436592.jpg" />
+</div>
+
+
+###  Подробнее
+
+В человеческом организме 100 триллионов клеток, и в каждой из них скрыт крошечный генетический кластер, выполняющий сложнейшую работу. Фрэнк Райан, врач и эволюционный биолог, описывает сложные механизмы генома, работающего как целостная система, а не просто как набор генов, кодирующих белки – первокирпичики жизни. Вдобавок в геноме существуют тонкие «переключатели», (   Читать дальше...   )Жанр: Генетика, Зарубежная образовательная литература, Научно-популярная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EA555B56B4E3D4CC47ED95C798AB783AA151DAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

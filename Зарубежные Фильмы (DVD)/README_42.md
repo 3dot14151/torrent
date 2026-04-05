@@ -1,84 +1,3 @@
-###  Публикация: 566629   (397982) от 28.10.2012
-
-Вирус / Virus (1999) DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397982.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда небольшого американского судна, чудом вырвавшегося из пасти тайфуна, обнаруживает безлюдный российский лайнер, оснащенный по последнему слову техники. С надеждой на премию около 30 миллионов долларов они собираются отбуксировать его в ближайший порт. Только двое из команды - Кит Фостер и Стив Бейкер - чувствуют опасность. Правда ужасна: судно подверглось (   Читать дальше...   )Производство: СШАЖанр: Ужасы, фантастика, боевик, триллерПеревод: ДублированныйСубтитры: РусскиеФормат: DVD5Продолжительность: 01:35:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 400441   (396913) от 16.10.2011
-
-Один день / One Day (2011) DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эмма — романтична, остра на язык и хочет изменить мир к лучшему. Декстер — плейбой, баловень судьбы и хочет, чтобы мир принадлежал ему.
-Впервые Эм и Декс встретились 15 июля на выпускном в колледже и провели вместе только один день. А потом пришла ночь, и они…решили остаться друзьями. Они будут встречаться в тот же день через год, через два. Но сколько лет должно (   Читать дальше...   )Производство: Color Force / Film Four Ltd. / Random House Films (США)Жанр: Драма, мелодрамаРежиссер: Лоне ШерфигАктеры: Энн Хэтэуэй, Джим Стёрджесс, Том Мисон, Джоди Уиттакер, Тим Ки, Рейф Сполл, Жозефин Де Ла Буме, Патришия Кларксон, Кен Стотт, Хейда РидПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:42:55
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 567462   (396752) от 29.10.2012
-
-Архангел / Archangel (2005) DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_396752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Историк Келсо приезжает в Москву на научную конференцию. Но визит Рапавы, бывшего телохранителя Лаврентия Берия, меняет все планы. Оказывается, в ночь смерти Сталина он по приказу шефа закопал тайный дневник вождя.
-
-Заинтригованный Келсо разыскивает дочь исчезнувшего Рапавы Зинаиду, надеясь, что она поможет раскрыть тайну ее отца. Когда к ним в компанию навязывается (   Читать дальше...   )Жанр: Триллер, Драма, КриминалРежиссер: Джон ДжоунсАктеры: Дэниэл Крэйг, Екатерина Редникова, Гэбриэл Махт, Лев Прыгунов, Алексей Дьяков, Хэрри Дитсон, Таня Муди, Клаудиа Харрисон, Юрис СтренгакПеревод: Многоголосый закадровыйЯзык субтитров: русскийПродолжительность: 3 х ~ 00:43:26
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 715683   (396540) от 26.10.2013
 
 Улики / Evidence (2013) DVD9
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396540.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395327.jpg" />
 </div>
 
 
@@ -139,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_392533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_392533.jpg" />
 </div>
 
 
@@ -165,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391700.jpg" />
 </div>
 
 
@@ -191,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391521.jpg" />
 </div>
 
 
@@ -217,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_391416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_391416.jpg" />
 </div>
 
 
@@ -243,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390079.jpg" />
 </div>
 
 
@@ -269,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390054.jpg" />
 </div>
 
 
@@ -295,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390039.jpg" />
 </div>
 
 
@@ -321,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389384.jpg" />
 </div>
 
 
@@ -347,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389268.jpg" />
 </div>
 
 
@@ -373,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389257.jpg" />
 </div>
 
 
@@ -399,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_389160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_389160.jpg" />
 </div>
 
 
@@ -429,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_388197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_388197.jpg" />
 </div>
 
 
@@ -455,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_388062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_388062.jpg" />
 </div>
 
 
@@ -481,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387967.jpg" />
 </div>
 
 
@@ -507,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387804.jpg" />
 </div>
 
 
@@ -533,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387648.jpg" />
 </div>
 
 
@@ -559,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_386892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_386892.jpg" />
 </div>
 
 
@@ -585,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386496.jpg" />
 </div>
 
 
@@ -612,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_384654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_384654.jpg" />
 </div>
 
 
@@ -638,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_382442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_382442.jpg" />
 </div>
 
 
@@ -664,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381462.jpg" />
 </div>
 
 
@@ -675,6 +594,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C2057287934299F04E11AC84EFB39F72B6D441C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575006   (381352) от 07.09.2022
+
+Зов / The Calling (2000) DVD9 [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Счастливая в браке Кристи Сент-Клер однажды замечает, что у ее сына Дилана проявляются сверхъестественные способности. Но она также видит и его чрезмерную жестокость. Не догадываясь об истинном положении вещей, Кристи безуспешно пытается найти путь к сердцу сына. Она не знает, что оказалась на пути зловещих замыслов тысячелетней давности!Производство: Великобритания, Германия / Constantin Film, Fanes FilmЖанр: ужасы, триллерРежиссер: Ричард ЦезарАктеры: Лора Харрис, Ричард Линтерн, Френсис Маджи, Алекс Роу, Элис Криге, Джон Стэндинг, Питер Уоддингтон, Ник Бримбл, Рэйчел Шелли, Камилла ПауэрПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, английскийСубтитры: ИспанскиеПродолжительность: 01:28:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:260CBA1BD91F75A1213120F732347C4FE898A524
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574975   (381295) от 07.09.2022
+
+Почтальон / The Paperboy (1994) DVD9 [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381295.jpg" />
+</div>
+
+
+###  Подробнее
+
+12-летний Джонни не прощает обид. Никому. Даже собственному отцу. Что уж говорить о соседке Мелиссе, которая его оскорбила, хотя у Джонни были, как ему кажется, самые добрые намерения...Производство: Канада / Allegro Films, Blue Rider Pictures, Image OrganizationЖанр: ужасы, триллерРежиссер: Дуглас ДжексонАктеры: Александра Пол, Марк Марут, Бриджид Тирни, Уильям Кэтт, Фрэнсис Бэй, Криста Эрриксон, Бэрри Флэтмэн, Керин Двайер, Дженни Кэмпбелл, Mathieu KermoyanПеревод: Авторский (Карцев), Одноголосый любительскийЯзык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: 01:29:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA15A2E76DE300B37D727E7A284B9D8D739E31AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573038   (380257) от 10.11.2012
+
+Вампиры / Vampires (1998) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_380257.jpg" />
+</div>
+
+
+###  Подробнее
+
+По заданию Ватикана Джек Кроу, потомственный охотник на вампиров, и его друг, и напарник Монтойя безжалостно расправляются с вурдалаками, но их главная цель — особо опасный вампир Валек, уроженец Праги, 1300-го года рождения. В охоте на вампира Джеку и Монтойе помогает молодой священник, вооруженный знаниями из древних трактатов о кровососах.
+
+ Валек ищет в Штатах древнее распятие, обладающее особой силой. Как известно, вампиры боятся солнечных лучей, убивающих их. Проведение магического обряда с распятием позволит Валеку не бояться солнечного света и сделает его всемогущим. Охотники за вампирами должны поспешить, пока Валек еще уязвим, пока его еще можно убить…Жанр: Ужасы, боевик, триллерРежиссер: Джон КарпентерАктеры: Джеймс Вудс, Дэниэл Болдуин, Шерил Ли, Томас Йен Гриффит, Максимилиан Шелл, Тим Гини, Марк Бун Джуниор, Грегори Сьерра, Кэри-Хироюки Тагава, Томас Розалес мл., Генри Кинги, Дэвид Роуден, Кларк Коулмэн, Марк Сивертсен, Джон Фурлонг, Анджелина Торрес, Джимми Ортега, Гилберт Розалес, Даниэль Бургио, Лаура Кордова, Трой Робинсон, Анита Харт, Джон Касино, Чад Стахелски, Стив Блэлок, Марджин Холден, Джулия МакФеррин, Лори Диллен, Джэйк Уолкер, Майкл Хаддлстон, Тодд Андерсон, Люче Рэйнс, Дэннис Э. Гарбер, Роберт Льюис Буш, Фрэнк Дарабонт, Мона Гарсия, Нева Лучеро, Хелен МореноПеревод: Дублированный, Профессиональный многоголосыйЯзык субтитров: Русский, английскийПродолжительность: 01:43:36
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

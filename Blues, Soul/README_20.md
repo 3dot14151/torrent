@@ -6,7 +6,7 @@ Jimmy Page - Les Genies du Rock - Freight Loader (1994) [MP3|320 кб/с]<Blues,
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584873.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Carvin Jones - Victory Is Mine (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584113.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Ike & Tina Turner - Les Genies du Rock - Live in Paris (1993) [MP3|320 кб/с]<
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584105.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ John Mayall - Les Genies du Rock - Chicago Line (1994) [MP3|320 кб/с]<Blues, 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584035.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Blues Trackers - Live (2003) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584031.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Gary Moore - Les Genies du Rock - Parisienne Walkways (1995) [MP3|320 кб/с]<B
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583975.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Lightnin' Hopkins - Lightnin's Boogie Live At The Rising Sun Celebrity Jazz Club
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583416.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Lew Jetton & 61 South - Rain (2016) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582473.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Blues Rock 2 (2016) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582391.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Hazmat Modine - Box of Breath (2019) [MP3|320 Kbps] <Blues, Jazz, Folk>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579273.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Elmore James - Les Genies Du Rock - Hand In Hand (1993) [MP3|320 кб/с]<Chicag
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577747.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Aynsley Dunbar - Les Genies du Rock - Willie The Pimp (1995) [MP3|320 кб/с]<B
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577621.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The Drifters - Les Genies du Rock - In Concert (1993) [MP3|320 кб/с]<Rhythm &
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577614.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Kelly Richey - Kelly Richey Live: 1996-2011 (2012) [MP3|320 кб/с]<Blues, Rock
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577602.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Curtis Mayfield - Les Genies du Rock - - Back To The World (1995) [MP3|320 кб/
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577598.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Fish Eyed Blues - It's Not You... It's Me (2022) [MP3|320 Kbps] <Electric Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573765.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Marc Cohn - Walking in Memphis (2019) [MP3|320 Kbps] <Soft-Rock, Soul>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572883.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Mungo Jerry - Somelight (2022) [MP3|320 Kbps] <Blues Rock, Classic Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571962.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Gene Chandler - Les Genies du Rock - Rainbow (1993) [MP3|320 кб/с]<Soul, Funk
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571873.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Gladys Knight & The Pips - Les Genies du Rock - Every Beat Of My Heart (1995) [M
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571794.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Jerry Butler - Les Genies du Rock - For Your Precious Love (1995) [MP3|320 кб/
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571785.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Lil' Cliff & the Cliffhangers - The Lovin' Kind (2011) [MP3|320 кб/с]<Blues /
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569382.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ VA - Crucial Acoustic Blues (2007) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569337.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Marvin Gaye - Les Genies du Rock - Live (1993) [MP3|320 кб/с]<Soul,Funk,R&B>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568231.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ J.J. Cale - Дискография (26 альбомов)(1967-2011)[MP3|320 kbps
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568191.jpg" />
 </div>
 
 
@@ -749,7 +749,7 @@ Harvey Mandel - Cristo Redentor (1968) Remastered 2003, Raven Records [MP3|320 K
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567295.jpg" />
 </div>
 
 

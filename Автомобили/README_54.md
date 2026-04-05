@@ -6,7 +6,7 @@
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342152.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342151.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342017.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341839.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341098.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ BMW Progman (SSS) v32 [Ru]
 >>Автомобильные программы и навигаторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340842.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ DIS v52.0 [Ru]
 >>Автомобильные программы и навигаторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340839.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339969.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339968.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339958.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339839.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339347.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338053.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335903.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335403.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332474.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331316.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330722.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330656.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330274.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326501.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325830.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325548.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325216.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324911.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324753.jpg" />
 </div>
 
 

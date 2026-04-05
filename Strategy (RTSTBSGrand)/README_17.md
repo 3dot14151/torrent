@@ -1,3 +1,55 @@
+###  Публикация: 468071   (82363) от 15.03.2012
+
+Rise of Nations: Rise of Legends [Ru] (RePack) 2006 | Naitro
+
+>>След.
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стратегия в реальном времени Rise of Nations: Rise of Legends разработана компанией Big Huge Games, хорошо известной вам своими играми Civilization II, Colonization, Alpha Centauri и Rise of Nations. Rise of Legends продолжает и развивает ключевые идеи, заложенные в серии Rise of Nations: границы территорий и их значимость, масштабные сражения и инновационный подход к строительству городов. Игрок, получив во владение небольшое селение, сможет взрастить на его основе могущественную цивилизацию и ввергнуть ее в крупномасштабную войну с участием огромных армий и героев, наделенных специальными способностями. Rise of Legends, помимо всего прочего, содержит режим Conquer the World, ставший чрезвычайно популярным среди пользователей еще в предыдущей игре серии – оригинальной Rise of Nations. Новая кампания этого режима познакомит игроков с игровой вселенной Rise of Legends, позволив всем желающим стать свидетелями захватывающей истории, разворачивающейся в живом трехмерном мире игры, где рождаются, враждуют и гибнут целые цивилизации.(   Читать дальше...   )Тип издания: RePackЖанр: Strategy (Real-time) / IsometricЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466908   (82160) от 14.03.2012
+
+Galactic Civilizations 2 Ultimate Edition / Космическая Федерация 2: Звезды страха [En] (L) 2009
+
+>>След.
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда цивилизация только пришла на Землю, люди уже мечтали добраться до звёзд. Долгое время их целью была Альфа Центавра. Прогресс позволил людям использовать для стратегических игр всю Галактику. Теперь человечеству нужны новые звёзды: гигантские космостанции размером с Луну, которые могут одним выстрелом уничтожать планету. Создайте цивилизацию своей мечты: выдумывайте собственный дизайн кораблей, изобретайте собственные технологии, выбирайте собственный политический строй.Тип издания: ЛицензияЖанр: Пошаговая стратегияЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 467983   (82157) от 14.03.2012
 
 Command & Conquer: Red Alert 3 Uprising [Ru] (Rip) 2009 | Fenixx
@@ -6,7 +58,7 @@ Command & Conquer: Red Alert 3 Uprising [Ru] (Rip) 2009 | Fenixx
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82157.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Empire Earth 3 [Ru] (RePack/1.1) 2007 | MAJ3R
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76215.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Gord (2023) [Ru/Multi] (1.5.0/dlc) License GOG [Deluxe Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62725.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ The Lord of the Rings: War of the Ring / Властелин колец: Войн
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62490.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Victoria II (2) (2010) [Ru/Multi] (4904558/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61540.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Revival: Recolonization (2023) [Ru/Multi] (1.0.415) Repack FitGirl [Deluxe Editi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59239.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Heroes of Might and Magic VII / Меч и Магия Герои VII (2015) [Ru/M
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58605.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Medieval II (2): Total War (2006) [Ru/Multi] (1.52/dlc) Scene PROPHET
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58083.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Stronghold (2023) [Ru/Multi] (1.3/dlc) Scene Rune [Definitive Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57996.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Expansion - Europa Universalis IV: Domination (2023) [Multi] (1.37.0/dlc) Scene 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57103.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Warcraft II: Battle.net Edition / Военное ремесло 2: Боевое 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56096.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Warcraft 3: Expansion Set / Военное Ремесло 3: Расширенн�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56089.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ StarCraft: Remastered (2017) [Ru/En] (1.23.9.10756) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56085.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55797.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ WARNO (2024) [Ru/Multi] (1.0/dlc) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55539.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55481.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Perimeter / Периметр (2024) [Ru/En] (3.1.3) Scene Tenoke [Legate Edition
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55169.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ StarCraft: Remastered (2017) [Ru/Multi] (1.23.9.10756/dlc) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55061.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ StarCraft II: Антология (2010-2015) [Ru/En] (3.0.5.39117/dlc) Repack Fi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54855.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Medieval Kingdom Wars Story (2023) [Ru/Milti] (1.0) Scene Tenoke
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54475.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Perimeter / Периметр (2024) [Ru/En] (3.1.3) Repack FitGirl [Legate Editi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54329.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Medieval Kingdom Wars (2018) [Ru/Multi] (1.20) License PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54322.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Armored Brigade (2018) [En] (1.068b/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54013.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Company of Heroes 3 (2023) [En] (1.4.2.21612/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53918.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Company of Heroes 3 (2023) [En] (1.4.2.21612/dlc) Repack dixen18
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77E50A26DC4E0DDE07DFCE13617FE5B0BE76EC2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676262   (53904) от 09.06.2024
-
-Stronghold (2023) [Ru/En] (1.2/dlc) Repack dixen18 [Definitive Edition]
-
->>След.
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53904.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stronghold: Definitive Edition оживляет средневековую Англию в стратегической и захватывающей игре. В этой классической стратегии в реальном времени геймерам предстоит восстановить разрушенное королевство, объединить разрозненные силы и сразиться с коварными злодеями - Крысой, Свиньей, Змеей и Волком. Сюжет разворачивается на истерзанной войной границе, где король (   Читать дальше...   )Тип издания: RepackРазработчик: FireFly StudiosЖанр: Симуляторы, СтратегииЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E4F423878A44E54C27235D59322952CE4F2AB35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718243   (52748) от 20.06.2024
-
-Heroes of Might and Magic VII / Меч и Магия Герои VII (2015) [Ru/Multi] (2.2.1-40632/dlc) Repack dixen18 [Deluxe Edition]
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52748.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Might & Magic Heroes VII были добавлены такие вещи, как вид от третьего лица и красивый мир вокруг нашего мага; жанр игры немного поменялся, став одновременно RPG и ролевой игрой от третьего лица. Вся серия потерпела значительное количество изменений, поэтому следует уделять внимание каждой детали в этой части. Эта серия пошаговых стратегий в одно время стала (   Читать дальше...   )Тип издания: RepackРазработчик: Limbic EntertainmentЖанр: Strategy (Turn-based), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30A13C8DC1156477BA38818EAE1A385C1BD4A501
 ```
 
 https://mybot314.ru/tekegram_catalog/

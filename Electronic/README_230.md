@@ -1,3 +1,119 @@
+###  Публикация: 908623   (630225) от 16.06.2015
+
+VA - Chill Out Lounge in den Dunen Juist (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thomas Sopper - Wolken im Wind
+02. Artifact - Deep Inside
+03. Bobby Deep - Dream Away
+04. Bahia de Roses - Give Me Some Tango(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:54:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A99DE9AF6636E25F822E45485FF59170F181F5F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909044   (630114) от 16.06.2015
+
+VA - Cafe Lounge Beach Chillers 2015 Vol 1 Delicious Beach Sunset Lounge and Chill Out (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guenter Haas - Secret Diary [05:41]
+02. Florzinho - Oneness Meditation [08:06]
+03. Ethnic Colours - Beach Odyssee [03:44]
+04. Anthya - Empty Love [04:38](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:31:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF539441B9730E0AC9FF5D45D18AF80E763CF79F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294230   (629994) от 07.04.2019
+
+VA - Solee - 10 Years Parquet Recordings (2016) Parquet Recordings [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solee - Ten (Original Mix) (08:19)
+ 02. Solee - Ten (Petar Dundov Remix) (08:59)
+ 03. Solee - Ten (Luca Bacchetti Endless Remix) (08:25)
+ 04. Solee - Ten (Habischman Remix) (07:08)(   Читать дальше...   )Тип издания: WEBЖанр: Tech House, Deep House, Progressive House •Продолжительность: 00:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:947726DE40A4C0D5606CB403365500A073228FCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294375   (629985) от 07.04.2019
+
+Jayda G - Significant Changes (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629985.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Unifying The Center (Abstract) (03:13)
+2. Renewal (Hyla Mix) (04:58)
+3. Stanley’s Get Down (No Parking On The DF) (05:22)
+4. Leave Room 2 Breathe (Feat. Alexa Dash) (07:00)(   Читать дальше...   )Жанр: Electronic, Deep HouseПродолжительность: 00:47:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E93CD1FB8B545EA37E1A740F7DBAF716F05459E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294339   (629984) от 07.04.2019
 
 Shwamp - Inner Landscape (2019) Mindspring Music [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo, Dub, Ambient>
@@ -6,7 +122,7 @@ Shwamp - Inner Landscape (2019) Mindspring Music [FLAC|Lossless|WEB-DL|tracks] <
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629984.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VHS Dreams - Lost World (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowa
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629978.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Spectrasoul - The Mistress (2015) [MP3|320 кб/с]<Electronic, Drum & Bass, Hip
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629759.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Summer Swagging Vol.3 (Ibiza Electronic Tunes) (2017) [MP3|320 Kbps] <House
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629657.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Stylish Sofa Vol.11: Chill Out Masters (2017) [MP3|320 Kbps] <Downtempo, Ch
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629656.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Paris Fashion Beats Vol.1 (Finest Electronic Style Beats Collection) (2017)
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629654.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Powerful Mantra Meditation & Yoga: 111 The Best Tracks For Deep Concentrati
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629367.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Jens Buchert - Gravity (2017) [MP3|320 Kbps] <Ambient, Chillout, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629366.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ NeoSpace - Flying to the Stars (2022) [MP3|320 Kbps] <Spacesynth, Synthwave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629248.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Dance Therapy, Vol. 1 (These Bangers Push You To The Limit) (2017) [MP3|320
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628902.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Best Of Vocal Trance 2016 Vol. 2 (2016) [MP3|320 Kbps] <Trance, Uplifting T
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628623.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Flava D - Fabriclive 88 (2016) [FLAC|Lossless|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628614.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - Mollono.Bass Remix Collection 3 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628608.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - Project STS-31 - Spiralgalaxie (Hubble Telescope Series Vol. III) (2016) So
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628489.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ VA - Caribbean Beach Lounge (Tropical Chill Out Tunes for Perfect Easy Listening
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628458.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Chris Komus - Wheezing Corporeal Shell (2018) Shanti Planti [FLAC|Lossless|WEB-D
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628375.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628371.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Martins Garden - Renaissance: A Dub Opera (2018) Merkaba Music [FLAC|Lossless|WE
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628362.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ VA - I Love Spa Chill Out (Sunset Ibiza Meditation Music) (2015) [MP3|320 кб/�
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628351.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ VA - Eargasm Chill Out Vol 3 - 4 (An Obsession Of Erotic Lounge) (2015) [MP3|320
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628337.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - The Very Best Of Chill Out Vol 1 (2015) [MP3|320 кб/с]<Downtempo, Chillo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628336.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ VA - Yoga Centre, Vol. 1 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628220.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ VA - Yoga Centre, Vol. 1 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FCD26B78DC488FA7B4F0176C1FDD5322A07C092
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229395   (628216) от 05.06.2018
-
-VA - Lounge Music for Cooking (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Electrokingdom - Big Time (VB Acoustic mix) [00:04:40]
-02. Zoe Bellucci - Barcelona [00:05:20]
-03. Bob Artwood - The Sky [00:04:26]
-04. Evan - Rise [00:04:55](   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:19:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EBF05E89DE29D5B44AA60A65C5D0984F60DA1AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035390   (628175) от 16.07.2016
-
-VA - Solomun Pres: Selected Remixes (2009-2015) - 2016 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Broken Bells - Holding On For Life (Solomun remix)
-02 Noir & Haze - Around (Solomun Vox mix)
-03 Ron Carroll & Superfunk - Lucky Star (Solomun remix)
-04 Tiefschwarz - Corporate Butcher (feat Mama - Solomun remix)(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 02:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B492085B2AA10982472F738E9EEA2E51253B4945
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294438   (628109) от 08.04.2019
-
-Toyah - Desire (серия "Другие восьмидесятые") (1987) Reissue, Remastered, 2015, Vertical Species [MP3|320 Kbps] <Avant-Pop, New Wave, Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Echo Beach (Martha and the Muffins cover)
-02. Moonlight Dancing
-03. Revive the World
-04. The View(   Читать дальше...   )Жанр: Avant-Pop, New Wave, SynthpopПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52B3309EE54EC663137B11B56B9302A5ED908198
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599348   (628105) от 05.07.2014
-
-VA - Chill Out Essentials Vol 1-15 (2012-2014) [Обновляемая] [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628105.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Vittorio Rioss - Operating Space
-002. Sop-Gradius - Children & War
-003. Drumatrixx - Chill Funk Theory
-004. Juan Sinmiedo - Jean Genet (Instrumental)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 33:27:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A7F8BE03CBF0C0A2C23AD5B24B8FB6C104476E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

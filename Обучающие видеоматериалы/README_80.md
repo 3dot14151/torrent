@@ -1,3 +1,32 @@
+###  Публикация: 1497188   (865936) от 21.09.2021
+
+PythonYoga | Python/Django + React QR Digital Menu Builder (2021) WEB-DL [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сделано для ресторанов, кафе, пабов и отелей. Ваши клиенты могут делать заказы со своего стола или со своего дивана дома.
+Почему QR-код для меню?
+COVID-19
+Экономьте на расходах на печать(   Читать дальше...   )Производство: PythonYogaЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 10:49:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D875D744B9C784F30FB53F60F9D692CD6B79751
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1107075   (865813) от 23.02.2017
 
 Академия пасты Barilla | 12 рецептов приготовления пасты (2012) DVD5
@@ -6,7 +35,7 @@
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865813.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865472.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ CGMA, Dmitrij Leppee | Character Facial Sculpting Week 7-8 (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864582.jpg" />
 </div>
 
 
@@ -87,7 +116,7 @@ CGMA, Dmitrij Leppee | Character Facial Sculpting Week 5-6 (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864580.jpg" />
 </div>
 
 
@@ -113,7 +142,7 @@ CGMA, Dmitrij Leppee | Character Facial Sculpting Week 3-4 (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864570.jpg" />
 </div>
 
 
@@ -139,7 +168,7 @@ Lynda.com | Photoshop CC Один-на-Один. Мастер (2013) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864476.jpg" />
 </div>
 
 
@@ -167,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864460.jpg" />
 </div>
 
 
@@ -196,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864459.jpg" />
 </div>
 
 
@@ -225,7 +254,7 @@ Liveclasses, Антон Мартынов | Выбор объектива 2021 (2
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864458.jpg" />
 </div>
 
 
@@ -251,7 +280,7 @@ kalachevaschool, Татьяна Быковская | История искусс
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864457.jpg" />
 </div>
 
 
@@ -277,7 +306,7 @@ Inflexio, Кирилл Попадюк | Бухгалтерский учёт по
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864452.jpg" />
 </div>
 
 
@@ -306,7 +335,7 @@ CGMA, Dmitrij Leppee | Character Facial Sculpting Week 9-10 (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864449.jpg" />
 </div>
 
 
@@ -332,7 +361,7 @@ CGMA, Dmitrij Leppee | Character Facial Sculpting Week 1-2 (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864447.jpg" />
 </div>
 
 
@@ -358,7 +387,7 @@ Pluralsight | Учебный курсы Pluralsight (2013-2021) PCRec [EN / EN S
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864445.jpg" />
 </div>
 
 
@@ -386,7 +415,7 @@ Udemy, Илья Фофанов | Программирование на C#: от 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864281.jpg" />
 </div>
 
 
@@ -413,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863716.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ kalachevaschool, Калачева Вероника | Ла-Ла Курс (2017) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862749.jpg" />
 </div>
 
 
@@ -466,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862628.jpg" />
 </div>
 
 
@@ -495,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862514.jpg" />
 </div>
 
 
@@ -523,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862424.jpg" />
 </div>
 
 
@@ -549,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862414.jpg" />
 </div>
 
 
@@ -578,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862296.jpg" />
 </div>
 
 
@@ -607,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862192.jpg" />
 </div>
 
 
@@ -633,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862178.jpg" />
 </div>
 
 
@@ -660,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862060.jpg" />
 </div>
 
 
@@ -674,32 +703,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49AE09E98DD9E56FC1CEF189893D3C1FC53D5943
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998621   (861842) от 23.03.2016
-
-Profileschool | DaVinci Resolve 11 Lite. Базовый уровень (2015) PCRec [H.264]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861842.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несмотря на то, что обучение программе DaVinci Resolve ведется с нуля, курс подойдет далеко не всем учащимся школы, работающим над самообразованием и расширением областей своих профессиональных компетенций. Дело в том, что, являясь специализированным софтом для цветокоррекции, DaVinci имеет очень высокий входной порог по системным требованиям к железу и адекватно (   Читать дальше...   )Жанр: Видеомонтаж, цветокоррекцияПродолжительность: 13:04:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8007A04C6074C0CABBCBAE1298E08D63C448AA1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

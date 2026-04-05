@@ -1,3 +1,107 @@
+###  Публикация: 1118591   (810937) от 26.03.2017
+
+12 раундов 3 / 12 Rounds 3: Lockdown (2015) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полицейский, который вернулся на службу оправившись от огнестрельного ранения, попадаёт опять в переплёт. Он обнаруживает улики незаконной деятельности своего бывшего партнера. Коррумпированные копы не остановятся ни перед чем, чтобы заполучить доказательства.Производство: США, WWE StudiosЖанр: Боевик, Триллер, КриминалРежиссер: Стивен РейнольдсАктеры: Джонатан Гуд, Роджер Р. Кросс, Дэниэл Кадмор, Локлин Манро, Тай Олссон, Сара Смит, Ребекка Маршалл, Кирби МорроуПеревод: Многоголосый закадровый, профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:30:12Реклама: Присутствуют аудио и видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D12EDEF5A0B2E5F177A9C5F536AB67B29F0E8CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118687   (810749) от 26.03.2017
+
+Из дома на Уиллоу-Стрит / From a House on Willow Street (2016) WEB-DLRip [H.264] [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодую женщину похищают некие злоумышленники, которые в скором времени осознают, что сами находятся в опасности, а их заложница хранит очень тёмную тайну.Производство: ЮАР, Darkside, the, Fat Cigar ProductionsЖанр: УжасыРежиссер: Аластер ОррАктеры: Карлин Берчелл, Густав Герденер, Зино Вентура, Шарни Винсон, Стивен Джон Уорд...Перевод: Любительский одноголосый закадровый - BadBajoСубтитры: АнглийскиеПродолжительность: 01:26:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FA6D79406EA5CC1E8D3CEFDA00E3594DF972612
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118564   (810654) от 26.03.2017
+
+В диких условиях / Into the Wild (2007) HDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810654.jpg" />
+</div>
+
+
+###  Подробнее
+
+После окончания колледжа Эмори один из его ведущих студентов и атлетов Кристофер МакКэндлесс оставляет все свое имущество, отдает накопленные за время учебы 24 тыс. долларов в благотворительный фонд, и отправляется автостопом на Аляску, чтобы окунуться в дикую природу. По дороге Кристофер знакомится с разными людьми, так или иначе влияющими на его жизнь.Производство: СШАЖанр: Приключения, биография, драма, экранизацияРежиссер: Шон ПеннАктеры: Эмиль Хирш, Марша Гей Харден, Уильям Хёрт, Джена Мэлоун, Брайан Х. Дьеркер, Кэтрин Кинер, Винс Вон, Кристен Стюарт, Хэл Холбрук, Джеймс О`Нейлл ...Перевод: Профессиональный двухголосый (НТВ+)Субтитры: Русские, английскиеПродолжительность: 02:28:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:510825607275F9597B9FB423F59665E5B90689CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118864   (810645) от 26.03.2017
+
+Джеки / Jackie (2016) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810645.jpg" />
+</div>
+
+
+###  Подробнее
+
+О Жаклин Кеннеди - первой леди Соединенных Штатов в начале 60-х, самой популярной женщине своего времени, иконе стиля - написаны десятки книг и снято немало фильмов, но огромный интерес к ее жизни с годами не угасает. В этой ленте авторы воспроизвели один из трагических моментов в американской истории - убийство президента Кеннеди в Далласе - и последовавшие за ним (   Читать дальше...   )Производство: Чили, Франция, США, Гонконг, Bliss Media, FABULA, Jackie Productions (II)Жанр: Биография, ДрамаРежиссер: Пабло ЛарраинАктеры: Натали Портман, Питер Сарсгаард, Грета Гервиг, Билли Крудап, Джон Хёрт, Ричард Э. Грант, Каспар Филлипсон, Бет Грант, Джон Кэрролл Линч, Макс КазеллаПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:40:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49DC78332F4B2C05FA321E779102D35014F4419D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 883726   (810617) от 01.04.2015
 
 Люди в чёрном 3 / Men in Black 3 (2012) BDRip [H.264] [AVO]
@@ -6,7 +110,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810617.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810058.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809984.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809924.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809922.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809732.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809723.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809722.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809717.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809621.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809617.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809616.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809586.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809548.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809540.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809532.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809525.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809411.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809387.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809365.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809360.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809349.jpg" />
 </div>
 
 
@@ -566,112 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76855235F327AF1D2332738977FC4A49943D4C4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009464   (809206) от 21.04.2016
-
-Тронутые / Внутренняя дорога / The Road Within (2014) HDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Винсент, Мари и Алекс — сумасшедшая троица… В прямом смысле. У всех троих по куче тараканов в голове и так периодически сносит крышу, что их богатенькие родители не долго думая определили своих детишек в психушку, откуда они и дали дёру.
-На пути к океану, куда они решили отправиться, происходит множество как забавных так и драматических событий. Путешествие, где (   Читать дальше...   )Производство: СШАЖанр: Драма, комедияРежиссер: Грен УэллсАктеры: Зои Кравиц, Роберт Патрик, Дев Патель, Роберт Шиэн, Кира Седжвик, Мэтт Риди, Али Хиллис, Купер Рот, Эрик Мэзени, Росс ГаллоПеревод: Дублированный (iTunes)Субтитры: Вшитые, отключаемыеЯзык субтитров: АнглийскийПродолжительность: 01:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5580D35778B27FABE23B57183AB6EF8759A0B56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 657432   (809200) от 18.05.2013
-
-Генеральская дочь / The General's Daughter (1999) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Убийство всегда чудовищно. Особенно если убита молодая и красивая женщина. Тем более, если эта женщина — офицер вооруженных сил США и дочь прославленного генерала. В американской армии не любят «выносить сор из избы». Все внутренние проблемы решаются за хорошо закрытыми дверями. Поэтому расследование этого загадочного убийства поручили военному следователю Полу Бреннеру. (   Читать дальше...   )Производство: Германия, СШАЖанр: Триллер, Драма, Криминал, ДетективРежиссер: Саймон УэстАктеры: Джон Траволта, Мэдлин Стоу, Джеймс Кромуэлл, Тимоти Хаттон, Лесли Стефэнсон, Дэниэл Фон БаргенПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22C82CB0E85F8D10FDFC1F1780E9936D6CD3EA7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 657400   (809193) от 18.05.2013
-
-Легенды осени / Legends Of The Fall (1994) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809193.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Некоторые люди очень ясно слышат свой внутренний голос, и живут так, как он им подсказывает. Такие люди сходят с ума. Или становятся легендами». Так начинается история семьи Ладлоу — стремительный и романтический рассказ о трех братьях, их отце и молодой и неотразимой женщине, которая роковым образом изменяет жизнь каждого из них.
-С детства трое братьев неразлучны, (   Читать дальше...   )Производство: СШАЖанр: Драма, Мелодрама, Вестерн, ВоенныйРежиссер: Эдвард ЦвикАктеры: Энтони Хопкинс, Брэд Питт, Джулия Ормонд, Эйдан Куинн, Генри Томас, Карина Ломбард, Гордон Тутусис, Кристина Пиклз, Пол Десмонд, Танту Кардинал, Роберт Уизден, Джон Новак, Кеннет Уэлш, Билл Дау, Сэм Саркар, Найджел Беннетт, Кигэн Макинтош, Эрик Джонсон, Рэндолл Славин, Даг Хьюз, Секван Огер, Дэвид КэйПеревод: Дублированный (лицензия)Продолжительность: 02:12:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55BFB4685762F5C99A3140B0E5D8AFA8CCDB83F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 317366   (809169) от 02.04.2011
-
-Зелёный Шершень / The Green Hornet (2011) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809169.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сын медиа-магната «прожигает» свою жизнь в вечных пьянках и бесчисленных случайных связях. Но после неожиданной смерти отца он, наконец, осознает бесцельность своего существования и решает все изменить. Вместе с другом они становятся супергероями, которые борются с преступностью ее же методами, совершенно не считаясь с законом…Жанр: боевик, триллер, криминалРежиссер: Мишель ГондриАктеры: Сет Роген, Кристоф Вальц, Кэмерон Диаз, Том Уилкинсон, Джей Чоу, Дэвид Харбор, Эдвард Джеймс Олмос, Джэми Харрис, Чад Коулмэн, Эдвард ФерлонгПеревод: ДублированныйПродолжительность: 01:58:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:732F9D914C659896E58415CE64305578ED47B2B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Kammerflimmer Kollektief - Remixed (2006) [FLAC|Lossless|tracks + .cue] <Future 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168270.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Acker Bilk - Great Moments With... (1998) Timeless Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168243.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Jeremy Pelt - The Art of Intimacy, Vol. 2: His Muse (2023) HighNote Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168223.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Chet Baker - Born to Be Blue: The Music Of His Life (1953 - 1962) 2017, American
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168183.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Jeff Lorber Fusion - The Drop (2023) Shanachie [FLAC|Lossless|tracks + .cue] <Sm
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168160.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Nicholas Payton - The Couch Sessions (2022) Smoke Sessions Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168150.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Erroll Garner - 1944, Vol.3 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168012.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Berk & The Virtual Band - Jazz Chill Vol. 6 (2020) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167901.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ The Gil Evans Orchestra - Plays The Music Of Jimi Hendrix (1988) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167809.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Ellington Trio - Things Ain't What They Used To Be (2022) JazzSick Records [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167675.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Monica Zetterlund And The Thad Jones & Mel Lewis Orchestra - It Only Happens Eve
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167579.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Jim Snidero - Far Far Away (2023) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167363.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Elvin Jones - Revival: Live At Pookie's Pub (1967) 2022, Blue Note [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167345.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Bill O'Connell - A Change Is Gonna Come (2022) Savant [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167325.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Zoe Rahman - The Cynic (2000) Manushi Records [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167314.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Jeff Lorber - The Definitive Collection (2000) Arista [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167300.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Cool Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167205.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Kammerflimmer Kollektief - Schemen (2023) [FLAC|Lossless|Web-DL|tracks] <Experim
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167193.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Laid-Back Groovy Romantic Smooth Jazz Tunes (2023) [FLAC|Lossless|WEB-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167128.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Harry James - Compact Jazz (1987) Verve Records [FLAC|Lossless|tracks + .cue] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167058.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Charlie Parker - The Complete Savoy & Dial Master Takes (1940-e) 3CD, 2002, Savo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166979.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Rod Levitt - The Dynamic Sound Patterns of The Rod Levitt Orchestra (1963) 2003,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166902.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Serge Chaloff - The Complete Serge Chaloff Sessions (1946 - 1956) 4CD, 1993, Mos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166895.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Ely Bruna & Papik - In Sweet Harmony (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166853.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Marlon Jordan - The Undaunted (1993) Columbia [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166775.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Bix Beiderbecke - 1924 - 1927 (1994) Classics [FLAC|Lossless|tracks + .cue] <Ear
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166767.jpg" />
 </div>
 
 

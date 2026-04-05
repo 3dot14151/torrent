@@ -1,3 +1,56 @@
+###  Публикация: 1574370   (383548) от 06.09.2022
+
+The Gnomon Workshop, Maxime Deleris | Visual FX for Games (2013) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383548.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этом DVD, Maxime разбирает каждый визуальный эффект, от текстур до сложных эффектов и погружается в самую суть игрового уровня при помощи UDK для Unreal Engine 3. Он показывает, как использовать Adobe Photoshop, AfterEffects, FumeFX и 3ds Max, для создания текстур и демонстрирует действенные методы для улучшения и оптимизации многочисленных реалистичных эффектов (   Читать дальше...   )Производство: The Gnomon WorkshopЖанр: ВидеокурсЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:14:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:868B00DE0C3C4C5F418C06F84714FECD728E8FB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572858   (383155) от 06.09.2022
+
+CGTarian, Вадим Беседин | Риггинг Мастер (MAYA) (2020) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс дистанционного обучения Риггинг Мастер подготовлен таким образом, чтобы провести вас по всем важнейшим аспектам риггинга, детально рассматривая и отрабатывая на практике весь представленный материал.
+Риггинг - это не просто создание скелета персонажа, это также создание различных систем управления персонажами, техникой, объектами, создание вспомогательных инструментов (   Читать дальше...   )Производство: CGTarianЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 146:14:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E149585DF1F4C8207632D33E7D44702DE01DBA84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1555404   (383147) от 06.09.2022
 
 Udemy, Nikolay Naydenov | Demon Huntress in Blender Course (2022) PCRec [EN / EN Sub]
@@ -6,7 +59,7 @@ Udemy, Nikolay Naydenov | Demon Huntress in Blender Course (2022) PCRec [EN / EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383147.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382883.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Chris Thomas | Particle Flow Fundamentals 4: Tests, Forces & Collisions (2004) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381422.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ Chris Thomas | Particle Flow Fundamentals 3: Operators 2 (2004) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381418.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ Chris Thomas | Particle Flow Fundamentals 5: Practical Examples (2004) PCRec [En
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381325.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ Chris Thomas | Particle Flow Fundamentals 2: Operators 1 (2004) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381267.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ Chris Thomas | Particle Flow Fundamentals 1: Principles and Workflow (2004) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381023.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ Wayne Hollingsworth | Введение в Maya Fluid Effects. Часть 2 /  In
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380896.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380603.jpg" />
 </div>
 
 
@@ -241,7 +294,7 @@ Hristo Velev | Thinking Particles. Часть 2 - Промежуточные к�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378589.jpg" />
 </div>
 
 
@@ -267,7 +320,7 @@ Skillshare, 3D Tudor | Unreal Engine 5 Beginners Guide to Building an Environmen
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378586.jpg" />
 </div>
 
 
@@ -294,7 +347,7 @@ Joshua Kinney | Map Baking Techniques for Games in 3ds Max (2014) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378414.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ Emiel Sleegers | Mechanical Assets in 3ds Max Volume 3 (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378412.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ Emiel Sleegers | Mechanical Assets in 3ds Max Volume 2 (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378408.jpg" />
 </div>
 
 
@@ -373,7 +426,7 @@ Emiel Sleegers | Mechanical Assets in 3ds Max Volume 1 (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378246.jpg" />
 </div>
 
 
@@ -399,7 +452,7 @@ Hristo Velev | Thinking Particles. Часть 1 - Всестороннее вв�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378239.jpg" />
 </div>
 
 
@@ -426,7 +479,7 @@ Joshua Kinney | Automotive Modeling in 3ds Max (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378238.jpg" />
 </div>
 
 
@@ -452,7 +505,7 @@ Tim Bergholz | Mech Tutorial Complete Edition (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378016.jpg" />
 </div>
 
 
@@ -478,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377987.jpg" />
 </div>
 
 
@@ -504,7 +557,7 @@ Hai Phan | 3d Character Art for Games Volume 1-6 (2013) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375892.jpg" />
 </div>
 
 
@@ -530,7 +583,7 @@ Side FX, Moeen Sayed | VEX isn't scary (2020) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375035.jpg" />
 </div>
 
 
@@ -556,7 +609,7 @@ CGMA, Patrick Yeung | Character Creation for Games (2021) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374681.jpg" />
 </div>
 
 
@@ -582,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373981.jpg" />
 </div>
 
 
@@ -608,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373911.jpg" />
 </div>
 
 
@@ -619,63 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45A19635F8E731771E19F119F94AB481785701B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575844   (372315) от 11.09.2022
-
-Blender Market, Josh Gambrell, Ponte Ryuurui | The Blender Bros Hard Surface Game Asset Course 2.0 (2022) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372315.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наша проверенная и зарекомендовавшая себя система создания ассетов гарантированно подходит для любой твердотельной модели, независимо от ее сложности.
-Нам не терпится поделиться с вами этой формулой и навсегда изменить ваш рабочий процесс к лучшему!
-
-Наш рабочий процесс для создания игровых ассетов MAD-T: Моделирование, Автоматизация, Децимация, Триангуляция.Производство: Blender MarketЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 11:21:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56D0FCF794BB04D5DE83200EA23B775723988C7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575918   (372313) от 11.09.2022
-
-Udemy, Dmitrii Fokeev | Теория дизайна - для веб дизайнеров, фотографов и художников (2022) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Закройте все пробелы в знаниях теории цвета, типографики и композиции! Этот курс состоит из трёх больших, теоретических тем, которые обязаны иметь в своей копилке знаний, каждый профессиональный дизайнер, фотограф или художник. Здесь, вы найдёте подробную структурированную информацию о трёх темах: теории цвета, типографике и композиции!
-
-Цвет - управляет вниманием! (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 05:23:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E75918E7E9ABC7846EFB861B1EBA6AFA71CB939
 ```
 
 https://mybot314.ru/tekegram_catalog/

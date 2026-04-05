@@ -1,3 +1,30 @@
+###  Публикация: 1451421   (1028307) от 02.03.2021
+
+Michael Hampton | Analytical Figure Drawing 1 (2011) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028307.jpg" />
+</div>
+
+
+###  Подробнее
+
+В процессе того, как студенты будут развивать набор базовых навыков, в этом курсе будет сделан акцент на понимании и применении этих основ к человеческой фигуре. В этом курсе также подчеркиваются процессуально ориентированный подход и анализ формы фигуры, ее конструкции и перспективы.
+Этот курс подразумевает глубокое изучение фигуры и анатомии, а также не упускает (   Читать дальше...   )Производство: CGMA 2D AcademyЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 09:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BA078F916313DFB9379473EA9C273047E89EE7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451564   (1028288) от 02.03.2021
 
 Анна Эгида | Рисуем светом (2021) PCRec
@@ -6,7 +33,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028288.jpg" />
 </div>
 
 
@@ -35,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028264.jpg" />
 </div>
 
 
@@ -63,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028154.jpg" />
 </div>
 
 
@@ -92,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028148.jpg" />
 </div>
 
 
@@ -118,7 +145,7 @@ TargetHunter | Дизайн ВКонтакте (2021) HDTVRip
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028142.jpg" />
 </div>
 
 
@@ -147,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028124.jpg" />
 </div>
 
 
@@ -173,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028113.jpg" />
 </div>
 
 
@@ -200,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027849.jpg" />
 </div>
 
 
@@ -229,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027817.jpg" />
 </div>
 
 
@@ -255,7 +282,7 @@ Self-Learning, Виталий Трунин | Курс по T-SQL Путь про
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027811.jpg" />
 </div>
 
 
@@ -282,7 +309,7 @@ CG Boost, Martin Klekner | Мастер 3D окружения в Blender 2.9 / M
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027801.jpg" />
 </div>
 
 
@@ -310,7 +337,7 @@ Udemy, Rustam Kamalov | Python + Django: с нуля до коммерчески
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027800.jpg" />
 </div>
 
 
@@ -338,7 +365,7 @@ Skillbox, Александр Амзин и др. | Копирайтинг от �
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027790.jpg" />
 </div>
 
 
@@ -366,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027654.jpg" />
 </div>
 
 
@@ -392,7 +419,7 @@ Udemy, Antonio Papa | React и NestJS: Практическое Руководс
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027652.jpg" />
 </div>
 
 
@@ -418,7 +445,7 @@ Udemy, Maximilian Schwarzmüller | NextJS и React - Полное Руковод
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027641.jpg" />
 </div>
 
 
@@ -444,7 +471,7 @@ Tilda school | Научитесь создавать сайты, лендинг�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027616.jpg" />
 </div>
 
 
@@ -470,7 +497,7 @@ Udemy, YouAccel Training | Web Development Masterclass - Complete Certificate Co
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027516.jpg" />
 </div>
 
 
@@ -497,7 +524,7 @@ Gleb Alexandrov, Aidy Burrows | Space VFX Elements: Creating the Galaxy in Blend
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027499.jpg" />
 </div>
 
 
@@ -524,7 +551,7 @@ Nomad Coders | CSS Layout Мастер-класс / CSS Layout Masterclass (2021
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027497.jpg" />
 </div>
 
 
@@ -553,7 +580,7 @@ Gleb Alexandrov, Aidy Burrows | Space VFX Elements: Creating the Galaxy in Blend
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027482.jpg" />
 </div>
 
 
@@ -580,7 +607,7 @@ Udemy, Dmitri Nesteruk | Шаблоны проектирования в Go / Des
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027478.jpg" />
 </div>
 
 
@@ -607,7 +634,7 @@ Gleb Alexandrov, Aidy Burrows | Space VFX Elements: Creating the Galaxy in Blend
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027474.jpg" />
 </div>
 
 
@@ -634,7 +661,7 @@ Udemy, David Bombal | Wireshark: Packet Analysis and Ethical Hacking: Core Skill
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027468.jpg" />
 </div>
 
 
@@ -663,7 +690,7 @@ Academind Pro, Maximilian Schwarzmüller  | Python Django - Практическ
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027464.jpg" />
 </div>
 
 
@@ -675,33 +702,6 @@ Academind Pro, Maximilian Schwarzmüller  | Python Django - Практическ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A1E7F98D4D5482331F596C26A9BBCC616DAFDB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452708   (1027457) от 07.03.2021
-
-Lectoria, Артем Зернов | MODX: создание лендинга. Быстрое погружение (2021) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс поможет быстро погрузиться в практику создания сайтов на MODX Revolution на примере одностраничного сайта, который вы сможете в дальнейшем использовать в своих целях.
-Многие начинающие MODX-разработчики довольно быстро схватывают разницу между основными сущностями MODX: чанками, плагинами, шаблонами, сниппетами, дополнительными полями. MODX предоставляет огромную (   Читать дальше...   )Производство: LectoriaЖанр: Программирование, вёрсткаПродолжительность: 09:07:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55AD336CB7E7EC265AA14AC157B441586FB5FE8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

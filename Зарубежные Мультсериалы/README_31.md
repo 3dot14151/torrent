@@ -1,3 +1,55 @@
+###  Публикация: 1063230   (429995) от 18.10.2016
+
+LEGO Звездные войны: Истории дроидов / LEGO Star Wars: Droid Tales (2015) WEB-DL [H.264/1080p] (Сезон 1, серии 5 из 5)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главные герои — знакомые всем персонажи далекой-далекой Галактики. В центре сюжета серии — дроиды C-3PO и R2-D2. Находясь в эпицентре легендарных событий, они создали свою версию происходящего и решили поделиться ей с обитателями Вселенной. Дроиды были так увлечены своим рассказом, что не заметили, как таинственный злодей похитил корабль Адмирала Акбара…Производство: США / LucasfilmЖанр: Детский, Приключения, ФантастикаРежиссер: Майкл Хэгнер, Мартин СковПеревод: ДублированныйСубтитры: Английские (вшитые, отключаемые)Продолжительность: 5 серий x 00:23:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8096596E95F293B2AD14CACB7A0745BFBF1791AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063481   (429871) от 18.10.2016
+
+Монстры против Пришельцев / Monsters vs. Aliens (2013) WEB-DL [H.264/720p] (Сезон 1 , серии 52 из 52)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429871.jpg" />
+</div>
+
+
+###  Подробнее
+
+После последней вылазки Монстров, всё тихо и спокойно в зоне 50 с чём-то. До тех пор пока не прибыл пришелец по имени Ковертон. Он впечатляет президента США и обещает мирное сосуществование. Но Монстры, генерал Воякер и президент не догадываются, что Ковертон работает на злую инопланетную организацию, которая хочет захватить Землю.Производство: СШАЖанр: Детский, Приключения, Фантастика, СемейныйРежиссер: Мэтт Энгстром, Сунил Холл, Фред Осмонд, Джим Шуманн, Эдди ТригуеросПеревод: ДублированныйСубтитры: Английские (вшитые, отключаемые)Продолжительность: 00:22:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40CC0866C25606C1168E108A7E8D899053AF887D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063403   (429787) от 18.10.2016
 
 LEGO Звездные войны: Хроники Йоды / LEGO Star Wars: The Yoda Chronicles (2013) WEB-DL [H.264/720p] (Сезон 1 - 2, серии 7 из 7)
@@ -6,7 +58,7 @@ LEGO Звездные войны: Хроники Йоды / LEGO Star Wars: The 
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429787.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428099.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427072.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427008.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425328.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ Lego: Рыцари Нексо /  Lego: Nexo Knights (2016) WEBRip (сезон 2,
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420468.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419620.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418095.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417836.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416069.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415970.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415564.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415542.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415111.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413901.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413328.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413319.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413309.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412910.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412345.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411228.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410239.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409947.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409790.jpg" />
 </div>
 
 
@@ -626,59 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E07830BFBB3BCA0732651069C494153B3ACAD190
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 563399   (404750) от 21.10.2012
-
-Хаос на ферме (1 сезон, 13 серий из 13) / FarmKids (2007) [H.264] DVDRip
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пес — супергерой, бык - помешанный на спорте, поросенок — мастер на все руки, козел — шеф-повар, конь — техно-гений, корова - увлекающаяся последними новинками в мире моды и стиля, и утенок, который-то ли не умеет плавать, то ли летать… решают переехать из города в деревню.
-Но герои не учли одного обстоятельства — родившись и выросши в городе, они мало приспособлены (   Читать дальше...   )Жанр: мультфильм, семейныйРежиссер: Сорин Оанси / Sorin OanceaПеревод: Многоголосый закадровыйПродолжительность: 02:27:49 (13 х ~ 00:11:20)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4953831C2C5E482D1AB3C2B557A845ADCD525D8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562101   (402667) от 23.10.2012
-
-Робот Робик / ROB (2011) [H.264] WEB-DLRip
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультфильм расскажет нам о юных роботах, путешествующих по бескрайнему космосу. Юные путешественники всегда найдут себе интересное занятие и планету, где они могли бы осуществить свои планы. К примеру, найдя на просторах галактики бутылку с картой сокровищ, они направятся на планету пиратов, а стоит им загрустить на этой планете в дождливый день - они улетают на планету, где нет такого понятия как скука.Жанр: ДетскийРежиссер: Не известноПерсонажи: Робот Киби и др.Перевод: ДублированныйПродолжительность: 14 x ~00:11:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B84DA17E114A6098C58F16B5B0BAE19626757323
 ```
 
 https://mybot314.ru/tekegram_catalog/

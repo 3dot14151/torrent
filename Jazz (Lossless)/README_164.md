@@ -6,7 +6,7 @@ Jim Adkins - Soul Expression (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507130.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Sidney Bechet - 1923 - 1936 (1991) Classics [FLAC|Lossless|tracks + .cue] <Early
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507118.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Frank Foster - Well Water (1977) 2007, Piadrum Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506925.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Skip Wilkins - Solo: Recorded Live in Concert at Lafayette College (2007) Dreamb
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506924.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Steve Smith & Vital Information - Vitalive! (1991) /Capitol Records/ [FLAC|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506329.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Tony Reedus - Incognito (1991) /Enja/ [FLAC|tracks+.cue]<Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506327.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Kyrie Kristmanson & Quatuor Voce - Modern Ruin (2015) [FLAC|tracks|WEB-DL]<Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506326.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ The Horace Silver Quintet - Finger Poppin' (1959) 2003, Blue Note [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506319.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Melissa Tham - Falling In Love Again (2015) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506264.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Peter White - Smile (2014) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506068.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Eddie Higgins Quartet featuring Scott Hamilton - My Funny Valentine (2005) Venus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505966.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Shakti with John McLaughlin - 6 альбомов (1976 - 2001) [FLAC, APE, Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_505860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_505860.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Teddy Edwards Quartet - Good Gravy (1981) /2015, Solid Records/[FLAC|tracks+.cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505503.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Thomas Chapin Trio - Third Force (1991) /Knitting Factory/ [FLAC|tracks+.cue]<Av
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505502.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Sammy Price featuring Emmett Berry: Americans Swinging In Paris (1956) 2002, EMI
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505474.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Air Pocket (The Fowler Brothers) - Fly On (1975) /2015, Universal/[FLAC|tracks+.
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505451.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Art Porter - Pocket City (1992) /Polygram Records/ [FLAC|tracks+.cue]<Smooth, Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505438.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Miles Davis - At Newport 1955-1975: The Bootleg Series Vol. 4 (2015) 4CD /Sony M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505425.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Larry Coryell - 2 альбома (1984 & 2006) [FLAC / WavPack|Lossless]<Jazz, I
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504850.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Abraham Laboriel & Friends- Live in Switzerland (2004) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504744.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ VA - Kuschel Jazz vol. 7 & 8 (2010-2011) 2 x 2CD[FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504726.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Essiet Okon Essiet - Shona (2014) /Space Time Records/ [FLAC|tracks+.cue]<Crosso
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504620.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Donald Byrd - With Strings & Byrd Blows On Beacon Hill (1956/1959) /2013, Phoeni
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504619.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ Shorty Rogers & The Giants - You Shorty, Me Tarzan! (1956-1959) /2010, Giant Ste
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504613.jpg" />
 </div>
 
 
@@ -723,7 +723,7 @@ Terry Gibbs - The Exciting Terry Gibbs Big Band + Swing Is Here! (1960/1961) /20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504609.jpg" />
 </div>
 
 
@@ -752,7 +752,7 @@ Dinah Shore - 36 All-Time Greatest Hits (1940-e - 1960-e) 3CD, 1999, BMG [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504574.jpg" />
 </div>
 
 

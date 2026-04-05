@@ -6,7 +6,7 @@ Flip Flappers [2016, TV, 13] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942634.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Lance N' Masques / Копьё и маски [2015, TV, 12] HDTVRip Hi10p 720p ra
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941695.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Macross Delta | Макросс Дельта [2016, TV, 26 эп.] HDTVRip 720p Hi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934551.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Ookami Kodomo no Ame to Yuki / The Wolf Children Ame and Yuki / Волчьи д�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929640.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Tantei Kageki Milky Holmes TD / Детективная опера Румяшек
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928921.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Sword Art Online II / Мастера меча онлайн 2 [2014, TV, 24 + OVA
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928045.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Rikei ga Koi ni Ochita no de Shoumei Shite Mita. | Science Fell in Love, So I Tr
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918226.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Yuu Yuu Hakusho / Yu Yu Hakusho: Ghost Files / Отчет о буйстве ду
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917855.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Natsume Yuujinchou Go / Тетрадь дружбы Нацумэ [ТВ-5] [2016,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916994.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Robot Girls Z Plus / Девочки-роботы Зет [2015, ONA, 6] WEB-DLRip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916618.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Neppuu Kairiku Bushi Road [2013, TV-спешл] HDTV 720p Hi10bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915864.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Soukyuu no Fafner: Dead Aggressor - Exodus | Небесный Фафнир: Ис
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914684.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Kemeko Deluxe! | Кемеко Делюкс! [2008, TV, 12 из 12] BDRip 720p ra
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910897.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Time Travel Shoujo: Mari Waka to 8-nin no Kagakusha-tachi | Девушки, пу
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910176.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Hetalia: World Stars | Хеталия: Мировые звёзды [2021, Web, 1
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908213.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Darwin's Game | Игра Дарвина [2020, TV, 11 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904533.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Macross FB7: Ginga Rukon - Ore no Uta o Kike! / Макросс ФБ7: Блужд
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903142.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Fumetsu no Anata e | To Your Eternity | Для тебя, Бессмертный 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901755.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Uchi Tama?! Uchi no Tama Shirimasenka? | Uchitama?! Have You Seen My Tama? | Т�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901387.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Yatogame-chan Kansatsu Nikki Nisatsume | Заметки Ятогамэ [ТВ-2] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901344.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Eizouken ni wa Te o Dasu na! | Keep Your Hands Off Eizouken! | Руки проч
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901141.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Kuutei Dragons | Drifting Dragons | Небесные драконы [2020, ONA, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898122.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Natsunagu! | Нацунагу! [2020, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898007.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Nanatsu no Taizai: Kamigami no Gekirin | The Seven Deadly Sins: Wrath of the God
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896256.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Mugen no Juunin: Immortal | Клинок бессмертного (2019) [2019, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896248.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Tsukimonogatari: Yotsugi Doll / История одержимости: Кукл�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895766.jpg" />
 </div>
 
 

@@ -1,3 +1,81 @@
+###  Публикация: 1583650   (228848) от 15.10.2022
+
+MotoGP. Этап 18. Гран-при Австралии. Квалификация (15.10.2022) WEBRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228848.jpg" />
+</div>
+
+
+###  Подробнее
+
+15 октября 2022, суббота. 09:00 МСК. Этап 18, Остров Филиппа. Гран-при Австралии. КвалификацияЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:57:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A149267A36D4CBCDDBD426325AA9D7373011688C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454353   (228109) от 26.11.2021
+
+WRC. Чемпионат мира по ралли. Обзоры / World Rally Championship. Reviews (2021) IPTVRip [H.264/1080p] (этапы 1-12 из 12) [EN]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат мира по ралли FIA 2021 года - это сорок девятый сезон чемпионата мира по ралли, соревнования по автогонкам, признанного Международной автомобильной федерацией высшим классом международного ралли.Жанр: Спорт, автоспорт, раллиПеревод: отсутствуетЯзык озвучки: АнглийскийПродолжительность: ~00:52:00 каждый этап
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E4B41788BF01130FE9BEEE569DA62A36BB06D33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583916   (227892) от 16.10.2022
+
+MotoGP. Этап 18. Гран-при Австралии. Гонка (16.10.2022) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227892.jpg" />
+</div>
+
+
+###  Подробнее
+
+16 октября 2022, воскресенье. 09:00 МСК. Этап 18, Остров Филиппа. Гран-при Австралии. Гонка (27 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:23:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09EE866480E3D53F21384F4028039B0F6F564A45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1584139   (226302) от 17.10.2022
 
 RDS GP 21 - Шинная борьба (2022) WEB-DL [H.264/1080p] (серии 1-7 из 7)
@@ -6,7 +84,7 @@ RDS GP 21 - Шинная борьба (2022) WEB-DL [H.264/1080p] (серии 1-
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226302.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224307.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ MotoGP. Этап 09. Гран-при Великобритании. Квалиф�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223370.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ MotoGP. Этап 09. Гран-при Великобритании. Спринт 
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222250.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ MotoGP. Этап 09. Гран-при Великобритании. Гонка (0
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222138.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ MotoGP. Этап 19. Гран-при Малайзии. Квалификация 
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221578.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ MotoGP. Этап 19. Гран-при Малайзии. Гонка (23.10.2022) W
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219316.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216730.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ MotoGP. Этап 14. Гран-При Португалии. Гонка. (22.11.20
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216628.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213897.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213884.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213635.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ MotoGP. Этап 06. Гран-при Италии. Квалификация (10.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211825.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ MotoGP. Этап 06. Гран-при Италии. Спринт (10.06.2023) WEB
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211822.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ MotoGP. Этап 08. Гран-при Нидерландов. Квалифика�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210661.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ MotoGP. Этап 10. Гран-при Австрии. Квалификация (1
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205309.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ MotoGP. Этап 10. Гран-при Австрии. Спринт (19.08.2023) W
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205308.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ MotoGP. Этап 10. Гран-при Австрии. Гонка (20.08.2023) WEB
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205104.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ MotoGP. Этап 20 из 22. Гран-при Малайзии. Гонка (26.10
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202387.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ MotoGP. Этап 20 из 22. Гран-при Малайзии. Квалифик�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202013.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ MotoGP. Этап 20 из 22. Гран-при Малайзии. Спринт (25.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201997.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ MotoGP. Этап 11. Гран-при Каталонии. Квалификаци�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193109.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ MotoGP. Этап 11. Гран-при Каталонии. Спринт (02.09.202
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193095.jpg" />
 </div>
 
 
@@ -591,84 +669,6 @@ MotoGP. Этап 11. Гран-при Каталонии. Спринт (02.09.202
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11C11681ED19EF39C454C4BCD198F1D761193CAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657514   (192726) от 03.09.2023
-
-MotoGP. Этап 11. Гран-при Каталонии. Гонка (03.09.2023) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192726.jpg" />
-</div>
-
-
-###  Подробнее
-
-3 сентября 2023, воскресенье. 15:25 МСК. Этап 11 Барселона. Гран-при Каталонии. Гонка (24 круга)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:46:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93907274FDAF0820DDF4C5015A8A31191F1E0413
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588700   (191415) от 05.11.2022
-
-MotoGP. Этап 20. Гран-при Валенсии. Квалификация (05.11.2022) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191415.jpg" />
-</div>
-
-
-###  Подробнее
-
-5 ноября 2022, суббота. 16:10 МСК. Этап 20, Испания. Гран-при Валенсии. КвалификацияЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:58:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA38141A4B38908D73D1D33C328796CDB850E0FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658839   (191002) от 09.09.2023
-
-MotoGP. Этап 12. Гран-при Сан-Марино. Спринт (09.09.2023) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191002.jpg" />
-</div>
-
-
-###  Подробнее
-
-9 сентября 2023, суббота. 16:00 МСК. Этап 12 Мизано-Адриатико. Гран-при Сан-Марино. Спринт (13 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:775BDE0B62DBF86D6D0B7D9438D11FCAAD14F481
 ```
 
 https://mybot314.ru/tekegram_catalog/

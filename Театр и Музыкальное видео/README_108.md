@@ -6,7 +6,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278700.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278630.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Hymn: Sarah Brightman in Concert (2018) HDTVRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278582.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278470.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278171.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Thunder - Flawed to Perfection: the Video Collection 1990-1995 (2005) DVD9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277070.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277058.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276954.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276901.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276877.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Beyonce - I Am... World Tour (2010) HDTV
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275839.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Muse - Rock Am Ring 2010 (2010) [720p] HDTVRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275675.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ David Garrett - Rock Symphonies (Open Air Live) (2010) BDRip
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275668.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275429.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274655.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274590.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274475.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274471.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274435.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274334.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274297.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Alcatrazz - Live In Japan 1984 (2018) DVD5 [custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274061.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273536.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273486.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273465.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272349.jpg" />
 </div>
 
 

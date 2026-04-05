@@ -1,3 +1,55 @@
+###  Публикация: 1491356   (238276) от 24.08.2021
+
+TunesKit Video Cutter 2.3.0 [Multi]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощный инструмент для резки видео, который может не только обрезать и объединять видео и аудио с сохранением 100% качества без потерь, но также редактировать и сохранять разделенные видеоклипы с несколькими эффектами в любом популярном формате для воспроизведения на любом устройстве.Тип издания: macOS SoftwareРелиз состоялся: 29.06.2021Разработчик: TunesKitПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский, Немецкий, Французский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADFF09219AD3AC8D6E112E19459C765564A7362E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446199   (237935) от 08.02.2021
+
+start 4.5 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237935.jpg" />
+</div>
+
+
+###  Подробнее
+
+start - это уникальный лаунчер для macOS, позволяющий быстро и легко открывать приложения, документы или папки. Создайте порядок в Dock и начните работу с помощью приложения Smart Launcher. start поддерживает вас и ваш рабочий процесс благодаря хорошо спланированной организационной системе для приложений и быстрому доступу к тому, что вам нужно.Тип издания: macOS SoftwareРелиз состоялся: 07.02.2021Разработчик: Gerald KoederПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F249D59EC025EB7F91DAE8C5F16156F994B96BD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1638334   (237853) от 08.06.2023
 
 WiFi Explorer 3.4.3 [Multi]
@@ -6,7 +58,7 @@ WiFi Explorer 3.4.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237853.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ SSH Config Editor Pro 2.6.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237761.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ Gestimer 1.2.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237688.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ Magic Battery Mini 4.2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237589.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ USBclean 3.6.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237575.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ App Tamer 2 v.2.7.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237561.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ Inboard - Image Organizer 1.1.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237535.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ Script Debugger 7 v7.0.13 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237465.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ WebToLayers 1.2.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237456.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ Debit & Credit Premium - Personal Finance Manager 6.1.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237352.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ NCH MixPad Masters 10.61 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237321.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ Bigasoft WTV Converter for Mac 5.7.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237124.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ BetterMouse 1.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237110.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ Viper FTP 6.2.5 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237107.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ iRightMouse Pro 2.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237043.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ HDRsoft Photomatix Pro 7.0.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237038.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ BookMacster 2.12 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237027.jpg" />
 </div>
 
 
@@ -457,7 +509,7 @@ Lasso 1.1.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237003.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ Markster 3.0.12 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236927.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ BookMacster 3.0.12 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236918.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ HistoryHound 2.3.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236873.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ Wolf 2 - Responsive Designer Pro 3.04 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236859.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ PicFindr 1.4.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236782.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ Cisdem PDF Compressor 4.0.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236774.jpg" />
 </div>
 
 
@@ -625,58 +677,6 @@ Cisdem PDFCompressor является программным обеспечен�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A00CC9C7D0BB4FCD0D7392C76AD8807E3821ACA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608898   (236701) от 01.02.2023
-
-OpenIn 4 Advanced Link Handler 4.0.7 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236701.jpg" />
-</div>
-
-
-###  Подробнее
-
-OpenIn.app — это расширенная утилита, которая позволяет открывать ссылки, электронные письма и файлы в выбранном вами приложении. Просто нажмите на нее и выберите приложение из списка. Это самый простой способ организовать рабочий процесс.Тип издания: macOS SoftwareРелиз состоялся: 17.01.2023Разработчик: © 2023 Loshadki LLCПоддерживаемая ОС: macOS 13.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A2DBC3ADF90CDD424302FB6C6FA67DB338A2A50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639893   (236699) от 15.06.2023
-
-Super Vectorizer Pro for Mac 2.3.1 [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236699.jpg" />
-</div>
-
-
-###  Подробнее
-
-Super Vectorizer Pro для Mac, уникальное программное обеспечение для работы с векторными изображениями для Mac, использует совершенно новый алгоритм квантования изображения, который обеспечивает более естественный цвет после векторизации изображения. Выходные векторные изображения без проблем работают с Illustrator, Corel или другими редакторами векторных изображений (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.06.2023Разработчик: © Effectmatrix LtdПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCF542952B16084459160E2EB92AD988E4A4DBA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

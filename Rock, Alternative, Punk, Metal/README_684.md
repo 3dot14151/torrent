@@ -1,3 +1,32 @@
+###  Публикация: 1254384   (373330) от 14.10.2018
+
+Bonniwell Music Machine - Ignition (2000) [FLAC|Lossless|tracks + .cue] <Psychedelic Rock, Garage Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373330.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Everything Is Everything 1:52 (1968)
+2. Two Much 2:03 (1965)
+3. Advise and Consent 2:59 (1967)
+4. This Should Make You Happy 1:53 (1968)(   Читать дальше...   )Жанр: Psychedelic Rock, Garage RockПродолжительность: 00:46:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25603C0DF4E193553EE7C466542707ACE40FDD39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1575852   (373262) от 11.09.2022
 
 Frankie Potts - Военные преступления в Нижнем Черкашево (2022) [FLAC|Lossless|WEB-DL|tracks] <Brutal Deathcore>
@@ -6,7 +35,7 @@ Frankie Potts - Военные преступления в Нижнем Черк
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373262.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Stormwitch - Bound To The Witch (2018) [FLAC|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373260.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ SirGibson - Elder Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Glam Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373258.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Dream Theater - Lost Not Forgotten Archives: Live in Berlin, 2019 (2022) 2xCD [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373243.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Amaranthe - Manifest (2020) Bonus Version, 2022, Nuclear Blast [FLAC|Lossless|WE
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373233.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - Running with Rock!!! 2018 Session [MP3|320 Kbps] <Rock, Miscellaneous>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373185.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Clutch - Psychic Warfare (2015) [FLAC|tracks+.cue]<Southern Rock /Hard Rock /Sto
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372876.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Nazareth - Tattooed On My Brain (2018) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372819.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372811.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_372780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_372780.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ Ossuaire - Premiers Chants (2019) [FLAC|Lossless|tracks + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372622.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ Arctos - Beyond the Grasp of Mortal Hands (2019) [FLAC|Lossless|tracks] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372621.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ Degraey - Chrysalis (2016) [FLAC|Lossless|image + .cue] <Post Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372619.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ Degraey - Reveries (2019) [FLAC|Lossless|WEB-DL|tracks] <Post Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372616.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ Eagles - Hotel California - 1976 (Hybrid SACD WPCR-14165) (2011) [FLAC|Lossless]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372611.jpg" />
 </div>
 
 
@@ -452,7 +481,7 @@ Gary Moore - Out In The Fields - The Very Best Of (1998) 2CD Japanese Edition [F
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372583.jpg" />
 </div>
 
 
@@ -481,7 +510,7 @@ Cold Blood - The Best Of Cold Blood (1995) [MP3|320 кб/с]<Jazz-Rock, Funky Bl
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372576.jpg" />
 </div>
 
 
@@ -510,7 +539,7 @@ Hellyeah - Welcome Home (2019) [MP3|320 Kbps] <Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372561.jpg" />
 </div>
 
 
@@ -539,7 +568,7 @@ Bastille - Doom Days (2019) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Indie 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372544.jpg" />
 </div>
 
 
@@ -568,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372465.jpg" />
 </div>
 
 
@@ -597,7 +626,7 @@ Töxik Waltz (Toxik Waltz) - Declassified (2016) [FLAC|Lossless|image + .cue] <T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372445.jpg" />
 </div>
 
 
@@ -626,7 +655,7 @@ KMFDM - Paradise (2019) [MP3|320 Kbps] <Industrial Metal, Aggro-Industrial>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372427.jpg" />
 </div>
 
 
@@ -655,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372423.jpg" />
 </div>
 
 
@@ -684,7 +713,7 @@ Trubetskoy - Magister Bibendi (2015) [MP3|~265 кб/с (V0)]<Rock, Ska>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372334.jpg" />
 </div>
 
 
@@ -713,7 +742,7 @@ Goodbye Mr Mackenzie - Five (1993) [FLAC|Lossless|image + .cue] <Alternative Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372296.jpg" />
 </div>
 
 
@@ -727,35 +756,6 @@ Goodbye Mr Mackenzie - Five (1993) [FLAC|Lossless|image + .cue] <Alternative Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9313C42729B2C9FF8EEE5E8A0265484305C8A4BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327693   (372148) от 26.09.2019
-
-Александр Пушной - Live Б2 (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372148.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. СБТП
-2. Берёза
-3. Рябина
-4. Поранья(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B27F551252EB54E832795F19824DEB49B010A11
 ```
 
 https://mybot314.ru/tekegram_catalog/

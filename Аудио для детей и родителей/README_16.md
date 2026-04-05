@@ -1,3 +1,30 @@
+###  Публикация: 1491362   (912486) от 24.08.2021
+
+Николай Носов | Мишкина каша (Сборник) (2011) [MP3, Алла Човжик]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веселые и поучительные рассказы и повести Николая Носова воспитали не одно поколение юный читателей.
+Его герои - наивные и здравомыслящие, одержимые жаждой деятельности озорные и любознательные непоседы, которые постоянно попадают в смешные и необычные ситуации, - так похожи на современных мальчишек и девчонок!Жанр: Детская литература, ПриключенияПродолжительность: 04:05:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D6B5C80CF5A20D870D9BF8919C06BDBCB7708E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098013   (912037) от 28.01.2017
 
 Льюис Кэрролл | Алиса в Стране чудес (2016) [MP3]
@@ -6,7 +33,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912037.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911594.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910524.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ VA - Давайте жить дружно (2011) [MP3|320 kbps]<Детские �
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908777.jpg" />
 </div>
 
 
@@ -114,7 +141,7 @@ VA - Сборник песен для детей (2010) [MP3|320 kbps]<Детс�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908513.jpg" />
 </div>
 
 
@@ -143,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908489.jpg" />
 </div>
 
 
@@ -169,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908407.jpg" />
 </div>
 
 
@@ -196,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908132.jpg" />
 </div>
 
 
@@ -222,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908078.jpg" />
 </div>
 
 
@@ -249,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907912.jpg" />
 </div>
 
 
@@ -279,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905124.jpg" />
 </div>
 
 
@@ -305,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905037.jpg" />
 </div>
 
 
@@ -333,7 +360,7 @@ VA - Колыбельные песни русских и зарубежных к
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904736.jpg" />
 </div>
 
 
@@ -362,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904298.jpg" />
 </div>
 
 
@@ -388,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904024.jpg" />
 </div>
 
 
@@ -414,7 +441,7 @@ VA - Babydream. Spiel mit mir. vol. 16 (2003) [MP3|192 kbps]<Детская му
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903455.jpg" />
 </div>
 
 
@@ -443,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902702.jpg" />
 </div>
 
 
@@ -471,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902411.jpg" />
 </div>
 
 
@@ -497,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900823.jpg" />
 </div>
 
 
@@ -526,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897899.jpg" />
 </div>
 
 
@@ -552,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897835.jpg" />
 </div>
 
 
@@ -578,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897829.jpg" />
 </div>
 
 
@@ -604,7 +631,7 @@ VA - Белые кораблики (2010) [MP3|128 kbps]<Детские песе
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896351.jpg" />
 </div>
 
 
@@ -633,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896053.jpg" />
 </div>
 
 
@@ -661,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894609.jpg" />
 </div>
 
 
@@ -672,32 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:364D01B1AD3A9172FD20F824C8D63D5A5934BEF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993736   (894002) от 06.03.2016
-
-Сельма Лагерлёф | Рассказы (2016) [MP3, Александр Котов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сельма Лагерлёф (1858 – 1940) – шведская писательница, первая женщина, получившая Нобелевскую премию по литературе. Она прожила восемьдесят два года, из них пятьдесят отдала творчеству. Лагерлёф стала автором двадцати семи крупных произведений. И любая из самых знаменитых ее книг могла бы обессмертить ее имя, вокруг которого уже в начале ХХ века начала складываться (   Читать дальше...   )Жанр: Зарубежная детская литератураИздательство: Радио КультураПродолжительность: 03:06:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1779AD37E0B1E397DEB4F68A47053D2E0009D143
 ```
 
 https://mybot314.ru/tekegram_catalog/

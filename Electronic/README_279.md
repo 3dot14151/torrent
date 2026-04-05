@@ -1,3 +1,119 @@
+###  Публикация: 1156209   (527597) от 07.08.2017
+
+VA - Toolroom Ibiza 2017 Vol 2 [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dusky - Cold Heart (Original Mix) 06:34
+02. Route 94 - House &Amp; Pressure (Original Mix) 05:09
+03. Secondcity - Kwelanga (Original Mix) 06:30
+04. Bicep - Aura (Original Mix) 05:16(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 11:05:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:931AC5F0864E689E57CA741258E6EFCFBC5EC908
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052864   (527339) от 15.09.2016
+
+VA - Good Morning Chillhouse Beats (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Josefina Keller - Like Lovers Do (Vox Version) [05:12]
+02. Chillo - Angel's Call [04:38]
+03. Yurajet - For Eight Crosses [04:22]
+04. Roy Bennett - Sex and Freedom [04:28](   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 03:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:967016C354B71250FA27D572B2F62DADD306162F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052789   (527262) от 15.09.2016
+
+Lars Leonhard - Erstwhile (2016) [FLAC|Lossless|WEB-DL-24Bit|tracks] <Ambient, Dub Techno>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Delicious (05:43)
+02. Soothing (05:50)
+03. Charming (05:56)
+04. Therefore (06:09)(   Читать дальше...   )Жанр: Ambient, Dub TechnoПродолжительность: 01:04:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BABB158A2E82368630A05D15FE23897B25473C07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559337   (527182) от 24.06.2022
+
+Hardwell - Tomorrowland Friendship Mix (2022-06-23) [MP3|320 Kbps] <Techno, Big Room>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hardwell - INTO THE UNKNOWN
+02. Hardwell - BLACK MAGIC
+03. J Balvin & Skrillex - In Da Getto (Hardwell Bootleg)
+04. Oxia - Domino (Hardwell Bootleg)(   Читать дальше...   )Жанр: Techno, Big RoomПродолжительность: 00:59:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71FF70D1E7473FBD19A0A0838790B4669BCD9DFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1559209   (527145) от 24.06.2022
 
 VA - Sensation Seekers Vol 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Uplifting Trance>
@@ -6,7 +122,7 @@ VA - Sensation Seekers Vol 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Uplifting Tra
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527145.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Armada Music - Trance Legacy (2022) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527105.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Chill Out For A Summer Day (2017) [MP3|320 Kbps] <Chillout, Soft Jazz, Boss
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527070.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Funky Lounge (Jazz Funk Soulful Beats & Grooves) (2017) [MP3|320 Kbps] <Hou
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527014.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Sol8 - Newborn Planet (2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Breaks, C
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527011.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Black Hole House Music 09-16 (2016) [MP3|320 Kbps] <House, Progressive>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526728.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Michael E - Piano Pieces (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526688.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Best Of Chill Out Vocal Trance 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <C
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526610.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Vibes Del Mar (50 Progressive House Tunes) (2017) [MP3|320 Kbps] <Progressi
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526455.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Global Player Saint Tropez 2017, Vol.1 (2017) [MP3|320 Kbps] <Funky, Club H
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526444.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Ministry Of Sound - Chilled House Ibiza (2017) 2CD [MP3|320 Kbps] <Chill Ho
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526400.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Pure Deep Sexy Vol.2 (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526111.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - 10 Years Diynamic (2016) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526036.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - Fresh Moods Present Ambience Vol.4 (2017) [MP3|320 Kbps] <Downtempo, Chillo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525879.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ VA - Vocal Anthems Ibiza (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525536.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ L'Ombre - Discography 4 Releases (2002-2009) Ant-Zen [FLAC|Lossless|tracks+.cue]
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525534.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ VA - Trance Hits Top 20: 2017-08 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525533.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ VA - Ibiza House Party 2017 [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525523.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Sequentia Legenda - Ethereal (2017) [MP3|320 Kbps] <Electronic, Ambient, Berlin 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525516.jpg" />
 </div>
 
 
@@ -556,7 +672,7 @@ VA - Progressive House Nation Vol.2 (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525230.jpg" />
 </div>
 
 
@@ -585,7 +701,7 @@ VA - Fresh Moods Pres. Ambience Vol.5 (2017) [MP3|320 Kbps] <Downtempo, Chillout
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525222.jpg" />
 </div>
 
 
@@ -614,7 +730,7 @@ VA - Uplifting Trance Top Twenty: August (2017) [MP3|320 Kbps] <Vocal Trance, Up
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525170.jpg" />
 </div>
 
 
@@ -628,122 +744,6 @@ VA - Uplifting Trance Top Twenty: August (2017) [MP3|320 Kbps] <Vocal Trance, Up
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70B76FC632C5CC2B9A38598F4794419E7B7FA2BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157728   (524775) от 13.08.2017
-
-VA - Deep House Holiday 2017 [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexx Rave - Dance With Me (feat. Alexeev) 04:35
-02. FacoustiK - OM 07:19
-03. Rompasso - Angetenar 06:05
-04. Purecloud5 - Paradise For Us 04:57(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:58:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E3B36C1D333A6F78219BD86D8A5527B5B3E5D95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240541   (524593) от 12.08.2018
-
-Dinka - Closer (2013) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Let Go (Original Mix) (5:58)
- 02. Closer (Original Mix) (7:08)
- 03. Faces of Bengalia (Original Mix) (7:31)
- 04. Spring Valley (Original Mix) (5:52)Жанр: Progressive House, TranceПродолжительность: 00:26:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AAC20B1B9D03A6ACDE3E798D7015925AC01D15E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240455   (524589) от 12.08.2018
-
-Valdi Sabev - Imagined Vol. 2 (2017) [MP3|320 Kbps] <Downtempo, Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  When The Soul Shines (Original Mix)
-02. Ocean Of Time (Original Mix)
-03. Open Your Heart (Original Mix)
-04. Run In Fields (Original Mix)(   Читать дальше...   )Жанр: Downtempo, AmbientПродолжительность: 00:56:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:536E694B010A7BA9EF499FB7FC07553EC7008EE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313295   (524575) от 08.07.2019
-
-VA - Iris Eclipse (2019) Dusk Notes [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ASC - Barycentre (08:07)
- 02. Imugem Orihasam - Anacasico (06:48)
- 03. Soramimi - The Lightworker (06:19)
- 04. Cory James - C61 (06:36)Жанр: TechnoПродолжительность: 00:27:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD47481D5F9BD82AB8AF2E6F41DC492DD9D956C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

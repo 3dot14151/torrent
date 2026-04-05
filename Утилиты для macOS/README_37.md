@@ -1,3 +1,29 @@
+###  Публикация: 1192078   (263379) от 16.12.2017
+
+Nimble Commander 1.2.3 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263379.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nimble Commander полностью оправдывает своё имя (в переводе с английского nimble — проворный, ловкий), - программа потребляет минимальное количество ресурсов и обеспечивает мгновенный отклик, одинаково быстро работая как с одним окном, так и с дюжиной. Для продвинутых пользователей менеджер файлов — это не просто средство просмотра документов и папок, а целая экосистема, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.12.2017Разработчик: Michael KazakovПоддерживаемая ОС: macOS 10.11 и вышеЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EDDC5F996B24AE1D92E6FA4EF0595CD45818C27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1192730   (262731) от 18.12.2017
 
 SMART Utility 3.2.4 [En]
@@ -6,7 +32,7 @@ SMART Utility 3.2.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262731.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ Disk Space Analyzer 2.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261738.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ SyncTime 4.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254805.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Microsoft NTFS for Mac by Tuxera 2023.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249045.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ iFastZip - Extract RAR & ZIP & 7Z 9.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246105.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Living Earth - Weather & Clock 1.29 fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245928.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Mac Backup Guru 6.9.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245824.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Finer Focus 1.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245644.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Carbon Copy Cloner 6 v6.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245643.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ TextBar 3 v3.5.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245428.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ Batch Rename & Convert Photos for Mac 1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245137.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ BetterZip 5 v5.0.3 CR2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244989.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ Mirror for Grundig TV 3.5.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244972.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ Gemini 2: The Duplicate Finder 2.9.8 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244642.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ NeoFinder Business 8.1.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244325.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ Mirror for Roku TV 2.8.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243956.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ Clipboard mini 3.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243944.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ DoYourData File Eraser Pro 3.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243572.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ Scherlokk - Files finder 4 v4.6 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243393.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ Dropzone 4 Pro v4.2.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243105.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ Airflow 3.3.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242722.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ Tab Launcher 2.9.6 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242529.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ Iris 1.5.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242135.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ iClip - Clipboard Recorder & ClipArt Manager 5.5.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242010.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ Short Menu 2.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241868.jpg" />
 </div>
 
 
@@ -655,34 +681,6 @@ Short Menu - маленькая утилитка для создания кор�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BC8CC53C59E32BEE5A0008BABEE051CDE30621E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628979   (241675) от 25.04.2023
-
-Magic Sort List 3.5.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241675.jpg" />
-</div>
-
-
-###  Подробнее
-
-У вас есть список чего-либо, который не отсортирован и не имеет таблицы, но готовой к его сортировке? Не отчаивайтесь, Magic Sort List поможет вам в этом.
-Magic Sort List поставляется с нашим революционным механизмом сортировки, который мы усовершенствовали и доработали за прошедшие годы.
-Другое приложение для данных целей хорошо сортирует алфавитный список, но не (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.04.2023Разработчик: © 2022 Complete Magic AppsПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD75F4263044A9E2353594268C1C3937E19F25D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

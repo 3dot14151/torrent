@@ -6,7 +6,7 @@ CADbro 2023 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193166.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ZWMeshWorks 2022 SP3 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192873.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ KLayout 0.27.12 + (standalone) [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191743.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Keysight WaferPro Express 2016.04 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172639.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Keysight Model Builder Program 2019 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172631.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Keysight Model Quality Assurance 2019 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172627.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Keysight IC-CAP 2018 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172622.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ CSoft PlanTracer Техплан Pro 8.0.3016.1703.825 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165743.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ ESRI ArcGIS Desktop 10.8 [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165630.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ COMSOL Multiphysics 6.3 Build 290 [Multi]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161966.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ RAM cube 3.21.0 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160540.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ QuarkXPress 2024 20.0.57094 (x64) Portable by 7997 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153912.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Altair EDEM Professional 2023.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147025.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ CADlogic Draft IT 5.0.15 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134489.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Altair HW FEKO 2023.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134146.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ CST Studio Suite 2024.01 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134085.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Antenna Magus 2024.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134083.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ VPstudio V12.01 C9 x64 SP2 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122610.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ SimInTech 2.24.1.26 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119522.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Altair Embed 2023.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106800.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Altair Compose 2023.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106792.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Siemens UGS NX 8.0 x86/x64 [Multi]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_101935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_101935.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ SolidWorks 2025 SP4.1 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100837.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ T-FLEX CAD 16.0.88.0 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99932.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Archicad 29 build 3000 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91215.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Cutting Line 2.49 [Eng +Rus]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88319.jpg" />
 </div>
 
 

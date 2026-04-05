@@ -1,136 +1,3 @@
-###  Публикация: 931131   (509190) от 29.08.2015
-
-М. С. Строгович | Логика (1949) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор:
-
-В связи с введением преподавания логики в высших учебных заведениях возникла настоятельная необходимость в создании учебника логики, полностью отвечающего требованиям, предъявляемым к учебникам для вузов. Эта задача до сих пор не решена. Настоящая работа представляет собой лишь первый шаг в деле подготовки вузовского учебника логики и не претендует на большее, (   Читать дальше...   )Жанр: логика, искусство, психология, философияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAC2A6D7A371D148E1C80233F2E5DCDFE793A7F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932410   (509161) от 29.08.2015
-
-Е.П. Устиновский и др. | Детали машин и основы конструирования (2010) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изложены основы теории, расчёта и принципы конструирования деталей и узлов машин общего назначения: переда зацеплением и трением, валов и осей, подшипников качения и скольжения, муфт приводов, разъёмных и неразъёмных соединений и пружин.Жанр: МашиностроениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:559A727D0E65F4576426A1CDFE633B64CC49772C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931801   (509093) от 29.08.2015
-
-Плунгян Владимир | Почему языки такие разные (2012) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Человеческий язык – величайший дар природы! Ему мы обязаны возможностью общаться, передавать свои мысли на расстоянии. Благодаря языку мы можем читать книги, написанные много веков назад, а значит, использовать знания, накопленные нашими предками, и сохранять наши знания для будущих поколений. Без языка не было бы человечества!
-Сколько языков на земле, как они устроены; (   Читать дальше...   )Жанр: Языкознание, ЛингвистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:184E3DD2B8ADE90659A31EEB778445AF795B2373
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931539   (509086) от 29.08.2015
-
-Гай Стэндинг | Прекариат: новый опасный класс (2014) [FB2, EPUB, MOBI, RTF, TXT]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга британского социолога Гая Стэндинга исследует один из самых болезненных вопросов современности – повсеместное распространение нового класса, который, с одной стороны, играет исключительно важную роль в производстве как материальных, так и нематериальных ценностей, а с другой – оказывается лишенным большинства социальных и политических прав и гарантий: участия (   Читать дальше...   )Жанр: СоциологияФормат: FB2, EPUB, MOBI, RTF, TXT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36F67638781F57536E86EBBD08023F3318CB04CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932440   (509017) от 29.08.2015
-
-О.Е. Качкова (ред.) | Бухгалтерский финансовый учет (2014) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлена методика бухгалтерского финансового учета экономических объектов. Рассмотрены основные понятия, оценка, принципы учета собственного капитала, активов, обязательств, доходов и расходов, финансовых результатов, внешнеэкономической деятельности. Изложена методология составления бухгалтерской (финансовой) отчетности. Достаточно подробно освещены различия (   Читать дальше...   )Жанр: Бухгалтерский учетФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C35AFDA3056E899F807AB8E6C9EB9BE43B7F3D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 931621   (509013) от 29.08.2015
 
 Никколо Макиавелли, Алексей Вандам (Едрихин) | Политика для начинающих (сборник) (2015) [FB2, RTF]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509013.jpg" />
 </div>
 
 
@@ -168,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508927.jpg" />
 </div>
 
 
@@ -194,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508834.jpg" />
 </div>
 
 
@@ -220,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508831.jpg" />
 </div>
 
 
@@ -246,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508789.jpg" />
 </div>
 
 
@@ -272,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508730.jpg" />
 </div>
 
 
@@ -298,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508728.jpg" />
 </div>
 
 
@@ -324,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508702.jpg" />
 </div>
 
 
@@ -350,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508698.jpg" />
 </div>
 
 
@@ -376,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508655.jpg" />
 </div>
 
 
@@ -402,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508374.jpg" />
 </div>
 
 
@@ -434,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508296.jpg" />
 </div>
 
 
@@ -460,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507845.jpg" />
 </div>
 
 
@@ -487,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507814.jpg" />
 </div>
 
 
@@ -515,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507400.jpg" />
 </div>
 
 
@@ -541,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507280.jpg" />
 </div>
 
 
@@ -567,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507258.jpg" />
 </div>
 
 
@@ -593,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507253.jpg" />
 </div>
 
 
@@ -619,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507175.jpg" />
 </div>
 
 
@@ -646,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507174.jpg" />
 </div>
 
 
@@ -672,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507041.jpg" />
 </div>
 
 
@@ -683,6 +550,143 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91E0C86E42CCCA05B46AB325FDADF78AC6205158
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933029   (506943) от 31.08.2015
+
+Андрей Барбакадзе (ред.) | Щит для водителя от произвола ГИБДД, страховщиков (2015) [FB2]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506943.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге вы найдете всю информацию, которую не только полезно знать каждому практикующему водителю, но и необходимо принять к сведению.
+ Вы узнаете:
+ какими реальными правами обладают водитель и сотрудник полиции;
+ какие штрафы актуальны в 2015 году;(   Читать дальше...   )Жанр: АвтотранспортФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7863002040FACE3720796B1F92AFB41F64B90783
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932749   (506942) от 31.08.2015
+
+В.Н. Салин, Е.П. Шпаковская (ред.) | Статистика (2014) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506942.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены вопросы методологии сбора, обработки, анализа и представления информации. Изложены методические указания и задачи по программе курса "Статистика". В каждой теме приведены примеры с подробными решениями, формирующие практические навыки и умение понять и оценить состояние и тенденции развития экономических процессов на микро- и макроуровне.Соответствует (   Читать дальше...   )Жанр: Экономика, менеджментФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6C4A1413EAA130A1F186D3DA06D8B9036555547
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562928   (506884) от 11.07.2022
+
+Томас К. Хейс, Пол Хоровиц | Искусство схемотехники. Теория и практика (2022) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506884.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой уникальной книге по схемотехнике содержится не только теоретический материал, но и полноценный курс лабораторных работ. Подробно рассмотрено применение аналоговых устройств (пассивных элементов, транзисторов, операционных усилителей), цифровых устройств (логических элементов, триггеров, счетчиков, ПЛМ, памяти, АЦП, ЦАП, ФАПЧ) и микроконтроллеров. Каждое из (   Читать дальше...   )Жанр: Техническая литература, электроника, схемотехникаПеревод: ООО «БХВ-Петербург»Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5E3A08248AAB57BB8259E8CD71687EC2AE847D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931953   (506842) от 31.08.2015
+
+Кип Торн | Интерстеллар. Наука за кадром (2015) [FB2]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кип Торн, ученый с мировым именем и консультант известной кинокартины Кристофера Нолана «Интерстеллар», в своей книге, глубоко погружаясь в научный мир, подробно объясняет все те невероятные факты о гравитации, черных дырах, пятом измерении и других явлениях, которые визуально воплощены в этом фильме.
+
+Эта книга для всех, кому интересны физика, космос, естественные (   Читать дальше...   )Жанр: Физика, образовательная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D00D2384A71A06CEFC333B6EDE02766FEEB0C57E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315889   (506819) от 25.07.2019
+
+Архивные документы Курганской области [1000>] (1749-1915) [JPG, DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большое собрание метрических книг, ревизских сказок, исторических документов и очерков, карт, рекрутских списков по Курганской области. Сборник охватывает период 1749-1915 год.
+
+Были добавленны еще несколько исторических документов, торент файл был обновлен.Жанр: ИсторияФормат: JPG,DjVu
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F20D11CCB0DB11AC615AFC265A7D32A5098BDA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

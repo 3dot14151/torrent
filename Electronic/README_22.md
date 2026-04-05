@@ -1,3 +1,61 @@
+###  Публикация: 1442710   (1036334) от 26.01.2021
+
+VA - Synthwave Dreams, Vol. 8 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aurolab - Close Your Eyes (6:43)
+02. NINJACAT - Nowhere (4:03)
+03. MOTA - Follow Me (5:33)
+04. Ruslan Mustafin - Wormhole (7:58)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:24:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE93C4B67D3867035D18A51FAF384396C556757
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442709   (1036331) от 26.01.2021
+
+VA - Synthwave Dreams, Vol. 7 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aurolab - Anna (5:49)
+02. Ruslan Mustafin - Space Carousel (5:10)
+03. TELEGIMNASTIKA - Fury (6:06)
+04. Levitati.On - Arcade Love (Aurolab Remix) (4:32)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:20:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D061E5CDBD419513BD43B1594DC001655A52EC7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442689   (1036330) от 26.01.2021
 
 Various Artists - Hospitality House Party (2020) [FLAC 2.0|24/44.1|tracks|WEB-DL] <Drum & Bass>
@@ -6,7 +64,7 @@ Various Artists - Hospitality House Party (2020) [FLAC 2.0|24/44.1|tracks|WEB-DL
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036330.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Trance Vision (2021) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036317.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Synthwave Dreams, Vol. 9 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Sy
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036309.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ V.A. - Coffee Bar Lounge, Vol. 23 (2021) [FLAC|Lossless|WEB-DL|tracks] <Easy Lis
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036307.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Osovets - Alive at Industrial Christmas (Live) (2023) [FLAC|Lossless|WEB-DL|trac
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036162.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Late Night Alumni - The B-Sides (2012) Compilation [FLAC|Lossless|tracks + .cue]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036094.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Degs & Grafix - Empty Bottles (2021) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036046.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ VA - Roger Shah - Magic Island Best Of (2020) [MP3|320 Kbps] <Trance, Melodic Ho
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036015.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ VA - I Love Didier Marouani & Space (2016) [FLAC|Lossless|WEB-DL|tracks] <Synthp
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036004.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ Pleq | Bartosz Dziadosz - Discography 43 Releases (2008-2020) [FLAC|Lossless|tra
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035931.jpg" />
 </div>
 
 
@@ -290,7 +348,7 @@ Arovane - Discography 41 Releases (1998-2021) DIN, n5MD [FLAC|Lossless|tracks+.c
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035900.jpg" />
 </div>
 
 
@@ -319,7 +377,7 @@ Sundial Aeon - Discography 13 Albums (2006-2020) Flow Records, Impact Studio [FL
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035891.jpg" />
 </div>
 
 
@@ -348,7 +406,7 @@ VA - Ballaton Nightlife (2023) [MP3|320 Kbps] <Deep-House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035854.jpg" />
 </div>
 
 
@@ -377,7 +435,7 @@ V.A. - Lounge & Coffee, Vol. 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Easy Listen
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035846.jpg" />
 </div>
 
 
@@ -406,7 +464,7 @@ VA - Frühlingsgefühle: Lounge & Easy Listening Deluxe (2023) [MP3|320 Kbps] <D
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035839.jpg" />
 </div>
 
 
@@ -435,7 +493,7 @@ Dawn Wall - Kythera (2015) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035783.jpg" />
 </div>
 
 
@@ -464,7 +522,7 @@ Dawn Wall - Longshanks (2015) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035780.jpg" />
 </div>
 
 
@@ -493,7 +551,7 @@ Dawn Wall - Twin Falls (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035776.jpg" />
 </div>
 
 
@@ -522,7 +580,7 @@ Dawn Wall - Problems (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035774.jpg" />
 </div>
 
 
@@ -551,7 +609,7 @@ Dawn Wall - Ember (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035772.jpg" />
 </div>
 
 
@@ -580,7 +638,7 @@ Dawn Wall - Devil's Night (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035770.jpg" />
 </div>
 
 
@@ -609,7 +667,7 @@ Dawn Wall - Birdmask (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035759.jpg" />
 </div>
 
 
@@ -638,7 +696,7 @@ VA - Ablazing Winter Sessions (2021) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035745.jpg" />
 </div>
 
 
@@ -667,7 +725,7 @@ VA - Blue Soho Recordings - Best Of 2020 (2021) [MP3|320 Kbps] <Trance, Progress
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035737.jpg" />
 </div>
 
 
@@ -681,64 +739,6 @@ VA - Blue Soho Recordings - Best Of 2020 (2021) [MP3|320 Kbps] <Trance, Progress
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44A5983C35E35A646F79B726A301D38FD71384B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443144   (1035722) от 28.01.2021
-
-VA - MixCult Selected: Lola Palmer (2020) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Deep Tech, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. R.Hz – City Space (07:23)
-02. Brickman – Meditation (07:29)
-03. Daniel Gorziza – Mountain Goat (07:15)
-04. Ini – Iceberg (07:37)(   Читать дальше...   )Жанр: Tech House, Deep House, Deep Tech, MinimalПродолжительность: 01:27:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BCD267FD7583DDDEED658D5EF7B7DF758646618
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443175   (1035705) от 28.01.2021
-
-VA - The Best of Vocal Deep House Music Mix 2021 [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Semmy Satch - Feel Alive (3:44)
-02. Ray Abegg - Surrender (4:34)
-03. PINKY - Lary Challenge (4:13)
-04. Nos Rider, Nat - When the Day Is Done (4:01)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:07:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A723A79608F9D1BA282230CF945835D4F43EAB72
 ```
 
 https://mybot314.ru/tekegram_catalog/

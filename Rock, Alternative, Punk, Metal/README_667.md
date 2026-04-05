@@ -1,3 +1,32 @@
+###  Публикация: 1574258   (388044) от 04.09.2022
+
+Pat Travers - The Art of Time Travel (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pat Travers - икона блюз-рока и великолепный гитарист возвращается с новым мастерским студийным альбомом! The Art Of Time Travel - твердое свидетельство магии уникального бренда классического блюз-рока Pat Travers'а, обладающего сверхъестественной способностью переносить слушателей в недалекое прошлое, когда рок был королем, а гитары доминировали в эфире радиостанций. (   Читать дальше...   )01. The Art Of Time Travel (4:34)
+02. Ronnie (3:21)
+03. No Worries At All (5:30)
+04. Over And Over (5:38)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4DCD2AD4F201ABC66909030F6BA14AF220C1E70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574278   (388042) от 04.09.2022
 
 Hydra - Point Break (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock>
@@ -6,7 +35,7 @@ Hydra - Point Break (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388042.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Femme Fatale - One More For The Road (2016) [FLAC|Lossless|image + .cue] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388040.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Machine Head - Of Kingdom and Crown (2022) [FLAC|Lossless|image + .cue] <Groove,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388038.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Venus 5 - Venus 5 (2022) [FLAC|Lossless|image + .cue] <Melodic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388037.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Epica - Live At Paradiso (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388036.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Dim Mak - Knives Of Ice (2006) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388029.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388026.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388023.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Omnium Gatherum - The Burning Cold (Japan Edition) (2018) [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388022.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387958.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Methedras - Katarsis (2009) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387921.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Pulatova - Рой (2018) [MP3|320 Kbps] <Post-Rock, Indie Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387904.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Obsidian Kingdom - MEAT MACHINE (2020) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387893.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Aisumasen - Tunguska (2020) [FLAC|Lossless|WEB-DL|tracks] <Sludge, doom, post me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387892.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Kavee - Metempsychosis (2020) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Psyched
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387891.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Ward XVI - The Art of Manipulation (2017) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387888.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Dysylumn - Cosmogonie (2020) [MP3|320 Kbps] <Progressive Black Metal, Death Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387887.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Ward XVI - Metamorphosis (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387886.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Girls In Synthesis - Now Here's An Echo From Your Future (2020) [FLAC|Lossless|W
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387882.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ OHM RUNE - Gargantua (2020) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Stoner Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387880.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Molly Hatchet - Battleground (2019) 2xCD Live [MP3|320 Kbps] <Hard Rock, Souther
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387872.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Seagull Boys - Seagull Boys (2020) [MP3|320 Kbps] <Punk Rock, Garage Rock, Thras
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387866.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Erdling - Yggdrasil (2020) 2xCD [FLAC|Lossless|image + .cue] <Industrial Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387862.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ VA - Who Are You: An All Star Tribute To The Who (2012) [MP3|320 кб/с]<Hard R
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387860.jpg" />
 </div>
 
 
@@ -708,7 +737,7 @@ Tony Gabriele's Orbynot - Without A Trace (2015) [MP3|320 Kbps] <Heavy Metal, Ha
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387826.jpg" />
 </div>
 
 
@@ -722,35 +751,6 @@ Tony Gabriele's Orbynot - Without A Trace (2015) [MP3|320 Kbps] <Heavy Metal, Ha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:168D5A006C18A8436019B19F92E493317A3ABEA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067562   (387808) от 29.10.2016
-
-Dünedain (Dunedain) - Pandemonium (2016) [MP3|320 Kbps] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01| Eón   (05:12) 
-  02| Legado   (03:55) 
-  03| Bola De Cristal   (04:38) 
-  04| Vuela   (04:42) (   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACE9A04771D5BAF71BA1B88BDE9990700980030F
 ```
 
 https://mybot314.ru/tekegram_catalog/

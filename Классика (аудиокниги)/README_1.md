@@ -1,3 +1,86 @@
+###  Публикация: 1842295   (1048639) от 15.12.2025
+
+Анатолий Рыбаков | Тяжёлый песок (2025) [MP3, Александр Клюквин]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: «Великая Отечественная война (ИД СОЮЗ)».
+«Тяжёлый песок» одно из самых значительных произведений Анатолия Наумовича Рыбакова (1911–1998). Роман в свое время отказались публиковать «Новый мир» и «Дружба народов» и лишь редактор журнала «Октябрь» – Анатолий Ананьев решился напечатать роман на страницах своего журнала. А в 1979 году «Тяжелый песок» вышел (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 12:35:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E964C03EB2BAB4495047E6D4BA9085E4F0ABF163
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841645   (1048359) от 14.12.2025
+
+Бенедикт Спиноза | Этика (2025) [MP3, Артем Пахомов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048359.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Этика» Спинозы – это строгая логика, глубина мысли и большое влияние на великие умы прошлого.
+Познайте идеи, которые формировали культуру и науку нескольких столетий!
+Характерной чертой трактатов Спинозы является строгая последовательность мысли и четкая организация текста. Идеи Спинозы, особенно его центрального произведения, «Этики», оказали мощное воздействие (   Читать дальше...   )Жанр: Вопросы бытия, Зарубежная классика, Классическая проза, Онтология, Философские концепцииИздательство: Аудиокниги (АСТ)Продолжительность: 11:23:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34C9DE258E5546365F5DE4834FB0A7FAF7F8610E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841643   (1048082) от 12.12.2025
+
+Лев Толстой | Хаджи-Мурат (2025) [MP3, Денис Борисов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048082.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герой повести Хаджи-Мурат — реальное историческое лицо. Он перешел на сторону русских в Кавказской войне. Автора привлекала сила духа и жизнелюбие этого человека, поставленного в тяжелейшие условия.
+Писатель мастерски создал достоверный, точный портрет Хаджи-Мурата, ибо он владел пониманием «человека вообще».
+Творчество Льва Толстого оказало огромное влияние на развитие (   Читать дальше...   )Жанр: Русская литература, Классика, Драма, Проза, Реализм, ВоенноеИздательство: ЛитРесПродолжительность: 04:16:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B55CFD6F56D440D9A242ACA037B5B9D417C76A67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840914   (1047612) от 08.12.2025
 
 Рока Токутоми | Куросиво (2025) [MP3, Александр Кузнецов]
@@ -6,7 +89,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047612.jpg" />
 </div>
 
 
@@ -32,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047569.jpg" />
 </div>
 
 
@@ -60,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047274.jpg" />
 </div>
 
 
@@ -88,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047270.jpg" />
 </div>
 
 
@@ -116,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047228.jpg" />
 </div>
 
 
@@ -143,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047211.jpg" />
 </div>
 
 
@@ -171,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1047040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1047040.jpg" />
 </div>
 
 
@@ -197,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046796.jpg" />
 </div>
 
 
@@ -224,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046704.jpg" />
 </div>
 
 
@@ -252,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046614.jpg" />
 </div>
 
 
@@ -281,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046609.jpg" />
 </div>
 
 
@@ -310,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046486.jpg" />
 </div>
 
 
@@ -339,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046482.jpg" />
 </div>
 
 
@@ -368,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046336.jpg" />
 </div>
 
 
@@ -394,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046258.jpg" />
 </div>
 
 
@@ -420,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046200.jpg" />
 </div>
 
 
@@ -446,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045945.jpg" />
 </div>
 
 
@@ -472,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045638.jpg" />
 </div>
 
 
@@ -498,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044983.jpg" />
 </div>
 
 
@@ -524,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044858.jpg" />
 </div>
 
 
@@ -552,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043957.jpg" />
 </div>
 
 
@@ -578,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043349.jpg" />
 </div>
 
 
@@ -604,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043245.jpg" />
 </div>
 
 
@@ -615,85 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B8C6B9A8B70DA36D911F42969A35D7B7C515DF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613109   (1039912) от 17.02.2023
-
-Сергей Аксаков | Семейная хроника (1996) [MP3, Людмила Долгорукова и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039912.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Радио России" представляет радиоспектакль по произведению русского писателя, которое считается одним из лучших исторических документов стародворянской жизни, в котором представлена картина помещичьей жизни доброго старого времени, с ее удивительной смесью добродушия и дикого, подчас даже зверского самодурства.Жанр: Классика, РадиоспектакльПродолжительность: 00:46:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76865639B52A404CD848880683AFF0844F8A15EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615017   (1038107) от 24.02.2023
-
-Джейн Остин | Гордость и предубеждение (2022) [MP3, Равшана Куркова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая аудиоверсия книги Джейн Остин «Гордость и предубеждение». История, знакомая нам со школьной скамьи, в исполнении Равшаны Курковой звучит совершенно иначе. Старая добрая классика заиграет новыми красками. Отличный повод ещё раз погрузиться в непростые отношения Элизабет Беннет и мистера Дарси, пройти с ними путь от отчуждения к любви, открыть для себя новые (   Читать дальше...   )Жанр: классические любовные романы, литература 19 векаПеревод: Ирина ГуроваПродолжительность: 12:07:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5292A3293305E49B799E48FC8BB435FF6D501043
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615864   (1037265) от 27.02.2023
-
-Александр Дюма | Асканио (2014) [MP3, Леонид Деркач]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037265.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Асканио» – один из самых увлекательных романов Александра Дюма-отца, автора таких шедевров, как «Три мушкетера» и «Граф Монте-Кристо».
-Материал для романа «Асканио» Дюма почерпнул из автобиографической книги прославленного скульптора и ювелира эпохи Возрождения Бенвенуто Челлини. Поставить на карту не только собственное благополучие, но и саму жизнь ради счастья (   Читать дальше...   )Жанр: Приключения, КлассикаПродолжительность: 19:50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B6B18032EC94DAA32F5FD8225034711CFE16BBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

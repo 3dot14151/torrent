@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408044.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407745.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Renju Cat 1.30 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_407703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_407703.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_407638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_407638.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_406493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_406493.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_406025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_406025.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_405451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_405451.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ PhotoFari 1.2 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_402817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_402817.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ BladeCX Free RC Simulator 1.4  [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_402725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_402725.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ T2S Pro / Прочитайте вслух текст v0.53.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402284.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Flick Golf! 1.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_401940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_401940.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Lane Splitter 2.1.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_401933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_401933.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400995.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ NaviFirm+ [1.7]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400741.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399924.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399867.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399834.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399655.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397819.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397752.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Garmin: City Navigator Europe NT 2014.20 UNLOCKED (2D и 3D) 14.20 (Разбло
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397348.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ MiniSquadron Special Edition 1.13 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397308.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Race Stunt Fight! Motorcycles  [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397196.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_396824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_396824.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_396821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_396821.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_396704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_396704.jpg" />
 </div>
 
 

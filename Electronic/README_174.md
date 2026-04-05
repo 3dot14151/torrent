@@ -1,3 +1,61 @@
+###  Публикация: 1281974   (748292) от 10.02.2019
+
+Sopor Aeternus - Death & Flamingos (2019) [MP3|320 Kbps] <Darkwave, Gothic Rock, Neo-Classic, Deathrock>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748292.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Side A
+2. Kinder Des Teufels
+3. Spell Bound
+4. The Boy Must Die(   Читать дальше...   )Жанр: Darkwave, Gothic Rock, Neo-Classic, DeathrockПродолжительность: 00:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07FA4AA5AA2A946EAD5A3E228F07BE6C98115133
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019395   (748203) от 24.05.2016
+
+Shakti - Psychedelic Experience (2016) [FLAC|Lossless|image + .cue] <Psychedelic Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brightlight - What are you looking for
+02. Dr Hoffman - My problem child
+03. Ganesha - Waiting for the sun
+04. Ganesha - Space love(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 01:05:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16094997A19080FD8E5818A6622C8594D3503972
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281910   (748151) от 10.02.2019
 
 VA - Sick Music 2019 [MP3|320 Kbps] <Drum & Bass>
@@ -6,7 +64,7 @@ VA - Sick Music 2019 [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748151.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Ashterra - Other Earth (2018) [MP3|320 Kbps] <Downtempo, Ambient, New Age>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747856.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Poolside Miami 2018 (Mixed by Kraak & Smaak) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747855.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Fitness Beats 2018 - 24 Workout & Fitness Gym Music Hits [MP3|320 Kbps] <Ho
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747840.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Rue Du Soleil (ex resident of Cafe Del Mar) - Discography 5 Releases (2003-2012)
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747837.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ VA - Cafe del Mar - Phuket (2018) [FLAC|Lossless|tracks] <Downtempo, Chill House
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747717.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ Ben Bohmer (Ben Böhmer) - Breathing (Remixed) (2020) [FLAC|Lossless|WEB-DL|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746847.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ GMS - The G.M.S. Experiment (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746764.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ VA - Good Old Days Vol 3: Disco House Sounds (2019) [MP3|320 Kbps] <Disco, Nu-Di
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746705.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ All4tonic - Mus(ion)ic (2016) [MP3|160 кб/с] <Electronic, Ambient, EDM>
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746605.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ Nivhek - After its own death / Walking in a spiral towards the house (2019) [FLA
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746544.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ Bonobo - Fragments (2022) [FLAC|Lossless|Web-DL|tracks] <Downtempo, Ambient, Dee
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746521.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ VA - Einfach Nur Mugge 2018 [MP3|320 Kbps] <House, Deep House, Big Room>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746237.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ VA - Love Nightlife, Vol. 2 The Lounge Room Grooves (2018) [MP3|320 Kbps] <House
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746131.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ VA - Love Nightlife, Vol. 1 The Lounge Room Grooves By Kolibri Musique (2017) [M
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746127.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ Sonar - Volt Revisited (2003) Hands Productions [FLAC|Lossless|Vinyl|tracks] <Rh
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746126.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ DAB / Digital Analog Band (ex resident of Cafe Del Mar) - Discography 3 Releases
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746125.jpg" />
 </div>
 
 
@@ -493,7 +551,7 @@ La Caina (ex resident of Cafe Del Mar) - Discography 4 Releases (2006-2015) [MP3
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746122.jpg" />
 </div>
 
 
@@ -519,7 +577,7 @@ Stimming - Stimming (2013) [FLAC|Lossless]<Tech House, Deep House, Minimal Techn
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_745681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_745681.jpg" />
 </div>
 
 
@@ -545,7 +603,7 @@ Matt Fax - Contrast (2017) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745587.jpg" />
 </div>
 
 
@@ -574,7 +632,7 @@ Matt Fax - Contrast (Remixed) (2018) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progres
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745582.jpg" />
 </div>
 
 
@@ -603,7 +661,7 @@ Matt Fax - Progressions (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive House,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745579.jpg" />
 </div>
 
 
@@ -632,7 +690,7 @@ Bernd Filz - A Good Stuff (2016) [MP3|320 кб/с] <Electronic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745521.jpg" />
 </div>
 
 
@@ -661,7 +719,7 @@ VA - The Chill Stompers, II (2020) AstroPilot Music [FLAC 2.0|44.1/24|tracks|WEB
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745495.jpg" />
 </div>
 
 
@@ -675,64 +733,6 @@ VA - The Chill Stompers, II (2020) AstroPilot Music [FLAC 2.0|44.1/24|tracks|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B62E2445194BC4B8ABD3E4BD4C648C72704C1490
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020655   (745463) от 26.05.2016
-
-VA - Techno Club Vol. 50 (Mixed by Talla 2XLC & Kai Tracid) (2016) [MP3|320 кб/с] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kai Tracid - Tracid Theme (Album Version) (1:11)
-02. Kai Tracid - Your Own Reality (Energy Mix) (6:43)
-03. Tiësto - Adagio For Strings (7:33)
-04. Kai Tracid - Tiefenrausch (The Deep Blue) (NRG Mix) (6:15)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:18:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71CA990AC8B6C657EE27E6F0D2B4FD7CE4FF384A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396598   (745441) от 16.07.2020
-
-Phase Fatale - Scanning Backwards (2020) [FLAC|Lossless|tracks + .cue] <EBM, Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_745441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Velvet Imprints (05:11)
-02. Binding by Oath (06:06)
-03. Polystyrene (05:21)
-04. During the Freezing Process (05:30)(   Читать дальше...   )Жанр: EBM, IndustrialПродолжительность: 00:42:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2219D19B37A2F98CD88E48060EE938242CC0765A
 ```
 
 https://mybot314.ru/tekegram_catalog/

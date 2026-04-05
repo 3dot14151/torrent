@@ -1,3 +1,159 @@
+###  Публикация: 1124887   (785498) от 12.04.2017
+
+MAGIX Vegas Pro 14.0 Build 252 RePack by KpoJIuK [Ru/En]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785498.jpg" />
+</div>
+
+
+###  Подробнее
+
+MAGIX Vegas PRO — профессиональная программа для многодорожечной записи, редактирования и монтажа видео и аудио потоков. Инструменты, содержащиеся в 'Vegas Pro', дают возможность редактирования, и обработки в реальном времени форматов DV, AVCHD, HDV, SD/HD-SDI и XDCAM™, точную корректировку аудио, создание объёмного звука и двухслойных DVD. Вы можете прожечь Blu-ray (   Читать дальше...   )Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E04BF789F698327AC07D8036011B7E0BC97FE9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124739   (785492) от 12.04.2017
+
+Демон внутри / The Autopsy of Jane Doe (2016) HDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Патологоанатомы маленького городка получают тело жертвы таинственного убийства — красивой и молодой девушки без видимой причины смерти. Они пытаются выяснить, кто она и как умерла, обнаруживая все более причудливые подсказки, которые ведут к тайнам её жизни и смерти.Производство: Великобритания, СШАЖанр: Ужасы, детективРежиссер: Андре ОвредалАктеры: Эмиль Хирш, Брайан Кокс, Офелия Ловибонд, Майкл МакЭлхаттон, Олуэн Катрин Келли, Паркер Сойерс, Джейн Перри, Ив О’ХараПеревод: Профессиональный многоголосый (AlexFilm)Субтитры: ОтсутствуютПродолжительность: 01:25:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDA6DA2B87D2B0F333A0B1508E79E76B06A036C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124655   (785491) от 12.04.2017
+
+Bayonetta (2017) [Multi] (1.0) License CODEX
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарный директор PlatinumGames Хидэки Камия, создавший знаменитые Resident Evil и Devil May Cry, а также компания SEGA запускают одну из самых прославленных action-игр всех времен на ПК. Байонетта. Единственная выжившая из старинного клана ведьм, сохранявшего равновесие между светом, тьмой и хаосом.Тип издания: LicenseРазработчик: PlatinumGamesЖанр: Action (Slasher), 3D, 3rd PersonЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29682209CF7E5AA5940E0525A5422DD14B005BCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124713   (785489) от 12.04.2017
+
+Adobe Photoshop Lightroom CC 2015.10 (6.10) RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lightroom объединяет фотографии в «коллекции» — виртуальные сборища файлов, по которым может быстро делать поиск. Он хранит информацию о ключевых словах, превью и метаданных не в каждом графическом файле, а в централизованной базе данных (движок SQLite). Поэтому к базе можно обращаться и по поводу фотографий, которые сейчас в архиве на DVD. Размер программы существенно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AD63C25328D1BFE22F5C348B8611BEB4996094E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918776   (785488) от 12.04.2017
+
+Assassin's Creed 3 (2012) [Ru/En] (1.06/dlc) Repack =nemos= [Ultimate Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полноценная третья часть серии Assassin's Creed. Нам предстоит сыграть роль полукровки – британца по отцовской линии и индейца-мохока по материнской – со странным для нашего уха именем Ratohnaké:ton. События Assassin’s Creed 3 будут развиваться во времена Войны за независимость США. Вы – ассасин Коннор, поклявшийся сохранить свободу и безопасность своего народа (   Читать дальше...   )Тип издания: RepackРазработчик: UbisoftЖанр: Action, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F4BC7E82F917F0AC9996D5EC5AC0FE437FE12CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124829   (785486) от 12.04.2017
+
+Телейос / Teleios (2017) HDRip [AD]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Будущее. Ученые создали технологию модификации молекул днк и спроектировали генетически совершенного человека. Экипаж из таких безупречных людей направляется к Титану, чтобы забрать критически важный для выживания человечества груз. Но прибыв к месту назначения, они сталкиваются с множеством тайн, оставшихся после гибели предыдущего экипажа. Что же на самом деле (   Читать дальше...   )Производство: СШАЖанр: ФантастикаРежиссер: Йен ТрюйтнерАктеры: Санни Мабри, Лэнс Бродвэй, Т.Дж. Хобан, Кристиан Питре, Майкл Шеннон Дженкинс, Урсула Миллс, Weetus Cren, Майкл Нури, Лейла Бирч, Бретт Роберт КулбертПеревод: Многоголосый закадровый, профессиональный (Синема УС)Субтитры: отсутствуют.Продолжительность: 01:30:35Реклама: присутствуют аудио и видео вставки рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADB58B0E8B2C1D21D4CDB8A8D7A1D50F3D2EB1DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1124809   (785483) от 12.04.2017
 
 Autodesk 3ds Max 2018 [Multi]
@@ -6,7 +162,7 @@ Autodesk 3ds Max 2018 [Multi]
 >>9
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785483.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_785299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_785299.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_785251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_785251.jpg" />
 </div>
 
 
@@ -85,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_785242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_785242.jpg" />
 </div>
 
 
@@ -112,7 +268,7 @@ Windows 7 SP1 (x86/x64) 52in1 +/- Office 2016 by SmokieBlahBlah 20.01.19 [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785238.jpg" />
 </div>
 
 
@@ -140,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785237.jpg" />
 </div>
 
 
@@ -166,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785236.jpg" />
 </div>
 
 
@@ -192,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_785178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_785178.jpg" />
 </div>
 
 
@@ -218,7 +374,7 @@ Test Drive Unlimited 2 ModPack (2011/2017) [Ru/En] (034/1.7.4/dlc) Repack/Mod Ni
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785174.jpg" />
 </div>
 
 
@@ -244,7 +400,7 @@ Assassin's Creed: Origins / Assassin's Creed: Истоки (2017) [Ru/En] (1.2.1
 >>10
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785171.jpg" />
 </div>
 
 
@@ -270,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_785084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_785084.jpg" />
 </div>
 
 
@@ -296,7 +452,7 @@ Win 10 Tweaker 5.0 Portable by XpucT [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784797.jpg" />
 </div>
 
 
@@ -322,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>11
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784791.jpg" />
 </div>
 
 
@@ -349,7 +505,7 @@ Assassin's Creed: Origins / Assassin's Creed: Истоки (2017) [Ru/Multi] (1.
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784787.jpg" />
 </div>
 
 
@@ -375,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784786.jpg" />
 </div>
 
 
@@ -401,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784705.jpg" />
 </div>
 
 
@@ -427,7 +583,7 @@ Grand Theft Auto IV: The Complete Edition (2020) [Ru/Multi] (1.2.0.43/dlc) Repac
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784689.jpg" />
 </div>
 
 
@@ -453,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784527.jpg" />
 </div>
 
 
@@ -479,7 +635,7 @@ Corel VideoStudio Ultimate 2018 21.1.0.89 + Content Pack [Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784521.jpg" />
 </div>
 
 
@@ -505,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784520.jpg" />
 </div>
 
 
@@ -516,163 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DA8F42A04F95FFBB2260635EE993845A2DFAE45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388805   (784413) от 10.06.2020
-
-S.T.A.L.K.E.R. Shadow of Chernobyl / S.T.A.L.K.E.R. Тень Чернобыля (2020) [Ru] (2.1.6.3) Repack/Mod [Народная Солянка 2016 OGSR]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарный мод на «Тень Чернобыля», который допиливался и дорабатывался народными умельцами, начиная с 2010 года. Много воды утекло с тех пор, многие игровые концепции и фишки геймплея были пересмотрены, добавлены новые и выкинуты старые. Всё идёт в угоду игровой сталкерской общественности. «Народная солянка 2016» является вершиной долгих поисков и мытарств игроделов (   Читать дальше...   )Тип издания: Repack/ModРазработчик: GSC Game WorldЖанр: Action (Shooter), Adventure, 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:907BE3560FDD14614488300DB9F0894017FB3D5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204359   (784273) от 07.02.2018
-
-В Госдуму внесён проект о конфискации автомобиля за совершение ДТП пьяным водителем
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Законодательное собрание Архангельской области внесло в Госдуму законопроект, предусматривающий конфискацию автомобиля, если водитель совершил ДТП в состоянии алкогольного опьянения. Это следует из базы данных нижней палаты парламента.Депутаты предлагают предусмотреть в ч. 1 ст. 104.1 УК положение о конфискации автомобиля или другого транспортного средства, принадлежащего (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204882   (784261) от 07.02.2018
-
-Avira Phantom VPN Free / Pro 2.12.5.31589 RePack by elchupacabra [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Avira Phantom VPN — является новым эффективным приложением, которое предлагает все преимущества частных виртуальных сетей в ненавязчивой форме. Разблокируйте запрещенные сайты и сервисы и улучшите безопасность Интернет-подключений с помощью современной и надежной VPN-службы.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FBB8470E4439DE318C62AE9C420A0CC6178DF82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203957   (784238) от 07.02.2018
-
-Работников предприятий группы Amazon обяжут носить электронные браслеты
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784238.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Прикуют ли нам цепью шары к ногам, как каторжникам?», задаётся вопросом глава рабочей конфедерации Италии. Амазон собирается превратить своих работников в роботов?30 января американское предприятие запатентовало электронный браслет, позволяющий следить за движеним рук своих работников  с целью улучшения их производительности. Проект вызвал переполох во многих странах.Браслет (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204116   (784229) от 07.02.2018
-
-Windows 10 Redstone 4 принесёт целый ворох новшеств
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft начинает сокращать добавление новых функций в грядущее крупное обновление Windows 10 с кодовым именем Redstone 4 — в настоящее время публика уже может оценить большинство значимых предстоящих изменений благодаря последим тестовым сборкам Insider Preview. Разработчики в целом перешли к фазе тестирования и отладки этого весеннего обновления. Так что предлагаем (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204553   (784222) от 07.02.2018
-
-Windows 7 SP1 4in1 (x86/x64) Elgujakviso Edition (v.03.02.18) [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборки сделаны на основе оригинальных образов от MSDN: (12.05.2011)
-   Системы чистые, ничего не удалено, отключено и пропатчено. Интегрированы Internet Explorer 11 и все важные и рекомендуемые обновления по Декабрь 2017 года. Для получения полной информаций об интегрированных обновлениях и изменениях, читайте раздел "дополнительная информация". Системы протестированы (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA5D6385FBADDF58652FF0C3FF853788B96273F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

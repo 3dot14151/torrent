@@ -6,7 +6,7 @@ Nico Morelli - Nico Morelli (2003) [FLAC|tracks]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607239.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Novi Singers - Novi sing Chopin (1995) [FLAC|tracks+.cue]<Vocal Jazz, Classical>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607235.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Les Double Six Meets Quincy Jones (1960 - 1962) 2016, Sony Music [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607059.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Gigi Gryce & Clifford Brown Sextet - Jazz Time Paris (1953) 2016, Sony Music [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607058.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Tony Bennett - Les Jazz RTL - Profession Crooner (2012) 2CD [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607047.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Tom Harrell - First Impressions: Debussy And Ravel Project (2015) HighNote [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606924.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ George Adams & Don Pullen Quartet - Live At Montmartre (1985) Remaster, 2015, So
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606902.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ The Three Sounds - Black Orchid (1962) Remaster, 2015, Universal[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606899.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Johnny Hodges - The Complete Verve Johnny Hodges Small Group Sessions (1956 - 19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606272.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Phil Woods - A Jazz Life (1956-1988) 1992, Philology [FLAC|Lossless|image + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605820.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Johnny Colon - Keeping It Real (2007) Johnny Colon [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605819.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Larry Coryell's 11th House - Seven Secrets (2016) Savoy Jazz [FLAC|Lossless|imag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605754.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Stan Getz - The Best Of Two Worlds featuring Joao Gilberto (1975) 2016, Sony Mus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605173.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Blue Mitchell - A Sure Thing (1962) 1994, OJC[FLAC|Lossless|tracks + .cue] <Hard
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605151.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Johnny Hodges Quintet - Buenos Aires Blues & The Eleventh Hour (1962, 1963) 2009
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605063.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Ruby Braff & Dick Hyman - America, The Beautiful (2002) Arbors Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604835.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Budapest Ragtime Band - Kitten On The Keys (2003) BRB Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604609.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Noordpool Orchestra - Radiohead, A Jazz Symphony (2012) [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604486.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Harry Allen - If Ever You Were Mine (2003) BMG Music [FLAC|Lossless|image + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604476.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Jackie McLean - 4, 5 and 6 (1956) 2012, Analogue Productions [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604474.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Harry Allen & Joe Temperley - Cocktails For Two (2007) Sackville [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604473.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ The Harry Allen Duo / Trio - I'll Never Be the Same (1995) N/A [FLAC|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604405.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Hank Mobley, Al Cohn, John Coltrane, Zoot Sims - Tenor Conclave (1956) 2014, Ana
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604402.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Harry Allen, Scott Hamilton, New York Sextet - Swing Brothers (2005) [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604319.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Cesaria Evora - Cafe Atlantico (1999) [APE|Lossless|image + .cue] <Jazz, Latin, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604250.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Larry Vuckovich - Somethin' Special (2011) Tetrachord Music [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604154.jpg" />
 </div>
 
 

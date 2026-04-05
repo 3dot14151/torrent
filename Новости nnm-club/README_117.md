@@ -1,3 +1,55 @@
+###  Публикация: 514592   (657401) от 24.06.2012
+
+Windows 7 SP1 x64 Plus WPI By StartSoft v 21.06.002.12 [Русский]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка создана на базе оригинального образа ru_Windows7_Ultimate_SP1_x64_dvd_618249 и в своем составе имеет три редакции x64bit с выбором по ходу установки операционной системы. Русские названия редакций переименованы на английские, во все редакции интегрированы  важные и некоторые необязательные обновления по 21 июня, отключены контроль учетных записей и служба по совмещению программ, имеется возможность смены экрана приветствия и управления размерами стрелок на ярлыках. Редакция Домашняя расширенная посвящена рок музыканту и певцу Elvis Presley и имеет соответственно такой же установочный визуальный стиль. В этой редакции мелодия запуска виндовс не менялась. Профессиональная редакция создана к 70летию рок музыканта и певца Пола Маккартни и имеет установочный визуальный стиль в стиле рок группы The Beatles. По ходу настройки этой редакции изменена мелодия запуска виндовс в стиле The Beatles. Максимальная редакция создана в стиле Classic @ Hard Rock, в этой редакции, так же изменена мелодия запуска виндовс. ( Отрывок (   Читать дальше...   )Название программы: Windows 7 SP1 x64 Plus WPI By StartSoft v21.06.002.12Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 902847   (657321) от 31.05.2015
+
+Робот по имени Чаппи / Chappie (2015) BDRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чаппи – высокоинтеллектуальный робот, созданный талантливейшим ученым. В отличие от тысяч аналогов, Чаппи может не только мыслить и развиваться, но и чувствовать, страдать, надеяться и мечтать. Одним словом, это – человек, только с большими интеллектуальными и физическими способностями и большим объемом памяти. Сейчас Чаппи – эдакий ребенок, который учится, шутит, (   Читать дальше...   )Производство: Мексика, США, ЮАР / Columbia Pictures, Alpha Core, Genre FilmsЖанр: Фантастика, Боевик, ТриллерРежиссер: Нил БломкампАктеры: Шарлто Копли, Дев Патель, Ниндзя, Йоланди Фиссер, Хосе Пабло Кантильо, Хью Джекман, Сигурни Уивер, Брэндон Оре, Джонни Селема, Андерсон КуперПеревод: Дублированный (iTunes)Язык субтитров: Русский, Украинский, АнглийскийПродолжительность: 02:00:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE99C41CEC3476B78C875E85E7DEF600BDA6FA7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 903029   (657320) от 31.05.2015
 
 Фунт плоти / Pound Of Flesh (2015) WEB-DL [H.264/720p-LQ] [VO]
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657320.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Video Copilot Element 3D 2.0.7.2008 (Motion Design Bundle) [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657319.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656351.jpg" />
 </div>
 
 
@@ -89,7 +141,7 @@ Rufus 2.2 (Build 668) Final Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656155.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655665.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655477.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ Mirillis Action! 1.5.0 [MUlti(Rus)]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_655187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_655187.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_655123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_655123.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655069.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655064.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654635.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ Malwarebytes Anti-Malware Premium 3.1.2.1733 DC 06.06.2017 RePack by KpoJIuK [Mu
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654479.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ Sid Meier's Civilization V: Complete v1.4.0 (2010) [Ru] [macOS Native game]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654430.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ BELOFF 2018.5.1 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654417.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ Kate Mobile Pro 49 [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654413.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_654153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_654153.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_654147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_654147.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_654134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_654134.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ Mirillis Action! 1.25.3.0 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654060.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654044.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ Slimjet 14.0.14.0 + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653753.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653449.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ Dragon Age - Anthology / Эпоха Дракона - Антология (2009-20
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653439.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ Core Temp 1.1 + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653053.jpg" />
 </div>
 
 
@@ -622,59 +674,6 @@ Core Temp - небольшая программа для мониторинга 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF6AA53D8D177155C9532A63BAEB095999843196
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031053   (652949) от 03.07.2016
-
-Бэтмен против Супермена: На заре справедливости / Batman v Superman: Dawn of Justice (2016) WEB-DL [H.264/1080p-LQ] [Extended Ultimate Edition] [RU/EN Sub]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Опасаясь, что действия богоподобного супергероя так и останутся бесконтрольными, грозный и могущественный страж Готэм Сити бросает вызов самому почитаемому в наши дни спасителю Метрополиса, в то время как весь остальной мир решает, какой герой ему по-настоящему нужен. И пока Бэтмен и Супермен пребывают в состоянии войны друг с другом, возникает новая угроза, которая (   Читать дальше...   )Производство: США / DC Entertainment, Dune Entertainment, SyncopyЖанр: фантастика, боевикРежиссер: Зак СнайдерАктеры: Генри Кавилл, Бен Аффлек, Галь Гадот, Джейсон Момоа, Эми Адамс, Джесси Айзенберг, Джена Мэлоун, Эзра Миллер, Дайан Лэйн, Джереми АйронсПеревод: Дублированный (iTunes)Субтитры: РусскиеПродолжительность: 03:02:31Реклама: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AD02CA65032F6560E3C5E97CC9B7B8F50C25DC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 512969   (652847) от 28.06.2012
-
-Побег из тюрьмы / Prison Break [1-4 сезоны + The Final Break] (2005 - 2009) [1080p] BDRip (Collection Polnometragnie)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_652847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проектировщик тюрем намеренно совершает преступление и попадает в одну из построенных им зон с целью помочь несправедливо осужденному брату избежать смертного приговора.
-Майкл Скофилд – отчаявшийся человек в отчаянных обстоятельствах: его родной брат Линкольн приговорен к смертной казни за убийство и пребывает в камере смертников в одной из самых строго охраняемых (   Читать дальше...   )Жанр: Драма, БоевикРежиссер: Бретт Рэтнер и др.Актеры: Уэнтуорт Миллер, Доминик Перселл, Робин Танни, Питер Стормаре, Уильям Фихтнер, Сара Уэйн Кэллис, Арнори Ноласко, Рокмонд Данбар, Уэйд Уильямс, Пол Эделстейн, Роберт Неппер, Маршалл ОлманПеревод: Дублированный "REN-TV"Формат: WMAПродолжительность: 1 ч. 28 м.
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

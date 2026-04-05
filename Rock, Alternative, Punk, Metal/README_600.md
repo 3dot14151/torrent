@@ -1,3 +1,32 @@
+###  Публикация: 1320078   (473267) от 17.08.2019
+
+King Gizzard And The Lizard Wizard - Infest the Rats' Nest (2019) [WEB] [FLAC|Lossless|tracks] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Planet B (03:56)
+02. Mars for the Rich (04:11)
+03. Organ Farmer (02:39)
+04. Superbug (06:43)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:34:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:520DEABA08B016B74E628DCD1CE4121731C1E18B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1406710   (473201) от 04.09.2020
 
 Panzerfaust - Тhе Suns Оf Реrditiоn: Сhарtеr II  (2020) [FLAC|Lossless|image + .cue] <Black Metal>
@@ -6,7 +35,7 @@ Panzerfaust - Тhе Suns Оf Реrditiоn: Сhарtеr II  (2020) [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473201.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Omega Diatribe - Metanoia (2020) [MP3|320 Kbps] <Progressive Metal, Groove Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473198.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ David Mark Pearce - Strаngе Аng3ls (2011) Jараnеsе Еditiоn [FLAC|Lossl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473184.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Thousand Thoughts - The First Wave (2020) EP [MP3|320 Kbps] <Alternative Rock, P
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473081.jpg" />
 </div>
 
 
@@ -121,7 +150,7 @@ Killer Deal - First One's Free (2020) [MP3|320 Kbps] <Blues Rock, Psychedelic Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473070.jpg" />
 </div>
 
 
@@ -150,7 +179,7 @@ Faro - Luminance (2020) [MP3|320 Kbps] <Alternative Rock, Progressive Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473069.jpg" />
 </div>
 
 
@@ -179,7 +208,7 @@ Celladoor - Maktub (2020) [MP3|320 Kbps] <Psychedelic Rock, Stoner Rock, Grunge>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473067.jpg" />
 </div>
 
 
@@ -208,7 +237,7 @@ Oceans of Slumber - Oceans of Slumber (2020) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473063.jpg" />
 </div>
 
 
@@ -237,7 +266,7 @@ Bailey - Long Way Down (2014) Jараnеsе Еditiоn [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473060.jpg" />
 </div>
 
 
@@ -266,7 +295,7 @@ Yellowcard - Yellowcard (2016) [MP3|320 Kbps] <Pop Punk, Alt.Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473052.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473046.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ Van Der Graaf Generator - Do Not Disturb (2016) [MP3|320 Kbps] <Progressive Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473043.jpg" />
 </div>
 
 
@@ -353,7 +382,7 @@ Simon Collins - Becoming Human (2020) [MP3|320 Kbps] <Progressive Rock, Melodic 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472938.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ Pianoбой - The Best Of (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472937.jpg" />
 </div>
 
 
@@ -411,7 +440,7 @@ The Atomic Bitchwax - Scorpio (2020) [MP3|320 Kbps] <Stoner, Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472934.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ Tommy Shaw - Ambition (1987) Remastered, 2013, Rock Candy [FLAC|Lossless|image +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472910.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472839.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472774.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472771.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ Follow The Cipher - Follow The Cipher (2018) [FLAC|Lossless|image + .cue] <Moder
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472759.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ VA - Детский сад. Штаны на лямках (2002) [FLAC|lossless|i
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472756.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Holy Force - Holy Force (2011) [MP3|320 kbps]<Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472706.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Sinsaenum - Echoes Of The Tortured (2016) [FLAC|Lossless|image + .cue] <Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472478.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ Kadaverficker - Kaos Nekros Kosmos (2020) [APE|Lossless|image + .cue] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472477.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ A Taste of Fear - God's Design (2017) [FLAC|Lossless|WEB-DL|tracks] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472473.jpg" />
 </div>
 
 
@@ -715,35 +744,6 @@ A Taste of Fear - God's Design (2017) [FLAC|Lossless|WEB-DL|tracks] <Death Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B0ADA228441E4C1268CEA8098DE19E9E070F8B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567495   (472470) от 03.08.2022
-
-Acanthosis - Scriptures of the Accursed (2022) [FLAC|Lossless|WEB-DL|tracks] <Technical, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Thirst of Knowledge (00:04:05)
-02 - Deep Scarlet, Chapter I - Impertinent Worship (00:03:35)
-03 - Deep Scarlet, Chapter II - Terraria now resides basking in red (00:02:58)
-04 - The Deep Beckons (00:04:15)(   Читать дальше...   )Жанр: Technical Brutal Death MetalПродолжительность: 00:32:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4877F851F39A40B99394E5C830CE8BDF7E4E883
 ```
 
 https://mybot314.ru/tekegram_catalog/

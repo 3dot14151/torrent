@@ -1,3 +1,55 @@
+###  Публикация: 1628761   (238762) от 24.04.2023
+
+К.В. Парфенов | Олимпиадная физика. 11 класс (2022) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238762.jpg" />
+</div>
+
+
+###  Подробнее
+
+Олимпиадная физика для 11-го класса - Парфенов Константин Владимирович. Интегрирование в задачах физики. Дифференциальные уравнения в физике. Динамика вращательного движения твердых тел. Динамика твердого тела. Кинетическая энергия твердого тела. Соударения твердых тел. Магнитостатика. Равновесие контура в магнитном поле. Индуктивность. Движение частиц в магнитном (   Читать дальше...   )Жанр: ФизикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4FC605FF204518979C7BDC248C4F9D439075EAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434228   (238711) от 28.04.2022
+
+Елена Качур | Детские энциклопедии с Чевостиком [18 книг] (2013-2021) [PDF, EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Увлекательные детские энциклопедии с Чевостиком знакомят ребенка с окружающим миром и его явлениями. Это авторский проект российской писательницы Елены Качур  «Аудиоэнциклопедии с Чевостиком» в книжном формате. Издания, объединены общим персонажем. Ребятам куда лучше запоминать информацию, если ее рассказывает какой-либо сказочный герой. Именно поэтому девчонки и (   Читать дальше...   )Жанр: Энциклопедия/Познавательная литератураИздательство: Манн, Иванов и Фербер (МИФ)Формат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFE1C6B5B2CD89FA49AEBD0D67BDDA0C4E35A87A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1637252   (238347) от 03.06.2023
 
 Георгий Шторм | Флотоводец Ушаков (1946) [PDF]
@@ -6,7 +58,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238347.jpg" />
 </div>
 
 
@@ -35,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238206.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238071.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238026.jpg" />
 </div>
 
 
@@ -116,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237967.jpg" />
 </div>
 
 
@@ -143,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237950.jpg" />
 </div>
 
 
@@ -169,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237893.jpg" />
 </div>
 
 
@@ -197,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237867.jpg" />
 </div>
 
 
@@ -223,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237843.jpg" />
 </div>
 
 
@@ -249,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237835.jpg" />
 </div>
 
 
@@ -276,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237818.jpg" />
 </div>
 
 
@@ -304,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237708.jpg" />
 </div>
 
 
@@ -331,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237693.jpg" />
 </div>
 
 
@@ -357,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237530.jpg" />
 </div>
 
 
@@ -383,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237523.jpg" />
 </div>
 
 
@@ -409,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237262.jpg" />
 </div>
 
 
@@ -435,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237234.jpg" />
 </div>
 
 
@@ -461,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237134.jpg" />
 </div>
 
 
@@ -487,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237094.jpg" />
 </div>
 
 
@@ -515,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237056.jpg" />
 </div>
 
 
@@ -541,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236995.jpg" />
 </div>
 
 
@@ -567,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236935.jpg" />
 </div>
 
 
@@ -593,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236914.jpg" />
 </div>
 
 
@@ -619,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236912.jpg" />
 </div>
 
 
@@ -631,60 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:474776B226078A71E8F120367B40AC12DEE846E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504765   (236899) от 24.10.2021
-
-Джен Калонита | Сказочная исправительная школа. Заколдованная библиотека. Книга 4 (2019) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236899.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четвёртая книга в серии «Сказочная исправительная школа».
-Джен Калонита – автор бестселлеров New York Times. И она знает о сказках, старых и новых, всё!
-После того как Румпельштильцхен покинул Сказочную исправительную школу, многие выдохнули с облегчением. Но только не Джилли! Ведь к главному преступнику Чароландии примкнула её любимая сестра Анна. Чтобы вернуть (   Читать дальше...   )Жанр: Детская литература/Фантастика/ПриключенияПеревод: А.Б. ВасильеваФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66B303956B8A5E69D84BE98880CEB206D1B06F22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504762   (236889) от 24.10.2021
-
-Уш Лун | Школа на Драконьей улице. Книга 2 (2021) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зёрену живётся несладко: в школе его постоянно задирает хулиган Антон, а родители заставляют заниматься спортом, хотя ему больше всего на свете нравится ухаживать за собаками в местном приюте. Вот бы ему разрешили взять одну из них себе… Но Зёрен и мечтать об этом не смел, пока не обнаружил, что в старой закрытой школе поселилась самая необыкновенная девочка на свете! (   Читать дальше...   )Жанр: Детская литература/ПриключенияПеревод: Сергей РюминФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:825AD5CF8BAF1BE139A0652FA156BCBC81740185
 ```
 
 https://mybot314.ru/tekegram_catalog/

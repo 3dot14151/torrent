@@ -6,7 +6,7 @@ ISLANDERS: New Shores (2025) [Ru/Multi] (Build #4ccdb730/dlc) Repack FitGirl [Th
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11664.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kaizen: A Factory Story (2025) [Ru/Multi] (1.0.0.0) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11342.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Reus 2 (2024) [Ru/Multi] (1.8.0/dlc) Repack FitGirl [Complete Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10992.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Dungeons 4 (2023) [Ru/Multi] (1.9.1/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10987.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Dungeons 4 (2023) [Ru/Multi] (1.9.1/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10727.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Endzone 2 (2024) [Ru/Multi] (1.0.9336.24144/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10181.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Ratopia (2023) [Ru/Multi] (1.0.0510) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9908.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Railway Empire 2 (2023) [Ru/Multi] (1.7.2.64310/dlc) Repack Let'sРlay [Deluxe E
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9825.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Against the Storm (2022) [Ru/Multi] (1.8.4R/dlc) Repack FitGirl [Complete]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9574.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Power & Revolution (2023) [Ru/Multi] (6.94/dlc) Repack FitGirl [2023 Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9448.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ dotAGE (2023) [Ru/Multi] (1.7.2/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9163.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Mars Base (2022) [Multi] (1.107) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9121.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Deck of Haunts (2025) [Ru/Multi] (1.16) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8931.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Terra Nil (2023) [Ru/Multi] (1.2.2_92.3d163d7) Repack Other s [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8816.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ RAILGRADE (2023) [Ru/Multi] (7.3.63.1) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8718.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Emergency 3 - Mission: Life / Emergency 3. Служба спасения 911 (20
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8693.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Emergency 3 - Mission: Life / Emergency 3. Служба спасения 911 (20
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8460.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Endzone 2 (2024) [Ru/Multi] (1.0.9356.17132) License GOG [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8188.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Endzone 2 (2024) [Ru/Multi] (1.0.9356.17132/dlc) Repack Let'sРlay [Supporter Ed
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8185.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Emergency: Fighters for Life (1998) [En] (1.0) License
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8133.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Terra Nil (2023) [Ru/Multi] (1.2.5) Repack FitGirl [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8115.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Tiny Witch (2023) [Ru/Multi] (1.1.3) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7783.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Odd Realm (2019) [En] (1.0.37.8) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7574.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Into the Emberlands (2024) [Ru/Multi] (1.1.0f3/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7566.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Black Forest (2016) [Multi] (2.4) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7564.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Inkshade (2025) [En] (1.0.004) Repack AIexandro
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7119.jpg" />
 </div>
 
 

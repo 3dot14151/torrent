@@ -1,32 +1,3 @@
-###  Публикация: 1626930   (240058) от 16.04.2023
-
-ХЛЕБ - Последний (2023) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240058.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Дэб
-2. Убили Кирилла
-3. Марина
-4. Дети(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:24:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C162ED1D69E3CEAF5DDB784764E7F09175DC3295
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1635137   (240052) от 24.05.2023
 
 KAYTRAMINE - KAYTRAMINE (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
@@ -35,7 +6,7 @@ KAYTRAMINE - KAYTRAMINE (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, R
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240052.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Lil Durk - Almost Healed (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, 
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239222.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ $uicideboy$ - YIN YANG TAPES: Winter Season (1989-1990) (2023) [FLAC 24/44.1|Los
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238920.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Lloyd Banks - The Course of the Inevitable 3: Pieces of My Pain (2023) [MP3|192 
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238283.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Sagath - Necrotica 2 (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235342.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Kussani - жизнь наоборот (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235307.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233523.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233522.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Davodka - Accusé De Réflexion (2017) [MP3|320 Kbps] <Rap, Hip-Hop, French Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233467.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232857.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231463.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227694.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227633.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ ATL - Радио Апокалипсис (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225258.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ VA - Chillhop Essentials - Winter (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop,
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224890.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_223453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_223453.jpg" />
 </div>
 
 
@@ -505,7 +476,7 @@ Anacondaz - 5 альбомов+Не альбомные записи (2009-2015) 
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223023.jpg" />
 </div>
 
 
@@ -534,7 +505,7 @@ Bob Marley & The Wailers - Africa Unite (2023) [MP3|320 Kbps] <Reggae>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223005.jpg" />
 </div>
 
 
@@ -563,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222846.jpg" />
 </div>
 
 
@@ -592,7 +563,7 @@ Playingtheangel - INFINITY (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222804.jpg" />
 </div>
 
 
@@ -621,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222618.jpg" />
 </div>
 
 
@@ -650,7 +621,7 @@ Emil Amos - Zone Black (2023) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap, Ambie
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222045.jpg" />
 </div>
 
 
@@ -679,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221918.jpg" />
 </div>
 
 
@@ -708,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221897.jpg" />
 </div>
 
 
@@ -737,7 +708,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221864.jpg" />
 </div>
 
 
@@ -751,6 +722,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:018E9F2BB60F3B84FEBC116C68B8294E93839A37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425245   (221549) от 20.11.2020
+
+Баста - 40 (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро [02:25]
+02. С самых низов [05:39]
+03. Верил всегда (feat. Odi) [05:44]
+04. Время догонит нас (feat. Moscow Gospel Team) [06:06](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 01:58:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C79B6FFBF1418FD755E2D10911F5E4BD3C3790C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 967766   (158411) от 21.12.2015
+
+Н. Бабаев, С. Кудрявцев | Летающие авиаигрушки (1935) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Настольные игры и Поделки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158411.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Летающие авиаигрушки» - рассчитана на юных авиастроителей и содержит в себе описание процессов постройки различных авиаигрушзк и способов их запуска и регулировки.
+Эта брошюра может быть также использована руководителями авиакружков и педагогами на уроках физики в виде иллюстрации простыми моделями основных законов аэродинамики.Жанр: Сделай сам, авиамоделизмФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA0A1E4AEA3D80E0EB71276C3436045F1D6B02D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967852   (158402) от 21.12.2015
+
+Геннадий Михеев | Страна фотография: маленькая книжка для больших детей (2014) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нередко меня спрашивают: «Существует ли хорошая детская книга о фотографии?» И я зависаю. Потому что хороших и полезных для детей книг о фотографии много, но все они содержат фрагменты, очевидно вредные для несовершеннолетних. Сами понимаете, что я имею в виду. Я напрягся и создал чистопородную детскую книжку. А уж хорошая она, плохая или обычная, судить тебе, читатель. (   Читать дальше...   )Жанр: ФотографияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D63CD6B38F8801AABC6A3FE82F19495DEBA8D511
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 967771   (158364) от 21.12.2015
 
 Н. Бабаев, С. Кудрявцев | Летающие игрушки [2-е исправленное и дополненное издание] (1939) [DJVU]
@@ -6,7 +59,7 @@
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158364.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158356.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158269.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158265.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158239.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158220.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158210.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158195.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158165.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158003.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157736.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157730.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157706.jpg" />
 </div>
 
 
@@ -350,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157620.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157595.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157574.jpg" />
 </div>
 
 
@@ -431,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157374.jpg" />
 </div>
 
 
@@ -459,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157352.jpg" />
 </div>
 
 
@@ -486,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157274.jpg" />
 </div>
 
 
@@ -512,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157253.jpg" />
 </div>
 
 
@@ -539,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157172.jpg" />
 </div>
 
 
@@ -565,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157092.jpg" />
 </div>
 
 
@@ -592,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157081.jpg" />
 </div>
 
 
@@ -619,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157041.jpg" />
 </div>
 
 
@@ -631,61 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7C4023E2666707DAB647774ACD2E0272812B101
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 350057   (156895) от 18.12.2021
-
-А. Н. Афанасьев (сост.) | Народные русские сказки [в трех томах] (1984-1985) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Народные русские сказки - мудрые и поучительные, смешные и грустные, наивные и лукавые, но всегда чарующие, увлекающие в свой волшебный мир, где лиса может быть исповедницей, а лягушка - царевной, где живут-поживают Крошечка-Хаврошечка, Василиса Прекрасная и Кощей Бессмертный, где играют гусли-самогуды, а золотая рыбка исполняет любые заветные желания.
-Собрание сказок, (   Читать дальше...   )Жанр: Художественная литература, сказки, фольклорФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3BD718F538613607151F37411259315BAE8617B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085676   (156869) от 22.12.2016
-
-Валентин Тублин | Золотые яблоки Гесперид (1976) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повесть о современных школьниках.
-
-Увлекая своего героя и читателя в мир гомеровской Древней Греции, автор показывает, что с давних времен талантливым открытиям предшествовала та же жажда подвига, знания и творчества, которая живет в душе самых обыкновенных ребят.Жанр: Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2DF91319CE4E58274849FD84820F0672A57C8A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

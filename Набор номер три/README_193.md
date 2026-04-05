@@ -1,3 +1,161 @@
+###  Публикация: 1276087   (788389) от 15.01.2019
+
+Windows 7 SP1 х86-x64 by g0dl1ke 19.1.12 [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стабильная сборка на базе MSDN windows 7 х86-x64 с интегрированными обновлениями по январь 2019 года и полезными твиками, по рекомендациям simplixЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FB1A78F879F564E195736F5A4FE56DE84BC8930
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071610   (788387) от 15.01.2019
+
+Ученик (2016) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>10
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир устроен неправильно. Мир погряз во зле. Много лжи, вранья, лицемерия. Добродетель поругана. Вера утрачена. Главный герой, мальчик Вениамин, считает, что знает все о моральных нормах. Как их надо соблюдать, от кого их надо защищать, что такое хорошо и что такое плохо. Его поведение для окружающих становится серьезным испытанием. Где граница между моралью и нетерпимостью, (   Читать дальше...   )Производство: РоссияЖанр: ДрамаРежиссер: Кирилл СеребренниковАктеры: Виктория Исакова, Петр Скворцов, Александр Горчилин, Юлия Ауг, Александра Ревенко, Антон Васильев, Николай Рощин, Светлана Брагарник, Ирина Рудницкая, Марина Клещева.Перевод: Не требуется (русский, iTunes)Субтитры: ОтсутствуютПродолжительность: 01:53:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF81D2EFF25D2F55B602C7674E818C5977FA9886
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276142   (788386) от 15.01.2019
+
+AllWinUSB Constructor by SmokieBlahBlah 14.01.19 [Ru/En]
+
+>>3
+>>12
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788386.jpg" />
+</div>
+
+
+###  Подробнее
+
+    Конструктор мультизагрузочной флешки (или внешнего жесткого диска) с выбором компонентов для записи, содержащий все сборки Windows от SmokieBlahBlah (XP/7/8.1/10) с обновлениями по январь 2019 (кроме XP и 10 LTSB). Также есть возможность добавить 2k10 Live и WinPE Sergei Strelec.
+    При установке Windows опционально (ставите нужные галочки) доступны: активация, (   Читать дальше...   )Язык интерфейса: Русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D3278460C43EBB6C5A3023382D1EA477718E5A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511055   (788250) от 22.11.2021
+
+Легендарный медиаплеер, по которому тоскуют фанаты, выводят из многолетнего анабиоза
+
+>>3
+>>13
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_788250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый проигрыватель Winamp, похоже, готов к своему возвращению. Владелец проекта обещал «оживить» его с 2013 г., но на этот раз все очень серьезно. Плеер получил новые логотип и сайт, и желающие даже могут принять участие в бета-тестировании его новой версии.Winamp жив
+В обозримом будущем к жизни может вернуться легендарный плеер Winamp, появившийся в конце (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510971   (788249) от 22.11.2021
+
+Windows 10 Enterprise LTSC 2021: Основные изменения
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_788249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Microsoft выпустила новую версию Windows для долгосрочного канала обслуживания Windows 10 Enterprise LTSC 2021, предназначенную для корпоративных клиентов. Новый выпуск основан на Windows 10 Enterprise LTSC 2019 и включает набор функций, эквивалентный Windows 10, версия 21H2.В отличие от Windows 10 Enterprise LTSC 2019, Windows 10 Enterprise LTSC 2021 включает (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511801   (788246) от 22.11.2021
+
+Farming Simulator 22 (2021) [Ru/Multi] (1.1.1.0/dlc) License FAIRLIGHT
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Farming Simulator 22 – очередная часть серии симуляторов фермера, в которой вас ждет около 400 единиц техники от более сотни реальных бендов и новые сельскохозяйственные культуры, а также смена сезонов. Кроме этого игра предлагает улучшенную оптимизацию, продвинутый искусственный интеллект и поддержку модов от пользователей.Тип издания: LicenseРазработчик: Giants SoftwareЖанр: Simulator, 3DЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:573CE994696DC6F458CA68E71129EC6423AA87C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511760   (788244) от 22.11.2021
 
 XYZ School, Артем Гансиор | Movie Man (2021) WEB-DL [AD]
@@ -6,7 +164,7 @@ XYZ School, Артем Гансиор | Movie Man (2021) WEB-DL [AD]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788244.jpg" />
 </div>
 
 
@@ -35,7 +193,7 @@ F.E.A.R. 2: Project Origin (2009) [Ru/En] (1.05/dlc) Repack Other s [Допол�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788242.jpg" />
 </div>
 
 
@@ -62,7 +220,7 @@ Avira Phantom VPN Pro 2.37.4.17510 RePack by elchupacabra [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788241.jpg" />
 </div>
 
 
@@ -88,7 +246,7 @@ CAS удовлетворил апелляции 28 российских атле
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_788012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_788012.jpg" />
 </div>
 
 
@@ -114,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_787994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_787994.jpg" />
 </div>
 
 
@@ -140,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_787967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_787967.jpg" />
 </div>
 
 
@@ -167,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787916.jpg" />
 </div>
 
 
@@ -194,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787909.jpg" />
 </div>
 
 
@@ -223,7 +381,7 @@ KMS Tools Portable 01.02.2018 by Ratiborus [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787904.jpg" />
 </div>
 
 
@@ -249,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_787871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_787871.jpg" />
 </div>
 
 
@@ -275,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787867.jpg" />
 </div>
 
 
@@ -301,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787860.jpg" />
 </div>
 
 
@@ -327,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>16
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787859.jpg" />
 </div>
 
 
@@ -353,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787858.jpg" />
 </div>
 
 
@@ -379,7 +537,7 @@ Microsoft обещает улучшить производительность W
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_787759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_787759.jpg" />
 </div>
 
 
@@ -405,7 +563,7 @@ Profileschool | История искусства – современному �
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787737.jpg" />
 </div>
 
 
@@ -432,7 +590,7 @@ Need for Speed Anthology (1997-2017) [Ru/En] Repack R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787736.jpg" />
 </div>
 
 
@@ -458,7 +616,7 @@ King of Seas (2021) [Ru/Multi] (1.20) License GOG
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787734.jpg" />
 </div>
 
 
@@ -484,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787733.jpg" />
 </div>
 
 
@@ -510,170 +668,13 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_787533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_787533.jpg" />
 </div>
 
 
 ###  Подробнее
 
 2 февраля отмечается День воинской славы России — День разгрома советскими войсками немецко-фашистских войск в Сталинградской битве (1943), установленный в соответствии с Федеральным законом от 13 марта 1995 года "О днях воинской славы и памятных датах России".Сталинградская битва — одна из крупнейших в Великой Отечественной войне 1941-1945 годов. Она началась (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276366   (787438) от 17.01.2019
-
-Microsoft назвала дату смерти Windows 7
-
->>3
->>13
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_787438.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Microsoft рассказали, что вскоре количество официально поддерживаемых версий Windows сократится. Разработчики игр уже давно готовят пользователей к переменам: в системных требованиях новых релизов всё чаще мелькает одна лишь Windows 10 (вместе с 8). Каждый раз это становится неприятным сюрпризом для геймеров, однако вскоре, очевидно, вопрос будет закрыт: корпорация (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276426   (787435) от 17.01.2019
-
-Звезда родилась / A Star Is Born (2018) WEB-DL [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кантри-музыкант Джексон Мейн, чья карьера быстро катится под откос, однажды знакомится с никому не известной талантливой певицей Элли. Между героями вспыхивает страстный роман. Джек помогает Элли добиться успеха. Но чем стремительнее набирает обороты музыкальная карьера Элли, тем сложнее ему мириться со своей увядающей славой.Производство: США | Warner Bros. Pictures, Metro-Goldwyn-Mayer, Thunder RoadЖанр: Мелодрама, музыкаРежиссер: Брэдли КуперАктеры: Леди Гага, Брэдли Купер, Сэм Эллиотт, Эндрю Дайс Клэй, Рафи Гаврон, Энтони Рамос, Дэйв Шаппелл, Алек Болдуин, Марлон Уильямс, Брэнди КарлайлПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), Английские (SDH)Продолжительность: 02:15:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D6617C0C337E03BF47F073667B05967FFA34CE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276735   (787434) от 17.01.2019
-
-Дубликат / Jonathan (2018) BDRip [H.264]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как многие жители Манхэттена, Джонатан просыпается ровно в 7 утра и отправляется на работу, а вечером ложится спать. Вроде бы всё, как у всех. Если бы не одно «но» — каждый день молодой человек проживает две жизни. Пока одна личность спит, вторая ведёт активную жизнь. И каждое утро Джонатану приходит видео от самого себя — о том, что он делал во второй половине дня. (   Читать дальше...   )Производство: США / Manis Film, Raised by WolvesЖанр: Фантастика, ДрамаРежиссер: Билл ОливерАктеры: Энсел Элгорт, Сьюки Уотерхаус, Патриша Кларксон, Мэтт Бомер, Дуглас Ходж, Сулейман Си Саване, Шунори Раманатхан, Джо Эгендер, Йен Унтерман, Алок ТевариПеревод: Профессиональный (многоголосый закадровый) iTunes, Любительский (многоголосый закадровый) HDrezka StudioСубтитры: АнглийскиеПродолжительность: 01:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:897230B1061DAAD4F9F1EA64B674C6DD515CAC35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203518   (787416) от 03.02.2018
-
-Windows 7 SP1 x86 x64 AIO Release by StartSoft 05-2018 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка предназначена для установки на компьютеры операционной системы Windows 7 SP1 с разной разрядностью. В ее состав входит образ ISO который предназначен для записи на флешку от 16 Гигабайт и выше. В сборке поддерживается установка системы с языковыми интерфейсами на английском, русском и украинском языках. Операционная система  устанавливается на том языке, который (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DA7467ADB1453293B59B713A105EF8E7CB117EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203524   (787412) от 03.02.2018
-
-loftschool | Комплексное обучение JavaScript (2017-2018) PCRec [H.264]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс разрабатывался и задумывался с самого основания нашей школы. Мы долго работали над ним и теперь готовы вам представить самый глубокий и полноценный курс по JavaScript в русскоязычном интернете. Если вы готовы погрузиться в захватывающий мир JavaScript-программирования и настроены получить максимум знаний и навыков — то вы пришли в правильное место. Наша (   Читать дальше...   )Жанр: Программирование, JavaScriptПродолжительность: 53:18:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23299B13598ADF6D4F3C15C8639C6DDFBE55F82D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511909   (787273) от 24.11.2021
-
-«Блокировать, зачищать, понижать рейтинг». Новые идеи по развитию интернета в России
-
->>3
->>9
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_787273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Супруг Натальи Касперской Игорь Ашманов собирается предложить Президенту России Владимиру Путину идею по созданию в стране реестра «токсичного» контента. Под ним он подразумевает, помимо прочего, ЛГБТ-сообщества и мнения людей о нежелании становиться родителями. У Ашманова уже готова концепция реестра.Борьба с «токсичным» интернетом
-В России может появиться еще один (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,55 @@
+###  Публикация: 1292160   (648161) от 28.03.2019
+
+Acronis True Image 2019 Build 17750 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648161.jpg" />
+</div>
+
+
+###  Подробнее
+
+Acronis True Image — это интегрированный пакет программ, обеспечивающий безопасность всей информации на вашем компьютере. True Image предоставляет возможность создавать резервные копии операционной системы, приложений, пользовательских настроек и всех имеющихся данных, а также надежно уничтожать всю конфиденциальную информацию, ставшую ненужной. C помощью этого программного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EC2E037E557FD8C68FDAB121ED6530645E82CFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523454   (648093) от 01.04.2022
+
+Sabikui Bisco | Rust-Eater Bisco | Биско-ржавоед [2022, TV, 12 эп.] WebRip 720p raw
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вся Япония превратилась в выжженную пустошь, когда взрыв огромного оружия привёл к возникновению «Ржавого ветра», загадочного феномена, пожирающего города и живые организмы. Биско Акабоси — представитель печально известного клана «Грибных стражей», который отправляется в путь, чтобы найти волшебный гриб «Ржавоед» и спасти своего учителя от верной гибели. В дороге (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Итагаки АцусиПеревод: Funimation; Wakanim (1-9) + AniLibria (10-12)Язык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AC18FEE942D6D76E057A0AFB02E937768175C09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140508   (647942) от 11.06.2017
 
 Живое / Life (2017) BDRip
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647942.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ BELOFF 2017.6 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647932.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647930.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647658.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_647058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_647058.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ foobar2000 1.3.8 Stable Portable by LUR v.150326 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646789.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Adobe Photoshop Lightroom 6.0.1 RePack by D!akov (Upd. 07.06.2015) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646785.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646605.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_646455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_646455.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646344.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_646341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_646341.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ JetBrains PhpStorm 2019.1 Build #PS-191.6183.95 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646338.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646335.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4678.1000
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646270.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646230.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ KDE neon 5.10.1 (20170609) [x86-64] 7xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646086.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ Proxy Switcher Pro 5.22.0.7466 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646072.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645754.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_645573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_645573.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_645399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_645399.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645245.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ Adobe After Effects CC 2015.3 (13.8.0.144) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645146.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645144.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645138.jpg" />
 </div>
 
 
@@ -624,61 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93410C39DAA93C3A7B0006032370ED00D3AC76D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906380   (645048) от 08.06.2015
-
-Российские эксперты научились управлять техникой силой мысли
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_645048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глава Фонда перспективных исследований (ФПИ) Андрей Григорьев сообщил об успешном завершении проекта по разработке интерфейса «мозг-компьютер», который позволит управлять техникой при помощи мысли.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 43388   (644792) от 08.06.2015
-
-Muse - 7albums + 7EPs + 27singles (1997-2015) [MP3|320kbps] <Alternative Rock>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644792.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Alternative Rock, New Prog, Electronic Rock |Продолжительность: 00:09:45
-01  Follow Me                                            3:51
-02  Follow Me (Jacques Lu Cont's Thin White Duke Mix)    5:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBB4586BDAA5F74F1AF3F69678B9193F776E6496
 ```
 
 https://mybot314.ru/tekegram_catalog/

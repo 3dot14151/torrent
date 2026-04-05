@@ -1,333 +1,25 @@
-###  Публикация: 1132669   (698859) от 10.05.2017
+###  Публикация: 1402611   (699571) от 15.08.2020
 
-VA - Speakeasy Electro Swing Compilation Vol. 1 - The Sounds of the Speakeasy (2013) [MP3|320 Kbps] <Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lazlo - Honey Pie IV (Beatles Electro Swing remix) (05:31)
-02. Defunk - Scatman Crothers - Keep that Coffee Hot (Defunk Remix) (03:49)
-03. Harry Chestwig - 4get About The Blues 2night (04:20)
-04. Smokey Joe and the Kid - The Monkey Song (03:07)(   Читать дальше...   )Жанр: Electro SwingПродолжительность: : 01:23:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA2C5453A96AAC98A8C722E1DAEEE5EB8AFA854B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132793   (698858) от 10.05.2017
-
-Газета | Сад, огород – кормилец и лекарь. Спецвыпуск №8 (152) (Апрель 2017) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый спецвыпуск издания "Сад, огород – кормилец и лекарь" посвящен определенной теме, волнующей читателей. На их письма отвечают специалисты и журналисты. А также сами читатели делятся опытом и дают мудрые советы.Жанр: Дача, сад, огородФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9840F57CF5920072BA385FB74D87CD6C1572E126
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 894429   (698849) от 06.05.2015
-
-ZZ Top - Stagecoach - California's Country Music Festival (2015) HDTV [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выступление ZZ Top На California's Country Music Festival01. Got Me Under Pressure
-02. Waitin' for the Bus
-03. Jesus Just Left Chicago
-04. Gimme All Your Lovin'(   Читать дальше...   )Производство: Страна: США, Axs.TVЖанр: Rock, Hard Rock, Blues RockФормат: MPEG-TSПродолжительность: 01:15:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10BB81A979DAE2047A331AAF0AEE8B9EC96E199C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 895358   (698848) от 06.05.2015
-
-Н. А. Ганина | Новый самоучитель немецкого языка (2014) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самоучитель содержит 60 уроков, в которых представлены основные темы грамматики, полезная лексика, необходимая в повседневном общении и одно-два упражнения. Также вы найдете интересную страноведческую информацию, забавные анекдоты и пикантные ситуации, которые могут случиться с вами в Германии. Методические приемы построения данной книги выработаны поколениями, в то же время автор использовал исключительно живой разговорный язык. В конце самоучителя – ключи к упражнениям и немецко-русский словарь. Для всех, (   Читать дальше...   )Жанр: Иностранный язык, самоучительФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:734B69EA250D074D3ACAEE3FC6605DC8D6324D27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 895603   (698843) от 06.05.2015
-
-DjVuLibre DjView 4.10.1 RePack (& Portable) by Trovel [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698843.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа DjVuLibre DjView представляет собой свободное программное обеспечение и предназначена для просмотра, конвертирования, распространения документов и изображений в формате DjVu. Загрузка приложения DjVu происходит намного быстрее, чем у других подобных программ такого рода. Изображения в DjVuLibre могут изменяться - как в масштабе, так и возможно графическое изменение содержимого. DjVuLibre - включает в себя средства просмотра, дополнения к программе-браузеру. DjVu включает в себя несколько технологий (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C00A42F591F0A1557FFCCF854FE6629E571196FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 895457   (698838) от 06.05.2015
-
-Re-Loader 1.3 RC 5 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Re-Loader Activator - ещё один автоматический активатор Windows XP/7/8/8.1/10TP и Office 2010/2013/2015.
-Есть возможность изменения ОЕМ информации в свойствах системы..Язык интерфейса: Мульти/Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B736182A30AE60A00FAEABBCFDF1438202E2BE72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220828   (698810) от 22.04.2018
-
-Martial Solal - At Newport '63 (2016) Sony Music [FLAC|Lossless|image + .cue] <Bop, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Poinciana [04:34]
-02. Clouds [03:06]
-03. Suite Pour Une Frise [11:56]
-04. Stella By Starlight [04:21](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 00:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80A961D30259745987C4732FE23D5A0FB181A5F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221056   (698809) от 22.04.2018
-
-Oscar Pettiford Sextet (1954) 2016, Sony Music [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burt's Pad [09:47]
-02. Marcel The Furrier [06:01]
-03. Ondine [03:10]
-04. Stardust [05:11](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:40:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F45EBC89606A5228F6D164D39876F77767F64A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221059   (698808) от 22.04.2018
-
-Curtis Fuller Jazztet with Benny Golson (1959) 1991, Savoy Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's All Right With Me [07:39]
-02. Wheatleith Hall [14:06]
-03. I'll Walk Alone [06:57]
-04. Arabia [06:36](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7FEC85F9F1D62E4D1162D73A40D0CFC3E38F52D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220985   (698807) от 22.04.2018
-
-VA - Artworx Vol.1. (Mixed by Nicholson) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Yorrin – Nebula (Original Mix)
-02. Melvin Sheppard – Telekinetic (Original Mix)
-03. Nicholson – Perfect Storm (Original Mix)
-04. Nicholson feat. Niki Mak – To The Flame (Charlotte’s Theme) (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:31:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D2F315F7FF4E9BC4683FFA06AF88781E74DD6F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221087   (698806) от 22.04.2018
-
-VA - Spring Essentials: April House (2018) [MP3|320 Kbps] <House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698806.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Patrick Topping - Be Sharp Say Nowt (Original Mix)
-002. Shashaf - Monkey Fun (Original Mix)
-003. KDA & Patrick Cash - Hate Me (Original Mix)
-004. Bicep - Metro (Original Mix)(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 10:47:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7F8FFB6966C4A6C6C4ED4F7E7F3D70898DD5378
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221035   (698805) от 22.04.2018
-
-Хоккей. Евро хоккей тур 2017-2018. Чешские игры 2018. Финляндия – Чехия (19.04.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Футбол. Чемпионат России 2020-2021. 2-й Тур. Спартак М — Ахмат (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699571.jpg" />
 </div>
 
 
 ###  Подробнее
 
-19 апреля 2018 года, четверг. 20:00 МСК
-Еврохоккейтур 2017-2018. Чешские игры 2018
-Финляндия – Чехия
-Стадион: Типспорт-Арена (Пардубице, Чехия), 6212 зрителей (61 % при вместимости 10194)(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:55:08
+Тинькофф Российская Премьер-Лига. Чемпионат России 2020-2021. 2-й Тур.
+14 августа 2020, пятница. 20:00 МСК
+Спартак (Москва) — Ахмат (Грозный)
+Стадион: Открытие Арена (Москва, Россия), 8946 зрителей (20 % при вместимости 45360)(   Читать дальше...   )Телекомпания: Матч! Премьер HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:45:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:13188C3777993C4E44B6F497D02A9CA0879441F7
+magnet:?xt=urn:btih:0C06A6872FAE2A3B9E57C289212007DAA5C66924
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -335,310 +27,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220514   (698804) от 22.04.2018
+###  Публикация: 1402745   (699570) от 15.08.2020
 
-Eddie South - 1937 - 1941 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swing, Violin Jazz>
+Питер Акройд | Тюдоры. От Генриха VIII до Елизаветы I (2020) [EPUB]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_699570.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fiddle Blues [02:47]
-02. Interpretation Swing Du Premier Mouvement Du Concerto En Re Mineur De Jean-Sebastien Bach - Part 2 [03:23]
-03. Honeysuckle Rose [03:06]
-04. On The Sunny Side Of The Street [03:03](   Читать дальше...   )Жанр: Swing, Violin JazzПродолжительность: 00:57:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42D5CA6691E541BA5D9B345957C7E8EE6960D480
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220991   (698803) от 22.04.2018
-
-Danielle Bradbery (Даниэль Брэдбери) - The Voice: The Complete Season 4 Collection (2013) Universal Motown Records Group [MP3|256 Kbps] <Pop, Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Даниэль Брэдбери - американская кантри-певица, ставшая победительницей четвертого сезона шоу «Голос» и успевшая порадовать слушателей одноименным дебютным альбомом «Danielle Bradbery» в ноябре 2013 года, перепела один из главных хитов Адель, «Set Fire to the Rain» (2011). Дебютным синглом юной исполнительницы после победы в «Голосе» стала композиция «The Heart Of (   Читать дальше...   )01. Mean 3:31
-02. Put Your Records On 3:37
-03. Jesus, Take the Wheel 3:25
-04. Maybe It Was Memphis 3:23(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 00:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C772AEF3D6FB51DD0CADCDFF604FA45A363E88F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220982   (698802) от 22.04.2018
-
-Danielle Bradbery (Даниэль Брэдбери) - Danielle Bradbery (2013) Republic Nashville, Deluxe Edition [MP3|320 Kbps] <Pop, Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Даниэль Брэдбери - американская кантри-певица, ставшая победительницей четвертого сезона шоу «Голос» и успевшая порадовать слушателей одноименным дебютным альбомом «Danielle Bradbery» в ноябре 2013 года, перепела один из главных хитов Адель, «Set Fire to the Rain» (2011). Дебютным синглом юной исполнительницы после победы в «Голосе» стала композиция «The Heart Of (   Читать дальше...   )01. Young In America 3:43
-02. Wild Boy 3:41
-03. The Heart of Dixie 3:30
-04. I Will Never Forget You 3:47(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 00:53:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D9AE201DF72B6BE8D6219745A43B47DC368C74F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220983   (698801) от 22.04.2018
-
-VA - Power Workout Vol.2 (2018) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forward - Fall of Illusions (Original Mix) 07:59
-02. Tektoys - Nothern Woods (Mundo Celebris Remix) 05:38
-03. Tom Stribol - Almost Panacea (Original Mix) 07:28
-04. Andrey Meduer - Progressive Strіngs (Original Mix) 08:22(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:435EED9DB96949657A63A6D3BD802F98951BE774
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221057   (698800) от 22.04.2018
-
-Hazem Beltagui - VIVID (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Hazem Beltagui - Made Of Light (In Memory Of Helena Copto)(Original Mix)
-02.Hazem Beltagui - Reasons To Love (Original Mix)
-03.Hazem Beltagui & Ataberk Onal - You Were Always Mine (Original Mix)
-04.Hazem Beltagui & Rebecca Louise Burch Fade Away (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:28:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:723F0094E695CE80C5D1E5A838936C31C6DD72CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221034   (698799) от 22.04.2018
-
-Bicep - Rain (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698799.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Rain (Edit) (04:00)
-2. Rain (05:51)
-3. Helix (05:10)Жанр: Electronic, House, TechnoПродолжительность: 00:15:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7218F852D3B5F9C4CFE018F922A6340C0324E6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132817   (698798) от 10.05.2017
-
-VA - Summer Mix 2017: Marbella Dance Music Vol.01 (Mixed By Deep Dreamer) (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Aly Neto - Kussanguluka 05:15
-02. Dainpeace - Requal Dalo - Extended Mix 04:07
-03. DJ Favorite - Rock the Party - DJ Dnk Remix 03:51
-04. House Hustler - Something Unreal 05:08(   Читать дальше...   )Жанр: HouseПродолжительность: 03:41:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF740DB8BFA42A8FB98C68157EBBEBD0C5A63325
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132869   (698797) от 10.05.2017
-
-VA - Greatest Ever! Brazil (2012) [MP3|320 Kbps] <World Music, New Age, Brazil>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clara Moreno, OrlandrVo - Tamanco No Samba
-02. Nina Miranda, Zeep, Chris Franck - Keep an Eye On Love
-03. Banda Black Rio, Marcio Local - Quern Vem Li
-04. Marcos Valle - Parabens(   Читать дальше...   )Жанр: World Music, New Age, BrazilПродолжительность: 03:19:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FADE4791EBD4F8A36961602DBABD665B766A0482
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132677   (698796) от 10.05.2017
-
-VA - Speakeasy Electro Swing Compilation Vol. 3 - Swing-Hop Don't Stop (2014) [MP3|320 Kbps] <Electro Swing, Electro Blues, Hip Hop>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dedy Dread & Dj Rebel feat. Delhi Sultanate - Criss N Shine (03:45)
-02. Ray Charles - I Got A Woman (Beatsy Collins Edit) (02:53)
-03. ProleteR - It don't mean a thing (03:38)
-04. Mr Frisbee - No Swingity (04:12)(   Читать дальше...   )Жанр: Electro Swing, Electro Blues, Hip HopПродолжительность: 01:37:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:279E49D856371CCFD112C25E0E8B201F75C02788
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132759   (698795) от 10.05.2017
-
-Sylvie Vartan - Confidanses (1989) [FLAC|Lossless|tracks + .cue] <Pop , Chanson>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C'est Fatal 3:31
-YouTube: Q6SUwv4RmmM
-(Michael Cretu / D.Barbelivien)
-02. Ca va de soi 3:32(   Читать дальше...   )Жанр: Pop , ChansonПродолжительность: 00:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B770936FE8026180B70BED09EC1316C436DBBB7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132196   (698794) от 10.05.2017
-
-Астрономы считают, что большинство из пригодных для жизни планет могут быть полностью покрыты водой
-
->>Поговорим
->>DailyTechInfo
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_698794.jpg" />
-</div>
-
-
-###  Подробнее
-
-В представлении большинства людей пригодная для жизни планета является своего рода "двойником" Земли, где площади суши и океанов находятся в идеальном балансе друг относительно друга. Однако, в реальности все может обстоять совершенно иначе, согласно исследованиям, проведенным Фергусом Симпсоном (Fergus Simpson) из университета Барселоны (University of (   Читать дальше...   )
+История Англии – это непрерывное движение и череда постоянных изменений. Но всю историю Англии начиная с первобытности пронизывает преемственность, так что главное в ней – не изменения, а постоянство. До сих пор в Англии чувствуется неразрывная связь с прошлым, с традициями и обычаями. До сих пор эта страна, которая всегда была единым целым, сопротивляется изменениям (   Читать дальше...   )Жанр: Популярно об историиПеревод: Инна ЧерненкоФормат: EPUB
 
 ## Скачать торент
 ```bash
@@ -650,21 +53,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132801   (698793) от 10.05.2017
+###  Публикация: 1402524   (699569) от 15.08.2020
 
-Машины-монстры: Oklahoma Willy - Фольксваген 1958 года, способный разгоняться до 480 километров в час
+Футбол. Лига Чемпионов УЕФА 2019-2020. 1/4 Финала. Барселона (Испания) — Бавария (Германия) (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
->>Поговорим
->>DailyTechInfo
+>>
+>>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_698793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_699569.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Перри Уоткинс (Perry Watkins), известный в определенных кругах умелец и автолюбитель, продемонстрировал всему миру свое очередное удивительное творение. Этим творением стал пикап VW type 2 Transporter 1958 года выпуска, на который был установлен реактивный двигатель от истребителя, мощностью 5 тысяч лошадиных сил. И такая мощность позволила разогнать восстановленный и кардинально переделанный грузовичок до скорости 480 километров в час (300 миль в час) на стандартной дистанции в четверть мили.(   Читать дальше...   )
+Лига Чемпионов УЕФА 2019-2020. 1/4 Финала.
+14 августа 2020, пятница. 22:00 МСК
+Барселона (Барселона, Испания) — Бавария (Мюнхен, Германия)
+Стадион: Да Луш (Лиссабон, Португалия), вместимость: 65647(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:48:18
 
 ## Скачать торент
 ```bash
@@ -676,25 +82,129 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132778   (698792) от 10.05.2017
+###  Публикация: 1402550   (699568) от 15.08.2020
 
-Н. А. Рубакин | Из мира науки и из истории мысли (1896) [PDF]
+Кто я 2015 (Амнезия) / Wo shi shei 2015 / Who Am I 2015 / Amnesia (2015) WEB-DL [H.264/1080p-LQ] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699568.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нечаянно попав на место убийства, курьер Ли Цзывэй пытается сбежать, но преступники скидывают его с моста, в результате чего Ли Цзывэй теряет способность различать лица. Не знающий в лицо своих врагов, он должен опередить убийц и полицейских, дабы очистить свое имя, т.к. в убийстве обвиняют его.Производство: Китай, Beijing Huabo Longyun Entertainment Co.Жанр: Боевик, триллер, драма, детектив, приключенияРежиссер: Сун ИньсиАктеры: Оушен Ванг, Яо Синтун, Кэн Ло, Чжан Ланьсинь, Юй ЖунгуанПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: Английские- hardsub (неотключаемые), русские - отдельным файломПродолжительность: 01:41:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A42EB2506A3F537226E375E6D1DCFEEF9D91D99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402744   (699567) от 15.08.2020
+
+Питер Акройд | Основание. От самых начал до эпохи Тюдоров (2020) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699567.jpg" />
+</div>
+
+
+###  Подробнее
+
+История Англии – это непрерывное движение и череда постоянных изменений. Но всю историю Англии начиная с первобытности пронизывает преемственность, так что главное в ней – не изменения, а постоянство. До сих пор в Англии чувствуется неразрывная связь с прошлым, с традициями и обычаями. До сих пор эта страна, которая всегда была единым целым, сопротивляется изменениям (   Читать дальше...   )Жанр: Популярно об историиПеревод: Виктория КраснянскаяФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A5880D3B334F5150495D52808D4B513019CC3B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402651   (699566) от 15.08.2020
+
+Карл Рюберг | Свет твоей жизни. Искусство использования света для улучшения качества жизни (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Свет, который служит нам ежедневно, оказывает огромное влияние на наш мозг, настроение и здоровье, но все же мы склонны уделять качеству освещения слишком мало внимания. Мы просыпаемся в темноте, щелкаем выключателем, идем на работу – и часами сидим за мониторами компьютеров, изо дня в день не замечая ошибок в своем обращении со светом. Жалуемся на головные боли, (   Читать дальше...   )Жанр: Здоровье, НейропсихологияПеревод: Виктория СтепановаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20DE96425A22E6E4F8725EA9F1DDF5C4CEC033CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402658   (699565) от 15.08.2020
+
+EarthView 6.4.9 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699565.jpg" />
+</div>
+
+
+###  Подробнее
+
+EarthView - это динамические обои и скринсейвер в виде карты нашей планеты или глобуса вращающегося синхронно с оборотом земли (поддерживает смену дня/ночи, облака, огни городов). Приложение отличается высокой детализацией картинки и насыщенными цветами. Позволяет настроить качество изображения с учетом производительности вашего компьютера. Поддерживает возможность (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ADAE45F51C3BB84E9C922F2D8FB92EE13A5D1F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402735   (699564) от 15.08.2020
+
+Берндт Хайнрих | Зачем мы бежим, или Как догнать свою антилопу. Новый взгляд на эволюцию человека (2020) [EPUB]
 
 >>Научная и техническая литература
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699564.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этой книжке собраны статьи, написанные в разное время и напечатания в разных журналах. Они касаются различных областей жизни и мысли. Но во всех их есть и нечто общее, — это стремление человеческого ума проникнуть в тайну, окружающую его, добиться точной, беспристрастной, ничем неопровержимой истины, распространить эту истину среди человечества, среди всех людей, (   Читать дальше...   )Жанр: История, науковедениеФормат: PDF
+Бернд Хайнрих – профессор биологии, обладатель мирового рекорда и нескольких рекордов США в марафонских забегах, физиолог, специалист по вопросам терморегуляции и физическим упражнениям. В этой книге он размышляет о спортивном беге как ученый в области естественных наук, рассказывает о своем участии в забеге на 100 километров, положившем начало его карьере в ультрамарафоне, (   Читать дальше...   )Жанр: Антропология, Зоология, Научно-популярная литератураПеревод: Алексей ЦелуновФормат: EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:30AAD08E7E78A56EA57EFB40C323053DBD78B9A2
+magnet:?xt=urn:btih:74E68F1B47E5E3DB16257BB7E5123B340C1BD1CC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -702,28 +212,497 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132647   (698791) от 10.05.2017
+###  Публикация: 1402568   (699563) от 15.08.2020
 
-VA - 100-ка популярных весенних хитов от Европы Плюс. Версия № 9 (2017) [MP3|256 Kbps] <Pop>
+Topaz Video Enhance AI 1.5.1 RePack (& Portable) by TryRooM [En]
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699563.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Alex Belak - Невыносимая 2:58
-002. Галамартовна - Ермакова 3:12
-003. Андрей Леницкий - Она 4:10
-004. Helena Shadia - Не Верь Мне 4:07(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:06
+Topaz Video Enhance AI – это совершенное новое решение для увеличения видео, с использованием искусственного интеллекта. Topaz Video Enhance AI, обученный работе с тысячами видео и сочетающий в себе информацию из нескольких входных видеокадров, увеличит ваше видео до разрешения 8K с точными деталями и последовательностью движения.До сих пор не было возможности идеально (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:29DD7AABF8EAA33254FDA33CF40A8A35E7C55F1D
+magnet:?xt=urn:btih:92901E9461F272A6E40402278D3C4B63F436BD2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402571   (699562) от 15.08.2020
+
+Король Стейтен-Айленда / The King of Staten Island (2020) WEB-DL [1080р] ATV [MVO]
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699562.jpg" />
+</div>
+
+
+###  Подробнее
+
+24-летний инфантил по имени Скотт живёт с мамой и младшей сестрой в нью-йоркском районе Стейтен-Айленд. С самого детства парень не может смириться со смертью отца-пожарного и теперь всё время проводит за курением травки и набиванием друзьям кривых татуировок. Когда сестра уезжает в колледж, а его мама впервые после смерти мужа начинает встречаться с мужчиной, тоже (   Читать дальше...   )Производство: США / Universal Pictures, Perfect World PicturesЖанр: Драма, комедияРежиссер: Джадд АпатоуАктеры: Пит Дэвидсон, Мариса Томей, Билл Бёрр, Бел Паули, Мод Апатоу, Стив Бушеми, Рики Велес, Мойзес Ариас, Лу Уилсон, Карли АквилиноПеревод: Профессиональный многоголосый (HDRezka Studio)Субтитры: Английские (Full, SDH)
+Присутствует ненормативная лексика!Продолжительность: 02:17:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79034D197BB246BD4B9631128439A3A8DD293729
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402697   (699561) от 15.08.2020
+
+ORPALIS PaperScan Professional 3.0.116 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699561.jpg" />
+</div>
+
+
+###  Подробнее
+
+ORPALIS PaperScan Professional является универсальной, мощной и простой в использовании программой для сканирования. Большинство приложений подобного рода предназначены для одного сканера, PaperScan позволяет управлять любым сканером, в том числе сетевыми сканерами (TWAIN или WIA протоколы поддерживаются). Вы можете импортировать любые изображения / PDF-файлы в PaperScan (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB72BFD3D06164466FDA0B9263715CE34F250BDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533942   (699560) от 27.02.2022
+
+Jesper Munk - Taped Heart Sounds (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Singer & Songwriter>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baby (4:32)
+02. Smoke Gets In Your Eyes (3:01)
+03. All the World is Green (4:58)
+04. I'm So Lonesome I Could Cry (3:34)(   Читать дальше...   )Жанр: Blues, Singer & SongwriterПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:180151239F08BAA0C122147D597AD43586C6936B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533936   (699559) от 27.02.2022
+
+James Pepper - Songs of the far horizon (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Raven (1:18)
+02. Try to survive (4:54)
+03. My old friend (4:40)
+04. Get up to get down (3:40)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:460E462579F34A4B3FCE2D01CF2D5ED14040A944
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533632   (699558) от 27.02.2022
+
+Soulstance - One Note Bossa Instrumentals, Vol. 2 (2022) [AAC|~364 Kbps] <Nu Jazz, Bossa Nova>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thinking About You (4:29)
+02. A Distant Look (2:41)
+03. Our World (4:30)
+04. I Live (4:24)(   Читать дальше...   )Жанр: Nu Jazz, Bossa NovaПродолжительность: 00:46:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFAB3165654E6C7C83708B53DAE95EB357F0F7E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534126   (699557) от 27.02.2022
+
+VA - Lo-Fi Electronic Presents 2014 (2014) [MP3|320 Kbps] <Synthpop, Technopop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Les Rhytmes Analogiques - Ride With Me (4:12)
+02. Kosmonaute - Transistor (5:24)
+03. Billions Of Stars - Start Of The Breakdown (4:40)
+04. Lo-Fi Electronic - Digital Love, Analogue Hearts (Un Petite Francaise Remix) (5:47)(   Читать дальше...   )Жанр: Synthpop, TechnopopПродолжительность: 01:28:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBC78B0699B1DEFB62C2341E590AEB8A11799264
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534112   (699556) от 27.02.2022
+
+Permute 3 v3.8.7 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Permute - очень простой видео конвертер с минимальными настройками и поддержкой drag & drop. Просто перетащите исходный файл на окно программы, выберите профиль (XBox, Apple TV, iPhone и т.д.) и нажмите кнопку "Start", все остальное программа сделает автоматически.Тип издания: macOS SoftwareРелиз состоялся: 27.02.2022Разработчик: © 2022 Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAEB96FDF53AD9184A8B62CE8D657DC6A3AFECEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533444   (699555) от 27.02.2022
+
+VA - Electro Swing Deluxe (2013) [AAC|~336 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chateau Swing - A Little Party Never Killed Nobody (All We Got) (4:01)
+02. Siko - The Mambo Craze (4:09)
+03. Chateau Swing - A Night Like This (3:46)
+04. DJ Tokeo - We No Speak Americano (4:30)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 01:12:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:649CF2D736C07B6678CBE09E64EDA8479F18A215
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533451   (699554) от 27.02.2022
+
+VA - Best of Electro Swing Elite Compilation (2017) [AAC|~318 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phos Toni - Dirty Skirt (5:44)
+02. Wolfgang Lohr, Alice Francis - Still Can Kiss... (5:33)
+03. Jamie Berry - The Performer (4:47)
+04. Sound Nomaden, MSP - Swing It (5:57)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 02:06:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A41CEC464EE029BBD516CA59AF9F8704BA84CE80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533945   (699553) от 27.02.2022
+
+Bernard Allison - Highs & Lows (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_699553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So Excited (3:22)
+02. Highs & Lows (3:31)
+03. Strain on My Heart (4:03)
+04. My Way or the Highway (3:59)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:07
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534085   (699552) от 27.02.2022
+
+OCCT 10.1.3 Final Portable [Multi/Ru]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_699552.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для проведения синтетических тестов на стабильность работы компьютера. OCCT Perestroika позволяет проводить парное тестирование: процессор - память и отдельную проверку стабильной работы центрального процессора и оперативной памяти. Результаты проверки выводятся в виде информативных графиков. Программа поддерживает работу с современными многоядерными процессорами (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534087   (699551) от 27.02.2022
+
+Своя игра (27.02.2022) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «Студия 2В»Телекомпания: «НТВ»Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:40:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D52E62F30AC8802B4D06111D4D5184781C92E08B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534053   (699550) от 27.02.2022
+
+Сто к одному (27.02.2022) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BA2953E479A3285AA3E57F74C3012FC7F0C6243
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534124   (699549) от 27.02.2022
+
+Kosmonaute - Robotic Love (2013) [MP3|320 Kbps] <Synthpop, Technopop>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_699549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robotic Love (4:07)
+02. World of Sound (5:03)
+03. Telescope (6:13)
+04. 1-0 1-0-0 Correct (Dedicated to Steve Jobs) (4:13)(   Читать дальше...   )Жанр: Synthpop, TechnopopПродолжительность: 00:59:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534086   (699548) от 27.02.2022
+
+Что навеял ветер / Something in the Wind (1947) BDRip [H.264/720p] [MVO]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_699548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на оригинальной истории Фрица Роттера и Чарльза О'Нила под названием "Любовь к Мэри". Мэри Коллинз работает диск-жокеем на радиостанции. Неожиданно ей приходит известие, что она является наследницей огромного состояния. Однако чтобы получить деньги, ей предстоит узнать непростую и запутанную историю, случившуюся с ней, её родителями и её опекунами (   Читать дальше...   )Производство: США, Universal International PicturesЖанр: комедия, мюзиклРежиссер: Ирвинг ПичелАктеры: Дина Дурбин, Джон Долл, Дональд О`Коннор, Чарльз Уиннингер, Хелена Картер, Маргарет Вичерли, Джин Эдэр, Жаклин деВит, Жан ПирсПеревод: профессиональный многоголосый (Светла)Субтитры: английские SDHПродолжительность: 01:29:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533844   (699547) от 27.02.2022
+
+Лесоповал - Видео-салон (2021) [AAC|~369 Kbps] <Chanson, Folk>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Видеосалон (2:41)
+02. Мишаня (3:33)
+03. Тупики (2:37)
+04. Письмо матери (4:40)(   Читать дальше...   )Жанр: Chanson, FolkПродолжительность: 00:57:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3924DF36C02FEAA27DA350290618218C812B9C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534110   (699546) от 27.02.2022
+
+Downie 4 v4.4.9 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Downie – это простейший видео-загрузчик.
+Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
+Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 27.02.2022Разработчик: © 1997–2022 Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.12.6 и вышеЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDEBD6A69DDBEE6471CD612E374321F26DCEC4FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

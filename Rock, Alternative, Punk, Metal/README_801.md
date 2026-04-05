@@ -1,3 +1,32 @@
+###  Публикация: 1619137   (249794) от 14.03.2023
+
+Luiz Toffoli - Enigma Garden (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Grand Opening (01:57)
+02 - Human (05:16)
+03 - I'm Alive (03:50)
+04 - Both Worlds (05:56)(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:52:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9A039D0671C2CCC624F852996F16D9D7E79DD0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618693   (249777) от 14.03.2023
 
 Колдстрим (София Карева) - Новогодний онлайн концерт, часть 1-2 (2023) Live, 2CD [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
@@ -6,7 +35,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249777.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Civil War - Invaders (2022) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249755.jpg" />
 </div>
 
 
@@ -66,7 +95,7 @@ Kiss In A Dragon Night - Kiss In A Dragon Night (2023) [MP3|320 Kbps] <Melodic H
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249740.jpg" />
 </div>
 
 
@@ -95,7 +124,7 @@ U2 - Songs Of Surrender (2023) 4 CD [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249609.jpg" />
 </div>
 
 
@@ -124,7 +153,7 @@ Phil Vincent - No Respect (2022) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249605.jpg" />
 </div>
 
 
@@ -153,7 +182,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249555.jpg" />
 </div>
 
 
@@ -182,7 +211,7 @@ U2 - Songs Of Surrender (2023) 4xCD [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249508.jpg" />
 </div>
 
 
@@ -211,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249497.jpg" />
 </div>
 
 
@@ -240,7 +269,7 @@ Blood Sky - MMXXV (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249483.jpg" />
 </div>
 
 
@@ -269,7 +298,7 @@ Soulwax - All Systems Are Lying (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alte
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249454.jpg" />
 </div>
 
 
@@ -298,7 +327,7 @@ ZZ Top - RAW (2022) 'That Little Ol' Band From Texas' Original Soundtrack  [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249453.jpg" />
 </div>
 
 
@@ -327,7 +356,7 @@ Aviana - Void (2025) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249450.jpg" />
 </div>
 
 
@@ -356,7 +385,7 @@ Die Apokalyptischen Reiter - Freie Republik Reitermania (2025) [FLAC|Lossless|WE
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249446.jpg" />
 </div>
 
 
@@ -385,7 +414,7 @@ The Steve Gibbons Band - 7 Альбомов (1976-1988) [FLAC|Lossless|tracks + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249394.jpg" />
 </div>
 
 
@@ -414,7 +443,7 @@ Transworld Identity - Seven Worlds (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249390.jpg" />
 </div>
 
 
@@ -443,7 +472,7 @@ Led Zeppelin - Led Zeppelin III (1970) 2xCD, Remastered, 2014, Atlantic Recordin
 >>Hard Rock (Hi Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249376.jpg" />
 </div>
 
 
@@ -472,7 +501,7 @@ VA - The Rock Collection: Rock Groups (1991) 2CD Compilation [FLAC|Lossless|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249349.jpg" />
 </div>
 
 
@@ -501,7 +530,7 @@ Whispers - Unconscious Conspiracy (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249343.jpg" />
 </div>
 
 
@@ -530,7 +559,7 @@ Paradise Lost - 8 Albums + 1 Compilation (1990-2012) Japanese Editions [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_249262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_249262.jpg" />
 </div>
 
 
@@ -565,7 +594,7 @@ Francis Rossi - 2 albums (1996, 2010) [MP3|320 кб/с]<Rock, Pop-rock, R'n'B>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249140.jpg" />
 </div>
 
 
@@ -600,7 +629,7 @@ FireLake - The Temptation Journey (2005) [MP3|320 кб/с]<Progressive Melodic D
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248817.jpg" />
 </div>
 
 
@@ -635,7 +664,7 @@ Moonspell - Opus Diabolicum - The Orchestral Live Show (Live) (2025) [FLAC 24/48
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248606.jpg" />
 </div>
 
 
@@ -664,7 +693,7 @@ Five Finger Death Punch - Got Your Six (2015) Deluxe Edition, Prospect Park [FLA
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248604.jpg" />
 </div>
 
 
@@ -693,7 +722,7 @@ Zmey Gorynich - Странствiя Рукоблуда и сестры его М
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248592.jpg" />
 </div>
 
 
@@ -722,7 +751,7 @@ Jane Air - 9 (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248590.jpg" />
 </div>
 
 
@@ -736,35 +765,6 @@ Jane Air - 9 (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99F2E2FDDF8122E9D28C7436C808A794816613A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833982   (248555) от 03.11.2025
-
-Aranda - Four0Five Sessions (2025) [MP3|320 Kbps] <Alternative-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waiting On A Sign (2:50)
-02. Blamin' You (3:49)
-03. Superficial Girl (4:06)
-04. Another Day (4:41)(   Читать дальше...   )Жанр: Alternative-RockПродолжительность: 00:41:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AA27F88A62DFD20F7781BBC1E61158D1D761756
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,214 @@
+###  Публикация: 1263251   (288888) от 18.11.2018
+
+Microsoft Windows 10 Professional VL x86-x64 1809 RS5 RU by OVGorskiy 11.2018 2DVD
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288888.jpg" />
+</div>
+
+
+###  Подробнее
+
+сборка на основе оригинальных русских образов новейшей операционной системы Windows 10 Pro (x86-x64) от Microsoft с дополнительным материалом разных разрядностей на 2-х разных DVD (x86 и x64). Установка полностью стандартная "вручную" с выбором параметров установки ОС. Интегрированы: программа для возврата в систему привычных нам кнопки и меню "Пуск", (   Читать дальше...   )Язык интерфейса: Русский (Russian).
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:976A35169E53DB1182BF245ED6E77A15B3470990
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262598   (288886) от 18.11.2018
+
+Происхождение / Исток / Origin (2018) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-10 из 10) OMSKBIRD [AD]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа незнакомцев находится на борту космического корабля, взявшего курс на далёкую планету. Будучи брошенными, пассажиры должны объединиться, чтобы выжить, но вскоре понимают, что среди них есть один человек, который совсем не тот, кем хочет казаться.Производство: Великобритания / Left Bank PicturesЖанр: фантастикаРежиссер: Пол У. С. Андерсон, Марк Брозел, Хуан Карлос МединаАктеры: Наталия Тена, Филипп Кристофер, Шиван Каллен, Эделайо Эдедайо, Том Фелтон, Нора Арнезедер, Белен Фабра, Мэдалин Хорчер, Фрайзер Джеймс, Йоуханнес Хёйкьюр Йоуханнессон и др.Перевод: Многоголосый закадровый, профессиональный | OMSKBIRDСубтитры: русские, английскиеПродолжительность: ~0:50:00 серияРеклама: присутствуют аудио вставки рекламы
+
+Внимание! Присутствует ненормативная лексика.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1A079C6782F379DFB0BC0C9FC1A517D4DC3A363
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263022   (288884) от 18.11.2018
+
+Shadow of the Tomb Raider (2018) [Ru/Multi] (1.0.237.6/dlc) License CPY [Croft Edition]
+
+>>3
+>>9
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288884.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shadow of the Tomb Raider — финал трилогии о становлении Лары Крофт, действие которого произойдёт в мексиканских джунглях, в Южной Америке. Как и раньше, ей будут противостоять наёмники организации «Тринити».Тип издания: LicenseРазработчик: Eidos-Montréal, Crystal Dynamics, Nixxes softwareЖанр: 3D, Action (Adventure), Shooter, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCAC8F0481B1E7C30A49DA106CE2E0D4AB4F2363
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609115   (288883) от 18.11.2018
+
+Моими глазами (2013) WEBRip (сезон 1, серии 1-19 из 19)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288883.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал построен по принципу складывающейся головоломки. Каждую серию мы видим глазами ее главного героя. У каждого героя своя история в рамках серии. Эти истории переплетаются между собой, опираясь на систему флешбэков и флешфорвардов. Одни и те же события зритель увидит глазами каждого персонажа, принимающего в них участие.Производство: Россия / Фокус Плюс СинемаЖанр: триллерРежиссер: Заур БолотаевАктеры: Анатолий Горячев, Дмитрий Готсдинер, Александр Бобров, Ирина Денисова, Константин Шелестун, Дмитрий Поднозов, Макар Запорожский, Вячеслав Чепурченко, Павел Ясенок, Лилия Разакова и др.Продолжительность: ~00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55E76D73EBC24CEE2F34B326AA66B92BAC5502FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262915   (288882) от 18.11.2018
+
+Microsoft® Windows 10 Enterprise LTSC x86-x64 1809 RU Office16 by OVGorskiy® 11.2018 2DVD
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288882.jpg" />
+</div>
+
+
+###  Подробнее
+
+сборка на основе оригинальных русских образов новейшей операционной системы Windows 10 Enterprise (Корпоративная) LTSC x86-x64 (VLSC) от Microsoft с дополнительным материалом разных разрядностей на 2-х разных DVD (x86 и x64). Установка полностью стандартная "вручную" с выбором параметров установки ОС. Интегрированы: небольшой набор самых необходимых программ, (   Читать дальше...   )Язык интерфейса: Русский (Russian).
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:784A53CB62375E7D99FE3F2B751B158DE94697A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261511   (288881) от 18.11.2018
+
+Assassin's Creed Odyssey / Assassin’s Creed: Одиссея (2018) [Ru/Multi] (1.06/dlc) Repack xatab [Ultimate Edition]
+
+>>3
+>>18
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Определите свою судьбу в "Assassin's Creed Одиссея". Пройдите путь от изгоя до живой легенды: отправьтесь в далекое странствие, чтобы раскрыть тайны своего прошлого и изменить будущее Древней Греции. Вас ждет совершенно новая боевая система и морские путешествия в огромном бесшовном мире, который постоянно развивается и реагирует на каждое ваше действие.Тип издания: RepackРазработчик: UbisoftЖанр: Action, RPG, Adventure, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD49515430B719C260A6E1F4114C2FF849CF1050
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261550   (288880) от 18.11.2018
+
+Поиск / Searching (2018) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288880.jpg" />
+</div>
+
+
+###  Подробнее
+
+16-летняя дочь Дэвида Кима пропадает без следа, полиция разводит руками. Отчаявшийся отец взламывает компьютер девочки, чтобы понять, что он ничего не знает про дочь…Производство: США / Bazelevs Entertainment, Bazelevs ProductionЖанр: Триллер, драма, детективРежиссер: Аниш ЧагантиАктеры: Джон Чо, Сара Сон, Алекс Джейн Го, Меган Лью, Кайя Доун Лау, Мишель Ла, Джозеф Ли, Доминик Хоффман, Сильвия Минасян, Мелисса ДиснейПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:42:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:292DD64BE1211FEA6F1D12453468CE6A93B55ADB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185352   (288860) от 23.11.2017
+
+BIOS уходит в прошлое: Intel объявила о скором прекращении поддержки системы
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_288860.jpg" />
+</div>
+
+
+###  Подробнее
+
+Intel объявила, когда "похоронит" технологию BIOS
+Компания Intel намерена отказаться от поддержки BIOS к 2020 г. Четвертая версия интерфейса UEFI под названием Class 3 будет лишена возможности работать с системами и устройствами, требующими наличия этого набора микропрограмм. На практике это означает отказ от 16-битных и 32-битных ОС.Intel намерена полностью (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1185792   (288857) от 23.11.2017
 
 Microsoft® Windows® 8.1 Professional VL with Update 3 x86-x64 Ru by OVGorskiy® 11.2017 2DVD
@@ -6,7 +217,7 @@ Microsoft® Windows® 8.1 Professional VL with Update 3 x86-x64 Ru by OVGorskiy�
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288857.jpg" />
 </div>
 
 
@@ -32,7 +243,7 @@ Adobe Photoshop CC 2018 (v19.0.1) x86-x64 RUS/ENG Update 1
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288856.jpg" />
 </div>
 
 
@@ -58,7 +269,7 @@ Windows 10 (x86/x64) 10in1 + LTSB +/- Office 2016 by SmokieBlahBlah 23.11.17 [Ru
 >>13
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288855.jpg" />
 </div>
 
 
@@ -86,7 +297,7 @@ Discovery. Как устроена Вселенная / How the Universe Works (
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288736.jpg" />
 </div>
 
 
@@ -112,7 +323,7 @@ Windows 10 1909 Professional x64 Matros v10 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288733.jpg" />
 </div>
 
 
@@ -139,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288730.jpg" />
 </div>
 
 
@@ -165,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_288668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_288668.jpg" />
 </div>
 
 
@@ -193,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288630.jpg" />
 </div>
 
 
@@ -219,7 +430,7 @@ Uninstall Tool 3.4.4 Build 5416 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288628.jpg" />
 </div>
 
 
@@ -245,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288626.jpg" />
 </div>
 
 
@@ -271,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287519.jpg" />
 </div>
 
 
@@ -297,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287511.jpg" />
 </div>
 
 
@@ -328,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_287366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_287366.jpg" />
 </div>
 
 
@@ -354,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287266.jpg" />
 </div>
 
 
@@ -383,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287213.jpg" />
 </div>
 
 
@@ -409,7 +620,7 @@ ITVDN | Серия уроков HowTo (2016) PCRec
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287188.jpg" />
 </div>
 
 
@@ -435,7 +646,7 @@ Nero Burning ROM 2017 18.0.01000 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287175.jpg" />
 </div>
 
 
@@ -461,7 +672,7 @@ MSActBackUp 1.1.0 Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287173.jpg" />
 </div>
 
 
@@ -472,218 +683,6 @@ MSActBackUp - программа для сохранения и восстано
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69E1CAF74A52EF5B9F241D3E5EDBC51EC0BFF3FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080538   (287165) от 07.12.2016
-
-(Linux) Total War: WARHAMMER (2016) [Ru/En] (1.4.0) Repack hypermozg
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287165.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старый Свет сотрясает грохот нескончаемой битвы. ВОЙНА - вот единственная константа! Стратегическая, легендарных масштабов игра в жанре фэнтези, Total War: WARHAMMER сочетает увлекательный пошаговый режим строительства эпических империй и взрывные, колоссальные битвы в реальном времени. И все это в ярком, невероятном мире Warhammer Fantasy Battles. Управляйте четырьмя (   Читать дальше...   )Тип издания: RepackРазработчик: Creative Assembly, Feral Interactive (Linux)Жанр: Action, StrategyЯзык озвучки: Русский (частично), АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56CF986C3FDD5611F2211FBDD625B1DFB4452871
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059373   (287162) от 07.12.2016
-
-Мир Дикого запада / Западный мир / Westworld (2016) HDTVrip [H.264/720p-LQ] (сезон 1, серии 1-10 из 10) OMSKBIRD
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287162.jpg" />
-</div>
-
-
-###  Подробнее
-
-В футуристическом парке развлечений андроиды на фоне для исторических декораций становятся рабами людей, выполняя рутинные задания, пока в один момент сбой в программе не превращает их в опасных убийц.Производство: США / Bad Robot, Jerry Weintraub Productions, Kilter FilmsЖанр: фантастика, триллер, вестернРежиссер: Джонатан Нолан, Джонни Кэмпбелл, Ричард Дж. ЛьюисАктеры: Энтони Хопкинс, Эд Харрис, Эван Рэйчел Вуд, Джеймс Марсден, Тэнди Ньютон, Джеффри Райт, Тесса Томпсон, Джимми Симпсон, Родриго Санторо, Шеннон Мари Вудворд и др.Перевод: Многоголосый закадровый, профессиональный | OMSKBIRD (ненормативная лексика)Продолжительность: ~01:00:00 серияРеклама: присутствуют аудио вставки рекламы
-
-Внимание! Присутствует ненормативная лексика.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8856C2614E2492BA2D1E724BB9F0855D46295F47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950467   (287154) от 07.12.2016
-
-Facerig Pro (2015) [Ru/Multi] (1.757/dlc) License DJ Fenix [Steam Edition]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287154.jpg" />
-</div>
-
-
-###  Подробнее
-
-FaceRig - программа, позволяющая управлять эмоциями и голосом анимированного персонажа с веб-камеры, за десять дней собрала заявленные 120.000 долларов в краудфандинговой кампании на Indiegogo. FaceRig разрабатывается Holotech Studios и изображение на основе слежения за лицом SDK используется обеспечивается ULSee Inc.Тип издания: LicenseРазработчик: Holotech StudiosЖанр: Анимация, Моделирование, Создание видеоЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EE61E892B7BF577C594E799D5DBAB98636ECE47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263424   (287111) от 19.11.2018
-
-ВОЗ игнорирует предупреждения ученых о вреде мобильников для здоровья
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287111.jpg" />
-</div>
-
-
-###  Подробнее
-
-ВОЗ готовит новый отчет о воздействии на здоровье человека неионизирующего излучения, в том числе от мобильных телефонов, сотовых вышек, wi-fi, bluetooth. Ученые опасаются, что многие данные о вреде радиоволн этого вида останутся без внимания. Как современные гаджеты влияют на живые ткани и организм, — в материале РИА Новости.
-Серые кардиналы ВОЗ"Несмотря на (   Читать дальше...   )
-
-## Скачать торент
-```bash
-http://www.who.int/en/news-room/fact-sheets/detail/electromagnetic-fields-and-public-health-mobile-phones
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262919   (287102) от 19.11.2018
-
-Суд обязал Роскомнадзор заблокировать Sci-Hub в России
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_287102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роскомнадзор начал блокировать научный сайт Sci-Hub из-за заявления о нарушении авторских прав
-Московский городской суд принял решение о блокировке сайта Sci-Hub, предоставляющего доступ к научным статьям. Вердикт был вынесен после изучения заявления компании Springer Nature — одного из крупнейших издателей научной периодики в мире. Об этом создательница Sci-Hub (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173825   (287092) от 19.11.2018
-
-Battle Chasers: Nightwar (2017) [Ru/Multi] (24037) Repack R.G. Catalyst
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Battle Chasers: Nightwar - это красочная ролевая игра с интересным сюжетом, где герою предстоит путешествовать по опасным подземельям и участвовать в сражениях, механика которых заимствована из классических jRPG.  Погрузитесь в мир комикса-бестселлера 90-х!Тип издания: RepackРазработчик: Airship SyndicateЖанр: Strategy (RTS, TBS), RPG, ActionЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D2F15E1A557E9779D016C9EC041799410393A50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212958   (287091) от 19.11.2018
-
-Final Fantasy XV / Final Fantasy 15 (2018) [Ru/Multi] (1.0.1213041/dlc) License CPY [Windows Edition]
-
->>3
->>9
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Снова в путь — на пределе качества! Много бонусного контента, поддержка самого высокого разрешения и HDR 10: в красивейшем мире FINAL FANTASY XV все продумано до мелочей. Такого вы еще не видели! События Final Fantasy XV происходят в мире, где реальность соседствует с фантазией. Вместе с наследным принцем НоктисомТип издания: LicenseРазработчик: Square EnixЖанр: RPG (Open World), Action, 3rd Person, 3DЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:717D276F6AF8B89D6185A2E929BF5E211678D082
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263507   (287090) от 19.11.2018
-
-Assassin's Creed Odyssey / Assassin’s Creed: Одиссея (2018) [Ru/Multi] (1.06/dlc) Repack R.G. Catalyst [Ultimate Edition]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Определите свою судьбу в "Assassin's Creed Одиссея". Пройдите путь от изгоя до живой легенды: отправьтесь в далекое странствие, чтобы раскрыть тайны своего прошлого и изменить будущее Древней Греции. Вас ждет совершенно новая боевая система и морские путешествия в огромном бесшовном мире, который постоянно развивается и реагирует на каждое ваше действие.Тип издания: RepackРазработчик: UbisoftЖанр: Action, RPG, Adventure, 3D, 3rd PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:770C7A941C64D2FF3094348D8031130F0026DC2D
 ```
 
 https://mybot314.ru/tekegram_catalog/

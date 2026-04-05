@@ -6,7 +6,7 @@ OnlySwitch 2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233714.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ QLab 5.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233709.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Bartender 4 v4.1.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233687.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ FoneDog Toolkit for Android 2.1.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233685.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ File List Export 2.6.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233682.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ System Dashboard 4.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233678.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Invisor - Media File Inspector 3.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233675.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Movist Pro 2.10.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233671.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ ProFind 1.9.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233670.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Slidepad 1.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233667.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ ToothFairy 2.7.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233661.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ RightFont 8.0.2 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233660.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Screens 4.12.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233655.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ PullTube 1.7.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233653.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ BatchOutput PDF 2.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233651.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Ghost Buster Pro 2.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233650.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ WonderPen 2.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233646.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Find Any File (FAF) 2.3.2 b7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233640.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Duplicate Photos Fixer Pro 4.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233637.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Cardhop 2.0.7 fix [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233631.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ TG Pro (Temperature Gauge Pro) 2.62 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233624.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Permute 3 v.3.10.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233623.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Alfred 4 Powerpack 4.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233616.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ One Switch 1.23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233600.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Timemator 2 v2.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233593.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Middle 1.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233586.jpg" />
 </div>
 
 

@@ -1,134 +1,3 @@
-###  Публикация: 1000052   (859110) от 25.03.2016
-
-В.В. Глазатов (ред.) | Наставление по стрелковому делу (НСД-38). Винтовка обр. 1891/30 г. (1944) [DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859110.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее издание Наставления по стрелковому делу (НСД-38)—Винтовка обр. 1891/30 г.— напечатано с изменением части второй главы I; кроме этого, включено описание оптического прицела системы ПУ и кронштейна к нему.Жанр: Обучение, военное делоФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91F896D3CF82960A80F9A0E583279C1899B6EB01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000468   (859064) от 25.03.2016
-
-Валерий Шамбаров | Войны Древней Руси [4 книги] (2013-2014) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859064.jpg" />
-</div>
-
-
-###  Подробнее
-
-От древних ариев и киммерийцев до кровопролитных битв с ордынскими войсками прослеживает Валерий Шамбаров в своих новых книгах путь русского народа из глубин тысячелетий к своему расцвету и созданию одного из самых могучих государств Средневековья, Киевской Руси. Гунны и анты, славяне и греки вступили на просторах Восточной Европы в ожесточенную битву за гегемонию. (   Читать дальше...   )Жанр: История, Военное дело, спецслужбыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8B93D36C38A06B59DEB3627FC1EF2E17643B816
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093395   (858440) от 27.02.2017
-
-Михаил Барятинский | Все танки СССР (2013) [PDF, FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858440.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя: Главный труд ведущего историка бронетехники! Самая полная и авторитетная энциклопедия советских танков – с 1919 года и до наших дней!От легких и средних до плавающих и тяжелых, от опытных боевых машин, построенных по образцу трофейного Renault FT17 еще в годы Гражданской войны, до грозных Т-72 и Т-80, состоящих на вооружении Российской армии до сих пор, (   Читать дальше...   )Жанр: Военная техникаФормат: PDF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A52E8D86F1A85413B6B3B3AE85C5823C57447CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 275145   (858266) от 18.04.2020
-
-С.А.Ковалев, А.Ф.Федоров, В.С.Злобин | Арктические тайны Третьего рейха [2008] [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Воспоминания непосредственных участников событий, которые срывают покров с таинственных страниц истории Второй мировой войны.
-В арсеналах ушедшего в небытие Третьего рейха немалое место было отведено завоеваниям в Арктике. Трудно представить, но в военные годы на акваториях Севморпути, берегах сибирских рек и арктических архипелагов нацисты чувствовали себя почти (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40D33AA8CCAFBC805BA496E2C8E56045BA84BAF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109916   (857284) от 28.02.2017
-
-В.С. Христофоров и др. | Контрразведка ВМФ СССР. 1941—1945 (2015) [PDF, DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее издание посвящено деятельности контрразведки советского Военно-морского флота в Великой Отечественной войне. Авторский коллектив предпринял попытку критически осмыслить, обобщить и сопоставить информацию, содержащуюся в нормативных документах, материалах текущего делопроизводства, трофейных документах, архивных уголовных и личных делах. В результате проведенного (   Читать дальше...   )Жанр: Военная историяФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:389C94403ED3E5198565EA2EBE82B0697C8AA50A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108480   (857234) от 28.02.2017
 
 М. Рыбаков и др. (ред.) | Иностранные армии (Справочник) (1923) [DJVU]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857234.jpg" />
 </div>
 
 
@@ -163,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855905.jpg" />
 </div>
 
 
@@ -190,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855900.jpg" />
 </div>
 
 
@@ -217,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855894.jpg" />
 </div>
 
 
@@ -244,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855541.jpg" />
 </div>
 
 
@@ -270,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855399.jpg" />
 </div>
 
 
@@ -296,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854926.jpg" />
 </div>
 
 
@@ -324,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853693.jpg" />
 </div>
 
 
@@ -350,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853602.jpg" />
 </div>
 
 
@@ -376,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853559.jpg" />
 </div>
 
 
@@ -402,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852101.jpg" />
 </div>
 
 
@@ -430,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851956.jpg" />
 </div>
 
 
@@ -456,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850240.jpg" />
 </div>
 
 
@@ -482,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850203.jpg" />
 </div>
 
 
@@ -509,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849423.jpg" />
 </div>
 
 
@@ -535,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849419.jpg" />
 </div>
 
 
@@ -561,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849413.jpg" />
 </div>
 
 
@@ -587,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849411.jpg" />
 </div>
 
 
@@ -613,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849408.jpg" />
 </div>
 
 
@@ -639,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848582.jpg" />
 </div>
 
 
@@ -665,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848188.jpg" />
 </div>
 
 
@@ -677,6 +546,140 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC31FBF2A4AC8B0C95786143FFABDF809736D01C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378314   (847806) от 24.04.2020
+
+Алексей Исаев | Антисуворов. Самые лживые мифы о Великой Отечественной (2020) [EPUB]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Говорят, что историю пишут победители. Так всегда было и всегда будет. Но в таком случае получается, что правды не так много? Неужели все, чему нас учили в школе – события, преподнесенные в «правильном» свете?
+Сколько же существует мифов о Великой Отечественной войне! Армии-«привидения», «бамбуковые» дивизии, техника на грани фантастики, «ныряющие» танки Сталина (   Читать дальше...   )Жанр: Военное дело, Общая историяФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96DFFEE98DAB99A2EBF1CB12ECFB8E843F787D1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002642   (846925) от 01.04.2016
+
+В. Жуковская, Илиодор | Мужик в царском доме. Записки о Григории Распутине (2012) [FB2, RTF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846925.jpg" />
+</div>
+
+
+###  Подробнее
+
+Григорий Распутин – самая примечательная личность в окружении последнего русского царя Николая II. О Распутине до сих пор ходит много легенд, его личность оценивается историками по-разному. В книге, представленной вашему вниманию, о Григории Распутине пишут те, кто очень хорошо знал его.
+
+Илиодор, иеромонах, помог Распутину войти в царскую семью и долгое время был (   Читать дальше...   )Жанр: Историческая литератураФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D4A7A270B03D286B9A5AD38BED1EA581D194860
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002619   (846776) от 01.04.2016
+
+Константин Рокоссовский и др. | Жуков. Маршал жестокой войны [антология] (2013) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторы этой книги – известные советские полководцы. А.М. Василевский – Маршал Советского Союза, начальник Генштаба, член Ставки Верховного Главнокомандования; И. С. Конев – Маршал Советского Союза, дважды Герой Советского Союза, командующий фронтами в годы Великой Отечественной войны; К.К. Рокоссовский – Маршал Советского Союза и маршал Польши, тоже командовал основными (   Читать дальше...   )Жанр: История, Биографии и Мемуары, Военная документалистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A72B2C77B00992F5AAEF7D9110E844719302F20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378908   (844725) от 26.04.2020
+
+Владимир Першанин | Халхин-Гол. Первая победа Жукова (2020) [EPUB]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844725.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бои на Халхин-Голе, продолжавшиеся с весны по осень 1939 года, называют у нас «военным конфликтом», а в Японии – «Второй русско-японской войной».
+Это были полномасштабные боевые действия, в которых массированно применялась авиация и танки, практически репетиция Второй мировой. На первоначальном этапе боев Красная Армия допустила множество командно-организационных (   Читать дальше...   )Жанр: Военная историяФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:978AFAE2DD365DD82B628D049172033384475C20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378906   (844714) от 26.04.2020
+
+Хорст Гроссман | Ржевский кошмар глазами немцев (2020) [EPUB]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844714.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Краеугольный камень Восточного фронта», «несокрушимый бастион Вермахта», «ворота на Берлин» – так немецкое командование оценивало свои позиции в районе Ржева, где в 1941-1943 гг. развернулось одно из самых затяжных и кровавых сражений Второй Мировой, продолжавшееся в общей сложности около 15 месяцев. А в Красной Армии эту грандиозную битву окрестили «Ржевской мясорубкой» (   Читать дальше...   )Жанр: Военная историяПеревод: Юрий БемФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BBC5F396B0716FB7AF97A67DAC26AFC075AD8A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

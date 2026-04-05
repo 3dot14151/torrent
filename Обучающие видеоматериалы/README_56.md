@@ -1,3 +1,29 @@
+###  Публикация: 1481952   (1007841) от 06.07.2021
+
+Gumroad, Tom Newbury | Texturing Realistic Skin for Characters (2016) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007841.jpg" />
+</div>
+
+
+###  Подробнее
+
+В первой части урока я вам покажу свой процесс создания реалистичной кожи персонажа. Мы будем использовать отличный сайт texturing.xyz Я покажу весь процесс работы с этими текстурами. Начнем с объединения разных картинок с уровнями деталей в одну rgb карту. Я делаю это в Photoshop и Nuke. Затем мы перейдем в Mari, где я быстро расскажу вам основы программы, и мы (   Читать дальше...   )Производство: GumroadЖанр: Создание видеоПродолжительность: 06:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67638FBA2826E1328616FE8E15AF88F570D28DE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1481956   (1007830) от 06.07.2021
 
 VK, Александр Васин | ZBrush. Проекты Александра Васина (2015) PCRec
@@ -6,7 +32,7 @@ VK, Александр Васин | ZBrush. Проекты Александра 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007830.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ Udemy, Cristian Calinescu | Windows Server 2019 Hyper-V, Storage, Clustering and
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007826.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007543.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ Fin Network, Никита Игнатенко | Финансовое модели
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007534.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ Udemy, Oleh Koturha | Мобильная съемка и монтаж (2021) WEB
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007518.jpg" />
 </div>
 
 
@@ -144,7 +170,7 @@ SVS, Jake Parker, Will Terry | Working With Color (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007413.jpg" />
 </div>
 
 
@@ -171,7 +197,7 @@ SVS, Will Terry | Painting Texture and Details (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007381.jpg" />
 </div>
 
 
@@ -197,7 +223,7 @@ Udemy, Josh Werner, Learn Tech Plus | Front End Web Development Ultimate Course 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007374.jpg" />
 </div>
 
 
@@ -226,7 +252,7 @@ Lifexpert, Алексей Губанов | Защиты. На все случа�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007357.jpg" />
 </div>
 
 
@@ -254,7 +280,7 @@ Masterclass, Judd Apatow | Judd Apatow teaches comedy (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007264.jpg" />
 </div>
 
 
@@ -281,7 +307,7 @@ Masterclass, Dan Brown | Dan Brown Teaches Writing Thrillers (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007258.jpg" />
 </div>
 
 
@@ -308,7 +334,7 @@ The Gnomon Workshop, Aaron Limonick | Environmental Design and Illustration (201
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007254.jpg" />
 </div>
 
 
@@ -334,7 +360,7 @@ Marco Bucci | Understanding and Painting the Head (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007249.jpg" />
 </div>
 
 
@@ -361,7 +387,7 @@ Proko, Stan Prokopenko | Anatomy of the Human Body: Arms (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007241.jpg" />
 </div>
 
 
@@ -387,7 +413,7 @@ Proko | Anatomy of the Human Body: Skeleton (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007240.jpg" />
 </div>
 
 
@@ -413,7 +439,7 @@ Kalacheva School, Вероника Калачёва | Цветные каран�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007221.jpg" />
 </div>
 
 
@@ -440,7 +466,7 @@ Skillbox, Дмитрий Бородин | Математика для финан
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007217.jpg" />
 </div>
 
 
@@ -469,7 +495,7 @@ Skillbox, Александр Кузнецов  и др. | JavaScript-фрейм�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007205.jpg" />
 </div>
 
 
@@ -498,7 +524,7 @@ CG-Cookie, Sander Mos | Landscapes Course (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007146.jpg" />
 </div>
 
 
@@ -525,7 +551,7 @@ Gumroad, Eytan Zana | Color and Light (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007133.jpg" />
 </div>
 
 
@@ -551,7 +577,7 @@ CGMA, James Paick | Environment Design 2 James Paick (2012) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007121.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Coding With Mitch, Mitch Tabian | Kotlin Multiplatform Mobile  (2021) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006958.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ shop.makeupbyellin, Эллин Святимова | Визаж для себя (
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006936.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ Udemy, Jaysen Batchelor, Austin Batchelor | The Ultimate Digital Painting Course
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006824.jpg" />
 </div>
 
 
@@ -663,7 +689,7 @@ Udemy, Trevor Sawler | Building Modern Web Applications with Go (Golang)  (2021)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006814.jpg" />
 </div>
 
 
@@ -675,34 +701,6 @@ Go - это современный, безопасный по типу, ском
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53AE63BEB54019CF942A5BF530F7B11FD4BFAE67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483623   (1006723) от 14.07.2021
-
-Udemy, Data Is Good Academy | Data Analysis Masterclass (4 courses in 1)  (2021) PCRec [En]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на лучший онлайн-курс по анализу и визуализации данных.
-Анализ данных - это процесс проверки, очистки, преобразования и моделирования данных с целью обнаружения полезной информации, обоснования выводов и поддержки принятия решений.
-Анализ данных имеет множество аспектов и подходов, охватывающих различные методы под разными названиями, и используется (   Читать дальше...   )Производство: UdemyЖанр: Анализ данных, визуализацияЯзык озвучки: АнглийскийПродолжительность: 15:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2DE7F370BA990CE23F4C7D0CA0CC98117913C3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

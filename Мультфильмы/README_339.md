@@ -1,3 +1,133 @@
+###  Публикация: 1516678   (164996) от 12.12.2021
+
+Три мушкетера / D'Artacan y los tres Mosqueperros (2021) WEB-DL [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Амбициозный щенок Д’Артаньгав отправляется в Париж, чтобы воплотить свою самую заветную мечту — стать королевским мушкетером. Героя ждут невероятные — опасные, но очень веселые — приключения в компании новых друзей, вместе с которыми ему предстоит отстоять добро и справедливость и защитить короля от злобного кардинала Ришелье. Коварный план по захвату власти удастся (   Читать дальше...   )Производство: Испания / Apolo Films, Cosmos-MayaЖанр: приключения, мультфильмРежиссер: Тони ГарсиаПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 01:28:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9D429EAFD6C33411514033544B746158A73342F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673225   (164995) от 01.11.2023
+
+Капитан Лазерхоук: Blood Dragon Remix / Captain Laserhawk: A Blood Dragon Remix (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6) [UKR, EN / UKR, EN Sub]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164995.jpg" />
+</div>
+
+
+###  Подробнее
+
+В антиутопическом обществе, где все так обманчиво и нестабильно, киборг-суперсолдат, заклейменный как враг государства, стремится найти правду, за которую стоит бороться.Производство: США, Канада, Франция / Bobbypills, Bootleg Universe, Netflix, Ubi Soft Entertainment, Ubisoft Motion PicturesЖанр: мультфильм, фантастика, фэнтези, боевик, драма, комедия, приключенияРежиссер: Medhi LeffadАктеры: Натаниэль Кёртис, Борис Хьюстанд, Марк Эбулу, Кэролайн Форд, Ив Бижрель, Дэвид Менкин, Ади Шанкар, Гленн Рэйдж, Дэниэл Йорк, Коди РаннелсПеревод: Дублированный (Le Doyen / Netflix)Язык озвучки: украинский, английскийСубтитры: украинские (forced, full), английскиеПродолжительность: ~00:23 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4004B536B147F17D428CE1F0B2FEEA3969B4998
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403674   (164978) от 12.12.2021
+
+Дом с призраками / The Haunted House (1929) DVDRip [H.264] [hand made colored]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Микки ищет убежище от шторма в доме, который, как оказалось, населен привидениями. Скелеты приказывают ему играть на органе; они танцуют и подыгрывают.Производство: США, Walt DisneyЖанр: Рисованная анимация, Музыкальный, КороткометражныйРежиссер: Уолт ДиснейПеревод: Дублированный (НЕВАФИЛЬМ)Субтитры: вшитые отключаемые, английскийПродолжительность: 00:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C57A6C4429652E5F1E01098CEF17E6ACE1BC610B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405247   (164955) от 12.12.2021
+
+Танец скелетов / The Skeleton Dance (1929) BDRip [H.264/1080p-LQ] [hand made colored]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ночь обещает быть страшной. Вспыхивает молния. Воет ветер. Ветвь дерева в форме руки словно хватается за испуганную сову, которая кружит головой, как волчок. Часы на церковной башне пробивают полночь, и летучие мыши вылетают из колокольни. Две кошки на надгробиях дерутся, натягивая друг другу носы, как ириски. Скелет вырастает из-за надгробия, отпугивая кошек. Но (   Читать дальше...   )Производство: США, The Walt Disney CompanyЖанр: Рисованная анимация, Музыкальный, КороткометражныйРежиссер: Уолт ДиснейПеревод: Многоголосый профессиональный (НЕВАФИЛЬМ)Субтитры: вшитые отключаемые (английский, русский, украинский)Продолжительность: 00:05:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAE7076C1448B65D607EA2AD8758CBC2F8457FCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289512   (164914) от 12.12.2021
+
+Флинтстоуны встречают Рокулу и Франкенстоуна / The Flintstones Meet Rockula and Frankenstone (1979) WEBRip [H.264/720p-LQ] Нева
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семья Флинтстоунов, живущих в каменном веке, но в полном соответствии с американским образом жизни, готовится к викторине с костюмами, на которой мистер Флинтстоун, как всегда, блеснет своим гранитным умом. В результате они выигрывают путевку в Роксильванию. Их неизменные друзья и соседи едут вместе с ними. Там в старинном, страшном замке они и встречаются с Рокулой (   Читать дальше...   )Производство: США / Hanna-Barbera ProductionsЖанр: Рисованная анимация, мультфильм, семейныйРежиссер: Рэй ПаттерсонПеревод: Дублированный (Нева-1), одноголосый закадровый (Алексей Михалёв)Субтитры: английскиеПродолжительность: 00:48:31Реклама: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4E01791A2AD7EAA5FC5E52165D3CAC33FA96B97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358963   (164889) от 12.12.2021
 
 Робин Гуд / Robin Hood (1973) BDRip [H.265/1080p-LQ] [10-bit]
@@ -6,7 +136,7 @@
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164889.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164883.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164878.jpg" />
 </div>
 
 
@@ -87,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164856.jpg" />
 </div>
 
 
@@ -113,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164854.jpg" />
 </div>
 
 
@@ -139,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164853.jpg" />
 </div>
 
 
@@ -165,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164843.jpg" />
 </div>
 
 
@@ -191,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164836.jpg" />
 </div>
 
 
@@ -217,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164830.jpg" />
 </div>
 
 
@@ -243,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164816.jpg" />
 </div>
 
 
@@ -270,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164808.jpg" />
 </div>
 
 
@@ -296,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164804.jpg" />
 </div>
 
 
@@ -322,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164798.jpg" />
 </div>
 
 
@@ -348,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164779.jpg" />
 </div>
 
 
@@ -374,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164774.jpg" />
 </div>
 
 
@@ -400,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164749.jpg" />
 </div>
 
 
@@ -426,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164745.jpg" />
 </div>
 
 
@@ -452,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_164739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_164739.jpg" />
 </div>
 
 
@@ -478,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164724.jpg" />
 </div>
 
 
@@ -505,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164720.jpg" />
 </div>
 
 
@@ -531,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164711.jpg" />
 </div>
 
 
@@ -542,136 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E9ED0D1AA0B227851147E709C6EE188321E3BC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022814   (164702) от 12.12.2021
-
-Робинзон Крузо: Очень обитаемый остров / Robinson Crusoe (2016) HDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все знают историю о Робинзоне Крузо, попавшем на необитаемый остров. Однако, как же можно назвать его необитаемым, если он населен разнообразными веселыми животными и птицами? Они очень удивились, впервые встретив это странное существо, и даже приняли его за морское чудовище. Попугаю по кличке Вторник и его друзьям — хамелеону, тапиру и другим обитателям острова (   Читать дальше...   )Производство: Франция, Бельгия, nWave Pictures, Studio Canal, uFilmЖанр: Мультфильм, комедия, приключенияРежиссер: Винсент Кестелут, Бен СтассенАктеры: Рон Аллен, Джордж Бэббит, Лайла Берзиньш, Илька Бессин, Джои Камен, Джефф Дусетте, Сэнди Фокс, Дитер Халлерворден, Кайл ХербертПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:30:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBB554F4E437682B853E04049A74DB8D18D4D721
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246767   (164674) от 12.12.2021
-
-Унесённые призраками / Sen to Chihiro no kamikakushi (2001) BDRip [H.265/1080p-LQ] [10-bit]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маленькая Тихиро вместе с мамой и папой переезжают в новый дом. Заблудившись по дороге, они оказываются в странном пустынном городе, где их ждет великолепный пир. Родители с жадностью набрасываются на еду и к ужасу девочки превращаются в свиней, став пленниками злой колдуньи Юбабы, властительницы таинственного мира древних богов и могущественных духов. Теперь, оказавшись (   Читать дальше...   )Производство: Япония, Studio GhibliЖанр: Анимэ, Фентези, ПриключенияРежиссер: Хаяо МиядзакиПеревод: Дублированный (Лицензия) | НевафильмСубтитры: Русские (полные), Английские (полные)Продолжительность: 02:04:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F888EC9574A923178F4664397D211D383C69360
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516998   (164262) от 13.12.2021
-
-Феи: Тайна страны драконов / Bayala: A Magical Adventure (2019) BDRip [H.264/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164262.jpg" />
-</div>
-
-
-###  Подробнее
-
-Испокон веков эльфийские племена жили бок о бок с самыми загадочными существами на свете – драконами, в волшебной Стране под названием «Баяла». Между эльфами и драконами существовала особая мистическая связь, ведь эльфы присматривали за драконьими яйцами. Но однажды Офира - королева темных эльфов, украла все драконьи яйца, а вместе с ними похитила и маленькую принцессу (   Читать дальше...   )Производство: Германия, Люксембург / Ulysses Filmproduktion, Fabrique d'Images, TelepoolЖанр: Мультфильм, фэнтези, приключения, семейныйРежиссер: Айна Ярвин, Федерико МилеллаАктеры: Мэдисон Маллахи, Джессика Уэбб, Оливия Мэннинг, Сара Петерсен, Марк Томпсон, Грегори Макс, Лиза Ортиз, Ребекка Бекер, Кэтрин Кэхилл, Луиз УайтПеревод: Дублированный (IVI)Субтитры: ОтсутствуютПродолжительность: 01:24:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1213276A7B64E12567D795A1B68950677988DCF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517017   (164238) от 13.12.2021
-
-Гномео и Джульетта / Gnomeo & Juliet (2011) BDRip [H.264/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интерпретация пьесы Уильяма Шекспира, в которой противоборствуют семьи садовых гномов и гномов домашних.Производство: Великобритания, США, Канада / Touchstone Pictures, Rocket Pictures, Arc ProductionsЖанр: мультфильм, мелодрама, комедия, приключения, семейныйРежиссер: Келли ЭсбёриАктеры: Джеймс МакЭвой, Эмили Блант, Эшли Дженсен, Майкл Кейн, Мэтт Лукас, Джим Каммингс, Мэгги Смит, Джейсон Стэтхэм, Оззи Осборн, Стефен МерчантПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 01:23:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1693F84782002B29D722AEC656F7D15310D8C24D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673457   (164199) от 02.11.2023
-
-Арчер / Archer (2023) WEB-DL [H.264/1080p] (Сезон 14, серии 1-8 из 8) TVShows
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164199.jpg" />
-</div>
-
-
-###  Подробнее
-
-В международном шпионском агентстве ISIS любой мировой кризис — лишь предлог для высококлассных секретных агентов посоревноваться между собой в обмане и предательстве. Главным героем мультсериала является спецагент Стерлинг Арчер, известный также под кодовым именем «Герцогиня». На службе Арчеру приходится мириться со своей эксцентричной мамашей/начальницей — Мэлори, (   Читать дальше...   )Производство: США / FX NetworkЖанр: мультфильм, боевик, комедияРежиссер: Брайан Фордни, Мак Уильямс, Мэтт ТомпсонПеревод: Многоголосый закадровый (TVShows)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: ~00:23:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69E6252FFE751D0634D0A619486CC3EF7F5B1F0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

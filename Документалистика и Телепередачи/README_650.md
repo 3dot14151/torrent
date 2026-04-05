@@ -1,3 +1,160 @@
+###  Публикация: 1583711   (204797) от 25.10.2022
+
+Джон Уэйн Гейси: Замаскированный дьявол / John Wayne Gacy: Devil in Disguise (2021) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6) [VO]
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это леденящая душу история одного из самых мерзких серийных убийц в мире, рассказанная словами самого Гейси в редком интервью, которое он дал в 1990 году, через десять лет после его осуждения, большая часть которого так и не была показана публике. А так же история тех, кого навсегда изменили его невероятные злодеяния, и тех, кто считает, что вся правда остается скрытой (   Читать дальше...   )Производство: США, Peacock, NBC News Studios, Witchcraft Motion Picture CompanyЖанр: документальный, криминал, биографияРежиссер: Род БлэкхерстПеревод: одноголосый любительский (Пожилой Ксеноморф)Субтитры: английские, испанскиеПродолжительность: серии ~00:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03C93891FDB6506E8914CDBA263ECF29B1F0C81D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655016   (204752) от 23.08.2023
+
+Музейные истории / Museum stories (2019) UHDTV [H.265/2160p] (серии 1-5 из ?)
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Путешествия по музеям Франции.Производство: Франция, Urubu FilmsЖанр: документальный, искусство, архитектураРежиссер: Грегори ШепардПеревод: одноголосый профессиональный (Audiovisit)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: серии ~00:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DB103B2C0097DFEB03E4C8D0BF298513A5417DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586809   (204681) от 28.10.2022
+
+Джеймс Мэй: Наш человек в Италии / James May: Our Man in Italy (2022) WEB-DL [H.265/2160p] [4K, HDR10+, 10-bit] (сезон 2, серии 1-6 из 6)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джеймс Мэй путешествует по одной из своих любимых стран: Италии. Начав c сицилийской столицы Палермо и закончив в Доломитовых Альпах, он посетит почти все регионы Италии. Культура, еда, промышленность и даже немного спорта - все это будет происходить на фоне самых потрясающих городских и сельских пейзажей в мире. Для Джеймса Италия всегда казалась страной, в которой (   Читать дальше...   )Телекомпания: Великобритания, Amazon Prime VideoЖанр: документальный, история, путешествияРежиссер: Билл Бэйли , Том УиттерПеревод: профессиональный многоголосый, любительский многоголосыйЯзык озвучки: русский, английскийСубтитры: английские (full, SDH), русскиеПродолжительность: серии ~00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C41A1E948F62D4BC03BB05E61A046A276B2C91B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655198   (204646) от 24.08.2023
+
+Ингрид Бергман: В её собственных словах / Jag ar Ingrid (2015) BDRemux [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204646.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2011 году режиссер Стиг Бьëркман встречает Изабеллу Росселлини, дочь Ингрид Бергман, которая предлагает ему «снять фильм о Маме». С помощью Изабеллы Стиг сможет представить историю Ингрид, рассказанную ее собственными словами с ее собственными образами. У Ингрид Бергман было семь номинаций на премию Оскара, и три награды. Она признана одной из самых талантливых (   Читать дальше...   )Производство: Швеция, Chimney, Mantaray FilmЖанр: документальный, история, биографияРежиссер: Стиг БьёркманУчастники: Пиа Линдстрем, Роберто Росселлини, Изотта Росселлини, Ингрид БергманПеревод: двуголосый профессиональный (SDI Media)Язык озвучки: русскийСубтитры: английские (полные, на шведскую речь)Продолжительность: 01:54:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:488CE9E72ECE7FE23CC12610185175F4F0440BE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591976   (204631) от 01.01.2023
+
+По следам советской Атлантиды (2022) DVB [H.264] (серии 1-22 из 28) (Обновляемая)
+
+>>Документалистика и Телепередачи
+>>Кинолетопись Страны Советской
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великая советская держава, словно мифический остров Атлантида, в один миг рухнула и осталась в прошлом.
+Что продавали на улицах Москвы в 1930-е годы? Как была создана советская атомная бомба? Как жил простой советский гражданин в брежневскую эпоху? Почему СССР был самой читающей страной в мире? Ответы на эти и многие другие вопросы будут даны в формате видеолекций. (   Читать дальше...   )Производство: Россия, ТК ИсторияЖанр: документальный, история, политикаСубтитры: отсутствуютПродолжительность: ~00:13:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ACDC547D092E644B1D09279358002E8060A1686
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601449   (204613) от 01.01.2023
+
+Новогоднее обращение Владимира Путина (31.12.2022) WEB-DL [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Отечественная история
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новогоднее обращение президента Российской Федерации В.В.Путина 31.12.2022 годаТелекомпания: 1 каналЖанр: ДокументальныйПродолжительность: 00:14:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07DFBCF481B44E66C188664075F3007814FD7C8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602024   (204553) от 03.01.2023
 
 К 100-летию СССР (2022) DVB (серии 1-102 из 102)
@@ -6,7 +163,7 @@
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204553.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204472.jpg" />
 </div>
 
 
@@ -59,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204463.jpg" />
 </div>
 
 
@@ -85,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204450.jpg" />
 </div>
 
 
@@ -111,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204357.jpg" />
 </div>
 
 
@@ -137,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204282.jpg" />
 </div>
 
 
@@ -163,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204280.jpg" />
 </div>
 
 
@@ -189,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204277.jpg" />
 </div>
 
 
@@ -215,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204272.jpg" />
 </div>
 
 
@@ -241,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204265.jpg" />
 </div>
 
 
@@ -267,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204263.jpg" />
 </div>
 
 
@@ -296,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204183.jpg" />
 </div>
 
 
@@ -322,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204149.jpg" />
 </div>
 
 
@@ -348,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204144.jpg" />
 </div>
 
 
@@ -374,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204128.jpg" />
 </div>
 
 
@@ -400,7 +557,7 @@ BBC. Изумительный мистер Фейнман / The Fantastic Mr Fey
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204098.jpg" />
 </div>
 
 
@@ -426,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204093.jpg" />
 </div>
 
 
@@ -452,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204053.jpg" />
 </div>
 
 
@@ -478,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204038.jpg" />
 </div>
 
 
@@ -506,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203950.jpg" />
 </div>
 
 
@@ -518,162 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1C64D08A6A153AD72E5FBC97921279D67D4A6CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655892   (203907) от 28.08.2023
-
-Моя жизнь в Rolling Stones / My Life as a Rolling Stone (2022) WEB-DL [H.264/1080p] (серии 1-4 из 4)
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203907.jpg" />
-</div>
-
-
-###  Подробнее
-
-В каждом эпизоде будет представлен личный портрет одного из харизматичных участников группы (Мик Джаггер, Кит Ричардс, Ронни Вуд и покойный Чарли Уоттс), исследующий различные аспекты их личностей, их музыкальную гениальность и влияние на культуру. Цель сериала - раскрыть творчество The Rolling Stones, их вдохновение и то, как они индивидуально и вместе преодолевали (   Читать дальше...   )Производство: Великобритания, Mercury StudiosЖанр: документальный, история, биография, музыкаРежиссер: Сэм Энтони, James Giles, Оливер МюррэйУчастники: Мик Джаггер, Кейт Ричардс, Ронни ВудПеревод: одноголосый профессиональный (Jaskier)Язык озвучки: русскийСубтитры: русские (Jaskier), английскиеПродолжительность: 4x ~01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DD0D827A665E802EC0D555A8E5F212D10F748BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655888   (203900) от 28.08.2023
-
-Гага: 155 см / Gaga: Five Foot Two (2017) WEB-DL [H.264/1080p] [GoldTeam]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Закулисное путешествие с главной звездой современной поп-музыки, которое покажет разные стороны жизни певицы: от борьбы за свои отношения до проблем со здоровьем, от поиска утешения в узком кругу людей до подавления всех проявлений неуверенности. Вместе с тем, как Леди Гага выпускает свой новый альбом и готовится к главному выступлению года, фильм расскажет о главных (   Читать дальше...   )Производство: США, Live Nation Productions, Mermaid Films II, Permanent WaveЖанр: документальный, история, биография, музыкаРежиссер: Крис МукарбельУчастники: Сандра Амадор, Майкл Берден, Тони БеннеттПеревод: двуголосый любительский (GoldTeam),  двуголосый любительский (Синема УС)Язык озвучки: русскийСубтитры: английские (forced + full)Продолжительность: 01:40:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F237173C8E552417C63CA4C54ED148B35330549
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655871   (203893) от 28.08.2023
-
-Что-то вроде рая / Some Kind of Heaven (2020) WEBRip [H.264/1080p] [EN / RU Sub]
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поселение Вилладжес в штате Флорида — дом престарелых, который разросся до размера города: 130 тысяч американцев переехали сюда, чтобы провести старость вместе с ровесниками в идиллических декорациях пенсионной утопии. Теннисные корты и безупречные лужайки, уютные и одинаковые домики, цветочные клумбы и теплые бассейны, тихие кафе и игральные клубы — здесь как будто (   Читать дальше...   )Производство: США, 30WEST, Los Angeles Media Fund (LAMF), Protozoa Pictures, The New York TimesЖанр: документальныйРежиссер: Лэнс ОппенгеймУчастники: Деннис Дин, Линн Генри, Энн КинсерПеревод: субтитры (Людмила Баскелович)Язык озвучки: английскийСубтитры: русские, hardsub (неотключаемые)Продолжительность: 01:23:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BF37DDA442C2DC63CE33D933E80FF2A6DA9F99A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655896   (203883) от 28.08.2023
-
-Дитя девяностых / Kid 90 (2021) WEB-DL [H.264/1080p] Pazl Voice
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подростком в 90-х Солейл Мун Фрай носила с собой видеокамеру везде, куда бы она ни пошла. Она записала сотни часов отснятого материала, а затем заперла его более чем на 20 лет.Производство: США, Appian Way, STX EntertainmentЖанр: документальный, история, биографияРежиссер: Солейл Мун ФрайУчастники: Солейл Мун Фрай, Базз Олдрин, Дэвид АркеттПеревод: двуголосый любительский (Pazl Voice)Язык озвучки: русскийСубтитры: русские (forced + full, Pazl Voice), английскиеПродолжительность: 01:11:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB9F1D49F2E2E3E985F37C8237964CB90505AC8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655880   (203874) от 28.08.2023
-
-Racionais MC’s: с улиц Сан-Паулу / Racionais MC's: From the Streets of Sao Paulo (2022) WEB-DL [H.264/1080p] [Pazl Voice]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203874.jpg" />
-</div>
-
-
-###  Подробнее
-
-История влиятельной хип-хоп группы Racionais MC’s, которая силой своей музыки и злободневных текстов положила начало мощному движению в Бразилии и за ее пределами.Производство: БразилияЖанр: документальный, история, биография, музыкаРежиссер: Джулиана ВисентеУчастники: Мано Браун, Джорджина Элизабет, Ice BlueПеревод: двуголосый любительский (Pazl Voice)Язык озвучки: русскийСубтитры: русские (Эльвира Сименюра / NF), украинские, португальские (бразильские), португальские (бразильские, SDH), английские (forced/full/SDH)Продолжительность: 01:56:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDB267FA8ABADC8BE66C17066BC0D4D58FE61E78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656029   (203847) от 28.08.2023
-
-Музыкальная шкатулка: Зазубренная / Заноза / Ущербная / Music Box: Jagged (2021) WEB-DL [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203847.jpg" />
-</div>
-
-
-###  Подробнее
-
-О канадской певице и композиторе Аланис Мориссетт / Alanis Morissette (Аланис Надин, 01.06.1974) и её легендарном альбоме Jagged Little Pill (1995), который вывел Аланис в высшую лигу. Он стал одним из самых продаваемых дисков в истории. Мориссетт смогла пробить «стеклянный потолок» для многих девушек с гитарами на несколько поколений вперед, а Jagged Little Pill (   Читать дальше...   )Производство: США, HBO Documentary FilmsЖанр: документальный, история, биография, музыкаРежиссер: Элисон КлайменУчастники: Аланис Мориссетт, Никола Гледхилл, Лоррейн АлиПеревод: многоголосый профессиональный (SDI Media), двуголосый любительский (Pazl Voice)Язык озвучки: русскийСубтитры: русские (forced+ful, Pazl Voice), английские (full+SDH)Продолжительность: 01:37:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B8AD9171C437FE908AE40F7E776888E0EC17D73
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,58 @@
+###  Публикация: 1445910   (1033287) от 07.02.2021
+
+Tim Schaufert & Shwin - Sublime - (2017)  [FLAC 2.0|24/44.1|tracks|WEB-DL] <Ambient, Chillstep>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tim Schaufert, Shwin - Sublime (03:55)Жанр: Ambient, ChillstepПродолжительность: 00:03:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B73E03916E6E0982A8E048265142FFEBDDC40568
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445887   (1033278) от 07.02.2021
+
+VA - Pure Retrowave, Vol. 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Huggett & Parallels - Golden (Radio Edit) (3:52)
+02. Moonrunner83 & Josh Dally - Hearts On Fire (Original Mix) (4:02)
+03. Morgan Willis & Kel - Brand New (Original Mix) (5:25)
+04. Paradise Walk - Summer Heat (Original Mix) (4:29)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 01:30:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17BD8A41BADAA1B19631440E81AEC4A0D1F4C3E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445884   (1033271) от 07.02.2021
 
 Tim Schaufert, Subsets, CASHFORGOLD - Cycles (2018) [FLAC 2.0|24/44.1|tracks|WEB-DL] <Ambient>
@@ -6,7 +61,7 @@ Tim Schaufert, Subsets, CASHFORGOLD - Cycles (2018) [FLAC 2.0|24/44.1|tracks|WEB
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033271.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ Tim Schaufert - Temporary (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambi
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033269.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ Olan Mill (Alex Smalley) - Discography 20 Releases (2010-2021) Serein, Facture, 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033233.jpg" />
 </div>
 
 
@@ -87,7 +142,7 @@ Tim Schaufert - am i the only one (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033067.jpg" />
 </div>
 
 
@@ -113,7 +168,7 @@ Tim Schaufert - Footprints (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033065.jpg" />
 </div>
 
 
@@ -139,7 +194,7 @@ Tim Schaufert - Once Moved Too Slow (feat. Yosie) (2020) [FLAC|Lossless|WEB-DL|t
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033060.jpg" />
 </div>
 
 
@@ -165,7 +220,7 @@ Tim Schaufert - Under You (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033059.jpg" />
 </div>
 
 
@@ -191,7 +246,7 @@ Gunmen - The Sound / Messed Up (2017) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033058.jpg" />
 </div>
 
 
@@ -218,7 +273,7 @@ Tim Schaufert - Over This (feat. Yosie) (2020) [FLAC|Lossless|WEB-DL|tracks] <Am
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033053.jpg" />
 </div>
 
 
@@ -244,7 +299,7 @@ Ruutu Poiss - Palav Aed (2021) Wake Dream [FLAC|Lossless|WEB-DL|tracks] <Leftfie
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033043.jpg" />
 </div>
 
 
@@ -273,7 +328,7 @@ VA - Premium Chillout Lounge (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Dow
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033032.jpg" />
 </div>
 
 
@@ -302,7 +357,7 @@ VA - Balearic Lounge & Chill out Classics (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033023.jpg" />
 </div>
 
 
@@ -331,7 +386,7 @@ VA - Top 6 February 2023 Emotional and Uplifting Trance (2023) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033001.jpg" />
 </div>
 
 
@@ -360,7 +415,7 @@ Tim Schaufert - Have My Soul (2018) [FLAC|Lossless|WEB-DL|tracks] <Chillwave, Am
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032995.jpg" />
 </div>
 
 
@@ -386,7 +441,7 @@ David Guetta - Live @ United At Home, Burj Al Arab Dubai, United Arab Emirates (
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032991.jpg" />
 </div>
 
 
@@ -415,7 +470,7 @@ VA - Workout Music for Go Go & Tabledance Training (2023) [MP3|320 Kbps] <Electr
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032964.jpg" />
 </div>
 
 
@@ -444,7 +499,7 @@ A-Reis - Prominences (2023) [FLAC|Lossless|WEB-DL|tracks] <Dreamwave, Newretrowa
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032962.jpg" />
 </div>
 
 
@@ -473,7 +528,7 @@ VA - House Clubhits Megamix 2023 (2023) [MP3|320 Kbps] <Dance, Club, House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032960.jpg" />
 </div>
 
 
@@ -502,7 +557,7 @@ Gemini Tri - Discography 7 Releases (2014-2021) SunSeaSky Productions [FLAC|Loss
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032952.jpg" />
 </div>
 
 
@@ -528,7 +583,7 @@ Chase Dobson (c.db.sn, Cellar Graves) - Discography 11 Releases (2006-2020) Tymp
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032934.jpg" />
 </div>
 
 
@@ -557,7 +612,7 @@ De:tuned Label - 10 Years of De:tuned Series 11 Releases (2020) [FLAC|Lossless|W
 >>Label-Packs
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032931.jpg" />
 </div>
 
 
@@ -586,7 +641,7 @@ Esem - Discography 8 Releases (2001-2020) deFocus, Kahvi Collective [FLAC|Lossle
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032929.jpg" />
 </div>
 
 
@@ -615,7 +670,7 @@ Monolake - Discography 42 Releases (1996-2020) Imbalance Computer Music, DIN, Ch
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032821.jpg" />
 </div>
 
 
@@ -641,7 +696,7 @@ Fuerte & Daveepa - EDM Rewind Mashup Mix 2020 (2021-01-28) [MP3|320 Kbps] <Elect
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032750.jpg" />
 </div>
 
 
@@ -655,64 +710,6 @@ Fuerte played:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:583C042BB158F11D9F34F2BC44EBB2C1721129CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446527   (1032745) от 09.02.2021
-
-VA - Espectrum II, EP2 (2021) AvantRoots [FLAC|Lossless|tracks|Vinyl] <Dub Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pulshar - Accept Fate (05:47)
- 02. Biodub - Unterfluss (08:04)
- 03. Heavenchord - Spacechord (07:32)
- 04. Julian Perez - Wolframio (06:27)Жанр: Dub TechnoПродолжительность: 00:27:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0484B885476A552615D6610B503B381613556543
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446429   (1032741) от 09.02.2021
-
-VA - DNBB Recap 2020 (2020) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. R-Vee - Let It Go (05:28)
-02. Simplification - Sunset (04:29)
-03. Jungie, Mystific - Dare (06:48)
-04. Mystific - The Sun (System & Wise Remix) (04:58)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6BAFFB0D7B1AFD5D481CFED4A8CACB54314950D
 ```
 
 https://mybot314.ru/tekegram_catalog/

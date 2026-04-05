@@ -1,3 +1,57 @@
+###  Публикация: 1112964   (838409) от 11.03.2017
+
+Б.Я. Лурье, П.Дж. Энрайт | Классические методы автоматического управления (2004) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Материал книги основан на классических частотных подходах к проектированию линейных и нелинейных систем. Подробно описаны методы, включая метод динамической нелинейной коррекции, дающие высокие результаты при проектировании высокоточных систем управления для техники связи, электроники, роботов, биомеханических систем и космических аппаратов.
+ Рассмотрено формирование (   Читать дальше...   )Жанр: Автоматика, электроникаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9D97D3FEB3E2BCA42AE664FC8120B9845492143
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113491   (838311) от 11.03.2017
+
+В.Ф. Травень и др. | Задачи по органической химии (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838311.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное учебное пособие подготовлено с учетом новых требований, предъявляемых к содержанию учебных изданий двухуровневой системы высшего образования. Задачи систематизированы по разделам в соответствии с главами учебника «Органическая химия» (Травень В.Ф., М.: Лаборатория знаний, 5-е издание, 2016 г.), который входит в комплект «Учебник—Задачник—Практикум».
+Каждый (   Читать дальше...   )Жанр: ХимияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8922878BF986B788323082D68D5063C06738CB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501122   (837861) от 08.10.2021
 
 В.П. Кубанов и др. | Основы теории антенн и распространения радиоволн. Учебное пособие (2016) [PDF]
@@ -6,7 +60,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837861.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837744.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833040.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832623.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831967.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831847.jpg" />
 </div>
 
 
@@ -168,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831834.jpg" />
 </div>
 
 
@@ -194,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831767.jpg" />
 </div>
 
 
@@ -220,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831677.jpg" />
 </div>
 
 
@@ -247,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831392.jpg" />
 </div>
 
 
@@ -273,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828491.jpg" />
 </div>
 
 
@@ -300,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823226.jpg" />
 </div>
 
 
@@ -326,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823216.jpg" />
 </div>
 
 
@@ -352,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822473.jpg" />
 </div>
 
 
@@ -378,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821884.jpg" />
 </div>
 
 
@@ -404,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819449.jpg" />
 </div>
 
 
@@ -430,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817748.jpg" />
 </div>
 
 
@@ -457,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817606.jpg" />
 </div>
 
 
@@ -483,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817463.jpg" />
 </div>
 
 
@@ -509,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817239.jpg" />
 </div>
 
 
@@ -535,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815064.jpg" />
 </div>
 
 
@@ -561,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814541.jpg" />
 </div>
 
 
@@ -588,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813846.jpg" />
 </div>
 
 
@@ -614,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813518.jpg" />
 </div>
 
 
@@ -626,58 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2C21D4635E518D10007D7CC8217D858D0B73E1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383266   (812974) от 14.05.2020
-
-Е.П. Ильчинская, И.А. Толмачева | Let’s Learn English with Pleasure. English Grammar in Use (2020) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие содержит правила и упражнения по основным разделам грамматики. Основная цель — развитие активных навыков использования грамматических форм, необходимых как в письменной речи, так и для устного общения на английском языке, что позволит в дальнейшем успешно работать в выбранной сфере деятельности, расширить кругозор, совершенствовать профессиональные (   Читать дальше...   )Жанр: Иностранный языкФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C83E581A8C90A8832088A1F6920179ED403636A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197930   (811604) от 09.01.2018
-
-Оуэн Бишоп | Электронные схемы и системы (2017) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга была написана как пособие для начальных курсов по электронике. Ее содержание тщательно согласовано с основными программами образования в Великобритании, но затрагиваемые темы и глубина их рассмотрения были выбраны так, чтобы получившийся материал был доступен для большинства студентов во всем мире. Единственным требуемым знанием являются основы математики (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B54966A2CB3EBFE69CD2419A69D874600E42A9E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1665803   (180987) от 01.10.2023
+
+Javabegin, Тимур Батыршинов | Базы данных и SQL - с нуля до профи - PostgreSQL (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_180987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это 3-ий курс из сборника javabegin
+В данном курсе вы пройдете основы работы с базами данных, которые должен знать любой начинающий прикладной разработчик. Все главные принципы создания таблиц, планирования структуры, загрузки тестовых данных и многое другое. Также внимание уделено оптимизации и анализу для нахождения "узких" мест, из-за чего БД может работать (   Читать дальше...   )Производство: JavabeginЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 08:35:00Реклама: Присутствуют наложения на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E1BBAE92C4DB8BFBD25B64BCB96E045E7A8C33A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593424   (180693) от 26.11.2022
 
 Kalyakin School, Максим Калякин | Дизайн персонажей. Базовый курс (2021) WEB-DL [RU]
@@ -6,7 +33,7 @@ Kalyakin School, Максим Калякин | Дизайн персонажей
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180693.jpg" />
 </div>
 
 
@@ -35,7 +62,7 @@ Gumroad, FlyCat | Cyberpunk Style Girl Blender Modeling (2022) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180687.jpg" />
 </div>
 
 
@@ -61,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180660.jpg" />
 </div>
 
 
@@ -90,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180646.jpg" />
 </div>
 
 
@@ -116,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180636.jpg" />
 </div>
 
 
@@ -142,7 +169,7 @@ CG Cookie, Chris Kuhn | Риггинг транспорта в Blender 2.6 / Rig
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180635.jpg" />
 </div>
 
 
@@ -171,7 +198,7 @@ Stepik, Дмитрий Фокеев | Веб дизайн в Figma Про-уро
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180626.jpg" />
 </div>
 
 
@@ -200,7 +227,7 @@ CG Cookie, Louis du Mont | Создание анимированного жут�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180617.jpg" />
 </div>
 
 
@@ -226,7 +253,7 @@ CG Cookie, Wayne Dixon | Управление камерой в Blender 2.83 и 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180616.jpg" />
 </div>
 
 
@@ -253,7 +280,7 @@ ProductStar, Денис Соболев и др. | Курс "Аналитик д�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180614.jpg" />
 </div>
 
 
@@ -281,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180592.jpg" />
 </div>
 
 
@@ -309,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180585.jpg" />
 </div>
 
 
@@ -338,7 +365,7 @@ Dream&Draw, Анастасия Козлова | Клуб "Мечтай и рис
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180574.jpg" />
 </div>
 
 
@@ -367,7 +394,7 @@ Udemy, Mike X Cohen | Master Math by Coding in Python (2020) WEB-DL [En / En Sub
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180557.jpg" />
 </div>
 
 
@@ -394,7 +421,7 @@ infostart, Александр Кунташов | Системы контроля
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180519.jpg" />
 </div>
 
 
@@ -421,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180495.jpg" />
 </div>
 
 
@@ -447,7 +474,7 @@ FlippedNormals, Emiel Sleegers | Создание научно-фантасти�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180466.jpg" />
 </div>
 
 
@@ -473,7 +500,7 @@ Thinknetica Pro, Антон Давыдов | Dry-rb: что, зачем и ка�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180297.jpg" />
 </div>
 
 
@@ -502,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180269.jpg" />
 </div>
 
 
@@ -528,7 +555,7 @@ Slurm (Слёрм), Николай Колядко | Чистая архитек�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180110.jpg" />
 </div>
 
 
@@ -557,7 +584,7 @@ FreelStep, Александр | Мини-курс по Fiverr (2022) WEB-DL [RU]
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180094.jpg" />
 </div>
 
 
@@ -585,7 +612,7 @@ Slurm (Слёрм), Владислав Килин, Кирилл Борисов |
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180089.jpg" />
 </div>
 
 
@@ -614,7 +641,7 @@ CG Cookie, Kent Trammell | Искусство скульптинга в Blender 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179843.jpg" />
 </div>
 
 
@@ -640,7 +667,7 @@ CG Cookie, Kent Trammell | Моделирование реалистичных �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179743.jpg" />
 </div>
 
 
@@ -667,7 +694,7 @@ FlippedNormals, Chunck Trafagander | Создание тримов для игр
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179607.jpg" />
 </div>
 
 
@@ -680,34 +707,6 @@ Trim sheet или «тримы» — это текстуры для вытяну
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D120EA7B2C14D02A1C5CDD4FC215ADB78AEE298
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593791   (179518) от 28.11.2022
-
-Cryptology School | Cryptology 6.0 (2022) WEB-DL [Пакеты Advanced+Pro] [AD] [RU]
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Получи навыки, опыт и инструменты, которые можно применить на криптовалютном рынке уже сейчас.
-За время обучения, вы научитесь торговать по-новому: быстро адаптировать свою стратегию под переменчивый рынок, эффективно управлять рисками и непрерывно повышать собственную продуктивность.
-Никакой воды и устаревшей информации. Только актуальные знания. Основа нашего обучения (   Читать дальше...   )Производство: Cryptology SchoolЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 63:03:52Реклама: Присутствуют сторонние вставки и наложения
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:983A734D8CC6BA345BCBFD993E25E4631A6A9E37
 ```
 
 https://mybot314.ru/tekegram_catalog/

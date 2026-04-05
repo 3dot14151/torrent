@@ -1,3 +1,29 @@
+###  Публикация: 1447371   (1031802) от 13.02.2021
+
+Groove3, Kenny Gioia | First Song with REAPER (2021) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>Музыка (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Платиновый продюсер / инженер Кенни Джойя шаг за шагом расскажет вам, как сделать вашу первую песню в Cockos REAPER. От ничего? до чего-то потрясающего, Кенни легко и быстро познакомит вас с REAPER. Вы также получаете заготовки REAPER и аудиофайлы, которые использует Кенни, так что вы можете следить за ним.Производство: Groove3Жанр: МузыкаЯзык озвучки: АнглийскийПродолжительность: 02:21:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C52F73FEFB83F0503D5DA49107EBCD965F8437F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447481   (1031774) от 13.02.2021
 
 Rohan Dalvi | User interfaces and motion graphics part 1 (2014) PCRec [En, Ru]
@@ -6,7 +32,7 @@ Rohan Dalvi | User interfaces and motion graphics part 1 (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031774.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031754.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ ProgLib.academy, Вениамин Жиленко, Никита Ларионов 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031750.jpg" />
 </div>
 
 
@@ -91,7 +117,7 @@ ProgLib.academy, Никита Ларионов и др. | Онлайн-курc �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031746.jpg" />
 </div>
 
 
@@ -118,7 +144,7 @@ BrainsCloud, Дмитрий Валак | HTML и CSS с нуля для начи
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031743.jpg" />
 </div>
 
 
@@ -147,7 +173,7 @@ OTUS, Алексей Цыкунов | Администратор Linux. Вирт
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031696.jpg" />
 </div>
 
 
@@ -176,7 +202,7 @@ Matt Kohr | New Lessons Digital Painting with Matt Kohr Part 2 (2014-2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031604.jpg" />
 </div>
 
 
@@ -202,7 +228,7 @@ Matt Kohr | New Lessons Digital Painting with Matt Kohr Part 1 (2014-2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031584.jpg" />
 </div>
 
 
@@ -228,7 +254,7 @@ Matt Kohr | New Lessons Digital Painting with Matt Kohr Part 3 (2014-2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031558.jpg" />
 </div>
 
 
@@ -254,7 +280,7 @@ Gumroad, Dejan Pejacki | Твердотельное моделирование S
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031532.jpg" />
 </div>
 
 
@@ -280,7 +306,7 @@ Gumroad, Danar Worya | Введение в продвинутый дизайн �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031501.jpg" />
 </div>
 
 
@@ -308,7 +334,7 @@ fullstack.io, Amelia Wattenberger | Fullstack D3 Мастер-класс / Fulls
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031336.jpg" />
 </div>
 
 
@@ -337,7 +363,7 @@ Skillbox | Soft Skills for Hard Times (2022) WEB-DL [AD] [RU]
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031311.jpg" />
 </div>
 
 
@@ -365,7 +391,7 @@ Skillshare, Darrin Lile | Создание анимированного перс
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031260.jpg" />
 </div>
 
 
@@ -392,7 +418,7 @@ Deworker Pro, Дмитрий Елисеев | Что есть React: Пишем 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031253.jpg" />
 </div>
 
 
@@ -420,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030830.jpg" />
 </div>
 
 
@@ -447,7 +473,7 @@ Sean Hewitt | Rigging for Games (2020) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030818.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ Udemy | Практика. Premiere Pro создание простого рол�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030817.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030810.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030808.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030790.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ Cornacchia | Школа Фотоарта. Весна ' 2016 (2016) PCRec
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030613.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030596.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030588.jpg" />
 </div>
 
 
@@ -671,7 +697,7 @@ Udemy, Neil Cummings | Complete guide to building an app with .Net Core and Reac
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030586.jpg" />
 </div>
 
 
@@ -683,32 +709,6 @@ Udemy, Neil Cummings | Complete guide to building an app with .Net Core and Reac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC64CDD8B7A8B2B205CCD7A8BECDF69240E6365C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 91068   (1030546) от 18.02.2021
-
-ЦИГУН. Серия Динамические техники Y23 / Ян Цигун стиля Йинг (2007) DVDRip
-
->>Обучающие видеоматериалы
->>Здоровье и Спорт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ян Цигун. Психотронные упражнения накопительного свойства. Серия из шести простых упражнений, которые способствуют накоплению и сбалансированному распределению энергии, необходимой для работы всех систем человеческого организма. Ян Цигун лучше практиковать утром. Необходимое колличество повторений серии определяется персонально. Действие Ян Цигун: информационно-энергетическое (   Читать дальше...   )Жанр: ДокументальныйРежиссер: А.СидерскийАктеры: А.СидерскийПеревод: ОригинальныйПродолжительность: 1:15:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C38EBCA6101E036DF33175E857F021BA7F79D2B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

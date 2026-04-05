@@ -1,29 +1,3 @@
-###  Публикация: 1362456   (944779) от 26.02.2020
-
-OTUS | JavaScript для начинающих программистов (2019) PCRec [H.264/1080p-LQ]
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подготовка к курсам "Fullstack разработчик Javascript", "React.js-разработчик" и "Node.js-разработчик"Производство: Иван АфонченкоЖанр: Программирование, JavaScriptПродолжительность: 06:27:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16089AA4EF80BEF4503D9C57B0E0197F7A4ADC72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362407   (944756) от 26.02.2020
 
 OTUS | Нейронные сети на Python (2019) PCRec [H.264]
@@ -32,7 +6,7 @@ OTUS | Нейронные сети на Python (2019) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944756.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944069.jpg" />
 </div>
 
 
@@ -87,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942811.jpg" />
 </div>
 
 
@@ -116,7 +90,7 @@ Udemy | Web-разработчик 2020 (2019) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941859.jpg" />
 </div>
 
 
@@ -142,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941477.jpg" />
 </div>
 
 
@@ -168,7 +142,7 @@ PentestIT | Корпоративные лаборатории тестирова
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941358.jpg" />
 </div>
 
 
@@ -197,7 +171,7 @@ ITVDN | Видео курс Unity3D Starter 2015 | PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941351.jpg" />
 </div>
 
 
@@ -223,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940811.jpg" />
 </div>
 
 
@@ -251,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939545.jpg" />
 </div>
 
 
@@ -278,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933404.jpg" />
 </div>
 
 
@@ -306,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933226.jpg" />
 </div>
 
 
@@ -334,7 +308,7 @@ Lynda.com | Git обучение основам / Git Essential Training (2012) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932723.jpg" />
 </div>
 
 
@@ -360,7 +334,7 @@ javascript.ru | Интенсив по продвинутой разработк�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931644.jpg" />
 </div>
 
 
@@ -388,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931482.jpg" />
 </div>
 
 
@@ -414,7 +388,7 @@ OTUS | Алгоритмы для разработчиков (2019) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931391.jpg" />
 </div>
 
 
@@ -442,7 +416,7 @@ OTUS | DevOps практики и инструменты (2019) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931387.jpg" />
 </div>
 
 
@@ -470,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929825.jpg" />
 </div>
 
 
@@ -496,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927200.jpg" />
 </div>
 
 
@@ -525,7 +499,7 @@ Pluralsight.com | Синтаксис и операторы JavaScript / JavaScri
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926887.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ OTUS | Архитектор высоких нагрузок (2019) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926626.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ OTUS | Безопасность Linux (2019) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926614.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ OTUS | Разработчик Golang (2019) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926613.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ OTUS | MS SQL Server разработчик (2019) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924924.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ OTUS | Data Engineer (2019) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924922.jpg" />
 </div>
 
 
@@ -684,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923844.jpg" />
 </div>
 
 
@@ -697,6 +671,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90A52AA291A81252335375DF7E8C40191122486E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986667   (923761) от 18.02.2016
+
+Специалист | Linux (Ubuntu FreeBSD). Уровень 3. Создание отказоустойчивых кластерных решений (2011) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923761.jpg" />
+</div>
+
+
+###  Подробнее
+
+UNIX (Linux/FreeBSD) Level 3. Creating a high availability (clustering) solutions
+
+Надежность — один из важнейших параметров современных информационных систем. Финансовые потери, вызванные их простоем, могут многократно превышать стоимость оборудования.
+(   Читать дальше...   )Производство: СпециалистЖанр: АдминистрированиеПродолжительность: 17:32:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:981E3E52CD958731A10FF81356B1B5F549775A2D
 ```
 
 https://mybot314.ru/tekegram_catalog/

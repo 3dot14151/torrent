@@ -1,3 +1,119 @@
+###  Публикация: 1186094   (289526) от 23.11.2017
+
+Purple Disco Machine - Soulmatic (2017) [FLAC|Lossless|WEB-DL|tracks] <House, Nu Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Purple Disco Machine feat. Lorenz Rhode - Music in You (4:31)
+02. Purple Disco Machine - Body Funk (4:17)
+03. Purple Disco Machine & Boris Dlugosch feat. Karen Harding - Love for Days (3:16)
+04. Purple Disco Machine feat. CeeLo Green - Pray for Me (5:42)(   Читать дальше...   )Жанр: House, Nu DiscoПродолжительность: 01:03:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB7B661BEDCF51EB034C6B9601BC3A7CD9233C5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963243   (289448) от 07.12.2015
+
+Matt Pincer - The NRG Collection (2015) [MP3|320 кб/с]<Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. NRG (7:34)
+02. Moorea (By Night Mix) (6:56)
+03. Sunrise in London (Gizi's Radio Edit) (2:55)
+04. Club Nation Anthem (6:13)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:10:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1A69CB374FACAD0CBF5172EF48F3971550321FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963278   (289443) от 07.12.2015
+
+VA - Recoverworld Radio 003 (Mixed by Rich Smith) (2015) [MP3|320 кб/с]<Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manuel Le Saux - Bodhisattva (Original Mix) (6:38)
+02. Liam Wilson & Grez Turner - The Optimist (Original Mix) (8:00)
+03. Billy Rutts - Alpha Male (Original Mix) (7:20)
+04. Lost Man - Destination Nowhere (Original Mix) (7:25)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:13:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8785FB0C1FB8261F6DEC9E4D85B84C201AD96CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963255   (289434) от 07.12.2015
+
+VA - Techno Club Vol. 48 (Mixed By Talla 2XLC & Menno De Jong) (2015) [MP3|320 кб/с]<Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Menno De Jong - Sunleaf (Intro) (1:25)
+02. Neelix - People (Original Mix) (6:46)
+03. Transwave - Land Of Freedom (Liquid Soul Remix) (6:35)
+04. Menno De Jong - Abhyasa (Alex Di Stefano Remix) (4:58)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:18:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E55677CC85B035867CE70A9C2FC3C1122144D313
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263130   (289422) от 18.11.2018
 
 Jean-Michel Jarre - Equinoxe Infinity (2018) Columbia [FLAC|Lossless|tracks+.cue] <Ambient, New-Age, Experimental>
@@ -6,7 +122,7 @@ Jean-Michel Jarre - Equinoxe Infinity (2018) Columbia [FLAC|Lossless|tracks+.cue
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289422.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Total Circuits (2015) [MP3|320 кб/с]<Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289224.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Techno Club Vol. 49 (Mixed By Talla 2XLC) (2015) [MP3|320 кб/с]<Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289222.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Late Night Acoustic Selects (2015) [MP3|320 кб/с]<Acoustic, Chillout, In
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289069.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Jutonish Reload (Mixed by Sonic Mine) (2015) [MP3|320 кб/с]<Pumping Hous
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289065.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Minimal Love (2015) [MP3|320 кб/с]<House, Tech House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288948.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Muschel House Lounge Vol. 2 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288600.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Mountain Sound The Lounge Of Davos (2016) [MP3|320 Kbps] <Chillout, Downtem
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288599.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Bring Your Soul Back Vol. 1 - Chill Out Selection (2016) [MP3|320 Kbps] <Ba
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288598.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - 25x Ibiza Chillout Attack, Vol. 15 (2016) [MP3|320 Kbps] <Downtempo, Chillo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288597.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Winterzauber Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288595.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Fashion Calling Chillout (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288594.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - Mountain Sound The Lounge Of Aspen (2016) [MP3|320 Kbps] <Chillout, Lounge,
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288592.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - Chillax and Stand with Me (2016) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288591.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ VA - Bring Your Soul Back Vol. 2 - Chill Out Selection (2016) [MP3|320 Kbps] <Ba
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288568.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - Pacific Lounge Collection (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288564.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ VA - Classy Dining Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288556.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ VA - Chilling Process Vol.06 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288373.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ VA - Pure Chill & Ambient Vol.09 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288369.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ VA - Pure Chill & Ambient Vol.10 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288364.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - Drivin Moods - 15 Dynamic Tunes For The Car - Moods Series Vol 4 (2017) [MP
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288362.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Steve Brian - Enhanced Progressive 300 (2017) [MP3|320 Kbps] <Trance,Progressive
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288361.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Steve Brian - Enhanced Progressive 300 (2017) [MP3|320 Kbps] <Trance,Progressive
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5291800B26415A7F3C2EC6A991B99EA5D32CE34E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186251   (288360) от 24.11.2017
-
-VA - Black Hole Trance Music 11-17 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andy Duguid - C.H.I.C. (extended mix)
-02. Myon - Albion (Mitiska extended remix)
-03. Sheridan Grout & Diana Leah - Broken To Pieces (extended mix)
-04. Novaspace - Revelation (extended mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:44:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CADE3A915D4AEDE67B21FBA00B4840F6FB14602
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263610   (288266) от 19.11.2018
-
-Martin Tolosa - Emphasis (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emphasis (Original Mix)                                         [08:43]
-02. Emphasis (Torby Jay Remix)                                      [06:27]
-03. Sunbright (Original Mix)                                        [08:03]
-04. Sunbright (Julian Nates Remix)                                  [07:19](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:616C43EFB23F5535AB360FBC4649D1510587DA5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263579   (288264) от 19.11.2018
-
-Agustin Vitale - S.O.S. (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. S.O.S. (Original Mix)[08:10]
-02. S.O.S. (GSEP Remix)[09:00]
-03. S.O.S. (Gabriel Amato Remix)[07:25]
-04. Wasnt Waiting For This (Original Mix)[07:59](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7960FCD7050B1493CBD9922EF1C777A4D0535000
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263589   (288263) от 19.11.2018
-
-Alec Araujo and Cryptic Realms - Katharsys (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katharsys (Original Mix)                                        [08:40]
-02. Katharsys (Jackie Mayden Remix)                                 [07:40]
-03. Katharsys (NikoChristo and Synas Remix)                         [09:06]
-04. Katharsys (Ricardo Piedra Remix)                                [07:52]Жанр: Progressive HouseПродолжительность: 00:33:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB695770FB1BFE1628DCA26C7AA6602B9D42F204
 ```
 
 https://mybot314.ru/tekegram_catalog/

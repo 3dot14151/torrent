@@ -1,3 +1,56 @@
+###  Публикация: 341467   (661032) от 25.05.2011
+
+DiRT 3 [Multi5\-] 2011 | SKIDROW
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_661032.jpg" />
+</div>
+
+
+###  Подробнее
+
+DiRT 3 - гоночный автосимулятор от студии Codemasters. Colin McRae: DiRT 3 похвастается более, чем пятью десятками автомобилей разных лет, охватывающих пятьдесят последних лет автоспорта. В игре будут присутствовать знаменитые модели прошлых лет и настоящего времени. В DiRT 3 представлено больше машин, территорий, трасс и соревнований, чем в предыдущих играх серии. Более пяти десятков лучших раллийных автомобилей, участвовавших в гонках за последние пятьдесят лет; вдвое больше треков, чем в проекте 2009 года; соревнования на любой вкус; рейтинги, награды и достижения — в DiRT 3 каждый может стать настоящим профессионалом виртуального ралли и сделать блестящую карьеру гонщика.Тип издания: ЛицензияЖанр: Racing (Cars) / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Немецкий, Француский, Испанский, Итальянский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483271   (660924) от 21.06.2012
+
+Борджиа / The Borgias (2012) HDTVRip [720p] (сезон 2, серии 1-10 из 10) LostFilm
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_660924.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре повествования - знаменитое семейство Борджиа, достигшее вершин власти в Италии эпохи Возрождения.
+Слоган сериала: «Секс. Власть. Убийство. Аминь.» - полностью характеризует безжалостную политику и сексуальную распущенность, которыми заполнились в истории папа римский Александр VI, в миру Родриго Борджиа, и члены его семьи.Жанр: драма, криминал, историяРежиссер: Нил Джордан, Кари Скогланд, Джон Мэйбери и др.Актеры: Джереми Айронс, Франсуа Арно, Холлидей Грейнджер, Питер Салливан, Шон Харрис, Джоэнн Уэлли, Лотте Вербеек, Колм Фиор, Вернон Добчефф, Дэвид Оукс и др.Перевод: Многоголосый закадровый, профессиональныйПродолжительность: 10 ~ 00:50:00.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138536   (660879) от 01.06.2017
 
 Intel выпустит 18-ядерный процессор
@@ -6,7 +59,7 @@ Intel выпустит 18-ядерный процессор
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_660879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_660879.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ OpenVPN 2.5.6 Final [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660840.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Vanquish (2017) [Multi] (1.0/upd1) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660797.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ HideGuard VPN 2.6.0.34 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660792.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660686.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ NASA отправит на Марс вертолет
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_660655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_660655.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660589.jpg" />
 </div>
 
 
@@ -188,7 +241,7 @@ The Walking Dead: A New Frontier (2016) [Ru/Multi] (1.0) License GOG [Episode 1-
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659702.jpg" />
 </div>
 
 
@@ -214,7 +267,7 @@ The Surge (2017) [Ru/Multi] (1.0.33503/dlc) SteamRip Let'sPlay
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659701.jpg" />
 </div>
 
 
@@ -240,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659698.jpg" />
 </div>
 
 
@@ -266,7 +319,7 @@ Kaspersky World 1.3.5.101 [Multi / Rus]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_659694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_659694.jpg" />
 </div>
 
 
@@ -301,7 +354,7 @@ Cent Browser 3.4.3.38 + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659575.jpg" />
 </div>
 
 
@@ -327,7 +380,7 @@ Microsoft® Windows® 10 Ent 1803 RS4 x86-x64 RU-en-de-uk by OVGorskiy® 05.2018
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659527.jpg" />
 </div>
 
 
@@ -353,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659505.jpg" />
 </div>
 
 
@@ -380,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_658652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_658652.jpg" />
 </div>
 
 
@@ -407,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658646.jpg" />
 </div>
 
 
@@ -435,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658631.jpg" />
 </div>
 
 
@@ -461,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658542.jpg" />
 </div>
 
 
@@ -487,7 +540,7 @@ S.K.I.L.L. - Special Force 2 (2013) [Ru/Multi] (1.0.50730.0) License
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658540.jpg" />
 </div>
 
 
@@ -513,7 +566,7 @@ True Launch Bar 6.0 [En/Ru] (x32/x64) + Все плагины
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_658526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_658526.jpg" />
 </div>
 
 
@@ -540,7 +593,7 @@ BOOTICE v2012.05.20 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_658519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_658519.jpg" />
 </div>
 
 
@@ -569,7 +622,7 @@ Tomb Raider + Lara Croft Anthology (1996-2015) [Ru/Multi] Repack R.G Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657520.jpg" />
 </div>
 
 
@@ -595,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_657433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657433.jpg" />
 </div>
 
 
@@ -621,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_657424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657424.jpg" />
 </div>
 
 
@@ -632,58 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514592   (657401) от 24.06.2012
-
-Windows 7 SP1 x64 Plus WPI By StartSoft v 21.06.002.12 [Русский]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_657401.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка создана на базе оригинального образа ru_Windows7_Ultimate_SP1_x64_dvd_618249 и в своем составе имеет три редакции x64bit с выбором по ходу установки операционной системы. Русские названия редакций переименованы на английские, во все редакции интегрированы  важные и некоторые необязательные обновления по 21 июня, отключены контроль учетных записей и служба по совмещению программ, имеется возможность смены экрана приветствия и управления размерами стрелок на ярлыках. Редакция Домашняя расширенная посвящена рок музыканту и певцу Elvis Presley и имеет соответственно такой же установочный визуальный стиль. В этой редакции мелодия запуска виндовс не менялась. Профессиональная редакция создана к 70летию рок музыканта и певца Пола Маккартни и имеет установочный визуальный стиль в стиле рок группы The Beatles. По ходу настройки этой редакции изменена мелодия запуска виндовс в стиле The Beatles. Максимальная редакция создана в стиле Classic @ Hard Rock, в этой редакции, так же изменена мелодия запуска виндовс. ( Отрывок (   Читать дальше...   )Название программы: Windows 7 SP1 x64 Plus WPI By StartSoft v21.06.002.12Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902847   (657321) от 31.05.2015
-
-Робот по имени Чаппи / Chappie (2015) BDRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чаппи – высокоинтеллектуальный робот, созданный талантливейшим ученым. В отличие от тысяч аналогов, Чаппи может не только мыслить и развиваться, но и чувствовать, страдать, надеяться и мечтать. Одним словом, это – человек, только с большими интеллектуальными и физическими способностями и большим объемом памяти. Сейчас Чаппи – эдакий ребенок, который учится, шутит, (   Читать дальше...   )Производство: Мексика, США, ЮАР / Columbia Pictures, Alpha Core, Genre FilmsЖанр: Фантастика, Боевик, ТриллерРежиссер: Нил БломкампАктеры: Шарлто Копли, Дев Патель, Ниндзя, Йоланди Фиссер, Хосе Пабло Кантильо, Хью Джекман, Сигурни Уивер, Брэндон Оре, Джонни Селема, Андерсон КуперПеревод: Дублированный (iTunes)Язык субтитров: Русский, Украинский, АнглийскийПродолжительность: 02:00:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE99C41CEC3476B78C875E85E7DEF600BDA6FA7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

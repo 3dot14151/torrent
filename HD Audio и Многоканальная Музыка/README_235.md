@@ -1,32 +1,3 @@
-###  Публикация: 1762941   (35839) от 28.11.2024
-
-Benjamin Croft - We Are Here to Help (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carter Arrington - Age of Magrathea (7:14)
-02. Carter Arrington - We Are Here to Help (5:10)
-03. Mike Stern - You Made Me Miss (6:48)
-04. Lynsey Ward - Caught in the Flypaper (6:15)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60114C3E90476F1C152C1D074F28FE54E09F2032
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1762957   (35836) от 28.11.2024
 
 We Are The Catalyst - Friction (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt Metal, Alt Rock, Electronic>
@@ -35,7 +6,7 @@ We Are The Catalyst - Friction (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35836.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Ginger Evil - Hands Move to Midnight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35833.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ David Rose - In Your Embrace (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35827.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ AC/DC - Back In Black (1980) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35777.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Various Artists - Eric Clapton's Crossroads Guitar Festival 2023 (Live) (2023) 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35723.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ The Smoothies - Variations of Autumn (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35631.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Cliff Richard - Exclusive (2024) Remastered, 2024, DMI [FLAC 24/44.1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35619.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Lara Fabian - Je suis la (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Fren
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35608.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Alphaville - Afternoons in Utopia (1986) Remaster, 2021, WM Germany[FLAC 24/96|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35516.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Megan McDuffee - Crimson Legacy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Sy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35416.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ CYN - Valley Girl (2024) Extended [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Euro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35413.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Il Volo - Ad Astra (2024) International Edition, 2024, Masterworks [FLAC 24/44.1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35408.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Little Glee Monster - Break Out of Your Bubble (2024) [FLAC 24/96|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35317.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Clannad - Studio Albums (15 releases) (1973-2020) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35264.jpg" />
 </div>
 
 
@@ -443,7 +414,7 @@ Denigrate - To the Goddess Unknown (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35216.jpg" />
 </div>
 
 
@@ -472,7 +443,7 @@ Duran Duran - Evil Woman (2024) The Remixes, 2024, BMG [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35134.jpg" />
 </div>
 
 
@@ -501,7 +472,7 @@ VA - Golden Hitss  III. Классика Зарубежной Эстрады (20
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35125.jpg" />
 </div>
 
 
@@ -530,7 +501,7 @@ Virgin Steele - Studio Albums (15 releases) (1982-2023) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35101.jpg" />
 </div>
 
 
@@ -559,7 +530,7 @@ Xandria - Studio Albums (10 releases) (2003-2024) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35046.jpg" />
 </div>
 
 
@@ -588,7 +559,7 @@ Roxette - Crash! Boom! Bang! 30th Anniversary Edition (1994) Reissue, 2024, Warn
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35021.jpg" />
 </div>
 
 
@@ -617,7 +588,7 @@ Dua Lipa - Dua Lipa Live from the Royal Albert Hall (2024) [FLAC 24/48|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34890.jpg" />
 </div>
 
 
@@ -646,7 +617,7 @@ Sexual Music Collection - Jazz SEXtet: Sexy Sounding Jazz for Couples in Love (2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34889.jpg" />
 </div>
 
 
@@ -675,7 +646,7 @@ the Gathering - Studio Albums (14 releases) (1992-2022) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34821.jpg" />
 </div>
 
 
@@ -704,7 +675,7 @@ VA - Шлягеры Уходящего Века (2000) [FLAC 2.0|48/24|image +.c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34707.jpg" />
 </div>
 
 
@@ -733,7 +704,7 @@ Karfagen - Constellations (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progresive
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34613.jpg" />
 </div>
 
 
@@ -747,6 +718,35 @@ Karfagen - Constellations (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progresive
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4296FEDAE794C8288F29A484A6B5BDA4CB9D3CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765085   (34612) от 10.12.2024
+
+Babbba - Two to Tango (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz, International Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whispering dreams (3:06)
+02. Stepping lightly (3:02)
+03. Spin around (2:47)
+04. Wrap around (1:58)(   Читать дальше...   )Жанр: Smooth Jazz, International PopПродолжительность: 00:58:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA403E5A1B10D6F5CBC0C7711D33330900B287AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

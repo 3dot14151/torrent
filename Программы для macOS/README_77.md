@@ -1,3 +1,57 @@
+###  Публикация: 1146180   (616198) от 28.06.2017
+
+Paste 2.2.3 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Paste — менеджер истории буфера обмена для Mac
+Paste хранит всё, что вы когда-либо копировали в буфер обмена, и позволяет воспользоваться историей копирования, когда она вновь понадобится. Работает – притаившись в фоном режиме системы и, следит за историей скопированных данных. Готов в любой момент предоставить на выбор нужный фрагмент из истории буфера обмена.
+ (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27 июня 2017Разработчик: WirelessheadsПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FF37394D08D757D06AE5B1424959289AAA13F4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911620   (615545) от 23.06.2015
+
+ArchiCAD 19 (3003) [INT]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производительность ArchiCAD 19 стала еще выше! Больше не надо ждать обновления видов и проекций. В ArchiCAD 19 надежность 64-разрядных систем и многопроцессорные вычисления дополнены первой в индустрии BIM технологией фоновой обработки данных. Молниеносная скорость работы и быстрота обновления видов делают ArchiCAD бесспорным лидером среди всех существующих BIM-решенийТип издания: MacOS X SoftwareРелиз состоялся:  18 июня 2015Разработчик: GRAPHISOFTПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E036D47FB5B149D6B6AA69051F02E136CBDC1005
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1545421   (614795) от 19.04.2022
 
 Araxis Merge Pro Edition 2022.5706 [En]
@@ -6,7 +60,7 @@ Araxis Merge Pro Edition 2022.5706 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614795.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ Graphic Styles 2.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614228.jpg" />
 </div>
 
 
@@ -61,7 +115,7 @@ Set for MS Word 2.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614068.jpg" />
 </div>
 
 
@@ -89,7 +143,7 @@ Excentro 1.9.26 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613312.jpg" />
 </div>
 
 
@@ -115,7 +169,7 @@ Pure Music 3.0.6 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613252.jpg" />
 </div>
 
 
@@ -143,7 +197,7 @@ Final Draft 12 v12.0.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613156.jpg" />
 </div>
 
 
@@ -171,7 +225,7 @@ WiFi Signal: Status Monitor  4.4.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613040.jpg" />
 </div>
 
 
@@ -197,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613019.jpg" />
 </div>
 
 
@@ -223,7 +277,7 @@ Adobe Character Animator 2022 v22.3 U2B [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612783.jpg" />
 </div>
 
 
@@ -250,7 +304,7 @@ Plisterine 3.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612021.jpg" />
 </div>
 
 
@@ -279,7 +333,7 @@ Raya Pro 3.0 - panel for Adobe Photoshop [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611942.jpg" />
 </div>
 
 
@@ -308,7 +362,7 @@ BusyContacts 1.6.6 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611545.jpg" />
 </div>
 
 
@@ -335,7 +389,7 @@ Simplify 3.4 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610994.jpg" />
 </div>
 
 
@@ -362,7 +416,7 @@ OS X Server 5.1.7 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609760.jpg" />
 </div>
 
 
@@ -390,7 +444,7 @@ Movavi Media Player 2.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605078.jpg" />
 </div>
 
 
@@ -416,7 +470,7 @@ Movavi Video Editor 5 Plus 5.4.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604983.jpg" />
 </div>
 
 
@@ -442,7 +496,7 @@ PDF Decrypter Pro 2.2.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604852.jpg" />
 </div>
 
 
@@ -469,7 +523,7 @@ uTorrent 1.8.7 (42417) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604690.jpg" />
 </div>
 
 
@@ -495,7 +549,7 @@ Compress Any Video 3.3.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604582.jpg" />
 </div>
 
 
@@ -524,7 +578,7 @@ Sublime Merge Build 2071 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604426.jpg" />
 </div>
 
 
@@ -550,7 +604,7 @@ miCal - the missing calendar 1.0.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604395.jpg" />
 </div>
 
 
@@ -579,7 +633,7 @@ Convert to MP4 PRO 2.0.2 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604338.jpg" />
 </div>
 
 
@@ -608,7 +662,7 @@ GoodNotes 5 v5.9.8 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604324.jpg" />
 </div>
 
 
@@ -635,7 +689,7 @@ BitMedic AntiVirus & Malware Security 2.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604138.jpg" />
 </div>
 
 
@@ -648,61 +702,6 @@ BitMedic AntiVirus & Malware Security был разработан специал
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D430F7A47971EC40062FBC118A528A8B02AEDB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546985   (603978) от 26.04.2022
-
-RPN Calculator 4.6.8 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603978.jpg" />
-</div>
-
-
-###  Подробнее
-
-При помощи этого приложения вы сможете воспользоваться всеми функциями научного калькулятора и функцией RPN. Благодаря режиму RPN вы сможете вычислять суммы с большой скоростью, что значительно сокращает набор текста.Тип издания: macOS SoftwareРелиз состоялся: 17.04.2022Разработчик: © 2021 Benjamin PisanoПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский и Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D935F8AE9B72B1464D5AFB5969572EE39A2E2D42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547115   (603976) от 26.04.2022
-
-Trim Any Video 2.0 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обрезать любое видео - без кодирования. Без потери качества.
-Супер прост в использовании. Всего 3 шага
-1. Перетащите любое видео.
-2. Укажите время начала и время окончания с помощью перетаскиваемого ползунка диапазона.(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.06.2020Разработчик: © www.nacentApps.comПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38FD81B3FF4D753C49847535BD918FE495654D97
 ```
 
 https://mybot314.ru/tekegram_catalog/

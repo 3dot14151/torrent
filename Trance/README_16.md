@@ -1,3 +1,61 @@
+###  Публикация: 1218434   (723408) от 09.04.2018
+
+VA - Interfered Vol.I (Mixed by Enlusion) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enlusion - Interfered Volume I (continuous DJ mix)
+02. Neil Soun - Bending Light (intro mix)
+03. Aquya - Ataraxia (radio edit)
+04. Vitaly Shturm - Sensoria (radio edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:15:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:586EE965B2790E82696C87B3B30A95274E997413
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218397   (723402) от 09.04.2018
+
+VA - Nothing But. Total Trance Selections Vol. 02 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phillip J feat. Kim Casandra - Release Me (4 eYe Remix)
+02. Anna Lee - Fjords (2017 Rework) (Original Mix)
+03. Atherium - Sand (In The Hourglass) (Original Mix)
+04. Arman Bas - Iris (Ahmed Romel Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:35:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C57BBF998C26429993328D30C5546875440F8182
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285217   (722774) от 25.02.2019
 
 VA - Uplifting Only: Orchestral Trance Year Mix 2018 (Mixed By Ori Uplift) (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -6,7 +64,7 @@ VA - Uplifting Only: Orchestral Trance Year Mix 2018 (Mixed By Ori Uplift) (2019
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722774.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Dark Sessions 044 (Mixed by Chris Hampshire) (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721735.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - HTE Hard Trance Europe (Mixed by Space Raven & Nick The Kid) (2018) [MP3|32
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721728.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Dark Club Vol.4 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719642.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - The Ultimate Euphoric Trance Vol. 9 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719640.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Pure Energy Records Vol. 1 (Incl.Exclusive Mixed by Trance Arts) (2018) [MP
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719063.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Auralization (Mixed by OzzyXPM) (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719052.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Uplifting Trance Sessions Vol.12 (2019) [MP3|320 Kbps] <Trance, Uplifting T
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719050.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Trance Maschine Vol.1 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718998.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Alter Ego Trance Vol. 22 (Compiled & Mixed By Jonas Hornblad) - (2018) [MP3
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717673.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Nitrous Oxide - Avalon (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717064.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Driftmoon - Remember the Night (Live at Epic Prague, December 2018) (2019) 
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716939.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Markus Schulz - Global DJ Broadcast: Top 20 April (2018) [MP3|320 Kbps] <Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715857.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Black Hole Trance Music 04 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715847.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Trance Euphoria Vol.3 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713108.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Gigi D'Agostino - The Greatest Hits (1996/2007) Compilation, Reissue [MP3|320 Kb
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711155.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - The Best Of JamX & De Leon (Edits & Album Specials) (2018) [MP3|320 Kbps] <
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708239.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - From euphonic to Russia (mixed by Kyau vs. Albert) (2006) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707305.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Trance Spring Essentials (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706193.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Nothing But... The Future of Trance Vol. 06 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706192.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Trancespotting Vol.5 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705419.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Recoverworld Radio 019 (Mixed by Para X) (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704511.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Spring Sampler Vol.01 (2018) [MP3|320 Kbps] <Trance,Progressive House>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704509.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Silk Music Pres. Trance Treasures 10 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704503.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Silk Music Pres. Trance Treasures 10 (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0B86045C422D5F22F947FCB327E10F7D230E6F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220919   (700672) от 21.04.2018
-
-VA - We Are Trance April (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swen Van Der Endt - Gisborne (Extended Mix)
-02. Cosmic Gate - Ar (Extended Mix)
-03. Remarq - Desiderium (Extended Mix)
-04. Julie Thompson - Only You (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:59:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:440C3DCA40998E88AC643DD4EEE3766B767E0797
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220927   (700526) от 21.04.2018
-
-VA - Markus Schulz presents In Bloom Volume One (2018) (EP) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Markus Schulz & Jes - Calling for Love (Original Mix)
-02.Markus Schulz & Emma Hewitt - Safe from Harm (Club Mix)
-03.Andy Moor & Adina Butar - Wild Dream (Original Mix)
-04.Dave Neven & Ellie White - Try for Me (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:20:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20B6818F69AC97EB468CB7AC3A5CD12AA278E2AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

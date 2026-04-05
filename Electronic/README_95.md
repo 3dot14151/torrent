@@ -1,3 +1,61 @@
+###  Публикация: 1105696   (875075) от 18.02.2017
+
+VA - Psychedelic Goa Vol.2 (2017) [MP3|320 Kbps] <Psy Trance, Goa>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Elektrik Boy - Sarcastic Being  8:03
+02.  Freny - Super Psychedelic Funky Love  7:58
+03.  Acid Trooper - Our Reason  7:21
+04.  Midiride - Sonic Prohpecis  7:22(   Читать дальше...   )Жанр: Psy Trance, GoaПродолжительность: 03:31:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D20058F454C90F280DF3E0DF2FBC4909A59643E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105451   (875055) от 18.02.2017
+
+Garrison - Unrealistic (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875055.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Life (04:45)
+2. Forest Night (05:22)
+3. East Wind (06:32)
+4. Submarine (04:06)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:39:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:843C6FD28B97AD4EE8AD40762C82F70A1DAE447F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1105707   (874987) от 18.02.2017
 
 Tears For Fears - The Seeds Of Love (1989) [FLAC|Lossless|image + .cue] <New Wave, Synthpop>
@@ -6,7 +64,7 @@ Tears For Fears - The Seeds Of Love (1989) [FLAC|Lossless|image + .cue] <New Wav
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874987.jpg" />
 </div>
 
 
@@ -36,7 +94,7 @@ VA - Armin van Buuren: A State Of Trance 800 (2017) [FLAC|Lossless|tracks] <Tran
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874873.jpg" />
 </div>
 
 
@@ -65,7 +123,7 @@ Robert Rich - Echo Of Small Things (2005) Soundscape [FLAC|Lossless|tracks+.cue]
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874713.jpg" />
 </div>
 
 
@@ -94,7 +152,7 @@ VA - Erotic Piano Music (2021) [FLAC|Lossless|WEB-DL|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874633.jpg" />
 </div>
 
 
@@ -123,7 +181,7 @@ Brainwaltzera - Discography 14 Releases (2016-2020) Analogical Force, Film, Furt
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874571.jpg" />
 </div>
 
 
@@ -149,7 +207,7 @@ Andrea - Ritorno (2020) Ilian Tape [FLAC 2.0|44.1/24|tracks|WEB-DL] <Breakbeat, 
 >>Experimental, Industrial (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874312.jpg" />
 </div>
 
 
@@ -178,7 +236,7 @@ VA - Mindfulness Answer Chilltime (Lounge Selection) (2016) [MP3|320 кб/с] <L
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873905.jpg" />
 </div>
 
 
@@ -207,7 +265,7 @@ VA - Cruise & Chill Vol.1 (Summer Lounge Tunes) (2017) [MP3|320 Kbps] <Downtempo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873826.jpg" />
 </div>
 
 
@@ -236,7 +294,7 @@ Forrest Fang - Following The Ether Sun (2017) [MP3|320 Kbps] <Ambient>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873823.jpg" />
 </div>
 
 
@@ -265,7 +323,7 @@ Who Ha - Synthwave Belongs In A Museum (2016) EP [FLAC|Lossless|WEB-DL|tracks] <
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873768.jpg" />
 </div>
 
 
@@ -294,7 +352,7 @@ Pet Shop Boys - The Pop Kids (Remixes) (2016) [FLAC|Lossless|WEB-DL|tracks] <Pro
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873764.jpg" />
 </div>
 
 
@@ -323,7 +381,7 @@ VA - Cappuccino Lounge Vol.2 (Relaxed Coffee Tunes) (2017) [MP3|320 Kbps] <Downt
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873758.jpg" />
 </div>
 
 
@@ -352,7 +410,7 @@ VA - Naked Lounge Vol.2: Erotic and Soulful Chill Out Music (2017) [MP3|320 Kbps
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873756.jpg" />
 </div>
 
 
@@ -381,7 +439,7 @@ David August - Times (2013) [FLAC|Lossless]<Tech House, Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873464.jpg" />
 </div>
 
 
@@ -410,7 +468,7 @@ VA - One Synth (2018) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Synth>
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873169.jpg" />
 </div>
 
 
@@ -439,7 +497,7 @@ Deepsky - Back Catalog 1994-1998 (2006) [FLAC|Lossless|WEB-DL|tracks] <Trance, P
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872984.jpg" />
 </div>
 
 
@@ -468,7 +526,7 @@ Cyberman - Time Travelers (2013) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Space
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872845.jpg" />
 </div>
 
 
@@ -497,7 +555,7 @@ Ray Orion - Return To The Battle Line (2020) [FLAC|Lossless|WEB-DL|tracks] <Synt
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872832.jpg" />
 </div>
 
 
@@ -526,7 +584,7 @@ Deep Wave - Chillout Piano (2020) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillou
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872830.jpg" />
 </div>
 
 
@@ -555,7 +613,7 @@ DJ Dado - DJ Dado (2020) [MP3|320 Kbps] <Trance, Classic Trance, Downtempo, Drea
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872561.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ VA - Aleph Zero Records presents: Compilations Collection - 6 Releases (2004-201
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872336.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ Scooter - I Want You To Stream! (Live) (2020) [MP3|320 Kbps] <Techno, Trance, Ha
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872327.jpg" />
 </div>
 
 
@@ -642,7 +700,7 @@ VA - Sonica Recordings presents: Compilations Collection - 11 Releases (2005-202
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872267.jpg" />
 </div>
 
 
@@ -671,7 +729,7 @@ Neroche - The Crooked Mile (2014) [MP3|~225 кб/с (V1)] <Abstract, Trip Hop, I
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872090.jpg" />
 </div>
 
 
@@ -685,64 +743,6 @@ Neroche - The Crooked Mile (2014) [MP3|~225 кб/с (V1)] <Abstract, Trip Hop, I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8E36B77F0F24178C5D19D5D47A8C1179E6D9047
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106643   (871804) от 20.02.2017
-
-VA - Midnight Lounge Vol.27 (Eternity Lounge) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Der Luchs - Locomotion  4:45
-02.  Francesco Gazzara - Point Break  2:49
-03.  Giulio Del Prato - Good Look  3:49
-04.  M.Gangalanti - Forme  2:18(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:05:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:909FF63FC9984D604FB14067E4B541D6B5460B59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106743   (871794) от 20.02.2017
-
-VA - Chillout Pool Lovers (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chiffre 100 - Revelations
-02. Performative Mode - Please Wait
-03. Chillelektro - Cabo de Creus
-04. Arrojas - Cala de Piedras(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:01:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22251F00C6E3F552C6C97EE96DC9E0EF053448BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

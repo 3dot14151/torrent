@@ -1,3 +1,55 @@
+###  Публикация: 1016696   (769515) от 15.05.2016
+
+Андрей Воронин | Последний самурай (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769515.jpg" />
+</div>
+
+
+###  Подробнее
+
+Читатель снова встретится с любимым героем серии «Инструктор» – бывшим капитаном отряда специального назначения ГРУ Илларионом Забродовым. Инструктор выдвигает свою, совершенно неожиданную версию событий 11 сентября в Америке. Он отправляется на японские острова и расследует новое запутанное дело.Жанр: БоевикПродолжительность: 14:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F07919D10BBDD8E703350BF85D5D93FE28F7162A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125164   (768680) от 14.04.2017
+
+Владимир Мегре | Пространство Любви (2013) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия книг объединена общей сюжетной линией; повествование ведётся от лица автора. Главной героиней является Анастасия — женщина, живущая в сибирской тайге. Все основополагающие идеи книг изложены от её лица. Основной идеей книг является идея создания «родовых поместий». В книге «Пространство Любви» Мегре едет снова к Анастасии, где встречает своего ребёнка и знакомится (   Читать дальше...   )Жанр: ЭзотерикаПродолжительность: 08:34:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:277D598C523AF6BCCD7DA23B27790C41A2110CF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1393161   (768289) от 29.06.2020
 
 Ричард Брэнсон | К черту «бизнес как всегда» (2020) [MP3]
@@ -6,7 +58,7 @@
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768289.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767323.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765761.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765363.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765268.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761221.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761217.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759286.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759078.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758622.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757558.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756024.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755829.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753535.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753054.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752190.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752187.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752092.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751966.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751870.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751862.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747902.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747898.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747777.jpg" />
 </div>
 
 
@@ -623,59 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7824C745BA5D7606518AE76FE206FC6B05C4CE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019777   (746901) от 25.05.2016
-
-Сергей Волконский | Быт и бытие (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Князь Волконский – величайшая историческая личность. Он был и директором Императорского театра, и критиком, и историком культуры, и даже создателем актёрской школы. В 1921 году он эмигрировал из России и стал директором консерватории в Париже. Большое место в мемуарах «Быт и бытие» автор уделил описаниям своих путешествий и своим друзьям. Самым близким другом для (   Читать дальше...   )Жанр: Философия, эссе, искусствоведениеПродолжительность: 06:13:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21A764CF1AC678BB2B97A22F34DC02A10517ED40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020127   (746895) от 25.05.2016
-
-Юрий Воронов | Страницы истории денег (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга, которую вы держите в руках, — не пособие по нумизматике. В ней обсуждаются преимущественно теоретические, политэкономические проблемы денег и денежного обращения, а это — занятие не менее увлекательное, чем собирание старых монет.
-Задача автора — показать разнообразие мира денег и попытаться вместе с читателем увидеть, что скрывается за всеми этими блестящими, (   Читать дальше...   )Жанр: Познавательная литератураПродолжительность: 08:31:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2086F23B065FC6B436B395B87D41CA383145D462
 ```
 
 https://mybot314.ru/tekegram_catalog/

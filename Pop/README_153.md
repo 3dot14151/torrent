@@ -1,177 +1,3 @@
-###  Публикация: 1296390   (611851) от 17.04.2019
-
-VA - Ballermann Schlagersommer 2019 (2019) 2CD [MP3|320 Kbps] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611851.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-01. Frenzy Blitz - Wir sind wir (Mallorcastyle)
-02. Tobee - Cordula Grün
-03. Honk! - Joana(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:11:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD4168B7CE63FA53D31E5FD16401348BDC92695C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296410   (611850) от 17.04.2019
-
-VA - Die neue Schlagerparade (2019) 2CD [MP3|320 Kbps] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611850.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
-02. Olaf Henning - Sternenhimmel (Album Version)(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:27:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD3203611E548756FFAF198AF11EA0FFB5F0EF6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296530   (611849) от 17.04.2019
-
-VA - Happy Easter Dance 3 (2019) [MP3|320 Kbps] <Dance, Clubce>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ryan Street - Stars (DJ THT Remix Edit)
-02. Shaolin Master ft. Ruby Blu - Party Hard (Fairfield Radio Edit)
-03. Tale & Dutch ft.Bart Reeves - The Message (Reload) (G! Bootleg Edit)
-04. DJ Sanny J;Fabrizio E Marco - Everyday (D@nydj Edit RMX)(   Читать дальше...   )Жанр: Dance, ClubceПродолжительность: 02:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A1CFBE47266A65A43D02D9EEEF851CE894CB539
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296524   (611847) от 17.04.2019
-
-VA - Ballermann Die Hits 2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611847.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Isi Glck - Das Leben ist ne Party (Harris Ford 3:58
-002. DJ Robin - Cordula Grn 3:04
-003. DJ Malle - Helikopter 117 (Mach' den Hub Hub Hub) 4:06
-004. Partynator - Mama Laudaaa 3:39(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 06:17:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4D9B3B5072A5995DB8A24940B045B127A2A2638
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296374   (611755) от 17.04.2019
-
-Квартал - Мир розовых кукол (1998) [FLAC|Lossless|tracks + .cue] <Jazz-Rock>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. На последнем этаже (04:54)
-02. Сердце мое (04:29)
-03. 10.000 лет (03:57)
-04. Я изнемогаю от любви (04:49)(   Читать дальше...   )Жанр: Jazz-RockПродолжительность: 00:48:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DA70F1DF6300F21C71273386E0D6FCBD6896A8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296511   (611752) от 17.04.2019
-
-VA - The Hits Album: The Car Album (2019) [MP3|320 Kbps] <Pop, Rock, Other>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611752.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-1. Budapest - George Ezra
-2. Stitches - Shawn Mendes
-3. Moves Like Jagger - Maroon 5 feat. Christina Aguilera(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 05:01:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B88E39BF9C435FA5E1A17E5D4D1E5E1DF5A4589
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037672   (611671) от 25.07.2016
 
 VA - BRAVO Hits 94 (2016) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Dance, Pop Rock>
@@ -180,7 +6,7 @@ VA - BRAVO Hits 94 (2016) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Dance, Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611671.jpg" />
 </div>
 
 
@@ -209,7 +35,7 @@ Alizee - Blonde (2014) [FLAC|Lossless] <Pop, Electronic, French Pop, Dancepop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611601.jpg" />
 </div>
 
 
@@ -238,7 +64,7 @@ The African Singers - Disco Africana (2000) [FLAC|Lossless|tracks + .cue] <Pop, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611243.jpg" />
 </div>
 
 
@@ -267,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611229.jpg" />
 </div>
 
 
@@ -296,7 +122,7 @@ VA - A Touch Of Italo Disco (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611209.jpg" />
 </div>
 
 
@@ -325,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611037.jpg" />
 </div>
 
 
@@ -354,7 +180,7 @@ Belinda Carlisle - The Anthology (2014) Compilation, 3CD [FLAC|Lossless|tracks +
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610997.jpg" />
 </div>
 
 
@@ -383,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610762.jpg" />
 </div>
 
 
@@ -412,7 +238,7 @@ Bad Boys Blue - 30 (2015) [MP3|320 кб/с]<Disco, Pop, Eurodance>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610477.jpg" />
 </div>
 
 
@@ -441,7 +267,7 @@ VA - Indie Country Folk (2016) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610327.jpg" />
 </div>
 
 
@@ -470,7 +296,7 @@ Nicklas Sahl - Planets (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610326.jpg" />
 </div>
 
 
@@ -499,7 +325,7 @@ Beyonce - Homecoming: The Live Album (2019) [MP3|320 Kbps] <Pop, RnB>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610256.jpg" />
 </div>
 
 
@@ -528,7 +354,7 @@ VA - NOW Thats What I Call Music! 2 (2019) [MP3|320 Kbps] <Synthpop, Reggae, Dan
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610243.jpg" />
 </div>
 
 
@@ -557,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610122.jpg" />
 </div>
 
 
@@ -586,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609893.jpg" />
 </div>
 
 
@@ -615,7 +441,7 @@ The Human League - Greatest Hits (1995) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609490.jpg" />
 </div>
 
 
@@ -644,7 +470,7 @@ VA - Hits 2012 (2012) [FLAC|Lossless]<Pop, Rok, R&B>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_609244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_609244.jpg" />
 </div>
 
 
@@ -673,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609053.jpg" />
 </div>
 
 
@@ -708,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608918.jpg" />
 </div>
 
 
@@ -737,7 +563,7 @@ Synti Time (Синти Тайм) - Навстречу Мечте (2013) [MP3|320
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608774.jpg" />
 </div>
 
 
@@ -751,6 +577,180 @@ Synti Time (Синти Тайм) - Навстречу Мечте (2013) [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A721949677578A62587A4F08E8A1C01199E56D9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038320   (608750) от 27.07.2016
+
+Tricia - Radiate (2013) [MP3|320 Kbps] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything As Loss    03:18
+02. Mirror Mirror    02:50
+03. Enough    02:52
+04. Radiate    02:51(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A6E8E50E6D1A4FC1F510B88B4CF359485A701CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912881   (608679) от 27.06.2015
+
+Фристайл - Прощай навеки, последняя любовь (1995) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. "Прощай навеки, последняя любовь (А. Розанов — С. Кузнецов, В. Казаченко)"
+02. "Принцесса (А. Розанов — С. Кузнецов)"
+03. "Сезон любви (А. Розанов — С. Кузнецов)"
+04. "Парусник белый (А. Розанов — С. Кузнецов)"(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1D49305B5CB57F77AEDA4AE0A267964FA055B8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296801   (608640) от 19.04.2019
+
+Sabine Sauvant & Compagnie - To The Music Hit-Makers (1978) LP [MP3|320 Kbps] <Electronic, Funk, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sabine Sauvant - To The Music Hit-Makers (Part I, Part II) (10:45)
+02. Claudia Field - The Son Of Hickory Holler's Tramp (4:32)
+03. Claudia Field - Pastime Paradise (3:47)
+04. Red Face - (I Can't Get No) Satisfaction (4:11)(   Читать дальше...   )Жанр: Electronic, Funk, DiscoПродолжительность: 00:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50A8B45A8656585CAA33A7CE5B98D22FB33999A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912682   (608442) от 27.06.2015
+
+E-Type - Best Of (2009) [FLAC|tracks + .cue]<Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angels Crying [3:50]
+02. Russian Lullaby [3:14]
+03. Here I Go Again [3:55]
+04. Set The World On Fire [3:45](   Читать дальше...   )Жанр: EurodanceПродолжительность: 01:19:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E49496431E026A8349385FEB5EFC5AA68F54DFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546207   (607690) от 23.04.2022
+
+One Way - Fancy Dancer (1981) Reissue, 2008, Dizzare Records [FLAC|Lossless|tracks + .cue] <Funk, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pull Fancy Dancer Pull ( 6: 4)
+02. Get Up ( 4:46)
+03. Show Me ( 4:40)
+04. Hold It ( 5:14)(   Читать дальше...   )Жанр: Funk, DiscoПродолжительность: 00:45:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA13BA6A28B7568C4C0C5648AFFD02DE16B7F314
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546194   (607672) от 23.04.2022
+
+VA - Super Disco Еxclusive Remix [Vol.1-5] (2022) DJ Lexsus [MP3|320 Kbps] <Dance, House, Pop, Club, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607672.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Vanotek feat. Eneli - Back To Me.mp3
+002. 7even (GR) - Mystery (Original Mix).mp3
+003. Adelina - Bye Bye (Robert Cristian Remix).mp3
+004. Techno Project & Dj Geny Tur - DUDUK.mp3(   Читать дальше...   )Жанр: Dance, House, Pop, Club, DiscoПродолжительность: 08:18:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:196BFD2CA1CFBBD37C5E88E5877327F05C9B71BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

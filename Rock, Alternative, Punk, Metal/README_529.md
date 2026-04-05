@@ -1,3 +1,119 @@
+###  Публикация: 1047015   (551023) от 28.08.2016
+
+Oklahoma Blues - Tribute To JJ Cale (2010) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Money Talks - 5:46
+02. Don’t Cry Sister - 3:03
+03. Sensitive Kind - 5:31
+04. Cajun Moon - 3:48(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:10:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45EB7DD7F1952CDB3B0CEEF5CC3ACBDAFE8425DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046887   (551021) от 28.08.2016
+
+Grave Pleasures - Dreamcrash (2015) [MP3|320 Kbps] <Post-punk, gothic rock, deathrock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Utopian Scream 03:37
+02. New Hip Moon 03:07
+03. Crying Wolves 05:06
+04. Futureshock 03:13(   Читать дальше...   )Жанр: Post-punk, gothic rock, deathrockПродолжительность: 00:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A28844E2BE8FC2A306C96ED0446D32A9DA88DB11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046904   (551016) от 28.08.2016
+
+Vader - Iron Times (2016) [FLAC|Lossless|image + .cue] <Death Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parabellum
+02. Prayer to the God of War
+03. Pięść I Stal (Panzer X cover)
+04. Overkill (Motörhead cover)Жанр: Death Metal, Thrash MetalПродолжительность: 00:13:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:034E9B1620C4ECDF03868AAE0D33C19BA413D3E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309407   (550968) от 19.06.2019
+
+Rammstein - Sehnsucht (1997) Reissue, 2017, Universal Music Group International [FLAC|Lossless|tracks + .cue] <Electronic, Rock, Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sehnsucht (4:04)
+02.Engel (4:24)
+03.Tier (3:47)
+04.Bestrafe Mich (3:38)(   Читать дальше...   )Жанр: Electronic, Rock, IndustrialПродолжительность: 00:43:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F342D03EC3AA977E90CB21CF9208B82A8D597820
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 666502   (550917) от 19.06.2019
 
 Ва-Банкъ - 21 альбом (1988-2008) [MP3|192-320 кб/с]<Рок>
@@ -6,7 +122,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550917.jpg" />
 </div>
 
 
@@ -36,7 +152,7 @@ Paean - Scorn Of Eternity (2015) [FLAC|Lossless|image + .cue] <Progressive Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550631.jpg" />
 </div>
 
 
@@ -65,7 +181,7 @@ Jungle Rot - Jungle Rot (2018) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550581.jpg" />
 </div>
 
 
@@ -94,7 +210,7 @@ Bill Callahan - Shepherd in a Sheepskin Vest (2019) [FLAC|Lossless|tracks + .cue
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550538.jpg" />
 </div>
 
 
@@ -123,7 +239,7 @@ Daron Malakian and Scars on Broadway - Dictator (2018) [MP3|320 Kbps] <Alternati
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550471.jpg" />
 </div>
 
 
@@ -152,7 +268,7 @@ Lоst Sосiеtу - Теrrоr Нungrу (2014) Limitеd Еditiоn [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550460.jpg" />
 </div>
 
 
@@ -181,7 +297,7 @@ Defaillance - Contemplation Misanthropique De L'Humanite... (2008) [APE|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550455.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Black Mountain - Destroyer (2019) [FLAC|Lossless|tracks + .cue] <Psychedelic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550439.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Two Door Cinema Club - False Alarm (2019) [FLAC|Lossless|tracks + .cue] <Alterna
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550436.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Bruce Springsteen - Western Stars (2019) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550348.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Hollywood Vampires - Rise (2019) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550344.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Dеlаin - Мооnbаthеrs (2016) [FLAC|Lossless|image + .cue] <Symphonic Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550260.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Flaw - Divided We Fall (2016) [FLAC|Lossless|tracks + .cue] <Alt.Metal, Nu Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550175.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Rammstein - Reise, Reise (2004) [FLAC|Lossless|tracks + .cue] <Rock, Industrial,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550159.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Debauchery vs. Blood God - Thunderbeast  (2016) 3СD [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550107.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Kiss - Kiss Rocks Vegas (2016) Live [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549924.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Tarja - Act II (2018) Live [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549698.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Dee Snider - For the Love of Metal (2018) [MP3|320 Kbps] <Heavy Metal, Hard Rock
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549696.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Halestorm - Vicious (2018) [MP3|320 Kbps] <Alternative Rock, Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549686.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Nightwish - Decades (2018) 2CD Compilation [MP3|320 Kbps] <Symphonic Power Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549569.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549522.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Nightwish - Decades (2018) Compilation [FLAC|Lossless|WEB-DL|tracks|24Bit] <Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549480.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Nightwish - Decades (2018) Compilation [FLAC|Lossless|WEB-DL|tracks|24Bit] <Symp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7747A0B0011A38E6787139CA3FC739FEA932776F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047514   (549339) от 30.08.2016
-
-Неlstаr - Vаmрirо (2016) [FLAC|Lossless|image + .cue] <Power Metal, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awaken Into Darkness
-02. Blood Lust
-03. To Dust You Will Become
-04. Off With His Head(   Читать дальше...   )Жанр: Power Metal, Speed MetalПродолжительность: 00:57:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AB4853CC7B0EEF3B3CC2C3BDE8E44BE6677A17C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047528   (549338) от 30.08.2016
-
-Viсiоus Rumоrs - Соnсussiоn Рrоtосоl (2016) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Concussion Protocol
-02. Chemical Slaves
-03. Victims Of A Digital World
-04. Chasing The Priest(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:58:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2F28E724A1ED4973D9AB9FDB464368C435ADF2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047537   (549337) от 30.08.2016
-
-Каmbrium - Тhе Еldеrs' Rеаlm (2016) [FLAC|Lossless|image + .cue] <Symphonic Power Metal, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abyssal Streams
-02. Through Shades and Despair
-03. Conjure The Lost
-04. The Elders' Realm (   Читать дальше...   )Жанр: Symphonic Power Metal, Melodic Death MetalПродолжительность: 01:02:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C3072ECC1184CEA9E0612B2E9D951DF231480DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047654   (549326) от 30.08.2016
-
-Snаке Неаd Rituаl - Сеrеmоniаl Тhundеr (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mama
-02. These Blues
-03. Strange World
-04. Gone When I Get Home(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BF59EEA6B602028852E7D805B45A315975BA0B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

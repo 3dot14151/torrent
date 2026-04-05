@@ -1,3 +1,110 @@
+###  Публикация: 1474960   (1012689) от 04.06.2021
+
+Звуковой навигатор для леса АуАу v1.94 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012689.jpg" />
+</div>
+
+
+###  Подробнее
+
+Звуковой навигатор для грибников, охотников, рыбаков и всех кто может заблудится в лесу. Позволяет не доставая телефон из кармана (по звуковым подсказкам) следовать к заранее сохранённым координатам или выбранным на картах, таких как Locus, Osmand, Maps With Me и других способных поделится через "geo" или буфер обмена.Тип издания: Пиратка (Paid)Релиз состоялся: 1 апреля 2021 г.Разработчик: shelnikПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99AB406F3C545C397F1B2C5FD35874B4F12084E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475029   (1012545) от 05.06.2021
+
+BirdNerd v1.0.9b [Ru/En] - Определение птицы по голосу (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012545.jpg" />
+</div>
+
+
+###  Подробнее
+
+* Приложение может идентифицировать птицу по голосу с помощью микрофона на устройстве.
+* Устойчивость к шуму (ветер, автомобили, журчание воды).
+* ​Определение нескольких видов одновременно, если они звучат хором.
+​* Определение птиц не только по пению, но и по другим видоспецифичным звукам, включая сигналы птенцов.(   Читать дальше...   )Тип издания: Пиратка (открыт Premium)Релиз состоялся: 26.05.2021Разработчик: Bird Nerd LLCПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9A905147B125898E6BDC24740379C28A3E0CA68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417976   (1012476) от 05.06.2021
+
+По грибы v72 [Ru/En] (обновляемая)
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение содержит атлас с 212 видами грибов, их подробным описанием и качественными фотографиями. Также там есть ключ, помагающий определить гриб согласно его свойствам. Интересной особенностью приложения является определение гриба с помощью эксперементальной функции, работающей на основе нейронной сети.Тип издания: Пиратка (открыт Premium)Релиз состоялся: 19.04.2021Разработчик: VocomПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Польский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55B14174C23047D32020C6D066233E96A426474B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910380   (1012304) от 06.06.2021
+
+Strelok / Стрелок v5.0.0 Plus и v6.0.4 Pro [Ru/En]
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012304.jpg" />
+</div>
+
+
+###  Подробнее
+
+Баллистический калькулятор, разработанный с применением самых последних знаний в области баллистики. Предназначена для опытных пользователей и стрелков высокого класса. Позволяет вычислять Фактор гироскопической стабильности, деривацию, вертикальный ветровой снос и эффект Кориолиса. Позволяет использовать драг-функции компании Lapua, собственные драг-функции. Может (   Читать дальше...   )Тип издания: Free и ProРелиз состоялся: 05.06.2021Разработчик: Igor V.BorisovПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E702CC513496A2130F25EA8F8E5B63F3D7C69C69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1475644   (1012207) от 07.06.2021
 
 Launcher iOS 14 3.9.3 Mod by vovamen24 [Ru/En]
@@ -6,7 +113,7 @@ Launcher iOS 14 3.9.3 Mod by vovamen24 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012207.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012112.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ Total Launcher 2.8.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012087.jpg" />
 </div>
 
 
@@ -84,7 +191,7 @@ neXt Launcher 3D 3.7.3.2 Mod by Balatan, chathu_ac, Сіtrus [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012054.jpg" />
 </div>
 
 
@@ -110,7 +217,7 @@ Ratio - The Productivity Launcher 4.1.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011965.jpg" />
 </div>
 
 
@@ -136,7 +243,7 @@ Wide Launcher - 3X Wider Home Screen 1.6.41 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011951.jpg" />
 </div>
 
 
@@ -162,7 +269,7 @@ Leanback on Fire 1.48 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011934.jpg" />
 </div>
 
 
@@ -188,7 +295,7 @@ My Android Tools 1.6.8 Free / 1.6.0 Pro [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011919.jpg" />
 </div>
 
 
@@ -215,7 +322,7 @@ Mi Видео - бесплатный просмотр и загрузка вид
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011652.jpg" />
 </div>
 
 
@@ -241,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011478.jpg" />
 </div>
 
 
@@ -267,7 +374,7 @@ MIUI Калькулятор v12.3.12 + v12.2.0 (Mods) [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011461.jpg" />
 </div>
 
 
@@ -293,7 +400,7 @@ SoloLearn: Учимся программировать 4.7.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011450.jpg" />
 </div>
 
 
@@ -319,7 +426,7 @@ Parrot Voice Recorder v3.7.8  [En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011055.jpg" />
 </div>
 
 
@@ -345,7 +452,7 @@ Total Recall - Call Recorder v2.0.86 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011050.jpg" />
 </div>
 
 
@@ -371,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010911.jpg" />
 </div>
 
 
@@ -397,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010867.jpg" />
 </div>
 
 
@@ -425,7 +532,7 @@ Mubert v4.2.0 [Ru/Multi] - сервис фоновой музыки
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010719.jpg" />
 </div>
 
 
@@ -451,7 +558,7 @@ AUG Launcher v3.7.7 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010640.jpg" />
 </div>
 
 
@@ -477,7 +584,7 @@ Ultra Volume v3.5.4 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010604.jpg" />
 </div>
 
 
@@ -503,7 +610,7 @@ Dictionary - Merriam-Webster v5.1.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010136.jpg" />
 </div>
 
 
@@ -532,7 +639,7 @@ POIbase speed camera warner V7.2.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010098.jpg" />
 </div>
 
 
@@ -561,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010093.jpg" />
 </div>
 
 
@@ -575,115 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6831294272538B60522FE3C19904A65E31B6ACB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446577   (1010063) от 20.06.2021
-
-Text Scanner v4.1.7 [Ru/En] - извлечение текста из изображений (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010063.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превратите свой телефон Android в сканер текста.
-
-- Сканирование текста с изображения
-- Самая современная технология распознавания текста(   Читать дальше...   )Тип издания: Пиратка (разблокирован Premium)Релиз состоялся: 09.06.2021Разработчик: EVOLLY.APPПоддерживаемая ОС: Android 4.4+Язык интерфейса: Английский и Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:069141DF8AA7F55AF811B3A01B467658C6E45822
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478974   (1009945) от 21.06.2021
-
-magicplan v9.7.0 [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009945.jpg" />
-</div>
-
-
-###  Подробнее
-
-MagicPlan захватывает размеры помещения с камеры, для этого требуется поворачивать камеру, как при создании панорамных снимков с круговым обзором, попутно указывая углы, двери и т.п. Программа использует датчики положения устройства, чтобы по углам наклона вычислить расстояние. Общий план здания можно создать перемещая каждую измеренную комнату на основной чертёж, (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 21 июня 2021 г.Разработчик: Sensopia IncПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98AACDDE90B5CDF4F135EFD49C2F2C877E13F35E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479256   (1009666) от 23.06.2021
-
-Dictionary.com Premium v9.7.2 [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009666.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот словарь английского языка и тезаурус для Android с более чем 2 миллионами надежных определений и синонимов, а также головоломками со словами, языковыми тестами и тестами на правописание оптимизирован для вашего мобильного устройства, чтобы помочь вам выучить английский или улучшить свой словарный запас.Тип издания: Пиратка (Paid)Релиз состоялся: 22 июня 2021 г.Разработчик: Dictionary.com, LLCПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1190592D6638F0F2BF0F328E1D6D377A1507A0FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479567   (1009560) от 24.06.2021
-
-Artly v2.9.2 [Ru] - Learn Art History, Artworks & Paintings
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите посетить увлекательную экскурсию в мир живописи? Или улучшить свои знания по истории искусств? Изучить тонкости импрессионизма и уникальную технику Рембрандта?
-
-“Artly” – увлекательная интеллектуальная игра, обучение и музей в одном приложении, в котором вы сможете узнать картины великих художников, а также проверить вашу эрудицию и укрепить знания. Здесь (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 23 июня 2021 г.Разработчик: Artly Co.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B51AA9CE7A8A489F4A03E09864AAA1E48615B46
 ```
 
 https://mybot314.ru/tekegram_catalog/

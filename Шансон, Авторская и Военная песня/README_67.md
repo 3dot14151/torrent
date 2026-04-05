@@ -1,3 +1,32 @@
+###  Публикация: 1804242   (12939) от 30.06.2025
+
+Кошка Сашка - Созвездие Белой Волчицы (2025) [MP3|320 Kbps] <Авторская песня>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Через снега (стих) [00:00:47]
+02 - Другое кино [00:03:39]
+03 - Станции [00:02:34]
+04 - Враг (двадцатилетие песни) [00:04:49](   Читать дальше...   )Жанр: Авторская песняПродолжительность: 00:55:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45EC4E8E4A84794A41764F9AED31F6BC063DB951
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805657   (12117) от 08.07.2025
 
 Александр Заборский и Ко - Блатная любовь (2012) [MP3|320 Kbps] <Chanson>
@@ -6,7 +35,7 @@
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12117.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12027.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10970.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10918.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10917.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10888.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10868.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10859.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10353.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - Блатной Шансон на отдыхе (2025) [FLAC|Lossless|WEB-DL|
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8442.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8432.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - Блатной Шансон (2025) [FLAC|Lossless|WEB-DL|tracks] <Шанс�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8408.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ VA - Шансон премьера 2025 август (Новые песни. Н�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5985.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5971.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ VA - Песни от всей души женщины (2025) [FLAC|Lossless|WEB-
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5960.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ VA - Новинки лета Шансона: Сборник крутых пес�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5959.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5954.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5931.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ VA - Новинки Шансона Жаркое лето.: Сборник бла
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5930.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ VA - Русская 30-ка хитов 17 (Новые русские песни)
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4686.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4646.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ VA - Новые хитовые песни 2025, Часть 7 (2025) [FLAC|Lossle
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4644.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4642.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ VA - Новые хитовые песни 2025, Часть 8 (2025) [FLAC|Lossle
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4637.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ VA - Лучшая дискотека шансона - 20 (2025) [FLAC|Lossless|W
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4635.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ VA - Лучшая дискотека шансона - 20 (2025) [FLAC|Lossless|W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F05FCEA8F810D89AE66D92210669B11CDE2C4D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816077   (4634) от 02.09.2025
-
-VA - Русская 30-ка хитов 16 (Новые русские песни) (2025) [FLAC|Lossless|WEB-DL|tracks] <Шансон, Поп, Русская Эстрада>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ислам Итляшев - Боль (3:45)
-02.  Аркадиас - Пусть яркое солнце заменит луна (3:45)
-03.  Nellie Pand - Жизнь (2:44)
-04.  Артур Руденко - Не ты (3:28)(   Читать дальше...   )Жанр: Шансон, Поп, Русская ЭстрадаПродолжительность: 01:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:471D57C228BCAF3286C5D920823DE8E5D8F4F994
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Studies 1.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245402.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ ImageRanger Pro Edition 1.8.6.1819 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245395.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Dynamic Wallpaper 13.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245377.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ RAR Extractor – The Unarchiver Pro 6.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245359.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Movie Thumbnails Maker 4.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245356.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Tayasui Sketches Pro 6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245351.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Pastebot 2.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245348.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ DxO ViewPoint 3 v3.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245343.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ BetterZip 5 v5.2 b1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245338.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ WiFiSpoof 3.5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245334.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ MailTags 5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245305.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ ImageRanger Pro Edition 1.9.3.1858 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245297.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ NCH WavePad Audio Editor Pro 17.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245290.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245289.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Geekbench 6.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245284.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Yate 6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245275.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ WiFiSpoof 3.8.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245270.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Xojo 2022 Release 4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245269.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ OmniZip - Universal Extractor Pro for Mac 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245260.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Swift Publisher 5 v5.5.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245258.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Xliff Editor 2.9.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245251.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Dash 6.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245241.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ ColorWell 7.3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245236.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ TaskPaper 3.8.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245234.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Nova 5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245228.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Debookee v8.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245222.jpg" />
 </div>
 
 

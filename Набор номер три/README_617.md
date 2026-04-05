@@ -1,3 +1,216 @@
+###  Публикация: 968375   (139943) от 30.12.2015
+
+Николай Ягодкин, Светлана Ахметова | Интенсив-погружение "Разговорный Английский" (2015) HDRip [H.264/720p]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сверхинтенсивный курс разговорного английского, построенный на технологиях Николая Ягодкина. Самый результативный формат изучения английского - от 1 до 3х уровней всего за 7 дней.
+Всего за 7 полных дней Вы освоите всю необходимую для разговора и письма грамматику и переведете ее в активный разговорный навык.Производство: Центр Образовательных технологий Николая Ягодкина «Advance»Жанр: Английский языкПродолжительность: 20:33:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:761D3DB61DDA9772CDC7BA2589CEBBC8570CBEDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272793   (139935) от 29.12.2018
+
+Windows x86 x64 Present by StartSoft 50-2018 Final [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139935.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка предназначена для установки на компьютеры операционных систем Windows с разной разрядностью. Загрузочный образ ISO, входящий в состав сборки, предназначен для записи на Flash накопитель размером от 32 Гигабайт. Установка операционных систем осуществляется при помощи  модифицированного загрузчика соответствующей разрядности в состав которого входят приложения (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18A16BD8FBA7FB50AB3257A18A453010595904FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272692   (139929) от 29.12.2018
+
+Windows 10 x86 x64 DVD  Present by StartSoft 43-49 2018 [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка предназначена для установки на компьютеры операционной системы Windows 10 с разной разрядностью с русским или с английским языковыми интерфейсами. Загрузочные образы ISO входящие в состав сборки предназначены для записи на стандартный диск DVD размером 4,7 Гигабайта, либо на Flash накопитель. Сборка поддерживает установку операционной системы Windows 10 на (   Читать дальше...   )Язык интерфейса: Русский/Английский США
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08F93BE3FFE53FAF63EEAF96829C828E617DD5B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970466   (139925) от 30.12.2015
+
+Лексс / Lexx (1997-2002) DVD Remux (сезон 1-4, серии 1-61 из 61)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139925.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесстрашный воин погибшей расы Бруннен-Джи, младший помощник вспомогательного заместителя курьера Стэнли Твидл, очаровательная раба любви Зэв с характером межзвездного ящера и романтическая голова-робот 790 захватывают огромный живой космический корабль «Лексc», самое мощное оружие разрушения в двух Вселенных.
+Спасаясь от гнева Божественной Тени, безжалостного властителя (   Читать дальше...   )Производство: Канада, Германия, Великобритания, СШАЖанр: фантастика, фэнтези, комедия, приключенияРежиссер: Крис Боулд, Пол Донован, Кристоф ШревеАктеры: Майкл МакМанус, Ксения Сиберг, Патриция Зентилли, Рольф Канис, Лекс Гигерофф, Брайан Дауни, Найджел Беннетт, Ева Хаберманн, Том Галлант, Джеффри Хиршфилд и др.Перевод: Двуголосый закадровый, профессиональный - AXN Sci-fi, ТВ 6; одноголосый закадровый от Е.Лурье.Продолжительность: ~00:51:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:986EBFF963E8A78F80995BFB6CDBF533DE412070
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271878   (139916) от 29.12.2018
+
+AllWinUSB Constructor by SmokieBlahBlah 28.12.18 [Ru/En]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139916.jpg" />
+</div>
+
+
+###  Подробнее
+
+    Конструктор мультизагрузочной флешки (или внешнего жесткого диска) с выбором компонентов для записи, содержащий все сборки Windows от SmokieBlahBlah (XP/7/8.1/10) с обновлениями по декабрь 2018 (кроме XP и 10 LTSB). Также есть возможность добавить 2k10 Live и WinPE Sergei Strelec.
+    При установке Windows опционально (ставите нужные галочки) доступны: активация, (   Читать дальше...   )Язык интерфейса: Русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C6B0B69F78FCE6A73C0DCFC60E3B7927ABD8DB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272811   (139905) от 29.12.2018
+
+Adobe Premiere Pro CC 2019 13.0.1.13 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Premiere Pro CC 2019 - профессиональная программа для нелинейного видеомонтажа. Приложение обеспечивает высококачественное редактирование видео разрешения 4K и выше, с 32-битовым цветом, как в RGB, так и YUV цветовом пространстве. Редактирование аудиосемплов, поддержка VST аудиоплагинов (plug-in) и звуковых дорожек 5.1 surround. Архитектура Premiere Pro плагинов (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C901BC25CCB174728DE08507D00869BA6AA2D01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271870   (139896) от 29.12.2018
+
+Windows 8.1 (x86/x64) 40in1 +/- Office 2016 SmokieBlahBlah 25.12.18 [Ru/En]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139896.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 редакций Windows 8.1 (русские и английские) с обновлениями по декабрь 2018 и интегрированными системными библиотеками + 10 таких же редакций со встроенным Office 2016 Pro Plus VL x86 (можно выбрать, ставить ли Office. Галочка перед началом установки.). Язык офиса зависит от выбранного языка ОС.
+
+Ничего не вырезано и не изменено, кроме: см. спойлер "Изменения (   Читать дальше...   )Язык интерфейса: Русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:162984960BA791E3C428D15F5CB9DD482F4EB078
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 783241   (139890) от 29.12.2018
+
+Храбрейшие Воины / Bravest Warriors (2012-2018) WEB-DL [H.264/1080p-LQ] (Сезон: 1-4, Серии: 1-82 из 82, Минизоды: 1-5 из 5) [EN, RU Sub] (Обновляемая)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Храбрейшие Воины - американский анимационный веб-сериал, созданный Пендлтоном Вордом. Сериал повествует о четырёх 16-летних героях, которые путешествуют по галактикам, спасая милые инопланетные мирки при помощи своих эмоций.Производство: США, Frederator StudiosЖанр: Рисованная анимация, Приключения, КомедияРежиссер: Брин Бёрнс / Breehn BurnsПерсонажи: Алекс Уолш - Крис Кёркман, Лилиана Мами - Бет Тезука, Йен Джонс-Кварти - Волло, Джон Омоандро - Дэнни ВаскезПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские (отдельным файлом), перевод Павел Самойлов aka TanisПродолжительность: ~00:05:00 х Серия (1 и 2 сезон), ~00:11:00 х Серия (3 и 4 сезон)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA458CC8C8EA2B89B3B79F8451E7623957F1419C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970394   (139888) от 30.12.2015
 
 Destroy Windows 10 Spying (final version) [Multi/Ru]
@@ -6,7 +219,7 @@ Destroy Windows 10 Spying (final version) [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139888.jpg" />
 </div>
 
 
@@ -32,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139878.jpg" />
 </div>
 
 
@@ -58,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139823.jpg" />
 </div>
 
 
@@ -84,7 +297,7 @@ Tor Browser Bundle 11.0.3 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139787.jpg" />
 </div>
 
 
@@ -110,7 +323,7 @@ Shin no Nakama ja Nai to Yuusha no Party o Oidasareta node, Henkyou de Slow Life
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139711.jpg" />
 </div>
 
 
@@ -136,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139678.jpg" />
 </div>
 
 
@@ -162,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139662.jpg" />
 </div>
 
 
@@ -188,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>84
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139641.jpg" />
 </div>
 
 
@@ -214,7 +427,7 @@ Gulman 4: Still alive (2016) [En] (1.0) License PLAZA
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139612.jpg" />
 </div>
 
 
@@ -240,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139564.jpg" />
 </div>
 
 
@@ -266,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139539.jpg" />
 </div>
 
 
@@ -292,7 +505,7 @@ Life Is Strange (2015) [Ru/Multi] (1.0.0.397609) Repack R.G. Catalyst [Episode 1
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139260.jpg" />
 </div>
 
 
@@ -318,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139214.jpg" />
 </div>
 
 
@@ -344,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139207.jpg" />
 </div>
 
 
@@ -370,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138953.jpg" />
 </div>
 
 
@@ -397,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138826.jpg" />
 </div>
 
 
@@ -423,7 +636,7 @@ SolidWorks 2024 SP0.1 Premium RePack by xetrin [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138759.jpg" />
 </div>
 
 
@@ -450,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138499.jpg" />
 </div>
 
 
@@ -461,214 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340416   (138455) от 30.12.2019
-
-Мандалорец / The Mandalorian (2019) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-8 из 8) Lostfilm
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американский телесериал в жанре космический вестерн, являющийся составной частью вселенной «Звёздных войн». Премьера сериала состоялась в США 12 ноября 2019 года на стрим-сервисе Disney+, который приступил к работе в тот же день. Действие сериала разворачивается пять лет спустя после событий фильма «Возвращение джедая», а главным героем стал охотник за головами из (   Читать дальше...   )Производство: США | Lucasfilm, Walt Disney StudiosЖанр: фантастика, боевик, приключенияРежиссер: Дебора Чоу, Рик Фамуйива, Дэйв ФилониАктеры: Педро Паскаль, Кайл Пацек, Брендан Уэйн, Бернард Баллен, Александра Гилман, Тейт Флетчер, Омид Абтахи и др.Перевод: Многоголосый профессиональный (Lostfilm)Продолжительность: ~00:40:00 серияРеклама: присутствуют заставка и логотип  LostFilm
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC5B39078F25B789E99B0AFD5C233B6D3F5D3AD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283410   (138443) от 30.12.2019
-
-КВН-2019. Высшая лига (2019.12.30) SATRip
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138443.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что такое КВН, знают, без сомнения, все. В КВН играют во всем мире, это прежде всего молодежная игра. Постоянные конкурсные задания: "Визитная карточка", "Разминка", "Конкурс капитанов", "Музыкальный конкурс", "Домашнее задание". Игру команд оценивает профессиональное жюри — люди, у которых с чувством юмора все в (   Читать дальше...   )Телекомпания: Первый каналЖанр: ЮморПродолжительность: 01:47:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAD32A6C9F98808A2884BA0DF63D7C7E1F99D70B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520683   (138326) от 30.12.2021
-
-Матрица: Воскрешение / The Matrix Resurrections (2021) WEB-DLRip [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138326.jpg" />
-</div>
-
-
-###  Подробнее
-
-В двух реальностях Нео снова придется выбирать, следовать ли за белым кроликом. Выбор, пусть и иллюзорный, все еще остается единственным путем в Матрицу или из нее, что более опасно, чем когда-либо.Производство: США / NPV Entertainment, Silver Pictures, Village Roadshow Pictures, Warner Bros.Жанр: Фантастика, боевикРежиссер: Лана ВачовскиАктеры: Киану Ривз, Кэрри-Энн Мосс, Яхья Абдул-Матин II, Джонатан Грофф, Джессика Хенвик, Нил Патрик Харрис, Джада Пинкетт Смит, Приянка Чопра Джонас, Кристина Риччи, Ламбер ВильсонПеревод: Дублированный, профессиональный многоголосый, авторский одноголосыйЯзык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (forced, 2 х full, SDH), Украинские (forced), Английские (full, SDH)Продолжительность: 02:27:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A910E19DBD2672A1ACC981D3CB277F6C81BD08D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520953   (138308) от 30.12.2021
-
-Adobe Premiere Pro 2022 22.1.2.1 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Premiere Pro 2022 - профессиональная программа для нелинейного видеомонтажа. Приложение обеспечивает высококачественное редактирование видео разрешения 4K и выше, с 32-битовым цветом, как в RGB, так и YUV цветовом пространстве. Редактирование аудиосемплов, поддержка VST аудиоплагинов (plug-in) и звуковых дорожек 5.1 surround. Архитектура Premiere Pro плагинов (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ECFA2052A4E68759A4D41CA5BFC0D11ABAEC7D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520791   (138301) от 30.12.2021
-
-Windows 7 SP1 х86-x64 by g0dl1ke 21.12.15 [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стабильная сборка на базе MSDN windows 7 х86-x64 с интегрированными обновлениями по декабрь 2021 года и полезными твиками, по рекомендациям simplixЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44DED8103ADD41D58B9744350F9EE6DDAD8EF90B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 585376   (138297) от 18.12.2012
-
-Hitman Absolution: Professional Edition [Ru/En/Multi8] (Lossless Repack/1.0.444.0/13 DLC) 2012 | a1chem1st
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hitman: Absolution – долгожданное продолжение серии стелс-экшенов Hitman. Агент 47, преданный своим начальством, оказывается в центре зловещего заговора. Теперь ему предстоит отправиться на поиски истины по коррумпированному и испорченному миру. Игра создана на движке Glacier 2, который позволяет добиться невероятного качества изображения и отображения в одной сцене до нескольких тысяч персонажей. Благодаря этому реализованы самые безумные идеи дизайнеров, а Агент 47 может буквально слиться с толпой в людных местах. Большое количество режимов сложности позволяют настроить игровой процесс под свой уровень мастерства. На самом легком пройти сюжет смогут даже люди, первый раз севшие за видеоигры, а самый высокий уровень сложности бросит вызов даже хардкорным геймерам. Кроме однопользовательского режима, состоящего из множества вариативных миссий, в Hitman: Absolution представлен режим контрактов, где каждый игрок выступает в роли сценариста. Выбрав цели и убрав ее с определенными условиями, можно предоставить другим игрокам шанс добиться лучших результатов в ваших миссиях.(   Читать дальше...   )Тип издания: RePackРазработчик: IO InteractiveЖанр: Action (Shooter) / 3D / 3rd Person / StealthЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский, Немецкий, Французский, Испанский, Итальянский, Польский, Турецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CF3B304A0626916C7DE31D6D23A15E5C62621EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 179308   (138287) от 30.12.2021
-
-Zuma's Revenge (2009) [Ru/En] (1.0) Unofficial
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая версия той самой прародительницы казуального жанра "шарико-плевалок" на PC. Пребывание бесстрашной жабы в древних храмах на зловещем острове затянулось, и теперь противостояние злым силам переходит на новый уровень. Вас ожидает свыше шестидесяти уровней в "полинезийском" стиле, 4 режима, новые бонусы и сражения с "боссами" в финале (   Читать дальше...   )Тип издания: UnofficialРазработчик: PopCap GamesЖанр: Arcade, LogicЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A478F75AF1B0B1909ADB0F16D88C4F19089A2B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272820   (138262) от 30.12.2018
-
-Proteus 8 Professional 8.8 SP1 (Build 27031) with Advanced Simulation [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138262.jpg" />
-</div>
-
-
-###  Подробнее
-
-Proteus — это пакет программ для автоматизированного проектирования электронных схем. Пакет представляет собой систему схемотехнического моделирования, базирующуюся на основе моделей электронных компонентов принятых в PSpice. Отличительной чертой пакета Proteus Professional является возможность моделирования работы программируемых устройств: микроконтроллеров, микропроцессоров, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1393CFC7F0D5438583B7976DEF0F04254B60F1D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

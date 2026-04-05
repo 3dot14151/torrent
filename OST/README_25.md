@@ -1,32 +1,3 @@
-###  Публикация: 1743488   (105414) от 16.08.2024
-
-VA - Nocturna (1979) 2LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gloria Gaynor - Love Is Just A Heartbeat Away (Nocturna's Theme) (7:13)
-02. Vicki Sue Robinson - Nightime Fantasy (9:36)
-03. Heaven 'N' Hell Orchestra - Whatcha Gonna Do (8:31)
-04. Heaven 'N' Hell Orchestra - Bitten By The Love Bug (8:10)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:52:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8A176B0099D5A64A4CA88AAAE18575C29BAC0D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1768969   (100580) от 30.12.2024
 
 VA - Arcane League of Legends: Season 2 (Soundtrack from the Animated Series) (2024) [MP3|320 Kbps] <Rock, Pop, OST>
@@ -35,7 +6,7 @@ VA - Arcane League of Legends: Season 2 (Soundtrack from the Animated Series) (2
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100580.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90944.jpg" />
 </div>
 
 
@@ -99,7 +70,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89375.jpg" />
 </div>
 
 
@@ -129,7 +100,7 @@ VA - Уличные танцы 2 / Street Dance 2 (2012) [MP3|320 кб/с]<Sound
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88229.jpg" />
 </div>
 
 
@@ -164,7 +135,7 @@ Project X / Проект Х: Дорвались (2012) [MP3|320 кб/с]<Soundtr
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86477.jpg" />
 </div>
 
 
@@ -199,7 +170,7 @@ John Williams - Star Wars The Complete Score (2008) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83309.jpg" />
 </div>
 
 
@@ -234,7 +205,7 @@ Sherlock - Original Television Soundtrack Music From Series One (2012) [MP3|~256
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82515.jpg" />
 </div>
 
 
@@ -269,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82403.jpg" />
 </div>
 
 
@@ -304,7 +275,7 @@ VA - Любимые мелодии Советского кино (2012) [MP3|320
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81860.jpg" />
 </div>
 
 
@@ -339,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81834.jpg" />
 </div>
 
 
@@ -374,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78964.jpg" />
 </div>
 
 
@@ -409,7 +380,7 @@ Alan Silvestri & VA - Назад в будущее / Back To The Future (1985) [
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75868.jpg" />
 </div>
 
 
@@ -444,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69940.jpg" />
 </div>
 
 
@@ -476,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61834.jpg" />
 </div>
 
 
@@ -504,7 +475,7 @@ Tom Holkenborg (Junkie XL) - Furiosa A Mad Max Saga OST (2024) OST [MP3|320 Kbps
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52029.jpg" />
 </div>
 
 
@@ -533,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39741.jpg" />
 </div>
 
 
@@ -562,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37884.jpg" />
 </div>
 
 
@@ -591,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37471.jpg" />
 </div>
 
 
@@ -620,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33472.jpg" />
 </div>
 
 
@@ -649,7 +620,7 @@ Damon Albarn & Michael Nyman - Ravenous (1999) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28900.jpg" />
 </div>
 
 
@@ -678,7 +649,7 @@ Lorien Testard - Clair Obscur: Expedition 33 (Original Soundtrack) (2025) [MP3|3
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13359.jpg" />
 </div>
 
 

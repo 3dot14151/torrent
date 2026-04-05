@@ -1,3 +1,136 @@
+###  Публикация: 1312236   (345106) от 08.10.2019
+
+Отвергнутый священный зверь / Katsute Kami Datta Kemono-tachi e [2019, TV, 12 из 12] WEBRip 720p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345106.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гражданская война поделила страну на две противоборствующие группы: Север и Юг. Южане, готовые на всё ради победы, пустили в ход запретную магию, превратив своих солдат в монстров. Те полностью утратили человеческий облик, получив взамен нечеловеческую силу, и в итоге отвоевали свои земли.
+Война закончена, однако это не принесло в страну мир и спокойствие. Магия, (   Читать дальше...   )Производство: Япония, MAPPAЖанр: Триллер, драма, фэнтези, сёненРежиссер: Дзюн СисидоЯзык озвучки: Русский (AkariGroup)Субтитры: ОтсутствуютПродолжительность: ~00:24:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFFF82946DA303B438BF1A916499ED3D453DFFEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562916   (344924) от 23.09.2022
+
+Tokyo Mew Mew New | Токио Мяу Мяу [ТВ-2] [2022, TV, 12 из 12] WEBRip 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ичиго Момомия внезапно оказывается вовлечённой в странный инцидент, из-за которого её ДНК сливается с ДНК почти вымершей ириомотской кошки. Когда ДНК ещё четырёх девочек сливаются с ДНК других редких животных, становится ясно, что всё это неслучайно. Ичиго и её друзья выбраны для участия в секретном проекте μ («мю»). С помощью приобретённых из-за слияния ДНК (   Читать дальше...   )Производство: Япония, студия Yumeta CompanyЖанр: приключенияРежиссер: Натори ТакахироЯзык озвучки: Русский закадровый (AniDub)Субтитры: Русские надписи, русские (софтсаб)Продолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2DFF5515A9EACAD18910EA0B26AD4547835C97C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 774099   (343689) от 06.11.2015
+
+Blade and Soul / Blade & Soul / Клинок и Душа [2014, TV, 13 ep + 7 SP] BDRip Hi10p 720p Raw+Rus x4(ext)
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343689.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда-то в этом мире распахнулись Темные Врата, откуда хлынули орды демонов. Небеса не остались в стороне, демонов победили, а Врата были запечатаны четырьмя Великими Мастерами. Столетия спустя отступница Цинь Валайлу подняла мятеж, чтобы сокрушить печати, но была уничтожена объединенной мощью Мастеров. Шли века, рождались и уходили народы, память о древних битвах (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Такэути ХиросиПеревод: Русские субтитры от Jenia aka ZubСубтитры: ASS, Полные | Надписи (внешними файлами)Формат: MKVПродолжительность: 13 эпизодов и 7 спэшлов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C9FC4546CC57FA1D1552F587E7B6158FCC0424D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312237   (342833) от 09.10.2019
+
+Отвергнутый священный зверь / Katsute Kami Datta Kemono-tachi e [2019, TV, 12 из 12] WEBRip 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342833.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гражданская война поделила страну на две противоборствующие группы: Север и Юг. Южане, готовые на всё ради победы, пустили в ход запретную магию, превратив своих солдат в монстров. Те полностью утратили человеческий облик, получив взамен нечеловеческую силу, и в итоге отвоевали свои земли.
+Война закончена, однако это не принесло в страну мир и спокойствие. Магия, (   Читать дальше...   )Производство: Япония, MAPPAЖанр: Триллер, драма, фэнтези, сёненРежиссер: Дзюн СисидоЯзык озвучки: Русский (AkariGroup)Субтитры: ОтсутствуютПродолжительность: ~00:24:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACB6FC87E4B54541E70973917DE00BAD67D2D5E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578973   (340252) от 25.09.2022
+
+Повседневная жизнь бессмертного короля | Xian wang de Richang Shenghuo | The Daily Life of the Immortal King [2020, TV, 15 из 15] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ван Лин - исключительный талант, который не перестает совершенствоваться. Еще в детстве он совершенно случайно проявил невиданную силу, когда на землю напал демон пятого ранга, к счастью тогда вся слава досталась одному из Отряда Божественных Умений – Джуои. Через 10 лет Ван Лин поступает в школу, в которой когда-то учился сам Джуои, где ему предстоит изучить основные (   Читать дальше...   )Производство: Китай / Студия Haoliners Animation LeagueЖанр: Комедия, школа, приключения, романтикаРежиссер: Чжу Бэнин, Ли ХаолинЯзык озвучки: Русский многоголосый, дублированный (СВ-Дубль), КитайскийСубтитры: Русские (софтсаб на надписи и полные)
+- SovetRomantica: ASS, RUS(int), Перевод: AiR, Редактура: AleksXAAПродолжительность: 15 серий по 18 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E45561082D13CF23942A50D01E14DA12B383DB56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565988   (338040) от 26.09.2022
 
 Прима-кукла | Prima Doll [2022, TV, 12 из 12] WEBRip 1080p Raw+Rus
@@ -6,7 +139,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338040.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338038.jpg" />
 </div>
 
 
@@ -58,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338037.jpg" />
 </div>
 
 
@@ -84,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338034.jpg" />
 </div>
 
 
@@ -110,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338033.jpg" />
 </div>
 
 
@@ -136,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338028.jpg" />
 </div>
 
 
@@ -162,7 +295,7 @@ Great Teacher Onizuka | Крутой учитель Онидзука [1999, TV, 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336763.jpg" />
 </div>
 
 
@@ -188,7 +321,7 @@ Ikkitousen: Xtreme Xecutor / Школьные войны (сезон четве�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336331.jpg" />
 </div>
 
 
@@ -214,7 +347,7 @@ RWBY Ледяное королевство | RWBY: Hyousetsu Teikoku | RWBY: Ice
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335947.jpg" />
 </div>
 
 
@@ -240,7 +373,7 @@ Jujutsu Kaisen | Магическая битва [2020, TV, 24 из 24] BDRip 10
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335946.jpg" />
 </div>
 
 
@@ -266,7 +399,7 @@ Sayonara no Asa ni Yakusoku no Hana o Kazarou | Maquia: When the Promised Flower
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335874.jpg" />
 </div>
 
 
@@ -294,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333651.jpg" />
 </div>
 
 
@@ -320,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331519.jpg" />
 </div>
 
 
@@ -346,7 +479,7 @@ Summer Time Rendering | Summer Time Rendering | Летнее время [2022, T
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328577.jpg" />
 </div>
 
 
@@ -373,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327786.jpg" />
 </div>
 
 
@@ -399,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327779.jpg" />
 </div>
 
 
@@ -425,7 +558,7 @@ Mahou Sensou / Magical Warfare / Магическая война [2014, TV, 12 e
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327178.jpg" />
 </div>
 
 
@@ -451,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324195.jpg" />
 </div>
 
 
@@ -477,7 +610,7 @@ Violence Jack: Hell's Wind Hen | Violence Jack: Hell's Wind | Жестокий �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322558.jpg" />
 </div>
 
 
@@ -503,7 +636,7 @@ Gedo Senki / Tales from Earthsea / Сказания Земноморья [2006] 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321859.jpg" />
 </div>
 
 
@@ -529,7 +662,7 @@ Lord El-Melloi II-sei no Jikenbo: Rail Zeppelin Grace Note | Досье лорд
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319990.jpg" />
 </div>
 
 
@@ -541,137 +674,6 @@ Lord El-Melloi II-sei no Jikenbo: Rail Zeppelin Grace Note | Досье лорд
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC440184C06988C454223CEBBBDD87FCD80603F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421239   (319170) от 04.11.2020
-
-Tamayomi | Тамаёми [2020, TV, 12 из 12] WEBRip 720p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319170.jpg" />
-</div>
-
-
-###  Подробнее
-
-В средней школе команда питчера Ёми Такэды не смогла далеко продвинуться в чемпионате по бейсболу, так как у кэтчера не получалось поймать коронную «волшебную подачу» Ёми. Девочка решила бросить бейсбол и поступила в старшую школу Синкосигая, где даже не было собственной команды. Но оказалось, что в этой школе учится Тамаки Ямадзаки — подруга детства Ёми, вместе (   Читать дальше...   )Производство: Япония, Studio A-CATЖанр: Повседневность, спортРежиссер: Фукусима ТосинориЯзык озвучки: Русский (профессиональный многоголосый) - Студийная БандаПродолжительность: 12 х ~ 00:23:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:346259E9E17A843F1DDE0F554FA1F19ABC965269
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421244   (317008) от 05.11.2020
-
-Eizouken ni wa Te o Dasuna! | Руки прочь от киноклуба! [2020, TV, 12 из 12] WEBRip 720p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317008.jpg" />
-</div>
-
-
-###  Подробнее
-
-У Асакусы Мидори есть мечта - создать свое аниме, но для этого у нее не хватает сосредоточенности на деле. По чистой случайности девушка встретила Мидзусаки Цубамэ, которая в тайне мечтает стать аниматором. Компанию им составляет любящая деньги лучшая подруга Мидори Канамори Саяка. Вместе они медленно но уверенно начали работать над претворением своих мечт в реальность!Производство: Япония, Science SaruЖанр: Комедия, приключения, повседневностьРежиссер: Юаса МасаакиЯзык озвучки: Русский (многоголосый) - AniDubСубтитры: Русские (внешние, отдельной папкой) - CrunchyrollПродолжительность: 12 х ~ 00:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D3CC430E9D848E52630B90D1DCBBBB666CD710F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259698   (315767) от 05.11.2018
-
-Satsuriku no Tenshi / Angels of Death / Ангелы смерти [2018, TV, 16 ep] WEB-DL 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тринадцатилетняя девочка по имени Рэйчел просыпается в подвале здания, не помня, как она попала туда и не зная причин, по которым оказалась в таком затруднительном положении.
-Блуждая по зданию в поисках выхода, девочка встречается с Заком — серийным убийцей с бандажом на лице и косой в руках. Отрешённая и лишённая любых стремлений к жизни, Рэйчел просит нового знакомого (   Читать дальше...   )Жанр: триллер, ужасыРежиссер: Судзуки КэнтароЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 16 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ECC230B8CA2A511563316BDA748D5991991A8CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308363   (315593) от 19.10.2019
-
-Carole & Tuesday / Кэрол и Тьюсдей [2019, TV, 24 из 24] WEBRip 720p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается на колонизированном Марсе, примерно через полвека после того как человечество покинуло свою колыбель. В новом мире созданием художественных произведений занимается искусственный интеллект, людям же отведена роль потребителей. В огромном мегаполисе Альба Сити живёт 17-летняя Кэрол, работающая то тут, то там и пытающаяся стать музыкантом, но (   Читать дальше...   )Производство: Япония, BONESЖанр: Приключения, мультсериалРежиссер: Синъитиро ВатанабэЯзык озвучки: Русский (AkariGroup)Субтитры: ОтсутствуютПродолжительность: ~00:25:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C73BD370705BE611F8052F53BF2D46A5CC66D92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 435853   (315323) от 24.11.2016
-
-Pokemon: Advanced Battle (8 Season) / Покемон: Новое Сражение (8 сезон) [2005, TV, 52 ep] DVDRip 480p Rus+Eng
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эш заработал последние 2 значка и обеспечил себе место в Чемпионате Лиги Хоэнн, в то время как Мэй сильно рискует оказаться без последней ленты, готовясь при этом к эпичным схваткам с обоими своими соперниками на Большом Фестивале. Эш познакомился с двумя тренерами, которые становятся его личными соперниками в Хоэнн и против которых ему предстоит сразиться во время (   Читать дальше...   )Жанр: кодомо, комедия, фэнтезиФормат: MKVПродолжительность: 52 эпизода по 21 минуте
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB3B4076A4BCFA7314D60FA013CEE77FC2604928
 ```
 
 https://mybot314.ru/tekegram_catalog/

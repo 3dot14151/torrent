@@ -1,3 +1,121 @@
+###  Публикация: 1378071   (844872) от 26.04.2020
+
+Elder - Omens (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Stoner, Doom>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Omens [10:53]
+02. In Procession [09:21]
+03. Halcyon [12:48]
+04. Embers [10:47](   Читать дальше...   )Жанр: Psychedelic Rock, Stoner, DoomПродолжительность: 00:55:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B05C8AD51060DF8A55F3BE7A869F8822BFBEC0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378484   (844799) от 26.04.2020
+
+I Am the Manic Whale - Things Unseen (2020) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Billionaire (07:25)
+02. The Deplorable Word (07:59)
+03. Into The Blue (06:21)
+04. Celebrity (18:56)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:04:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E803B3469E7BA5D42F8C922B3B44EDEFC2B10130
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112021   (844785) от 07.03.2017
+
+Kate Bush - Before The Dawn (2016) 3xCD [FLAC|Lossless|image + .cue] <Progressive, Art, Alternative, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Давняя поклонница Дэвида Боуи и музыкального театра Бертольда Брехта и Курта Вайля, Кейт придает огромное значение зрелищности. Многие ее песни - это своего рода драматические миниатюры. "Исполнение должно быть музыкальной поэмой в движении, - утверждает Буш. - Все на сцене - для общения".
+
+Кэти Буш начала интересоваться музыкой в очень раннем возрасте (   Читать дальше...   )Список:
+CD1 - Act I
+CD2 - Act II
+CD3 - Act IIIЖанр: Progressive, Art, Alternative, Pop RockПродолжительность: 02:35:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA8120E0566657476CC8DF175DB1ED891DFCADEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 878184   (843784) от 14.03.2015
+
+Mark Knopfler - Tracker (Bonus Disc) (2015) [FLAC|Lossless]<Rock, Blues-Rock, Folk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. .38 Special
+02. My Heart Has Never Changed
+03. Terminal Of Tribute To
+04. Heart Of Oak(   Читать дальше...   )Жанр: Rock, Blues-Rock, Folk-RockПродолжительность: 00:22:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:967A23C92020A44340ADEB3B277F4F49FA73FF89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002871   (843325) от 03.04.2016
 
 Mystery Jets - Curve Of The Earth (2016) [FLAC|Lossless|tracks] <Rock>
@@ -6,7 +124,7 @@ Mystery Jets - Curve Of The Earth (2016) [FLAC|Lossless|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843325.jpg" />
 </div>
 
 
@@ -35,7 +153,7 @@ The Sisters Of Mercy - Greatest Hits Volume One - A Slight Case Of Overbombing (
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843207.jpg" />
 </div>
 
 
@@ -64,7 +182,7 @@ Finally George - Icy Skies (2021) [FLAC|Lossless|image + .cue] <Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842816.jpg" />
 </div>
 
 
@@ -93,7 +211,7 @@ George Theodorou - Water (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842814.jpg" />
 </div>
 
 
@@ -122,7 +240,7 @@ The Ahab Dilemma - World On Fire (2021) [FLAC|Lossless|WEB-DL|tracks] <Classic R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842711.jpg" />
 </div>
 
 
@@ -151,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842382.jpg" />
 </div>
 
 
@@ -180,7 +298,7 @@ Chris Rea: Original Album Series 5CD Box, 2009 (1983-93)[FLAC|Lossless]<Rock / S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842117.jpg" />
 </div>
 
 
@@ -206,7 +324,7 @@ Takis Barbagalas - Phosphorus Herperus (2015) [FLAC|Lossless|image + .cue]<Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841872.jpg" />
 </div>
 
 
@@ -232,7 +350,7 @@ Phil Collins - Dance Into The Light (1996) 2CD Deluxe Edition, 2016, Atlantic [F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841779.jpg" />
 </div>
 
 
@@ -261,7 +379,7 @@ Phil Collins - Hello, I Must Be Going! (1982) 2CD Deluxe Edition, 2016, Atlantic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841700.jpg" />
 </div>
 
 
@@ -290,7 +408,7 @@ Electric Light Orchestra - Secret Messages (1983) [FLAC|Lossless]<Classic Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841686.jpg" />
 </div>
 
 
@@ -319,7 +437,7 @@ Lionville - A World Of Fools (2017) [FLAC|Lossless|image + .cue] <Melodic Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841626.jpg" />
 </div>
 
 
@@ -348,7 +466,7 @@ Elvis Presley - Way Down in the Jungle Room (2016) 2CD [FLAC|Lossless|WEB-DL|tra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841352.jpg" />
 </div>
 
 
@@ -376,7 +494,7 @@ Rockets - Alienation (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841189.jpg" />
 </div>
 
 
@@ -405,7 +523,7 @@ Led Zeppelin ‎ - Mothership (2007) 2015, Warner Music [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840857.jpg" />
 </div>
 
 
@@ -434,7 +552,7 @@ Toto - XIV (2015) [FLAC|Lossless]<Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840602.jpg" />
 </div>
 
 
@@ -463,7 +581,7 @@ Mind Furniture - An Illustrated Map of the Heart (2021) [FLAC|Lossless|WEB-DL|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839939.jpg" />
 </div>
 
 
@@ -492,7 +610,7 @@ Empire - The Best Of Empire (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839937.jpg" />
 </div>
 
 
@@ -521,7 +639,7 @@ The Last Days - When The Tomorrow Is A Grey Day (2010) [FLAC|Lossless]<Shoegaze,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839443.jpg" />
 </div>
 
 
@@ -550,7 +668,7 @@ Bad Company - Live 1977 & 1979 (2016) [FLAC|Lossless|tracks + .cue] <Blues Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838532.jpg" />
 </div>
 
 
@@ -578,7 +696,7 @@ Lisa Lystam Family Band - Give You Everything (2016) [FLAC|Lossless|tracks] <Blu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838393.jpg" />
 </div>
 
 
@@ -607,7 +725,7 @@ Houston - IV (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838244.jpg" />
 </div>
 
 
@@ -621,125 +739,6 @@ Houston - IV (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:019CD13AF8A604F471950B05B1D8D5AD22CFFDC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500991   (838241) от 08.10.2021
-
-Antiche Pescherie Nel Borgo - Si No Sabir...Tazir! (2021) [FLAC|Lossless|image + .cue] <Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Corte Sconta 6:12
-02. Tocheti Pocheti 5:15
-03. Soriso Nel Vedru (Por l’Homo Feliz) 10:35
-04. Il Sono Lemuel 7:59(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00: 59:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6945625CA2F7AAC80FED63795B63728A4FF86B45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501097   (838234) от 08.10.2021
-
-BAD HABIT Sweden - Autonomy (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Retribution
-02. I Reach For You
-03. A Place In Your Heart
-04. Back To Life(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:39:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33B73F5246BA6CE4A45C30A03BAFD502A7380548
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004736   (836887) от 07.04.2016
-
-Stevie Nimmo - Sky Won't Fall (2016) [FLAC|Lossless|image + .cue] <Blues Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chains of Hope (05:02)
-02. Roll the Dice Again (04:34)
-03. Change (04:59)
-04. Running On Back to You (07:06)(   Читать дальше...   )Жанр: Blues Rock, Classic RockПродолжительность: 00:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FA3CF8A3271E9A1376E4FBFD1896E0F234E3E74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501147   (836684) от 09.10.2021
-
-Three Colours Dark - Love's Lost Property (2021) [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй альбом творческого тандема вокалистки Рэйчел Коэн (ex-Karnataka / The Reasoning) и клавишника Джонатана Эдвардса (Panic Room / Luna Rossa).
-Участники записи:
-Acoustic Guitar – Tim Hamill (треков: 1-9)
-Bass Guitar – Tim Hamill (треков: 1-9)(   Читать дальше...   )01. Love's Lost Property
-02. Dark Before Dawn
-03. Requiem
-04. Last Day On Earth(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F98FEE8E5DBAEDFCC2DC06DC4B514E9E7005AF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

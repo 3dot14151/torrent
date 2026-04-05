@@ -1,3 +1,166 @@
+###  Публикация: 168231   (969975) от 20.01.2010
+
+Паранормальное явление / Paranormal Activity (2007) HDRip
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая пара проживает в доме, который, как они подозревают, посещается некой злой силой. Чтобы зафиксировать паранормальную активность, они настраивают видеокамеру, чтобы записать свидетельство существования этой силы, появляющейся исключительно ночью, когда они спят. Тут-то и начинается самое интересное… и страшное!Жанр: триллер, ужасы, детективРежиссер: Орен ПелиАктеры: Кэти Фезерстон, Мика Слот, Марк Фредерикс, Эмбер Армстронг, Рэнди Макдауэлл, Эшли Палмер, Тим Пайпер, Кристал КартрайтПеревод: Профессиональный (полное дублирование)Формат: AVIПродолжительность: 01:26:17
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 743381   (969911) от 12.01.2014
+
+Дримс (2013) WEB-DLRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэн — уличный музыкант-неудачник, живущий воспоминаниями о временах своей молодости. Он ловит попутные машины, намеренно превращая свою жизнь в бесконечный роад-муви, Одиссею на руинах своих грёз. Его путь — это рокерская «мечта с кровью», мечта мальчишек перестройки, звучащая из подворотен голосами Цоя и Шевчука, Башлачёва и Летова… Ему уже под сорок, а он всё ещё (   Читать дальше...   )Производство: Россия, Wise VisionЖанр: Драма, Комедия, МузыкальныйРежиссер: Антон СухаревАктеры: Дэн Дягилев, Анна Иванина, Юозас Будрайтис, Александр Баширов, Игорь Скляр, Ольга Альбанова, Татьяна Рябоконь, Хельга Филиппова, Вадим Сквирский, Сергей УмановПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 01:29:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F722562C32857673DE82AA258C2A805FF88324E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 742280   (969910) от 12.01.2014
+
+VA - Жажда Скорости. Дискотека Казанова (1998-2006) [MP3|112-320 кб/с]<Eurodance, Rave, Club, Techno, House, Trance>
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_969910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Студия "Казанова Рекордс" - это вымышленное название. Выпускалась она конгломератом, известным как "НОВАЯ СТУДИЯ" ("Арлекина" и "Русская Студия").01 Scooter - One (Club mix)
+02 DJ Aligator - Music is my language (feat. Arash)
+03 Eddy Wata feat Evanescence - Bring Me To Life (remix)
+04 Alex M Vs. Mark Van Damme - Technodisco (R.Mayth Radio Edit)(   Читать дальше...   )Жанр: Eurodance, Rave, Club, Techno, House, TranceПродолжительность: 88:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06F6E1631458847294832D376A9BE216B2726A14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357960   (969307) от 07.02.2020
+
+В России предложили изменить правила использования шипованных шин
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969307.jpg" />
+</div>
+
+
+###  Подробнее
+
+В России могут ввести ряд ужесточающих мер по использованию зимних покрышек. Речь идет о возвращении обязательного знака "Ш", ограничении скорости для автомобилей с зимними шинами и введения штрафа за неправильное использование сезонной резины.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358119   (969303) от 07.02.2020
+
+«Ростелеком» предложил государству собирать «цифровые следы» пользователей
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969303.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Ростелеком" разработал дорожную карту "Новые коммуникационные интернет-технологии", в которой предложил государству развивать ряд сервисов: контролировать "цифровой след" пользователей, продвигать российские браузер, мессенджер, ОС и пр. Расходы на проект оцениваются в 260 млрд руб.Оператор направил соответствующие предложения в Минкомсвязи. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358147   (969290) от 07.02.2020
+
+Windows 10 Enterprise LTSC 2019 x64 Rus by OneSmiLe [17763.1012]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинального образа
+ru_windows_10_enterprise_ltsc_2019_x64_dvd_78e7853a
+Интегрированы последние обновления на 06.02.20.
+Поиск работает (значок скрыт)(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D55ADA557FF425CE445A46ED71EF87B8FD6CA82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358004   (969289) от 07.02.2020
 
 Мое прекрасное лето с Софи / Une fille facile (2019) WEB-DL [H.264/720p-LQ]
@@ -6,7 +169,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969289.jpg" />
 </div>
 
 
@@ -32,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969246.jpg" />
 </div>
 
 
@@ -58,7 +221,7 @@ MAGIX Movie Edit Pro 2016 Premium 15.0.0.90 (x64) [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969164.jpg" />
 </div>
 
 
@@ -84,7 +247,7 @@ AusLogics BoostSpeed 8.2.0.0 RePack (& Portable) by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969155.jpg" />
 </div>
 
 
@@ -110,7 +273,7 @@ Total Commander 8.52a LitePack | PowerPack | ExtremePack 2016.1 Final + Portable
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969152.jpg" />
 </div>
 
 
@@ -136,7 +299,7 @@ Fallout 4 (2015) [Ru] (1.3.45.0.0) Repack xatab
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969149.jpg" />
 </div>
 
 
@@ -162,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969145.jpg" />
 </div>
 
 
@@ -188,7 +351,7 @@ The Elder Scrolls 5: Skyrim (2013) [Ru/En] (1.9.32.0.8/2.1.3a/dlc) Repack/Mod Mi
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969144.jpg" />
 </div>
 
 
@@ -214,7 +377,7 @@ Stronghold Crusader 2 (2014) [Ru/Multi] (1.0.22616/dlc) SteamRip Let'sPlay [Spec
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969143.jpg" />
 </div>
 
 
@@ -240,7 +403,7 @@ COWBOY WPI DVD Project III StartSoft 17 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969087.jpg" />
 </div>
 
 
@@ -266,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969084.jpg" />
 </div>
 
 
@@ -294,7 +457,7 @@ T-Flex CAD 12 12.0.57 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969080.jpg" />
 </div>
 
 
@@ -321,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968876.jpg" />
 </div>
 
 
@@ -350,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968875.jpg" />
 </div>
 
 
@@ -376,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968582.jpg" />
 </div>
 
 
@@ -402,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968527.jpg" />
 </div>
 
 
@@ -428,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968355.jpg" />
 </div>
 
 
@@ -454,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968348.jpg" />
 </div>
 
 
@@ -480,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968343.jpg" />
 </div>
 
 
@@ -506,7 +669,7 @@ Samsung заблокировала «серых-пресерых»
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968332.jpg" />
 </div>
 
 
@@ -517,163 +680,6 @@ Samsung Electronics официально объяснила, почему нач
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137121   (968327) от 08.02.2020
-
-Собачья жизнь / A Dog's Purpose (2017) BDRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968327.jpg" />
-</div>
-
-
-###  Подробнее
-
-Собаки бывают разных пород, мастей и размеров. Они — наши самые верные и преданные друзья, а мы учим их хорошим манерам. Собаки всегда думают о нас, правда, иногда и о беконе. Все они каждый день провожают и встречают нас у порога в уверенности, что пока им есть, кого облизывать и любить, в их жизни есть смысл.Производство: США, Индия / Amblin Entertainment, Original PicturesЖанр: фэнтези, драма, комедия, приключения, семейныйРежиссер: Лассе ХалльстрёмАктеры: Джош Гэд, Дэннис Куэйд, Пегги Липтон, Кей Джей Апа, Брайс Гейзар, Джульет Райлэнс, Люк Кирби, Габриель Роз, Майкл Бофшевер, Бритт РобертсонПеревод: ДублированныйСубтитры: Русские (полные, форсированные), английскиеПродолжительность: 01:40:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09F4FE7FBDB73F5EA3B219FE0E912D255034CD9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358197   (968326) от 08.02.2020
-
-Затерянные в России / Jiong ma / Lost in Russia (2020) WEBRip [H.264/1080p-LQ] [DVO] [PR]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бизнесмен из Пекина Сюй Иван мало того, что находится в процессе развода, так ещё и узнаёт, что его пока ещё супруга собралась в Нью-Йорк заключить сделку о продаже их совместного бизнеса. Решив во что бы то ни стало ей помешать, Иван только в аэропорту вспоминает, что оставил паспорт у мамы, а та как раз отправляется поездом в Москву на выступление. Так получается, (   Читать дальше...   )Производство: Китай / Crater Studio 2, Monk StudioЖанр: комедия, приключенияРежиссер: Сюй ЧжэнАктеры: Сюй Чжэн,  Хуан Мэйин, Юань Цуань, Го Цзинфэй,  Цзя Бин, Ольга Магницкая, Годфри Гао,  Шэнь Тэн, Джонни Хуан, Номэнь Ээрдэни, Чжулина, У Юньфан, Чэнь Ци, Хуан Бо и другиеПеревод: Двуголосый любительский (КОЛОБОК)Субтитры: Английские (hardsub), Китайские (hardsub)Продолжительность: 02:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6308CCA8465F8036B7FA12AD9A482A0228F50A3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345686   (968325) от 08.02.2020
-
-Викинги / Vikings (2019) WEB-DLRip (сезон 6, серии 1-10 из 20) LostFilm (обновляемая)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968325.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение популярного исторического сериала созданного Майклом Херстом специально для канала History.
-Шестой сезон будет посвящен экспансии викингов. «Северяне» отправятся по Шелковому пути и столкнутся не только с Китайской цивилизацией, но и Древней Русью.Производство: Ирландия, Канада / World 2000 Entertainment, Take 5 Productions, Shaw MediaЖанр: история, драма, боевик, мелодрама, приключения, военныйРежиссер: Стивен Ст. Леджер, Дэниэл Гру, Хелен ШейверАктеры: Густаф Скарсгард, Кэтрин Уинник, Александр Людвиг, Джорджия Хёрст, Алекс Хег Андерсен, Дженни Жак, Джордан Патрик Смит, Петер Францен, Джон Кэвэна, Алисия Агнесон и др.Перевод: Многоголосый, профессиональный - LostFilmПродолжительность: ~00:44:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDBDCAEE656A08CFBA427A3DCECBAA18B25C5DAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 431501   (968324) от 08.02.2020
-
-BSPlayer Pro 3.06.220 Mod by Dymonyxx [Ru] - Универсальный мультимедиа плеер
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Универсальный мультимедиа плеер для платформы Android. Поддерживает работу на планшетах.Тип издания: ПираткаРелиз состоялся: 08.02.2020Разработчик: BSPlayer mediaПоддерживаемая ОС: Android. 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1F17DD8E0E2D8DFC95447AA3D5CEC703040EEA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976705   (968190) от 18.01.2016
-
-Набор обновлений UpdatePack7R2 16.1.17 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор позволяет обновлять рабочую систему, а также интегрировать обновления в дистрибутив. Может быть установлен на любую редакцию Windows 7 и Server 2008 R2, любой разрядности и любого языка. Включены обновления для всех версий Internet Explorer, все критические, рекомендуемые и обновления безопасности. Смотрите подробности в списке обновлений.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98CEE0BE099E3B95B8248790257278692926A75D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976761   (968181) от 18.01.2016
-
-007: Спектр / Spectre (2015) BDRip [H.264/720p] [Line]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968181.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зашифрованное послание из неизвестного источника выводит Бонда на след зловещей глобальной организации под кодовым названием СПЕКТР, в то время как М пытается спасти секретную разведывательную службу от ликвидации.Производство: Великобритания, США  \ B24, Columbia Pictures, Danjaq, Eon Productions Ltd., Metro-Goldwyn-Mayer (MGM), SonyЖанр: Боевик, Триллер, ПриключенияРежиссер: Сэм МендесАктеры: Дэниэл Крэйг, Кристоф Вальц, Леа Сейду, Рэйф Файнс, Моника Беллуччи, Бен Уишоу, Наоми Харрис, Дэйв Батиста, Эндрю Скотт, Рори КиннерПеревод: Дублированный (чистый звук)Язык субтитров: АнглийскийПродолжительность: 02:28:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AE2C765E716A566CD2122C4E3F17AE91CB5765C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1413464   (408340) от 04.10.2020
+
+Steve Lee (Gotthard) - The Eyes of a Tiger: In Memory of Our Unforgotten Friend! (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Ballads>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Life One Soul [00:03:45]
+02. Let It Be [00:04:27]
+03. In the Name [00:03:33]
+04. Lonely People [00:03:23](   Читать дальше...   )Жанр: Hard Rock, BalladsПродолжительность: 00:54:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:834AA76D86F2F1B7838973FA45125E9D79874431
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948969   (408267) от 22.10.2015
 
 Arrant Saudade - The Peace Of Solitude (2015) [MP3|320 кб/с]<Funeral Doom, Doom-Death Metal>
@@ -6,7 +35,7 @@ Arrant Saudade - The Peace Of Solitude (2015) [MP3|320 кб/с]<Funeral Doom, Do
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408267.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Testament - Brotherhood Of The Snake (2016) [FLAC|Lossless|image + .cue] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408245.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Lost in Kiev - Motions (2012) [MP3|320 кб/с]<Post-Rock / Post-Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408232.jpg" />
 </div>
 
 
@@ -96,7 +125,7 @@ VA - I Love Rock'n'Roll! (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408207.jpg" />
 </div>
 
 
@@ -125,7 +154,7 @@ Ektomorf - Aggressor (2015) [MP3|320 кб/с]<Groove Metal, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408158.jpg" />
 </div>
 
 
@@ -154,7 +183,7 @@ Killing Joke - Pylon (2015) 2CD Deluxe Edition [MP3|320 кб/с]<Industrial Rock
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408148.jpg" />
 </div>
 
 
@@ -183,7 +212,7 @@ David Lee Roth - 8 Albums, 1 EP (1985 - 2013) 10 CD [FLAC|Lossless|image + .cue|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408098.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Amaranthe - Manifest (2020) Nuclear Blast Records [FLAC|WEB-DL|tracks] <Modern M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408092.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ D.O.A. (DOA) - Fight Back (2018) [FLAC|Lossless|image + .cue] <Punk Rock, Hardco
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408069.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ The Travelling Orchestra - Early In The Mornin' (2016) EP [MP3|320 Kbps] <Blues 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408065.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ The Travelling Orchestra - 22 (2018) EP [MP3|320 Kbps] <Blues Rock, Blues>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408061.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ Grave Digger - Exhumation - The Early Years (2015) [MP3|320 кб/с]<Heavy Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408057.jpg" />
 </div>
 
 
@@ -353,7 +382,7 @@ Grave Digger - Exhumation - The Early Years (2015) [FLAC|image+.cue]<Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408048.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408045.jpg" />
 </div>
 
 
@@ -411,7 +440,7 @@ Slade - Cum On Feel The Hitz - The Best Of Slade (2020) Compilation [MP3|320 Kbp
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407989.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ Steve Perry (Ex. Journey) - Traces (2018) [FLAC|Lossless|WEB-DL|tracks] <Soft Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407983.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ Echo And The Bunnymen - The Stars, The Oceans & The Moon (2018) [FLAC|Lossless|W
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407969.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ Alter Bridge - Live At The Royal Albert Hall Featuring The Parallax Orchestra (2
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407909.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ Tom Petty - An American Treasure (2018) 4CD Box Set, Compilation [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407902.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ Cinderella - The Mercury Years (2018) 5CD Box Set [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407810.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ John Lennon - Imagine (1971) 2018, 2CD, Reissue, Remastered, Calderstone Product
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407803.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Freddie Mercury and Montserrat Caballe - Barcelona [Japanese Edition] (1988) [MP
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407691.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Freddie Mercury & Montserrat Caballe - Barcelona (1988/2012) Special Edition [FL
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407642.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ Consumption - Recursive Definitions of Suppuration (2020) [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407553.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ Crematorium - Temple Of Satan (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407552.jpg" />
 </div>
 
 
@@ -715,35 +744,6 @@ Crematorium - Temple Of Satan (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Thras
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFFA4747F3807DC6E08DD5DB794D40DE03901BBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574044   (407550) от 03.09.2022
-
-Birth Control - Open Up (2022) [FLAC|Lossless|image + .cue] <Prog Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407550.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Gamma Ray 2.0
-2. The Last Word
-3. Wrestling Mama
-4. Open Sesame(   Читать дальше...   )Жанр: Prog Rock, Hard RockПродолжительность: 00:53:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46ED067A95CBDB7CC533BB86A15EBE1F89AAB6C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

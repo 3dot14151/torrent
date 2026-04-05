@@ -6,7 +6,7 @@ Halie Loren & Matt Treder - Many times, many ways (2008) [FLAC|Lossless|WEB-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546582.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Rufus Harley - Scotch & Soul (1966) Remaster, 2013, Warner[FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546538.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Kaori Kobayashi - Melody (2016) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Inst
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546472.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Christina von Bülow - On the Brink of a Lovely Song (2018) [FLAC|Lossless|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546248.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Tone Jansa Quartet featuring Woody Shaw - Dr. Chi (1986) Remaster, 2015, Solid R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545863.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Russell Malone - All About Melody (2016) [FLAC|Lossless|image + .cue] <Contempor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545811.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Sadao Watanabe - How's Everything (1980) Remaster, 2016, Sony Music[FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545807.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Bobby Hackett - A String Of Pearls & Trumpets' Greatest Hits (1965) 2002, Collec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545806.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Xose Miguelez - Ontology (2019) Origin Records [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545340.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Hank Crawford - Mr. Blues (1967) Remaster, 2013, Warner[FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544979.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Iiro Rantala, Lars Danielsson, Peter Erskine - how long is now? (2016) [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544970.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Teddy Wilson And His Piano - Intimate Listening (1954) Remaster, 2016, Universal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544926.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ John Scofield - Still Warm (1986) Gramavision[FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544921.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Michael Dease - Reaching Out (2018) Posi-Tone [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544661.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Joe Sullivan - 1945 - 1953 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543841.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Cedar Walton - Eastern Rebellion 2 (1977) /2015, Solid Records/[FLAC|tracks+.cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543164.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Art Blakey & The Jazz Messengers - A Night In Tunisia (1960) /2013, Universal/[F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543158.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Curtis Fuller - The Opener (1957) 1996, Blue Note [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542539.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Gabor Szabo - In Budapest Again (1978, 1981) 2018, Moiras Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542533.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Ed Bickert - Ed Bickert (1975) Remaster, 2013, Ratspack Records[FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542481.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Junior Mance - Live At The Top (Guest Artist: David Newman) (1968) Remaster, 201
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542405.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Jack DeJohnette - Zebra (1985) Pan Music[FLAC|Lossless|tracks + .cue] <Post-Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542402.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Ivan 'Boogaloo Joe' Jones - Snake Rhythm Rock & Black Whip (1972, 1973) 1992, BG
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542381.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Charlie Hunter - Everybody Has A Plan Until They Get Punched In The Mouth (2016)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542376.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Bill Evans - Momentum, Vol. 1 (1972) Remaster, 2015, Solid Records[FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542259.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Richard Galliano Septet - Piazzolla forever (2003) [FLAC|Lossless]<Contemporary 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542131.jpg" />
 </div>
 
 

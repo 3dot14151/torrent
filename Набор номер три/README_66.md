@@ -1,3 +1,164 @@
+###  Публикация: 975562   (971484) от 15.01.2016
+
+Acronis True Image 19.0.6027 / Disk Director 12.0.3270 (x86/x64/UEFI) [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Acronis BootCD - загрузочный диск, содержащий пакет последних версий двух наиболее популярных программ компании Acronis - Acronis True Image и Acronis Disk Director, предназначенных для резервного копирования, создания точных образов жесткого диска и его отдельных областей. В числе функций диска восстановления системы, управление разделами: создание, перемещение, (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD043F498FCA6E7AC9F36A4EA1492881ED79F49E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975514   (971482) от 15.01.2016
+
+The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru/En] (1.12/dlc) Repack xatab
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971482.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Ведьмак: Дикая Охота" - это ролевая игра нового поколения с глубоким сюжетом, действие которой происходит в открытом мире. Огромная и потрясающе красивая игровая вселенная заставит игрока принимать непростые решения, каждое из которых будет иметь свои последствия.Тип издания: RepackРазработчик: CD Projekt REDЖанр: RPG, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00F65177F356F469AA420E7C72DB598021EFB29A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975715   (971476) от 15.01.2016
+
+Far Cry 3 (2012) [Ru] (1.05 /dlc) Repack =nemos= [Deluxe Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой, Джейсон Броуди, отправляется с друзьями в отпуск на необычайно красивый тропический остров. И тут же оказывается в заложниках у банды пиратов под предводительством безумного убийцы Вааса. Начиная с этого момента, ваша задача – выжить любой ценой.
+
+Джейсон будет втянут в кровопролитную войну между пиратами и местными повстанцами, в которой кровь, свинец (   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft Montreal / Massive Entertainment / Ubisoft ShanghaiЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25CA730265D93A48E342F2D4DBBA176DC20F119B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975568   (971475) от 15.01.2016
+
+Windows 10 Enterprise LTSB (x86/x64) + Office 2016 by SmokieBlahBlah 15.01.16 [Ru]
+
+>>3
+>>10
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 Enterprise LTSB с обновлениями по январь 2016, + на выбор установка редакции с интегрированным MS Office 2016 Pro Plus VL (галочка в начале установки, см. 1-й скриншот).
+Ничего не вырезано и не изменено, кроме: см. спойлер "Изменения по сравнению с оригинальными образами".
+Присутствует "Настройка установки" (см. 2-ой скриншот).
+В boot.wim (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A15C5B72F075EDB4F5F8055D60C5F42B621DF84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975461   (971473) от 15.01.2016
+
+Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4312.1000 VL (x86) RePack by SPecialiST v16.1 [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2016 хорошо демонстрирует, как сегодня изменился сам подход к созданию документов и совместной работе с ними. Многие из нас начинают работу на одном компьютере, продолжают её на другом, а демонстрируют на третьем, попутно успевая вносить мелкие правки за ноутбуком, на планшете или даже смартфоне. Поэтому Office 2016 постарались сделать концептуально (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB74F2D3759DEFCA77E233C4D15CADBD529AB4AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357338   (971441) от 05.02.2020
+
+Google создала «волшебный» инструмент для легкой перепрошивки смартфонов на «чистый Android»
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Google создала онлайн-приложение Android Flash Tool с целью упрощения перепрошивки Android-смартфонов. Пока оно работает только с некоторыми гаджетами линейки Pixel и рядом одноплатных компьютеров. Запустить его можно под Windows, Linux, macOS и Chrome OS.«Волшебное» приложениеКомпания Google разработала фирменное приложение Android Flash Tool для прошивки устройств (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 169829   (971439) от 05.02.2020
 
 Xara Xtreme Pro 5.1.0.9131 Portable [Rus]
@@ -6,7 +167,7 @@ Xara Xtreme Pro 5.1.0.9131 Portable [Rus]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971439.jpg" />
 </div>
 
 
@@ -34,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971437.jpg" />
 </div>
 
 
@@ -60,7 +221,7 @@ Navitel / Навител Навигатор 9.12.58 Full для карт рел�
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971436.jpg" />
 </div>
 
 
@@ -86,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971435.jpg" />
 </div>
 
 
@@ -112,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971434.jpg" />
 </div>
 
 
@@ -138,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971433.jpg" />
 </div>
 
 
@@ -164,7 +325,7 @@ Syberia v1.0.0 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971117.jpg" />
 </div>
 
 
@@ -190,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970744.jpg" />
 </div>
 
 
@@ -216,7 +377,7 @@ Lunar Quattro - луноход компании Audi, предназначенн
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970743.jpg" />
 </div>
 
 
@@ -242,7 +403,7 @@ Windows 7 (x86/x64) UralSOFT 1.5.12 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970407.jpg" />
 </div>
 
 
@@ -270,7 +431,7 @@ Reboot Restore Rx 3.3 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970278.jpg" />
 </div>
 
 
@@ -296,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>10
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970262.jpg" />
 </div>
 
 
@@ -322,7 +483,7 @@ Microsoft разрешила полностью отключать слежку 
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970260.jpg" />
 </div>
 
 
@@ -348,7 +509,7 @@ VA - Большая коллекция клипов в авто (2DIN) (2000-201
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970190.jpg" />
 </div>
 
 
@@ -374,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970183.jpg" />
 </div>
 
 
@@ -400,7 +561,7 @@ Windows 8.1 (x86/x64) + Office 2016 32in1 by SmokieBlahBlah 15.01.16 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970182.jpg" />
 </div>
 
 
@@ -429,7 +590,7 @@ Dragon's Dogma: Dark Arisen (2016) [En/Multi] (1.0.10.6911) License CODEX
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970180.jpg" />
 </div>
 
 
@@ -455,7 +616,7 @@ BELOFF 2016 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970179.jpg" />
 </div>
 
 
@@ -481,7 +642,7 @@ Chris Spheeris - 22 albums (1987 - 2013) [MP3|160-320 kbps] <New age, World, Smo
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970169.jpg" />
 </div>
 
 
@@ -510,7 +671,7 @@ James Cameron's Avatar: The Game [En] (L) 2009
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969981.jpg" />
 </div>
 
 
@@ -523,169 +684,6 @@ James Cameron's Avatar: The Game [En] (L) 2009
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 168231   (969975) от 20.01.2010
-
-Паранормальное явление / Paranormal Activity (2007) HDRip
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая пара проживает в доме, который, как они подозревают, посещается некой злой силой. Чтобы зафиксировать паранормальную активность, они настраивают видеокамеру, чтобы записать свидетельство существования этой силы, появляющейся исключительно ночью, когда они спят. Тут-то и начинается самое интересное… и страшное!Жанр: триллер, ужасы, детективРежиссер: Орен ПелиАктеры: Кэти Фезерстон, Мика Слот, Марк Фредерикс, Эмбер Армстронг, Рэнди Макдауэлл, Эшли Палмер, Тим Пайпер, Кристал КартрайтПеревод: Профессиональный (полное дублирование)Формат: AVIПродолжительность: 01:26:17
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 743381   (969911) от 12.01.2014
-
-Дримс (2013) WEB-DLRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэн — уличный музыкант-неудачник, живущий воспоминаниями о временах своей молодости. Он ловит попутные машины, намеренно превращая свою жизнь в бесконечный роад-муви, Одиссею на руинах своих грёз. Его путь — это рокерская «мечта с кровью», мечта мальчишек перестройки, звучащая из подворотен голосами Цоя и Шевчука, Башлачёва и Летова… Ему уже под сорок, а он всё ещё (   Читать дальше...   )Производство: Россия, Wise VisionЖанр: Драма, Комедия, МузыкальныйРежиссер: Антон СухаревАктеры: Дэн Дягилев, Анна Иванина, Юозас Будрайтис, Александр Баширов, Игорь Скляр, Ольга Альбанова, Татьяна Рябоконь, Хельга Филиппова, Вадим Сквирский, Сергей УмановПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 01:29:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F722562C32857673DE82AA258C2A805FF88324E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 742280   (969910) от 12.01.2014
-
-VA - Жажда Скорости. Дискотека Казанова (1998-2006) [MP3|112-320 кб/с]<Eurodance, Rave, Club, Techno, House, Trance>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_969910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Студия "Казанова Рекордс" - это вымышленное название. Выпускалась она конгломератом, известным как "НОВАЯ СТУДИЯ" ("Арлекина" и "Русская Студия").01 Scooter - One (Club mix)
-02 DJ Aligator - Music is my language (feat. Arash)
-03 Eddy Wata feat Evanescence - Bring Me To Life (remix)
-04 Alex M Vs. Mark Van Damme - Technodisco (R.Mayth Radio Edit)(   Читать дальше...   )Жанр: Eurodance, Rave, Club, Techno, House, TranceПродолжительность: 88:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06F6E1631458847294832D376A9BE216B2726A14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357960   (969307) от 07.02.2020
-
-В России предложили изменить правила использования шипованных шин
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969307.jpg" />
-</div>
-
-
-###  Подробнее
-
-В России могут ввести ряд ужесточающих мер по использованию зимних покрышек. Речь идет о возвращении обязательного знака "Ш", ограничении скорости для автомобилей с зимними шинами и введения штрафа за неправильное использование сезонной резины.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358119   (969303) от 07.02.2020
-
-«Ростелеком» предложил государству собирать «цифровые следы» пользователей
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969303.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Ростелеком" разработал дорожную карту "Новые коммуникационные интернет-технологии", в которой предложил государству развивать ряд сервисов: контролировать "цифровой след" пользователей, продвигать российские браузер, мессенджер, ОС и пр. Расходы на проект оцениваются в 260 млрд руб.Оператор направил соответствующие предложения в Минкомсвязи. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358147   (969290) от 07.02.2020
-
-Windows 10 Enterprise LTSC 2019 x64 Rus by OneSmiLe [17763.1012]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана из оригинального образа
-ru_windows_10_enterprise_ltsc_2019_x64_dvd_78e7853a
-Интегрированы последние обновления на 06.02.20.
-Поиск работает (значок скрыт)(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D55ADA557FF425CE445A46ED71EF87B8FD6CA82
 ```
 
 https://mybot314.ru/tekegram_catalog/

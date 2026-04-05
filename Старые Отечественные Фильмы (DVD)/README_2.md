@@ -1,3 +1,31 @@
+###  Публикация: 533257   (530268) от 11.08.2012
+
+Следую своим курсом (1974) DVD5
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шли последние дни июня 1942 года. Фашистские войска рвались к Севастополю, бои шли уже в самом городе. Корабли Черноморского флота уже не раз прорывались в Севастополь, доставляя пополнение, боеприпасы и оружие. И вот, эсминцы «Дерзкий» и «Стремительный» получают новый приказ отправиться в Севастополь.
+
+Этот путь известен морякам достаточно хорошо, но фашисты неоднократно (   Читать дальше...   )Жанр: ВоенныйРежиссер: Вадим ЛысенкоАктеры: Юрий Мысенков, Юрий Орлов, Александр Кайдановский, Екатерина Крупенникова, Виктор Маляревич, Сергей Мартынов, Улдис Лиелдидж, Игорь КомаровСубтитры: отсутствуютПродолжительность: 01:22:18
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927805   (523866) от 14.08.2015
 
 Сыщик (1979) DVD9 (серии 1-2 из 2)
@@ -6,7 +34,7 @@
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523866.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520660.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520486.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518565.jpg" />
 </div>
 
 
@@ -110,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516144.jpg" />
 </div>
 
 
@@ -137,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515571.jpg" />
 </div>
 
 
@@ -163,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515425.jpg" />
 </div>
 
 
@@ -189,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515421.jpg" />
 </div>
 
 
@@ -215,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514940.jpg" />
 </div>
 
 
@@ -241,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512282.jpg" />
 </div>
 
 
@@ -267,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510715.jpg" />
 </div>
 
 
@@ -294,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506371.jpg" />
 </div>
 
 
@@ -320,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_493523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_493523.jpg" />
 </div>
 
 
@@ -346,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477264.jpg" />
 </div>
 
 
@@ -372,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474180.jpg" />
 </div>
 
 
@@ -398,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471496.jpg" />
 </div>
 
 
@@ -426,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464645.jpg" />
 </div>
 
 
@@ -452,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462022.jpg" />
 </div>
 
 
@@ -480,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455537.jpg" />
 </div>
 
 
@@ -506,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455531.jpg" />
 </div>
 
 
@@ -532,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453517.jpg" />
 </div>
 
 
@@ -560,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444949.jpg" />
 </div>
 
 
@@ -586,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442445.jpg" />
 </div>
 
 
@@ -612,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438396.jpg" />
 </div>
 
 
@@ -638,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437731.jpg" />
 </div>
 
 
@@ -649,32 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8483BA10C4B3A96AB135C86D63EAB3CD10025E99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 707249   (434804) от 06.10.2013
-
-Марианна (1967) DVD5
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434804.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам автобиографической повести Прасковьи Дидык «В тылу врага».Первый фильм дилогии «В тылу врага» о деятельности советских разведчиков в фашистском тылу (Фильм второй – «Риск», 1970 г.). Попытки советской авиаразведки обнаружить немецкий аэродром не увенчались успехом, и решено забросить в тыл к немцам разведчиков: молодую девушку Марианну и капитана Бойкова. (   Читать дальше...   )Жанр: Военный, ДрамаРежиссер: Василе ПаскаруАктеры: Ирина Терещенко, Григоре Григориу, Тыну Аав, Сергей Лункевич, Виктор Чутак, Лаврентий Масоха, Михаил Бадикяну, Валерий Малышев, Юрий Дедович, Валентина ЗимняяПродолжительность: 01:11:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C44F65CF05F8A2F638E534944E3BEA23FB6DD6C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

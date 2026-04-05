@@ -6,7 +6,7 @@ Kreator - Gods Of Violence - Live @ Wacken 2014 (2017) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899368.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898605.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Les Enfoires - Attention Au Depart (2013) HDTV [H.264/1080i]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898470.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Marios Brasil - Sem Para (2013) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898347.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Depeche Mode - Soothe My Soul (Uncensored) (2013) [1080p] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897988.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Ultra Music Festival 2013 (Miami, USA) (15-17/22-24.03) [H.264/720p-LQ] WEB-DLRi
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897849.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897260.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Welicoruss - Siberian Heathen Horde (2020) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896861.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Kreator - 666 - World Divided (2020) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896789.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Lamb of God - Checkmate, Memento Mori (2020) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896755.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Die Antwoord - 23 Music Videos (2009-2020) WEBRip [VP9/H.264/2160p/1080p/720p/48
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896555.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896543.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896146.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895581.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895228.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Depeche mode - Devotional. Live In Barcelona (1993) DVDRip [hand made 60fps]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895168.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895124.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Anna Cyzon - Into The Sun (2013) WEBRip [H.264/720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894922.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Above & Beyond Acoustic - Full Concert Film Live from Porchester Hall (Official)
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894075.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893489.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Skrik - Апофеоз (COVID-19. Коронавирус, Италия) (2020) W
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893417.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893328.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ VA - Весенний марафон № 226: Хиты до Утра (2016) WEBR
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893177.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Accept - Restless And Live (2017) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892181.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Lana Del Rey - The Video Collection 2011-2012 [1080] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892066.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891997.jpg" />
 </div>
 
 

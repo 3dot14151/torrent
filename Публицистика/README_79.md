@@ -1,3 +1,29 @@
+###  Публикация: 1088373   (140482) от 30.12.2016
+
+Рустем Вахитов | Революция, которая спасла Россию (2016) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рустем Вахитов, ученый и публицист, постоянный автор «Советской России», в своей новой книге пишет об Октябрьской революции 1917 года. Почему имперская Россия была обречена? Почему провалилась либеральная Февральская революция? Как получилось, что революционер-интернационалист Ленин стал русским патриотом и собирателем Отечества? Чем Октябрьская революция ценна для (   Читать дальше...   )Жанр: Документальная литература, ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D0FBACA16C317D5ED1F32966B4B29884F47473A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520709   (140470) от 29.12.2021
 
 Ингрид Роланд, Ной Чарни | Коллекционер жизней. Джорджо Вазари и изобретение искусства (2019) [PDF, FB2, EPUB, MOBI]
@@ -6,7 +32,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140470.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140250.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140244.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139885.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139679.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139308.jpg" />
 </div>
 
 
@@ -170,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139235.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139131.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138878.jpg" />
 </div>
 
 
@@ -249,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138514.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138027.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137998.jpg" />
 </div>
 
 
@@ -329,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137971.jpg" />
 </div>
 
 
@@ -355,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137915.jpg" />
 </div>
 
 
@@ -383,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137819.jpg" />
 </div>
 
 
@@ -410,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134783.jpg" />
 </div>
 
 
@@ -436,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131605.jpg" />
 </div>
 
 
@@ -462,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129662.jpg" />
 </div>
 
 
@@ -490,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129612.jpg" />
 </div>
 
 
@@ -516,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128792.jpg" />
 </div>
 
 
@@ -542,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128481.jpg" />
 </div>
 
 
@@ -570,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128117.jpg" />
 </div>
 
 
@@ -597,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127982.jpg" />
 </div>
 
 
@@ -623,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126283.jpg" />
 </div>
 
 
@@ -649,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123299.jpg" />
 </div>
 
 
@@ -662,33 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64AA1E2FE18DA3D040C47A1C7B4E8AA08D2BC763
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692050   (122955) от 14.01.2024
-
-Алексей Кузнецов | Храм Фемиды. Знаменитые судебные процессы прошлого (2024) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Убийство, кража, изнасилование… Преступник схвачен – суд идёт. В суде – храме Фемиды, богини правосудия – стороны спорят в поисках справедливости. Но всегда ли ее находят?.. Ох, как непросто Фемиде, этой героической женщине! В ее руках разящий острый меч, но глаза-то – завязаны, а судьи, юристы и присяжные – все те же люди, не ангелы…
-Алексей Кузнецов, известный (   Читать дальше...   )Жанр: Публицистика, Криминальные хроникиИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB4495378CD50B1FA95B53415622F5E4872B33BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

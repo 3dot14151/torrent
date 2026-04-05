@@ -1,31 +1,3 @@
-###  Публикация: 1206706   (781739) от 15.02.2018
-
-Н. Ф. Скачков (сост.) | Национально-культурное строительство в третьем, решающем году пятилетки (1932) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781739.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник «Национально-культурное строительство в третьем, решающем» имеет своею целью подвести основные итоги национально-культурного строительства РСФСР в третьем, решающем году пятилетки.
-
-Третий, решающий год пятилетки, обеспечивший завершение фундамента социалистической экономики, явился решающим годом в деле развертывания национально-культурного строительства. (   Читать дальше...   )Жанр: История, политология, экономика, культурология, искусствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC1E3305F1A78A5CBF6E68E5F46BD12E41873BA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206943   (781311) от 16.02.2018
 
 М. Балабанов | Царская Россия XX века [накануне революции 1917 года] (1927) [PDF]
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781311.jpg" />
 </div>
 
 
@@ -60,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780995.jpg" />
 </div>
 
 
@@ -86,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780591.jpg" />
 </div>
 
 
@@ -112,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780590.jpg" />
 </div>
 
 
@@ -140,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780288.jpg" />
 </div>
 
 
@@ -166,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780234.jpg" />
 </div>
 
 
@@ -194,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780102.jpg" />
 </div>
 
 
@@ -220,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779991.jpg" />
 </div>
 
 
@@ -246,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779987.jpg" />
 </div>
 
 
@@ -274,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779806.jpg" />
 </div>
 
 
@@ -300,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779527.jpg" />
 </div>
 
 
@@ -328,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779464.jpg" />
 </div>
 
 
@@ -354,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779132.jpg" />
 </div>
 
 
@@ -383,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778875.jpg" />
 </div>
 
 
@@ -411,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778822.jpg" />
 </div>
 
 
@@ -437,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778726.jpg" />
 </div>
 
 
@@ -463,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778203.jpg" />
 </div>
 
 
@@ -492,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777342.jpg" />
 </div>
 
 
@@ -518,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777336.jpg" />
 </div>
 
 
@@ -544,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776941.jpg" />
 </div>
 
 
@@ -571,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776922.jpg" />
 </div>
 
 
@@ -597,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776908.jpg" />
 </div>
 
 
@@ -623,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776905.jpg" />
 </div>
 
 
@@ -651,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776880.jpg" />
 </div>
 
 
@@ -677,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776866.jpg" />
 </div>
 
 
@@ -688,6 +660,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28DAE133A9DC808CFC58FD60919F8A2E45CEEA57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211744   (776835) от 09.03.2018
+
+Н. Ленин | О еврейском вопросе в России (1924) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776835.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книжка "О еврейском вопросе в России" является, как сборником отдельных статей, так и ряда мыслей, высказанных Владимиром Ильичем в разное время.
+
+Во всех своих статьях Владимиру Ильичу пришлось бороться с различными националистическими проектами, выдвигавшимися Бунд в разрешении еврейской проблемы.
+(   Читать дальше...   )Жанр: История, политологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A14F0DF5FF39D76AA45D0504A5FAEA3D8F6E598
 ```
 
 https://mybot314.ru/tekegram_catalog/

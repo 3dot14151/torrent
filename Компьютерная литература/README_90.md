@@ -1,161 +1,3 @@
-###  Публикация: 1630457   (236292) от 04.05.2023
-
-Дж. Гай Дэвидсон, и др. | Beautiful C++ 30 Core Guidelines for Writing Clean, Safe, and Fast Code (2021) [PDF, EPUB][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Написание качественного кода на C++ не должно быть трудной задачей. Если разработчик будет следовать рекомендациям, приведенным в C++ Core Guidelines, то он будет писать исключительно надежные, эффективные и прекрасно работающие программы на C++. Но руководство настолько переполнено советами, что порой трудно понять, с чего начать. Начните с «Красивого C++»! Опытные (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F06EFFEAE67B5741569F0E62D115C4B5B107E8A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630992   (236277) от 04.05.2023
-
-Itzik Ben-Gan | T-SQL Fundamentals, 4th Edition (2023) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начиная с истории создания запросов и программирования на T-SQL, книга также включает: логическую обработку запросов, конструкции запросов (запросы к одной таблице, объединения, подзапросы, табличные выражения, операторы набора, анализ данных), модификации данных, временные таблицы, транзакции и параллелизм, SQL Graph (совершенно новый для этого издания), а также (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81F08F677C1AFA7F351461AAE7E9C33122021234
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631577   (236271) от 06.05.2023
-
-Daniel Irvine | Build Your Own Test Framework: A Practical Guide to Writing Better Automated Tests (2023) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы создадите фреймворк автоматизированного тестирования xUnit с помощью JavaScript: изначально это будет клон Jest, но с добавлением нескольких изящных функций, заимствованных из RSpec, определяющего жанр инструмента для поведенчески-ориентированной разработки (BDD). Попутно вы изучите философию, лежащую в основе лучших практик автоматизированного тестирования. Программа (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D46064E32D027230B54213F46B0C36FE3E643C96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631592   (235988) от 06.05.2023
-
-Jamie Rumbelow | Building With Ethereum (2023) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235988.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге рассматривается весь продуктовый стек, необходимый для создания приложений на основе смарт-контрактов Ethereum. Учебные пособия и тематические исследования вплетены в разговорное обсуждение различных ограничений, компромиссов и сложностей, связанных с этим. Вы узнаете об основах Ethereum с новой точки зрения, получите глубокое понимание того, как работает (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:836D63AB8F0B47DAEEBB286FF55AA683607A7B13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631569   (235891) от 06.05.2023
-
-Akshay Kulkarni и др. | Applied Recommender Systems with Python (2023) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235891.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга научит вас строить рекомендательные системы с помощью алгоритмов машинного обучения на языке Python. Сегодня рекомендательные системы стали неотъемлемой частью любого интернет-бизнеса.
-
-К концу этой книги вы будете понимать и уметь строить рекомендательные системы с помощью различных инструментов и методов машинного обучения, глубокого обучения и алгоритмов (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:988A0065E4F11E884E31E37BE5A9ABB5C5F9A364
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632119   (235620) от 09.05.2023
-
-Narendar Singh Saini | iOS Developer Solutions Guide: Learn How to Create Stable and Bug-free iOS Apps (2023) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга поможет вам найти советы, как обойти все трудности, чтобы ваше приложение не отклонилось от первоначальной задачи. Книга поможет вам познакомиться со сложными и продвинутыми частями языка программирования Swift. Вы поймете, почему разработка с использованием тестов так выгодна. Затем вы научитесь создавать фреймворк iOS, который позволит вам модулировать (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02FA0563610484CD75685FA679B5F12A5E2D31B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1631964   (235516) от 08.05.2023
 
 А.Ю. Дорогов | Теория и проектирование быстрых перестраиваемых преобразований и слабосвязанных нейронных сетей (2014) [PDF]
@@ -164,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235516.jpg" />
 </div>
 
 
@@ -190,7 +32,7 @@ Martin Joo | Test-Driven APIs with Laravel and Pest (2022) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235175.jpg" />
 </div>
 
 
@@ -219,7 +61,7 @@ Hari Narayn | Just React!: Learn React the React Way (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234984.jpg" />
 </div>
 
 
@@ -247,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234655.jpg" />
 </div>
 
 
@@ -273,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234611.jpg" />
 </div>
 
 
@@ -299,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234555.jpg" />
 </div>
 
 
@@ -325,7 +167,7 @@ Darren James Harkness | Apache Essentials: Install, Configure, Maintain, 2nd Edi
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234530.jpg" />
 </div>
 
 
@@ -353,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234422.jpg" />
 </div>
 
 
@@ -379,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234354.jpg" />
 </div>
 
 
@@ -405,7 +247,7 @@ Nagender Kumar Suryadevara | Beginning Machine Learning in the Browser (2021) [P
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233979.jpg" />
 </div>
 
 
@@ -431,7 +273,7 @@ Joe Harrison | Learn CSS By Use Cases v2 with All Code (2022) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232992.jpg" />
 </div>
 
 
@@ -460,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232807.jpg" />
 </div>
 
 
@@ -487,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232427.jpg" />
 </div>
 
 
@@ -514,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232395.jpg" />
 </div>
 
 
@@ -540,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232243.jpg" />
 </div>
 
 
@@ -567,7 +409,7 @@ Daniel Ilett | Building Quality Shaders for Unity: Using Shader Graphs and HLSL 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231773.jpg" />
 </div>
 
 
@@ -593,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231669.jpg" />
 </div>
 
 
@@ -619,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231536.jpg" />
 </div>
 
 
@@ -646,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231466.jpg" />
 </div>
 
 
@@ -672,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>2D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231390.jpg" />
 </div>
 
 
@@ -683,6 +525,167 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A5DA6DB0D20074D094020F65A6EC72B57643412
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636954   (231233) от 01.06.2023
+
+Т. Яковлева | От ARPANET до INTERNET (2019) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231233.jpg" />
+</div>
+
+
+###  Подробнее
+
+В определенном смысле мир Интернет - просто набор нулей и единиц с операциями, которые они выполняют. Но эти простые математические символы глубоко проникли в наше сознание, меняя реальность вокруг и нас вместе с ней.
+Начав свой путь с сетей связи, Интернет превратился в огромную информационную площадку, задающую вектор развития современной цифровой культуры.
+В книге (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9114A1E3C84E145D9C2746F5A986D7F07FEE19E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636766   (231227) от 01.06.2023
+
+Jeanine Meye | The Essential Guide to HTML5: Using Games to Learn HTML5 and JavaScript, 3rd edition (2022) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Получите глубокие практические знания основных инструментов, используемых для создания веб-страниц: языка гипертекстовой разметки (HTML5), каскадных таблиц стилей (CSS) и JavaScript. Эта обновленная версия включает новые и улучшенные игры и упражнения и подойдет как абсолютным новичкам, так и людям, имеющим некоторый опыт работы с языками программирования, но не (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00AE46B8A65A4ACA10A44BA71E4D277F861DB924
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555605   (231209) от 04.06.2022
+
+Василий Усов | Swift. Разработка приложений под iOS на основе фреймворка UIKit (2021) [Книга 2] [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231209.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данной книге вы продолжите свое знакомство с языком Swift и средой разработки Xcode.
+Узнаете, что такое архитектура проекта, какой она бывает и из чего состоит; как приложение работает в операционной системе, каков его жизненный цикл и жизненный цикл его отдельных элементов; как происходит обмен данными и как передаются события. И все это вы попробуете на практике, (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD9C4F4A4107D610DBC778B82F4E354FB9DC1FD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637019   (230989) от 02.06.2023
+
+Рон Кохави и др. | Доверительное А/В-тестирование. Практическое руководство по контролируемым экспериментам (2021) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230989.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сложно понять ценность идеи, пока она не опробована на практике. В этой книге рассказывается о том, как контролируемые онлайн-эксперименты (или, как их еще называют, A/B-тесты) позволяют оценить эффективность тех или иных идей по оптимизации веб-сайтов и добиться максимальной отдачи от их использования. Вы узнаете, как правильно подобрать инструменты для тестирования, (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: В.С. ЯценковФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9C38D91CDC35F64B43B12623EDD208E56080168
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637309   (230863) от 03.06.2023
+
+Дмитрий Осипов | Delphi. Программирование для Windows, OS X, iOS и Android (+CD) (2014) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230863.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена одному из самых совершенных языков программирования Delphi XE5/XE6. В ней подробно рассматривается новейшая кроссплатформенная библиотека FM, позволяющая создавать полнофункциональное программное обеспечение для операционных систем Windows и OS X, а также для смартфонов и планшетных компьютеров, работающих под управлением Android и iOS. Проекты примеров (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA8A283A875BB442D3F44794C4B8336EE9970C79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648746   (230616) от 26.07.2023
+
+Noemí Ferrera | How to Test a Time Machine (2023) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230616.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поддержка качества является ключевым элементом создания высококачественных веб-сайтов, и эта книга поможет вам автоматизировать и тестировать архитектуры, чтобы оставаться на высоте.
+
+Эта книга содержит пошаговые объяснения основных понятий и практические примеры по автоматизации. Вы начнете с определения оптимальной системы измерения и обеспечения качества для вашей (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Packt PublishingФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E265AD63C2A72217E677168B8DC9EB02426270BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

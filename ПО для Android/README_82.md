@@ -1,3 +1,107 @@
+###  Публикация: 1829334   (201867) от 25.10.2025
+
+Poweramp Music Player build-1011-uni Mod by ModExPro [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Poweramp (Premium) - Аудиоплеер с продвинутым звуковым движком, поддерживающий высококачественные аудиовыходы, если они доступны на устройстве. Обладает мощным эквалайзером, гибкими настройками тона, стерео-расширением, а также эффектами реверберации и изменения темпа. Уникальная функция Direct Volume Control обеспечивает плавное регулирование громкости без искажений. (   Читать дальше...   )Тип издания: FullРелиз состоялся: 22.10.2025Разработчик: Poweramp Software Design (Max MP)Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08782761F104172CD9921884CCE310B72448F5EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1829277   (201865) от 25.10.2025
+
+Poweramp Эквалайзер build-1009-uni Mod by ModExPro [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Poweramp Эквалайзер - отдельное приложение-эквалайзер с обширным функционалом, созданное на базе Poweramp. Приложение обработки звука, основанное на плеере Poweramp, с как можно большим количествомвом опций Poweramp.Тип издания: PremiumРелиз состоялся: 22.10.2025Разработчик: Poweramp Software Design (Max MP)Поддерживаемая ОС: Android 10.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9F963B363E39EC60186250426796A806BD3C477
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1829594   (201844) от 25.10.2025
+
+WiFi Analyzer v6.7 (b105) Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201844.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем вам новый способ проверки и оптимизации сетей WiFi. Превратите ваше Android-устройство в анализатор Wi-Fi сетей! WiFi Analyzer порекомендует вам лучшую сеть Wi-Fi и самое оптимальное место для ее использования. WiFi Analyzer предоставит вам самую полезную информацию об оптимизации сети, чтобы помочь вам снизить уровень помех и увеличить скорость и стабильность (   Читать дальше...   )Тип издания: ProРелиз состоялся: 25.10.2025Разработчик: olgor.comПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C81BC649B98C1C185F9CA3BB2736C09ECC2A657E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1829575   (201839) от 25.10.2025
+
+Smart AudioBook Player Pro v11.5.8 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа разработана специально для проигрывания аудиокниг. Предполагается, что у Вас есть аудиокниги и Вы их уже скопировали на телефон. Воспроизведение форматов: opus, mp3, m4a, m4b, awb, ogg, wma (можно слушать книги, конвертированные для Nokia).Тип издания: FullРелиз состоялся: 25.10.2025Разработчик: Александр КравченкоПоддерживаемая ОС: Android 11+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9403857FE7E7ED08A39D1D6DB806AE2B08E4E0E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615398   (201661) от 05.03.2023
 
 Movily v1.5.1 / v1.1.1 ATV [Ru/En]
@@ -6,7 +110,7 @@ Movily v1.5.1 / v1.1.1 ATV [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201661.jpg" />
 </div>
 
 
@@ -34,7 +138,7 @@ Free Download Manager for Android 16.9.0.5156 (87037e22) [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201323.jpg" />
 </div>
 
 
@@ -61,7 +165,7 @@ Zaycev.net v8.3.0 Mod by Dymonyxx, Timozhai  [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201303.jpg" />
 </div>
 
 
@@ -87,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201184.jpg" />
 </div>
 
 
@@ -114,7 +218,7 @@ LectureNotes v2.10.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200801.jpg" />
 </div>
 
 
@@ -140,7 +244,7 @@ BikeComputer Pro v8.9.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200734.jpg" />
 </div>
 
 
@@ -166,7 +270,7 @@ Display Tester v4.56 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200616.jpg" />
 </div>
 
 
@@ -192,7 +296,7 @@ Kiwi VPN Proxy: Safer & Faster 51.23.12 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200534.jpg" />
 </div>
 
 
@@ -218,7 +322,7 @@ Enhance it v4.1.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200462.jpg" />
 </div>
 
 
@@ -244,7 +348,7 @@ VPN.lat: Unlimited and Secure 3.8.3 7.9 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200433.jpg" />
 </div>
 
 
@@ -270,7 +374,7 @@ SD Maid Pro v5.5.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200235.jpg" />
 </div>
 
 
@@ -296,7 +400,7 @@ Smart Book / Параллельный перевод книг v3.2 Mod by Dymony
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200181.jpg" />
 </div>
 
 
@@ -322,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200069.jpg" />
 </div>
 
 
@@ -348,7 +452,7 @@ Rosetta Stone: Изучение языков 8.34.3 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_199963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_199963.jpg" />
 </div>
 
 
@@ -374,7 +478,7 @@ Dual Space - Multiple Accounts & App Cloner 4.2.2 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199127.jpg" />
 </div>
 
 
@@ -400,7 +504,7 @@ Telegram for Android 9.6.3 (3344) [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199119.jpg" />
 </div>
 
 
@@ -426,7 +530,7 @@ Text Scanner [OCR] v9.9.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_199069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199069.jpg" />
 </div>
 
 
@@ -452,7 +556,7 @@ Rock Identifier - Stone ID v2.3.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199062.jpg" />
 </div>
 
 
@@ -478,7 +582,7 @@ Bikemap: велотрекер и маршруты v19.1.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_199042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199042.jpg" />
 </div>
 
 
@@ -504,7 +608,7 @@ BackCountry Navigator TOPO GPS v7.3.8 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_199025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199025.jpg" />
 </div>
 
 
@@ -530,7 +634,7 @@ ElectroCalc - DIY Electronics v3.7 (88) Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_199014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199014.jpg" />
 </div>
 
 
@@ -556,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198745.jpg" />
 </div>
 
 
@@ -567,111 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6CFDA1C80924BD64F00DC9E8D03619A49486172
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632582   (198697) от 10.05.2023
-
-Строительные расценки Pro v29.0 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если Вы строитель, или же собираетесь строить дом или заняться ремонтом, то Вам не обойтись без знаний цен на строительные работы. В этом Вам поможет приложение "Строительные расценки Pro". При помощи данного приложения Вы в мгновение ока сможете узнать цены на строительные работы, составить смету, и произвести строительные расчеты. При помощи раздела "Строительные (   Читать дальше...   )Тип издания: Pro / PaidРелиз состоялся: 03.04.2023Разработчик: Flash-GПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA508412D34448F1A6DB1A9B87E8CEBB189B99AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575763   (198488) от 12.05.2023
-
-Photo Editor v8.6 Pro [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_198488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Editor - уникальная программа для обработки качественных фотографий. Настройка цвета, различные эффекты, поворот, обрезка, изменение размера, рамки, а также возможность рисовать прямо на фото. Настройка цвета включает в себя тон, насыщенность, контраст, яркость. Вдобавок Photo Editor предлагает множество эффектов для фотографий, включая гамма-коррекцию, автоконтраст, (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 02.05.2023Разработчик: dev.macgyverПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62E8EB9FF7CA5F2D1086D20956DD11A1013459B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594148   (198102) от 21.05.2023
-
-Search By Image v8.3.0 [En/Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_198102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простое и понятное приложение для поиска похожих изображений в Google, Yandex, TinEye, Bing. Можно искать, сделав снимок камерой.Тип издания: PremiumРелиз состоялся: 06.03.2023Разработчик: PALM TEAMПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский и русификация
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D445DDBADA4D9C898C5A9E0944292887ECE6EC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586268   (198044) от 22.05.2023
-
-Простые рецепты v1.44 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_198044.jpg" />
-</div>
-
-
-###  Подробнее
-
-У нас собраны вкусные и простые рецепты, которыми можно порадовать родных и близких. Приложение позволяет составлять меню на неделю как календарь рецептов и отображает простые рецепты на каждый день.
-Также наше приложение уже используется многими как книга рецептов.Тип издания: ProРелиз состоялся: 20.05.2023Разработчик: ImpulseRecipesПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6908A7273CDC8AC17E35FA0DDEED7F53D4EF906E
 ```
 
 https://mybot314.ru/tekegram_catalog/

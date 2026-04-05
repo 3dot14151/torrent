@@ -1,32 +1,3 @@
-###  Публикация: 1577393   (128583) от 14.10.2025
-
-Trivium (& Ibaraki) - Studio Albums (12 releases) (2003-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore, Thrash/Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Trivium — американская метал-группа из Орландо, Флорида, образованная в 1999 году.2003 - Ember To Inferno
-2006 - Ascendancy
-2006 - The Crusade
-2008 - ShogunЖанр: Metalcore, Thrash/Heavy MetalПродолжительность: 14:01:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D819840B377D25E8AE4BEE79E81291FAF4DDEE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683178   (128553) от 10.12.2023
 
 Blacksilver - Blacksilver (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -35,7 +6,7 @@ Blacksilver - Blacksilver (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128553.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Ancient Ceremony - Studio Albums (6 releases) (1995-2004) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128547.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Ayreon - Universal Migrator Part 2-Flight of the Migrator (2000) [FLAC|24/192|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128544.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Dave Kelly - Sun On My Face (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128531.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Pimpinela - Especial de Navidad (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128348.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ System Of A Down - System Of A Down (1998)[FLAC|24/192|image + .cue|Vinyl-Rip]  
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128247.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Ayreon - 01011001 (2008) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Metal
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128220.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Ayreon - The Human Equation (2004) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progres
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128215.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Agnetha Faltskog - A+ (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128122.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ System Of A Down - Steal This Album! (2002) [FLAC|24/192|image + .cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128097.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ The Rah Band - Touchdown (Live at The Jazz Café, London, 2022) (2023) [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128095.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Egyptian Blue - A Living Commodity (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128083.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Mario Lanza/Марио Ланца - Голос и ночь, Всё это ты, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127986.jpg" />
 </div>
 
 
@@ -409,7 +380,7 @@ Children Of Bodom - A Chapter Called Children of Bodom (2023) Final Show in Hels
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127977.jpg" />
 </div>
 
 
@@ -438,7 +409,7 @@ Therion - Leviathan III (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127975.jpg" />
 </div>
 
 
@@ -467,7 +438,7 @@ Evergrey - From Dark Discoveries to Heartless Portraits (2023) [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127974.jpg" />
 </div>
 
 
@@ -496,7 +467,7 @@ Semblant - Studio Albums (5 releases) (2010-2022) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127971.jpg" />
 </div>
 
 
@@ -525,7 +496,7 @@ Ayreon - The Theory of Everything (2013) [FLAC|24/96|image + .cue|Vinyl-Rip] <Pr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127952.jpg" />
 </div>
 
 
@@ -554,7 +525,7 @@ Anubis Gate - Studio Albums (10 releases) (2004-2023) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127947.jpg" />
 </div>
 
 
@@ -583,7 +554,7 @@ System Of A Down - Hypnotize (2005) [FLAC|24/192|image + .cue|Vinyl-Rip] <Altern
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127946.jpg" />
 </div>
 
 
@@ -612,7 +583,7 @@ System Of A Down - Mezmerize (2005)  [FLAC|24/192|image + .cue|Vinyl-Rip]<Altern
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127816.jpg" />
 </div>
 
 
@@ -641,7 +612,7 @@ VA - Best Sound of Chill & Lounge 2023 – Winter Edition (2023) [FLAC 24/44.1|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127807.jpg" />
 </div>
 
 
@@ -670,7 +641,7 @@ The String Breakers - Get on Your Feet (2023) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127798.jpg" />
 </div>
 
 
@@ -699,7 +670,7 @@ Silent Force - Studio Albums (5 releases) (2000-2013) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127797.jpg" />
 </div>
 
 
@@ -728,7 +699,7 @@ Stam1na - Studio Albums (12 releases) (2005-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127793.jpg" />
 </div>
 
 
@@ -742,6 +713,35 @@ Stam1na («Стойкость») — метал-группа из Леми, Юж
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A2917C99B5A9A66F6BC38D910C9524F6672560B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684396   (127786) от 15.12.2023
+
+Sinisa Petric - Please Come Home (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Runaway Train Blues (3:48)
+02. Buried Alive in the Blues (4:24)
+03. You Gotta Pay Blues (3:35)
+04. Going Out In Style (3:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12FBDAE68885502B6239484C30A61B288DC4192F
 ```
 
 https://mybot314.ru/tekegram_catalog/

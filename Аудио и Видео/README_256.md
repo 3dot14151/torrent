@@ -6,7 +6,7 @@
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169856.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169850.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169845.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169820.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169816.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Taylor Swift - evermore (2020) [AAC|~284 Kbps] <Pop, Alternative>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169808.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169801.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169793.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Britney Spears - Glory (Deluxe) (2020) [AAC|~333 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169791.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169781.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169772.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ VA - Electronic Moon (The Chill Out Journey), Vol. 1 (2021) [AAC|~320 Kbps] <Lou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169767.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ VA - A Tribe Called Kotori 5 (2020) [AAC|~332 Kbps] <Progressive House, Deep Hou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169765.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - Finesse Jazz, Vol.4 (Smooth Jazzy Lounge Sounds) (2021) [AAC|~313 Kbps] <Lo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169757.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169751.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ VA - Fall Winter Moods (Atmospheric Chill and Electronic Jazzy Sounds) (2021) [A
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169747.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ VA - Urban Soulful Grooves, Vol. 2: Urban Vibes for Urban People (2021) [AAC|~31
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169745.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ VA - A Tribe Called Kotori 4 (2020) [AAC|~324 Kbps] <Progressive House, Deep Hou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169740.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ VA - Finesse Jazz, Vol.2 (Smooth Jazzy Lounge Sounds) (2021) [AAC|~324 Kbps] <Lo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169717.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ VA - Sunrise Tempel (Healing Body & Soul Tunes), Vol. 4 (2021) [AAC|~310 Kbps] <
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169703.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ VA - Heart of Electronica (Chillwave Downtempo Moods) (2019) [AAC|~330 Kbps] <Lo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169698.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VA - Finesse Jazz, Vol.3 (Smooth Jazzy Lounge Sounds) (2021) [AAC|~316 Kbps] <Lo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169697.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ VA - Best of Smooth Lounge, Vol. 2 (A Finest Selection of Chill & Modern Bar Tra
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169692.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169687.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ VA - Urban Soulful Grooves, Vol. 3: Urban Vibes for Urban People (2021) [AAC|~30
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169682.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169677.jpg" />
 </div>
 
 

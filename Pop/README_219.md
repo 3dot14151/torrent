@@ -1,175 +1,3 @@
-###  Публикация: 1068062   (382478) от 31.10.2016
-
-VA - NRJ 300% Hits 2016 (2016) 3CD [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382478.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Coldplay - Adventure of a Lifetime
-02. Feder feat. Emmi - Blind
-03. Kendji Girac - Les yeux de la mama(   Читать дальше...   )Жанр: PopПродолжительность: 03:06:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F031ECA7DA5FE5E84CD3AE9C73812871EE709FB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253373   (381698) от 10.10.2018
-
-Chi-Chi Favelas And The Black And White Band - Rock Solid (1978) LP [MP3|320 Kbps] <Electronic, Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Solid (10:14)
-02. Cocaine Part One, Discocaine, Cocaine Part Two (7:48)
-03. Give It To Me (7:21)
-04. Voodoo Lady (7:48)Жанр: Electronic, Rock, DiscoПродолжительность: 00:33:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D54409FD4328F2FE2B6EE8F4A385B63C73950416
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253466   (381693) от 10.10.2018
-
-Sweetbox - Everything's Gonna Be Alrigh (1997) Maxi-Single [FLAC|Lossless|image + .cue] <Classical, RnB/Swing, Hip Hop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381693.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Everything's Gonna Be Alright (Radio Version 85 Bpm)
-2.	Everything's Gonna Be Alright (Video Version 88 Bpm)
-3.	Everything's Gonna Be Alright (Geo's "E" Club Mix)
-4.	Everything's Gonna Be Alright (Classic Version)(   Читать дальше...   )Жанр: Classical, RnB/Swing, Hip HopПродолжительность: 00:23:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60CE7FF30EC55D26C2B48EB8B2AFDC0813E99B6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253355   (381689) от 10.10.2018
-
-BZN  - A Symphonic Night (1996) [FLAC|Lossless|image + .cue] <Pop, Classical, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381689.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.		Sing Of Love And Faith
-2.		Lilly Marlene
-3.		La Paloma
-4.		Le Printemps(   Читать дальше...   )Жанр: Pop, Classical, BalladПродолжительность: 01:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A30AF07488DC70A2783ABE67259FEEC8221797EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253363   (381621) от 10.10.2018
-
-BZN - A Symphonic Night II (1998) [FLAC|Lossless|image + .cue] <Pop, Classical, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381621.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Il Trovatore
-2.	Les Pêcheurs De PerlesЖанр: Pop, Classical, BalladПродолжительность: 00:57:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF5C3039238B9FD4C9EF7139A1F8E90EC0D222DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252614   (381614) от 10.10.2018
-
-Loreen - Ride (2017) [FLAC|Lossless|tracks] <Pop, Electronic, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. '71 Charger (4:12)
-02. Dreams (4:40)
-03. Jupiter Drive (5:25)
-04. Fire Blue (4:20)(   Читать дальше...   )Жанр: Pop, Electronic, RockПродолжительность: 00:46:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D5798B45B1C36A9BFF3EA407A5D3ACDAFFAEF3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253555   (381612) от 10.10.2018
 
 VA - 101 Hits Jukebox Classics (5CD) (2018) [MP3|320 Kbps] <Pop, Rock, Disco, Soul, Funk>
@@ -178,7 +6,7 @@ VA - 101 Hits Jukebox Classics (5CD) (2018) [MP3|320 Kbps] <Pop, Rock, Disco, So
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381612.jpg" />
 </div>
 
 
@@ -207,7 +35,7 @@ Hundredth - Somewhere Nowhere (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, S
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381598.jpg" />
 </div>
 
 
@@ -236,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381555.jpg" />
 </div>
 
 
@@ -265,7 +93,7 @@ Elen Cora - House Of Cards (2012) [OGG Vorbis|485 Kbps] <Electronic>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381541.jpg" />
 </div>
 
 
@@ -294,7 +122,7 @@ Khaled - Cheb Khaled (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Arab Music>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381533.jpg" />
 </div>
 
 
@@ -323,7 +151,7 @@ Electric Nightmare - Electric Nightmare (1979) LP [MP3|320 Kbps] <Electronic, Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381446.jpg" />
 </div>
 
 
@@ -350,7 +178,7 @@ Whitney Houston - Hit Collection (2000) [FLAC|Lossless|tracks + .cue]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381248.jpg" />
 </div>
 
 
@@ -379,7 +207,7 @@ Marie Laforet - L'integrale Festival 1960/1970 (1998) [MP3|320 kbps]<French pop,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_381247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_381247.jpg" />
 </div>
 
 
@@ -409,7 +237,7 @@ Den Harrow - Collection (2014-2015) [MP3|320 Kbps] <Disco, Italo-Disco, Eurodisc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381076.jpg" />
 </div>
 
 
@@ -438,7 +266,7 @@ VA - The Best Dance Album In The World... Ever! (2019) 3CD Box Set [FLAC|Lossles
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380917.jpg" />
 </div>
 
 
@@ -467,7 +295,7 @@ VA - All Time Classics (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380895.jpg" />
 </div>
 
 
@@ -496,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380859.jpg" />
 </div>
 
 
@@ -531,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380857.jpg" />
 </div>
 
 
@@ -557,7 +385,7 @@ VA - Underground Nu-Disco Sessions Vol.7 (2016) [MP3|320 Kbps] <Soulful, Nu Disc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380612.jpg" />
 </div>
 
 
@@ -586,7 +414,7 @@ VA - 1980 The Collection (Time Life) (1994) 2CD[FLAC|Lossless]<Pop, Rock, Jazz, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380528.jpg" />
 </div>
 
 
@@ -615,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380447.jpg" />
 </div>
 
 
@@ -644,7 +472,7 @@ Righeira - 3 Albums (1983-2007) [MP3|320 Kbps] <Electronic, Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380297.jpg" />
 </div>
 
 
@@ -673,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380273.jpg" />
 </div>
 
 
@@ -702,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_380258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_380258.jpg" />
 </div>
 
 
@@ -728,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380135.jpg" />
 </div>
 
 
@@ -742,6 +570,177 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA92D8192ED6F4A0668A16E924EA0968F16C6829
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 250957   (379847) от 28.10.2010
+
+VA - Ретро перепевки (2008) [MP3|320 kbps]<Retro, Pop>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: retro,popПродолжительность: 02:20:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D43CA99D197D72FF43FFD69BE6AFD6142FA1B2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949202   (379467) от 22.10.2015
+
+Al Bano & Romina Power - Felicita (1985) Gold Serie [FLAC|image + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Felicita (1983) [3:14]
+02. Prima notte d'amore (Enlaces sur le sable) (1983) [2:54]
+03. Sharazan (1983) [4:25]
+04. L' amore e (1983) [3:59](   Читать дальше...   )Жанр: PopПродолжительность: 00:56:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3101CE00F90F20267A4635DC7D0399DA4DC072AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575093   (379225) от 08.09.2022
+
+VA - GANGSTER MUSIC, Vol. 6 (2022) [MP3|320 Kbps] <Eurodance, Technopop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379225.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ONEIL - Shagy
+2. TRITICUM - Play Me
+3. Danny Shark/Emtiar - Samurai
+4. KDDK - DURA(   Читать дальше...   )Жанр: Eurodance, TechnopopПродолжительность: 01:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CB043BECC4FF472E919927C30645A75EB8A0E56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575090   (379221) от 08.09.2022
+
+VA - Now Yearbook '80 Extra (2022) 3xCD, Compilation [FLAC|Lossless|tracks + .cue] <Pop, Funk, Soul ...>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379221.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Queen – Flash
+02. Blondie – Call Me
+03. Kate Bush –	Army Dreamers(   Читать дальше...   )Жанр: Pop, Funk, Soul ...Продолжительность: 03:57:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F11C73C703E62B56DE86E3C28029BA5623B6E590
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949109   (379006) от 22.10.2015
+
+Муслим Магомаев - Лучшее (Звёзды Советской Эстрады) (2001) [MP3|320 кб/с]<Советская эстрада>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Королева красоты (А.Бабаджанян - А.Горохов)
+02. Шаланды (Н.Богословский - Агатов)
+03. Тёмная ночь (Н.Богословский - Агатов)
+04. Мечты, мечты (А.Мажуков - А.Пушкин)(   Читать дальше...   )Жанр: Советская эстрадаПродолжительность: 01:11:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F908D958F6CDE20511E760ACFEC620BCD20222C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415350   (378946) от 11.10.2020
+
+Caelestium - Caelestium (1981) LP [MP3|320 Kbps] <Electronic, Space Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Stars  (3:13)
+02. Cool Fire  (3:32)
+03. Radical Man  (3:19)
+04. Man  (4:32)(   Читать дальше...   )Жанр: Electronic, Space Rock, DiscoПродолжительность: 00:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52AA266DFE881A65E25568F2DFA9D8813939F7C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

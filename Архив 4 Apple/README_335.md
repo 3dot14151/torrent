@@ -6,7 +6,7 @@ Qbserve 1.45 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550187.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ CalendarPro for Google 2.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550176.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Wondershare PDFelement Pro 7.0.1.2255 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550163.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Affinity Designer 1.7.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550153.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Affinity Photo 1.7.1 (142) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550152.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ mSecure 3.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550100.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Beyond Compare 4.1.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550099.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Photo Mechanic 6.6.0 (build 3143) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550088.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Airy Pro 3.8.212 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550086.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ iExplorer 4.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550020.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549699.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ SQLPro for MSSQL 1.0.101 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549334.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Calendar 366 Plus 1.3.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549329.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Wondershare PDFelement with OCR 5.4.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549254.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Alfred Powerpack 3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549168.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Camtasia 2.10.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549162.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Yate 3.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549052.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Wirecast Pro 7.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549029.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Shimo 4.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548977.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ WinZip Mac Edition 5.0.3160 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548940.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Bumpr 1.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548844.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Affinity Publisher 1.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548562.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ TouchRetouch 2.1.1 CR2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548561.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Photo Mechanic 6  v6.6.0 (build 3291) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548410.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Cisdem PDFPasswordRemover 3.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548352.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ Jettison 1.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548345.jpg" />
 </div>
 
 

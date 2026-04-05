@@ -1,136 +1,3 @@
-###  Публикация: 1611388   (1041320) от 11.02.2023
-
-Джон Бьюри | Варвары и Рим. Крушение империи (2013) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ирландский историк, византинист, профессор новейшей истории в Кембриджском университете Джон Багнелл Бьюри посвятил свой труд истории постепенного упадка и развала Римской империи, теснимой варварами. Автор наглядно показал, что римская армия стала не жертвой сильного внешнего противника, а оказалась разъеденной изнутри сначала набором рекрутов-иностранцев, а затем (   Читать дальше...   )Жанр: ИсторияПеревод: Леонид ИгоревскийФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1983BC2AA44B3115CD8F6C5A01A70C7F25CABA5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612840   (1039804) от 17.02.2023
-
-Григорий Чеботарев | Правда о России. Мемуары профессора Принстонского университета, в прошлом казачьего офицера. 1917—1959 (2007) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Григорий Чеботарев, потомственный казачий офицер, с болью рассказывает о неудачной попытке Керенского организовать вооруженное сопротивление большевикам в первые дни после Октябрьской революции 1917 года, о провале генерала Каледина на Дону, когда Белое движение не получило поддержки рядового казачества, о страшных эпизодах Гражданской войны на юге России. В эмиграции, (   Читать дальше...   )Жанр: Биографии и мемуары, Зарубежная публицистикаПеревод: Наталья ЛисоваФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ED723BA9EB9DD1FBFB94040FAA2A1DD229F3115
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614539   (1038546) от 22.02.2023
-
-Виолетта Потякина | Россия бунташного века: cкандалы, интриги, расследования (2023) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038546.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Россия бунташного века: скандалы, интриги, расследования» — это погружение в удивительные события истории России XVII века. Прервавшаяся династия Рюриковичей, самозванцы на троне, церковные реформы, бунты и смуты — вот знаковые события, определившие название этой эпохи. Однако бунташный век стал не только временем трагических событий в российской истории, он подарил (   Читать дальше...   )Жанр: Популярно об историиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1DB87E6B255E86381258CEB313D3BB50C31E764
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614667   (1038330) от 23.02.2023
-
-А.И. Бегунова | Путь через века (1988) [DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038330.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Фрагменты истории войска российского"
-
-Книга о героическом прошлом нашего народа, о его славных деяниях в борьбе за Отечество, против иноземных захватчиков и поработителей. В центре повествования - история армии, русских вооруженных сил. Но показана она не только через походы и сражения, но и через поступки, характеры выдающихся полководцев и народных (   Читать дальше...   )Жанр: военно-историческаяФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0E5FF292401E4A516CC45BB80AB7BBA69D42829
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614668   (1038306) от 23.02.2023
-
-В.Н. Шунков | Вооружение элитных войск (2002) [DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Справочник содержит сведения об оружии и боевой технике морской пехоты, воздушно-десантных, горнострелковых войск и спецподразделений. Для каждого из образцов приводятся описание конструкции, тактико-технические характеристики и иллюстративные материалы.
-Книга рассчитана на широкий круг читателей.Жанр: военная техника, энциклопедияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2676E337B21186C8311F37A0C4AC8533E0AC689
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615308   (1037833) от 25.02.2023
 
 Арсений Замостьянов | Тайны и герои 1812 года (2023) [FB2]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037833.jpg" />
 </div>
 
 
@@ -165,7 +32,7 @@ C. Иванов | Галеры. Эпоха ренессанса 1470-1590 (2023)
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037496.jpg" />
 </div>
 
 
@@ -192,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036891.jpg" />
 </div>
 
 
@@ -219,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036851.jpg" />
 </div>
 
 
@@ -246,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036840.jpg" />
 </div>
 
 
@@ -274,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033978.jpg" />
 </div>
 
 
@@ -300,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033977.jpg" />
 </div>
 
 
@@ -326,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033975.jpg" />
 </div>
 
 
@@ -352,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033839.jpg" />
 </div>
 
 
@@ -378,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033232.jpg" />
 </div>
 
 
@@ -404,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032809.jpg" />
 </div>
 
 
@@ -430,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029132.jpg" />
 </div>
 
 
@@ -456,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029106.jpg" />
 </div>
 
 
@@ -482,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025788.jpg" />
 </div>
 
 
@@ -508,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025447.jpg" />
 </div>
 
 
@@ -535,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025433.jpg" />
 </div>
 
 
@@ -561,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025426.jpg" />
 </div>
 
 
@@ -587,7 +454,7 @@ B.B.Арбузов | Броненосец "Наварин" (1888-1905) (2012) [P
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022776.jpg" />
 </div>
 
 
@@ -613,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022388.jpg" />
 </div>
 
 
@@ -639,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020431.jpg" />
 </div>
 
 
@@ -665,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019250.jpg" />
 </div>
 
 
@@ -677,6 +544,140 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9666B9A580DF30DE77714D8822A258928FCEA7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466075   (1018718) от 28.04.2021
+
+Семен Федосеев, Алексей Ардашев | Снайперы. Самая полная энциклопедия (2021) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018718.jpg" />
+</div>
+
+
+###  Подробнее
+
+САМАЯ ПОЛНАЯ ЭНЦИКЛОПЕДИЯ СНАЙПЕРСКОГО ИСКУССТВА. Не ремесла, а именно искусства! – ведь точность выстрела зависит от десятков факторов: времени суток и температуры воздуха, скорости и направления ветра, расстояния до цели, как падает свет, куда перемещаются тени…
+
+Искусство боевого снайпера окружено целым ворохом мифов и легенд и часто граничит с мистикой. Эффект (   Читать дальше...   )Жанр: Военное дело / спецслужбы, ЭнциклопедииФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79A28204F23B20C1EC52D7E5D02F5B05E1DC0891
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466917   (1016363) от 12.05.2021
+
+Николай Глиноецкiй | Исторiя Русскаго генеральнаго штаба в 2 томахъ (1883-1894) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016363.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 том.
+В первом томе, двухтомного издания, книги описывается история русского генерального штаба периода 1698-1825 годов. - Квартирмерские чины и их обязанности по воинскому уставу Вейде (1698 г.), образование генерального штаба Екатериной II, участие генерального штаба в военных действиях, участие офицеров квартирмейстерской части в астрономических, геодезических (   Читать дальше...   )Жанр: Военная история, раритетЯзык: Русский (старая орфография)Издательство: Военная Типографiя, С.-Петербургъ, Россiйская ИмперiяФормат: PDFКачество: Хороший скан, OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6661AECEB63F38CF663D7754F530006FB6C50338
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459581   (1016237) от 13.05.2021
+
+В. И. Чекмарев | Атлас сражений XIX века (1894-1899) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второе издание «Атласа сражений XIX века»  представляет собой перевод на русский язык, выпускавшегося в военно-научном комитете Главного штаба на немецком языке с 1830-х гг., разрозненного собрания карт и планов военных кампаний армий мира в XIX века.
+Автором, данного издания является Виктор Иванович Чекмарев (1861–1939) — генерал-лейтенант (1912), видный военный (   Читать дальше...   )Жанр: Военная историяФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7B5625C553B7F2CDD426B9CE78684490B463B64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470452   (1015766) от 16.05.2021
+
+Юрий Селезнев | Русские князья при дворе ханов Золотой Орды (2017) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015766.jpg" />
+</div>
+
+
+###  Подробнее
+
+В середине XIII века Русь оказалась в тяжелейшей зависимости от Монгольской империи, а затем, после ее распада, от Джучиева Улуса, или — как это государство стали называть значительно позже, когда оно уже исчезло с политической карты, — Золотой Орды. Русские князья вынуждены были время от времени, по нескольку раз за правление, ездить на поклон к ханам Джучиева Улуса, (   Читать дальше...   )Жанр: ИсторияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0ECF56BEE959EEBE648BDB9FC5F07349D8C17B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470435   (1015746) от 16.05.2021
+
+Людмила Ивонина | Герцог Мальборо. Человек, полководец, политик (2019) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герой этой книги — прославленный английский полководец и политик герцог Джон Мальборо. Он был едва ли не самым известным человеком в Европе начала века Просвещения, а его мнение - едва ли не самым влиятельным. Таланты военачальника сочетались в нем с изворотливостью дипломата и ловкостью придворного. С Мальборо считались европейские монархи, а некоторые из них вынуждены (   Читать дальше...   )Жанр: Биографии и Мемуары, ИсторияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42C74C304450D22277E0D7673EF31112400EBCD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

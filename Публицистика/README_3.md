@@ -1,3 +1,29 @@
+###  Публикация: 1449160   (1030138) от 20.02.2021
+
+Кевин Митник | Искусство быть невидимым. Как сохранить приватность в эпоху Big Data (2019) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Думаете, ваши данные в Интернете хорошо защищены? Так глубоко вы никогда не заблуждались! Кевин Митник – самый разыскиваемый хакер планеты в прошлом, а ныне один из ведущих специалистов по кибербезопасности – знает, насколько опасна неосведомленность в вопросах защиты данных в Сети. Как сбить со следа Большого брата и не пасть жертвой таргетинга и навязчивых маркетинговых (   Читать дальше...   )Жанр: Зарубежная публицистика, Интернет, Истории из жизни, ОС и сетиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81C6A581C5704677FCBDC59B36402781B602EA62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450867   (1028713) от 28.02.2021
 
 Кирилл Бенедиктов | Чёрный лебедь. Политическая биография Дональда Трампа (2016) [PDF, EPUB]
@@ -6,7 +32,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028713.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028156.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026124.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026116.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026109.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026097.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026087.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026081.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025924.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025921.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025793.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025791.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025761.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025733.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025730.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025473.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025472.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025468.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025434.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025238.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025092.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025090.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024914.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024895.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024868.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA06BFF6E6771328745A9B1DED1BF6203954A346
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457268   (1024618) от 25.03.2021
-
-Пат Инголдзби | Особое чувство собственного ирландства (2020) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024618.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Особое чувство собственного ирландства» – сборник лиричных и остроумных эссе о Дублине и горожанах вообще, национальном ирландском характере и человеческих нравах в принципе, о споре традиций и нового. Его автор Пат Инголдзби – великий дублинский романтик ХХ века, поэт, драматург, а в прошлом – еще и звезда ирландского телевидения, любимец детей. Эта ироничная и (   Читать дальше...   )Жанр: ПублицистикаПеревод: Шаши МартыноваФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A898FF76DF0055930835F57AFECF99186F5D990
 ```
 
 https://mybot314.ru/tekegram_catalog/

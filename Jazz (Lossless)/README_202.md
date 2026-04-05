@@ -6,7 +6,7 @@ Paul Bley - Indian Summer (1987) 1991, SteepleChase [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372623.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ James Hurt - Dark Grooves • Mystical Rhythms (1999) Blue Note [APE|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372449.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ John Muggsy Spanier - Classic Jazz Archive (1939 - 1946) 2CD, 2004, Membran Musi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372448.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Peter Ecklund - Gigs Reminiscing In Music (1999) Arbors Records [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372447.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Sun Ra & Walt Dickerson - Visions (1978) 1988, SteepleChase [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372137.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Poncho Sanchez - Chile Con Soul (1990) Concord [FLAC|Lossless|tracks + .cue] <La
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372135.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Peter Bernstein Quartet - Live At Smalls (2008) Smalls Live [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372133.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Peter Bernstein Trio - Monk (2008) Xanadu Records [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372019.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Elvin Jones - The Main Force (1976) 2019, Wounded Bird Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372018.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Tito Puente - Live at Birdland: Dancemania '99 (1998) RMM Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372015.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Poncho Sanchez - Soul Sauce: Memories Of Cal Tjader (1995) Concord [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372006.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Simone Kopmajer, Paul Urbanek, Reinhardt Winkler - Soulmates (2016) Lucky Mojo R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371534.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Nicholas Payton - Smoke Sessions (2021) Smoke Sessions Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370945.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Omer Avital Quintet - Live at Smalls (2010) [FLAC|tracks+.cue]<Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370508.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Dave Douglas - Moving Portrait (1998) /DIW/[APE|image+.cue]<Modern Creative, Ava
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370499.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Ondrej Pivec - Never Enough (2007) [FLAC|image+.cue]<Neo-Bop, Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370498.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Omer Klein - Heart Beats (2008) [APE|image+.cue]<Post-Bop, Etho-Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370497.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ One For All - Blueslike (2004) [FLAC|tracks+.cue]<Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370496.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Omer Klein - Rockets on the Balcony (2010) [APE|tracks+.cue]<Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370495.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Erik Tagg - Rendez-Vous (1977) /1998, Celeste/[APE|image+.cue]<Vocal Jazz, Jazz-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370494.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Rosemary Clooney - The Songbook Collection (2000) 6CD /Concord Records/[FLAC|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370425.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Toshiko Akiyoshi - Lew Tebackin Big Band (2009) /Mosaic Select 33, LE, 3CD/ [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370413.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Pat Metheny and Ornette Coleman - Song X (1985) [FLAC|tracks+.cue]<Jazz, Free Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370400.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ One For All - No Problem (2003) /Venus Records/[FLAC|tracks+.cue]<Post-Bop, Stra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370395.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Joshua Redman Quartet - Come What May (2019) Nonesuch Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370260.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Fred Hersch & The WDR Big Band - Begin Again (2019) Palmetto Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370256.jpg" />
 </div>
 
 

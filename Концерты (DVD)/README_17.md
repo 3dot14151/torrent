@@ -6,7 +6,7 @@ LIVING LOUD - Live Sydney Fox Studios (2004) DVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46635.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Led Zeppelin - Celebration Day (Live at London O2 Arena 2007) (2012) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46578.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Ritchie Blackmore's Rainbow - Black Masquerade (1995) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46575.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ The Doors - 30 Years Commemorative Edition  (2001) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46571.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Rainbow - Live In Munich (1977) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46551.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Live At Knebworth (2002) DVD9 + DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46548.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46544.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ The Doors - Live In Europe - 1968 (DVD5)
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46440.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ The Doors - Live At The Isle Of Wight Festival '1970 (2018) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46342.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Guns N' Roses - Use Your Illusion Ultimate (1998) 2 x DVD9/5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45955.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Rainbow - Live In Japan 1984 (2015) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45927.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Deep Purple - History, Hits & Highlights '68-'76 (1968-1976) 2*DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45847.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Pink Floyd - Live at Pompeii (Director's Cut, 1972/2003 гг. DVD9)
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45845.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Party at The Palace (2002) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45718.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Deep Purple 1972/1973 Copenhagen - New-York (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45712.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Uriah Heep / Acoustically Driven (Classic Rock Legends) [2001, Classic Rock, DVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45640.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Kiss: "Rock the nation. Live!" (2005)  DVD9x2
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45636.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Cheap Trick - Silver (1999/2005) DVD9 <Hard Rock, Power Pop>
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45615.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Joe Cocker  - The Best Of Joe Cocker Live (1992-2002 ) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45526.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ AC/DC - Stiff Upper Lip Live 2001 DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45425.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ W.A.S.P. - The Sting: Live At The Key Club, L.A. (2001) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45404.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Iron Maiden - Live After Death [2008 г., Heavy Metal, 2xDVD9] (2008) DVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45117.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Helloween - Live on 3 Continents (2007) 2xDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45115.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Doro - 20 Years a Warrior Soul DVD (2006)
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45111.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ Halford - Live In Anaheim (2010) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45083.jpg" />
 </div>
 
 
@@ -725,7 +725,7 @@ B.B.King - The jazz channel presents (2000) DVD5 <Jazz>
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43505.jpg" />
 </div>
 
 

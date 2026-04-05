@@ -6,7 +6,7 @@ Paris - You Know Me (2002) [FLAC|Lossless|image + .cue] <Pop, Soft Rock, Country
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710184.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Paris Hilton - Paris (2006) [APE|Lossless|image + .cue] <Pop, R'n'B>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710098.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Julio Iglesias - Divorcio (2003) [FLAC|Lossless|image + .cue] <Latin, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710024.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ VA - Now That's What I Call Music! 99 (2018) Box Set, 2CD [FLAC|Lossless|tracks 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709768.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ VA - Happy Acoustic Covers Playlist (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709394.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Chris Rea - New Light Through Old Windows (1988) [FLAC|Lossless|image + .cue] <P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708877.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ VA - Pure... Guitar Heroes (2010) Box Set, 4 CD [FLAC|Lossless]<Pop, Rock, Pop-R
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708138.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ VA - Ultimate Dance (2016) 4CD, Box Set [FLAC|Lossless|tracks + .cue] <Pop, Danc
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707617.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Holy Holy - Paint (2017) [FLAC|Lossless|tracks] <Indie Pop Rock, Psychedelic Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706841.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ K.Flay - Every Where Is Some Where (2017) [FLAC|Lossless|WEB-DL|tracks] <Alterna
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706715.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Roxette - Sleeping In My Car (1994) Single [FLAC|Lossless|tracks] <Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706040.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Silent Circle - My Star (2020) [FLAC|Lossless|image + .cue] <Electronic, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705484.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ VA - Love 101 - 101 Ways To Say I Love You (2009) Box Set, 6 CD, Compilation [FL
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705207.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ VA - Greatest Classic Hits (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704854.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Dido - Still on My Mind (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Folk>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703347.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Mylene Farmer - Dance Remixes (1992) Compilation, Reissue, 2000, Polydor [FLAC|L
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703241.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Julio Iglesias - Mexico & Amigos (2017) [FLAC|Lossless|tracks + .cue] <Pop, Lati
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702728.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Katy Perry - Chained to the Rhythm (2017) Single [FLAC|Lossless|tracks + .cue] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702659.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Thomas Anders - Lunatic (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, Europop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702163.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ VA - Romantic Pop Songs (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701724.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ GASHI - 1984 (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Retrowave>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701722.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Cyndi Lauper - Time After Time (The Cyndi Lauper Collection) (2009) [FLAC|Lossle
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701639.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Lara Fabian - Essential (2015) [FLAC|Lossless]<Pop, Classical Crossover>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701015.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ VA - 100% Hits Vol. 1 (2016) Box Set [FLAC|Lossless|tracks + .cue] <Pop, Electro
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699963.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Demis Roussos - Forever And Ever (2002) 3CD [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699631.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Dido - Still On My Mind (2019) BMG [FLAC|Lossless|tracks + .cue] <Electronic, Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699376.jpg" />
 </div>
 
 

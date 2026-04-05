@@ -1,3 +1,29 @@
+###  Публикация: 741253   (967881) от 14.01.2014
+
+Шерлок / Sherlock (2014) WEB-DLRip [1080p] (Сезон 3, серии 1-3 из 3) (Первый)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967881.jpg" />
+</div>
+
+
+###  Подробнее
+
+События разворачиваются в наши дни. Он прошел Афганистан, остался инвалидом. По возвращении в родные края встречается с загадочным, но своеобразным гениальным человеком. Тот в поиске соседа по квартире. Лондон, 2010 год. Происходят необъяснимые убийства. Скотланд-Ярд без понятия, за что хвататься. Существует лишь один человек, который в силах разрешить проблемы и (   Читать дальше...   )Производство: "Hartswood Films", "BBC Wales", "Masterpiece Theatre", ВеликобританияЖанр: Триллер, Драма, Криминал, ДетективРежиссер: Пол МакГиганАктеры: Бенедикт Камбербэтч, Мартин Фриман, Уна Стаббс, Эндрю Скотт, Лара Пулвер, Лу Брили, Руперт Грейвз, Марк Гатисс, Винетт Робинсон, Джонатан АрисПеревод: Дублированный - Первый каналПродолжительность: 3 x ~ 01:27:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:499C1D9D52327F9AE30124FED932869548B06E85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 976881   (967304) от 19.01.2016
 
 Slax 7.0.8 [i486+x86_64] [EN+RU] 4xCD
@@ -6,7 +32,7 @@ Slax 7.0.8 [i486+x86_64] [EN+RU] 4xCD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967304.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967291.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ Auslogics BoostSpeed 8.2.0.0 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967290.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ Impire [En/Gr] (L/1.0.1.1) 2013 | FLT
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967051.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Metal Gear Rising: Revengeance [XBOX360] [Region Free] [En] [LT+3.0] (XGD3 / 155
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967046.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ Forza Motorsport 7 (2017) [Ru/Multi] (1.141.192.2/dlc) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966917.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ BELOFF 2020 [Ru] (Авторская раздача)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_966916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_966916.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ WinPE 10 x64 by LEX v.20.2.8 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966915.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966327.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ Resident Evil 0 HD Remaster (2016) [En/Multi] (1.0/dlc) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966256.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ Engvid | Уроки английского (2010-2015) WEBRip [H.264/1080p]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966252.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966235.jpg" />
 </div>
 
 
@@ -328,7 +354,7 @@ Re-Loader Activator 2.2 Final [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966234.jpg" />
 </div>
 
 
@@ -354,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966232.jpg" />
 </div>
 
 
@@ -380,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966231.jpg" />
 </div>
 
 
@@ -406,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966230.jpg" />
 </div>
 
 
@@ -432,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965823.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965298.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ Bandicam 3.0.2.1014 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965251.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965247.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ Adobe Photoshop CC 2015.1.2 (20160113.r.355) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965237.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ Mirror's Edge [Ru/En] (RePack/1.0.1.0/DLC) 2009 | z10yded
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964771.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ NeoSpy PRO 4.8.7 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964498.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ Hotspot Shield Elite 5.20.12 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964286.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ Marvelous Designer 5 Personal 2.3.153 (r16257) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964218.jpg" />
 </div>
 
 
@@ -652,32 +678,6 @@ Marvelous Designer - одна из лучших программ по конст
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:720837683BBACB3153391D7A250E5FE2214E17AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977649   (964217) от 22.01.2016
-
-Последний охотник на ведьм / The Last Witch Hunter (2015) BDRip[H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современный мир скрывает множество секретов, но самым удивительным из них является то, что ведьмы до сих пор живут среди нас. Это злобные сверхъестественные существа, чья цель — наслать на мир смертоносную чуму. Армии охотников на ведьм сражались с ними на протяжении многих веков. В наши дни остался всего лишь один охотник на ведьм, Колдер, которому однажды удалось (   Читать дальше...   )Производство: США / Summit Entertainment, Lionsgate CompanyЖанр: Фэнтези, боевик, приключенияРежиссер: Брек ЭйснерАктеры: Вин Дизель, Роуз Лесли, Элайджа Вуд, Оулавюр Дарри Оулафссон, Рина Оуэн, Юли Энгельбрехт, Майкл Кейн, Джозеф Гилган, Исаак Де Банколе, Майкл Халсли, Слоун Кумбс, Лотте Вербеек, Доун Оливери, Инбар Лави, Армани Джексон, Эйми Карреро, Бекс Тейлор-Клаус, Дэвид Уэйлен, Джэк Эрди, Туссэн Рафаэль АбессолоПеревод: Дублированный (iTunes)Субтитры: отсутствуютПродолжительность: 01:46:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC26345978F3CCAA04664230B478E93A74EFD1E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

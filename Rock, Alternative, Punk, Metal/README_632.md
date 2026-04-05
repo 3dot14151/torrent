@@ -1,3 +1,32 @@
+###  Публикация: 1323543   (435817) от 04.09.2019
+
+Sonata Arctica - Talviyo (2019) Japanese Edition [MP3|320 Kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Message from the Sun
+02. Whirlwind
+03. Cold
+04. Storm the Armada(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:01:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED140349ED4321BAA47D651FB8881B6EC0D19E06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1323344   (435803) от 04.09.2019
 
 Khepri - Bellymetal, Vol. 2 (2019) [MP3|320 Kbps] <Progressive Metal, Folk, Instrumental>
@@ -6,7 +35,7 @@ Khepri - Bellymetal, Vol. 2 (2019) [MP3|320 Kbps] <Progressive Metal, Folk, Inst
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435803.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Dark Sarah - The Golden Moth (2018) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435727.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Black Majesty - Children of the Abyss (2018) [MP3|320 Kbps] <Melodic Power Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435720.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Sweet - Action (The Ultimate Story) (2015) 2CD Deluxe Edition [OGG| 446-548 кб
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435678.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Status Quo - Backbone (2019) Limited Edition [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435632.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Symphorce - Unresticted (2010) [FLAC|Lossless|image + .cue] <Heavy-Power Metal>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435564.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ John Lennon - Anthology (1998) /4CD Boxset/ [FLAC|track+.cue]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435512.jpg" />
 </div>
 
 
@@ -210,7 +239,7 @@ Suicidal Tendencies - World Gone Mad (2016) [FLAC|Lossless|image + .cue] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435378.jpg" />
 </div>
 
 
@@ -239,7 +268,7 @@ Acid Drinkers - Peep Show (2016) [FLAC|Lossless|image + .cue] <Thrash Metal, Cro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435370.jpg" />
 </div>
 
 
@@ -268,7 +297,7 @@ Tango Down - Bulletproof (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435361.jpg" />
 </div>
 
 
@@ -297,7 +326,7 @@ Blue Stahli - The Devil (2015) Deluxe Edition [FLAC|tracks|WEB-DL]<Industrial Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435250.jpg" />
 </div>
 
 
@@ -326,7 +355,7 @@ NRKTK - Разочарование Года (2012) [FLAC|Lossless|WEB-DL|tracks]
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435228.jpg" />
 </div>
 
 
@@ -355,7 +384,7 @@ Wolves in the Throne Room - Two Hunters (2007) [FLAC|Lossless|image + .cue] <Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434968.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ BY Effect - Нам по дороге (2016) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434961.jpg" />
 </div>
 
 
@@ -413,7 +442,7 @@ Kiss - Hotter Than Hell (1974) + Unmasked (1980) (1999) [WavPack|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434489.jpg" />
 </div>
 
 
@@ -442,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434421.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ Bigelf - 5 альбомов (1996 - 2014) [FLAC|image+.cue|tracks+.cue|Lossless]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434298.jpg" />
 </div>
 
 
@@ -500,7 +529,7 @@ The Verve - 8 альбомов, 20 CD (1993 - 2017) [FLAC|Lossless|image + .cue|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434228.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ oOoOoOoOoOo - Samen (2016) [FLAC|Lossless|WEB-DL|tracks] <Avantgarde, Experiment
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434111.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434069.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ MYNSKH - Chapter I: Obliterating Perfection (2020) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434068.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434065.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ Falconer - From A Dying Ember (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434060.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ Dokken - Return To The East Live (2018) [FLAC|Lossless|image + .cue] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434054.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ Nightmare - Aeternam (2020) [MP3|320 Kbps] <Power Metal, Female Vocal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434051.jpg" />
 </div>
 
 
@@ -717,35 +746,6 @@ Nightmare - Aeternam (2020) [MP3|320 Kbps] <Power Metal, Female Vocal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D36792B8708D5D1C669A538469ADCC3D64D7FC54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571177   (434049) от 21.08.2022
-
-Void Vator - Great Fear Rising (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can’t Take It (03:36)
-02. I Want More (03:23)
-03. There’s Something Wrong With Us (03:17)
-04. Losing Control (03:39)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:32:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14A616D554B10798FB94DC98DD9E5C5216FACC86
 ```
 
 https://mybot314.ru/tekegram_catalog/

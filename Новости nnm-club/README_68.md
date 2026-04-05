@@ -1,3 +1,29 @@
+###  Публикация: 1503340   (817362) от 20.10.2021
+
+Facebook наймет 10 000 инженеров для создания метавселенной
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_817362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Facebook планирует нанять 10 000 специалистов в Евросоюзе в течение пяти лет для строительства так называемой метавселенной. Их будут искать в первую очередь в Германии, Франции, Италии, Испании, Польше, Нидерландах и Ирландии, сообщила компания в своем корпоративном блоге. Специалисты потребуются компании для создания метавселенной, о которой основатель и гендиректор (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007805   (817311) от 17.04.2016
 
 Японский космический аппарат Akatsuki приступает к изучению Венеры
@@ -6,7 +32,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_817311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_817311.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_817305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_817305.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_816883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_816883.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Davinci Resolve Studio 14.2.0.012 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816871.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816744.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ uTorrent 3.5.1 build 44332 Pro Portable by Коля3Д79 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816741.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816739.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816738.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Windows 10 Enterprise LTSB x86 x64 Matros 01 2018 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816736.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816713.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Undertale (2015) [Ru] (1.0.3) Repack ARMENIAC
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816710.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_816534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_816534.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ Skype 7.34.32.102 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816401.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ Autodesk AutoCAD 2018 x86-x64 RUS-ENG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816380.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ Resident Evil 4 / Biohazard 4 (2014) [Ru/Multi] (1.06) Repack R.G. Catalyst [Ult
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816270.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ Pillars of Eternity (2015) [Ru/Multi] (1.0.2.0508/dlc) Repack R.G. Механи�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816268.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815644.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815643.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ Parallels Desktop for Mac 9.0.24229 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815642.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ BBC: Грета Тунберг. Год, чтобы изменить мир / Gre
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815551.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ Universal Media Creation Tool 20.10.2021 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815404.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815229.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814948.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ Poweramp 2.0.9 Build 529 + Skins - Музыкальный плеер (05.2013) <
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814944.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ Life is Strange: Before the Storm (2017) [Ru/Multi] (1.0/dlc) SteamRip R.G. Orig
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814866.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ Life is Strange: Before the Storm (2017) [Ru/Multi] (1.0/dlc) SteamRip R.G. Orig
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE00DD706DCCB079955756B6261156B03C8C66B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197466   (814862) от 07.01.2018
-
-Зови меня своим именем / Call Me by Your Name (2017) WEB-DLRip [H.264] [VO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814862.jpg" />
-</div>
-
-
-###  Подробнее
-
-1983 год, Италия. 17-летний Элио на лето отправляется жить на родительскую виллу. Парень любит читать, и всё вокруг кажется ему интересным. Лето течёт безмятежно, герой купается в море, флиртует с подружкой и транскрибирует классическую музыку... Экранизация романа Андре Акимана.Производство: Италия, Франция, Бразилия, США / Frenesy Film Company, La Cinefacture, Lombardia Film Commission, M.Y.R.A. EntertainmentЖанр: Драма, мелодрама, экранизацияРежиссер: Лука ГуаданьиноАктеры: Арми Хаммер, Тимоти Шаламе, Майкл Стулбарг, Амира Казар, Эстер Гаррель, Виктуар Ду Бойс, Ванда Каприоло, Елена БуччиПеревод: Любительский одноголосый (Анатолий Ашмарин)Субтитры: Русские, итальянские, французские, португальские, английскиеПродолжительность: 02:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D05009997EC39A915417273B6C1E2DCFC1320774
 ```
 
 https://mybot314.ru/tekegram_catalog/

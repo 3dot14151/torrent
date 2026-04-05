@@ -1,3 +1,29 @@
+###  Публикация: 1349103   (138617) от 30.12.2019
+
+Сергей Черненко | Python для SEO специалиста (2018-2019) PCRec [H.264]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс Python для SEO специалиста - это курс программирования с практическим уклоном на решение SEO задач. Курс включает базовые и продвинутые темы. На данный курс можно записаться как снуля так и имея базовые знания в программировании, но вам обязательно нужно быть сеошником. После прохождения курса вы сможете реализовать любую свою идею самостоятельно: написать парсер, (   Читать дальше...   )Жанр: Программирование, SEO, PythonПродолжительность: 75:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25A1099047DC9FFA3CF39CFD8E516EE7C8F1620D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349088   (138589) от 30.12.2019
 
 HTML Academy | Профессиональный онлайн-курс JavaScript [Уровень 3] (ноябрь 2019) PCRec [H.264/1080p-LQ]
@@ -6,7 +32,7 @@ HTML Academy | Профессиональный онлайн-курс JavaScript
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138589.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Michael Pavlovich | Intro To ZBrush 4R7 Part 1 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138573.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Michael Pavlovich | Intro To ZBrush 4R7 Part 3 (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138539.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138491.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138142.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ CGMA, Pete Zoppi | Создание персонажа для фильмов/с�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138073.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138037.jpg" />
 </div>
 
 
@@ -197,7 +223,7 @@ CGMA, Dylan Mellott | Weapons and Props for Games (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137970.jpg" />
 </div>
 
 
@@ -223,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137796.jpg" />
 </div>
 
 
@@ -252,7 +278,7 @@ Bloop Animation, Dillon Gu | Курс по анимации в Blender 2.83 / Bl
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137750.jpg" />
 </div>
 
 
@@ -280,7 +306,7 @@ Enterclass, Сергей Курбатов | Тихая река (2023) WEB-DL [A
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137692.jpg" />
 </div>
 
 
@@ -309,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137677.jpg" />
 </div>
 
 
@@ -335,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137603.jpg" />
 </div>
 
 
@@ -364,7 +390,7 @@ Udemy, Krishna Lodha | Web GIS development course (2022) WEB-DL [EN / EN Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137581.jpg" />
 </div>
 
 
@@ -392,7 +418,7 @@ Zero To Mastery Academy (ZTM), Jesse Zhou | Three.js Bootcamp: Zero to Mastery (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137470.jpg" />
 </div>
 
 
@@ -418,7 +444,7 @@ Fstoppers, Elia Locardi | Photographing the World 5 - Japan (2023) PCRec [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137433.jpg" />
 </div>
 
 
@@ -444,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137415.jpg" />
 </div>
 
 
@@ -470,7 +496,7 @@ Tamara Williams Academy, Tamara Williams | The Art of Beauty Masterclass (2023) 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137338.jpg" />
 </div>
 
 
@@ -497,7 +523,7 @@ Profileschool | Adobe Lightroom: Практика обработки фотог�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137320.jpg" />
 </div>
 
 
@@ -523,7 +549,7 @@ Udemy, Bhrugen Patel | Full Stack React Bootcamp with .NET API [2023] [10 Projec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137317.jpg" />
 </div>
 
 
@@ -550,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137290.jpg" />
 </div>
 
 
@@ -576,7 +602,7 @@ Podlodka | Podlodka Techlead Crew #1-5 (2021-2023) WEB-DL [RU] [Обновляе
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137247.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137238.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137210.jpg" />
 </div>
 
 
@@ -660,7 +686,7 @@ Itproger | Создание Андроид игры на Unity 5 (2018) PCRec [H
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137207.jpg" />
 </div>
 
 
@@ -671,32 +697,6 @@ Itproger | Создание Андроид игры на Unity 5 (2018) PCRec [H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B27F285FEBDACFE70CC7EE99A5897A5F19D58567
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273280   (137202) от 31.12.2018
-
-Itproger | Изучение Java (2018) PCRec [H.264/1080p-LQ]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс рассчитан на новичков, которые хотят улучшить знания в Java разработке. В курсе будут рассмотрены такие темы, как: программирование на Java, создание UI дизайна приложений и добавление к ним функциональности, а также разработка программ в Android Studio под многочисленные Андроид устройства.Производство: ItprogerЖанр: Программирование, JavaПродолжительность: 13:27:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21D44429D951E60076CA08F71D478E89516730EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

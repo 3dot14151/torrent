@@ -1,3 +1,133 @@
+###  Публикация: 1510139   (791877) от 15.11.2021
+
+Ранго / Rango (2011) BDRip [H.264/1080p-LQ] [Extended Cut]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ранго - хамелеон, который живет в террариуме и считает себя героем, которому, к сожалению, никак не удается проявить свое бесстрашие. Но когда он внезапно оказывается в городке Грязь, у него появляется такая возможность. Ранго провозглашает себя борцом за справедливость и начинает вести себя как шериф на Диком Западе. Он еще не знает, что быть «хорошим парнем» в (   Читать дальше...   )Производство: США / Paramount Pictures, Nickelodeon Movies, Blind Wink ProductionsЖанр: мультфильм, комедия, приключения, семейный, вестернРежиссер: Гор ВербинскиАктеры: Джонни Депп, Айла Фишер, Эбигейл Бреслин, Нед Битти, Альфред Молина, Билл Найи, Стивен Рут, Гарри Дин Стэнтон, Тимоти Олифант, Рэй УинстоунПеревод: ДублированныйСубтитры: Русские (forced, full), английскиеПродолжительность: 01:51:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2697B6314019104E8C80B50A0DDDE0D141E883EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387247   (791771) от 01.06.2020
+
+Утиные Истории / DuckTales (2018) WEB-DL [H.264/1080p-LQ] (сезон 2, серии 1-24 из 24) [UKR,EN]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Билли, Вилли и Дилли — три брата, которые обожают приключения. Их дядюшка, Дональд Дак, вынужден отправиться на важное собеседование, поэтому он нанял няню, чтобы она присмотрела за неусидчивыми сорванцами. Вот только женщина не смогла прибыть вовремя, поэтому у Дональда не осталось другого выбора, как отвести племянников к Скруджу МакДаку, самому богатому селезню (   Читать дальше...   )Производство: США / Disney Television AnimationЖанр: Детский, ПриключенияРежиссер: Дэна Террас, Джон Аошима, Том ОуэнсПеревод: ОтсутствуетОзвучка / Автор перевода: ТК ПлюсПлюсСубтитры: отсутствуютПродолжительность: 00:21:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E7451A263385763546A9D3F9FF064F387D88571
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274833   (791669) от 09.01.2019
+
+Барашек Шон / Shaun The Sheep (2009-2010) Blu-ray [H.264/1080p] [сезон 2, серии 1-40 из 40]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сообразительный барашек Шон по праву считается вожаком стада. Он постоянно втягивает своих собратьев в различные комические ситуации, переворачивая все вверх дном на родной ферме. Шон и его приятели постоянно вьются вокруг овчарки по кличке Битцер, которая частенько останавливает Фермера, пытающегося разобраться что творится за его спиной.Производство: Великобритания, Aardman Animations, EU Media Plus Program, Westdeutscher Rundfunk (WDR), Yleisradio (YLE)Жанр: Комедия, СемейныйРежиссер: Ричард Голешовски, Кристофер Сэдлер, Симус МэлоунПеревод: ОтсутствуетСубтитры: ОтсутствуютПродолжительность: 40 х ~ 00:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A020C3D3A03DDE755E7BC3DB824682A9AC532D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274840   (791665) от 09.01.2019
+
+Барашек Шон / Shaun The Sheep (2012) Blu-ray [H.264/1080i] [сезон 3, серии 1-20 из 20]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791665.jpg" />
+</div>
+
+
+###  Подробнее
+
+В отдалённой деревеньке живёт фермер, а в его дворе обитает огромное количество всякой живности: серьёзный пёс Битцер, стадо смешных и весёлых овец, вредные свиньи, огромный и свирепый бык, всепожирающий козёл, вездесущие куры. Как только хозяин уезжает в город или отвлекается, во дворе всегда начинает твориться что-то невоображаемое. В одночасье маленькая ферма (   Читать дальше...   )Производство: Великобритания, Aardman Animations, EU Media Plus Program, Westdeutscher Rundfunk (WDR), Yleisradio (YLE)Жанр: Комедия, СемейныйРежиссер: Ричард Голешовски, Кристофер Сэдлер, Симус МэлоунПеревод: ОтсутствуетСубтитры: ОтсутствуютПродолжительность: 20 х ~ 00:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E8FEF21B90F42C8968A31F702118D4B0C80FC69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510361   (791520) от 16.11.2021
+
+Зелёные яйца с ветчиной / Green Eggs and Ham (2019) WEB-DL [H.264/1080p] (сезон 1, серии 1-13 из 13) Пифагор
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изобретатель Guy-Am-I и его приятель Sam-I-Am путешествуют по стране и спасают вымирающих животных.Производство: Великобритания, Канада, США / Gulfstream Television, A Stern Talking To, A Very Good Production IncЖанр: Мультфильм, комедия, приключения, семейныйРежиссер: Коуди Кэмерон, Ориан Редсон, Lawrence GongАктеры: Майкл Дуглас, Адам Дивайн, Илана Глейзер, Дайан Китон, Джиллиан Белл, Эдди Иззард, Кигэн-Майкл Ки, Джеффри Райт, Ди Брэдли Бейкер, Кит ФергюсонПеревод: Дублированный (Пифагор)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (SDH)Продолжительность: ~00:28:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BEA2D8369A988DD7B16664AA29C3FA4E0F08D94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1510459   (791518) от 16.11.2021
 
 Клоун Коко рыцарь / KoKo The Knight (1927) WEBRip
@@ -6,7 +136,7 @@
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791518.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791424.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791395.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791387.jpg" />
 </div>
 
 
@@ -111,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791247.jpg" />
 </div>
 
 
@@ -137,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791032.jpg" />
 </div>
 
 
@@ -163,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790885.jpg" />
 </div>
 
 
@@ -189,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790846.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790792.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790791.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790748.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790711.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790575.jpg" />
 </div>
 
 
@@ -345,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790351.jpg" />
 </div>
 
 
@@ -373,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790350.jpg" />
 </div>
 
 
@@ -399,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790315.jpg" />
 </div>
 
 
@@ -425,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790311.jpg" />
 </div>
 
 
@@ -451,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790272.jpg" />
 </div>
 
 
@@ -477,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790242.jpg" />
 </div>
 
 
@@ -503,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790197.jpg" />
 </div>
 
 
@@ -529,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790172.jpg" />
 </div>
 
 
@@ -540,136 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9959868FFFE1F5C216117EE3E37235008482742
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272560   (789721) от 12.01.2019
-
-Смолфут / Smallfoot (2018) BDRemux [H.264/1080p] [2D/3D] [ISO]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой находчивый йети сталкивается с тем, кого, по его глубокому убеждению, не существует — человеком. Новости о «смолфуте» приносят ему славу и шанс завоевать девушку его мечты. А ещё — вызывают переполох среди простых йети, которые теперь гадают, кто же ещё обитает в большом мире за пределами их маленькой заснеженной деревушки.Производство: США, Warner Animation Group, Warner Bros. Animation, Warner Bros. Pictures, Zaftig FilmsЖанр: Мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Кэри Киркпатрик, Джейсон РейсигПеревод: Дублированный (Лицензия BD CEE)Субтитры: Русские (Forced, Full), украинские (Forced), английские (Full, SDH, SDH-Colored)Продолжительность: 01:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7800EDBE5751F18E3BB2B806932ACC7F41CB90B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202555   (789702) от 29.01.2018
-
-Hey Arnold: The Jungle Movie / Эй, Арнольд! Приключения в джунглях (2017) WEB-DL [H.264/1080p-LQ] Train Studio
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультфильм является продолжением последнего эпизода, «Дневник» (The Journal), мультсериала «Эй, Арнольд!» в конце которого Арнольд находит карту и решает отправиться в джунгли на поиски своих родителей.Производство: США / Nickelodeon Animation StudiosЖанр: Комедия, Приключения, СемейныйРежиссер: Рэйми Музкиз, Стюарт ЛивингстонАктеры: Мэйсон Коттон, Бенжамин Флорес мл., Франческа Смит, Крэйг Бартлетт, Антониетта Стелла, Дэн Кастелланета, Тресс МакНилл, Морис ЛаМарш, Джет Юргенсмейер, Карлос Аласраки и др.Перевод: Многоголосый закадровый, профессиональный - Train StudioСубтитры: АнглийскиеПродолжительность: 01:21:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6492D7EE14CF2373A4CCB8FED5E14034FC18CD9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275283   (789666) от 12.01.2019
-
-Мультобоз (2018) WEB-DLRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789666.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Мультобоз» - это сборник лучших российских анимационных короткометражек, которые являются призерами и номинантами престижных кинофестивалей мира (МКФ в Каннах, Берлине, Аннеси и других), обладателями престижных кинопремий. Фестиваль короткометражной российской анимации «Мультобоз» познакомит широкий круг зрителей с лучшими фильмами из коллекций студий страны.Производство: Россия, Школа-студия анимационного кино «ШАР»Жанр: Мультфильм, КороткометражныйРежиссер: Екатерина Киреева, Татьяна Киселева, Елена Нестерова, С. Разгуляева, В. ДаниловПеревод: Не требуется (Русский) iTunesСубтитры: ОтсутствуютПродолжительность: 02:13:31 + 01:12:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F1C0219717B5BBEC542FA0019D236799A8E8B03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510933   (789608) от 19.11.2021
-
-Руины / Ruin (2012) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789608.jpg" />
-</div>
-
-
-###  Подробнее
-
-В будущем, когда города разрушились и были поглощены дикой природой, мы присоединяемся к одинокому человеку, исследующему руины компании Хэйвен Наносистемс. Обнаружив закрытый контейнер, он, кажется, нашел то, что искал - информацию, имеющую отношение к закрытому на карантин корпусу "Б". Но, в этот момент героя обнаруживает дрон и начинается погоня...Производство: США / Attraktion Films, Oddball AnimationЖанр: Мультфильм, Короткометражка, ФантастикаРежиссер: Уэс БоллПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 00:08:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C054073F4710068A08FDA56A34E28B41EB92A6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202592   (789454) от 30.01.2018
-
-МУЛЬТ в кино. Выпуск 63: Шоу продолжается! (2017) WEB-DLRip [H.264/720p-LQ]
-
->>Мультфильмы
->>Отечественные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789454.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смотрите в 63-м выпуске «МУЛЬТ в кино» свежие эпизоды мультсериалов «Лунтик и его друзья», «Лео и Тиг», «Деревяшки», «Четверо в кубе» и премьеру — новый мультфильм «Дракоша Тоша»!Производство: Россия (#мультвкино)Жанр: Анимационный сериалРежиссер: Анастасия Чернова, Иван Пшонкин, Марина Мошкова...Перевод: Не требуется (русский)Продолжительность: ~ 00:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A98CE8643F7D662032C249117C0F8B979B2D62D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

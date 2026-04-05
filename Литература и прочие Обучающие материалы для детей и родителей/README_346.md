@@ -1,3 +1,56 @@
+###  Публикация: 505200   (260919) от 03.06.2012
+
+И.В.Мальцева  | Раннее развитие: лучшие методики и игры [2008] [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260919.jpg" />
+</div>
+
+
+###  Подробнее
+
+И. В. Мальцева, известный методист и педагог, много лет занимается разработкой развивающих пособий и игр, помогая малышам от 0 до 3 лет успешно осваивать навыки письма, чтения и счета. В своей новой книге она рассказывает о лучших методиках раннего развития. Опыт трех замечательных ученых, педагогов-практиков разных времен — М. Монтессори, Г.Домана и Н.А.Зайцева — представлен на страницах книги не только в виде идей и суждений, но, главное, в виде конкретных способов обучения, легко применимых в домашних условиях. Используя эти методики и игры, каждая-мама сможет самостоятельно организовать процесс обучения, развить интеллект малыша и укрепить здоровье своего ребенкаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3EBA060D850E5D7C21E4DAFE5FAA53ADBC21961
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838509   (260916) от 23.11.2025
+
+К.Д. Арон (ред.) | Охотник и Змея (1983) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга содержит удмуртскую народную сказку, которая является фольклорным произведением. Она рассказывает об охотнике, который проявляет милосердие к змее, несмотря на сомнения (он знает, что змеи опасны).
+Мораль - не стоит ждать благодарности от того, кто по своей природе зол или неблагодарен, а доброта может быть наказана.Жанр: СказкаИздательство: Детская литератураФормат: PDF, DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:156609BC8D9FFF645BC6FA56FB8C594D817EFCD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 504897   (260865) от 03.06.2012
 
 Н.В.Клюева, Ю.В.Филиппова | Общение. Дети 5 – 7 лет [2006] [DJVU]
@@ -6,7 +59,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260865.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260854.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260776.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260619.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260597.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260538.jpg" />
 </div>
 
 
@@ -174,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260509.jpg" />
 </div>
 
 
@@ -202,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260434.jpg" />
 </div>
 
 
@@ -230,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные материалы для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260344.jpg" />
 </div>
 
 
@@ -257,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260331.jpg" />
 </div>
 
 
@@ -283,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260316.jpg" />
 </div>
 
 
@@ -310,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260303.jpg" />
 </div>
 
 
@@ -337,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260294.jpg" />
 </div>
 
 
@@ -371,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260285.jpg" />
 </div>
 
 
@@ -397,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260260.jpg" />
 </div>
 
 
@@ -423,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260255.jpg" />
 </div>
 
 
@@ -449,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259442.jpg" />
 </div>
 
 
@@ -475,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259208.jpg" />
 </div>
 
 
@@ -501,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258613.jpg" />
 </div>
 
 
@@ -529,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258308.jpg" />
 </div>
 
 
@@ -555,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258140.jpg" />
 </div>
 
 
@@ -582,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257707.jpg" />
 </div>
 
 
@@ -608,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257706.jpg" />
 </div>
 
 
@@ -636,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257705.jpg" />
 </div>
 
 
@@ -649,60 +702,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D57A5289A7C29AF49F6A73A6A1F33E9D65DA1683
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837763   (257682) от 18.11.2025
-
-Е.В. Тимофеева | Математика. 5–6 классы [2-e издание] (2025) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Надоело искать в учебниках нужную информацию в море формул и теорем? Вас спасет книга, в которой изложены алгоритмы решения типовых задач по математике, изучаемых в 5 и 6 классах.
-
-Перед алгоритмом приводится только важная теория по теме с необходимыми правилами и формулами. Сам алгоритм поделен на четкие шаги, следуя которым можно справиться с любой задачей по математике. (   Читать дальше...   )Жанр: Обучение и развитие детей, Школьные учебники по математикеИздательство: ЭксмоФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A39A66A35738701B8B61DFEE78C6608B283DF5A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837792   (257659) от 19.11.2025
-
-Д.А. Соловков | ЕГЭ по химии. Задания высокого уровня сложности. 8–11 классы (2021) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное пособие, посвященное заданиям высокого уровня сложности, поможет учащимся подготовиться к выполнению части 2 любого варианта ЕГЭ по химии. В пособие включены все типы заданий, которые могут встретиться ученику на экзамене. Изложен теоретический материал, рассматривается решение наиболее типичных примеров с подробным объяснением к каждому заданию, приводятся (   Читать дальше...   )Жанр: Учебное пособиеИздательство: ВАКОФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:400F9241F1BE4868B7B0DDC4EF91769ABCD459BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

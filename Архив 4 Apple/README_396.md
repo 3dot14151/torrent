@@ -6,7 +6,7 @@ DVD-Cloner 2022 v.9.40.732 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412653.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Softorino YouTube Converter PRO for Mac 5.0.87 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412536.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ System Toolkit 5.6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412533.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ QLab 5 v.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412524.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Adguard 1.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412467.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Claquette - Animated Screenshots 1.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412396.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Rumpus PRO 8.0.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412390.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ iTrash 3.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412378.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Calendar 366 Plus 1.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412246.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ SQLPro for Postgres - PostgreSQL database manager 1.0.92 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412243.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ SQLPro for SQLite - database and coredata manager 1.104 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412236.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Yummy FTP Pro 1.11.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412232.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Fresh 3.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412230.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ SQLPro for MySQL - GUI Database management studio 1.0.28 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412088.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Duplicate File Finder Pro 4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412079.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Wondershare Video Converter Ultimate 5.6.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412077.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Shortcut Bar 1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412075.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Swift Publisher 4.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412072.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Keyboard Maestro 7.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411928.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Shimo 4.1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411906.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Commander One Pro Pack  - FTP клиент, RAR/7zip архиватор 1.7.4 [M
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411794.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Tuxera NTFS 2014 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411627.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411533.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ BusyCal 3.4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411307.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ A Better Finder Rename 10.34 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411306.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ Postbox 6.1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411172.jpg" />
 </div>
 
 

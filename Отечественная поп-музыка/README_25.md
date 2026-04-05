@@ -1,32 +1,3 @@
-###  Публикация: 965563   (225126) от 14.12.2015
-
-ВИА Веселые ребята - Перекресток судьбы (2015) [MP3|256 кб/с] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Выше неба (А. Добронравов – В. Пеленягрэ) 3.47
-02. Ты летела ко мне (А. Добронравов – Н. Пляцковская) 3.56
-03. Одинокая птица(П. Слободкин – Н. Пляцковская) 4.48
-04. Светлая ночь (Музыка и слова А. Висты) 4.11(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CD8AA1C01F5689A4E71AC84F6366E69E6690DC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 586336   (224277) от 10.12.2012
 
 Ksenona - Далеко-далеко (2012) [MP3|320 кб/с]<Pop>
@@ -35,7 +6,7 @@ Ksenona - Далеко-далеко (2012) [MP3|320 кб/с]<Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224277.jpg" />
 </div>
 
 
@@ -70,7 +41,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224244.jpg" />
 </div>
 
 
@@ -99,7 +70,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220970.jpg" />
 </div>
 
 
@@ -128,7 +99,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219143.jpg" />
 </div>
 
 
@@ -157,7 +128,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218573.jpg" />
 </div>
 
 
@@ -186,7 +157,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218494.jpg" />
 </div>
 
 
@@ -215,7 +186,7 @@ Siberian Heat & Elen Cora - Number One (2011) [MP3|160 Kbps] <Disco, Synth-pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218359.jpg" />
 </div>
 
 
@@ -244,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218178.jpg" />
 </div>
 
 
@@ -273,7 +244,7 @@ Grivina - Танцую одна (2018) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217580.jpg" />
 </div>
 
 
@@ -302,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217428.jpg" />
 </div>
 
 
@@ -331,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213826.jpg" />
 </div>
 
 
@@ -360,7 +331,7 @@ ANNA ASTI - Феникс (2022) Deluxe Edition [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212961.jpg" />
 </div>
 
 
@@ -389,7 +360,7 @@ GSPD - СПОРТ РЕЖИМ: ЗЕЛЁНЫЙ СВЕТ (2023) [MP3|320 Kbps] <Pop
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211260.jpg" />
 </div>
 
 
@@ -418,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209518.jpg" />
 </div>
 
 
@@ -447,7 +418,7 @@ IOWA - Кассиопея (2023) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208326.jpg" />
 </div>
 
 
@@ -476,7 +447,7 @@ VA - Лучшие песни русских сериалов (2003) [MP3|320 Kbp
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208227.jpg" />
 </div>
 
 
@@ -505,7 +476,7 @@ VA - Трибьют Валерии (2023) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207704.jpg" />
 </div>
 
 
@@ -534,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207080.jpg" />
 </div>
 
 
@@ -563,7 +534,7 @@ VA - Romantic Collection. Ретро (1999) [OGG Vorbis|480 Kbps] <Pop, Stage & 
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206338.jpg" />
 </div>
 
 
@@ -592,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203662.jpg" />
 </div>
 
 
@@ -619,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201660.jpg" />
 </div>
 
 
@@ -648,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201523.jpg" />
 </div>
 
 
@@ -677,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201172.jpg" />
 </div>
 
 
@@ -706,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200586.jpg" />
 </div>
 
 
@@ -732,7 +703,7 @@ VA - Лучшие песни русского радио 21 Альбом (2000 -
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197963.jpg" />
 </div>
 
 
@@ -746,6 +717,35 @@ VA - Лучшие песни русского радио 21 Альбом (2000 -
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87E5AE8DF3A67942B81BACC880C2D8EE810B69F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641590   (196719) от 23.06.2023
+
+Братья Грим - Лететь высоко (2023) [MP3|320 Kbps] <Pop Rock>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196719.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Лететь высоко
+2. Солнце моё
+3. Лелею
+4. Крылья рукава(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8B1444F57F6C96971D561218FD8CEECA455397A
 ```
 
 https://mybot314.ru/tekegram_catalog/

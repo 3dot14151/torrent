@@ -1,84 +1,3 @@
-###  Публикация: 1029487   (674786) от 30.06.2016
-
-В. Т. Григорьян | Философия о сущности человека (1973) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проблемы собственного бытия издавна занимают человека, являются предметом его жизненных забот и философских раздумий. В книге доктора философских наук Б. Т. Григорьяна рассказывается о том, как менялись представления о человеке в ходе исторического развития, какое место в философии занимают эти проблемы сейчас. В ней дается критика различных направлений современной (   Читать дальше...   )Жанр: История, философия, политологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38CFB11532BC0B99DD4C845933BC8A233C9F272D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136464   (674765) от 22.05.2017
-
-Василий Васильевич Розанов | О Понимании (2006) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящий том представляет читателям философский трактат Василия Васильевича Розанова "О понимании", публикацией которого в 1886 г. было положено начало литературной деятельности философа и писателя. Это фундаментальный труд абсолютного идеализма. Он находится в неразрывной связи с тенденцией русского философствования и является одним из общих трудов обоснования (   Читать дальше...   )Жанр: ФилософияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ECDF6DBE17CEB9C884AC9DC0D247FDFF1412C64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136086   (674760) от 22.05.2017
-
-Э. Фаге | Как читать (1912) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предисловие:
-
-«Читать мало, но между теми, кто желает, чтобы чтение принесло пользу, большинство не умеет читать», говорит Вольтер.
-(   Читать дальше...   )Жанр: История, искусство, литературоведениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F571190C768BF635919ABDF35C7660587F2C6851
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030067   (674694) от 30.06.2016
 
 В. А. Штофф | Моделирование и философия (1966) [DJVU]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674694.jpg" />
 </div>
 
 
@@ -115,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674629.jpg" />
 </div>
 
 
@@ -141,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674418.jpg" />
 </div>
 
 
@@ -167,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674159.jpg" />
 </div>
 
 
@@ -193,7 +112,7 @@ Uldis Zarins, Sandis Kondrats | Anatomy for Sculptors, Understanding the Human F
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672539.jpg" />
 </div>
 
 
@@ -219,7 +138,7 @@ Tony Bancroft | Directing for Animation  / Режиссура в анимаци�
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672448.jpg" />
 </div>
 
 
@@ -247,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672171.jpg" />
 </div>
 
 
@@ -275,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672059.jpg" />
 </div>
 
 
@@ -301,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671023.jpg" />
 </div>
 
 
@@ -329,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669885.jpg" />
 </div>
 
 
@@ -355,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669779.jpg" />
 </div>
 
 
@@ -381,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669770.jpg" />
 </div>
 
 
@@ -407,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669763.jpg" />
 </div>
 
 
@@ -433,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669408.jpg" />
 </div>
 
 
@@ -461,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669398.jpg" />
 </div>
 
 
@@ -489,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669394.jpg" />
 </div>
 
 
@@ -517,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668908.jpg" />
 </div>
 
 
@@ -543,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668906.jpg" />
 </div>
 
 
@@ -569,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668806.jpg" />
 </div>
 
 
@@ -595,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668665.jpg" />
 </div>
 
 
@@ -621,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668601.jpg" />
 </div>
 
 
@@ -647,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668572.jpg" />
 </div>
 
 
@@ -673,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667997.jpg" />
 </div>
 
 
@@ -686,6 +605,89 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14319709F990314B17A66200396EAA3BAB08C21F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137251   (667995) от 26.05.2017
+
+А. И. Иванов | Возникновение марксизма - революционный переворот в философии (1956) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лекции, прочитанные в ВПШ при ЦК КПСС.Жанр: История, политология, философияФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C974A7AE5E9C9EBA9FDF36E5D5683728E0DBD0BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137264   (667935) от 26.05.2017
+
+П. И. Стучка | Ленинизм и государство [политическая революция] (1925) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667935.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предисловие:
+
+Пред нами стоит труднейшая задача найти лучший способ популяризации ленинизма без ущерба для его глубокого содержания. Государство, как орудие борьбы за новое общество, в ленинизме, естественно, играет первенствующую роль. Я решил попытаться дать изложение учения ленинизма о государстве в форме вопросов и ответов. Но тут встал вопрос, как изложить ответы. (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60A97A86B28468D5FD6B60887071A2DF3F76B23D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137456   (667929) от 26.05.2017
+
+В. О. Перцов | О чем и как писать рабочему писателю (1931) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предисловие:
+
+Задача этой книги — облегчить рабочему переход к более сложной литературной работе от обычных форм сотрудничества в стенной или печатной заводской газете.
+(   Читать дальше...   )Жанр: История, политология, искусство, литературоведениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDE76B3B7969D9D52FFADDC3F1BE6F311BEEB026
 ```
 
 https://mybot314.ru/tekegram_catalog/

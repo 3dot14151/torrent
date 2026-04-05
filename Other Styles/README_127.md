@@ -1,3 +1,61 @@
+###  Публикация: 726280   (340295) от 24.11.2013
+
+Andre Rieu - Celebrates ABBA (2013) Scene [FLAC|Lossless|tracks] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chiquitita
+02. Mamma Mia
+03. Fernando
+04. Money, Money, Money(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:45:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75BFD056767FF297D24C67BFDCF2B98757DF71B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074024   (340235) от 18.11.2016
+
+James Newton Howard - Fantastic Beasts and Where to Find Them / Фантастические твари и где они обитают (Original Motion Picture Soundtrack) (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks]<So ...
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Man and His Beasts (08:32)
+02. Soup and Leaflets (02:20)
+03. Billywig (01:32)
+04. The Demiguise and the Lollipop (00:59)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A777D9DEA5E06D43073FB50133338102A10DD40D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1073951   (340224) от 18.11.2016
 
 Hudson Mohawke - Ded Sec - Watch Dogs 2 (Original Game Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
@@ -6,7 +64,7 @@ Hudson Mohawke - Ded Sec - Watch Dogs 2 (Original Game Soundtrack) (2016) [MP3|3
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340224.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ David Wise - Tengami (2014) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340095.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Кармелита. Цыганская страсть (2009) Sountrack [MP3
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340094.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Mark Mancina, Lin-Manuel Miranda, Opetaia Foa'i - Moana / Моана (Original M
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340083.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Mark Mancina, Lin-Manuel Miranda, Opetaia Foa'i - Moana / Моана (Original M
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340075.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Olivia Jo - Something Real Good (2015) [MP3|320 кб/с]<Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339972.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Kitaro - Daylight, Moonlight (Live In Yakushiji) (2003), DOMO Records, [FLAC|ima
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339724.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Sentimental Journey (2007) 5 CD Box Set [MP3|320 кб/с]<Pop,Oldies>
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339602.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Peder B. Helland - Bright Future (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339581.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Wychazel - Arcana (2016) [MP3|320 Kbps] <New age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338593.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338579.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - iRelax Anywhere (2006) [FLAC|Lossless|tracks + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338536.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Muzronic Trailer Music - Дискография (2016-2017) 3CD [MP3|320 Kbps] <
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338521.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Really Slow Motion & Instrumental Core - Existentia (2018) [MP3|320 Kbps] <Sound
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338514.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ The London Starlight Orchestra - Only Love: 20 Favourite Instrumentals (1988) [M
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338295.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Acoustic Heart: The Passion And Romance Of Acoustic Guitar Masters (1997) [
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338198.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ The London Starlight Orchestra - Only Love: 20 Favourite Instrumentals (1988) [F
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338190.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Hans Zimmer, Jacob Shea, Jasha Klebe - Planet Earth II / Планета Земл
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338188.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Hans Zimmer, Jacob Shea, Jasha Klebe - Planet Earth II / Планета Земл
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338081.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Room Of Voices - Casbah (2017) [MP3|320 Kbps] <Electronic, World>
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337771.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Kai Rosenkranz - Risen (Game Soundtrack) (2009) [FLAC|Lossless|tracks] <Soundtra
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337762.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Latino Top 30 Latin Hits (2017) [MP3|320 Kbps] <Latin, Salsa>
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337500.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Hans Zimmer - Hans Zimmer - Live In Prague (2017) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337011.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Nick Cave & Warren Ellis - Mars / Марс (Original Series Soundtrack) (2016) [
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335938.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Nick Cave & Warren Ellis - Mars / Марс (Original Series Soundtrack) (2016) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AD9C77FADBEA37B38BF1545A1FFEADE8BD425B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074759   (335843) от 20.11.2016
-
-Nick Cave & Warren Ellis - Mars / Марс (Original Series Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mars (Theme) (01:43)
-02. Mars (04:01)
-03. Daedalus (03:01)
-04. Earth (02:12)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C617F16956B5B7B7269713668BC7466CA13A1E56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419989   (335712) от 30.10.2020
-
-Jim Brickman - Joy (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Drummer Boy
-02. Lights Of Christmas
-03. The Twelve Days Of Christmas
-04. Shades Of White(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:49:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADAD3FB7DA8AB5931E43E0074C587BCD17393720
 ```
 
 https://mybot314.ru/tekegram_catalog/

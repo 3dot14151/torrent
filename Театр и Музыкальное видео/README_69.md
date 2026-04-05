@@ -6,7 +6,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557933.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557828.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557651.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557581.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557569.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Aerosmith - Rock For The Rising Sun (2011) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557402.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ VA - Летний марафон № 179 / Видеоклипы (Зарубеж�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557234.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ The Cure - In Orange (1987) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556875.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556833.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ The Who - Live At The Isle Of Wight 2004 Festival (2017) Blu-ray [H.264/1080i ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556798.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556721.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556718.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556670.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556666.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556270.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555916.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555802.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555800.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555798.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555795.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Queen - We Are The Champions: Final Live In Japan (1985/2019) Blu-ray [H.264/108
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554554.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554427.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553441.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553209.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553198.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552861.jpg" />
 </div>
 
 

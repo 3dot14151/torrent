@@ -1,3 +1,55 @@
+###  Публикация: 1329341   (156283) от 20.12.2019
+
+Choujin Koukousei-tachi wa Isekai demo Yoyuu de Ikinuku you desu! / Сверходарённым школьникам даже другой мир нипочём! [2019, TV, 12] WEBRip 720p raw
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156283.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семь гениальных японских старшеклассников покорили мир, используя свои умопомрачительные способности во всём, от политики до экономики и развлечений. В один роковой день эти гении попадают в авиакатастрофу, но оказываются не в морге… Очнувшись в другом мире, где магия и зверолюди вполне реальны, эти семеро впадают в панику — вернее, они поступили бы так, будь они (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Янаги СинсукэЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:512676D54FD5602C0B4CBC93B4996D635BD524BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270010   (156231) от 19.12.2018
+
+Матрица: Трилогия / The Matrix: Trilogy (1999-2003) BDRip [H.264/1080p] [Remastered]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм изображает будущее, в котором реальность, существующая для большинства людей, - есть в действительности симуляция, созданная разумными машинами, чтобы подчинить и усмирить человеческое население, в то время как тепло и электрическая активность их тел используются машинами в качестве источника энергии. Узнав об этом, хакер по кличке Нео оказывается втянут в (   Читать дальше...   )Производство: США, Австралия, Warner Bros., Village Roadshow PicturesЖанр: Боевик, Фантастика, ПриключенияРежиссер: Энди Вачовски, Лана ВачовскиАктеры: Киану Ривз, Лоренс Фишбёрн, Кэрри-Энн Мосс, Хьюго Уивинг, Глория Фостер, Джо Пантольяно, Маркус Чонг, Джулиан Араханга, Мэтт Доран, Белинда МакКлори, Моника Беллуччи, Ламбер Вильсон, Энтони Вон, Гарри Дж. Ленникс, Рэндолл Дак Ким, Брюс Спенс, Джада Пинкетт Смит, Хэролд Перрино, Хельмут БакайтисПеревод: ДублированныйСубтитры: русские, английскиеПродолжительность: 02:16:21 + 02:18:18 + 02:09:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF7B187A9A175FF3F3447D40DB84AC427A051877
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199623   (156206) от 19.12.2018
 
 Улика из прошлого (2018) SATRip (сезон 3, серий 38 из 38)
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156206.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156082.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155720.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155660.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ King's Bounty: Воин Севера / King's Bounty: Warriors of the North [Ru/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155542.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ Total Commander 9.0a Freemen 17.0 Repack by notn [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155275.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155231.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155111.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ The Walking Dead: A New Frontier (2016) [Ru/Multi] (1.0) Repack R.G. Механ�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155098.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_154981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_154981.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_154970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_154970.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154914.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154789.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ Microsoft собирается добавить вкладки в «Блокно
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_154787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_154787.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ ATOM RPG: Post-apocalyptic indie game (2018) [Ru/En] (1.0) License SKIDROW
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154749.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ Linux Mint 19.1 Tessa (XFCE, Mate, Cinnamon) [32bit,64bit] 6xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154694.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154628.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154489.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ RESIDENT EVIL 2 / BIOHAZARD RE:2 (2019) [Ru/Multi] (1.04/upd5/dlc) Repack R.G. �
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154471.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ Microsoft® Windows® 7 Ultimate Ru x86/x64 nBook IE11 by OVGorskiy 12.2021 1DVD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154458.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ Udemy | React + Redux - Профессиональная Разработка (2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154448.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154431.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154427.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153932.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676199   (153728) от 15.11.2023
-
-Илон Маск назначил Робота генеральным директором своей компании
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Илон Маск назначил робота Мику гендиректором своего завода по производству рома. Оказывается, Илон Маск владеет не только технологическими гигантами, но и предприятием по производству колумбийского рома Dictador. «Фишка» в том, что Маск назначил на должность генерального директора человекоподобного робота с искусственным интеллектом Мику.Это «девушка», которая одновременно (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429168   (153714) от 22.12.2020
-
-Враг мой / Enemy Mine (1985) BDRip [H.265/1080p-LQ] [10-bit]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153714.jpg" />
-</div>
-
-
-###  Подробнее
-
-В глубинах нашей галактики, на огромном расстоянии от Земли люди ведут кровопролитную войну с расой рептилий. Войну, которой Земля отдает последние силы, войну на полное уничтожение. В одной из жестоких схваток в окрестностях гористой планеты в системе двойной звезды пилот Виллис Дэвидж сбивает машину чужого, но тут же получает несколько попаданий и выходит из боя.Производство: США, Германия (ФРГ), Великобритания / Twentieth Century Fox, Kings Road Entertainment, SLM Production GroupЖанр: фантастика, боевик, драма, приключенияРежиссер: Вольфганг ПетерсенАктеры: Деннис Куэйд, Луис Госсет мл., Брайон Джеймс, Ричард Маркус, Кэролин МакКормик, Бампер Робинсон, Джим Мапп, Лэнс Кервин, Скотт Крафт, Лу МайклсПеревод: Дублированный, многоголосый, авторскийСубтитры: Русские, английскиеПродолжительность: 01:48:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC481444BF8660CECD9433FBB0E377964C6BEFF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

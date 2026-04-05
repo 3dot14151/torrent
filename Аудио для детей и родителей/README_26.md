@@ -1,3 +1,29 @@
+###  Публикация: 963996   (777121) от 08.03.2018
+
+Майлен Константиновский | КОАПП [4CD] (1981-1983 / 2008) [WavPack]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комитет Охраны Авторских Прав Природы, сокращённо "КОАПП" – организация, созданная по инициативе Кашалота в 1964 году в связи с появлением у людей новой науки – бионики (как известно, задача этой науки – использовать изобретения Природы в технике). Основная цель КОАППА кратко, но исчерпывающе сформулирована в песенке: «Славный наш дружный Комитет выдаёт (   Читать дальше...   )Жанр: Радиоспектакль, детская литератураПродолжительность: 02:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E45F4A73B123291B2BB0CE1CB106690D65585FBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 967404   (777117) от 08.03.2018
 
 О. Пройслер | Маленькая Баба-Яга (1988/1996) [WavPack]
@@ -6,7 +32,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777117.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777115.jpg" />
 </div>
 
 
@@ -65,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776185.jpg" />
 </div>
 
 
@@ -91,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776175.jpg" />
 </div>
 
 
@@ -117,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776155.jpg" />
 </div>
 
 
@@ -143,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775687.jpg" />
 </div>
 
 
@@ -169,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_775203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_775203.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774987.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774916.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774847.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774772.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774266.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773445.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773261.jpg" />
 </div>
 
 
@@ -382,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773258.jpg" />
 </div>
 
 
@@ -408,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773257.jpg" />
 </div>
 
 
@@ -434,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773118.jpg" />
 </div>
 
 
@@ -462,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771833.jpg" />
 </div>
 
 
@@ -488,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771830.jpg" />
 </div>
 
 
@@ -514,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771708.jpg" />
 </div>
 
 
@@ -540,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771641.jpg" />
 </div>
 
 
@@ -569,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771636.jpg" />
 </div>
 
 
@@ -598,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771635.jpg" />
 </div>
 
 
@@ -627,7 +653,7 @@ VA - Musik aus Freundesland fur Kinder (1981) [MP3|320 кб/с]<Детские �
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770810.jpg" />
 </div>
 
 
@@ -656,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770613.jpg" />
 </div>
 
 
@@ -670,35 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42AEEA1FAC8890F75CADBEC0B16F9D5A748EC428
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392036   (770590) от 23.06.2020
-
-Синий Трактор - Что ты делал, синий трактор? (2018) [MP3|320 Kbps]<Детские песни>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Далеко и близко
-02. Овощи
-03. Экскаватор
-04. Ракета(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:32:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E6A693A22B58D29C7496B5422BFDA0FC440F81B
 ```
 
 https://mybot314.ru/tekegram_catalog/

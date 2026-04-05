@@ -1,3 +1,164 @@
+###  Публикация: 1695005   (120658) от 27.01.2024
+
+Главная дорога (27.01.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120658.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неуправляемый питерский автобус, уголовное наказание за тюбинг на дорогах, дальневосточные метели и капризы непогоды по всей России.
+ Виновник ДТП, пострадавший водитель и пострадавшая пешеход: как из этого списка выпал участник аварии, который натворил бед, и на кого могут «повесить» ущерб?
+ Поднимать или не поднимать? Андрей Федорцов и Денис Юченков разрешили вечный (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:046E7CDCFA0E5CACEC9FD24C4CF74C5CF20C87DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695012   (120656) от 27.01.2024
+
+Поедем, поедим! Шри-Ланка: безмятежный отдых на одном из красивейших в мире островов (27.01.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120656.jpg" />
+</div>
+
+
+###  Подробнее
+
+Федерико Арнальди и «Поедем, поедим!» отправились я туда, где хорошо в любое время года — на Шри-Ланку! Ведущий программы насладился безмятежным отдыхом на берегу океана в окружении великолепной природы одного из самых красивых в мире островов. Итальянец прошелся по древним достопримечательностям, поднялся на Львиную гору, узнал, где хранится Зуб Будды, попробовал (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75384CBBFFA7FD28ED738824D4DC310D68F7FB8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695009   (120629) от 27.01.2024
+
+Живая еда с Сергеем Малозёмовым (27.01.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120629.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кулебяки, расстегаи и курники: чем хороши традиционные русские пироги и почему многие из них незаслуженно забыты? Какие рецепты больше всего поражают иностранцев и как превратить производство русских пирогов в прибыльный бизнес?
+ Тайны главной кофейной профессии и секреты вкусного кофе с идеальной молочной пенкой.
+ Будет ли польза во фруктах, выращенных в квартире, (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B45A600D5436147E2E9ED95C070432B7C4D11508
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694904   (120612) от 27.01.2024
+
+Пятеро на одного (27.01.2024) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:731341B670216ABB6E2755C9DE10A816353CE5C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695039   (120605) от 27.01.2024
+
+Военная тайна с Игорем Прокопенко (27.01.2024) WEB-DL [H.264]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120605.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:31:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAFB566FD4CB862772FB0E896F77FEDDAE12EC9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695290   (120505) от 28.01.2024
+
+КАТЫНЬ. Александр Штефанов против ревизионистов (2024) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр Штефанов - человек из розовой комнаты, осенью прошлого года вступил в неравный бой с ревизионистами, которые были разгромлены и уничтожены им полностью.
+Настоящим предлагается скромный обзор видео Штефанова, посвящённого катынскому расстрелу.Производство: Россия, Авторский блог ПЛОХОЙ СИГНАЛЖанр: политикаЯзык озвучки: РусскийПродолжительность: 01:09:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:967F0DD94F5F8899FBBB07E510C26573D399B1F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693573   (120503) от 28.01.2024
 
 Это реальная история (2018) WEB-DL [H.264/720p] (сезон 1-2, серии 1-17 из 17)
@@ -6,7 +167,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120503.jpg" />
 </div>
 
 
@@ -32,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120470.jpg" />
 </div>
 
 
@@ -59,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120466.jpg" />
 </div>
 
 
@@ -88,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120439.jpg" />
 </div>
 
 
@@ -116,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119543.jpg" />
 </div>
 
 
@@ -142,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119542.jpg" />
 </div>
 
 
@@ -168,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119524.jpg" />
 </div>
 
 
@@ -194,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119501.jpg" />
 </div>
 
 
@@ -220,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119495.jpg" />
 </div>
 
 
@@ -246,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119470.jpg" />
 </div>
 
 
@@ -272,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119469.jpg" />
 </div>
 
 
@@ -301,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119468.jpg" />
 </div>
 
 
@@ -329,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119457.jpg" />
 </div>
 
 
@@ -355,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119439.jpg" />
 </div>
 
 
@@ -384,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119338.jpg" />
 </div>
 
 
@@ -413,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119182.jpg" />
 </div>
 
 
@@ -439,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119102.jpg" />
 </div>
 
 
@@ -467,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118833.jpg" />
 </div>
 
 
@@ -493,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118461.jpg" />
 </div>
 
 
@@ -519,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118456.jpg" />
 </div>
 
 
@@ -530,165 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3D66D92584677B7AE9A7CF84F0253A7993633FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698775   (118273) от 10.02.2024
-
-Минтранс (10.02.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118273.jpg" />
-</div>
-
-
-###  Подробнее
-
-🔸 Подержанное авто. Нужно ли менять номера, если машина куплена в другом регионе?
-🔸 Тест-драйв Москвич-6 2023. Сколько проживёт мотор?
-🔸 Неумная экономия. Что будет, если ездить без салонного фильтра?
-🔸 Обязательные процедуры. Зачем тормозные диски после замены надо обкатывать?(   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:48:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64901E8ABDEB9DCC6D5251ACA72A06629A38CA5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698782   (118267) от 10.02.2024
-
-Живая еда с Сергеем Малозёмовым (10.02.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детское пюре для стройности, экспертиза куриных сердечек и рецепт бананового пирогаТелекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:055F0C60D4FB15B14C060B71DEC0DD3025254FA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698837   (118266) от 10.02.2024
-
-Сердце Азии (1929) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о киноэкспедиции Совкино в Афганистан.Производство: СССР, Совкино (Ленинград)Жанр: документальный, хроника, география, немое киноРежиссер: Владимир ЕрофеевЯзык озвучки: немойСубтитры: немецкие (интертитры), русскиеПродолжительность: 01:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF09775FA56BF1FF2C77BFDEAEB89802DC4157CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698763   (118261) от 10.02.2024
-
-Главная дорога (10.02.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Помогает или мешает? Андрей Федорцов и Денис Юченков попробовали победить систему удержания в полосе. Созданная для безопасности и помощи водителям, в действительности эта система способна привести к аварии. Если вы видите на дороге машину, которая непонятно маневрирует, возможно, за рулем не нетрезвый водитель, а всего лишь работает контроль удержания в полосе. (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB7143A8A60F8CA1BDB864FA05E8DC06EE29F5A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698676   (118248) от 10.02.2024
-
-Пятеро на одного (10.02.2024) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A6B6F4295FF5C39E56D584F21B3035342FF6CEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698780   (118246) от 10.02.2024
-
-Поедем, поедим! Мордовия: модные этномотивы, олений рай, африканские сомы и каленые яйца  (10.02.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Федерико Арнальди и «Поедем, поедим!» отправились в Мордовию, где нашлось чем удивить даже такого опытного путешественника, как Федерико: его научили понимать эрзянский язык, познакомили с благородными оленями и африканскими сомами, отправили на модный показ и даже попытались женить! И, конечно, накормили самыми необычными и яркими национальными блюдами. Ведущий (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A514969D7DC2967998635AF8E22DEB70310FD89
 ```
 
 https://mybot314.ru/tekegram_catalog/

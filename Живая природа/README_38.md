@@ -1,3 +1,29 @@
+###  Публикация: 1465666   (206448) от 05.10.2022
+
+Мой учитель - осьминог / My Octopus Teacher (2020) WEBRip [H.265/1080p] [VO]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206448.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм от Netflix, снятый Пиппой Эрлих и Джеймсом Ридом. В главной роли играет Крейг Фостер, который по совместительству является и продюсером данного фильма. В фильме запечатлен год, который Фостер проводит с диким осьминогом. Фостер наблюдает за осьминогом большую часть его жизни, показывая тайны жизни этого животного.Производство: ЮАР, Off the fence, The Sea Change Project, NetflixЖанр: Документальный, фауна, познавательный, научно-популярныйРежиссер: Пиппа Эрлих, Джеймс РидПеревод: Одноголосый (AniPlay Studio, читает Majestic-Sama, перевод с субтитров Вадим Иванков)Субтитры: отсутствуютПродолжительность: 01:25:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A51DE28186F245A6DE597CCD20BB38AC03BAE8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582573   (206240) от 10.10.2022
 
 Сверхъестественное / Super/Natural (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6)
@@ -6,7 +32,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206240.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206225.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204450.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203626.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202152.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200226.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200109.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200085.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199709.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198268.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197423.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197235.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197182.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196948.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196486.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194604.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193651.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193219.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193006.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192692.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192615.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192611.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192600.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192561.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192086.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B626B31FF8D2333CB0DC53EC019195CFFE77805
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588954   (190839) от 07.11.2022
-
-Могут ли грибы изменить мир? / Les champignons pourront-ils sauver le monde? (2013) DVB [FR / RU Sub]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сотни миллионов лет назад на Земле начали расти грибы. Они покрывали почву, растения и деревья, постепенно расширяя свои невидимые владения. Грибы – это не животные и не растения, но они составляют царство грибов, разнородную группу, куда входят как гигантские организмы, так и крошечные грибы размером с пылинку. Они пережили ледниковые периоды, эпохи вымирания различных (   Читать дальше...   )Производство: Франция, TV5MONDE EuropeЖанр: документальный, научно-познавательный, флора и фаунаРежиссер: Анна Риццо, Тома СиппПеревод: субтитрыЯзык озвучки: французскийСубтитры: русские (неотключаемые, перевод К. Семенюк, Éclair Group)Продолжительность: 00:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DAB357066357227EA1E4E195D629C632B15585D
 ```
 
 https://mybot314.ru/tekegram_catalog/

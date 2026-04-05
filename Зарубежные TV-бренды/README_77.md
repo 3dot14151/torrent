@@ -6,7 +6,7 @@ Discovery: Разрушители легенд. Дрифт в Сан-Франц�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493843.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BBC: Неизвестные викинги. Под парусами дракка
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493759.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492957.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BBC: Вся правда о красоте / The Truth About Looking Good (2018)
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492522.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492518.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492515.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ BBC. Horizon: Юпитер раскрывает свои тайны / Jupiter Re
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492513.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492288.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Discovery: Разрушители легенд. Спецвыпуск: Коман
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492016.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ BBC: Знакомьтесь, ваши предки неандертальцы / 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490599.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490175.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ History Channel: Проклятие острова Оук / The Curse of Oak Isl
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489593.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Discovery: Разрушители легенд. Специальный выпу�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489576.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489317.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489162.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Discovery: Производство: гонка со временем [10 из 1
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489065.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Discovery.Смертные грехи (7 серий из 7) / Discovery.Deadly S
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489062.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ NGW: Тимбавати: мир диких кошек / Timbavati: An Epic Cat S
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488629.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ NGW: Пума! / Puma! (2012) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488628.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488508.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ BBC: Земля: Мощь планеты / Earth: The Power of the Planet (2007)
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487736.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ BBC. Лицо человека (4-х серийный) / The Human Face (2001) D
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487455.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ BBC. Человеческая Вселенная / Human Universe (2014) BDRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487449.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Discovery. Смертельный улов / Deadliest Catch (2020) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486772.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ NGW: Намибия. Убежище гигантов / Namibia. Sanctuary of Gia
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486082.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ NGW: Прекрасная Америка: Величественный Севе�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486074.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Beata Przybytek - Today Girls Don't Cry (2017) [FLAC|Lossless|WEB-DL|tracks] <Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788203.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Herbie Hancock - Then And Now (2008) Universal [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788156.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Houston Person - I'm Just A Lucky So And So (2019) HighNote [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787898.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Michael Arthur Holloway - Strange Cargo (2021) [FLAC|Lossless|Web-DL|tracks] <Da
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787840.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Brubeck & Desmond - Jazz At Storyville (1952) 1986, Fantasy [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787727.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Tamuz Nissim - Echo Of A Heartbeat (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, V
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787711.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ John Surman, Nelson Ayres, Rob Waring - Invisible Threads (2018) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787710.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Carmen McRae - Sings Lover Man And Other Billie Holiday Classics (1961) 2016, So
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787705.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Les Doigts De L'Homme - Gipsy Jazz Nucleaire (2004) Autoproduction [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787659.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Art Farmer - The Complete Albums Collection 1955-1957 (2016) 4CD, Enlightenment 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787262.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Dexter Gordon Quartet - Tokyo 1975 (2018) Elemental Music [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787066.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ The Reunion Project - Varanda (2017) Self Released [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787034.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Goldmeister-Alles Gold (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787033.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Dizzy Gillespie - A Night in Tunisia 1989 (1991) First Choice [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786896.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Dizzy Gillespie - Dee Gee Days: The Savoy Sessions 1951 - 1952 (1985) Savoy Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786893.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Wynton Kelly - Kelly At Midnite (1960) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786888.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786766.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Joe Henderson - Milestone Profiles 1967 - 1975 (2006) 2CD, Milestone [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786765.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Alan Pasqua, Dave Carpenter, Peter Erskine - Standards (2007) Fuzzy Music [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786760.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Peters Drury Trio - Backbeat (2001) Self-Released [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786606.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Dizzy Gillespie Big Band - Showtime at the Spotlite, 52nd Street, New York City,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786604.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Mustafa Donmez (Mustafa Dönmez) - Gizemli Yolculuk (2009) [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786599.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Brian Culbertson - XX (2020) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786572.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Eddie Shu / Bob Hardaway - Jazz Practitioners (1954, 1955) 2001, Toshiba [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786416.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Valery Ponomarev - Trip To Moscow (1988) Reservoir [FLAC|Lossless|image + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786414.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Ben Webster - Ben Webster's Finest Hour (1934-1964) 2000, Verve [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786411.jpg" />
 </div>
 
 

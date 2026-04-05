@@ -1,177 +1,3 @@
-###  Публикация: 999814   (862425) от 23.03.2016
-
-Валерий Меладзе - The Best (1999) [FLAC|Lossless|tracks + .cue] <Schlager, Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Красиво (4:44)
-02. Сэра (3:52)
-03. Не тревожь мне душу, скрипка (4:16)
-04. Лимбо (4:02)(   Читать дальше...   )Жанр: Schlager, PopПродолжительность: 01:09:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50C16A147B03BB8133ED1D5025CE56DE138B2F2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376148   (862258) от 16.04.2020
-
-Lorraine Johnson - Learning To Dance All Over Again (1978) Reissue CD, 1992, Prelude Records [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Learning To Dance All Over Again (8:12)
-02. Feed The Flame (8:10)
-03. Who Do You Think You're Fooling (4:58)
-04. Nobody's Wrong (5:03)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:39:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B94FB6733E017454214BDCCDCB249F7D8B506EDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376141   (862171) от 16.04.2020
-
-La Prohibida - Ruido (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Galaxia Desierta (04:22)
-02. Bouvet (05:14)
-03. La Tristeza de Ser Electron (04:29)
-04. uido (04:59)(   Читать дальше...   )Жанр: Synthpop, Italo-DiscoПродолжительность: 00:52:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32A04F2DC485D679E4138579DB84B8312F3A655D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375982   (862170) от 16.04.2020
-
-VA - Best Pop (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tones and I - Dance Monkey (03:29)
-02. Dua Lipa - Future Nostalgia (03:04)
-03. Jess Glynne - I'll Be There (Banx & Ranx Remix) (03:07)
-04. Lizzo - Good as Hell (02:39)(   Читать дальше...   )Жанр: PopПродолжительность: 02:07:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46F21D365BE9912AEDA7DE8C601826A2E9E065D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375892   (862168) от 16.04.2020
-
-VA - Cay Hume And His Music Productions 1-3 (2016-2017) Remastered [FLAC|Lossless|tracks + .cue] <Euro-Disco, Synth-pop, Euro-House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cay Hume - Call Me Up (House Music Version) (6:46)
-02. Top Secret - Let It Be (12'' Version) (5:59)
-03. Jean & Jill - Blue Blue Eyes (12'' Version) (6:59)
-04. T. Ark - Count On Me (12'' Version) (6:31)(   Читать дальше...   )Жанр: Euro-Disco, Synth-pop, Euro-HouseПродолжительность: 03:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7FA7BB4AF162A5D9610E1C29708F4583112774C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375650   (861934) от 16.04.2020
-
-Леонид Агутин - Тайна склеенных страниц (2013) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пора домой (3:32)
-02. Ай-ай-ай (feat. Thomas Nevergreen) (3:39)
-03. Авторское кино (feat. Анжелика Варум) (4:49)
-04. Мама-река (5:09)(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F3275994AD183DC02FC7A61441D39F758A95BA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376090   (861791) от 16.04.2020
 
 VA - Eurodisco 80's Maxi Hits & Remixes 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Italo-Disco>
@@ -180,7 +6,7 @@ VA - Eurodisco 80's Maxi Hits & Remixes 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861791.jpg" />
 </div>
 
 
@@ -209,7 +35,7 @@ Adolescent's Orquestra - Millenium Hits (1999) [FLAC|Lossless|image + .cue] <Sal
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861365.jpg" />
 </div>
 
 
@@ -238,7 +64,7 @@ Promises - Real To Real (1979) LP [MP3|320 Kbps] <Disco, Europop, Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861360.jpg" />
 </div>
 
 
@@ -267,7 +93,7 @@ Natalie Imbruglia - Firebird (2021) [FLAC|Lossless|WEB-DL|tracks] <Soft Rock, Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861177.jpg" />
 </div>
 
 
@@ -296,7 +122,7 @@ Player [1] - Game Over (1980) LP [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860938.jpg" />
 </div>
 
 
@@ -325,7 +151,7 @@ Sandra - Paintings In Yellow (1990) Japanese Edition [FLAC|Lossless|image + .cue
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860750.jpg" />
 </div>
 
 
@@ -354,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860719.jpg" />
 </div>
 
 
@@ -383,7 +209,7 @@ AURORA (Aksnes) - All My Demons Greeting Me As A Friend (2016) Deluxe Edition [F
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860648.jpg" />
 </div>
 
 
@@ -412,7 +238,7 @@ Sea Cruise - Sea Cruise (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860620.jpg" />
 </div>
 
 
@@ -441,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860489.jpg" />
 </div>
 
 
@@ -470,7 +296,7 @@ Silver Pozzoli - Greatest Hits & Remixes (2020) 2CD, Compilation [FLAC|Lossless|
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860374.jpg" />
 </div>
 
 
@@ -499,7 +325,7 @@ VA - XXXL Диско 80-х часть 1 (2011) [MP3|256 kbps]<Pетро>
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_859754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_859754.jpg" />
 </div>
 
 
@@ -534,7 +360,7 @@ Solomon Grey - Solomon Grey (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859279.jpg" />
 </div>
 
 
@@ -563,7 +389,7 @@ Demis Roussos - The Universal Masters Collection (2000) [FLAC|Lossless|tracks] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859198.jpg" />
 </div>
 
 
@@ -592,7 +418,7 @@ VA - Disco Edits: Vol.XIX (2017) [MP3|320 Kbps] <Disco, Nu Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859159.jpg" />
 </div>
 
 
@@ -621,7 +447,7 @@ Birdy - Beautiful Lies (2016) Deluxe Edition [FLAC|Lossless|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859111.jpg" />
 </div>
 
 
@@ -650,7 +476,7 @@ Black Soul - Black Soul (1979) LP [MP3|320 Kbps] <Funk-Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859085.jpg" />
 </div>
 
 
@@ -679,7 +505,7 @@ The Monotones - The Monotones (1980-82) LP, Released 2014 [MP3|320 Kbps] <Electr
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859081.jpg" />
 </div>
 
 
@@ -708,7 +534,7 @@ Kenny G - Love Ballads (2008) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859076.jpg" />
 </div>
 
 
@@ -737,7 +563,7 @@ Motown Sounds - Space Dance (1978) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859019.jpg" />
 </div>
 
 
@@ -751,6 +577,180 @@ Motown Sounds - Space Dance (1978) LP [MP3|320 Kbps] <Electronic, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADE92282A876DC4977379E437DA3599968F2D7D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109404   (859012) от 27.02.2017
+
+VA - New Generation Italo Disco: The Lost Files Vol.2 (2017) [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ranger - In Your Eyes  6:08
+02.  Tommy Sun - Lover Boy  7:47
+03.  Boris Zhivago - Deep In My Heart (BCR Long Extended Vintage Mix)  8:42
+04.  Lady Fantasy - You And Me  7:10(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:28:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B75C2BABFDA3ED4F9FD1FB93363D4DBA72031973
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109410   (859009) от 27.02.2017
+
+'M' (Robin Scott) - 3 Albums (1979-1982) CD, Reissue [MP3|320 Kbps] <Electronic, Synth-pop, Pop-rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859009.jpg" />
+</div>
+
+
+###  Подробнее
+
+'M' - студийный проект под руководством английского музыканта Робина Скотта в течение краткого периода в конце 1970-х и начале 1980-х годов. Самым известным  стал хит "Pop Muzik", который достиг второго места в чарте Великобритании в мае 1979 года, а в США - к ноябрю 1979 года. Музыканты, которые внесли свой вклад в 'M' в то или иное время:  Wally Badarou, (   Читать дальше...   )Список альбомов:
+1979 - New York, London, Paris, Munich (2004)
+1980 - The Official Secrets Act (2007)
+1982 - Famous Last Words (2001)Жанр: Electronic, Synth-pop, Pop-rock, DiscoПродолжительность: 03:02:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:720ADC161966E0F68ECADA87608914BEE6A90AED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376322   (858687) от 18.04.2020
+
+VA - 80's Revolution Dance Movement (2006) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Synth-pop, Italodance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MC Dirty Dan - I Can't Forget (3:30)
+02. Dr Phones - Drop the Rules (3:24)
+03. Indiansphere - Don't Use No Violence (3:46)
+04. Perfect Times - Time (3:08)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Synth-pop, ItalodanceПродолжительность: 01:02:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:380D00ED7A52553DB08DDF9CFAAB5402D20132B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376315   (858677) от 18.04.2020
+
+Spatial Vox - Cause Of Shining In Your Eyes (The 1'st Album) (2019) [FLAC|Lossless|image + .cue] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cause Of Shining In Your Eyes (4:09)
+02. Right To My Self (3:17)
+03. Call My Name (3:38)
+04. Love Will Never Die (4:06)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6F0BF952A9A079225B95E38DE43CF2960DDC4B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109310   (858660) от 27.02.2017
+
+VA - The Best Disco '80 (Syndicate) (1980) Unofficial Release [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Billy Ocean - Stay The Night (4:01)
+02. La Flavour - Mandolay (6:21)
+03. Lipps, Inc. - Funky Town (8:08)
+04. Ottawan - You're O.K. (5:13)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:59:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F25E9D2D0CD3CC0A9DDF4F39219802C89693AE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 319179   (858120) от 18.04.2020
+
+Bad Boys Blue - In The Mix (80s Best) (2002) [FLAC|Lossless|tracks + .cue]<Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're A Woman (Maxi Version)
+02. Pretty Young Girl (Extended Version)
+03. Kisses And Tears (Remix 1994)
+04. I Wanna Hear Your Heartbeat - Sunday Girl (Maxi Version)(   Читать дальше...   )Жанр: DanceПродолжительность: 01:16:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:592E1BB83B548F97247FD39A08B23AB8249E81F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

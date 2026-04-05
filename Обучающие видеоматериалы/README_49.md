@@ -1,3 +1,29 @@
+###  Публикация: 1469073   (1016735) от 10.05.2021
+
+Tyler Bay | Pyro I - Smoke & Steam (2019) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс поможет вам начать пользоваться Pyro в Houdini. Мы начнем с обзора общего принципа работы Pyro, а затем уже перейдем к конкретному примеру, а именно создание пара от кофе в чашке. Мы проанализируем референс, поговорим о том как лучше всего сделать такой эффект, поработаем с полями через микросолверы и потом все отрендерим. К концу курса у вас будет много (   Читать дальше...   )Производство: CG ForgeЖанр: Создание видеоПродолжительность: 01:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECACDD978186250CD417DFC3D9E0817A8B1556ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1469017   (1016720) от 10.05.2021
 
 React Summi | React Summit Remote Edition 2021 PCRec [En]
@@ -6,7 +32,7 @@ React Summi | React Summit Remote Edition 2021 PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016720.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Steven Knipping | Applied Houdini Liquids I (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016713.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Zenva Academy | Академия разработки игр: Симулятор
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016694.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Self-Learning, Виталий Трунин | Курс по T-SQL Путь про
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016672.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Self-Learning, Виталий Трунин | Курс по T-SQL Путь про
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016668.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Udemy | Soft Skills - главные навыки ХХI века (2021) WEB-DL
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016653.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ Slurm (Слёрм), Тимофей Ларкин и др. | CI/CD на приме
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016635.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ Maria Rogue-One | How to render correctly in ZBRUSH (2021) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016519.jpg" />
 </div>
 
 
@@ -224,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016482.jpg" />
 </div>
 
 
@@ -253,7 +279,7 @@ Tyler Bay | Learning Solaris (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016414.jpg" />
 </div>
 
 
@@ -279,7 +305,7 @@ Franco Pizzani | VEX Traffic Simulation in Houdini 18 (2020) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016393.jpg" />
 </div>
 
 
@@ -305,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016357.jpg" />
 </div>
 
 
@@ -332,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016348.jpg" />
 </div>
 
 
@@ -359,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016345.jpg" />
 </div>
 
 
@@ -388,7 +414,7 @@ Udemy, Stanislav Gorchakov | Алгоритмический Трейдинг с 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016339.jpg" />
 </div>
 
 
@@ -415,7 +441,7 @@ Steven Knipping | Applied Houdini Liquids II (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016259.jpg" />
 </div>
 
 
@@ -441,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016205.jpg" />
 </div>
 
 
@@ -468,7 +494,7 @@ Michael Goldfarb | Houdini 16 Rigging Part 1-7 (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016091.jpg" />
 </div>
 
 
@@ -494,7 +520,7 @@ Michael Goldfarb | Houdini 17 Rigging Series 2 (2020) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015940.jpg" />
 </div>
 
 
@@ -520,7 +546,7 @@ ITVDN, Бондаренко Кирилл  | Python 3.8.6 Стартовый (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015841.jpg" />
 </div>
 
 
@@ -547,7 +573,7 @@ Udemy, Colt Steele | The Modern React Bootcamp (Hooks, Context, NextJS, Router) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015690.jpg" />
 </div>
 
 
@@ -573,7 +599,7 @@ Udemy, For Your English | 500+ American Slang | Spoken English Vocabulary Course
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015542.jpg" />
 </div>
 
 
@@ -602,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015391.jpg" />
 </div>
 
 
@@ -628,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015366.jpg" />
 </div>
 
 
@@ -654,7 +680,7 @@ React Bootcamp, Reed Barger | Build Discord with React (2021) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015249.jpg" />
 </div>
 
 
@@ -667,35 +693,6 @@ React Bootcamp, Reed Barger | Build Discord with React (2021) PCRec [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDD9C014DCCC3102A179FD89CBB038A7B62CF421
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471085   (1015222) от 19.05.2021
-
-DunderData, Ted Petrou | Анализ данных на Python / Master Data Analysis with Python (2021) PCRec [En]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наиболее полный курс по анализу данных и визуализации на Python.
-350 Упражнений, 800 страниц текста, множество проектов и их решений.
-Что мы получим:
-70+ Jupyter Notebook, где вы можете читать текст, выполнять упражнения и добавлять заметки(   Читать дальше...   )Производство: DunderDataЖанр: Анализ данныхЯзык озвучки: АнглийскийПродолжительность: 11:11:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D4E75020BA844414DFB6EF045B322160B06DA23
 ```
 
 https://mybot314.ru/tekegram_catalog/

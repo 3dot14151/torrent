@@ -1,3 +1,61 @@
+###  Публикация: 1250600   (424608) от 28.09.2018
+
+Henry Jackman - Хищник / The Predator (2018) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arrival
+02. Discovery
+03. Rory
+04. Project Stargazer(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:54:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:739DADB5545B139AC00A893F2592A77A2ABFD12B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250657   (424603) от 28.09.2018
+
+Piano Peace - Spa Piano & Ocean Waves (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Wellness Ocean Waves
+02 Sleep Meditation Ocean Waves
+03 Elevate Ocean Sounds
+04 Solitude Ocean Waves(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 01:51:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA673F718D901045F5443E2CC66CA8E3124F6599
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 946844   (424428) от 14.10.2015
 
 Jean-Michel Jarre - Electronica 1: The Time Machine (2015) [FLAC|image+.cue]<Ambient, New age, Electronic>
@@ -6,7 +64,7 @@ Jean-Michel Jarre - Electronica 1: The Time Machine (2015) [FLAC|image+.cue]<Amb
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424428.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Anima - Temple of the Heart (2010) [MP3|320 Kbps] <New Age, Native American Flut
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424051.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Steven Price - Gravity: Original Motion Picture Soundtrack (2013) [FLAC|Lossless
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423279.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Terry Scott Taylor - Imaginarium - Songs from the Neverhood (2004) 2CD [FLAC|Los
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422963.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Nicolas de Angelis - Grand Concert (1986) [FLAC|Lossless|tracks + .cue] <Classic
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422715.jpg" />
 </div>
 
 
@@ -152,7 +210,7 @@ Deosil - A Drop of Eternity (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421906.jpg" />
 </div>
 
 
@@ -181,7 +239,7 @@ Amer-Inkas - 3 albums (2010-2012) [MP3|320 кб/с]<Instrumental, Native america
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421797.jpg" />
 </div>
 
 
@@ -216,7 +274,7 @@ VA - Classic Film Music For The Millennium (2000) [MP3|320 Kbps] <Instrumental, 
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421437.jpg" />
 </div>
 
 
@@ -245,7 +303,7 @@ Leonard Cohen - You Want It Darker (2016) [FLAC|Lossless|image + .cue] <Folk, Ro
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420820.jpg" />
 </div>
 
 
@@ -274,7 +332,7 @@ Fleur (Flёur) - Штормовое предупреждение (2014) [FLAC|tr
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420108.jpg" />
 </div>
 
 
@@ -303,7 +361,7 @@ The Romantic Strings Orchestra - Night And Day: The Great Songs Of Cole Porter (
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420043.jpg" />
 </div>
 
 
@@ -332,7 +390,7 @@ Trevor Rabin & Harry Gregson-Williams - Enemy of the State (1998) [MP3|320 Kbps]
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419723.jpg" />
 </div>
 
 
@@ -361,7 +419,7 @@ VA - About Time (2013) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419719.jpg" />
 </div>
 
 
@@ -390,7 +448,7 @@ VA - Snatch (Expanded) (2000) [MP3|320 Kbps] <Soundtrack, Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419558.jpg" />
 </div>
 
 
@@ -419,7 +477,7 @@ Michel Pepe - La Foret d'Eden (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419436.jpg" />
 </div>
 
 
@@ -448,7 +506,7 @@ VA - The Thomas Crown Affair (1999) [MP3|320 Kbps] <Soundtrack, Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419254.jpg" />
 </div>
 
 
@@ -477,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419042.jpg" />
 </div>
 
 
@@ -511,7 +569,7 @@ Jesse Cook - 2 альбома (2005 & 2012) [FLAC|Lossless]<Jazz, Flamenco, Guit
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_418852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_418852.jpg" />
 </div>
 
 
@@ -546,7 +604,7 @@ Michael Giacchino - Doctor Strange / Доктор Стрэндж (Original Motio
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418742.jpg" />
 </div>
 
 
@@ -575,7 +633,7 @@ Michael Giacchino - Doctor Strange / Доктор Стрэндж (Original Motio
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418584.jpg" />
 </div>
 
 
@@ -604,7 +662,7 @@ Bernward Koch - Remembering (2015) [MP3|320 кб/с]<New Age, Piano>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417967.jpg" />
 </div>
 
 
@@ -633,7 +691,7 @@ Eric Clapton - Music From The Motion Picture Soundtrack RUSH (1992) [FLAC|image+
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417867.jpg" />
 </div>
 
 
@@ -662,7 +720,7 @@ VA - Autumn Piano Bar Music Emotional Piano Bar Music Collection Liquid and Sens
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417815.jpg" />
 </div>
 
 
@@ -691,7 +749,7 @@ Buddha Lounge Ensemble - Renditions Of Led Zeppelin (2008) [MP3|320 Kbps] <Elect
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417766.jpg" />
 </div>
 
 
@@ -705,64 +763,6 @@ Buddha Lounge Ensemble - Renditions Of Led Zeppelin (2008) [MP3|320 Kbps] <Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D033AC75CC6719B4CD61A48B799C5ADEE813DD79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167300   (417338) от 20.09.2017
-
-VA - Wasabi (2001) [MP3|320 Kbps] <Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro - Wasabi
-02 - Eric Serra - Shakoto & Narita smurf
-03 - Interlude - Qu'est-ce qu'elle a dit _
-04 - Da Brat - Fa all y'all(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:46:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BF8734348D4A06FEB5105F69BA129CA1B84A738
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167467   (417319) от 20.09.2017
-
-Richard Evans - Breathe (2006) [FLAC|Lossless|WEB-DL|tracks] <New Age, Solo Piano, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quiet Reflection (7:17)
- 02. The Road To Here (6:07)
- 03. Rising (8:49)
- 04. Meditation (6:41)(   Читать дальше...   )Жанр: New Age, Solo Piano, RelaxПродолжительность: 01:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23EFE1B756A010D50F3C76A26E2F26A7198DBDD6
 ```
 
 https://mybot314.ru/tekegram_catalog/

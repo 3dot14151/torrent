@@ -1,3 +1,61 @@
+###  Публикация: 1031092   (651481) от 04.07.2016
+
+VA - Jam On Guitars (2009) [FLAC|Lossless|image + .cue] <Instrumental rock>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Took The Words Right Outta My Mouth 4:56 Michael Lee Firkins
+02. Free In The Park 4:35 Steve Morse
+03. Scorch 7:14 Alex Skolnick Trio
+04. Dance To The Music 4:32 The Clinton Administration(   Читать дальше...   )Жанр: Instrumental rockПродолжительность: 01:12:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD891BCF5EC98C4A886CB99441B4827CF56ADBF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031467   (651480) от 04.07.2016
+
+Alexandre Desplat - The Secret Life of Pets / Тайная жизнь домашних животных (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meet the Pets (02:38)
+02. Katie's Leaving (00:56)
+03. Meet Duke (03:37)
+04. Fetch Me a Stick (03:10)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:166D8140ABCFF48DFE3CAD61D506491529DD283F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031488   (651479) от 04.07.2016
 
 Cliff Martinez - The Neon Demon / Неоновый демон (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
@@ -6,7 +64,7 @@ Cliff Martinez - The Neon Demon / Неоновый демон (Original Motion P
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651479.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Kamal - 17 Альбомов (1987 - 2010) [FLAC|Lossless|tracks] <New Age, Medit
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651475.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Cliff Martinez - The Neon Demon / Неоновый демон (Original Motion P
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651378.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Raw Silk - Raw Silk (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650391.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Shastro - Bandole! (1994) [FLAC|Lossless|tracks] <New Age, Ambient, World>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649827.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Andre Gagnon - Comme Dans Un Film (1986) [MP3|320 Kbps] <New Age, Piano>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649824.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Terry Oldfield & Soraya - Namaste (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649677.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ David Clavijo - From the Depths (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649675.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Simonopetras - Psaltirion Terpinon - Hymns From The Psalter (1990) [MP3|320 Kbps
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649670.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Medwyn Goodall - The Dreamworld (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649543.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Tom Holkenborg aka Junkie XL - Безумный Макс: Дорога ярос�
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649061.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Tom Holkenborg aka Junkie XL - Безумный Макс: Дорога ярос�
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649057.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Claire Hastings - Those Who Roam (2019) [FLAC|Lossless|tracks + .cue] <Folk, Cel
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648641.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Current 93 - Invocations Of Almost (2019) [FLAC|Lossless|tracks + .cue] <Folk, C
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648635.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - The Ultimate Country Love Songs Anthology (2019) [FLAC|Lossless|WEB-DL|trac
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648625.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Quiero Fiesta (Club Hits 2018) [MP3|320 Kbps] <Latin Hip-Hop, Reggaeton, Ba
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648472.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648418.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ George Skaroulis - Sanctuary 2 (2015) [MP3|320 Kbps] <New Age, Instrumental, Pia
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647764.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Jack Menhorn & Ashton Morris - Lemma Original Soundtrack (2015) [MP3|128 кб/с
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647694.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Radio Rebel / Бунтарка (2012) [MP3|320 кб/с]<OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647614.jpg" />
 </div>
 
 
@@ -592,7 +650,7 @@ Phil Thornton - Tribale (2015) [MP3|320 кб/с]<New Age, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647543.jpg" />
 </div>
 
 
@@ -621,7 +679,7 @@ Kerani - Equilibrium (2015) [MP3|320 кб/с]<New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647540.jpg" />
 </div>
 
 
@@ -650,7 +708,7 @@ VA - Romantic Collection. Country (2000) [FLAC|Lossless]<County>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647307.jpg" />
 </div>
 
 
@@ -679,7 +737,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647264.jpg" />
 </div>
 
 
@@ -699,61 +757,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E788B6D257EEE668CD77C4ED1D71F8B047BDA24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517024   (646868) от 01.07.2012
-
-VA - 599 фраз из нашего кино и мультфильмов (2009) [MP3|32-64 kbps]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646868.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: OSTПродолжительность: 01:13:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23E720A56E93C50D5DF44F2CFA24AE188A00927B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292148   (646812) от 29.03.2019
-
-Andrew Bird - My Finest Work Yet (2019) [FLAC|Lossless|tracks + .cue] <Folk-Rock, Indie-Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sisyphus (04:06)
-02. Bloodless (06:29)
-03. Olympians (04:00)
-04. Cracking Codes (03:12)(   Читать дальше...   )Жанр: Folk-Rock, Indie-RockПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F2AF44E579ABC6D8A0009E27A2DB009B3B5765A
 ```
 
 https://mybot314.ru/tekegram_catalog/

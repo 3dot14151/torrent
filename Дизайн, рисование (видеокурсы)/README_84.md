@@ -1,3 +1,59 @@
+###  Публикация: 1675951   (159221) от 11.11.2023
+
+Kalachevaschool, Анна Чайникова | Рассвет акрила. Тариф Стандарт (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159221.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Рассвет акрила» — атмосферный курс Анны Чайниковой для всех, кто хочет разобраться в возможностях акрила, научиться писать картины в необычном, интересном стиле и находить красивые сюжеты в повседневности.
+Вы узнаете, как использовать сложное, контражурное освещение, когда пронизывающие солнечные лучи подсвечивают предметы сзади.
+
+Большое внимание на курсе уделяется (   Читать дальше...   )Производство: KalachevaschoolЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 03:18:49Реклама: Наложение на видео, видео вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:746AF29E772517ADCC8C5149C87BD12FF5C00A0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675979   (159176) от 11.11.2023
+
+Skillshare, Iva Mikles | Drawing Colorful Room Scene in Procreate: Practice Perspective and Composition (2023) WEB-DL
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159176.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы когда-нибудь хотели проиллюстрировать сцену, полную деталей, но не знали, с чего начать? Не волнуйся; Я был там, и я здесь, чтобы провести вас!
+Присоединяйтесь ко мне на этом практическом занятии , где мы глубоко окунемся в радостный процесс проектирования красочной комнаты, наполненной деталями. И угадай что? Мы не будем одни в этой комнате; нас будут сопровождать (   Читать дальше...   )Производство: SkillshareЖанр: РисованиеЯзык озвучки: АнглийскийПродолжительность: 02:05:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CA8BE88EF469849730F72A5F67E308345F15A70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1676110   (159159) от 11.11.2023
 
 CGcircuit, Florian Girardot | Mastering Nuke Vol 1 – 10 (2021) WEB-DL [EN]
@@ -6,7 +62,7 @@ CGcircuit, Florian Girardot | Mastering Nuke Vol 1 – 10 (2021) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159159.jpg" />
 </div>
 
 
@@ -35,7 +91,7 @@ Domestika, Liya | Manga Illustration with Procreate (2023) WEB-DL [DE / RU Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159147.jpg" />
 </div>
 
 
@@ -63,7 +119,7 @@ Solid Factory, Антон Ильин | SolidWorks. Продвинутый кур
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159103.jpg" />
 </div>
 
 
@@ -89,7 +145,7 @@ Udemy, Laura Hitchcock | Work Smart With Nuke! Episode 1: Channels & Roto (2021)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158894.jpg" />
 </div>
 
 
@@ -116,7 +172,7 @@ Udemy, Arijit Datta | Nuke Full Comprehensive Course For Absolute Beginners Part
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158887.jpg" />
 </div>
 
 
@@ -145,7 +201,7 @@ CGMA, Behnam Shafiebeik | Nuke Compositing for 3D Artists (2019) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158820.jpg" />
 </div>
 
 
@@ -173,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158814.jpg" />
 </div>
 
 
@@ -202,7 +258,7 @@ Profileschool, Никита Чесноков | Моушн дизайн (2022) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158777.jpg" />
 </div>
 
 
@@ -228,7 +284,7 @@ Udemy, Vicki Lau | VFX Compositing with Nuke: Invisible Visual Effects (2022) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157025.jpg" />
 </div>
 
 
@@ -254,7 +310,7 @@ Dharmendra Giri | Learn and Master IN Nuke X VFX (2021) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156954.jpg" />
 </div>
 
 
@@ -280,7 +336,7 @@ Learn Squared, Steven Cormann | 3D Matte Painting (2019) WEB-DLRip [RU, EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156932.jpg" />
 </div>
 
 
@@ -306,7 +362,7 @@ Liveclasses, Антон Мартынов | Нейросети для генер�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156137.jpg" />
 </div>
 
 
@@ -334,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155592.jpg" />
 </div>
 
 
@@ -363,7 +419,7 @@ Domestika, Trini Guzmán | Interior Mural Painting (2023) WEB-DL [AD] [ES / EN, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155454.jpg" />
 </div>
 
 
@@ -392,7 +448,7 @@ Udemy, Harsh Gupta | Paint and prep training in Nuke: fundamental – NK101 (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155430.jpg" />
 </div>
 
 
@@ -420,7 +476,7 @@ Udemy, Alex Hanneman | Introduction to Nuke VFX Compositing: The Essentials - NK
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155243.jpg" />
 </div>
 
 
@@ -448,7 +504,7 @@ Hudozhnik Online, Настасья Кучинская | Рисование те�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155217.jpg" />
 </div>
 
 
@@ -475,7 +531,7 @@ Grant Warwick, Grant Warwick | Mastering Lighting Lessons 5 (2016) PCRec [Час
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155196.jpg" />
 </div>
 
 
@@ -501,7 +557,7 @@ Grant Warwick | Mastering Lighting Lessons 5 (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155112.jpg" />
 </div>
 
 
@@ -527,7 +583,7 @@ Learn Squared, Paul Chadeisson | World Building (2018) WEB-DLRip [RU, EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155011.jpg" />
 </div>
 
 
@@ -553,7 +609,7 @@ New Masters Academy, Erik Olson | Perspective 17: Drawing the Figure in Perspect
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154951.jpg" />
 </div>
 
 
@@ -579,7 +635,7 @@ Cubebrush, Marc Brunet | Character Concept for Video Games (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154904.jpg" />
 </div>
 
 
@@ -606,7 +662,7 @@ Gumroad, Cedric Lepiller | Sony BSP10 - Non-Destructive workfow on Blender 2.8 (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154880.jpg" />
 </div>
 
 
@@ -634,7 +690,7 @@ Learn Squared, Philipp Kruse | Character Illustration (2020) WEB-DLRip [RU, EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154782.jpg" />
 </div>
 
 
@@ -645,60 +701,6 @@ Learn Squared, Philipp Kruse | Character Illustration (2020) WEB-DLRip [RU, EN]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F0D5B4BE539B829FC67B88BA719C6CF914EF589
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518387   (154673) от 19.12.2021
-
-Learn Squared, Maxx Burman | Intro to Matte Painting (2017) WEB-DLRip [RU, EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научитесь создавать захватывающие картины в стиле Matte Painting, используя те же техники, что и легендарный Макс Бурман. После изучения основ композиции, Макс покажет вам свои техники для того, чтобы превратить быстрые наброски концептов в Matte Painting картины, которые подходят для продакшена (производства), с реалистичной перспективой, освещением и атмосферой. (   Читать дальше...   )Производство: Learn SquaredЖанр: 2D, CG, Matte PaintingЯзык озвучки: Русский, АнглийскийПродолжительность: 05:35:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BE7174A79017063713835EF31C52CF81AEBEDE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518432   (154622) от 19.12.2021
-
-Skillbox, Оксана Осадченко | Fashion-скетчинг (2021) WEB-DL [AD]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154622.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы освоите современные техники иллюстрации, поработаете с различными инструментами — маркерами, акварелью и тушью. Научитесь рисовать эскизы на профессиональном уровне и сможете создавать коммерческие иллюстрации для заказчиков, даже если никогда не занимались рисованием.
-Чему вы научитесь:
-Рисовать моделей. Изучите пропорции лица и тела человека, чтобы точно изображать (   Читать дальше...   )Производство: SkillboxЖанр: CкетчингПродолжительность: 12:57:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28CCC79A8C022E065C42BEC0A7BD825BAC448D15
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1575010   (375484) от 10.09.2022
+
+Before I Die (RU) - 5 Albums (2017-2022) [Mp3|320 Kbps] <Metalcore, Doom Metal, Experimental Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375484.jpg" />
+</div>
+
+
+###  Подробнее
+
+1-ИСЧЕЗАЮЩИЙ СВЕТ [00:04:44]
+2-ВОСТОРГ И ГНЕВ [00:04:21]
+3-ОСВОБОЖДЕНИЕ [00:03:56]
+4-МЕТРВЫЕ ГЛАЗА [00:03:21](   Читать дальше...   )Жанр: Metalcore, Doom Metal, Experimental MetalПродолжительность: 5 CD, 03:26:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA619CCFF76F7F749AB7C632746AD6743B22526C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1575466   (375482) от 10.09.2022
 
 The Sinners - Идеальный пациент (2022) [Mp3|320 Kbps] <Simphonic Metalcore, Post Hardcore>
@@ -6,7 +35,7 @@ The Sinners - Идеальный пациент (2022) [Mp3|320 Kbps] <Simphonic
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375482.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Bloodbath - Survival Of The Sickest (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Death
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375406.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Fallujah - Empyrean (2022) [FLAC 2.0|96/24|WEB-DL|tracks] <Technical Deathcore, 
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375405.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Miami - Sexy, Wet & Wild (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Punk>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375404.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Smash Into Pieces - Disconnect (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375402.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Slade - The Hucknall Miners' Welfare Club (2022) Live [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375398.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Taboo - Taboo (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375394.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Slade - Alive! At Reading (2022) Live [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375387.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Allen/Olzon - Army Of Dreamers (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Melodic Me
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375385.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Taboo - Taboo (2022) [Mp3|320 kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375380.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Slade - The New Victoria (2022) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375224.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Craft - 5 Albums (2000 - 2018) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375133.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Dragony - Masters of the Multiverse (2018) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375130.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Weary Eyes - How To Leave Places (2015) [MP3|320 кб/с]<Post Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375119.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Suzi Quatro - Suzi Quatro (1973) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375088.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Nightwish - Imaginaerum (The Score) (2012) [MP3|320 kbps] <Symphonic Power Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375022.jpg" />
 </div>
 
 
@@ -476,7 +505,7 @@ Phantom Vision - Guilty (2019) [FLAC|Lossless|tracks + .cue] <Goth Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374627.jpg" />
 </div>
 
 
@@ -505,7 +534,7 @@ Moon Loves Honey - Bubbleburst (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374621.jpg" />
 </div>
 
 
@@ -534,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374506.jpg" />
 </div>
 
 
@@ -560,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374499.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ Veil Of Maya - False Idol (2017) [MP3|320 Kbps] <Progressive Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374340.jpg" />
 </div>
 
 
@@ -618,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374319.jpg" />
 </div>
 
 
@@ -647,7 +676,7 @@ Boy Hits Car - Worldwide Alive! (2020) [FLAC|Lossless|tracks + .cue] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374311.jpg" />
 </div>
 
 
@@ -676,7 +705,7 @@ Derek Sherinian - The Phoenix (2020) [FLAC|Lossless|image + .cue] <Progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374299.jpg" />
 </div>
 
 
@@ -705,7 +734,7 @@ Brother Firetribe - Feel The Burn (2020) [FLAC|Lossless|image + .cue] <Melodic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374297.jpg" />
 </div>
 
 
@@ -719,35 +748,6 @@ Brother Firetribe - Feel The Burn (2020) [FLAC|Lossless|image + .cue] <Melodic H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4E799C6AE10D277506B403B2C03C8ADF63E9EC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415658   (374296) от 13.10.2020
-
-Spirit Adrift - Enlightened In Eternity (2020) [MP3|320 Kbps] <Doom Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ride Into The Light [00:04:42]
-02. Astral Levitation [00:06:12]
-03. Cosmic Conquest [00:05:32]
-04. Screaming From Beyond [00:06:21](   Читать дальше...   )Жанр: Doom Metal, Heavy MetalПродолжительность: 00:45:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA5A14AF6764EAE4304619982C305658D49A49A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

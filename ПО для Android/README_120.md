@@ -1,3 +1,109 @@
+###  Публикация: 1603145   (59122) от 20.04.2024
+
+Калькулятор калорий ХиКи v3.67 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощный инструмент для тех, кто хочет похудеть, и всех тех, кто просто хочет быть в форме. Приложение содержит обширную базу продуктов с таблицей пищевой ценности. Сей комбайн можно прекрасно настроить под свои нужды. Программа сама рассчитает нужную норму калорий и БЖУ в зависимости от ваших параметров и активности. Тысячи людей пользуются ХиКи каждый день по всему (   Читать дальше...   )Тип издания: ProРелиз состоялся: 19.04.2023Разработчик: HiKi SoftПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:758C0696D72A8C5A8BDB1403C128387454AED85C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717680   (59003) от 21.04.2024
+
+TuneIn Radio v33.9 Paid [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59003.jpg" />
+</div>
+
+
+###  Подробнее
+
+СПОРТ В ПРЯМОМ ЭФИРЕ. МУЗЫКА. НОВОСТИ. ПОДКАСТЫ.
+TuneIn объединяет спортивные события, музыку, новости, подкасты и радио со всего мира в одном приложении.
+Благодаря самому большому в мире каталогу оригинального аудиоконтента по запросу или в прямом эфире вы всегда сможете услышать то, что для вас важнее всего, открыть для себя новые моменты, которые произведут на (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 18.04.2024Разработчик: TuneIn IncПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BE1035ED40C4A4A394565EAF71F4DD8A3A3EC82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717698   (59001) от 21.04.2024
+
+WPS Office + PDF v18.8.2 Mod by derrin [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59001.jpg" />
+</div>
+
+
+###  Подробнее
+
+WPS Office - очень полезное, офисное приложение для любого пользователя мобильных устройств. Проект обладает всеми необходимыми функциями, что позволяют работать со всеми документами и файлами пакета программ Microsoft Office. Открытие, редактирование, объединение и многое другое подвластно всем желающим без установки оригинального программного обеспечения. Ну а (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 21.04.2024Разработчик: WPS SOFTWARE PTE. LTD.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDE367AA7145D1B281A82FF616B268DBA190EC1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717769   (58989) от 21.04.2024
+
+Square Home Launcher 3.0.12 Mod by derrin [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58989.jpg" />
+</div>
+
+
+###  Подробнее
+
+Square Home - красивый, стильный и функциональный лаунчер для мобильных работающих на Android-е. Им предлагается вариация оболочки выполненной в стиле Metro UI от Windows 10. Это очень понравится всем, кто постоянно использует данную операционную систему на других гаджетах. И считает, что подобная механика удобна и понятна для него и для его работы. Красивое исполнение (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 17.04.2024Разработчик: ChYK the devПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5559A5F3B6D7232F2551D86DB8B4B8DD2238A5C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1717678   (58985) от 21.04.2024
 
 AIDA64 2.01 Mod by Balatan [Ru/Multi]
@@ -6,7 +112,7 @@ AIDA64 2.01 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58985.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ Grab Photos From Videos / Фото из видео v11.1.9 Mod by derrin [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58982.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ Easy Notes 1.2.33.0409 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58961.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ App Manager 3.1.6 [Ru/Multi] (Обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58918.jpg" />
 </div>
 
 
@@ -112,7 +218,7 @@ MiXplorer Silver 6.64.3-Silver Mod by Zilllot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58886.jpg" />
 </div>
 
 
@@ -138,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58823.jpg" />
 </div>
 
 
@@ -164,7 +270,7 @@ Word Learn Languages v5.8 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58789.jpg" />
 </div>
 
 
@@ -190,7 +296,7 @@ Patephone / Патефон v10.11.17 Mod by vl80k747 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58547.jpg" />
 </div>
 
 
@@ -216,7 +322,7 @@ Carista OBD2 v8.4 Mod by Timozhai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58392.jpg" />
 </div>
 
 
@@ -242,7 +348,7 @@ FBReader Premium v3.6.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58338.jpg" />
 </div>
 
 
@@ -268,7 +374,7 @@ Enhance it v4.1.8 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58265.jpg" />
 </div>
 
 
@@ -294,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58112.jpg" />
 </div>
 
 
@@ -320,7 +426,7 @@ vpnify - Безлимитный VPN 2.1.9 Mod by YouAreFinished [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58086.jpg" />
 </div>
 
 
@@ -346,7 +452,7 @@ vpnify - Безлимитный VPN 2.1.9 Mod by YouAreFinished [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58065.jpg" />
 </div>
 
 
@@ -372,7 +478,7 @@ Listen Audiobook Player v5.2.7 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57948.jpg" />
 </div>
 
 
@@ -398,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57942.jpg" />
 </div>
 
 
@@ -425,7 +531,7 @@ ToonMe v0.7.7 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57936.jpg" />
 </div>
 
 
@@ -451,7 +557,7 @@ Malwarebytes Mobile Security 5.7.0+297 Mod by slavahm [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57866.jpg" />
 </div>
 
 
@@ -477,7 +583,7 @@ Malwarebytes Mobile Security 5.7.0+297 Mod by Balatan [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57861.jpg" />
 </div>
 
 
@@ -503,7 +609,7 @@ VPN Servers for OpenVPN 46 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57792.jpg" />
 </div>
 
 
@@ -532,7 +638,7 @@ Spotify 8.9.36.616 Mod by LITEAPKS [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57756.jpg" />
 </div>
 
 
@@ -561,7 +667,7 @@ tvQuickActions Pro 3.4.0 (172) Mod by Alex.Stranik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57728.jpg" />
 </div>
 
 
@@ -572,114 +678,6 @@ tvQuickActions позволяет назначить до 5 действий н�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9BD23B4F71FD1932B583B0F3AA06A04847C8D87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720621   (57633) от 04.05.2024
-
-Антирадар HUD Speed v66.1 Mod by 0x7d [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Антирадар HUD Speed – это цифровой спидометр с функцией предупреждения о превышении ограничения скорости и об опасностях на дороге: камеры, Стрелки, Автодории, посты и прочее.
-HeadUp Display (HUD) – это возможность использовать ваш телефон или планшет как проекционный дисплей. Просто положите устройство под лобовое стекло и вы увидите проекцию скорости и предупреждений (   Читать дальше...   )Тип издания: ProРелиз состоялся: 04.05.2024Разработчик: AIRBITS & Reactive PhoneПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:229B386681889537AD1BF964E3D65BF5FA2972D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720953   (57504) от 05.05.2024
-
-Prisma Art Effect Photo Editor / Арт - Фото в Рисунок v4.6.1.615 Mod by derrin [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57504.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почувствуй себя художником! Преврати фотографии в уникальные произведения искусства в несколько кликов с помощью приложения Prisma. Сделай уникальный рисунок из фото в стиле любимых художников. Prisma - это настоящая находка для любителей искусства и живописи. Это одновременно и фото редактор лица, и монтаж инструмент, и возможность закрасить рисунок так, как вам (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 05.05.2024Разработчик: Prisma Labs, Inc.Поддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B36914CF5AC5F54A042E14A97C682149D5481351
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721274   (57413) от 06.05.2024
-
-BSPlayer Pro 3.20.248-20231218 [Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57413.jpg" />
-</div>
-
-
-###  Подробнее
-
-BSPlayer - один из тех мультимедийных плееров, что обеспечивают пользователя всем необходимым для воспроизведения всего что только можно. "Всеядность", быстрая работа, удобное управление настройками и функциями и многое другое делает его очень универсальным. Автоматический поиск субтитров, способность распознавать жесты для навигации, поддержка гарнитуры, (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 19.12.2023Разработчик: BSPlayer mediaПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский, Немецкий, Французский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F22B4F9772AABD60A70198B38F398C876C8BD53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721529   (57381) от 07.05.2024
-
-Melon VPN - Secure Proxy VPN 8.0.032 Mod By Derrin [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Melon VPN - это быстрый, неограниченный, стабильный и полезный VPN (виртуальная частная сеть).
-Обходите ограничения местоположения на сверхбыстрых скоростях.
-Обходите географические ограничения и интернет-фильтры, пока вы на работе или в школе.
-Наслаждайтесь несколькими прокси-серверами и несколькими режимами VPN, чтобы обойти заблокированные веб-сайты и приложения, (   Читать дальше...   )Тип издания: ModРазработчик: Inf Security StudioПоддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50C8E2F30F9CF88A7497FEA4C44D30DD5AE60A4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

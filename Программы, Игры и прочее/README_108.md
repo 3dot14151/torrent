@@ -1,3 +1,107 @@
+###  Публикация: 1594210   (178535) от 30.11.2022
+
+Monefy Pro - Трекер бюджета 1.15.0 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Monefy Pro - Трекер бюджета - программа для учёта финансов. Она подойдёт для отслеживания денежных потоков для одного человека или семьи средних размеров по численности. Статьи поступления и расхода разделённые по разным категориям, сферам и направлениям помогут не запутаться и получать только правильное представление о существующей картине в кошельке. Даже если (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 29.11.2021Разработчик: ReflectlyПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:663B261EE495BC5ED22D253C2202013975BE9C3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594314   (178492) от 30.11.2022
+
+Olauncher 3.5.6 [Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_178492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Olauncher - это минималистичный лаунчер без рекламы, который уважает вашу конфиденциальность. Это приложение избавит вас от отвлекающих факторов, чтобы вы могли сосредоточиться на действительно важных вещах. Вы должны использовать свой телефон, а не наоборот.Тип издания: FreeРелиз состоялся: 11.11.2022Разработчик: tanujnotesПоддерживаемая ОС: Android 6.0+Язык интерфейса: Английский, Французский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:975CB22E10B57E47A561361ED2F430CD7C9B5C80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594357   (178432) от 30.11.2022
+
+Точная погода YoWindow Pro 2.35.17 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178432.jpg" />
+</div>
+
+
+###  Подробнее
+
+YoWindow - это нестандартная но очень удобная погодная программа. Секрет YoWindow - живой пейзаж отражающий настоящую погоду. Например, если погода дождливая - в YoWindow идет дождь. Солнце в YoWindow восходит и садится в то же время, что и в реальной жизни. Но главное - это возможность прокрутить время вперед. Для этого достаточно просто провести пальцем по экрану (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 11.11.2022Разработчик: RepkaSoftПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35E4143E7D7EB128DF856345421153384ACA7E82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594333   (178410) от 30.11.2022
+
+Slaughter 1.9 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам предстоит побывать в шкуре Рассела - наемника, который попал в плен в городе, населенном одними психопатами! Перед ним долгий путь к свободе, лежащий через тёмные улицы заброшенного городка. Берите в руки пушку и вперед - прорываться через орды отъявленных психов и устрашающих боссов!Тип издания: PaidРелиз состоялся: 11.07.2019Разработчик: Ray SparkПоддерживаемая ОС: Android 4.1+Жанр: Action, Adventures, ShooterЯзык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC74E8CAE74459B8511AF45DB49ABDFB4387332C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594212   (178405) от 30.11.2022
 
 Сканер QR- и штрих-кодов (Pro) 2.8.0-P [Ru/Multi]
@@ -6,7 +110,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178405.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Carly — OBD2 car scanner 90.89_beta Mod by Fxolan [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178398.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Carly — OBD2 car scanner 48.47 Mod by derrin [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_178343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_178343.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Slaughter 2: Prison Assault 1.42 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178336.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Poweramp v3-build-946-uni [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178319.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177953.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ ActionDirector - Видеоредактор v7.10.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177520.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Tag Team Karate Fighting Games: PRO Мастер кунг-фу v2.3.3 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177476.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Photo Lab PRO v3.12.72 Mod by Mixroot, maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177378.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Sonic Dash v4.15.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177356.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Awesome Tanks - Крутые Танки v1.261 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177351.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177283.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177211.jpg" />
 </div>
 
 
@@ -350,7 +454,7 @@ X-Plane Flight Simulator v11.4.6 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_177179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_177179.jpg" />
 </div>
 
 
@@ -376,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_177156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_177156.jpg" />
 </div>
 
 
@@ -402,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177034.jpg" />
 </div>
 
 
@@ -428,7 +532,7 @@ Relax Rain: sleeping sounds v6.7.3 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176683.jpg" />
 </div>
 
 
@@ -454,7 +558,7 @@ ColorNote - Блокнот заметки v4.4.6 Free + Mod by СМАРТОС [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176582.jpg" />
 </div>
 
 
@@ -480,7 +584,7 @@ RAR for Android v6.23 build 119 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176574.jpg" />
 </div>
 
 
@@ -506,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176482.jpg" />
 </div>
 
 
@@ -534,7 +638,7 @@ Lock Me Out v7.0.6 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176005.jpg" />
 </div>
 
 
@@ -560,7 +664,7 @@ Thenx v4.29 Mod by  Alex.Strannik [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175999.jpg" />
 </div>
 
 
@@ -571,110 +675,6 @@ Thenx v4.29 Mod by  Alex.Strannik [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:280A080A13B9F5D1AACE5141609EC42198DD2D42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665219   (175052) от 10.10.2023
-
-Simple Gallery v6.28.1 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простое приложение для просмотра изображений и видеозаписей. Отображаемые файлы могут быть отсортированы как по возрастанию, так и по убыванию даты, размера или имени. Фотографии можно масштабировать. В зависимости от размера экрана, медиафайлы располагаются в несколько столбцов, можно изменять число столбцов щипком двумя пальцами. Можно переименовывать, удалять, (   Читать дальше...   )Тип издания: Pro PaidРелиз состоялся: 09.10.2023Разработчик: Simple Mobile ToolsПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D8182F6DFDBEDC55CB649A2C17D2DE65EDF2759
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 776960   (174849) от 10.10.2023
-
-Лучшие карточные игры v3.1 Premium [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специально для Вас собраны в одном приложении самые популярные и интересные карточные игры для Андроид, те в которые мы играли когда то во дворе. Если Вы любите играть в карты, а покер и дурак уже наскучили, то этот сборник поможет разнообразить Ваш досуг. В этой игре собраны более десяти самых популярных карточных игр на любой вкус. Этот сборник не может Вам наскучить, (   Читать дальше...   )Тип издания: Пиратка (Full)Релиз состоялся: 09.01.2018Разработчик: AppscraftПоддерживаемая ОС: Android 4.0.3+Жанр: Board gameЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D34B0C3714E63BFB1A723EEF80555BAB0FDA73A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429819   (174844) от 08.12.2020
-
-Unmechanical v1.04 [En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174844.jpg" />
-</div>
-
-
-###  Подробнее
-
-Unmechanical — приключенческая игра, сочетающая в себе сложные головоломки, интересные уровни и увлекательную атмосферу. На пути к свободе вас ждет захватывающее путешествие по фантастическому миру плоти, камня и стали. Вам придется решить великое множество загадок, и, хотя в игру легко втянуться, чем дальше вы зайдете, тем сложнее станут головоломки.Тип издания: Пиратка (Мод)Релиз состоялся: 8 августа 2012Разработчик: Talava gamesПоддерживаемая ОС: Android 4.0 и вышеЖанр: Приключенческая игра, ГоловоломкаЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16035AE96D7C425B678EF64A433CE6708AD524DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668299   (174582) от 11.10.2023
-
-PictureThis - Plant Identification v3.66 Mod by youarefinished [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Распознавайте растения мгновенно. Быстро, точно и содержательно! Помимо описания растений и советов по уходу, наслаждайтесь красивыми фото растений со всего мира. PictureThis помогает более 70 млн пользователей определять, изучать и наслаждаться всеми видами растений: цветами, деревьями, суккулентами, кактусами и другими!Тип издания: GoldРелиз состоялся: 24.09.2023Разработчик: Glority LLCПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E1BAD2F69DF33E7DC30A1F7696C0C6BB99B330C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,137 @@
+###  Публикация: 1303199   (575540) от 19.05.2019
+
+Masamune-kun no Revenge | Masamune-kun's Revenge | Месть Масамунэ [2017, TV, 12 эп.] HDTVRip 720p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Название аниме довольно прозрачно отражает его суть: оно повествует о мести парня по имени Макабэ Масамунэ. А месть, как говорится, - это блюдо, которое подают холодным. Своё блюдо наш герой готовил и планировал в течение нескольких, а точнее, восьми лет! Но зачем же идеальному, накачанному красавчику, спортсмену, отличнику, любимчику всех девушек заниматься такими (   Читать дальше...   )Производство: Япония,Жанр: комедия, романтикаРежиссер: Минато МирайПеревод: русские субтитрыЯзык озвучки: Японский и русский
+Одноголосая, студияПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FC44AEE5EF4273082AD6A8E709ED74AC1810242
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 688541   (574778) от 12.08.2013
+
+Gekijouban Hunter x Hunter: Phantom Rouge / Охотник х Охотник (фильм первый) [2013, MV] BDRip 720p raw + rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в мире, где существует некая организация Охотников. Их лицензия дает им множество привилегий — возможность бесплатно путешествовать первыми классами различных видов транспорта, доступ к закрытой для других людей информации и право брать крупные суммы денег в банках. Из-за этого довольно много желающих стать Охотниками. Поэтому ежегодно проводится экзамен, на котором выбираются те немногие, кто действительно достоин быть Охотником.
+Действие фильма происходит после встречи героев с Куроро и его людьми. Леорио и Курапика ищут человека, о котором ходят слухи, как о выжившем из клана Курута. И вот, после встречи с ним, Леорио вызывает Гона и Киллуа в больницу к Курапике...Жанр: приключения, сёнэн, фэнтезиФормат: MKVПродолжительность: 97 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE9EE900CC636EC4231492D9AA08550BAAC4E404
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921941   (571688) от 27.07.2015
+
+Isshuukan Friends / One Week Friends / Друзья на неделю [2014, TV, 12 ep] BDRip Hi10p 720p Raw+Rus x6(ext)
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571688.jpg" />
+</div>
+
+
+###  Подробнее
+
+16-летний Юки Хасэ очень хотел познакомиться с Каори Фудзимией, которая в школе явно сторонилась остальных ребят. Все попытки разговорить симпатичную одноклассницу наталкивались на ответ, что она, мол, не может иметь друзей. Но Юки не отставал, и, в конце концов, узнал грустную истину: после несчастного случая Каори страдает амнезией – каждый понедельник она забывает (   Читать дальше...   )Жанр: комедия, романтика, повседневностьРежиссер: Ивасаки ТароПеревод: Русские субтитры от YakuSub Studio
+Переводчик/Редактор: Harushechka, Редактор/Оформление: Helge, Переводчик/Перевод песен: mbillikaСубтитры: ASS, Полные | Надписи (внешними файлами)Формат: MKVПродолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2E00B2FCB9EC450D03458F9021B164FDE1B29C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921949   (571214) от 27.07.2015
+
+Sasameki Koto / Whispered Words / Я тихо прошепчу [2009, TV, 13 ep] BDRip Hi10p 720p Raw+Rus x2(ext)
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571214.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сумика Мурасамэ – высокая, спортивная и уверенная в себе староста класса, вдобавок еще мастер каратэ. Усио Кадзама – невысокая, тихая и романтичная помощница библиотекаря. Со стороны они образцовые лучшие подруги с начальной школы, но есть одна проблема. Фантазерша Усио влюбляется в каждую встречную «миленькую» девушку и потом, подлечив разбитое сердечко, спокойно (   Читать дальше...   )Жанр: сёдзё-ай, комедия, школаРежиссер: Суганума ЭйдзиПеревод: Русские субтитры от Dreamers Team
+Переводчик: ГоСт, Редактор/Переводчик: Ryuji, Редактор/Оформление: AmarillisСубтитры: ASS, Полные | Надписи (внешними файлами)Формат: MKVПродолжительность: 13 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F28B44EDC1EDDEBEC2B0216F2AF1411A445B832E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 812042   (570878) от 14.08.2014
+
+Nobunagun / Пушка Нобунаги [2014, TV, 13] BDRip Hi10p 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жуткие космические монстры уничтожили немало миров и нацелились на матушку-Землю. В ответ неведомые благие силы нашли возможность воскресить способности выдающихся людей прошлого и призвать их на помощь в трудный час. Процесс этот спонтанный, всех выявленных носителей Е-генов находит тайная организация и после обучения ставит в строй. Силы возрожденных героев легко угадать по кодовому имени – Ньютон правит тяготением, Ганди ставит могучую защиту, а как сражается Джек Потрошитель – вы поняли. Только вот атака (   Читать дальше...   )Жанр: приключения, мехаРежиссер: Кондо НобухироПеревод: Firegorn-TeamФормат: MKV |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66E12DB9FC72C36D6D92DDAAD7437AA1D50E2B53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 837746   (567911) от 29.07.2015
 
 Trinity Seven / Святая семёрка [2014, TV, 12 ep] BDRip Hi10p 720p Raw+Rus x5(ext)
@@ -6,7 +140,7 @@ Trinity Seven / Святая семёрка [2014, TV, 12 ep] BDRip Hi10p 720p R
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567911.jpg" />
 </div>
 
 
@@ -33,7 +167,7 @@ Magi: The Kingdom of Magic / Маги (ТВ-2): Королевство Маги�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567788.jpg" />
 </div>
 
 
@@ -60,7 +194,7 @@ Kimi no Na wa | Your Name | Твоё имя [2016, Movie] BDRip 400p raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566563.jpg" />
 </div>
 
 
@@ -86,7 +220,7 @@ Soul Link | Связь душ [2006, TV, 12 эп.] DVDrip 480p raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562985.jpg" />
 </div>
 
 
@@ -112,7 +246,7 @@ Chirin no Suzu | Ringing Bell | Колокольчик Чирина [1978, Movie
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562983.jpg" />
 </div>
 
 
@@ -138,7 +272,7 @@ Yume de Aetara | If I See You in My Dreams | Увидеть тебя в моих
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562981.jpg" />
 </div>
 
 
@@ -164,7 +298,7 @@ Tonari no Totoro / My Neighbor Totoro / Мой сосед Тоторо [1988] BD
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562171.jpg" />
 </div>
 
 
@@ -190,7 +324,7 @@ Tetsuwan Birdy Decode: The Cipher | Birdy the Mighty Decode: The Cipher | Мог
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561159.jpg" />
 </div>
 
 
@@ -216,7 +350,7 @@ Tetsuwan Birdy Decode:02 | Birdy the Mighty: Decode | Могучая Берди 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561158.jpg" />
 </div>
 
 
@@ -242,7 +376,7 @@ Shin Kimagure Orange Road: Soshite, Ano Natsu no Hajimari | Новые капр�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561157.jpg" />
 </div>
 
 
@@ -268,7 +402,7 @@ Kidou Senshi Gundam 0080: Pocket no Naka no Sensou | Mobile Suit Gundam 0080: Wa
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561156.jpg" />
 </div>
 
 
@@ -295,7 +429,7 @@ Megazone 23 | Мегазона 23 [1985-1989, OVA, 4 эп.] DVDrip 480p raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561155.jpg" />
 </div>
 
 
@@ -321,7 +455,7 @@ Tetsuwan Birdy Decode | Birdy the Mighty Decode | Могучая Берди [Т�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561153.jpg" />
 </div>
 
 
@@ -347,7 +481,7 @@ Lost Universe / Затерянная Вселенная [1998, TV, 26 из 26] D
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561149.jpg" />
 </div>
 
 
@@ -373,7 +507,7 @@ Madan no Ou to Vanadis / Lord Marksman and Vanadis / Повелитель вол
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560711.jpg" />
 </div>
 
 
@@ -399,7 +533,7 @@ Harmagedon | Genma Taisen | Ghenma Wars | Great War with Genma | Хармаге�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557217.jpg" />
 </div>
 
 
@@ -425,7 +559,7 @@ Killing Bites [TV-1] | Смертельный укус [2018, TV, 12 из 12] BD
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556161.jpg" />
 </div>
 
 
@@ -453,7 +587,7 @@ Ginga Eiyuu Densetsu: Waga Yuku wa Hoshi no Taikai | Legend of Galactic Heroes (
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554283.jpg" />
 </div>
 
 
@@ -480,7 +614,7 @@ Ginga Eiyuu Densetsu Gaiden: Ougon no Tsubasa | Legend of Galactic Heroes (Movie
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554282.jpg" />
 </div>
 
 
@@ -507,7 +641,7 @@ Ginga Eiyuu Densetsu | Legend of the Galactic Heroes | Легенда о гер�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554279.jpg" />
 </div>
 
 
@@ -534,7 +668,7 @@ Ginga Eiyuu Densetsu: Aratanaru Tatakai no Overture | Legend of Galactic Heroes 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551699.jpg" />
 </div>
 
 
@@ -546,138 +680,6 @@ Ginga Eiyuu Densetsu: Aratanaru Tatakai no Overture | Legend of Galactic Heroes 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED080C4024EA34124A87685A895A3E13B491BAAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 815803   (551151) от 24.08.2014
-
-Noragami / Бездомный бог [2014, TV, 12 ep] BDRip Hi10p 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ято – бродячий японский бог в образе худощавого синеглазого юноши в спортивном костюме. В синтоизме сила божества определяется числом верующих, а у нашего героя - ни храма, ни жрецов, все пожертвования умещаются в бутылке из-под сакэ. Парень в шейном платке подрабатывает мастером на все руки, малюя объявления на стенах, но дела идут совсем худо. Даже языкастая Маю, много лет работающая синки – Священным оружием Ято – покинула хозяина. А без оружия младший бог не сильнее обычного смертного мага, приходится (вот (   Читать дальше...   )Жанр: романтика, комедия, драма, приключения, фэнтезиРежиссер: Тамура КотароПеревод: Jenia aka Zub & Мария ГостюхинаФормат: MKV |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDC87EFC3E3323B225094A2B64FEA7C6C1C3D4CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 816352   (549217) от 26.08.2014
-
-Maken-ki! Two / Макен-Ки! 2 [2014, TV, 10 ep] BDRip 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Такэру Ояма провел три года средней школы в мужском интернате и, конечно же, истосковался по прекрасному полу. Потому он без сомнений записался в академию «Солнечная» - тоже интернат, только женский, в котором лишь сейчас разрешили совместное обучение. Другим плюсом было то, что там училась на год старшая Харуко Амая, не только подруга детства, но и «сестра» по клубу карате, от которой Такэру ожидал совета и помощи в новом волнующем мире, где уже видел себя «первым парнем». Озабоченный понятными мыслями, главный (   Читать дальше...   )Жанр: комедия, этти, гарем, школа, фэнтезиРежиссер: Канэко ХиракуПеревод: VanTuzФормат: MKV |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1264EF2B5CF1443F6D5A961228BB7668455DCDFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 693299   (547159) от 28.08.2013
-
-Fairy Tail / Сказка о Хвосте феи [2009, TV, 175 из 175] DTV 720p raw + rus (Dajana & sad_kit)
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547159.jpg" />
-</div>
-
-
-###  Подробнее
-
-В королевстве Фиор признанные маги объединены в множество гильдий, но для молодой  волшебницы Люси Сердоболии существует только одна – легендарная Фейри Тейл, куда она стремится попасть с начала сознательной жизни. Эта гильдия славится как силой и способностями своих магов, так и их экстравагантностью и бесконечным соперничеством между собой. В итоге магическое лекарство (   Читать дальше...   )Жанр: приключения, фэнтези, комедия, сёнэнРежиссер: Исихира СиндзиСубтитры: RUS (язык субтитров: русский), полныеФормат: MKVПродолжительность: 175 эп. по 26 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4048C7F20416B855A7F17416215B4456BFD85030
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302494   (546643) от 24.06.2019
-
-Sanzoku no Musume Ronja / Ronja the Robber's Daughter / Ронья, дочь разбойника [2014, TV, 26 ep] BDrip 1080p Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546643.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды грозовой ночью на далеком Севере у разбойничьего атамана Маттиса и его подруги Ловисы родилась дочь, которую назвали Рони. Сидя у огня в главном зале древнего замка на горе, разбойники дружно славили своего вождя, не обращая внимания на крики нечисти в темном лесу. Даже молния, расколовшая замок, не испортила настроения - наконец-то в их веселой компании (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Миядзаки ГороЯзык озвучки: РусскийФормат: MKVПродолжительность: 26 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4768590811A0D7FCEB7495F630BA0C4C30BB9E5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 694617   (545353) от 30.08.2013
-
-Isekai no Seikishi Monogatari / Saint Knight Story in an Alternate World / Иной мир – легенда Святых Рыцарей [2009, OVA, 13 ep] BDrip 720p Hi10p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545353.jpg" />
-</div>
-
-
-###  Подробнее
-
-15-летний Кэнси Масаки таинственным образом попадает в фэнтезийный мир Геминар, правители которого ведут бесконечную войну с помощью Сэйкиси - огромных гуманоидных роботов, самого мощного оружия, оставшегося в их распоряжении. Геминар давно впал в увядание и декаданс, даже Сэйкиси, чье прозвание можно перевести как «священные доспехи» или «святые рыцари» - наследие давно ушедших времен. Однако бойцы, что могут ими управлять, немногочисленны, из них каждый на счету. Поэтому Кэнси, призванного против воли, жестокий министр Бабарун сразу приставил к делу, «промыв мозги» и послав убивать Лашару - юную принцессу собственной страны.
-
-Только Кэнси ведь из рода Масаки - благородных воинов, не раз спасавших саму Вселенную (особенно в приятной компании красивых и сильных духом девушек)! Стряхнув колдовские путы, он объединяет силы с умной, но язвительной принцессой, ее верной телохранительницей Кяйей, генералом Мезайей, эльфийкой Аурой, механиком Ваханли и, для разнообразия, единственным мужчиной в команде - советником (   Читать дальше...   )Жанр: комедия, приключения, фэнтези, мехаРежиссер: Ёсикава Кодзи / Yoshikawa Koji / 吉川浩司Продолжительность: 13 эп. по ~50 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D43B831073E121CB459474E7C81FC0DA118F938
 ```
 
 https://mybot314.ru/tekegram_catalog/

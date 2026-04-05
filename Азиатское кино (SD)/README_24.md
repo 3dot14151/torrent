@@ -1,3 +1,56 @@
+###  Публикация: 1399264   (733804) от 30.07.2020
+
+Твоя девушка (Моя командирша) / Neoui yeojachingu / My Bossy Girl (2019) WEBRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды, Хви Су вместе с друзьями из клуба по робототехники участвует в университетском фестивале. Он чудаковатый ботаник, поэтому девушки у него никогда не было. И вот во время фестиваля на парня, в прямом смысле этого слова, неизвестно откуда сваливается красавица по имени Хе Джин. Она невероятно и классная. Хви Су влюбляется в нее, но есть одна проблема - она (   Читать дальше...   )Производство: Южная Корея, Storm Pictures KoreaЖанр: Мелодрама, комедия, спортРежиссер: Ли Джан-хиАктеры: Ли Элия, Чи Иль-джу, Ким Ги-ду, Ко Гон-хан, Хо Джон-мин, Ли Джини, Рю Хе-рин, Со Джон-ён, Ли Хан-виПеревод: Двуголосый любительский (АрхиAsia)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43064A310A7BC4DAC0FD0CE8E401567FEC6FC893
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 406365   (733153) от 24.05.2014
+
+Райский поцелуй / Paradise Kiss / Paradaisu kisu (2011) DVDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733153.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Есть такое место… Туда ведёт небольшая лестница; там витает запах китайских конфет. За дверью пронзительно-розового цвета слышны звуки сумасшедшей музыки. Это место похоже на подвал. Они называют его своим ателье.»
+Всю свою жизнь — от раннего младенчества до нынешних 18-ти — Юкари была «хорошей девочкой». Она прекрасно учится. Она готовится поступить в престижный (   Читать дальше...   )Производство: Япония / C&I Entertainment, Dimension Blue, Fox International Productions (FIP)Жанр: Драма, Мелодрама, КомедияРежиссер: Такехико СиндзоАктеры: Кейко Китагава, Осаму Мукаи, Сюндзи Игараси, Кэнто Каку, Аими Икэмацу, Нацуки Като, Фумино Кимура, Омаса Ая, Хезер Пенс, Тони ВиллеккоПеревод: Двухголосый закадровый, любительскийПродолжительность: 01:54:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D210FDBBFF2BBF5FBC6BE1BDF02A3DD7543ECE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1529223   (733084) от 05.02.2022
 
 Дверь в лето / Natsu e no Tobira: Kimi no Iru Mirai e / The Door Into Summer (2021) BDRip [H.264] [DVO]
@@ -6,7 +59,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733084.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732908.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732700.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732674.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732483.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731866.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731758.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730658.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728240.jpg" />
 </div>
 
 
@@ -241,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728230.jpg" />
 </div>
 
 
@@ -267,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727728.jpg" />
 </div>
 
 
@@ -293,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727276.jpg" />
 </div>
 
 
@@ -319,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726893.jpg" />
 </div>
 
 
@@ -345,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726841.jpg" />
 </div>
 
 
@@ -372,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725351.jpg" />
 </div>
 
 
@@ -399,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725069.jpg" />
 </div>
 
 
@@ -425,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724569.jpg" />
 </div>
 
 
@@ -451,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722603.jpg" />
 </div>
 
 
@@ -477,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720279.jpg" />
 </div>
 
 
@@ -503,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720165.jpg" />
 </div>
 
 
@@ -529,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719719.jpg" />
 </div>
 
 
@@ -555,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_717680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_717680.jpg" />
 </div>
 
 
@@ -581,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716993.jpg" />
 </div>
 
 
@@ -607,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716853.jpg" />
 </div>
 
 
@@ -618,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F95AA9DEC2156F4441F17916D234965234338E86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532423   (714731) от 19.02.2022
-
-Девушки, танцующие хулу / Hura garu / Hula Girls (2006) BDRip [H.264] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714731.jpg" />
-</div>
-
-
-###  Подробнее
-
-1965, Япoния пepexoдит c yгля нa нeфть. Углeдoбывaющaя пpoмышлeннocть в yпaдкe, шaxты пoвceмecтнo зaкpывaютcя, ocтaвляя тыcячи людeй бeзpaбoтными. B oднoм из ceвepныx шaxтepcкиx гopoдoв Япoнии былo peшeнo, иcпoльзoвaв pecypcы гopячиx иcтoчникoв, пocтpoить гaвaйcкий цeнтp, кoтopый бы oбecпeчил нoвыe paбoчиe мecтa для мecтнoгo нaceлeния и пpивлeк тypиcтoв c paзныx (   Читать дальше...   )Производство: Япония, Black Diamonds, Cine Quanon, Happinet, Japan Digital Contents Trust (JDCT), Stardust Pictures (SDP)Жанр: Драма, комедияРежиссер: Ли Сан-ильАктеры: Ясуко Мацуюки, Эцуси Тоёкава, Ю Аои, Сидзуё Ямадзаки, Сёко Икэдзу, Эри Токунага, Койо Мияке, Сусуму Тэрадзима, Масару Сига, Хироси ОкотиПеревод: Двуголосый любительский (АрхиAsia)Субтитры: Русские, английскиеПродолжительность: 02:00:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEC6797750017F58D76614760511C1EC6D3DD1F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532460   (714643) от 19.02.2022
-
-Девушки, танцующие хулу / Hura garu / Hula Girls (2006) BDRip [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714643.jpg" />
-</div>
-
-
-###  Подробнее
-
-1965, Япoния пepexoдит c yгля нa нeфть. Углeдoбывaющaя пpoмышлeннocть в yпaдкe, шaxты пoвceмecтнo зaкpывaютcя, ocтaвляя тыcячи людeй бeзpaбoтными. B oднoм из ceвepныx шaxтepcкиx гopoдoв Япoнии былo peшeнo, иcпoльзoвaв pecypcы гopячиx иcтoчникoв, пocтpoить гaвaйcкий цeнтp, кoтopый бы oбecпeчил нoвыe paбoчиe мecтa для мecтнoгo нaceлeния и пpивлeк тypиcтoв c paзныx (   Читать дальше...   )Производство: Япония, Black Diamonds, Cine Quanon, Happinet, Japan Digital Contents Trust (JDCT), Stardust Pictures (SDP)Жанр: Драма, комедияРежиссер: Ли Сан-ильАктеры: Ясуко Мацуюки, Эцуси Тоёкава, Ю Аои, Сидзуё Ямадзаки, Сёко Икэдзу, Эри Токунага, Койо Мияке, Сусуму Тэрадзима, Масару Сига, Хироси ОкотиПеревод: Двуголосый любительский (АрхиAsia)Субтитры: Русские, английские - отдельными файламиПродолжительность: 02:00:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8EEDDE5AFC9852D770BCAEC7847F07B2B1045C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

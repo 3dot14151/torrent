@@ -1,3 +1,87 @@
+###  Публикация: 985272   (932334) от 13.02.2016
+
+Е. П. Левитан | Эволюционирующая Вселенная: Книга для учащихся 10-11 классов (1993) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932334.jpg" />
+</div>
+
+
+###  Подробнее
+
+Е. П. Левитан – доктор педагогических наук, академик Российской академии естественных наук, Российской академии космонавтики им. К. Э. Циолковского и Международной академии информатизации; Заслуженный работник культуры России и Академического книгоиздания. В доступной для учащихся форме в книге рассказано о развитии всех астрономических объектов и систем небесных (   Читать дальше...   )Жанр: История, науковедение, естествознание, астрономия, физикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDA1F5DBB2B183292871E3F1E729817F4D79ADE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985545   (932308) от 13.02.2016
+
+Н. А. Дубовой, В. Н. Пенькова (ред.) | Гаити, Доминиканская Республика. Справочная карта (1986) [JPG, PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932308.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данное издание входят:
+1) Подробная справочная карта двух государств — Доминиканской Республики с административным делением и Гаити без административного деления (масштаб 1:1 500 000).
+2) Указатель географических названий в алфавитном порядке.
+3) Обложка с выходными данными.(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F408984EF6CC9A3492F17449086AB926B5A51F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986054   (930713) от 14.02.2016
+
+Л. Н. Колосова (ред.) | Гана. Общегеографическая карта (1993) [JPG, PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930713.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данное издание входят:
+1) Подробная справочная карта Ганы с административным делением (масштаб 1:1 250 000).
+2) Указатель географических названий в алфавитном порядке.
+3) Обложка с выходными данными.(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B60C9949F51CE385FCB57ACEE44D11A17AE2E6C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 986172   (930553) от 14.02.2016
 
 Л. Н. Колосова (ред.) | Гватемала, Белиз, Сальвадор, Гондурас, Никарагуа. Справочная карта (1987) [JPG, PDF]
@@ -6,7 +90,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930553.jpg" />
 </div>
 
 
@@ -35,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929270.jpg" />
 </div>
 
 
@@ -61,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929174.jpg" />
 </div>
 
 
@@ -87,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929166.jpg" />
 </div>
 
 
@@ -113,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929162.jpg" />
 </div>
 
 
@@ -141,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929034.jpg" />
 </div>
 
 
@@ -169,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929026.jpg" />
 </div>
 
 
@@ -198,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928895.jpg" />
 </div>
 
 
@@ -226,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927675.jpg" />
 </div>
 
 
@@ -252,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927633.jpg" />
 </div>
 
 
@@ -281,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927630.jpg" />
 </div>
 
 
@@ -310,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926618.jpg" />
 </div>
 
 
@@ -336,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924588.jpg" />
 </div>
 
 
@@ -362,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924582.jpg" />
 </div>
 
 
@@ -390,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924431.jpg" />
 </div>
 
 
@@ -416,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924291.jpg" />
 </div>
 
 
@@ -445,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924252.jpg" />
 </div>
 
 
@@ -474,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924100.jpg" />
 </div>
 
 
@@ -502,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922565.jpg" />
 </div>
 
 
@@ -531,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922442.jpg" />
 </div>
 
 
@@ -560,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922379.jpg" />
 </div>
 
 
@@ -589,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921904.jpg" />
 </div>
 
 
@@ -615,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921063.jpg" />
 </div>
 
 
@@ -628,85 +712,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CA84014A13BB12151619F83CD3A5A661EAB9341
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 288960   (920326) от 30.01.2011
-
-Г. И. Иванов | Краткий курс географии Союза Советских Социалистических Республик [1928] [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие для Советской Единой Трудовой Школы.
-Допущено Научно-педагогической секцией Государственного ученого совета.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C3FFDA2918F1DA91310C1454D4ABC93F0C16C72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096915   (917054) от 25.01.2017
-
-Уайлдер Пенфилд | Мозг. Тайны разума (2016) [FB2]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уайлдер Пенфилд (1891–1976) – один из наиболее оригинальных нейрохирургов своего времени, определивший методологию этого направления медицины на многие годы. Врач, которого современники называли даже «величайшим из всех канадцев», посвятил годы изучению текущих в мозге процессов – в попытке объяснить феномен человеческого сознания, человеческой души. Размышления (   Читать дальше...   )Жанр: Биология, Зарубежная образовательная литература, Прочая образовательная литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AF682C3B71481EC4F896AABD0F58A09F2CB7436
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098094   (912043) от 28.01.2017
-
-Борис Токин | Целебные яды растений. Повесть о фитонцидах (1974) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912043.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассказывается о том, что такое фитонциды, как умирают микроорганизмы под влиянием фитонцидов, о взаимоотношениях растений и животных, о болезнях растений, о взаимных влияниях растений в природе, о том, как использовать фитонциды в сельском хозяйстве. Даны некоторые подробности о фитонцидах, об их использовании в медицине и ветеринарии, а также в пищевой (   Читать дальше...   )Жанр: БотаникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A04757B1578F86BCF5F6EBA88CC39DB72DF3C80
 ```
 
 https://mybot314.ru/tekegram_catalog/

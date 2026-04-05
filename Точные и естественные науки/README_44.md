@@ -1,3 +1,83 @@
+###  Публикация: 1787855   (23330) от 27.03.2025
+
+Р. Зуланке, А.Л. Онищик | Алгебра и геометрия [3 книги] (2004 - 2020) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трёхтомное пособие по алгебре и геометрии для математиков и физиков — студентов, аспирантов, преподавателей и научных работников.Жанр: МатематикаИздательство: МЦНМОФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B01044F495CDE0843BBB1781A8C1793D86E56DEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787833   (23324) от 27.03.2025
+
+А.В. Омельченко | Теория графов (2018) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23324.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основу данного учебника легли материалы семестрового курса лекций, читающегося автором в течение нескольких лет студентам первых курсов бакалавриата Санкт-Петербургского Академического университета. В учебник включены все основные разделы современной теории графов — деревья, циклы, связность в графах, паросочетания, раскраски графов, планарные графы. В конце каждого (   Читать дальше...   )Жанр: МатематикаИздательство: МЦНМОФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C363FCA2B8EFEF61EBAB51598E721D46D8C03A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788038   (23233) от 28.03.2025
+
+Г.С. Хакимзянов, С.Г. Черный | Методы вычислений [4 книги] (2003 - 2014) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие соответствует программе курса лекций «Методы вычислений», который читается на механико-математическом факультете НГУ.
+
+В его первой части излагаются основы численных методов решения задачи Коши для обыкновенных дифференциальных уравнений, формулируются задачи для семинарских занятий, приводятся примеры контрольных работ и заданий для практических (   Читать дальше...   )Жанр: МатематикаИздательство: Издательство Новосибирского Государственного УниверситетаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:019BAA96C7FCEADA7EA1917660C251BDAE5EB8E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1787931   (23210) от 28.03.2025
 
 В.В. Прасолов, Ю.П. Соловьев | Эллиптические функции и алгебраические уравнения (1997) [DJVU]
@@ -6,7 +86,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23210.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22995.jpg" />
 </div>
 
 
@@ -59,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22603.jpg" />
 </div>
 
 
@@ -85,7 +165,7 @@ F. Klein | Elementary Mathematics from a Higher Standpoint [3 книги] (2016)
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22484.jpg" />
 </div>
 
 
@@ -111,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22049.jpg" />
 </div>
 
 
@@ -137,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21957.jpg" />
 </div>
 
 
@@ -164,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21935.jpg" />
 </div>
 
 
@@ -190,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21933.jpg" />
 </div>
 
 
@@ -216,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21355.jpg" />
 </div>
 
 
@@ -244,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20817.jpg" />
 </div>
 
 
@@ -270,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20783.jpg" />
 </div>
 
 
@@ -296,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19808.jpg" />
 </div>
 
 
@@ -322,7 +402,7 @@ A.S. Posamentier, R. Geretschlager | Geometric Gems: An Appreciation For Geometr
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19790.jpg" />
 </div>
 
 
@@ -348,7 +428,7 @@ F.J. Rivas | Process Control with MatLAB/Simulink: A Guide for Beginners (2025) 
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19667.jpg" />
 </div>
 
 
@@ -374,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18968.jpg" />
 </div>
 
 
@@ -400,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18523.jpg" />
 </div>
 
 
@@ -426,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18489.jpg" />
 </div>
 
 
@@ -455,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18327.jpg" />
 </div>
 
 
@@ -481,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17410.jpg" />
 </div>
 
 
@@ -507,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17377.jpg" />
 </div>
 
 
@@ -533,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17311.jpg" />
 </div>
 
 
@@ -559,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17129.jpg" />
 </div>
 
 
@@ -586,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17125.jpg" />
 </div>
 
 
@@ -598,86 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:627D86D70846A76C58D6C692340325B3290BDBD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800912   (15377) от 07.06.2025
-
-В.П. Пикулин, С.И. Похожаев | Практический курс по уравнениям математической физики (2004) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой изложение (демонстрацию) основных методов решения некоторых задач классической математической физики. Рассматриваются метод Фурье, метод конформных отображений, метод функции Грина для уравнений Лапласа и Пуассона на плоскости и в пространстве, способы решения краевых задач для уравнений Гельмгольца, метод возмущений, методы интегральных (   Читать дальше...   )Жанр: МатематикаИздательство: МЦНМОФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72CD98C910E37DB41740B28A23C777268FF44083
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803320   (13773) от 22.06.2025
-
-Ф.Х. Клейн | Элементарная математика с точки зрения высшей [2 тома] (1987) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга выдающегося немецкого математика Феликса Клейна занимает особое место в популярной литературе по математике. Она в доходчивой и увлекательной форме рассказывает о тонких математических понятиях, о методике преподавания математики в школе (средней и высшей), об интересных фактах из истории науки, о собственных взглядах автора на математику и ее роль в прикладных (   Читать дальше...   )Жанр: МатематикаИздательство: НаукаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E68304157B296D26D6CE24B6B9DF28B03F5B127B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800771   (13740) от 23.06.2025
-
-Книжная серия | Библиотечка физико-математической школы [37 книг из 50] (1964 - 1990) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книги серии "Библиотечка физико-математической школы", создававшейся по инициативе и при участии одного из крупнейших математиков XX века академика И.М. Гельфанда (1913-2009), предназначались для учащихся Всесоюзной заочной математической школы, но круг их читателей оказался гораздо шире.
-
-Параллельно с серией книг по математике была выпущена серия книг (   Читать дальше...   )Жанр: МатематикаИздательство: Наука, Вища школаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEFAE270F51A29DCC28822024E1877881157C418
 ```
 
 https://mybot314.ru/tekegram_catalog/

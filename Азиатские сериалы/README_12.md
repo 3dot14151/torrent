@@ -1,3 +1,29 @@
+###  Публикация: 1807611   (65261) от 19.07.2025
+
+Такой близкий предатель / Сомнение / Yitorok Chinmilhan Baeshinja / Doubt / The Intimate Traitor (2024) WEBRip (сезон 1, серии 1-10 из 10) Тайм Медиа Групп
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65261.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный профайлер Чан Тэ-су — живая легенда в мире криминалистики и пример безупречной службы. Но его вселенная рушится, когда в ходе расследования жестокого убийства он обнаруживает, что к делу может быть причастна его единственная дочь Ха-бин. Сыщик, привыкший доверять фактам, впервые сталкивается с дилеммой, ведь разум бессилен, когда в дело вступает отцовская (   Читать дальше...   )Производство: Южная Корея / MBC-TV Korea, AscendioЖанр: триллер, детектив, криминалРежиссер: Сон Ён-хваАктеры: Хан Сок-кю, Чхэ Вон-бин, Хан Е-ри, О Ён-су, Но Джэ-вон, Кён Хо Юн, Ким Джон-джин, Ю И-тхэ, Ли Щин-ги, Хан Су-аПеревод: Многоголосый профессиональный (Тайм Медиа Групп)Язык озвучки: Русский, КорейскийСубтитры: отсутствуютПродолжительность: ~01:10:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02FFFE9B391F89B745376D88F2E3FB09C5E5513C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705377   (63610) от 08.03.2024
 
 Чингисхан / Cheng Ji Si Han / Genghis Khan (2004) DVDRip [H.264] (сезон 1, серии 1-30 из 30)
@@ -6,7 +32,7 @@
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63610.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60624.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60386.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60182.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59786.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58003.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57642.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56093.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56016.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56013.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55883.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55772.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54753.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54633.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54435.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54386.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54296.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53462.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53247.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53162.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52448.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52418.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51160.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50538.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50531.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEF816644EFCD613F841CB31E0DA78882C3460C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240167   (50516) от 10.07.2024
-
-Знакомая жена / Жена, которую я знаю / Aneun Waipeu / Familiar Wife / Wife That I Know / Knowing Wife (2018) HDTVRip [H.264/720p-LQ] (сезон 1, серии 1-16 из 16) STEPonee [PR]
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из-за странного происшествия жизнь обычного банковского служащего и его жены меняется неожиданным образом.Производство: Южная Корея / Chorokbaem Media, Studio DragonЖанр: мелодрама, фэнтезиРежиссер: Ли Сан-ёпАктеры: Чи Сон, Хан Джи-мин, Чан Сын-джо, Чха Хаг-ён, Ким Со-ра, Ли Ю-джин, Кан Хан-на, Сон Джон-хак, Пак Вон-сан, Пак Хи-бон и др.Перевод: Двуголосый любительский - STEPoneeЯзык озвучки: русскийПродолжительность: ~01:15:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4330FBF857B23A2AFDA1936500A532C0BDBD22FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

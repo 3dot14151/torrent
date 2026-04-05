@@ -1,29 +1,3 @@
-###  Публикация: 1628452   (199381) от 23.04.2023
-
-Б.В. Петровский (ред.) | Популярная медицинская энциклопедия (1987) [DJVU, PDF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярная медицинская энциклопедия содержит 982 статьи, посвященные вопросам укрепления и сохранения здоровья, предупреждению болезней человека, уходу за детьми и рациональному физическому их воспитанию, личной и половой гигиене, уходу за больными, первой помощи при отравлениях и угрожающих жизни состояниях и др. В энциклопедии публикуются также статьи по избранным (   Читать дальше...   )Жанр: энциклопедия, медицина, справочное изданиеФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A070F3A1C063E19E3772D68FBFF2A16AC3C38CA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1632060   (198760) от 08.05.2023
 
 Анна Махова | БАДы и витамины. Как восполнить дефицит и избежать передозировки (2023) [FB2]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198760.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196898.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195985.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195616.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195501.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193609.jpg" />
 </div>
 
 
@@ -191,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193543.jpg" />
 </div>
 
 
@@ -219,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193389.jpg" />
 </div>
 
 
@@ -246,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190183.jpg" />
 </div>
 
 
@@ -273,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190180.jpg" />
 </div>
 
 
@@ -299,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189542.jpg" />
 </div>
 
 
@@ -325,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189538.jpg" />
 </div>
 
 
@@ -352,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188958.jpg" />
 </div>
 
 
@@ -378,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187237.jpg" />
 </div>
 
 
@@ -405,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_185999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_185999.jpg" />
 </div>
 
 
@@ -431,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185096.jpg" />
 </div>
 
 
@@ -457,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184872.jpg" />
 </div>
 
 
@@ -483,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182225.jpg" />
 </div>
 
 
@@ -510,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182015.jpg" />
 </div>
 
 
@@ -536,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181755.jpg" />
 </div>
 
 
@@ -562,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180781.jpg" />
 </div>
 
 
@@ -588,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180260.jpg" />
 </div>
 
 
@@ -615,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178977.jpg" />
 </div>
 
 
@@ -641,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177250.jpg" />
 </div>
 
 
@@ -668,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176957.jpg" />
 </div>
 
 
@@ -682,6 +656,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3C0DBF0A630C0517B72E604C6054BD4F5371ED1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429530   (176608) от 06.12.2020
+
+Григорий Нарек | Тридцать дней в красной зоне. Заметки врача (2020) [EPUB]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пандемия COVID-19 застала врасплох весь мир. Мы попали в заложники к непонятному вирусу, не готовые к такому развитию событий. На передовой всеобщего хаоса оказались врачи, которые на ходу вырабатывали методы лечения и помогали дышать заболевшим. За героическим образом врача, однако, стоит обычный человек, думающий о семье, любящий пошутить и при этом испытывающий (   Читать дальше...   )Жанр: Медицина и здоровье, Истории из жизниФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6C2715DC5A4B3AA5C141E49B9DD61CCFB945B56
 ```
 
 https://mybot314.ru/tekegram_catalog/

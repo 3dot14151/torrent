@@ -1,3 +1,55 @@
+###  Публикация: 1286611   (710812) от 03.03.2019
+
+С.А. Кудряков и др. | Основы компьютерного моделирования радиоэлектронных систем и сигналов (2018) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее учебное пособие представляет собой сборник Примеров моделирования радиоэлектронных систем и сигналов. Описание каждого примера моделирования помимо задания для практического выполнения содержит краткую теоретическую справку по соответствующей теме и задачи моделирования в виртуальной среде на основе программ MULTISIM, MATLAB, SIMULINK и MMANA GAL. Рекомендуется (   Читать дальше...   )Жанр: Компьютерная литература, радиотехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:878FDCCB07175AFC2D4CE32A4488FCFA153969B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532858   (710708) от 21.02.2022
+
+Я.С. Бугров, С.М. Никольский | Высшая математика. Задачник. Учебное пособие для вузов (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие представляет собой репринт задачника известных математиков, к сожалению, уже ушедших из жизни. Однако их труды сохраняют актуальность и остаются востребованными и в настоящее время. Задачник дополняет учебники этих же авторов по различным разделам высшей математики, также переизданные в последнее время, и способствует успешному усвоению теоретического (   Читать дальше...   )Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C51BCFDF0D90DF11AB1B995A0DC785F24B5DBF32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1532829   (710579) от 21.02.2022
 
 О.С. Вадутов | Электроника. Математические основы обработки сигналов (2022) [PDF]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710579.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710422.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710306.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709944.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709942.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709941.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709939.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709926.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709925.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709840.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709724.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709718.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709431.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709427.jpg" />
 </div>
 
 
@@ -379,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708976.jpg" />
 </div>
 
 
@@ -406,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708635.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708492.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707840.jpg" />
 </div>
 
 
@@ -485,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706803.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706795.jpg" />
 </div>
 
 
@@ -538,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706705.jpg" />
 </div>
 
 
@@ -565,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706608.jpg" />
 </div>
 
 
@@ -591,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706400.jpg" />
 </div>
 
 
@@ -617,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704948.jpg" />
 </div>
 
 
@@ -629,59 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1807AD6B39F02DAE32D693E2C3CAD6020F85255A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131598   (704931) от 07.05.2017
-
-Б.Ю. Васильев | Электропривод. Энергетика электропривода (2015) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дается анализ нормативной базы в области энергосбережении. Показана роль электроприводов в энергосбережении. Рассмотрены вопросы практического энергетического обследования электроприводов и обоснования технико-экономической, энергетической и эксплуатационной эффективности регулируемых электроприводов.
-  Рассмотрены энергетические характеристики электроприводов с асинхронными (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:477DD3AC41AF14CF7604A9A8B0DC8AFB27F2082D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131941   (704815) от 07.05.2017
-
-А.Д. Григорьев и др. | Микроволновая электроника (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассматриваются основные типы и разновидности микроволновых приборов, их принцип действия, теория, характеристики и параметры, конструктивные особенности. Подробно изложены механизмы взаимодействия электромагнитного поля с заряженными частицами, законы их движения в различных средах. Физические основы вакуумной и твердотельной микроволновой электроники рассмотрены (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14D72F2ACEB042A148168AA07030FDCF5E8A0E65
 ```
 
 https://mybot314.ru/tekegram_catalog/

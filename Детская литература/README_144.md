@@ -1,29 +1,3 @@
-###  Публикация: 959036   (319259) от 23.11.2015
-
-Книжная серия | Библиотека юного пионера [15 книг] (1925-1926) [FB2, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стихи и рассказы для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: FB2, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4884B7571E3B7CBC81C559F4BC1A82C2E77702BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259548   (319177) от 04.11.2018
 
 Н. Плахово | Волшебница весна (1893) [PDF]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319177.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319169.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319161.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318688.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318547.jpg" />
 </div>
 
 
@@ -165,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317331.jpg" />
 </div>
 
 
@@ -192,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317313.jpg" />
 </div>
 
 
@@ -218,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317312.jpg" />
 </div>
 
 
@@ -246,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317299.jpg" />
 </div>
 
 
@@ -272,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317205.jpg" />
 </div>
 
 
@@ -300,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317150.jpg" />
 </div>
 
 
@@ -326,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317043.jpg" />
 </div>
 
 
@@ -353,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316918.jpg" />
 </div>
 
 
@@ -380,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316621.jpg" />
 </div>
 
 
@@ -407,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314844.jpg" />
 </div>
 
 
@@ -435,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314834.jpg" />
 </div>
 
 
@@ -461,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314830.jpg" />
 </div>
 
 
@@ -489,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314580.jpg" />
 </div>
 
 
@@ -515,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314450.jpg" />
 </div>
 
 
@@ -541,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314231.jpg" />
 </div>
 
 
@@ -569,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312536.jpg" />
 </div>
 
 
@@ -595,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312535.jpg" />
 </div>
 
 
@@ -625,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312372.jpg" />
 </div>
 
 
@@ -651,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312364.jpg" />
 </div>
 
 
@@ -677,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312363.jpg" />
 </div>
 
 
@@ -688,6 +662,37 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D4681019EFC8323083D6AFCDE0B4BBCD3757950
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 729287   (312362) от 01.12.2013
+
+А. Эстерль | Золотые перья Дракона (2011) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312362.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Отправляйся в Дремучий лес к Дракону да вырви у него из крыла три золотых пера.
+Принесешь перья, тогда и приходи свататься", – с этими словами богатый Трактирщик
+послал бедняка сына Дровосека в Дремучий лес к замку кровожадного Дракона».
+Так начинается его удивительное путешествие. Так начинается наше знакомство с волшебными
+художественными образами, созданными выдающимися художниками-иллюстраторами
+современности – Ольгой и Андреем Дугиными.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBA0BF87E7E8C0C6F159EA539C40549106B6EF3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

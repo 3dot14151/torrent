@@ -1,3 +1,61 @@
+###  Публикация: 1853242   (1056506) от 12.02.2026
+
+VA - Winter Hits Dance Selection 2026 (2026) [MP3|320 Kbps] <Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FaraoN, Nowakowski & Akos Sax - Hurts 04:27
+02. Alex Denver & Nowakowski - Call me (Kristianov-remix) 04:02
+03. FaraoN & Nowakowski - Crush 03:40
+04. FaraoN - Remind You 04:36(   Читать дальше...   )Жанр: Deep House, Dance, ClubПродолжительность: 00:48:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE8DD36341338AB6F595FC35C6A2C59B73436ADE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853124   (1056442) от 11.02.2026
+
+VA - Winter Dance Hits 2026 (2026) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Umut Torun - Rose 03:08
+02. Kanette - Gates 03:17
+03. Cristian Ferrer - Careless Whisper (Radio Edit) 03:21
+04. Decibel Dreams - Heaven 03:18(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:40:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C5A355FE70ADF635BFF0BA4935023AD8AC469A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1853021   (1056440) от 11.02.2026
 
 VA - DEEP Reflections: Winter Edition 2026 (2026) [MP3|320 Kbps] <Deep House, Organic House>
@@ -6,7 +64,7 @@ VA - DEEP Reflections: Winter Edition 2026 (2026) [MP3|320 Kbps] <Deep House, Or
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056440.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Micro Sound Spring Session 2026 (2026) [MP3|320 Kbps] <House, Deep House, D
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055263.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Dance Charge Of The Night (2026) [MP3|320 Kbps] <Club, Dance, House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054208.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Best Of EDM Party 2026 (2026) [MP3|320 Kbps] <Dance, Club, House, Electroni
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053628.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Planeta Mix Hits 2026: Winter Edition (2025) [MP3|320 Kbps] <Dance, Club, H
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053626.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Deep House Diamonds (2026) [MP3|320 Kbps] <Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053329.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Black Hole House Music 01-26 (2026) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052663.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Christmas Deep House: Best for the Year 2026 (2025) [MP3|320 Kbps] <Deep Ho
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051100.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Summer Melody - Best of 2025 (2025) [MP3|320 Kbps] <Progressive House, Melo
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051084.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Progressive Vibes Light 2025 (2025) [MP3|320 Kbps] <Progressive House, Melo
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050598.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Deepalma Presents: Most Loved 2025 (2025) [MP3|320 Kbps] <Organic House, De
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050417.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - 25 Years Of Anjuna Mixed By James Grant (2025) [MP3|320 Kbps] <Progressive 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050412.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Happy New Year Party 2026 (2025) [MP3|320 Kbps] <Dance, Club, House, Electr
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050325.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Armada Music Year Mix 2025 (2025) Extended Versions [MP3|320 Kbps] <Dance, 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049225.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Anjunadeep The Yearbook 2025 (2025) [MP3|320 Kbps] <Progressive House, Melo
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048930.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ VA - 100% Ibiza (The Late Night Club Closings 2025) (2025) [MP3|320 Kbps] <Progr
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048155.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ VA - Black Hole House Music 12-25 (2025) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048089.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ VA - YHV Melodic Progressive Sampler 2025 (2025) [MP3|320 Kbps] <Progressive Hou
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047512.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ VA - Deep House Night Drive, Vol. 2 (2025) [MP3|320 Kbps] <House, Deep House, Da
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047472.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ VA - 25 Years Of Anjuna Mixed By Jody Wisternoff (2025) [MP3|320 Kbps] <Deep Hou
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047193.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ VA - Best of Brisbeats, Vol. 1 (2025) [MP3|320 Kbps] <Progressive House, Melodic
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047176.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ VA - Deep House Night Drive, Vol. 1 (2025) [MP3|320 Kbps] <House, Deep House, Da
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1047056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1047056.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ VA - Deep Reflections: Winter Edition 2025 (2025) [MP3|320 Kbps] <Deep House, Or
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046874.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ VA - Best Of Winter (2022) [MP3|320 Kbps] <Tech House, Deep House, Progressive>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045943.jpg" />
 </div>
 
 
@@ -684,64 +742,6 @@ VA - Best Of Winter (2022) [MP3|320 Kbps] <Tech House, Deep House, Progressive>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCDC08A859BDF3D64D54D6A6A698BA05303820A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603021   (1045849) от 08.01.2023
-
-VA - Ibiza Session 2023 - For DJs Only [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam One - E Samba (Club Mix 2022) (6:08)
-02. Ruli feat. Iva Rii - Revolution (Extended Mix) (5:58)
-03. Quinten 909 & Silver Disco - Call Me (Original Mix) (5:26)
-04. Too Max - Adrenaline (Piano House Extended Mix) (4:07)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:13:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2254F07FA41566C036A79CC7DE719BCA80CC107
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603361   (1045675) от 10.01.2023
-
-VA - Street Workout Electro Hits 2022 Workout Compilation 128 Bpm (2023) [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ticli - Generation (Fitness Version 128 Bpm) (4:35)
-02. Maurizio Gubellini - Moscow Trip (Fitness Version 128 Bpm) (6:39)
-03. Marco Pintavalle - I Just Died In Your Arms (Fitness Version 128 Bpm) (4:21)
-04. Karim Razak - Disco Gitano (Fitness Version 128 Bpm) (5:45)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:13:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:858A7A2A387D2700D2F9646C18CDA0DB4B8C057E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1337901   (271656) от 13.11.2019
-
-Alexander Taylor - Animal Among Us / Животное среди нас (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome To Merrymaker (01:19)
-02. Better Days Past (01:57)
-03. The Merrymaker Murderer (01:17)
-04. Time, Money, Resources, and Masks (03:10)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:31:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71FE62A37521EAA41AC518433D793050DF0727A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338176   (270621) от 14.11.2019
 
 Thomas Wander, Harald Kloser - Midway / Мидуэй (Original Motion Picture Complete Score) (2019) [MP3|320 Kbps] <Soundtrack>
@@ -35,7 +6,7 @@ Thomas Wander, Harald Kloser - Midway / Мидуэй (Original Motion Picture Co
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270621.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Thomas Wander, Harald Kloser - Midway / Мидуэй (Original Motion Picture So
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270600.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Brian Tyler, VA - Charlie's Angels / Ангелы Чарли (Original Score + O
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270549.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Jay & Silent Bob Reboot / Джей и Молчаливый Боб - Пер�
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269852.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Serj Tankian - Furious / Легенда о Коловрате (2017) [MP3|320 Kb
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267760.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Kartsy Hatakka & Kimmo Kajasto - Max Payne 2: The Fall Of Max Payne (Original So
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267387.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Christophe Beck, VA - Frozen 2 / Холодное сердце 2 (Original Motio
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267007.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Christophe Beck, VA - Frozen 2 / Холодное сердце 2 (Оригина
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266874.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Simonetti, Morante, Pignatelli - Tenebre (1982) The Complete Original Motion Pic
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266727.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Henry Jackman and Matthew Margeson - Kingsman: The Golden Circle Soundtrack (201
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265154.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Shadow Tactics: Blades of the Shogun - Soundtrack (2016) [MP3|320 Kbps] <OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264285.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Atom Music Audio - Immortals: Massive Hybrid Epic Tracks (2017) [MP3|320 Kbps] <
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262748.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Daughter - Music From Before The Storm (2017) [MP3|320 Kbps] <Alternative, Indie
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262446.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ VA - Diablo 3 (2012) [MP3|320 кб/с]<OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260580.jpg" />
 </div>
 
 
@@ -447,7 +418,7 @@ Russell Brower - Diablo III Soundtrack (2012) [MP3|320 кб/с]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252648.jpg" />
 </div>
 
 
@@ -482,7 +453,7 @@ Various Artists - Музыка миров Fallout и BioShock (1920-1960) [MP3|1
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248943.jpg" />
 </div>
 
 
@@ -517,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248289.jpg" />
 </div>
 
 
@@ -552,7 +523,7 @@ Rob (Robin Coudert) - Seuls / Одни (Original Motion Picture Soundtrack) (201
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242474.jpg" />
 </div>
 
 
@@ -581,7 +552,7 @@ Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Original Motion 
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242186.jpg" />
 </div>
 
 
@@ -610,7 +581,7 @@ Alexey Nechaev - Inmost (2020) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231073.jpg" />
 </div>
 
 
@@ -639,7 +610,7 @@ OST - Hunt For The Wilderpeople | Охота на дикарей (2016) [MP3|320
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229768.jpg" />
 </div>
 
 
@@ -668,7 +639,7 @@ Simon "Hasen" Burgess - Best Friends (2002) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227805.jpg" />
 </div>
 
 
@@ -697,7 +668,7 @@ Serial Cleaner - Soundtrack (2017) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221561.jpg" />
 </div>
 
 
@@ -726,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221520.jpg" />
 </div>
 
 
@@ -755,7 +726,7 @@ Abel Korzeniowski - Penny Dreadful / Страшные сказки: Seasons 2 & 
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220505.jpg" />
 </div>
 
 
@@ -769,6 +740,35 @@ Abel Korzeniowski - Penny Dreadful / Страшные сказки: Seasons 2 & 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:843E1C979723BC3193E22375AC6BBADD376745E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269518   (219897) от 15.12.2018
+
+Steve Jablonsky - Skyscraper / Небоскреб (Original Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hostage, Pt. 1 (07:29)
+02. Will & Sarah (03:56)
+03. Welcome To Heaven (02:40)
+04. Botha (03:23)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47619DFC3AEE548A6EF1EA4B617180FAAA8ACFC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

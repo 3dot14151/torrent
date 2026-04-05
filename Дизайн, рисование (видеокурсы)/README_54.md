@@ -1,3 +1,57 @@
+###  Публикация: 1566962   (244305) от 01.08.2022
+
+CG Sphere | Frostmourne Sword Full Process + Files (2021) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244305.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видео полного процесса Frostmourne Sword. 10 часов контента и файлов, вы узнаете много хороших техник моделирования, скульптинга, затенения и рендеринга, вы также получите 3D-модель + умные материалы, используемые в этом пакете , мы использовали блендер для моделирования, Zbrush для скульптинга, вещество для текстурирования, и блендер для затенения, освещения, рендеринга (   Читать дальше...   )Производство: CG SphereЖанр: 3D-моделированиеЯзык озвучки: Без ОзвучкиПродолжительность: 10:14:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:232377100FBA8049D0FB614E98D672CC60F4A16C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621945   (244206) от 27.03.2023
+
+Художник Онлайн, Екатерина Бердюгина | Акрил. Текстуры (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Расширяем представление об акриловый красках и пишем 8 работ на разные художественные задачи вместе с Екатериной Бердюгиной.
+
+Акрил — это материал с широким диапазоном выразительных возможностей. В каталоге Художник Онлайн есть курсы по реалистичной и декоративной акриловой живописи. Такие, где в качестве разбавителя используется вода и такие, где мы берем специальные (   Читать дальше...   )Производство: Художник ОнлайнЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 09:44:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A44C2342A774BFDEA3EAE61D83DBDF755B148B05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1622491   (243723) от 29.03.2023
 
 Enterclass, Марина Ласаева | Дачное настроение (2023) WEB-DL [RU]
@@ -6,7 +60,7 @@ Enterclass, Марина Ласаева | Дачное настроение (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243723.jpg" />
 </div>
 
 
@@ -35,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243685.jpg" />
 </div>
 
 
@@ -61,7 +115,7 @@ Udemy, Canopy Games, Michael Bridges | Making Procedural Weapons In Blender 3 (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243488.jpg" />
 </div>
 
 
@@ -88,7 +142,7 @@ Uartsy, Ben Tristem, Sam Patuzzi | Unreal Multiplayer Mastery Online Game Develo
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243270.jpg" />
 </div>
 
 
@@ -115,7 +169,7 @@ Uartsy, Jahirul Amin | Rigging Fundamentals in Maya (2017) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243212.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ Skillshare | Astronaut Animation: Motion Graphics & Rendering in Cinema 4D & Red
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243125.jpg" />
 </div>
 
 
@@ -167,7 +221,7 @@ Udemy, Ken Zhuang | Master Houdini FX: Art Directing Magic Smoke Explosion (2022
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243093.jpg" />
 </div>
 
 
@@ -196,7 +250,7 @@ Skillshare, Aniket Rawat | Complete Guide to Substance Painter 2022 (2022) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242808.jpg" />
 </div>
 
 
@@ -223,7 +277,7 @@ Udemy, Sime Bugarija | Creating asteroid scene in Blender (Backrooms, cinematic)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242576.jpg" />
 </div>
 
 
@@ -250,7 +304,7 @@ Gumroad, Danny Mac | Step by Step Base Meshes - Marie Antoinette (2020) PCRec [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242076.jpg" />
 </div>
 
 
@@ -278,7 +332,7 @@ SideFX, Simon Verstraete | Post Apocalyptic Ruins for UE4 in Houdini (2020) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242031.jpg" />
 </div>
 
 
@@ -304,7 +358,7 @@ Udemy, Darrin Lile | Create Captain America's Motorcycle with Blender 2.7 (2019)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242011.jpg" />
 </div>
 
 
@@ -331,7 +385,7 @@ Udemy, DJ Nicke | Become a Professional Character Animator (2015) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241926.jpg" />
 </div>
 
 
@@ -358,7 +412,7 @@ Lynda, George Maestri | Animating Cartoon Characters in Maya (2015) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241899.jpg" />
 </div>
 
 
@@ -384,7 +438,7 @@ Gumroad, Daniel Thiger | Rock Creation Techniques Part 1-2: Shapes, Surface Deta
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241862.jpg" />
 </div>
 
 
@@ -411,7 +465,7 @@ Gumroad, Nika Zautashvili | Blender Video - WHALE-1 (2022) Blu-ray [Realtime pro
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241852.jpg" />
 </div>
 
 
@@ -437,7 +491,7 @@ FlippedNormals, Henning Sanden | Introduction to Sculpting in Blender 2.92 (2021
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241803.jpg" />
 </div>
 
 
@@ -463,7 +517,7 @@ FlippedNormals | Sculpting the Facial Features in Zbrush (2020) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241771.jpg" />
 </div>
 
 
@@ -489,7 +543,7 @@ Udemy, Nexttut, Abraham Leal | Hair Creation for Game Character in Maya XGen and
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241719.jpg" />
 </div>
 
 
@@ -516,7 +570,7 @@ TimePad, Ксения Голубович | Предмет искусства: о
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241678.jpg" />
 </div>
 
 
@@ -542,7 +596,7 @@ Institute-art, Игорь Сахаров | Солнечный лес + Цвет�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241664.jpg" />
 </div>
 
 
@@ -568,7 +622,7 @@ Uartsy, Daniel Orchard | Building Perceptive AI in Unreal Engine (2020) PCRec [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241571.jpg" />
 </div>
 
 
@@ -595,7 +649,7 @@ Schoolism, Wouter Tulp | Digital Painting Workout with Wouter Tulp Part 1 (2020)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241433.jpg" />
 </div>
 
 
@@ -623,7 +677,7 @@ Udemy, Art Studio | Complete Blender Course: Creating Game Assets for Beginners 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241380.jpg" />
 </div>
 
 
@@ -635,58 +689,6 @@ Udemy, Art Studio | Complete Blender Course: Creating Game Assets for Beginners 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A8C23AB190BB81E89C30BD0AB1AC3320EA92718
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569994   (241304) от 15.08.2022
-
-SideFX, Adrien Lambert | Ultimate Terrain Workflow (2020) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241304.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я много экспериментировал с Houdini для своего короткометражного фильма. Я так много узнал, что решил поделиться серией уроков об окружающей среде и о том, почему бы вам не заинтересоваться созданием ландшафта в Houdini!Производство: SideFXЖанр: Houdini 18Язык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 02:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8927782C7EC8B8202B903807EE69ED3A3F0214DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569995   (241283) от 15.08.2022
-
-SideFX, Jeff Wagner | Top Ten Under-the-Radar Features in Houdini 18.5 (2020) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вышла Houdini 18.5, и в ней появилось несколько новых полезных функций, которые помогут техническим директорам и аналитикам быстрее и удобнее выполнять свою повседневную работу. Присоединяйтесь к Джеффу, который представит свой личный "Топ-10 малоизвестных функций Гудини" и даст представление о том, что ожидать от версии 18.5. Джефф "Old School" (   Читать дальше...   )Производство: SideFXЖанр: Houdini 18.5Язык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9312F4AC0ADD82C9A2B5C4D3A0EEB087A026E905
 ```
 
 https://mybot314.ru/tekegram_catalog/

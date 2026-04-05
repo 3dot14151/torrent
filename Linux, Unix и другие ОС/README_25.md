@@ -1,30 +1,3 @@
-###  Публикация: 1626498   (240592) от 15.04.2023
-
-Ubuntu*Pack 22.04 Xfce / Xubuntu (март 2023) [amd64] 1xDVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
-ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC3D09D9E53FFEEED42555FCC7CFB70FA45FAFAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626500   (240559) от 15.04.2023
 
 Ubuntu*Pack 22.04 Unity (март 2023) [amd64] 1xDVD
@@ -33,7 +6,7 @@ Ubuntu*Pack 22.04 Unity (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240559.jpg" />
 </div>
 
 
@@ -60,7 +33,7 @@ Ubuntu*Pack 22.04 LXqt / Lubuntu (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240518.jpg" />
 </div>
 
 
@@ -87,7 +60,7 @@ Ubuntu*Pack 22.04 LikeWin (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240254.jpg" />
 </div>
 
 
@@ -114,7 +87,7 @@ Ubuntu*Pack 22.04 GNOME (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240245.jpg" />
 </div>
 
 
@@ -141,7 +114,7 @@ Ubuntu*Pack 22.04 KDE / Kubuntu (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240228.jpg" />
 </div>
 
 
@@ -168,7 +141,7 @@ Ubuntu*Pack 22.04 DDE (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240167.jpg" />
 </div>
 
 
@@ -195,7 +168,7 @@ Xubuntu 22.04 Jammy Jellyfish LTS [amd64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239989.jpg" />
 </div>
 
 
@@ -223,7 +196,7 @@ Xubuntu Custom 22.04 LTS с доп. пакетами [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233365.jpg" />
 </div>
 
 
@@ -250,7 +223,7 @@ Debian GNU/Linux 11.5.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+3xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233177.jpg" />
 </div>
 
 
@@ -278,7 +251,7 @@ pfSense 2.2.5-RELEASE [i386, amd64] 2xCD, 16хIMG
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229065.jpg" />
 </div>
 
 
@@ -306,7 +279,7 @@ SUSE Linux Enterprise Desktop Server 15
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228774.jpg" />
 </div>
 
 
@@ -332,7 +305,7 @@ Tor Browser 2.3.25-1 [x32, x64] (bundle)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228770.jpg" />
 </div>
 
 
@@ -360,7 +333,7 @@ SUSE Linux Enterprise Desktop Server Workstation 15.1
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228765.jpg" />
 </div>
 
 
@@ -386,7 +359,7 @@ SUSE Linux Enterprise Desktop Server Workstation 15.2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228519.jpg" />
 </div>
 
 
@@ -412,7 +385,7 @@ Kubuntu 15.04 Vivid Vervet Alpha I [i386, amd64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226885.jpg" />
 </div>
 
 
@@ -438,7 +411,7 @@ Lubuntu 15.04 Vivid Vervet  Alpha I (легкий дистрибутив) [i386,
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226697.jpg" />
 </div>
 
 
@@ -466,7 +439,7 @@ Ubuntu Gnome 15.04 Vivid Vervet Alpha I [i386, amd64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226681.jpg" />
 </div>
 
 
@@ -494,7 +467,7 @@ openSUSE 13.1.1 Education Li-f-e [i686] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226455.jpg" />
 </div>
 
 
@@ -520,7 +493,7 @@ Kubuntu 14.04 Alpha I [i386, amd64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223895.jpg" />
 </div>
 
 
@@ -546,7 +519,7 @@ Tor Browser 5.0.5 [анонимный доступ в сети] [х86, x64] (bun
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222223.jpg" />
 </div>
 
 
@@ -572,7 +545,7 @@ Ubuntu*Pack 20.04 GNOME (ноябрь 2021) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219342.jpg" />
 </div>
 
 
@@ -599,7 +572,7 @@ Ubuntu*Pack 20.04 Budgie (ноябрь 2021) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219317.jpg" />
 </div>
 
 
@@ -626,7 +599,7 @@ Ubuntu*Pack 20.04 (ноябрь 2021) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219311.jpg" />
 </div>
 
 
@@ -653,7 +626,7 @@ Ubuntu*Pack 20.04 Cinnamon (ноябрь 2021) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219260.jpg" />
 </div>
 
 
@@ -680,7 +653,7 @@ Ubuntu*Pack 20.04 GNOME Classic (ноябрь 2021) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219211.jpg" />
 </div>
 
 
@@ -692,6 +665,33 @@ Ubuntu*Pack 20.04 GNOME Classic (ноябрь 2021) [amd64] DVD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D9BD727BDC9F136419099849B7113B62F6E83B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514127   (219199) от 02.12.2021
+
+Ubuntu*Pack 20.04 DDE (ноябрь 2021) [amd64] DVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
+Интерфейс
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDDDB3520EC29B20DFC57DC4C75B105A669365E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

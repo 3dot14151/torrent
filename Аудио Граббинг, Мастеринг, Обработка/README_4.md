@@ -1,3 +1,189 @@
+###  Публикация: 979181   (960679) от 25.01.2016
+
+Sonic Ladder - Riffstation Guitar Software 1.6.0.0 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960679.jpg" />
+</div>
+
+
+###  Подробнее
+
+Riffstation — это удивительное программное обеспечение, предназначенное для гитаристов и музыкантов. Утилита позволит распознать гитарный аккорд в практически любом звучащем треке из вашей индивидуальной музыкальной коллекции. Внутренний алгоритм автоматического распознавания звучащих аккордов позволяет получить с максимальной точностью минорные, мажорные и специальные (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие...
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69E7F226B746EF15D44BCB44A14A9C53A3549067
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360805   (958091) от 17.02.2020
+
+W.A. Production - Dodge Pro 1.0.1 Build 7 VST, VST3, AAX (x86/x64) Retail [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы все знакомы с концепцией обработки sidechain; ныряние амплитуды одного аудиосигнала при воспроизведении другого. Эта студийная техника лежит в основе современной танцевальной музыки и создает энергичный ритм, заставляющий биться сердца и двигаться ноги.
+Dodge Pro-это гибкий и творческий инструмент, который вы искали, чтобы взять под контроль ваши формы боковой (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38366E8B484ED04BE04B3FEE52703A45CA62D2EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360804   (958077) от 17.02.2020
+
+W.A. Production - Pumper2 1.0.1 VST, VST3 (x86/x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958077.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучше. Сильнее. Тяжелее.
+Мы сделали это снова ... после выпуска «Pumper» мы захотели дать вам еще больший контроль над панчем и мощью ваших звуков. Продолжение Pumper 2, долгое время развивалось, так как наша команда работала, чтобы сохранить лучшие параметры производительности исходного плагина, добавляя новые функции. Конечным результатом является многоэффектная (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36D0F540441E5FB8AB554D6E30D65FC5FC2B603D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362433   (948043) от 24.02.2020
+
+Audified - MixChecker Pro 1.1.1 VST, VST3, AAX (x86/x64) RePack by R2R [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948043.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Audified выпустила новый плагин — MixChecker, который позволяет пользователям слушать свою работу посредством эмуляции классических студийных мониторов или различных бытовых устройств.
+MixChecker — этот плагин создан как помощник в процессе сведения материала, с целью упростить и заметно ускорить процесс. MixChecker экономит ваше драгоценное время. Подключается (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87CF062DF4784F1D1AA5892B35236B6A9AD808B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362783   (947729) от 24.02.2020
+
+Adobe Audition 2020 13.0.3.60 Portable by punsh [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947729.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для работы с аудио-данными Adobe Audition представляет собой профессиональный инструмент для специалистов, которые работают в сфере обработки аудио и видеопродукции, предлагая им практически неограниченные возможности. Простота использования прекрасно сочетается с гибкостью работы, позволяя создавать мастер-копии высочайшего класса, редактировать, микшировать, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFFB59D3422CEAF642044C23C174E3C19E3F2C36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362974   (946301) от 25.02.2020
+
+SoundToys - The Ultimate Effects Solution 5.0.1.10839 VST (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это набор эффектов от SoundToys который даст вашим трекам плотный аналоговый, профессионального качества звук. Разработаны фанатами эффектов с огромной кучей железа и опыта. Наши инженеры изменили мир эффектов когда разработали классический H3000 студийный бокс эффектов, и продолжали приносить вам причудливые инструменты которые дают непревзойденный звук. Добавьте (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:690F9B97CBDF2D97DAE68A4D4ACE3278F83DA8EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364270   (937645) от 02.03.2020
+
+LennarDigital - Sylenth1 v3.067 VSTi (x64) RePack [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937645.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sylenth1 - это виртуальный аналоговый синтезатор VSTi, который выводит определения качества и производительности на более высокий уровень. До настоящего времени лишь очень немногие программные синтезаторы были в состоянии соответствовать стандартам качества звука аппаратных синтезаторов. Sylenth1 это тот, который делает.
+Sylenth1 - это не просто еще один синтезатор. (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88D129A830D9920F691CB0B0D2232BBCD24DE89C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984955   (935271) от 11.02.2016
 
 Digital Audio Converter 2.6 RePack (& Portable) by TryRooM [Multi/Ru]
@@ -6,7 +192,7 @@ Digital Audio Converter 2.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935271.jpg" />
 </div>
 
 
@@ -33,7 +219,7 @@ Visual MP3 Splitter & Joiner 8.2 Build 85 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931059.jpg" />
 </div>
 
 
@@ -59,7 +245,7 @@ SoundSpot - Union 1.0.3 VSTi, VSTi3, AAX (x86/x64) Repack by R2R + Union Expansi
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927113.jpg" />
 </div>
 
 
@@ -85,7 +271,7 @@ Trident Audio Developments - LTS Tiltration Plugin 1.0.0 VST3, AAX (x64) RePack 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925527.jpg" />
 </div>
 
 
@@ -111,7 +297,7 @@ Waves - Complete v12 (02.08.2021) VST, VST3, AAX, STANDALONE (x64) RePack by RET
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921739.jpg" />
 </div>
 
 
@@ -137,7 +323,7 @@ MAAT - thEQorange 2.1.3 VST, VST3, AAX (x86/x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918961.jpg" />
 </div>
 
 
@@ -164,7 +350,7 @@ Algonaut - Atlas 2 2.0.2 STANDALONE, VSTi, VSTi3 (x64) RePack by RET [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907170.jpg" />
 </div>
 
 
@@ -190,7 +376,7 @@ Krotos - Concept 2.0.3 VSTi, VSTi3, AAX (x64) RePack by RET [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907153.jpg" />
 </div>
 
 
@@ -217,7 +403,7 @@ Solid State Logic - Native Channel Strip 2 1.0.0.36 VST, VST3, AAX (x64) RePack 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907056.jpg" />
 </div>
 
 
@@ -244,7 +430,7 @@ Steinberg Absolute 5 VSTi, VSTi3, AAX (x64) (Web Installer) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903908.jpg" />
 </div>
 
 
@@ -271,7 +457,7 @@ Slate Digital - Virtual Mix Rack Complete 2.6.4.0 VST, VST3, AAX (x64) RePack by
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896979.jpg" />
 </div>
 
 
@@ -297,7 +483,7 @@ GiliSoft Audio Editor 2.2.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896594.jpg" />
 </div>
 
 
@@ -323,7 +509,7 @@ Abyssmedia Audio Converter Plus 6.6.0.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888876.jpg" />
 </div>
 
 
@@ -349,7 +535,7 @@ Sonible - smart:reverb 1.0.1 VST, VST3, AAX (x64) RePack by RET [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884439.jpg" />
 </div>
 
 
@@ -375,7 +561,7 @@ TC Electronic - Finalizer 1.0.10 RePack by RET (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872453.jpg" />
 </div>
 
 
@@ -402,7 +588,7 @@ Soft4Boost Any Audio Grabber 7.7.9.389 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868905.jpg" />
 </div>
 
 
@@ -428,7 +614,7 @@ Soft4Boost Any Audio Record 6.7.9.389 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868899.jpg" />
 </div>
 
 
@@ -454,7 +640,7 @@ ToonTrack - Superior Drummer 2.4.1 [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857331.jpg" />
 </div>
 
 
@@ -480,7 +666,7 @@ Image-Line Synth-Plugins Bundle 09.2021 VSTi (x64/x86) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856037.jpg" />
 </div>
 
 
@@ -491,193 +677,6 @@ Image-Line Synth-Plugins Bundle 09.2021 VSTi (x64/x86) [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64D0D7DB7BE456E515522E26AEF5E397A7FA805A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498648   (855895) от 27.09.2021
-
-Native Instruments - Absynth 5 5.3.4 STANDALONE, VSTi, AAX (x64/x86) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Absynth 5 – это синтезатор с уникальным звуковым потенциалом от компании Native Instruments. Его особенностью является безграничный спектр необычных, развивающихся звуков, созданных с использованием мощной гибридной архитектуры синтеза и сложной системы модуляции и эффектов, в результате чего звуки далеки от повседневных. Более того, Absynth 5 – это не просто синтезатор, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32C2A9AFF1951FC800F2343268429D623D14B51F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498738   (854287) от 28.09.2021
-
-Arturia - SQ80 V 1.0.0 STANDALONE, VSTi, VSTi3 (x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Arturia выпустила новый виртуальный синтезатор, представляющим собой эмуляцию классического цифро-аналогового инструмента Ensoniq SQ-80.
-Интерфейс синтезатора повторяет внешность оригинального Ensoniq SQ-80, выпускавшегося в 1980-х годах. В 1989 году Ensoniq закрыла выпуск инструмента, несмотря на его популярность. Одними из самых активных пользователей синтезатора (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21E9705AF0E792227FE5FAEDB4B8DB95E572ACB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498693   (854284) от 28.09.2021
-
-Physical Audio - Dual Spring Reverb 3.1.3 VST3, AAX (x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dual Spring Reverb - это плагин эффектов, который использует физическую модель вибрации винтовой пружины для воссоздания классического звука пружинной реверберации.
-Dual Spring Reverb - это первый плагин для моделирования распространения волн в спиральных пружинах. Звуковой движок полностью построен на моделировании внутренних физических уравнений. Это дает творческий (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26FC0518EFBD2A7600EE4FBBF0E72E9E193C45C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498694   (854279) от 28.09.2021
-
-Physical Audio - Dynamic Plate Reverb 3.1.3 VST3, AAX (x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dynamic Plate Reverb - это плагин эффектов, который использует физическую модель вибрации тонкой пластины для воссоздания классического звука пластинчатой реверберации.
-Наш инновационный алгоритм дает творческий контроль над настройкой пластины, позволяя адаптировать резонанс к вашему материалу. Пять различных материалов пластин, предварительный усилитель и мощный (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14CE069AAE8B57A48659FF886355EEA482A9F87E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499168   (851156) от 30.09.2021
-
-WXAudio - NANI Plugin 1.2.0 VST3 (x86/x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851156.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой в использовании дисторшн с элементами аниме.
-- Пять уникальных алгоритмов: от мягкого насыщения до невероятно разрушительных искажений.
-- Точная фильтрация, регулировка тембра и смешивание сигналов для достижения безграничных возможностейЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99F520CDF3B229A587A989DF19BA67CE4D9638B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499376   (849424) от 01.10.2021
-
-Synapse Audio - Obsession 1.1.1 VSTi, VSTi3, AAX, NKS (x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Obsession - мощная эмуляция винтажного синтезатора. По своей сути, он использует классический синтезаторный дизайн, состоящий из двух генераторов, переключаемого двух / четырехполюсного фильтра нижних частот, двух генераторов огибающей ADSR и двух LFO, которые тщательно смоделированы с железного оборудования.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65B209B600A36AD45BDFD2E62388053F8384E0A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499565   (847960) от 02.10.2021
-
-Delta Sound Labs - Fold 1.1.0 VST3, AAX (x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fold - это плагин для создания звуковых эффектов с синтезом искажений, который могли придумать только инженеры Delta Sound Labs. Опираясь на свой опыт в модульном дизайне оборудования, команда нашла новый подход к созданию насыщения и искажений в программном обеспечении. Используя набор модулей в последовательной цепочке эффектов, Fold насыщает входные сигналы гармонично (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7EFF3898CA6CB9DA666DC7DB67D33BC1164EDF3
 ```
 
 https://mybot314.ru/tekegram_catalog/

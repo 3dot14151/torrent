@@ -1,3 +1,119 @@
+###  Публикация: 1248930   (440014) от 21.09.2018
+
+Cherie Lily - WERK: The Remix EP (2010) [FLAC|Lossless|tracks + .cue] <Electro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. WERK (Cherie Lily's original version) (3:51)
+ 02. WERK (Princess Superstar & Andrew W.K. remix) (4:03)
+ 03. WERK (DJ Nita's Battle Ready remix) (4:53)
+ 04. WERK (Good Goose remix) (3:07)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 00:28:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB12DB00934ACE1E1FC26EB99A97880D1A883831
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164765   (439895) от 10.09.2017
+
+VA - Sheridan Grout Presents Escape Vol.1 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sheridan Grout - The Last Word (Extended Mix)
+02. Somna - Story Untold
+03. Sheridan Grout - Escape
+04. Sheridan Grout - Alpha (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:18:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C69E98A72EFD28373D94B9349E8FA27132252E5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164787   (439692) от 10.09.2017
+
+VA - Aly & Fila - Future Sound Of Egypt 512 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kamilo Sanclemente - Another Earth (Original Mix)
+02. Orsen - Cloudspotting (Original Mix)
+03. Havoc & Lawn Anderblast - Genesi (Original Mix)
+04. Kidnap Kid - Where The Sea Swings In Like An Iron Gate (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:58:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAE2756BB1B973190B8A09357800B0894C440AA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248812   (439640) от 21.09.2018
+
+VA - Elles De Graaf - The Long Run - The Best Of (2018) [FLAC|Lossless|WEB-DL|tracks] <Trance,Vocal Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elles De Graaf – Show You My World (Ferry Corsten Edit - 2014 Remastering)
+02. Armin van Buuren & Perpetuous Dreamer – The Sound of Goodbye (Armin's Tribal Feel Radio Edit)
+03. Elles De Graaf & Alan Morris – Calm The Night (Ferrin & Morris Edit)
+04. Elles De Graaf – Mind of The Wonderful 2018 (Sunset Remix)(   Читать дальше...   )Жанр: Trance,Vocal TranceПродолжительность: 01:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB8DA754D5C3DA607AD55E8CDB0BFA05286B390A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1323202   (439325) от 02.09.2019
 
 Desimal - Discography 9 Releases (2005-2015) Armada, Obsessions, Barcode [FLAC|Lossless|tracks] <Drum n Bass>
@@ -6,7 +122,7 @@ Desimal - Discography 9 Releases (2005-2015) Armada, Obsessions, Barcode [FLAC|L
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439325.jpg" />
 </div>
 
 
@@ -32,7 +148,7 @@ Sparks - Hippopotamus (2017) [FLAC|Lossless|image + .cue] <Synthpop, Pop Rock>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439209.jpg" />
 </div>
 
 
@@ -61,7 +177,7 @@ Peter Gun - Powder (2012) [MP3|320 кб/с]<Progressive House, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438911.jpg" />
 </div>
 
 
@@ -96,7 +212,7 @@ Various Artists - Future Bass: Ministry of Sound (2012) [MP3|320 кб/с]<Tech /
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438753.jpg" />
 </div>
 
 
@@ -131,7 +247,7 @@ VA - Aurosonic - Winter Sessions (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438507.jpg" />
 </div>
 
 
@@ -160,7 +276,7 @@ VA - Azure Ibiza (2020) [FLAC|Lossless|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438433.jpg" />
 </div>
 
 
@@ -189,7 +305,7 @@ VA - Crossfit Selection 1 (2020) [MP3|320 Kbps] <Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438420.jpg" />
 </div>
 
 
@@ -218,7 +334,7 @@ Eurythmics - We Too Are One (1989) Remastered ,2018, RCA [OGG|485 Kbps] <Synthpo
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438369.jpg" />
 </div>
 
 
@@ -247,7 +363,7 @@ Koto - Masterpieces (1989) [OGG|485 Kbps] <Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438362.jpg" />
 </div>
 
 
@@ -276,7 +392,7 @@ VA - Armin van Buuren - A State Of Trance Episode 982 (2020) [MP3|320 Kbps] <Tra
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438336.jpg" />
 </div>
 
 
@@ -305,7 +421,7 @@ Alex Cortiz - Deep Deluxe (2015) [MP3|320 кб/с]<Electronic, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438315.jpg" />
 </div>
 
 
@@ -334,7 +450,7 @@ VA - Vocal Trance Gems - Summer 2022 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438307.jpg" />
 </div>
 
 
@@ -363,7 +479,7 @@ A-Ha - Lifelines (2002) Deluxe Edition, Remastered, 2019, Warner Music [OGG|485 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438301.jpg" />
 </div>
 
 
@@ -392,7 +508,7 @@ VA - Black Hole Trance Music 08-22 (2022) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438298.jpg" />
 </div>
 
 
@@ -421,7 +537,7 @@ VA - Crossfit Selection 2 (2020) [MP3|320 Kbps] <Techno, Melodic House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438061.jpg" />
 </div>
 
 
@@ -450,7 +566,7 @@ VA - Voice Hits Vol. 2 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438013.jpg" />
 </div>
 
 
@@ -479,7 +595,7 @@ VA - Buddha-Bar XVII (By Ravin) (2015) 2CD [FLAC (tracks+.cue)|Lossless]<Lounge,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437902.jpg" />
 </div>
 
 
@@ -509,7 +625,7 @@ Thomas Lemmer & Andreas Bach - Night Travellers (2019) [FLAC|Lossless|WEB-DL|tra
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437871.jpg" />
 </div>
 
 
@@ -538,7 +654,7 @@ VA - Zen/Ambient Vibes For Body, Mind & Soul (2018) [MP3|320 Kbps] <Balearic, Do
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437848.jpg" />
 </div>
 
 
@@ -567,7 +683,7 @@ VA - Armada Trice Amsterdam (2016) [MP3|320 Kbps] <Progressive House, Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437656.jpg" />
 </div>
 
 
@@ -596,7 +712,7 @@ The Pump Panel - Confusion / Re-Mover (1995) [FLAC|Lossless|tracks + .cue] <Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437650.jpg" />
 </div>
 
 
@@ -625,7 +741,7 @@ VA - Ibiza Trance 2016 Volume Two (2016) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437644.jpg" />
 </div>
 
 
@@ -639,122 +755,6 @@ VA - Ibiza Trance 2016 Volume Two (2016) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8975CFA953B89D30841BA5E2E5A1FCF42E38229
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945014   (437578) от 08.10.2015
-
-Hurts - Surrender (2015) Deluxe Edition [MP3|320 кб/с]<Synthpop, Pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Surrender
-02. Some Kind of Heaven
-03. Why
-04. Nothing Will Be Bigger Than Us(   Читать дальше...   )Жанр: Synthpop, PopПродолжительность: 00:44:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35603F44878A987F06053B974EF3A11B16DE029F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063187   (437475) от 15.10.2016
-
-VA - Deep In Ibiza (Dive In A Deep House Journey) (2016) [FLAC|Lossless|WEB-DL|tracks] <House,Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Duo Deep - Special Brothers [06:33]
-02 Jean Aita & The Noox - Can You Do Something (Llobos) [04:42]
-03 Duo Deep - Piano Rode [05:03]
-04 David's Sammarco - A Deep History [04:55](   Читать дальше...   )Жанр: House,Deep HouseПродолжительность: 01:14:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA0BD50E394C81A4BA4EAD463A534D25C1631AB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164983   (437391) от 11.09.2017
-
-Fourth Dimension - The Perfect Form (2017) [MP3|320 Kbps] <Ambient, Psychill, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Equilibria (6:30)
-02.  Filamentation (5:22)
-03.  Ionization (7:36)
-04.  Magnetization (6:32)(   Читать дальше...   )Жанр: Ambient, Psychill, DowntempoПродолжительность: 00:59:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C5606FF1770C398F414F11942ED6AE76F75FC2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165103   (437384) от 11.09.2017
-
-VA - Study & Relax Vol 1 (Finest Relaxed After Work Music) (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gerrit van der Meer - Love Drops 05:47
-02. Luc Forlorn - What Remains 04:52
-03. Artur Bayramgalin - Leaving The Island 02:20
-04. KoolSax - Strange Night 04:44(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:19:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B79BFDBDCE461C5706CF648C3802BC15F3D9F2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

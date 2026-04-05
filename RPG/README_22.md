@@ -1,3 +1,57 @@
+###  Публикация: 1294894   (625445) от 09.04.2019
+
+Operencia: The Stolen Sun (2019) [Ru/Multi] (1.0) Repack R.G. Catalyst
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Operencia: The Stolen Sun – РПГ от первого лица с пошаговыми боями, в которой вам предстоит провести команду колоритных персонажей через фэнтезийный мир, вдохновленный центрально-европейской мифологией.Тип издания: RepackРазработчик: Zen StudiosЖанр: RPG, Action, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A81E75D94F570453DB552D0B5D5DE7FF1422012
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 683288   (625310) от 25.07.2013
+
+Game of Thrones / Игра престолов (2012) [Ru/En] (1.5.0.0/3dlc) Repack R.G. Revenants
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра по мотивам эпической саги Джорджа Мартина A Song of Ice and Fire, в России известной как «Песнь льда и пламени», покорившей сердца миллионов поклонников фэнтези во всем мире. Книги разошлись по миру тиражом более 15 млн экземпляров, а телесериал «Игра престолов», основанный на первом томе саги, быстро завоевал признание зрителей и критиков.
+
+Вам предлагаются на выбор два персонажа: Морс, присягнувший на верность Ночному Дозору, и Алистер, красный жрец, вернувшийся в Вестерос из долгого изгнания в поисках искупления. События игры начинаются сразу после того, как Десница короля Роберта Баратеона распрощался с жизнью. Наши герои оказываются втянутыми в весьма запутанную историю, которая проведет их по самым разным уголкам Вестероса — от Королевской Гавани до грандиозной ледяной Стены. В странствиях каждый из них встретится с известнейшими личностями, в числе которых коварная королева Серсея; хитроумный Варис по прозвищу Паук; суровый Джиор Мормонт, лорд-командующий Ночного Дозора.(   Читать дальше...   )Тип издания: LossLess RePackРазработчик: Cyanide StudioЖанр: RPG / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский / АнглийскийЯзык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4449BF4A3EC00F186A943A8DA05A05390ABF2A2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 683622   (623358) от 26.07.2013
 
 Torchlight 2/II (2012) [Ru/Multi] (1.25.5.2) Repack R.G. Revenants
@@ -6,7 +60,7 @@ Torchlight 2/II (2012) [Ru/Multi] (1.25.5.2) Repack R.G. Revenants
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623358.jpg" />
 </div>
 
 
@@ -34,7 +88,7 @@ EARTHLOCK (2018) [Ru/Multi] (1.0.6) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622517.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ EARTHLOCK (2018) [Ru/Multi] (1.0.6) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622419.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ Grimshade (2019) [Ru/En] (1.0.5) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621948.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ We are the Dwarves (2016) [Ru/Multi] (1.0/upd8/hf) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621227.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ Mugen Souls (2015) [Ru] (1.03/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620429.jpg" />
 </div>
 
 
@@ -164,7 +218,7 @@ I am Setsuna (2016) [En/Ja] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620419.jpg" />
 </div>
 
 
@@ -190,7 +244,7 @@ I am Setsuna (2016) [En/Ja] (1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620311.jpg" />
 </div>
 
 
@@ -216,7 +270,7 @@ Final Fantasy XV / Final Fantasy 15 (2018) [Ru/Multi] (1138403/dlc) Repack R.G. 
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618672.jpg" />
 </div>
 
 
@@ -242,7 +296,7 @@ Seven: The Days Long Gone (2017) [Ru/Multi] (1.3.1/dlc) License GOG [Enhanced Co
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618247.jpg" />
 </div>
 
 
@@ -268,7 +322,7 @@ Book of Demons (2018) [Ru/Multi] (1.01.18203) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614815.jpg" />
 </div>
 
 
@@ -294,7 +348,7 @@ South Park: The Fractured but Whole (2017) [Ru/Multi] (1.0/dlc) License CODEX [G
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613007.jpg" />
 </div>
 
 
@@ -320,7 +374,7 @@ Grim Dawn (2016) [Ru/Multi] (1.0.1.1/dlc) SteamRip Let'sPlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612452.jpg" />
 </div>
 
 
@@ -346,7 +400,7 @@ Forgotten Realms: The Archives - Collection Two (1988-1993) [En] (1.0/1.3/1.2/1.
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612060.jpg" />
 </div>
 
 
@@ -372,7 +426,7 @@ Medieval Dynasty (2021) [Ru/Multi] (1.3.0.5) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609157.jpg" />
 </div>
 
 
@@ -398,7 +452,7 @@ Bastion [Ru/En] (RePack/1.0r21) 2011 l Audioslave
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608955.jpg" />
 </div>
 
 
@@ -424,7 +478,7 @@ Bastion [Ru/En/Multi6] (RePack/1.0r21) 2011 l R.G.Origami
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607073.jpg" />
 </div>
 
 
@@ -450,7 +504,7 @@ Ghost of a Tale (2018) [Ru/Multi] (8.33) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606001.jpg" />
 </div>
 
 
@@ -476,7 +530,7 @@ Xanadu Next (2016) [En] (24.11.2016) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605400.jpg" />
 </div>
 
 
@@ -502,7 +556,7 @@ Bastion [Ru] (RePack/1.0r21) 2011 l Fenixx
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605032.jpg" />
 </div>
 
 
@@ -528,7 +582,7 @@ Shadowrun: Dragonfall (2015) [Ru/Multi] (2.09) Repack xGhost [Director's Cut]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604594.jpg" />
 </div>
 
 
@@ -554,7 +608,7 @@ Sudeki (2005) [Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604179.jpg" />
 </div>
 
 
@@ -580,7 +634,7 @@ The Bard's Tale (2004) [Ru/Multi] (2.7.2.7) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603624.jpg" />
 </div>
 
 
@@ -606,7 +660,7 @@ Grimshade (2019) [Ru/En] (1.1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603027.jpg" />
 </div>
 
 
@@ -617,58 +671,6 @@ Grimshade — это история компании героев, волею с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56B49C877C50A743CFE82C871AB73772B02E5A36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220670   (603024) от 24.04.2019
-
-For The King (2018) [Ru/Multi] (1.0.10.9949) Repack Other s
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603024.jpg" />
-</div>
-
-
-###  Подробнее
-
-For The King — это стратегическая RPG, которая сочетает в себе элементы настолки и рогалика в захватывающем приключении, меняющем судьбы королевств. Можно играть в одиночку или в компании с другими игроками как онлайн, так и по локальной сети.Тип издания: RepackРазработчик: IronOak GamesЖанр: RPG, TBS (Action), 3DЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADFC7C978AC5774366E039FB497C0F73CC72ACCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547496   (602753) от 28.04.2022
-
-The Serpent Rogue (2022) [Ru/Multi] (0.0.160) Repack Other s
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602753.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Serpent Rogue — это приключенческий экшен, в котором вам предстоит исследовать фэнтезийный средневековый мир, изучать искусство алхимии и приручать диких зверей. Вы Страж, загадочный алхимик, которому нужно защитить мир от надвигающейся скверны. Варите, смешивайте, выпаривайте и проводите ритуалы, чтобы сдержать натиск Змеиного Отступника!Тип издания: RepackРазработчик: Sengi GamesЖанр: Adventure, Action, RPG, 3DЯзык субтитров: Русский, Украинский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Украинский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:684860C6ADFC3036837623AF7E448436BE8DD50E
 ```
 
 https://mybot314.ru/tekegram_catalog/

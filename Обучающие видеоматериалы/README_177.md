@@ -1,3 +1,31 @@
+###  Публикация: 1336663   (278342) от 07.11.2019
+
+jsexpert | Понятный JavaScript [Beginner] (2017) PCRec [H.264/1080p-LQ]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс «Понятный JavaScript» — это комплексная программа обучения, которая позволит тебе полностью изучить с нуля главный язык Frontend разработчика. Уже через 3 месяца ты будешь знать JavaScript на очень достойном уровне.
+
+Проверенный временем курс проведет вас от самых основ (история возникновения языка, типы данных, циклы, условия) до серьезных, продвинутых знаний (   Читать дальше...   )Производство: jsexpertЖанр: Программирование, JavaScriptПродолжительность: 09:09:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:982E9E720121B9D0B4B8CEA164F88F1602CDAA0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1082098   (278170) от 12.12.2016
 
 Мирзакарим Норбеков | Мастерская Норбекова: Оздоровительный Курс + Курс Глаза (2011) WEB-DL [H.264]
@@ -6,7 +34,7 @@
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278170.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277505.jpg" />
 </div>
 
 
@@ -61,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277407.jpg" />
 </div>
 
 
@@ -90,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276849.jpg" />
 </div>
 
 
@@ -119,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276222.jpg" />
 </div>
 
 
@@ -145,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276064.jpg" />
 </div>
 
 
@@ -172,7 +200,7 @@ Highlights School | МК Обработка кожи и волос (2013) PCRec
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275881.jpg" />
 </div>
 
 
@@ -198,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275063.jpg" />
 </div>
 
 
@@ -224,7 +252,7 @@ Udemy | Начальный курс SQL (2019) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274295.jpg" />
 </div>
 
 
@@ -252,7 +280,7 @@ Lynda.com | Creating Secure PHP Websites (2014) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274236.jpg" />
 </div>
 
 
@@ -281,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274232.jpg" />
 </div>
 
 
@@ -309,7 +337,7 @@ Udemy | Основы Nginx / Nginx Fundamentals (2018) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273901.jpg" />
 </div>
 
 
@@ -336,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273840.jpg" />
 </div>
 
 
@@ -365,7 +393,7 @@ ITVDN | Node.js (2017) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272940.jpg" />
 </div>
 
 
@@ -391,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272824.jpg" />
 </div>
 
 
@@ -417,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272816.jpg" />
 </div>
 
 
@@ -443,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272808.jpg" />
 </div>
 
 
@@ -471,7 +499,7 @@ jsexpert | Понятный JavaScript [Advanced] (2018) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272199.jpg" />
 </div>
 
 
@@ -499,7 +527,7 @@ BeFit | In 30 Extreme Workouts (2016) HDTVRip [H.264/1080p] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272074.jpg" />
 </div>
 
 
@@ -525,7 +553,7 @@ Udemy | Полный курс по кибербезопасности: Сете�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271876.jpg" />
 </div>
 
 
@@ -553,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271865.jpg" />
 </div>
 
 
@@ -579,7 +607,7 @@ Pluralsight | Linux Encryption Security / Безопасность и Шифро
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270980.jpg" />
 </div>
 
 
@@ -605,7 +633,7 @@ Convert Monster | Google Adwords 3.0 (2017) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270941.jpg" />
 </div>
 
 
@@ -631,7 +659,7 @@ JavaBegin | Веб разработка (2015-2016) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270781.jpg" />
 </div>
 
 
@@ -657,7 +685,7 @@ JavaBegin | Основы Java (2012-2016) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270601.jpg" />
 </div>
 
 
@@ -668,33 +696,6 @@ JavaBegin | Основы Java (2012-2016) PCRec [H.264]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4A299F059CCBA2C41ED499D3F7B6F4A3CA5E2F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338191   (270306) от 14.11.2019
-
-Алексей Филатов | Профайлинг в Социальных сетях (2019) PCRec [H.264/720p-LQ]
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы даже не представляете какое количество информации выдаете о себе просто создав страничку в таких популярных в наше время социальных сетях! И даже не обязательно выкладывать определенное количество фотографий и заполнять подробную информацию.
-Все мы хотим создать определенное впечатление о себе, заполняя нашу страницу. И, как правило, произвести то самое желаемое (   Читать дальше...   )Производство: proprofiling.comЖанр: Интернет, Психология, Социальная инженерияПродолжительность: 06:29:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB60263C588CF6C03F0A75D2BFAEDE5830BCC529
 ```
 
 https://mybot314.ru/tekegram_catalog/

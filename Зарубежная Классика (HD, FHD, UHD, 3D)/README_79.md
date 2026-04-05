@@ -1,3 +1,107 @@
+###  Публикация: 516084   (196864) от 18.06.2023
+
+Американец в Париже / An American in Paris (1951) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший солдат Джерри пытается стать художником в послевоенном Париже. И имеет некоторый успех, найдя богатую покровительницу, которая покупает его картины и рекомендует их своим друзьям. Однажды он заходит в ночной клуб и знакомится с Лизой и молодые люди моментально влюбляются. Но позже она неожиданно сообщает, что помолвлена с его другом. И Джерри, и Лиза поступают (   Читать дальше...   )Производство: США, Loew's Inc.Жанр: мелодрамаАктеры: Джин Келли, Лесли Карон, Оскар Левант, Жорж Гуэтари, Нина Фош, Мари Антониетта Эндрюс, Марта Баматтр, Мэдж Блейк, Нэн Бордман, Юджин Борден, Андре Черисс, Энн Коуди, Адель Корей, Джордж Дэвис, Арт Дюпуа, Джон Элдридж, Джинн Лафайетт, Ноэль Нилл, Анна К. Нилссон, Дон Куинн, Хейден Рорк, Дик ВессельПеревод: Многоголосый закадровыйСубтитры: Английские, РусскиеПродолжительность: 01:53:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62D40B500B732C73BB38C7BE89CE7855C470D8DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 751085   (196859) от 18.06.2023
+
+Анжелика, маркиза ангелов / Angelique, marquise des anges (1964) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анжелика, необыкновенно красивая бедная аристократка вынуждена выйти замуж за Жоффрея де Пейрака. Несмотря на его внешность она со временем полюбила его. Влюбленные живут счастливо в своем замке, пока однажды к ним не приезжает король...Производство: Франция, Германия (ФРГ), Италия / Compagnie Industrielle et Commerciale Cinématographique (CICC), Fono Roma, Franco London FilmsЖанр: драма, мелодрама, приключения, историяРежиссер: Бернар БордериАктеры: Мишель Мерсье, Робер Оссейн, Жан Рошфор, Клод Жиро, Джулиано Джемма, Шарль Ренье, Жак Тожа, Мадлен ЛеБо, Жан Топар, Бернар ВоринжеПеревод: Дублированный, Многоголосый закадровыйСубтитры: РусскиеПродолжительность: 01:55:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34EBEE01CA55E8787DAD7A0D514031989F28E5FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 304941   (196823) от 18.06.2023
+
+Али Баба и 40 разбойников / Ali Baba and the Forty Thieves (1944) BDRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196823.jpg" />
+</div>
+
+
+###  Подробнее
+
+Войска монголов захватили Багдад. Ими был убит Халиф Багдада, а его сын бежит в пустыню и встречается там с легендарными 40 разбойниками. Случайно он узнает тайну слов «Сезам, откройся» и находит несметные сокровища. Разбойники усыновляют беглеца.   Проходит десять лет, юноша взрослеет и становится вожаком разбойничьего войска. Под именем Али Баба он совершает дерзкое (   Читать дальше...   )Производство: США ( 	 Universal Pictures)Жанр: фэнтези, мелодрама, приключенияРежиссер: Артур ЛубинПеревод: Профессиональный (одноголосый, закадровый) / АвторскийСубтитры: английские,  (SRT)Продолжительность: 01:27:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35AAE91A14F4AC5F4743894F26F0F398A24DBFED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968488   (196806) от 19.06.2023
+
+Апачи / Apachen (1973) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма происходит в пограничной области между США и Мексикой в 1848 году, когда Мексике пришлось уступить Америке территорию нынешних штатов Аризона, Нью-Мексико, Юта и Колорадо. Апачи племени мимбреньо в «Новой Испании» заключают с мексиканской горнопромышленной компанией договор, позволяющий мексиканцам производить разведочные работы. Однако залежи благородных (   Читать дальше...   )Производство: Германия (ГДР), Румыния, СССР / DEFA, Bucaresti Film, МосфильмЖанр: Приключения, вестернРежиссер: Готтфрид КольдицАктеры: Гойко Митич, Милан Бели, Коля Рэуту, Леон Немчик, Джерри Вольф, Эльза Грубе-Дайстер, Фред Людвиг, Фред Дельмаре, Хартмут Бер, Хорст Кубе, Томас ВайсгерберПеревод: ДублированныйЯзык субтитров: Русский, английский, немецкийПродолжительность: 01:29:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AEC87761569DC8A172CFD2A23863B9A35E64A12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905391   (196773) от 20.06.2023
 
 Аллея грома / Thunder Alley (1967) HDTV [H.264/1080i]
@@ -6,7 +110,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196773.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196772.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196658.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196598.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196025.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195931.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195852.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195821.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195768.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195723.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195534.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195459.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195452.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195427.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195425.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195379.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195114.jpg" />
 </div>
 
 
@@ -452,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_194918.jpg" />
 </div>
 
 
@@ -478,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194389.jpg" />
 </div>
 
 
@@ -504,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194311.jpg" />
 </div>
 
 
@@ -530,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193916.jpg" />
 </div>
 
 
@@ -556,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193798.jpg" />
 </div>
 
 
@@ -567,110 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D3E783CEC4A86A029403EE3C490B54493C043B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655110   (193508) от 30.08.2023
-
-За пригоршню динамита / Giu la testa / A Fistful of Dynamite (1971) BDRemux [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193508.jpg" />
-</div>
-
-
-###  Подробнее
-
-На бескрайних мексиканских просторах встречаются два солдата удачи - развеселый бандит Хуан Миранда, грабящий со своими детишками почтовые дилижансы, и ирландский террорист Мэллори, мчащийся на мотоцикле навстречу опасности и оставляющий воронки от разрывов динамитных шашек. Миранда мечтает использовать взрывоопасный талант Мэллори для ограбления банка. Но вместо (   Читать дальше...   )Производство: Италия / Euro International Film (EIA), Rafran Cinematografica, San MarcoЖанр: вестерн, боевик, приключенияРежиссер: Серджио ЛеонеАктеры: Джеймс Коберн, Род Стайгер, Ромоло Валли, Антуан Сент-Джон, Франко Грациози, Дэвид Уорбек, Рой Босьер, Джон Фредерик, Мария Монти, Антонио КазалеПеревод: многоголосый профессиональный, двухголосый профессиональный, одноголосый любительский.Язык озвучки: русский, английский, итальянскийСубтитры: русские (Forced, Full), английские (Full, SDH), итальянские (SDH)Продолжительность: 02:36:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3E717F0BE22B1D972C2DAC151FD17E7878F7780
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652399   (192976) от 02.09.2023
-
-Мальтийский сокол / The Maltese Falcon (1941) BDRip [H.264/720p] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это третья по счёту и наиболее прославленная экранизация одноимённого романа Дэшила Хэмметта (1930). В 1539 году рыцари ордена тамплиеров острова Мальта заплатили дань королю Испании Карлу V, послав ему золотого сокола, покрытого от клюва до когтей редкими драгоценными камнями. Но пираты захватили галеру, перевозившую бесценный дар, и судьба мальтийского сокола остаётся (   Читать дальше...   )Производство: США, Warner Bros. PicturesЖанр: нуар, мелодрама, криминал, детектив, экранизацияРежиссер: Джон ХьюстонАктеры: Хамфри Богарт, Мэри Астор, Глэдис Джордж, Петер Лорре, Бартон МакЛэйн, Ли Патрик, Сидни Гринстрит, Уорд Бонд, Джером Кауэн, Элиша Кук мл., Джеймс Бёрк, Мюррэй Элпер, Джон Хэмилтон, Чарльз Дрэйк, Честер ГанПеревод: профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеКачество: BDRipПродолжительность: 01:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78490A4ECCC8362D68396553D1F79AA81286C97E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587598   (192667) от 31.10.2022
-
-Леди в поезде / Lady on a Train (1945) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на рассказе Лесли Чартерис и рассказывает о Ники, любительнице книжных детективов, которая из окна поезда становится свидетельницей убийства в соседнем здании. После того как она сообщает об убийстве в полицию, которая быстро отвергает её версию, Ники обращается к популярному автору детективов с просьбой помочь ей раскрыть преступление...Производство: США, Universal PicturesЖанр: нуар, мелодрама, комедия, криминал, детектив, триллерРежиссер: Чарльз ДэвидАктеры: Дина Дурбин, Ральф Беллами, Дэвид Брюс, Джордж Кулурис, Аллен Дженкинс, Дэн Дьюриа, Эдвард Эверетт Хортон,Жаклин деВит, Патриша Морисон, Элизабет ПаттерсонПеревод: профессиональный многоголосый (Инфофильм)Субтитры: английские SDHПродолжительность: 01:34:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F386A275422ED517DDC1BA5DBF06B59A4F86D765
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551920   (192582) от 31.10.2022
-
-Дочь дьявола / La fille du diable (Devil’s Daughter) (1946) BDRip [H.264/720p] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Преследуемого полицией грабителя Саже по доброте душевной подсаживает к себе в машину возвращающийся в родные края из Америки Людовик Мерсье. Но на ночной дороге автомобиль, управляемый изрядно набравшимся по случаю возвращения на родину репатриантом, терпит аварию. Мерсье погибает, а чудом выживший Саже присваивает себе его личность. В маленьком провинциальном городке (   Читать дальше...   )Производство: Франция, Pathé Consortium Cinéma, Safia, Société Nouvelle Pathé CinémaЖанр: ДрамаРежиссер: Анри ДекуанАктеры: Пьер Френе, Фернан Леду, Тереза Дорни, Пьер Жювене, Роберт Селер, Поль Франкёр, Николас Амато, Андре Васле, Альберт Гладо, Франсуа ПатрисПеревод: Авторский (Андрей Дольский)Субтитры: Английские, французскиеПродолжительность: 01:39:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CEB8FAE0B0AEB63D85B51D8D0693B1AC4D84EBF
 ```
 
 https://mybot314.ru/tekegram_catalog/

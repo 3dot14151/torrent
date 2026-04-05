@@ -1,3 +1,81 @@
+###  Публикация: 1402113   (703006) от 13.08.2020
+
+Сборник - Creative Market - Huge Typographic Pack + 60 Logos ! - 2798169 [EOT, OTF, TTF, WOFF, WOFF2, PNG, AI, EPS, PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пришло время получить все мои 44 шрифта, включая 221 шрифт + 60 БОНУСНЫХ шаблонов логотипов.Формат: EOT, OTF, TTF, WOFF, WOFF2, PNG, AI, EPS, PSDРазрешение файлов: 132x1500-1500x1490
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0330377D830B69A65D558E17C0A1F6BAD5715BA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402826   (697325) от 16.08.2020
+
+Сборник - Creative Market - SUPER BUNDLE 100 TS DESIGN VOL.2 - 3917317 [PNG, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всем привет, представляю мой новейший продукт, дизайн футболки super bundle 100 vol.2. В отличие от пакета vol.1, этот пакетный продукт vol.2 предлагает более разнообразные функции и более полный, чем другие продукты. Этот комплект состоит из 100 векторных изображений в формате eps в высоком разрешении и 100 прозрачных изображений в формате PNG в высоком разрешении. (   Читать дальше...   )Формат: PNG, EPSРазрешение файлов: 2480x3508-6299x3543
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F7AEB84190275B17D08A68D66F34A9A554890C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 333838   (689532) от 09.05.2011
+
+Сборники - Великий праздник - 9 мая! (08.05.11) [JPG, PNG, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Картинки посвящённые Великому празднику - 9 мая!Формат: JPG, PNG, EPSРазрешение файлов: 1022х1307-6436х9472
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9253EF7EA46DCA1F2D5E0AC75D98D2A975F2D54A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222429   (684810) от 29.04.2018
 
 Фоны - GraphicBurger - 6 Iridescent Holographic Backgrounds [PNG, AI]
@@ -6,7 +84,7 @@
 >>Сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684810.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684695.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684683.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658568.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619419.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570540.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539921.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528707.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524703.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463229.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460787.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452430.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443485.jpg" />
 </div>
 
 
@@ -349,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407230.jpg" />
 </div>
 
 
@@ -375,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386378.jpg" />
 </div>
 
 
@@ -401,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385713.jpg" />
 </div>
 
 
@@ -427,7 +505,7 @@ Creative Fabrica - 5000 in 1 - Black Lines Mega Bundle [PNG, JPG, EPS]
 >>Сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380629.jpg" />
 </div>
 
 
@@ -453,7 +531,7 @@ Creative Fabrica - 1500 Graphic Mega Halloween Bundle [PNG, JPG, EPS]
 >>Сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380628.jpg" />
 </div>
 
 
@@ -479,7 +557,7 @@ VideoHive, GraphicRiver, AudioJungle - Envato Bundle 2012 - 50 Premium Items Col
 >>Сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373996.jpg" />
 </div>
 
 
@@ -505,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336709.jpg" />
 </div>
 
 
@@ -531,7 +609,7 @@ Waving Flags Bundle [PNG, AI, SVG]
 >>Сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336374.jpg" />
 </div>
 
 
@@ -557,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334511.jpg" />
 </div>
 
 
@@ -583,7 +661,7 @@ Creative Fabrica - The Mega Christmas Bundle - 1200+ Graphics All in 1 Cute Bund
 >>Сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309116.jpg" />
 </div>
 
 
@@ -594,87 +672,6 @@ Creative Fabrica - The Mega Christmas Bundle - 1200+ Graphics All in 1 Cute Bund
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DD54683F9702FF20AB63A3EEF90F1007825D460
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 846392   (301601) от 02.12.2014
-
-Сборник - Новый Год 2015-3 / New Year 2015-3 [JPEG,PNG,PSD,AI,EPS]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Готовимся к встрече  :newyear2: )Формат: JPEG,PNG,PSD,AI,EPS,ASL,ATN, и даже AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABCA5E41C89927F230AF0BB4B158BA92BAD84D97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186647   (283723) от 26.11.2017
-
-Клипарт - Creative Market - Rococo. Vol. 2 - 1973760 [AI, EPS, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция роскошных векторных файлов «Rococo. Том. 2» включает золотистые бесшовные границы, рамки, виньетки и другие украшающий декор для ваших проектов. Набор с элементами в викторианском стиле может быть использован для приглашений, поздравительных открыток, сертификатов, благодарственных писем, веб-дизайна, цифровых записок, DIY и других проектов.Формат: AI, EPS, PNGРазрешение файлов: 603x530-4089x2204
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55D9A1955207EE5687D53228BDAD83E66B1277D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187315   (280007) от 28.11.2017
-
-Клипарт - Creative Market - Rose Pack + 570 Ultra HD Elements - 1663274 [PNG, PSD, EPS, JPG]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник роз для
-- Конструкторов шрифтов
-- веб-дизайнера
-- графических дизайнеров(   Читать дальше...   )Формат: PNG, PSD, EPS, JPGРазрешение файлов: 161x1000-8000x5500
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5B0DFCC74B077EC1327BD434FCBD64364CB853A
 ```
 
 https://mybot314.ru/tekegram_catalog/

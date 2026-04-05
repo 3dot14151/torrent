@@ -1,32 +1,3 @@
-###  Публикация: 1695414   (120281) от 29.01.2024
-
-Friends and Neighbors - Circle (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cecil (5:42)
-02. Circles (6:45)
-03. Ghost March (5:52)
-04. Son (8:18)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E237F9EA8A67DE7AEA93EC8B82A6D6EFCC5D00C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695409   (120280) от 29.01.2024
 
 DB & the Soho Nine-Six - DB & the Soho Nine-Six (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
@@ -35,7 +6,7 @@ DB & the Soho Nine-Six - DB & the Soho Nine-Six (2024) [FLAC 24/96|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120280.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Chris Buergi - You Make Me Rock (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120278.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ The Fried Seven - Late to the Party (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120275.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Matthieu Chazarenc - CANTO III (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120270.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Arve Henriksen - Touch of Time (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120269.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Kinga Glyk (Kinga Głyk) - Real Life (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120268.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Beyond Border - Gathering (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Futurepo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120266.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Still Remains - The Serpent (2007) [FLAC|24/192|image + .cue|Vinyl-Rip] <Metalco
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120256.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Jonas Cambien - Maca Conu (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120250.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Qow Trio - The Hold Up (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120249.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Scheen Jazzorkester, Cortex & Thomas Johansson - Frameworks (2024) [FLAC 24/48|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120248.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Felix Tellier Pouliot - Hometown Zero (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120245.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Hiruy Tirfe - 10,000 Hours (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120243.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Reign of Fury - Studio Albums (4 releases) (2011-2019) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120133.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Gianluca De Palo - My Kind Of Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120097.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Anbaric - Generator (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120064.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Pet Shop Boys - Loneliness (2024) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119851.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Avenged Sevenfold - Дискография (10 albums) (2001-2023) hand made [re
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119842.jpg" />
 </div>
 
 
@@ -556,7 +527,7 @@ Romantic Candlelight Orchestra, Love Music Zone - Candlelit Piano Fancy Romantic
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119815.jpg" />
 </div>
 
 
@@ -585,7 +556,7 @@ Soft Jazz Music, Jazz Music Zone - Vintage Jazz at Twilight (2024) [FLAC 24/44.1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119813.jpg" />
 </div>
 
 
@@ -614,7 +585,7 @@ Tom Waits - The Island Years (1983-1993) (2023 Remaster) [FLAC 24/192|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119803.jpg" />
 </div>
 
 
@@ -643,7 +614,7 @@ Smooth Jazz Music Academy - Winter's Warmth Relaxing Jazz with Hot Chocolate (20
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119781.jpg" />
 </div>
 
 
@@ -672,7 +643,7 @@ VA - Soft Lights Romantic Night Jazz & Sensual Flamenco Guitar to Ignite Your Se
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119779.jpg" />
 </div>
 
 
@@ -701,7 +672,7 @@ VA - Cupid's Heartbeat Sensational Bossa Nova Music, Romantic Latin Jazz, Brazil
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119776.jpg" />
 </div>
 
 
@@ -730,7 +701,7 @@ Guns N' Roses - G N' R Lies (1988) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119764.jpg" />
 </div>
 
 
@@ -744,6 +715,35 @@ G Side 1986
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DFC6BE21DC587F20D4ADFCBF2D23F4A309C9BEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696275   (119760) от 01.02.2024
+
+Guns N' Roses - Appetite for Destruction (1987) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To The Jungle
+02. It's So Easy
+03. Nightrain
+04. Out Ta Get Me(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C442A97E71BEA7AB3B36B5D28953CB0CA5445DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

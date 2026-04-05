@@ -1,3 +1,107 @@
+###  Публикация: 1785741   (24347) от 17.03.2025
+
+Device Info HW+ v5.21.0 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Device Info HW — это приложение для получения информации об аппаратном и программном обеспечении для устройств Android. Приложение пытается обнаружить компоненты вашего смартфона, чтобы предоставить полную информацию об аппаратном обеспечении устройства. Теперь поддерживается обнаружение ЖК-дисплея, сенсорного экрана, камер, датчиков, памяти, вспышки, аудио, NFC, (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 17.03.2025Разработчик: Andrey EfremovПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:107DE87203A80D6D0FEF847B3247618CDEB7A03F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785943   (24281) от 18.03.2025
+
+FBReader Premium v3.8.4 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это "премиальная" версия читалки FBReader. Основные форматы книг: fb2 (и fb2.zip), ePub (включая основные возможности ePub3), Kindle (он же azw3, он же mobipocket), pdf, комиксы (cbr/cbz). Другие форматы: rtf, doc (MS Word), html, обычный текст. Читая в FBReader на иностранном языке, вы можете смотреть переводы незнакомых слов в словаре (словарь можно выбрать (   Читать дальше...   )Тип издания: Premium / Mod ExtraРелиз состоялся: 18.03.2025Разработчик: FBReader.ORG LimitedПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F136522EE26A6560F7A4EA2E00EB156BB6F56B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786093   (24193) от 19.03.2025
+
+IPTV Pro v9.0.9 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Смотрите IP-телевидение вашего интернет-провайдера или ТВ из любого другого интернет-источника на телефоне или планшете! Саму трансляцию осуществляет провайдер, поэтому если вдруг что-то перестало показывать, то скорее всего дело именно в провайдере, обращайтесь к нему. Чтобы убедиться в этом наверняка, просто откройте плейлист на компьютере при помощи VLC или IP-TV (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 18.03.2025Разработчик: Alexander SofronovПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:562F99ADFF10C5835DAF5D0CAEA1216838BD1E94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778985   (24188) от 19.03.2025
+
+Штанга. Тренировка дома v4.07 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весьма мощный инструмент для тренировки мышц и поддержания их эффективного объёма в домашних условиях. Содержит обширное количество тренировок с иллюстрациями. В наличии возможность создания своих комплексов упражнений. Позволяет вести статистику занятий.Тип издания: ModРелиз состоялся: 19.03.2025Разработчик: AxiomRunПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D9331682C6C38D0AA01D5EDF772A22EC319D621
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1786441   (24040) от 20.03.2025
 
 TikTok 39.1.3 Mod Asia by Dmitry Nechiporenko + Plugin 2.1 [Ru/Multi]
@@ -6,7 +110,7 @@ TikTok 39.1.3 Mod Asia by Dmitry Nechiporenko + Plugin 2.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24040.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24031.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Call Filter / Фильтр Звонков v1.23.5 Mod by Balatan [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24008.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Smart Tools v2.1.15 mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23974.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ LazyMedia Deluxe v3.369 Mod by Alex.Strannik [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23778.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Passwords & Passkeys－Safe v25.0.15 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23734.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ Fishing Knots Pro / Рыбацкие узлы Pro v8.7.60 Мод by Applicazioni
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23717.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ Arduino Remote v1.0.2 Mod by Johann Shilinski [En] (авторская разд�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23704.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23547.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23147.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23134.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ Tone Generator PRO 3.78 Mod by Alex.Strannik [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23087.jpg" />
 </div>
 
 
@@ -322,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23012.jpg" />
 </div>
 
 
@@ -349,7 +453,7 @@ MiHome v10.3.700 Mod by Vevs [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22941.jpg" />
 </div>
 
 
@@ -378,7 +482,7 @@ SD Maid 2/SE v1.4.3-beta0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22655.jpg" />
 </div>
 
 
@@ -404,7 +508,7 @@ AdGuard Ad Blocker TV Premium Final [No-Root] v4.9.50 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22416.jpg" />
 </div>
 
 
@@ -431,7 +535,7 @@ Bananastreet: Deep House & EDM v4.1.61 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22289.jpg" />
 </div>
 
 
@@ -458,7 +562,7 @@ SnapEdit - AI photo editor v7.3.5 Mod by Oflarm [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22287.jpg" />
 </div>
 
 
@@ -484,7 +588,7 @@ InColor: Coloring & Drawing v6.5.4 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22283.jpg" />
 </div>
 
 
@@ -510,7 +614,7 @@ CCleaner Pro: ПО для очистки 25.07.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22091.jpg" />
 </div>
 
 
@@ -536,7 +640,7 @@ Dict Box - Английский словарь v8.9.9 Mod by Alex.Strannik [Ru/M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21964.jpg" />
 </div>
 
 
@@ -562,7 +666,7 @@ Password Safe and Manager v8.2.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21784.jpg" />
 </div>
 
 
@@ -573,110 +677,6 @@ Password Safe and Manager v8.2.4 Mod by Balatan [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36E1E8A6DD69FB62656676477F76572B8928F1A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791024   (21751) от 11.04.2025
-
-PhotoRoom v2025.15.02 Mod by Mixroot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение автоматически вырезает объекты и людей на ваших фотографиях. Всего одним нажатием вы сможете убрать фон и создать красивое изображение для презентации вашего продукта или модели. Выберите фон белого или любого другого цвета. Отрегулируйте освещение, добавьте текст, логотип или стикеры, создайте коллаж или воспользуйтесь одним из наших **многочисленных (   Читать дальше...   )Тип издания: ProРелиз состоялся: 10.04.2025Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 10.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3C232B9633D3CA598C3E79414268E700CACB10C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791110   (21700) от 12.04.2025
-
-Лайм HD TV: цифровое ТВ онлайн v5.7.5 Mod by vadj [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лайм HD TV — ваш идеальный выбор для просмотра ТВ каналов, фильмов, сериалов в прямом эфире! Смотрим прямой эфир онлайн ТВ: телеканалы, сериалы и кино, новости и спортивные трансляции. Бесплатный просмотр фильмов и мультфильмов на вашем телефоне! Откройте для себя мир цифрового телевидения и онлайн-кино с Лайм ТВ. Смотрите фильмы и сериалы, наслаждайтесь прямым эфиром (   Читать дальше...   )Тип издания: AdfreeРелиз состоялся: 11.04.2025Разработчик: Лайм Эйч ДиПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62929D6370C1480EA159BE5F432A3DF685E233E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791091   (21655) от 12.04.2025
-
-Instant Translate On Screen / Перевод с экрана v7.0.09885 Mod by vadj [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Instant Translate On Screen — это мощное приложение для перевода с экрана, которое поддерживает точный перевод между более чем 100 языками. Это приложение идеально подходит для использования в социальных сетях, позволяя вам быстро переводить сообщения чата вашего друга, сообщения в блогах на иностранных языках, веб-сайты и многое другое без языковых барьеров.Тип издания: PremiumРелиз состоялся: 13.03.2025Разработчик: Sapiens LabsПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:077CF8BED130A29C35C2B43B3DFDDFD27FECB12C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791103   (21622) от 12.04.2025
-
-BlockSudoku / Кудоку-Вуди Блок v2.6.0 Mod by vadj [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21622.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра Wood Block Sudoku Game – игра судоку с использованием кубиков. Игра сочетает в себе классическую головоломку и судоку. Простая и вместе с тем захватывающая игра. Кубики можно располагать не только по рядам, но также и по секторам 3 на 3. Wood Block Sudoku Game предлагает самые разные варианты сбора кубиков.Тип издания: ModРелиз состоялся: 11.04.2025Разработчик: Oakever GamesПоддерживаемая ОС: Android 7.0+Жанр: ГоловоломкаЯзык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C0E33DBBFC2BFD001013FFFA17AB223E78A9D05
 ```
 
 https://mybot314.ru/tekegram_catalog/

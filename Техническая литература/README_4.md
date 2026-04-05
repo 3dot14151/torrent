@@ -1,3 +1,55 @@
+###  Публикация: 1368886   (906970) от 21.03.2020
+
+Андерс Андерссон | Измерительные технологии для процесса автоматизации (2017) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная книга ориентирована на практическую работу с измерительными приборами. Вы можете начать с поиска примера, близкого к вашей проблеме измерения. Таким образом, это не важно, в какой отрасли вы работаете. Например, вопросы измерения и контроля в процессе смешивания в большинстве аспектов одинаковы, независимо от того, работаете ли вы с нефтью, пищевыми продуктами (   Читать дальше...   )Жанр: Автоматика и телемеханикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A834A5CD345439CCFC5D9E38D9634CA471057076
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099347   (903148) от 02.02.2017
+
+А.М. Рембовский и др. | Радиомониторинг. Зaдачи, методы, средства (2010) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903148.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены типовые задачи, решаемые с помощью средств радиомониторинга в самых различных областях - от управления использованием радиочастотного спектра до контроля радиообстановки при проведении контртеррористических операций. Изложены теоретические и практические вопросы построения и функционирования радиотехнических систем радиомониторинга и технической защиты (   Читать дальше...   )Жанр: РадиотехникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2256E06BA41E53CD43C3FE2E8A46BF52F70A5616
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991798   (902367) от 01.03.2016
 
 С.Б. Аджиманбетов, Б.М. Рапутов | 50 советов сельскому электрику (1993) [PDF]
@@ -6,7 +58,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902367.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898784.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893450.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893249.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893237.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887899.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ Siemens | Каталог КИП Siemens [9 книг] (2016) [PDF]
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887616.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878859.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876413.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872730.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872305.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871061.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870600.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865603.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862805.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859525.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857157.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855252.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848276.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845191.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843112.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843106.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842933.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841503.jpg" />
 </div>
 
 
@@ -625,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80EB0AEDAA2C2B4DD070DBFEC6B0B02274224212
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112415   (841111) от 09.03.2017
-
-ARRL | The ARRL Handbook for Radio Communications (2017) [PDF] [En]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841111.jpg" />
-</div>
-
-
-###  Подробнее
-
-The ARRL Handbook for Radio Communications - справочник по радиосвязи является одним из наиболее полных по теории и практике, касающихся основ радиоэлектроники, проектирование схем и оборудования, передачи радиосигнала и распространения радиоволн, антенн, методах строительства, и многое другое. Каждая глава наполнена самыми современными сведениями и представляет (   Читать дальше...   )Жанр: КВ и УКВ радиосвязь, радиоэлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F0673AA0DA8DB2405046A02CF6C63CBEC80137A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500370   (841063) от 06.10.2021
-
-Шаошань Лю и др. | Разработка беспилотных транспортных средств (2022) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841063.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная книга – один из первых технических обзоров беспилотных транспортных средств (БТС), написанных для широкой компьютерной и инженерной аудитории. На протяжении всей книги авторы делятся своим практическим опытом проектирования систем беспилотных транспортных средств (БТС). Это издание позволяет очень детально ознакомиться с современными достижениями в области (   Читать дальше...   )Жанр: Электроника, транспортПеревод: П.М. БомбаковаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:577E2F1B1AA755539B60C60A265F1971E88E1B00
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,33 @@
+###  Публикация: 1636878   (18737) от 10.05.2025
+
+Nemesea - Studio Albums (5 releases) (2004-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic/Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nemesea — голландская симфо-метал-группа.
+Группа была образована в 2002 году вокалисткой Мандой Опхёйс и гитаристом Хенриком Яном де Йонгом в консерватории города Гронинген.2004 - Mana
+2007 - In Control
+2011 - The Quiet Resistance
+2016 - Uprise(   Читать дальше...   )Жанр: Symphonic Metal/Alternative RockПродолжительность: 04:20:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E76DC99622A81536F818C8E1EA7B33AF356C9FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1796886   (18393) от 13.05.2025
 
 Лили Иванова - Поет Лили Иванова (1968) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Pop>
@@ -6,7 +36,7 @@
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18393.jpg" />
 </div>
 
 
@@ -35,7 +65,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18300.jpg" />
 </div>
 
 
@@ -64,7 +94,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18083.jpg" />
 </div>
 
 
@@ -93,7 +123,7 @@ Rodmir - Родмир (1990) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17669.jpg" />
 </div>
 
 
@@ -122,7 +152,7 @@ Samael - Passage (1996) Released, 2011, Floga Records [FLAC|24/192|image + .cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17533.jpg" />
 </div>
 
 
@@ -151,7 +181,7 @@ Arcana - Studio Albums (9 releases) (1996-2014) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17341.jpg" />
 </div>
 
 
@@ -181,7 +211,7 @@ VA - Jan Sparring/Nils-Borge Gardh/Linda Hutchens/Bobby Jones & New Life - Till 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17340.jpg" />
 </div>
 
 
@@ -210,7 +240,7 @@ Onslaught - Studio & Live Albums (10 releases) (1985-2025) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17002.jpg" />
 </div>
 
 
@@ -239,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16971.jpg" />
 </div>
 
 
@@ -268,7 +298,7 @@ Slaughter To Prevail - Studio Albums (4 releases) (2016-2025) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16921.jpg" />
 </div>
 
 
@@ -297,7 +327,7 @@ W.A.S.P. - First Blood..Last Cuts (1993) Compilation, Unofficial Release [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16753.jpg" />
 </div>
 
 
@@ -326,7 +356,7 @@ Shadecrown - Studio Albums (4 releases) (2016-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16752.jpg" />
 </div>
 
 
@@ -355,7 +385,7 @@ Ozzy Osbourne - Blizzard of Ozz (1980) Released, 2011, Sony Music [FLAC|24/192|i
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16721.jpg" />
 </div>
 
 
@@ -384,7 +414,7 @@ Slayer (& Kerry King) - Studio Albums (15 releases) (1983-2024) hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16454.jpg" />
 </div>
 
 
@@ -414,7 +444,7 @@ Bonded - Studio Albums (2 releases) (2020-2021) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16229.jpg" />
 </div>
 
 
@@ -441,7 +471,7 @@ Wolfskull - Studio Albums (3 releases) (2019-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16201.jpg" />
 </div>
 
 
@@ -468,7 +498,7 @@ Andreas Vollenweider - The Best Of Vol. 1 (1994) Compilation, Unofficial Release
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16200.jpg" />
 </div>
 
 
@@ -497,7 +527,7 @@ Peter Bjargo (Bjärgö, Arcana, Onus) - Studio Albums (10 releases) (2005-2024) 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16142.jpg" />
 </div>
 
 
@@ -527,7 +557,7 @@ Cradle of Filth - Existence Is Futile (2021) [FLAC|24/192|image + .cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16141.jpg" />
 </div>
 
 
@@ -556,7 +586,7 @@ Rivers of Nihil - Дискография (7 releases) (2010-2025) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16061.jpg" />
 </div>
 
 
@@ -585,7 +615,7 @@ The Haunted - Studio Albums (10 releases) (1998-2025) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15841.jpg" />
 </div>
 
 
@@ -614,7 +644,7 @@ Manowar - Kings Of Metal (1988)[APE|24/96|image + .cue|Vinyl-Rip]  <Heavy Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15642.jpg" />
 </div>
 
 
@@ -643,7 +673,7 @@ The Mamas & The Papas - Best Of The Mamas & The Papas: California Dreamin' (1977
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15620.jpg" />
 </div>
 
 
@@ -672,7 +702,7 @@ Umpfel - Studio Albums (2 releases) (2015-2019) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15539.jpg" />
 </div>
 
 
@@ -699,7 +729,7 @@ Linkin Park - Studio Albums (10 releases) (2000-2024) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15506.jpg" />
 </div>
 
 
@@ -714,35 +744,6 @@ Linkin Park -  рок-группа из Агура-Хиллз, Калифорн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1BE16F7F88AB731498FF17D3BD17C6320A7199D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559388   (15417) от 07.06.2025
-
-Volbeat - Studio Albums (9 releases) (2005-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Volbeat — датская метал-группа, образованная в Копенгагене в 2001 году. Музыкальный стиль группы вдохновлён такими исполнителями как Metallica, Social Distortion, Элвис Пресли и Джонни Кэш.2005 - The Strength The Sound The Songs
-2007 - Rock The Rebel Metal The Devil
-2009 - Guitar Gangsters & Cadillac Blood
-2010 - Beyond Hell-Above HeavenЖанр: Heavy/Groove MetalПродолжительность: 09:30:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3F394C291BBFBB1A29BB0BB46741B84E1D1AD44
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,31 @@
+###  Публикация: 1299572   (595897) от 03.05.2019
+
+ZZ Top - Hit Collection 2000 (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Blues Rock, Texas Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. My Mind is Gone
+02. Just Got PaidЖанр: Blues Rock, Texas BluesПродолжительность: 01:17:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA9BC1DE0C466BC3F64B5398EDB5229BC15D7852
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039541   (594676) от 02.08.2016
 
 VA - Famous Jazz Pianists/Знаменити Джаз Пианисти (1978) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Easy Listening>
@@ -6,7 +34,7 @@ VA - Famous Jazz Pianists/Знаменити Джаз Пианисти (1978) [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594676.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ Bing Crosby (Бинг Кросби) - Play A Simple Melody (1985) [FLAC 1.0|96/2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594606.jpg" />
 </div>
 
 
@@ -64,7 +92,7 @@ VA - Famous Jazz Singers/Знаменитые Джазовые Вокалист�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594577.jpg" />
 </div>
 
 
@@ -93,7 +121,7 @@ VA - Famous Jazz Singers/Знаменитые Джазовые Вокалист�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594568.jpg" />
 </div>
 
 
@@ -122,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594516.jpg" />
 </div>
 
 
@@ -151,7 +179,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594514.jpg" />
 </div>
 
 
@@ -180,7 +208,7 @@ Van Halen - 1984 (1984)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594171.jpg" />
 </div>
 
 
@@ -209,7 +237,7 @@ VA - Песни На Стихи Андрея Вознесенского (1981) [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594036.jpg" />
 </div>
 
 
@@ -238,7 +266,7 @@ The Ray Conniff Singers - It's The Talk Of The Town (1959) 1971 [FLAC 2.0|192/24
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593957.jpg" />
 </div>
 
 
@@ -267,7 +295,7 @@ Ray Conniff/Рэй Коннифф - Смех Под Дождем (1976) [FLAC 2.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593733.jpg" />
 </div>
 
 
@@ -296,7 +324,7 @@ Ray Conniff/Рэй Коннифф - Голубая Рапсодия (1987) [FLAC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593359.jpg" />
 </div>
 
 
@@ -325,7 +353,7 @@ Twisted Sister - Studio Albums (8 releases) (1982 - 2006) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592844.jpg" />
 </div>
 
 
@@ -355,7 +383,7 @@ Opeth - Дискография (19 albums) (1995 - 2019) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592470.jpg" />
 </div>
 
 
@@ -384,7 +412,7 @@ Mastodon - Дискография (15 albums) (2001 - 2021) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592466.jpg" />
 </div>
 
 
@@ -413,7 +441,7 @@ Sting - Collection (8 Albums) (1985 - 2003) hand made [restored, declipped] [FLA
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592446.jpg" />
 </div>
 
 
@@ -442,7 +470,7 @@ VA - Звезды Мехико (1969) (Л. Барашков, Т. Миансар�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590222.jpg" />
 </div>
 
 
@@ -471,7 +499,7 @@ Bad Company - Rough Diamonds (1982)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590099.jpg" />
 </div>
 
 
@@ -500,7 +528,7 @@ VA - Белый Теплоход - Золотые шлягеры 70-х (2000) Co
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589714.jpg" />
 </div>
 
 
@@ -529,7 +557,7 @@ Billy Talent - Studio Albums (7 releases) (1999 - 2022) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589389.jpg" />
 </div>
 
 
@@ -558,7 +586,7 @@ Electric Light Orchestra - Out Of The Blue (1977) 2LP  [FLAC 2.0 24/192|image (V
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588313.jpg" />
 </div>
 
 
@@ -587,7 +615,7 @@ Sandra - Everlasting Love (1988) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Synthpop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585889.jpg" />
 </div>
 
 
@@ -622,7 +650,7 @@ Boston - Don't Look Back (1978) Santa Maria Press [FLAC 2.0|96/24|image+.cue|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584759.jpg" />
 </div>
 
 
@@ -651,7 +679,7 @@ Ray Charles - Selected Songs (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Funk,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584456.jpg" />
 </div>
 
 
@@ -680,7 +708,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584429.jpg" />
 </div>
 
 
@@ -709,7 +737,7 @@ C.C. Catch - Diamonds: Her Greatest Hits (1988) [FLAC 2.0|192/24|image +.cue|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584266.jpg" />
 </div>
 
 
@@ -723,35 +751,6 @@ A3 'Cause You Are Young(   Читать дальше...   )Жанр: Euro Disco�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74EE639E50570487C1163D810A3F99B680BA2D18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301234   (584015) от 12.05.2019
-
-VA - Rock'n'Roll (1977) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Rock & Roll>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584015.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1.a Shakin' Stevens And The Sunsets - It's Rock'N'Roll
-A1.b Shakin' Stevens And The Sunsets - I Told You So
-A2 Chas And Dave And Various - That's Alright Mama
-A3 Freddie "Fingers" Lee - Down On The Farm(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 00:37:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EB95A32E2486E3A6FA6DFC163170B0380014B35
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1628882   (238497) от 24.04.2023
+
+Ольга Базанова | Сочный десерт (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что Вы получаете приобретая мастер-класс:
+- Видео запись того, как Ольга Базанова пишет картину с подробными объяснениями, как это делать
+
+Вы научитесь:(   Читать дальше...   )Жанр: РисованиеЯзык озвучки: РусскийПродолжительность: 03:32:34Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:434A065120C11603B3BEBEEAF5ECFCCBB7F9634B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1628881   (238462) от 24.04.2023
 
 Ольга Базанова | Чай с лимоном (2023) WEB-DL [AD] [RU]
@@ -6,7 +35,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238462.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ FlippedNormals, Chunck Trafagander | UV Mapping for Games (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238461.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ Zero To Mastery Academy (ZTM), Aleksa Tamburkovski | Complete Cybersecurity Boot
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238425.jpg" />
 </div>
 
 
@@ -87,7 +116,7 @@ Alessandro Zamboni | Discover The Secrets To Creating Bestselling Sticker Design
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238378.jpg" />
 </div>
 
 
@@ -116,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238352.jpg" />
 </div>
 
 
@@ -145,7 +174,7 @@ Gumroad, Henrique Campanha | Painting a Realistic Skin Texture using Mari (2015)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238141.jpg" />
 </div>
 
 
@@ -173,7 +202,7 @@ Pluralsight, Dan Cox | Realistic Texturing of Modular Structures in Substance Pa
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238063.jpg" />
 </div>
 
 
@@ -199,7 +228,7 @@ Motiondesign.school, Markus Magnusson | Science of Character Animation (2019) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237902.jpg" />
 </div>
 
 
@@ -225,7 +254,7 @@ CGcircuit, Steven Knipping | Applied Houdini Volumes I (2019) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237796.jpg" />
 </div>
 
 
@@ -251,7 +280,7 @@ Michael Pavlovich | Substance Designer Quick Start (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237772.jpg" />
 </div>
 
 
@@ -279,7 +308,7 @@ Skillshare, Neil Bettison | Blender 3 - The Beginners Ultimate Stylized Scene Cl
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237689.jpg" />
 </div>
 
 
@@ -305,7 +334,7 @@ Michael Pavlovich | Substance Painter Quick Start (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237645.jpg" />
 </div>
 
 
@@ -333,7 +362,7 @@ Gumroad, Daniel Thiger | Tree Bark Creation (2019) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237447.jpg" />
 </div>
 
 
@@ -359,7 +388,7 @@ Skillshare, Aniket Rawat | Creating a Kitchen Environment in Unreal Engine 5 (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237097.jpg" />
 </div>
 
 
@@ -386,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237007.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236966.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ Cyberband Academy | Полное погружение в No-code (2021) WEB-DL [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236910.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ Lynda, Brenda Romero | Game Design Foundations: 1 Ideas, Core Loops, and Goals (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236840.jpg" />
 </div>
 
 
@@ -494,7 +523,7 @@ DesignCourse, Gary Simon | Kickstart your UI/UX Design Career (2022) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236838.jpg" />
 </div>
 
 
@@ -523,7 +552,7 @@ The Gnomon Workshop, Bill Buckley | Creating Game Ready Animations for Productio
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236818.jpg" />
 </div>
 
 
@@ -549,7 +578,7 @@ Udemy, Logus Online | Master English grammar| Grammar rules, practice, tests (20
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236803.jpg" />
 </div>
 
 
@@ -575,7 +604,7 @@ OTUS, Сергей Караткевич и др. | SRE практики и ин�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236748.jpg" />
 </div>
 
 
@@ -601,7 +630,7 @@ WingFox, Pedro Blanco | Sci-Fi Environment Design Concept Art Course (2020) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236624.jpg" />
 </div>
 
 
@@ -627,7 +656,7 @@ Udemy, Антон Трунович | Основы информационной �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236608.jpg" />
 </div>
 
 
@@ -653,7 +682,7 @@ Udemy, Andrei Dumitrescu | Linux Administration: The Complete Linux Bootcamp for
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236583.jpg" />
 </div>
 
 
@@ -664,32 +693,6 @@ Udemy, Andrei Dumitrescu | Linux Administration: The Complete Linux Bootcamp for
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72678F48F92B771CDCB6FC2B12EE078463507532
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549917   (236313) от 09.05.2022
-
-Udemy, Md. A. Barik | LeetCode in Java: Algorithms Coding Interview Questions (2022) WEB-DL [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236313.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе вы получите подробное пошаговое объяснение классических задач LeetCode, отобранных вручную, где вы узнаете об оптимальных способах решения вопроса на собеседовании по техническому программированию. Это курс, который я хотел бы иметь, когда готовился к собеседованию. LeetCode — это огромный репозиторий реальных вопросов для интервью, заданных самыми популярными (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 29:31:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C27DC56C40F6DA19773940F91E0366066F0148D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

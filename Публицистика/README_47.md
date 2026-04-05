@@ -1,3 +1,31 @@
+###  Публикация: 927819   (524065) от 14.08.2015
+
+Алексей Колобродов | Захар (2015) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Имя писателя Захара Прилепина впервые прозвучало в 2005 году, когда вышел его первый роман «Патологии» о чеченской войне.
+
+За эти десять лет он написал ещё несколько романов, каждый из которых становился символом времени и поколения, успел получить главные литературные премии, вёл авторские программы на ТВ и радио и публиковал статьи в газетах с миллионными тиражами, (   Читать дальше...   )Жанр: Биографии и Мемуары, Публицистика: прочее, КритикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E608337A7FD27D668077F13AA2F2EF2FAD25CE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 760551   (523979) от 14.08.2015
 
 Курт Зонтхаймер | Как нацизм пришел к власти (2009) [DJVU] [UKR]
@@ -6,7 +34,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523979.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523661.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523532.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523027.jpg" />
 </div>
 
 
@@ -110,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522975.jpg" />
 </div>
 
 
@@ -138,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522969.jpg" />
 </div>
 
 
@@ -166,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522914.jpg" />
 </div>
 
 
@@ -192,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521550.jpg" />
 </div>
 
 
@@ -220,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521424.jpg" />
 </div>
 
 
@@ -246,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520248.jpg" />
 </div>
 
 
@@ -274,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520217.jpg" />
 </div>
 
 
@@ -300,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519206.jpg" />
 </div>
 
 
@@ -326,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518494.jpg" />
 </div>
 
 
@@ -353,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518466.jpg" />
 </div>
 
 
@@ -379,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518176.jpg" />
 </div>
 
 
@@ -406,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515982.jpg" />
 </div>
 
 
@@ -433,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515021.jpg" />
 </div>
 
 
@@ -459,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513861.jpg" />
 </div>
 
 
@@ -485,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511094.jpg" />
 </div>
 
 
@@ -511,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511084.jpg" />
 </div>
 
 
@@ -537,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511080.jpg" />
 </div>
 
 
@@ -563,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510844.jpg" />
 </div>
 
 
@@ -589,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510723.jpg" />
 </div>
 
 
@@ -615,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510710.jpg" />
 </div>
 
 
@@ -641,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509279.jpg" />
 </div>
 
 
@@ -653,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49131FB4FB8C4CD6D1365297E9A68448E3626F22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932562   (509176) от 29.08.2015
-
-Виктор Ульяненко | Шокирующие китайцы. Все, что вы не хотели о них знать (2011) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509176.jpg" />
-</div>
-
-
-###  Подробнее
-
-Китай окутан массой домыслов, легенд и предрассудков. Хотя Россия и Поднебесная империя живут рядом друг с другом уже сотни лет, наши представления о восточных соседях часто крайне далеки от истины. В сознании рядового россиянина Китай представляет собой нечто среднее между идеальным носителем мирового культурного наследия, страной дворцов, пагод и небоскребов и (   Читать дальше...   )Жанр: Путешествия и география, ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72ABC4E21EB6E9D4B12FF2EF73CB1C15304501CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

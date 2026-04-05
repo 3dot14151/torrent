@@ -1,3 +1,111 @@
+###  Публикация: 1416795   (364514) от 17.10.2020
+
+Crusher Joe: Saishuu Heiki Ash | Крушила Джо OVA-2 [1989, OVA, 1 эп.] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая (заключительная) ОВА серии "Crusher Joe". На этот раз команде крушителей предстоит спасать майора Татьяну, которой было доверено сверхсекретное оружия массового уничтожения "Пепел". Отличная классическое аниме в лучших традициях космической фантастики 80х.Производство: Япония,Жанр: приключения, фантастикаРежиссер: Такидзава ТосифумиПеревод: русские субтитрыЯзык озвучки: Японский и русский
+Многоголосая, студияПродолжительность: 55 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:614048CAEC7869EF4899A8599AAA284E3079A4C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416740   (364513) от 17.10.2020
+
+Gochuumon wa Usagi Desu ka? | Is the Order a Rabbit? | Кролика заказывали? [2014, TV, 12 эп.] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Среди пышной зелени раскинулся маленький идиллический город с опрятными домиками в европейском стиле, узкими улочками и уютными кафе. Воздух здесь пропитан ароматом кофе, а по улицам свободно гуляют кролики. В этот радушный пасторальный уголок и попадает наша главная героиня — энергичная, жизнерадостная и немного взбалмошная Кокоа.
+Идя по благоухающей цветами улице (   Читать дальше...   )Производство: White Fox, ЯпонияЖанр: Повседневность, комедияРежиссер: Хасимото ХироюкиОзвучка: Трёхголосая закадроваяЯзык озвучки: Японский и русскийСубтитры: Надписи, Полные (Продолжительность: 12 эпизодов по 24 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9193095F24B73D327F851A92DB3A74096CE07F8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071074   (360681) от 09.11.2016
+
+Hanamonogatari / История цветов [2014, Special, 5 из 5] BDRip 1080р 10-bit rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вот наконец-то вот и вышла она, "История Цветов". Эту арку перенесли потому, что действие после всех остальных книг и потому что Koimonogatari лучше подходила в качестве финальной арки сезона. Ну и людям надо время чтобы полностью проникнуться Кайки.
+
+Тут нам рассказывают историю Канбару, её семьи, её проклятья и как от него она избавилась, историю противостояния (   Читать дальше...   )Производство: ЯпонияЖанр: мистикаРежиссер: Симбо АкиюкиПеревод: Anipaladin, Cuba77Язык субтитров: ОтсутствуютПродолжительность: 5 серий по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D2083FB1C11E2FF9FEDB2E942965A56B9938B00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313657   (360437) от 01.10.2019
+
+Cop Craft | Мастерство копа | Детективные будни: Призрачный перехват [2019, TV, 12 из 12] WEB-DL 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360437.jpg" />
+</div>
+
+
+###  Подробнее
+
+15 лет назад над Тихим океаном открылись гиперпространственные врата, ведущие в мир фей и демонов Лето Семани. Сан-Тереза — город, в котором обитают эмигранты из обоих миров, насчитывает свыше двух миллионов жителей. В нём сосуществуют представители разных наций, культур, социальных слоёв. Это новейший «город мечты». Но есть у него и тёмная сторона: наркотики, проституция, (   Читать дальше...   )Производство: Япония, студия MillepenseeЖанр: реверс-исекай, приключенияРежиссер: Итагаки СинЯзык озвучки: Русский закадровый (Wakanim.tv)Субтитры: русские надписи, неотключаемые.Продолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9C1A999CBA8FD81F59A6181DF4A6CC0D32795A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 578559   (351946) от 21.11.2012
 
 Macross: Do You Remember Love? / Макросс: Помнишь ли ты любовь? [1984, MOVIE, 1 из 1] BDrip 1080i raw + rus + eng
@@ -6,7 +114,7 @@ Macross: Do You Remember Love? / Макросс: Помнишь ли ты люб
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351946.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347219.jpg" />
 </div>
 
 
@@ -58,7 +166,7 @@ Tokyo Mew Mew New | Токио Мяу Мяу [ТВ-2] [2022, TV, 12 из 12] WEB
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344924.jpg" />
 </div>
 
 
@@ -84,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342833.jpg" />
 </div>
 
 
@@ -111,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340252.jpg" />
 </div>
 
 
@@ -138,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338040.jpg" />
 </div>
 
 
@@ -164,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338038.jpg" />
 </div>
 
 
@@ -190,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338037.jpg" />
 </div>
 
 
@@ -216,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338034.jpg" />
 </div>
 
 
@@ -242,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338033.jpg" />
 </div>
 
 
@@ -268,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338028.jpg" />
 </div>
 
 
@@ -294,7 +402,7 @@ Cyberpunk: Edgerunners (2022) | Киберпанк: Бегущие по краю
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338027.jpg" />
 </div>
 
 
@@ -321,7 +429,7 @@ RWBY Ледяное королевство | RWBY: Hyousetsu Teikoku | RWBY: Ice
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335947.jpg" />
 </div>
 
 
@@ -347,7 +455,7 @@ Jujutsu Kaisen | Магическая битва [2020, TV, 24 из 24] BDRip 10
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335946.jpg" />
 </div>
 
 
@@ -373,7 +481,7 @@ Sayonara no Asa ni Yakusoku no Hana o Kazarou | Maquia: When the Promised Flower
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335874.jpg" />
 </div>
 
 
@@ -401,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333651.jpg" />
 </div>
 
 
@@ -427,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331519.jpg" />
 </div>
 
 
@@ -453,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330454.jpg" />
 </div>
 
 
@@ -479,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327786.jpg" />
 </div>
 
 
@@ -505,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327779.jpg" />
 </div>
 
 
@@ -531,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324195.jpg" />
 </div>
 
 
@@ -557,7 +665,7 @@ Violence Jack: Hell's Wind Hen | Violence Jack: Hell's Wind | Жестокий �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322558.jpg" />
 </div>
 
 
@@ -568,112 +676,6 @@ Violence Jack: Hell's Wind Hen | Violence Jack: Hell's Wind | Жестокий �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44D489207D39C2A7C3180552EBB0CD6E76ED295F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312988   (319990) от 17.10.2019
-
-Lord El-Melloi II-sei no Jikenbo: Rail Zeppelin Grace Note | Досье лорда Эль-Меллоя II [2019, TV + Special] [13+1 из 13+1] WEB-DL 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319990.jpg" />
-</div>
-
-
-###  Подробнее
-
-С незапамятных времён бок о бок с людьми втайне существует Ассоциация магов — общество чародеев, постигающих загадки мира за спинами у несведущей публики. Однако даже этим магам не чуждо ничто человеческое, и среди них также нередки зависть, распри и политическая борьба за власть. Подобные преступления нередко выпадает расследовать Вейверу Вельвету, ныне более известному (   Читать дальше...   )Производство: Япония, TROYCAЖанр: Мистика, Сверхъестественное, Фэнтези, ПриключенияРежиссер: Като МакотоЯзык озвучки: Японская и русская
-1) дубляж от ТО "Студийная Банда"Субтитры: надписи, неотключаемыеПродолжительность: 14 эп. по ~24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC440184C06988C454223CEBBBDD87FCD80603F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259698   (315767) от 05.11.2018
-
-Satsuriku no Tenshi / Angels of Death / Ангелы смерти [2018, TV, 16 ep] WEB-DL 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тринадцатилетняя девочка по имени Рэйчел просыпается в подвале здания, не помня, как она попала туда и не зная причин, по которым оказалась в таком затруднительном положении.
-Блуждая по зданию в поисках выхода, девочка встречается с Заком — серийным убийцей с бандажом на лице и косой в руках. Отрешённая и лишённая любых стремлений к жизни, Рэйчел просит нового знакомого (   Читать дальше...   )Жанр: триллер, ужасыРежиссер: Судзуки КэнтароЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 16 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ECC230B8CA2A511563316BDA748D5991991A8CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261245   (304417) от 10.11.2018
-
-Shichisei no Subaru / Seven Senses of the Re'Union / Семизвёздная плеяда [2018, TV, 12 ep] WEB-DL 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Внутри популярной MMORPG Union некогда существовала группа под названием «Субару», состоявшая из знакомых друг с другом в реальной жизни учеников младших классов и считавшаяся легендарной из-за непревзойдённых способностей в использовании системы «Чувств» — основы игровой механики. Но однажды один из игроков умер, находясь внутри игры, что привело к отключению серверов (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Нисёдзи ЁсихитоЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A52C50218586AC7B68EFC4A155C66B4265ECB1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333917   (298239) от 27.10.2019
-
-Ranma 1/2 Special | Ranma Nibun no Ichi Special | Ранма 1/2: Специальные эпизоды [1994, OVA, 2 из 2] BDRip 1080p raw+rus+eng
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новость о необычном животном, обнаруженном в лесу Рюгэнзава, всколыхнула далёкие детские воспоминания Аканэ об отдыхе вместе с семьёй в тех краях. Заблудившись в лесу, она наткнулась на то самое существо, но была спасена таинственным мальчиком. До сих пор считавшая эту встречу лишь обычным сном, Аканэ в одиночку отправляется в Рюгэнзаву на поиски мальчика, чтобы (   Читать дальше...   )Производство: Studio DEEN / スタジオディーンЖанр: приключения, комедияРежиссер: Нисимура ДзюндзиСубтитры: русские (полные)Продолжительность: 2 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FC2DC774D380A34984470B82A291CF4BFE56C63
 ```
 
 https://mybot314.ru/tekegram_catalog/

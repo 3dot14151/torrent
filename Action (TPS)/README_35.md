@@ -6,7 +6,7 @@ Shade: Wrath Of Angels / Гнев Ангелов (2004) [Ru/En] (1.2) Repack Vas
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249974.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Resident Evil: Operation Raccoon City [Multi8\+] (L) 2012 | SKIDROW
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248104.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Orcs Must Die / Бей орков + 5 DLC [Ru] (RePack/r14) 2011 | Fenixx
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248086.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Hitman: Codename 47 (2000) [En] (b192 v2) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247737.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Evil West (2022) [Ru/Multi] (0.48) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247595.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Aliens: Dark Descent (2023) [Ru/Multi] (93991/dlc) Repack DjDI
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247450.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Thymesia (2022) [Ru/Multi] (21.24723) License GOG [Digital Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247105.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Resident Evil 0 / biohazard 0 HD Remaster (2016) [Multi] (1.0/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246249.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Tom Clancy's Splinter Cell (2003) [Multi] (2.0.0.12/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233127.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Freedom Fighters (2003) [Ru/En] (1.0.0.4490481) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231513.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Prince of Persia: The Forgotten Sands / Принц Персии: Забытые 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230578.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Deus Ex: Human Revolution (2013) [Ru/Multi] (2.0/dlc) License GOG [Director’s 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_229945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229945.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Red Faction: Guerrilla Re-Mars-tered (2018) [Ru/Multi] (cs:4931) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228367.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Assassin's Creed IV: Black Flag (2013) [Ru/Multi] (1.08/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228210.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Inversion (2012) [Ru] (1.0.1.0) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226744.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Yakuza 0 (2018) [En/Ja] (1.0) License CPY
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225556.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Fear the Dark Unknown (2019) [Ru/Multi] (1.0) License HOODLUM
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220471.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ ArcRunner (2023) [Ru/Multi] (1.1.0.1) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220014.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Dark Void (2010) [Ru/En] (1.0) Repack R.G. Origami
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218514.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Aliens: Fireteam Elite (2021) [Ru/Multi] (1.0.1.90663/dlc) License CODEX [Deluxe
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216053.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Oddworld Stranger's Wrath HD (2010) [Ru/Multi] (1.5) SteamRip Let'sPlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215417.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ LEMURIA (2022) [Ru/Multi] (1.2.5/dlc) License DOGE
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214969.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Mafia II (2) (2010) [Ru/En] (1.0/dlc) Lossless Repack R.G. Catalyst [Enhanced Ed
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214849.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Valakas Story (2019) [Ru/Multi] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213928.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Blades of Time (2012) [Ru/Multi] (1.0.0/dlc) Repack Other s [Limited Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213902.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Alien Breed: Impact (2010) [Ru/Multi] (126) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212878.jpg" />
 </div>
 
 

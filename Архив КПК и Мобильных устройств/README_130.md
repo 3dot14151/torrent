@@ -6,7 +6,7 @@ Soul Browser 1.4.18 Mod by AnBo39 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109770.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Soul Browser 1.4.18 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109768.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PhotoRoom 4.9.4 (b1368) Mod by CMAPTOC [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109747.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Bazaart: Photo Editor & Graphic Design v2.5.3 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109595.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Ventusky: Прогноз погоды v34.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109543.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Soul Browser 1.4.19 Mod by AnBo39 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109534.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Soul Browser 1.4.19 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109514.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Soul Browser 1.4.19 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109512.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Moon+ Reader Pro v9.4 (b904000) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109497.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Moon+ Reader Pro v9.4 (b904000) Mod by Lucky Las [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109469.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Soul Browser 1.4.20 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109386.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ PhotoDirector v19.2.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109382.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Speedtest от Ookla 5.3.7 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109353.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Soul Browser 1.4.21 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109328.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ YouCut - Video Editor v1.623.1188 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109291.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Soul Browser 1.4.21 Mod by AnBo39 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109203.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ PhotoRoom 4.9.6 (b1401) Mod by CMAPTOC [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109176.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Acode - code editor | FOSS 1.10.2 (947) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109170.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ PhotoRoom 4.9.6 (b1403) Mod by Maximoff [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109151.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ PhotoRoom 4.9.6 (b1398) Mod by Maximoff [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109150.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Taskito: To-Do и напоминания 1.1.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109136.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Speedtest от Ookla 5.3.7 Lite-Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109128.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Soul Browser 1.4.21 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109098.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ PhotoRoom 4.9.6 (b1403) Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109082.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109029.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ PhotoRoom 4.9.7 (b1416) Mod by Maximoff [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109003.jpg" />
 </div>
 
 

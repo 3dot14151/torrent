@@ -1,136 +1,3 @@
-###  Публикация: 1666810   (178121) от 06.10.2023
-
-Ю.В. Гордеенко и др. (сост.) | Военная авиация (в 2-х частях) (1999) [DJVU, PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двухтомный справочник содержит сведения (наименование, назначение, внешний вид, отдельные особенности конструкции и применения, основные тактико-технические характеристики) о современных образцах военной авиационной техники и вооружения, которые используются в разных странах мира различными видами и родами войск (ракетными, сухопутными, воздушно-десантными, ПВО, (   Читать дальше...   )Жанр: военная техника, энциклопедияИздательство: "Попурри", МинскФормат: DJVU, PDFКачество: Обработанный скан + OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F81E87FBB0EA1232B571659F83BDAC68A876490
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 619172   (176566) от 06.12.2020
-
-Н.Н.Головин | Российская контрреволюция в 1917-1918 гг. Том 2 [2011] [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга видного военного теоретика генерала Н.Н.Головина представляет собой крупнейший обобщающий труд по истории контрреволюционного Белого движения, впервые изданный в эмиграции в 1937 г. Автор рассматривает весь спектр политических и военных организаций, возникших с марта 1917 г. по конец 1918 г. и пытавшихся противостоять разрушению российской государственности. (   Читать дальше...   )Жанр: Военно-историческая литература, история гражданской войныФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FECEC2A9A868AFB07D83B2246E9FDD9DDBD0F2F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430259   (174392) от 09.12.2020
-
-Н.Ф. Дубровин | 349-дневная защита Севастополя (2017) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174392.jpg" />
-</div>
-
-
-###  Подробнее
-
-О Крымской войне 1853–1856 гг. написано немало трудов. Война между Российской империей и коалицией европейских государств за господство на Балканах, в бассейне Чёрного моря и на Кавказе, безусловно, оставила неизгладимый след в истории мировых сражений. Но один из самых запоминающихся эпизодов этой войны заслуживает особого внимания. О доблести и героизме, проявленными (   Читать дальше...   )Жанр: История, Военная историяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BC9F71491270543C030F6B4B65857C66682B3B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595757   (174387) от 07.12.2022
-
-В.Н. Шунков | Вооружение пехоты (2001) [DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Справочник содержит сведения о современном вооружении пехотных (мотопехотных) подразделений.
-По каждому из более чем 330 образцов приводятся фотография, краткое описание и тактико-технические характеристики.
-Для широкого круга читателей.Жанр: военная техника, энциклопедияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2183307561048010FC1C9E08C92A703C8D8FB2E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595761   (174384) от 07.12.2022
-
-В.Н. Шунков | Бронетехника (2000) [DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174384.jpg" />
-</div>
-
-
-###  Подробнее
-
-Справочник содержит сведения (назначение, внешний вид, особенности конструкции, тактико-технические характеристики) о боевых разведывательных машинах, боевых машинах пехоты, бронетранспортёрах, состоящих на вооружении различных стран.
-Для специалистов и широкого круга читателей.Жанр: военная техника, энциклопедияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22D90E8D9D684ADDDE60FBBCE2CF586A99BA6B5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595759   (174343) от 07.12.2022
 
 коллектив авторов | Стрелковое оружие. Справочное издание (1999) [DJVU]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174343.jpg" />
 </div>
 
 
@@ -167,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170569.jpg" />
 </div>
 
 
@@ -194,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170145.jpg" />
 </div>
 
 
@@ -221,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169589.jpg" />
 </div>
 
 
@@ -247,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167303.jpg" />
 </div>
 
 
@@ -274,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166540.jpg" />
 </div>
 
 
@@ -301,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165165.jpg" />
 </div>
 
 
@@ -327,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165065.jpg" />
 </div>
 
 
@@ -353,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162982.jpg" />
 </div>
 
 
@@ -379,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162748.jpg" />
 </div>
 
 
@@ -405,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156851.jpg" />
 </div>
 
 
@@ -431,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156666.jpg" />
 </div>
 
 
@@ -457,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155408.jpg" />
 </div>
 
 
@@ -483,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152945.jpg" />
 </div>
 
 
@@ -509,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152250.jpg" />
 </div>
 
 
@@ -535,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152232.jpg" />
 </div>
 
 
@@ -561,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152202.jpg" />
 </div>
 
 
@@ -587,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151248.jpg" />
 </div>
 
 
@@ -615,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149412.jpg" />
 </div>
 
 
@@ -641,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149332.jpg" />
 </div>
 
 
@@ -667,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149283.jpg" />
 </div>
 
 
@@ -678,6 +545,144 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B575E30DD000386AF65EFC0551AD67D6F5EBB26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086916   (149264) от 25.12.2016
+
+Алексей Горбылев | Ниндзя. Первая полная энциклопедия (2016) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Такой книги еще не было – не только в России, но и на любом из европейских языков. Это – единственная полная энциклопедия НИНДЗЯ, основанная на аутентичных японских источниках. Всё о воинском искусстве ниндзюцу и легендарных воинах-«невидимках», прозванных «демонами ночи» (слово «синоби», являющееся синонимом «ниндзя», в переводе с японского означает «разведчик-диверсант»). (   Читать дальше...   )Жанр: Военное дело, спецслужбы, История, ЭнциклопедииФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ECADDF6AAEC57375E2912D96B6846ED2BB38A4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 739314   (148491) от 27.12.2013
+
+Е. Кабо | Питание русского рабочего до и после войны (1926) [DJVU]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Питание пролетариата в СССР после победы пролетарской революции, являясь одним из чувствительнейших показателей растущего благосостояния страны, представит, несомненно, громадный интерес для всех наших социологов и экономистов. Судя по этому показателю, наш пролетариат уже к концу 1924 года превзошел и в количественном, и в качественном отношении все довоенные нормы (   Читать дальше...   )Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BAA1EB25D615473E52611A0BF09238156E6DCD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589892   (148049) от 15.12.2012
+
+Василий Потто | "Кавказская война" в 5 томах [2006-2007] [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Василий Александрович Потто (1836 - 1911) - талантливый писатель и высокоодаренный историк, обогативший нашу военную литературу бесконечным рядом своих художественных произведений, большая часть которых посвящена Кавказу.
+Кавказская война в живом, увлекательном изложении напоминает современному читателю о героических эпизодах наших предков, стяжавших славу и гордость доблестной Кавказской армии. Сила и спокойствие, твердость и гуманность - таковы традиции кавказского воина, воспетого художником пера В.А. Потто. Нестор Кавказской войны, Баян военной славы - так звали генерала Потто его товарищи.
+Список книг:
+Кавказская война. Том 1. От древнейших времен до Ермолова
+Кавказская война. Том 2. Ермоловское время
+Кавказская война. Том 3. Персидская война 1826-1828 гг.
+Кавказская война. Том 4. Турецкая война 1828-1829 гг.
+Кавказская война. Том 5. Время Паскевича, или Бунт ЧечниФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5280B145CA12AADCDDCCA9A67A2B69133883C674
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087070   (147985) от 26.12.2016
+
+А.М. Майоров | Правда об Афганской войне (1996) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга приоткрывает завесу над тайнами первого года войны в Афганистане. Автор - ветеран Великой Отечественной войны. В 1965-1966 годах возглавлял группу военных советников при генштабе египетской армии. Накануне и во время вторжения в Чехословакию командовал 38-й армией Прикарпатского военного округа, а вскоре возглавил Центральную группу войск (ЧССР). Затем командовал (   Читать дальше...   )Жанр: военная историяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AD704869C049B399C5F283E7D20337A75A44F95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969555   (147401) от 27.12.2015
+
+С. Дробязко | Вторая Мировая война 1939-1945 (2006) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена центральному событию военной истории ХХ века. Она включает краткие сведения о вооруженных силах всех стран - участниц войны, описания ключевых кампаний и операций на разных театрах военных действий от Атлантики до Тихого океана, а также биографии наиболее выдающихся военачальников противоборствующих сторон.
+Издание содержит множество великолепных (   Читать дальше...   )Жанр: Военная исторяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA065A1523B3FE71078E1DDCE1F7C13919C54B34
 ```
 
 https://mybot314.ru/tekegram_catalog/

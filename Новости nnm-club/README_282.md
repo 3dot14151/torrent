@@ -1,3 +1,55 @@
+###  Публикация: 8900   (47924) от 04.08.2024
+
+Евгений Гришковец "Дредноуты" (2001) DVDRip [Спектакль]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47924.jpg" />
+</div>
+
+
+###  Подробнее
+
+На войне мужчины совершали героические поступки. Воевали так, будто уже умерли. И умирали так, будто в войне для них заключался смысл жизни. А ведь можно было просто приспустить флаг, и не было бы боя. Мужчинам, оказывается, важно иметь шанс умереть на войне. И не в своем собственном виде (маленького, толстого и лысого или высокого, худого и уродливого), а в образе (   Читать дальше...   )Жанр: СпектакльПеревод: ОригинальныйПродолжительность: 119 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:390078859027AF0EDC7AFF611CA59CAA11A7998F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027893   (47922) от 04.08.2024
+
+Во все тяжкие / Breaking Bad (2008-2013) BDRip [H.264/720p] (сезон 1-5, серии 1-62 из 62) Кубик в Кубе
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Школьный учитель химии Уолтер Уайт узнаёт, что болен раком лёгких. Учитывая сложное финансовое состояние дел семьи, а также перспективы, Уолтер решает заняться изготовлением метамфетамина. Для этого он привлекает своего бывшего ученика Джесси Пинкмана, когда-то исключённого из школы при активном содействии Уайта. Пинкман сам занимался «варкой мета», но накануне, (   Читать дальше...   )Производство: США, High Bridge Productions, Gran Via Productions, Sony Pictures TelevisionЖанр: триллер, драма, криминалРежиссер: Мишель Максвелл МакЛарен, Адам Бернштейн, Винс ДжиллигэнАктеры: Брайан Крэнстон, Анна Ганн, Аарон Пол, Дин Норрис, Бетси Брандт, АрДжей Митт, Боб Оденкёрк, Джанкарло Эспозито, Джонатан Бэнкс, Стивен Майкл Квезада, Кристофер Казинс, Чарльз Бэйкер и др.Перевод: профессиональный двухголосый - Кубик в КубеЯзык озвучки: Русский, английскийСубтитры: русские (forced, full), английскиеПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD9103FF98388D44E316E80394C95B9338B0F596
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1740784   (47730) от 06.08.2024
 
 Россия за время продэмбарго стала чистым экспортером свинины и мяса птицы
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47730.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47714.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47601.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47553.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ SnowRunner (2020) [Ru/Multi] (31.0/dlc) Repack dixen18
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47503.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47312.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47297.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47296.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47282.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47102.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47100.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ Windows 11 x64 Rus by OneSmiLe [22631.4037]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46878.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46756.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ Google могут разделить: Минюст США думает, как �
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46661.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46573.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ Microsoft сняла ограничение на максимальный раз
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46466.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ Synology DSM 7.2.1 [x32_x64] 2xDVD OVA IMG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46464.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46338.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46333.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46249.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ Dead Cells (2017) [Ru/Multi] (1.26.0/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46146.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ Oblivion VPN (Unofficial Warp Client) 4 [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46048.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ ChatGPT5: гений логики с душой ребенка
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46026.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45921.jpg" />
 </div>
 
 
@@ -622,60 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745048   (45843) от 24.08.2024
-
-Total Commander PowerUser v.74 Portable by HA3APET [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45843.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощнейший программный комплекс на базе Total Commander 11.03 32-bit для системных администраторов и продвинутых пользователей, в котором грамотно подобраны программы и плагины. Две конфигурации в одной сборке для PowerUser и для HomeUser. Подробное описание и состав читайте ниже.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:145EA76B450A7D98756218044F9168A6523ED1C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 93077   (45841) от 24.08.2024
-
-Electric Light Orchestra-The Very Best Of (1971-1986) DVD5
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45841.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник лучших видеоклипов группы Electric Light Orchestra
-с реставрированным звуком
-(22-видеоклипа)Жанр: МузыкаАктеры: Electric Light OrchestraПеревод: ОригинальныйЯзык: АнглийскийПродолжительность: 01:25:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:156BF96806F25BB177C847586106C3102603727D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 966934   (954721) от 01.01.2017
+
+King's Quest (2015) [Ru/En] (1.0) Repack R.G. Механики [Chapter 1-5]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954721.jpg" />
+</div>
+
+
+###  Подробнее
+
+King's Quest является переосмысленным вариантом классической серии, подходящим как для новых игроков, так и для фанатов оригинала. Игровой процесс построен на увлекательных головоломках и сюжете, полном зубодробительного юмора. В новой истории король Грэм, считающийся самым известным путешественником всех времен, рассказывает о своих приключениях любопытной внучкеТип издания: RepackРазработчик: The Odd GentlemenЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBD174F5BB2C60C7A1D90470A6C433EB7D8517D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089216   (953215) от 02.01.2017
+
+The Testament of Sherlock Holmes / Последняя воля Шерлока Холмса (2012) [Ru/Multi] (1.0.0.4) License PROPHET
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Примерьте роль величайшего сыщика в детективной игре «Последняя воля Шерлока Холмса». Чтобы раскрыть зловещую тайну и распутать непростое дело, вам предстоит обследовать место преступления, отыскать улики, расспросить свидетелей и отправиться по следу преступников. На сей раз Шерлок Холмс сам окажется под подозрением и пройдет все круги ада, прежде чем выйдет победителем (   Читать дальше...   )Тип издания: LicenseРазработчик: FrogwaresЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: Русский, Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60D20DB4056973BE88ED2818F7A1ACCE6883359B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947881   (953188) от 02.01.2017
+
+Tales from the Borderlands (2014-2015) [Ru/En] (1.0.1) Repack R.G. Механики [Episodes 1-5]
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953188.jpg" />
+</div>
+
+
+###  Подробнее
+
+События Tales from the Borderlands разворачиваются в той же вселенной, что и трёх шутеров от Gearbox Software и 2K Games, после событий Borderlands 2. Взглянуть на происходящее предлагается глазами двух совершенно новых героев - работающего в корпорации «Гиперион» (Hyperion) уборщика Риса (Rhys) и мошенницы Фионы (Fiona). Рис мечтает стать новым Красавчиком Джеком (   Читать дальше...   )Тип издания: RepackРазработчик: Telltale Games и Gearbox SoftwareЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2302A96F5304858904F8A899EC5D9B1464C21A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1361854   (951975) от 21.02.2020
 
 The Suicide of Rachel Foster (2020) [Ru/Multi] (1.03B) Repack xatab
@@ -6,7 +84,7 @@ The Suicide of Rachel Foster (2020) [Ru/Multi] (1.03B) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951975.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ A New Beginning - Final Cut (2011) [Ru/Multi] (2.0.3.0395) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951516.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Lost Brothers (2020) [Ru/En] (1.0/upd3) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949113.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ The Coma: Recut (2017) [Ru/Multi] (2.1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949016.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Gods Will Be Watching (2014) [Ru/Multi] (1.0.0.11) SteamRip Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947802.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ D4: Dark Dreams Don't Die (2015) [Ru/En] (02.02.2016/dlc) Repack R.G. Механ
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947794.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Sherlock Holmes: Crimes and Punishments (2014) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944000.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Layers of Fear (2016) [Ru/Multi] (1.1.1/dlc) License GOG [Masterpiece Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943992.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ The Talos Principle / Принцип Талоса (2014-2015) [Ru/Multi] (1.0.28
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943962.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ BEAUTIFUL DESOLATION (2020) [Ru/Multi] (1.0.1.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943480.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Fire (2015) [Ru/Multi] (1.0.6780S) SteamRip Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939554.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Lucius - Dilogy / Lucius - Дилогия (2012-2015) [Ru/En] (1.02.3866/1.0.160
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938136.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Black Mirror 2 / Черное зеркало 2 (2010) [Ru] (1.01) RePack -Ultra-
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937715.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Your Toy (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937557.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Detention 返校 (2017) [Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932999.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Weakless (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932884.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Subject 13 (2015) [Ru/Multi] (1.2) SteamRip  Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931703.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Subject 13 (2015) [Ru/Multi] (1.2) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931584.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Vambrace: Cold Soul (2019) [Ru/Multi] (1.10) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931507.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ LUNA The Shadow Dust (2020) [Ru/Multi] (1.0.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929861.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Syberia Dilogy / Сибирь. Дилогия (2002-2004) [Ru] (1.0.0.0/11) Repa
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929853.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Syberia 2 / Сибирь 2 (2004) [Ru/Multi] (1.0.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929832.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Ceville / Ceville. Похождения тирана (2009) [En/Ge] (1.0.2.0) Li
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928882.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Ceville / Ceville. Похождения тирана (2009) [En/Ge] (1.0.2.0) Li
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:489215131093E4DBB517063EEFF21F0F23BE5F0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986932   (928435) от 15.02.2016
-
-Zheros (2016) [En/Multi] (1.0) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Zheros - это аркадный двухмерный экшен для "любителей классических игр старой школы", где двое героев противостоят злобному ученому, который пытается обратить весь мир в скопище мутантов. Игроки вольны играть как поодиночке, так и в кооперативе.Тип издания: LicenseРазработчик: Rimlight StudiosЖанр: Adventure, 3DЯзык озвучки: -/-Язык субтитров: -/-Язык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9017A06E8B0FD75AC0EDE2C834C5BA636B944A26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986802   (927182) от 16.02.2016
-
-Pesadelo Regressao (2016) [En] (1.4.2) Repack bosenok
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кладбище наполнено враждебными существами. Церковь, которая не в состоянии спасти. Сложные головоломки. Возвращение в школу, где все начиналось. И хрупкая, интеллигентная девушка с жаждой мести. Оживите темные воспоминания Алекса, как он пытается уйти от противника, что-бы вернутся еще сильнее.Это еще одна мечта, или голая правда?Тип издания: RepackРазработчик: Skyjaz GamesЖанр: Adventure, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B74B6B35D7A795C317F9ACC73D1E03742ECB963D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951489   (927170) от 16.02.2016
-
-Life Is Strange™ (2015) [Ru/Multi] (1.0.0.397647/dlc) SteamRip Let'sРlay [Episodes 1-5]
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Life is Strange – эпизодическое приключение, события которого развиваются в вымышленном городе Аркадия Бэй, что в Орегоне. История о дружбе, которая могла быстро закончиться если бы не внезапно открытый талант Мэкс. Она нашла в себе дар - возможность перематывать время. Но еще неясно, как это точно работает и к чему может привести. Все начнется со спасения подружки (   Читать дальше...   )Тип издания: SteamRipРазработчик: DONTNOD EntertainmentЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:710232082396A8086D5D76C373781E4A36EE4F8B
 ```
 
 https://mybot314.ru/tekegram_catalog/

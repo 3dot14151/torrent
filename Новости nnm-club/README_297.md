@@ -1,3 +1,55 @@
+###  Публикация: 1785085   (20663) от 22.04.2025
+
+Колесо времени / The Wheel of Time (2025) WEB-DL [H.264/1080p] (сезон 3, серии 1-8 из 8) LostFilm, HDRezka, TVShows, NewComers, WStudio, LE-Production
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20663.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 3 сезоне сериала «Колесо времени» опасные и увлекательные приключения бесстрашной Морейн из организации «Айз Седай» и ее помощника Лана продолжаются. Напомним, в предыдущем сезоне герои отправляются на поиски группы деревенских молодых ребят, считая, что кто-то из них олицетворяет собой реинкарнацию Дракона. Речь идет о мифическом существе, которое, согласно поверью, (   Читать дальше...   )Производство: США / Amazon Studios, Little Island Productions, Radar Pictures Inc.Жанр: фэнтези, боевик, драма, приключенияРежиссер: Киаран Доннелли, Томас К. Нэппер, Санаа ХамриАктеры: Розамунд Пайк, Дэниэл Хенни, Зои Робинс, Мадлен Мэдден, Джоша Страдовски, Маркус Рутерфорд, Хаммед Анимашон, Донал Финн, Кейт Флитвуд, Ceara CoveneyПеревод: Многоголосый (LostFilm, HDRezka, TVShows, NewComers, WStudio, LE-Production)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: ~01:11:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ECF47E35B3FE59DF017A245D0B6942EAB7F79C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792910   (20568) от 23.04.2025
+
+300 лет полураспада и заправка без остановки: Китай запустил ториевый реактор нового поколения
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20568.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пустыне Гоби завершились успешные испытания первого в мире промышленного ториевого реактора на расплавленных солях. Установка мощностью 2 мегаватта, разработанная китайскими учёными, работает с июня 2024 года и уже продемонстрировала возможность перезагрузки топлива без остановки реактора — ранее недостижимый технологический рубеж.Торий, используемый в качестве (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792944   (20357) от 25.04.2025
 
 Чиновник из Калининграда случайно оплатил улыбкой водку другому покупателю
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20357.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20254.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20232.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20136.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19934.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19911.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19836.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Microsoft  запустила для всех ИИ-функцию Recall, кот
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19829.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19817.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19731.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Princess Connect! Re:Dive OST (2018-2025) [MP3|320 kbps] <60CD+OST+Character Son
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19628.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19521.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19417.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19216.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19101.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ LG представила гибкий OLED с по-настоящему всп�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18978.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18901.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18792.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18789.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18694.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ GoodbyeDPI 0.2.3rc3 Launcher 9.7 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18689.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18596.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ PurpleSchool, Антон Ларичев | Основы React, React Router и Re
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18373.jpg" />
 </div>
 
 
@@ -610,65 +662,13 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18354.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Исполняя мечту средневековых алхимиков, физики наблюдали превращение свинца в золото с помощью ядерной физики на Большом адронном коллайдере (БАК), самом мощном в мире ускорителе частиц.На протяжении столетий эта идея превращения свинца в золото — хризопея — казалась недостижимой. Эти два металла имеют схожую плотность, но современная наука  доказала, что это разные (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796942   (18348) от 14.05.2025
-
-Курсант Военно-космической академии задержан за взлом защищенной информации
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курсант Военно-космической академии имени А.Ф. Можайского  разработал программу, способную взламывать защитную инфраструктуру Secret Net Studio*, используемую Минобороны и другими правоохранительными органами.Молодой программист создал алгоритм, позволяющий обходить систему и получать доступ к секретной информации. В попытке заработать, он выставил свою программу (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797146   (18281) от 15.05.2025
-
-«Данную видеокарту нельзя использовать в вашей стране». США собираются отслеживать видеокарты и чипы для ИИ, чтобы не допустить их в неугодные страны
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18281.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Конгрессе США обсуждают законопроект, который обяжет производителей высокопроизводительных чипов и видеокарт, таких как Nvidia, AMD и Intel, внедрять технологии геотрекинга.Закон, предложенный сенатором Томом Коттоном, направлен на контроль местоположения оборудования, чтобы предотвратить его использование в странах под санкциями. Он направлен на то, чтобы «не (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

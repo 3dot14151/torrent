@@ -1,3 +1,57 @@
+###  Публикация: 161611   (267173) от 30.12.2009
+
+kulinaria.nnm.ru | Кулинарная книга дока "Пельмешки без спешки" том 2 [2009] [CHM]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267173.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это дополненный новыми рецептами второй том. С июня 2009 в книгу было добавлено 310 рецептов, и общий объем второго тома составил 901 рецепт.
+
+Кулинарная книга дока «Пельмешки без спешки» портала NoNaMe является наиболее полным сборником рецептов дока, существующим на данный конкретный момент. Она содержит в том числе и рецепты, которые более недоступны в доке, а (   Читать дальше...   )Формат: CHM
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339189   (266776) от 18.11.2019
+
+Red Giant Trapcode Suite 15.1.5 RePack by PooShock [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Red Giant Trapcode Suite - это мощный набор из 11 плагинов для Adobe After Effects, предоставляющих широкие возможности работы с графикой движения, анимацией и визуальными эффектами. Эти инструменты компании Red Giant позволяют эффективно работать с титрами, создавать анимированные фоны и логотипы, разрабатывать визуальные эффекты и 3D-объекты непосредственно в родном (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCEAD2AC2AFE58FA5FB18DD624D6300630AE6F85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1190044   (266588) от 10.12.2017
 
 При покупках в интернет-магазинах теперь могут потребовать ИНН.
@@ -6,7 +60,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266588.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Adguard Premium 6.2.437.2171 RePack by elchupacabra [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266532.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ Adobe Photoshop CC 2018 19.0.1.190 [x86] Linux (cxarchive)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266520.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266457.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ Shenmue I & II (2018) [Ru/Multi] (1.07) Repack West4it
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266285.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266219.jpg" />
 </div>
 
 
@@ -162,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265960.jpg" />
 </div>
 
 
@@ -188,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265696.jpg" />
 </div>
 
 
@@ -214,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265611.jpg" />
 </div>
 
 
@@ -240,7 +294,7 @@ KMS Tools Portable 01.12.2018 by Ratiborus [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265445.jpg" />
 </div>
 
 
@@ -266,7 +320,7 @@ Trondheim Solistene - Divertimenti (2008) [LPCM 2.0, 5.1 192/24 |Blu-ray]<Classi
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265444.jpg" />
 </div>
 
 
@@ -295,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265441.jpg" />
 </div>
 
 
@@ -321,7 +375,7 @@ Windows 7x86x64 Ultimate UralSOFT v.8.12
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264651.jpg" />
 </div>
 
 
@@ -350,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264564.jpg" />
 </div>
 
 
@@ -376,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264534.jpg" />
 </div>
 
 
@@ -403,7 +457,7 @@ Age of Empires II: Definitive Edition (2019) [Ru/En] (101.101.32708.0.911/dlc) R
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264489.jpg" />
 </div>
 
 
@@ -429,7 +483,7 @@ VideoHive - Videolancer's Transitions - Original Seamless Transitions Pack (v.6)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264484.jpg" />
 </div>
 
 
@@ -456,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264340.jpg" />
 </div>
 
 
@@ -482,7 +536,7 @@ foobar2000 1.3.15 DarkOne + DUIFoon Portable by MC Web (12.12.2017) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264338.jpg" />
 </div>
 
 
@@ -508,7 +562,7 @@ Adobe Photoshop Lightroom Classic CC 2018 7.1.0 RePack by KpoJIuK  [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264319.jpg" />
 </div>
 
 
@@ -534,7 +588,7 @@ Borderlands (2009) [Ru/En] (1.5.0/dlc) Repack Mizantrop1337 [Game of the Year Ed
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264318.jpg" />
 </div>
 
 
@@ -560,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264315.jpg" />
 </div>
 
 
@@ -586,7 +640,7 @@ Acronis True Image 2020 Build 22510 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264151.jpg" />
 </div>
 
 
@@ -612,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264086.jpg" />
 </div>
 
 
@@ -623,63 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191564   (264029) от 14.12.2017
-
-Дмитрий Елисеев | Неделя ООП (2016) PCRec [H.264/720p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264029.jpg" />
-</div>
-
-
-###  Подробнее
-
-Без знаний ООП изучать какой-либо фреймворк нет смысла. Поэтому решил провести отдельный интенсив по ООП на основе материала со своих уроков, дополнив новыми разделами про лучшие практики разработки и практическими примерами, чего порой не хватает во многих теоретических курсах.
-
-Для кого этот интенсив?
-Получите море пользы, если Вы:(   Читать дальше...   )Жанр: PHP, Объектно-ориентированное программированиеПродолжительность: 35:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C8A2BA8EE36D82760A862360B4C0FFDCB4A3BA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191751   (264028) от 14.12.2017
-
-Final Cut Pro X 10.4 [Multi]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Final Cut Pro X включает основные функции аудиомонтажа и цветокоррекции из Final Cut Studio, так что теперь на всех этапах пост-продакшна можно использовать одно приложение.
-
-В основе Final Cut Pro X лежит гибкая временная шкала Magnetic Timeline, предлагающая новый подход к редактированию видео без дорожек с возможностью добавлять и организовывать клипы так, как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2017Разработчик: Apple Inc.Поддерживаемая ОС: macOS 10.12.4 +Язык интерфейса: Английский, Китайский,  Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A8E7BD2A6B9C60B56681C8C84F180EF4250F07F
 ```
 
 https://mybot314.ru/tekegram_catalog/

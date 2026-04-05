@@ -1,3 +1,30 @@
+###  Публикация: 1471832   (1014852) от 22.05.2021
+
+Януш Корчак | Когда я снова стану маленьким [Детская проза] (1961) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Имя Януша Корчака — писателя, педагога, общественного деятеля — стало для польского народа символом гуманизма и высокой нравственной чистоты.
+В своих книгах и статьях Корчак выступает горячим защитником прав и интересов детей, разоблачая фальш и несправедливость, окружающие ребёнка в капиталистическом обществе. Корчак видит в ребёнке человека с богатым внутренним (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3BAF88A141F7A4480213AB83A5C61C81495B6BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1471798   (1014851) от 22.05.2021
 
 Вадим Коростылёв | Король Пиф-Паф, или сказка про Ивана-не-Великана (2019) [FB2]
@@ -6,7 +33,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014851.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014844.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014816.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014813.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014806.jpg" />
 </div>
 
 
@@ -136,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014801.jpg" />
 </div>
 
 
@@ -162,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014785.jpg" />
 </div>
 
 
@@ -188,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014698.jpg" />
 </div>
 
 
@@ -216,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014685.jpg" />
 </div>
 
 
@@ -242,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014678.jpg" />
 </div>
 
 
@@ -268,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014660.jpg" />
 </div>
 
 
@@ -294,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014657.jpg" />
 </div>
 
 
@@ -320,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014649.jpg" />
 </div>
 
 
@@ -346,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014541.jpg" />
 </div>
 
 
@@ -372,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014525.jpg" />
 </div>
 
 
@@ -398,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014517.jpg" />
 </div>
 
 
@@ -424,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014400.jpg" />
 </div>
 
 
@@ -450,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014382.jpg" />
 </div>
 
 
@@ -476,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014381.jpg" />
 </div>
 
 
@@ -502,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014357.jpg" />
 </div>
 
 
@@ -528,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014354.jpg" />
 </div>
 
 
@@ -556,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014351.jpg" />
 </div>
 
 
@@ -582,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014294.jpg" />
 </div>
 
 
@@ -609,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014258.jpg" />
 </div>
 
 
@@ -636,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014174.jpg" />
 </div>
 
 
@@ -647,34 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEF198EB29B131224695605440C61E852D4ADB2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472981   (1014045) от 27.05.2021
-
-Валерий Медведев | Флейта для чемпионов (1981) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014045.jpg" />
-</div>
-
-
-###  Подробнее
-
-В повести рассказывается о преодолении высоты спортивной славы. Это высота моральная, как бы невидимая, но она существует, и не только в спорте. И не у всех хватает силы и характера преодолеть ее.
- Повесть знакомит с юным прыгуном в высоту Вениамином Ларионовым и расскажет о том, как он преодолел эту высоту.
-В книгу так же вошли рассказы о приключениях капитана Сорви-головы.Жанр: Детская литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A1F923430D6E84478C29F2AF85247DBB1EDE09C
 ```
 
 https://mybot314.ru/tekegram_catalog/

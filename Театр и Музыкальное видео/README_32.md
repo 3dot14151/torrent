@@ -6,7 +6,7 @@ Torrential Rain - Home Alone (2020) WEBRip [VP9/2160p-LQ]<Electronic Metalcore>
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867033.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866889.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865722.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Calvin Harris feat. Ellie Goulding - I Need Your Love (2013) WEBRip [H.264/1080p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865656.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865575.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ A-Teens - Music Video (Клипография) (1999-2004) DVDRip,TVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864656.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ We Blame The Empire - Updraft (2020) WEBRip [H.264/1080p-LQ] <Metalcore>
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863867.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Concepts - Worry About Me (Ellie Goulding & blackbear Cover) (2020) WEBRip [H.26
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863763.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Kill the Kong - 7 Music Videos (2015-2020) WEBRip [H.264/2160p/1080p-LQ] <Sweden
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863761.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Bongtower - 5 Music Videos (2019) WEBRip [H.264/1080p-LQ] <Stoner, Doom Metal>
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863609.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Mike Oldfield - Tubular Bells II and III Live (1999) 2*DVD-5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863578.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863534.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Scorpions: Moment of Glory (Live with the Berlin Philharmonic Orchestra) (2000/2
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863376.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861819.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861692.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861417.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Caro Emerald - Montreux Jazz Festival 2015 (2015) HDTVRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860581.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Metallica - The Videos 1989-2004 (2006) DVD9 [ISO]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860545.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860457.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Leeched - 6 Music Videos (2017-2020) WEBRip [H.264/1080p-LQ] <Sludge Metal, Meta
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860380.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Igorrr - 7 Music Videos (2014-2020) WEBRip [H.264/1080p-LQ] <IDM, Breakcore>
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860370.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860364.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860312.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858545.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858331.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857673.jpg" />
 </div>
 
 

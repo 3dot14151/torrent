@@ -1,3 +1,58 @@
+###  Публикация: 1089451   (950047) от 04.01.2017
+
+Б. Гребенщиков - АЭРОСТАТ - цикл передач Радио России (2017) Выпуск 607 (обновляемая) [MP3|192 Kbps]
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950047.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гребенщиков давно хотел познакомить массового слушателя с альтернативной западной и российской музыкой, не вписывающейся в нынешний FM-формат. Для борьбы с засильем попсы в эфире БГ выбрал самое массовое радио страны – «Радио России»: его слышно не только на 1-й кнопке проводного вещания, но и на длинных, средних волнах и УКВ во всех без исключения регионах страны. (   Читать дальше...   )Продолжительность: 45:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FC6495CBB764D50A4CEFC891354306546C1691F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981985   (949993) от 02.02.2016
+
+StoneOcean - Home (2016) [MP3|320 кб/с] <New Age, Dance & Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Home
+02. Universe
+03. One Journey
+04. Smooth Sailing(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BC9BA8ECA72DDAE54CE202C8FA79419DD75B4FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362314   (949692) от 23.02.2020
 
 Chad Rehmann - Camp Cold Brook (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -6,7 +61,7 @@ Chad Rehmann - Camp Cold Brook (Original Motion Picture Soundtrack) (2020) [FLAC
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949692.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ Chad Rehmann - Camp Cold Brook (Original Motion Picture Soundtrack) (2020) [MP3|
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949677.jpg" />
 </div>
 
 
@@ -64,7 +119,7 @@ Gabriel Garrido Garcia - Etherborn (Original Game Soundtrack) (2020) [MP3|320 к
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949667.jpg" />
 </div>
 
 
@@ -93,7 +148,7 @@ Navid Hejazi - Mah (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949611.jpg" />
 </div>
 
 
@@ -122,7 +177,7 @@ Volker Bertelmann - Downhill / Под откос (Original Motion Picture Soundt
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949607.jpg" />
 </div>
 
 
@@ -151,7 +206,7 @@ Volker Bertelmann - Downhill / Под откос (Original Motion Picture Soundt
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949604.jpg" />
 </div>
 
 
@@ -180,7 +235,7 @@ Nathan Whitehead - Days Gone (Original Soundtrack) (2019) [MP3|320 кб/с]<Soun
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949562.jpg" />
 </div>
 
 
@@ -209,7 +264,7 @@ John Powell - The Call of the Wild / Зов предков (Original Motion Pict
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949555.jpg" />
 </div>
 
 
@@ -238,7 +293,7 @@ John Powell - The Call of the Wild / Зов предков (Original Motion Pict
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949552.jpg" />
 </div>
 
 
@@ -267,7 +322,7 @@ Nathan Whitehead - Days Gone (Original Soundtrack) (2019) [FLAC|Lossless|WEB-DL|
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949503.jpg" />
 </div>
 
 
@@ -296,7 +351,7 @@ NBA 2K17 - Soundtrack (2016) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948836.jpg" />
 </div>
 
 
@@ -325,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948720.jpg" />
 </div>
 
 
@@ -354,7 +409,7 @@ The Cactus Blossoms - The Cactus Blossoms (2011) [FLAC|Lossless|tracks + .cue] <
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948422.jpg" />
 </div>
 
 
@@ -383,7 +438,7 @@ Rob (Robin Coudert) - Maniac / Маньяк (Original Motion Picture Soundtrack)
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948416.jpg" />
 </div>
 
 
@@ -412,7 +467,7 @@ The Cactus Blossoms - Easy Way (2019) [FLAC|Lossless|WEB-DL|tracks] <Country>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948413.jpg" />
 </div>
 
 
@@ -441,7 +496,7 @@ Rob (Robin Coudert) - Maniac / Маньяк (Original Motion Picture Soundtrack)
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948411.jpg" />
 </div>
 
 
@@ -470,7 +525,7 @@ Rob (Robin Coudert) - Revenge / Выжившая (Bande Originale du Film) (2017
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948315.jpg" />
 </div>
 
 
@@ -499,7 +554,7 @@ Rob (Robin Coudert) - Revenge / Выжившая (Bande Originale du Film) (2017
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948313.jpg" />
 </div>
 
 
@@ -528,7 +583,7 @@ Marcus Paus - Mortal (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/�
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948312.jpg" />
 </div>
 
 
@@ -557,7 +612,7 @@ Paul Haslinger - Exit Ghost (2020) [MP3|320 кб/с]<Electronic, Contemporary In
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948307.jpg" />
 </div>
 
 
@@ -586,7 +641,7 @@ Paul Haslinger - Exit Ghost (2020) [FLAC|Lossless|WEB-DL|tracks]<Electronic, Con
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948306.jpg" />
 </div>
 
 
@@ -615,7 +670,7 @@ Trent Reznor & Atticus Ross - Watchmen / Хранители (Music from the HBO 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948228.jpg" />
 </div>
 
 
@@ -644,7 +699,7 @@ Austin Wintory - John Wick Hex (Original Game Soundtrack) (2019) [MP3|320 кб/�
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948226.jpg" />
 </div>
 
 
@@ -673,7 +728,7 @@ The Cactus Blossoms - You're Dreaming (2016) [FLAC|Lossless|tracks + .cue] <Coun
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948224.jpg" />
 </div>
 
 
@@ -687,64 +742,6 @@ The Cactus Blossoms - You're Dreaming (2016) [FLAC|Lossless|tracks + .cue] <Coun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBFE8EB3468A0932B93019F56AFD2719E7B03F74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362525   (948212) от 24.02.2020
-
-Austin Wintory - John Wick Hex (Original Game Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948212.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:12| 01. He's Quite The Imposition
-|04:21| 02. South Of Fourteenth
-|05:57| 03. Edgar's Boys
-|04:39| 04. Elysium(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:03:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFCB592DF9F4DF6218AC1019E8F38D174168AB12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362473   (948110) от 24.02.2020
-
-Nathan Whitehead - Days Gone (Original Soundtrack) (2019) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Soundtrack, Score>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948110.jpg" />
-</div>
-
-
-###  Подробнее
-
-|03:41| 01. Days Gone
-|03:35| 02. The Freakshow
-|03:36| 03. We've All Done Things
-|03:07| 04. Rest in Peace(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:11:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BF58EA4DE069F1ACC0E8EE971330463B3768B55
 ```
 
 https://mybot314.ru/tekegram_catalog/

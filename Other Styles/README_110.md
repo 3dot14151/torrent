@@ -1,3 +1,61 @@
+###  Публикация: 943133   (449289) от 03.10.2015
+
+Tommy Tallarico - Evil Dead: Hail To The King (2000) [MP3|~190 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. THQ, Heavy Iron Studios Logo
+02. Opening
+03. Menu Screen
+04. Spider Granny(   Читать дальше...   )Жанр: Score (unofficial)Продолжительность: 00:18:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F7B81CF41C427D96424650D2415BFE2C84AA22A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408846   (449026) от 15.09.2020
+
+Wuauquikuna - Original Edition (2020) [MP3|320 Kbps] <Native American, New age, World music>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mother Earth
+02. Quenacho's Song
+03. Andean Fire
+04. Tu Mirada(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 01:10:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:580B259BC8E1FF5AAE0A72147A92ACED09DEF24F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 827417   (448971) от 02.10.2014
 
 VA - В ритме танца. Медленный танец (2010) 3CD [FLAC|Lossless]<Instrumental, Easy Listening, Pop , Retro , Vocal>
@@ -6,7 +64,7 @@ VA - В ритме танца. Медленный танец (2010) 3CD [FLAC|Lo
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448971.jpg" />
 </div>
 
 
@@ -34,7 +92,7 @@ VA - Back To Nature (2012) [MP3|320 кб/с]<New age, Instrumental, Relax, Sound
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448753.jpg" />
 </div>
 
 
@@ -69,7 +127,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448586.jpg" />
 </div>
 
 
@@ -98,7 +156,7 @@ Leo Rojas - Flying Heart (2012) [FLAC|Lossless|image + .cue] <New age, Instrumen
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448585.jpg" />
 </div>
 
 
@@ -127,7 +185,7 @@ Rajendra Teredesai & BlueMonk - Samsara (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448491.jpg" />
 </div>
 
 
@@ -156,7 +214,7 @@ Vangelis Katsoulis - If Not Now When (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambie
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448144.jpg" />
 </div>
 
 
@@ -185,7 +243,7 @@ Edward Shearmur - K-PAX / Планета Ка-Пэкс (2001) [MP3|320 кб/с]<
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448049.jpg" />
 </div>
 
 
@@ -220,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447914.jpg" />
 </div>
 
 
@@ -254,7 +312,7 @@ Cybertribe & Deuter & Kamal - Yoga & Pilates by the Sea (2008) [MP3|320 kbps]<Re
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_447771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_447771.jpg" />
 </div>
 
 
@@ -288,7 +346,7 @@ The Corrs - 3 альбома - 5CD (2001-2007) [FLAC|Lossless]<Pop rock, Celtic,
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_447728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_447728.jpg" />
 </div>
 
 
@@ -323,7 +381,7 @@ VA - Музыка из т/с «Два Антона» (2009-2010) [MP3|128 кб/�
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447469.jpg" />
 </div>
 
 
@@ -352,7 +410,7 @@ Guy Sweens - Universal Language (2015) [MP3|320 кб/с]<New Age, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447333.jpg" />
 </div>
 
 
@@ -381,7 +439,7 @@ Enigma - The Cross Of Changes (1993) [OGG|485 Kbps] <Ambient, New Age, Downtempo
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447088.jpg" />
 </div>
 
 
@@ -410,7 +468,7 @@ James Last - 16 альбомов (1987 – 2019) [FLAC|Lossless|image, track + .
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446680.jpg" />
 </div>
 
 
@@ -440,7 +498,7 @@ VA - Vargo Lounge Summer Celebration 1 (2013) [FLAC|Lossless|image + .cue]<Chill
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446618.jpg" />
 </div>
 
 
@@ -469,7 +527,7 @@ Acoustic Ocean - Blue Moon Rising (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446500.jpg" />
 </div>
 
 
@@ -498,7 +556,7 @@ Jon Richards - Earthlight (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446430.jpg" />
 </div>
 
 
@@ -527,7 +585,7 @@ Amethyste - Alien Moon (2016) [MP3|320 Kbps] <New Age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446420.jpg" />
 </div>
 
 
@@ -556,7 +614,7 @@ Susie Suh - The Bakman Tapes (2010) [MP3|320 кб/с]<Pop-Folk, Acoustic, Downte
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445063.jpg" />
 </div>
 
 
@@ -585,7 +643,7 @@ Nile Rodgers & VA - Путешествие в Америку / Coming to America
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444871.jpg" />
 </div>
 
 
@@ -614,7 +672,7 @@ Taylor Davis - Taylor Davis (2015) [MP3|320 кб/с]<Instrumental, Neo-Classical
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444762.jpg" />
 </div>
 
 
@@ -643,7 +701,7 @@ Paul Cardall - Peaceful Piano (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Pia
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444570.jpg" />
 </div>
 
 
@@ -672,7 +730,7 @@ Geoff Hall - Understanding the Signs (2016) [FLAC|Lossless|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444452.jpg" />
 </div>
 
 
@@ -701,7 +759,7 @@ Ennio Morricone - Le Meilleur de Ennio Morricone (2017) [FLAC|Lossless|WEB-DL|tr
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443674.jpg" />
 </div>
 
 
@@ -715,64 +773,6 @@ Ennio Morricone - Le Meilleur de Ennio Morricone (2017) [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68FB1B903845563C44BC96B931B4A48BB9B5ECF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409177   (442854) от 18.09.2020
-
-Sergey Eybog - Бесконечное Лето (Original Game Soundtrack) (2013) [MP3|320 Kbps] <Soundtrack, OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442854.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Бесконечное лето» — компьютерная игра в жанре визуального романа с элементами эроге в сеттинге летнего лагеря, разработанная командой Soviet Games и изданная ей же. Выход состоялся 21 декабря 2013 для персональных компьютеров, а 19 ноября 2014 игра стала доступна на платформе цифровой дистрибуции Steam.01. Everlasting Summer [2:36]
-02. Door To Nightmare [1:58]
-03. A Promise From Distant Days [1:40]
-04. I Want To Play [1:45](   Читать дальше...   )Жанр: Soundtrack, OSTПродолжительность: 01:18:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C52735119405B0C9D363B2FCCFC2B2CA2FD4F2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248529   (442411) от 20.09.2018
-
-Pawel Mareyn - Habitable Zone (2018) [MP3|320 Kbps] <New Age, Neo-Classical>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Overture (1:44)
-02.Final Call (5:00)
-03.Take My Hand (1:56)
-04.Mirage (5:32)(   Читать дальше...   )Жанр: New Age, Neo-ClassicalПродолжительность: 00:46:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:385D748543A3FF76D6D88610578837B43D0D8287
 ```
 
 https://mybot314.ru/tekegram_catalog/

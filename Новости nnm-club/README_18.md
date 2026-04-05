@@ -1,3 +1,29 @@
+###  Публикация: 599169   (999473) от 05.01.2013
+
+Doom 3 BFG Edition [Ru/En] (L/1.0.0.1u1) 2012
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Doom 3 BFG Edition - это обновленная версия культового шутера Doom 3, а также дополнение к нему под названием Ressurection of Evil. Помимо знакомой игрокам истории Doom 3 BFG Edition включает новые эпизоды – семь уровней под общим заголовком The Lost Mission. С Doom 3 BFG Edition игроки смогут еще глубже погрузиться в атмосферу легендарного шутера. Оптимизация графики под современные платформы, улучшенные рендеринг и освещение, поддержка стереоскопического 3D и звука 5.1. Новая система сохранения, а также поддержка достижений – все это позволит игрокам насладиться игрой, как в первый раз. Наконец, в качестве особого бонуса для самых верных фанатов серии Doom 3 BFG Edition содержит также оригинальную дилогию Doom.(   Читать дальше...   )Тип издания: ЛицензияЖанр: Action (Shooter) / 3D / 1st Person / CompilationЯзык озвучки: АнглийскийЯзык субтитров: Английский, РусскийЯзык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01DF9533A0D24E355B15F286C20A470A17AF7FDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 599132   (999223) от 06.01.2013
 
 NVIDIA GeForce Desktop 310.90 WHQL + For Notebooks [Русский]
@@ -6,7 +32,7 @@ NVIDIA GeForce Desktop 310.90 WHQL + For Notebooks [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999223.jpg" />
 </div>
 
 
@@ -38,7 +64,7 @@ Skins kaspersky internet security 2013 3.0 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999207.jpg" />
 </div>
 
 
@@ -64,7 +90,7 @@ Recovery Partition for ASUS K56 CM / Windows 8 (х64)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998992.jpg" />
 </div>
 
 
@@ -92,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998991.jpg" />
 </div>
 
 
@@ -118,7 +144,7 @@ Stop SMS Uni Boot v.3.1.7 [Русский и английский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998736.jpg" />
 </div>
 
 
@@ -145,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998722.jpg" />
 </div>
 
 
@@ -171,7 +197,7 @@ Driver: San Francisco [Ru/En] (RePack/1.0.04.1114) 2012 l R.G.Games
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998708.jpg" />
 </div>
 
 
@@ -197,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998705.jpg" />
 </div>
 
 
@@ -223,7 +249,7 @@ Adobe Acrobat XI (v11.0.1) Professional Multilingual
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998449.jpg" />
 </div>
 
 
@@ -258,7 +284,7 @@ Pirates of the Caribbean / Корсары 2: Пираты Карибского �
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998438.jpg" />
 </div>
 
 
@@ -285,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998436.jpg" />
 </div>
 
 
@@ -316,7 +342,7 @@ Kaspersky CRYSTAL 13.0.2.558 Technical Release [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998180.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998166.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ Test Drive Unlimited Gold [Ru/En] (RePack/1.66а) 2007 l R.G.Games
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998160.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ AMD Radeon RAMDisk 4.0.1 [Английский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997630.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ VA - 2000 Best, Gold and Grest Hit. VOL. 01-20 (2011) [MP3|184-320 kbps кб/с]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997615.jpg" />
 </div>
 
 
@@ -462,7 +488,7 @@ Hiren's Boot DVD 15.2 Restored Edition 1.1 (January 2013) [Английский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997614.jpg" />
 </div>
 
 
@@ -490,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997335.jpg" />
 </div>
 
 
@@ -516,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997334.jpg" />
 </div>
 
 
@@ -542,7 +568,7 @@ Emperor: Battle for Dune [Ru/En] (RePack/1.09) 2001 | volkogriz
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997329.jpg" />
 </div>
 
 
@@ -568,7 +594,7 @@ TrackMania 2 Canyon [Ru] (P) 2011
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997316.jpg" />
 </div>
 
 
@@ -594,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997313.jpg" />
 </div>
 
 
@@ -622,7 +648,7 @@ Extensoft Artisteer 4.1.0.59688 Beta [MULTi / Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997089.jpg" />
 </div>
 
 
@@ -650,7 +676,7 @@ Sniper: Ghost Warrior - Gold Edition [Ru/En/Multi6] (L) 2010 | *PROPHET*
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997086.jpg" />
 </div>
 
 
@@ -677,7 +703,7 @@ Drakensang Dilogy / Дилогия Drakensang [Ru/En] (RePack) 2009-2010 | R.G. 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997081.jpg" />
 </div>
 
 
@@ -690,32 +716,6 @@ Drakensang Dilogy / Дилогия Drakensang [Ru/En] (RePack) 2009-2010 | R.G. 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D23D8C650F6CBF2BFCE2847D312AA11A7CBA50BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603030   (997080) от 14.01.2013
-
-Распутин / Raspoutine (2011) DVDRip [H.264]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм посвящен последним годам жизни Григория Распутина, его взаимоотношениям с семьей последнего русского императора Николая II.Производство: ФранцияЖанр: ДрамаРежиссер: Жозе ДайанАктеры: Жерар Депардье, Константин Хабенский, Фанни Ардан, Владимир Машков, Ксения Раппопорт, Ирина Алферова, Анна Михалкова, Филипп Янковский, Данила Козловский, Юрий Назаров, Эдуард СергиеняПеревод: Одноголосый закадровый (Михаил Бирюков)Язык субтитров: Русский (Алексей Королев). ГолландскийПродолжительность: 01:42:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4373898BA22131136283C3361CB0E7D00C56F09A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ BBC. Земля: Один потрясающий день / Earth: One Amazing D
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563637.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NGW: Дикая Арктика / Wild Arctic (2018) HDTV [H.264/1080i] (Сери
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563566.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563138.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NGW: Дожить до рассвета / Dead by Dawn (2019) HDTVRip [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563137.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563130.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Viasat History: Как климат изменил ход истории / How C
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563112.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563086.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Discovery. Первым делом - самолеты / Airplane Repo (2013) HDT
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562566.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ BBC: Вся правда о тренировках / The Truth About Exercise (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561917.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ BBC: Живой мир. Мадагаскар, лемуры и шпионы / Mad
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561725.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561283.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Discovery. Что у вас в гараже? / What's in the Barn? (2013) HDTVRi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560717.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Discovery. Что у вас в гараже? / What's in the Barn? (2013) HDTV [
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560707.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Discovery. Первым делом - самолеты / Airplane Repo (2013) HDT
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560663.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ BBC: Мир природы. Из жизни крабов / The Natural World. Cl
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560253.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ NGW: Дикие охотники. Рыбы / Wild Hunters. Fish (2019) HDTV [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559646.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Animal Planet: В дикие края с Эваном. Лечение носор
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559514.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Animal Planet: Спасти орангутана / Red Ape. Saving the Orangutan
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559513.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559432.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559416.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559319.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558988.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Discovery: Правда о Бермудском треугольнике / Bermu
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558652.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ BBC: Как устроена природа / BBC. How Nature Works (2012) BDRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558517.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ NG. Ограбление по-египетски / The Egyptian Job (2011) SATRi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558516.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ BBC: Чудеса животного мира / Wonder of Animals (2014) HDTV [H
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558499.jpg" />
 </div>
 
 

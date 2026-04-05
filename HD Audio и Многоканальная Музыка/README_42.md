@@ -1,32 +1,3 @@
-###  Публикация: 1182160   (314339) от 11.11.2017
-
-VA - Наши баллады (2002) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Pop, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Смысловые галлюцинации - Разум когда-нибудь победит
-02. Танцы минус - Не меняй меня
-03. Сплин - Пластмассовая жизнь
-04. Сегодня ночью - Между роскошью и тоской(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:09:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5434AD69CFD4823BAC88102C80729EFEC6783F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182684   (314251) от 11.11.2017
 
 Deep Purple - Machine Head (1972) Reissue, 1976 [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Hard Rock>
@@ -35,7 +6,7 @@ Deep Purple - Machine Head (1972) Reissue, 1976 [FLAC 2.0|192/24|image + .cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314251.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314232.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ John Lennon – Imagine: The Ultimate Collection (2018) 1971 [DTS 5.1 CD-Audio|4
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313628.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Duran Duran - Paper Gods (2017) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <New Wa
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312191.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Joy - Joy And Tears (1987) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312076.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ ABBA - The Visitors (1981) [FLAC |192/24|image + .cue|Vinyl-Rip |Lossless] <Euro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312046.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ A-Ha - Headlines And Deadlines: The Hits Of A-Ha Vol.1 (1992) Unofficial Release
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311650.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Depeche Mode - Spirit (2017) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Synth pop
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311476.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Amy Winehouse - Frank (2003) Reissue, 2016 [FLAC 2.0|192/24|image + .cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309678.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Claire Martin - Too Darn Hot! (2002) [DST 2.0, 5.1 1bit/2822,4kHz |SACD-R]<Vocal
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309586.jpg" />
 </div>
 
 
@@ -331,7 +302,7 @@ Bad Company - Dangerous Age (1988)  [FLAC 2.0|192/24|image|Vinyl-Rip]<Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308748.jpg" />
 </div>
 
 
@@ -360,7 +331,7 @@ The Camerata Romana, Eugen Duvier Conducting - Vivaldi - Famous Concerti (2000) 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307448.jpg" />
 </div>
 
 
@@ -389,7 +360,7 @@ Gillan - Double Trouble (1981) 2LP [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)]<Hard 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306813.jpg" />
 </div>
 
 
@@ -418,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306599.jpg" />
 </div>
 
 
@@ -447,7 +418,7 @@ The Beatles - 16 Альбомов (1969-2003) [DTS 5.1 | Tracks (Upmix)]<Rock, b
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306239.jpg" />
 </div>
 
 
@@ -473,7 +444,7 @@ VA - Сергей Рахманинов - Золотая коллекция (1999
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305322.jpg" />
 </div>
 
 
@@ -502,7 +473,7 @@ Manfred Mann's Earth Band - Angel Station (1979) [FLAC 2.0|192/24|image + .cue|V
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304306.jpg" />
 </div>
 
 
@@ -531,7 +502,7 @@ The Beatles - Let It Be (1970) [WavPack|192/32|tracks|Vinyl-Rip] <Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304303.jpg" />
 </div>
 
 
@@ -560,7 +531,7 @@ Unknown Artists. Verdi – La Traviata (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303385.jpg" />
 </div>
 
 
@@ -589,7 +560,7 @@ Radiorama - Four Years After (1989) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <El
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303202.jpg" />
 </div>
 
 
@@ -618,7 +589,7 @@ Pet Shop Boys - Super (2016) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electroni
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303058.jpg" />
 </div>
 
 
@@ -647,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303017.jpg" />
 </div>
 
 
@@ -676,7 +647,7 @@ Steve Hackett – Wolflight (2015) [DTS 5.1 CD-Audio|44.1/16|image+.cue|BD-Audio
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302952.jpg" />
 </div>
 
 
@@ -705,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302814.jpg" />
 </div>
 
 
@@ -734,7 +705,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302655.jpg" />
 </div>
 
 
@@ -748,6 +719,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7B377FDD261F4989558F46599696B5353BAF621
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 846624   (301711) от 02.12.2014
+
+Pink Floyd - The Endless River (2014) [LPCM 2.0, Dolby Digital 5.1, DTS 5.1 | Audio-DVD] <Progressive Rock, Art Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Things left unsaid [04.26]
+02. It's what we do [06.17]
+03. Ebb and flow [01.55]
+04. Sum [04.48](   Читать дальше...   )Жанр: Progressive Rock, AmbientПродолжительность: 00:52:55 + 00:39:14 (дополнительные материалы)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43109B07FEB7B803519454C1F8AB036FBF335061
 ```
 
 https://mybot314.ru/tekegram_catalog/

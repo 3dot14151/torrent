@@ -1,3 +1,55 @@
+###  Публикация: 476613   (86066) от 02.04.2012
+
+[Mod] The Elder Scrolls V: Skyrim - Компиляция модов {3.0} [Ru] 2012
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компиляция различных модов для игры The Elder Scrolls V: Skyrim. Данная сборка не преследуют цель внести изменения в игровой баланс, поэтому практически все моды являются или ретекстурами, или добавляют новые предметы. Почти все моды переведены на русский язык.Тип издания: МодификацияЖанр: RPG / 3D / 1st Person / 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:267FB9850A013D2E4C9DD48695DD4562B9F28D77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454066   (86065) от 02.04.2012
+
+Лилехаммер / Lilyhammer (сезон 1 серии 1-8 из 8) (2012) WEB-DLRip (NovaFilm)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тальяно сдал своего босса федералам, и теперь, в рамках программы по защите свидетелей, он переезжает в Лиллехаммер, небольшой норвежский городок, когда-то приютивший зимние олимпийские игры. Сам Фрэнк называет его Лилихэммером, отсюда и название сериала. Фрэнк мечтает о рае с «чистым воздухом, белым снегом и клевыми телками», вдали от соблазнов Нью-Йорка и от карателей (   Читать дальше...   )Жанр: Комедия, Драма, КриминалРежиссер: Симен АлсвикАктеры: Стив Ван Зандт, Тронд Фауса, Аурвааг Мариан, Саастад Оттесен, Steinar Sagen, Свен Нордин, Anne Krigsvol, l Фридтьов Сохейм, Mikael Aksnes-Pehrson, Карре Хеллум, Томми КарлсенПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:45 :00 мин
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 476890   (86055) от 02.04.2012
 
 Call of Duty: Black Ops AlterOps (2010) [Ru] (7.0.164) Rip Canek77 [Multiplayer]
@@ -6,7 +58,7 @@ Call of Duty: Black Ops AlterOps (2010) [Ru] (7.0.164) Rip Canek77 [Multiplayer]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86055.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Total Commander PowerUser v58
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86041.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85831.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ Fallout: New Vegas Ultimate Edition [Ru/En] (RePack/1.4.0.525) 2012 l R.G. ReCod
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85648.jpg" />
 </div>
 
 
@@ -117,7 +169,7 @@ Resident Evil 5 [Multi9\+] (RePack/1.0.0.129) 2009 | R.G. Shift
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85645.jpg" />
 </div>
 
 
@@ -143,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85635.jpg" />
 </div>
 
 
@@ -171,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85453.jpg" />
 </div>
 
 
@@ -197,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85237.jpg" />
 </div>
 
 
@@ -223,7 +275,7 @@ Another / Иная [2012, TV, 12 из 12 серий] HDTV 720p raw + rus
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85206.jpg" />
 </div>
 
 
@@ -251,7 +303,7 @@ Fallout: New Vegas Ultimate Edition [Multi5/-] (L) 2012 l PROPHET
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85036.jpg" />
 </div>
 
 
@@ -281,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85032.jpg" />
 </div>
 
 
@@ -307,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85029.jpg" />
 </div>
 
 
@@ -333,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85027.jpg" />
 </div>
 
 
@@ -361,7 +413,7 @@ Resident Evil 5 [Ru] (Lossless RePack) 2009 | Naitro
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84838.jpg" />
 </div>
 
 
@@ -387,7 +439,7 @@ Realtek High Definition Audio Driver [Multi] (R2.68)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84807.jpg" />
 </div>
 
 
@@ -413,7 +465,7 @@ Driver Genius Professional 11.0.0.1112 Update 24.03.2012 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84595.jpg" />
 </div>
 
 
@@ -441,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84423.jpg" />
 </div>
 
 
@@ -471,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84413.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ Windows 8 Skin Pack for Windows 7 (x86/x64) 12.0 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84208.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84207.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (Lossless RePack) 2012
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84011.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ Resident Evil 4 + HD [Ru] (P) 2007
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83396.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83392.jpg" />
 </div>
 
 
@@ -641,68 +693,13 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83181.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Образ DVD-диска с оригинальными драйверами для ноутбука LENOVO G470/G570Название программы: Драйвера для ноутбука LENOVO G470/G570Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470240   (83162) от 19.03.2012
-
-Retro Tape Deck Music Player - Реалистичный mp3 плеер анимированный под ретро кассету [Программа] (ANDROID версии 2.2+)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Реалистичный mp3 плеер анимированный под ретро кассету.
-
-Ретро музыкальный плеер полностью анимированный под кассетный магнитофон. Имеет 15 сменных скинов. Лента кассеты показывает фактическое положение трека.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470337   (83132) от 19.03.2012
-
-Соцсети строят свой маленький Интернет: этаж Интернет-магазинов уже готов
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Виталий Ситницкий из «Инфоротора» представил, к чему приведет развитие социальных сетей через 15 лет. Сценарий включает в себя смерть поисковых систем и отрасли веб-разработок.Дробление приложений соцсетей на отраслевые сегменты неизбежно, глобализация своего «уютненького» Интернета внутри каждой крупной соцсети активно этому способствует. «Уютненькая» соцсеть становится Интернетом в Интернете, где границы на выход охраняются все тщательнее.
-(   Читать дальше...   )
 
 ## Скачать торент
 ```bash

@@ -1,81 +1,3 @@
-###  Публикация: 1139894   (658218) от 04.06.2017
-
-Л. Ф. Ильичев (общ. ред.) | Материалистическая диалектика как общая теория развития [4 тома] (1982-1987) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658218.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пером томе дается изложение философских основ диалектико-материалистической теории развития как общеметодологического ориентира научного познания процессов развития в природе и обществе. На основе теоретического наследия классиков марксизма-ленинизма раскрывается фундаментальность проблемы развития, особенности ее современной постановки и последовательного научного (   Читать дальше...   )Жанр: История, политология, философия, логика, науковедениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FBD19E16148D0F1786FF05F1D9DDDB0172BE34B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139887   (657937) от 04.06.2017
-
-Л. А. Леонтьев | О работе К. Маркса «К критике политической экономии» [1859—1959] (1959) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657937.jpg" />
-</div>
-
-
-###  Подробнее
-
-Брошюра члена-корреспондента АН СССР Л. А. Леонтьева выпускается в связи со столетием издания классической работы К. Маркса «К критике политической экономии» — первого выпуска «Капитала». В брошюре на богатом фактическом материале показан титанический труд Маркса по созданию политической экономии рабочего класса. Автор брошюры рассматривает основные теоретические (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D903D790636BFB7D1F3A82D446575A28DAEFE119
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903664   (657862) от 31.05.2015
-
-Сергей Дмитриевич Артамонов | Сорок веков мировой литературы [IV Тома] (1997) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657862.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доктор филологических наук, профессор Литературного института Сергей Дмитриевич Артамонов посвятил четыре книги под общим названием "Сорок веков мировой литературы" шедеврам мировой классики, раскрывая глубину и художественную прелесть произведений, покоривших поколения прошлых веков и покоряющих нас в наши дни. Книга первая из этой серии - "Литература (   Читать дальше...   )Жанр: Литературоведение, учебникФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4019C0A1D03CC253B1452272AC944EED08DFE817
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 903108   (656988) от 01.06.2015
 
 Н. П. Французова | Общественно-историческая сущность и творческая активность сознания (1983) [DJVU]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656988.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656929.jpg" />
 </div>
 
 
@@ -138,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656763.jpg" />
 </div>
 
 
@@ -166,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656655.jpg" />
 </div>
 
 
@@ -192,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656588.jpg" />
 </div>
 
 
@@ -220,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656566.jpg" />
 </div>
 
 
@@ -246,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656563.jpg" />
 </div>
 
 
@@ -272,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656455.jpg" />
 </div>
 
 
@@ -300,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655776.jpg" />
 </div>
 
 
@@ -328,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655472.jpg" />
 </div>
 
 
@@ -356,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654377.jpg" />
 </div>
 
 
@@ -382,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654259.jpg" />
 </div>
 
 
@@ -410,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654016.jpg" />
 </div>
 
 
@@ -436,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653979.jpg" />
 </div>
 
 
@@ -462,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653949.jpg" />
 </div>
 
 
@@ -488,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653547.jpg" />
 </div>
 
 
@@ -514,7 +436,7 @@ Dover Publications | Мотивы североамериканских инде�
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653531.jpg" />
 </div>
 
 
@@ -540,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653463.jpg" />
 </div>
 
 
@@ -566,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653457.jpg" />
 </div>
 
 
@@ -592,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653444.jpg" />
 </div>
 
 
@@ -618,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652664.jpg" />
 </div>
 
 
@@ -644,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652606.jpg" />
 </div>
 
 
@@ -670,7 +592,7 @@ Marcos Mateu-Mestre | Framed Ink (2010-2021) [PDF] [2 части] [EN]
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652431.jpg" />
 </div>
 
 
@@ -683,6 +605,85 @@ Marcos Mateu-Mestre | Framed Ink (2010-2021) [PDF] [2 части] [EN]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D695F5798F27C6B5F8C1270AE3A24469F068260
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291070   (652416) от 26.03.2019
+
+К. Маркс | Капитал [3 тома, 4 книги] (1933-1936) [DJVU, PDF] [UA]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Капитал - главный труд К. Маркса, в котором он, применив диалектико-материалистическую концепцию исторического процесса к исследованию капиталистического общественно-экономической формации, открыл экономический закон движения буржуазного общества и доказал неизбежность гибели капитализма и победы коммунизма.Жанр: История, политология, экономика, правоведение, социология, философия, публицистикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5169321733C39403423EEFA4208883C44279E276
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030889   (652147) от 04.07.2016
+
+Т. Д. Павлов | Ленинская теория отражения в свете развития науки и практики [Том 1] (1981) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящий труд создан коллективом видных советских и бол­гарских философов, крупных ученых —представителей естест­венных и общественных наук. Подготовкой этого труда завер­шаются начатые в 1963 г. совместные исследования,Жанр: История, философия, науковедение, естествознание, психология, гносеология, логикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:291BE982B84F01E7A2830C94DC2CC6178BB8460A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226830   (652029) от 23.05.2018
+
+Дана Арнольд | Говорит и показывает искусство. Что объединяет шедевры палеолита, эпоху Возрождения и перформансы (2018) [FB2]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Невозможно понимать искусство, не изучив его историю. Но как им тогда наслаждаться? Как в нелепом наброске увидеть шедевр, как в абстракции найти смысл? Вы удивитесь, насколько по-разному воспринималось искусство в разные времена и как при этом оно одинаково действовало на людей. Научитесь видеть и слышать художников сквозь время и пространство.
+Эта книга расскажет (   Читать дальше...   )Жанр: Искусствоведение, История искусствФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6C07240F759A7778BBF93A41FA11EE0ACC4A6A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

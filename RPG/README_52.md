@@ -1,3 +1,55 @@
+###  Публикация: 1718433   (58623) от 25.04.2024
+
+Eclipse: Echo of Dimension (2024) [Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58623.jpg" />
+</div>
+
+
+###  Подробнее
+
+Eclipse: Echo of Dimension – отправьтесь навстречу невероятным приключениям. Внимательно изучайте таинственные руины некогда существовавшей цивилизации. И приготовьтесь к тому что между измерениями будут размыты границы. С каждым новым шагом открывается нечто новое. Погрузитесь с головой в эпический симулятор ходьбы, дополненный приключениями. Где вас ожидает незабываемое (   Читать дальше...   )Тип издания: RepackРазработчик: Lu Jiawei, FROSTI AESTECHЖанр: Приключенческие игры, Казуальные игры, Инди, Ролевые игры, СимуляторыЯзык субтитров: Английский, КитайскийЯзык интерфейса: Английский, Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E62BBCCDB82AE7EABF03D3F2A4A1BB52F2D0EB9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718440   (58601) от 25.04.2024
+
+Life Eater (2024) [En] (1.0) Scene Tenoke
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Life Eater - это симулятор культиста, сочетающий в себе черты хоррора и магического реализма. Примерьте на себя роль современного друида, который живет в обычном спальном районе и работает на обычной работе лишь для того, чтобы раз в год исполнять свое истинное предназначение: проводить ритуал, призванный спасти мир от гибели.Тип издания: SceneРазработчик: Strange ScaffoldЖанр: Ролевые игры, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D8468084D3E2D60D31F59C495A3BB876DD774E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1718498   (58577) от 25.04.2024
 
 Crimson Tactics: The Rise of The White Banner (2023) [En] (1.0.0b) Repack FitGirl
@@ -6,7 +58,7 @@ Crimson Tactics: The Rise of The White Banner (2023) [En] (1.0.0b) Repack FitGir
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58577.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Sons of Valhalla (2024) [Ru/Multi] (1.0.21/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58489.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Royal Order (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58452.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Sand Land (2024) [Multi] (1.0.3/dlc) Scene FAiRLIGHT [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58272.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ SaGa Emerald Beyond (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58242.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Fallout 4 (2015) [Ru/Multi] (1.10.980/dlc) Scene Rune [Game of the Year Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58221.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Fallout 4 (2015) [Ru/Multi] (1.10.980/dlc) Repack FitGirl [Game of the Year Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58211.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Sand Land (2024) [Multi] (1.0.3/dlc) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58192.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ The Fall of the Dungeon Guardians (2015) [Ru/Multi] (1.0k) License GOG [Enhanced
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58171.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ King Arthur: Legion IX (2024) [Ru/Multi] (1.0.0) Scene FairLight
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57065.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ the Dwarf (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57043.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ The Legend of Heroes: Trails of Cold Steel IV (2021) [Multi] (1.2.1/dlc) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56731.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ King Arthur: Legion IX (2024) [Ru/Multi] (1.0.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56615.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Bloody Heaven 2 (2024) [Multi] (0.04) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56597.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Class of Heroes 2G: Remaster Edition (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56472.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Mass Effect: Andromeda (2017) [Ru/Multi] (1.10) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56223.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Maid of the Dead (2024) [Multi] (1.0.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56076.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Athenian Rhapsody (2024) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55955.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Gedonia (2022) [Ru/En] (1.48b) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55729.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Venture to the Vile (2024) [Ru/Multi] (1.0.1) Scene FairLight
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55639.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Venture to the Vile (2024) [Ru/Multi] (1.0.1) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55631.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Kingdom of Fallen: The Last Stand / Королевство Павших: Пос�
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55574.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Crown Wars: The Black Prince (2024) [Ru/Multi] (1.0/dlc) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55572.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Bloody Heaven 2 (2024) [Multi] (0.043) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55543.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Bloody Heaven 2 – в основе сюжета заложена популяр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D4EAB995EBBA071EB80CE7A443CC52C44A5CFFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725374   (55529) от 24.05.2024
-
-ASTLIBRA Revision (2022) [Multi] (1.3.7/dlc) Scene Tenoke
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55529.jpg" />
-</div>
-
-
-###  Подробнее
-
-ASTLIBRA Revision погружает пользователей в фэнтезийный мир, где предстоит сражаться против опасных монстров. Игра сделана в виде двухмерной ролевой адвенчуры, где присутствуют элементы метроидвании. Пользователям придется взять под управление героя, что в детстве расстался со своим другом из-за нападения демона. Адское существо уничтожило жителей деревни, а парень (   Читать дальше...   )Тип издания: SceneРазработчик: KEIZOЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык субтитров: Английский, Японский, Китайский, Корейский и другиеЯзык интерфейса: Английский, Японский, Китайский, Корейский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EC40FE045D48FDA0607DE756BBF70E4D991362B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725441   (55522) от 24.05.2024
-
-CONSORTIUM (2014) [Ru] (1.26.1) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55522.jpg" />
-</div>
-
-
-###  Подробнее
-
-CONSORTIUM – приключенческая игра в научно-фантастическом мире и первая часть в трилогии iDGi-1. В данном путешествии предстоит расследовать таинственное убийство на футуристическом самолете. Все люди способны попасть в альтернативную вселенную в 2042 год при помощи цифрового разрыва. Вы попадете на борт Зенлил, где потребуется начать расследование. Главный герой (   Читать дальше...   )Тип издания: LicenseРазработчик: Interdimensional Games IncЖанр: Приключение, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A770D02E143B950741AEF5430CFCA2505FC051A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

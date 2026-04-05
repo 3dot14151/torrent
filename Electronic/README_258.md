@@ -1,3 +1,119 @@
+###  Публикация: 689841   (569841) от 15.08.2013
+
+VA - Eclettica (Compiled By Glass Coffee) - 2013 [FLAC|Lossless|WEB-DL|KLCD 081 ]<Deep House, Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Haraket - Taint (Mokadem remix)
+02. Glass Coffee - Shining Love
+03. Nosaj Thing - Eclipse/Blue (feat Kazu Makino)
+04. Allone - Look At The Doorway Boys(   Читать дальше...   )Жанр: Deep House, ElectronicПродолжительность: 01:15:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07502A6E5D9CC94FC78CBAFBE5673BBCEC791A85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304008   (569485) от 23.05.2019
+
+Useless - Urban Jungle (1997) Single [FLAC|Lossless|tracks + .cue] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Urban jungle (4:11)
+ 02. Urban jungle (jungle mix) (4:39)
+ 03. Envoie-moi au ciel Scotty (4:45)
+ 04. Envoie-moi au ciel Scotty (acid mix) (9:59)Жанр: TechnoПродолжительность: 00:23:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A74165DA7C89A1A1AC1D22014417227C067F71D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234583   (569378) от 06.07.2018
+
+VA - SHINE Ibiza Soundtrack (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul van Dyk presents SHINE - SHINE Ibiza Anthem 2018 (Edit)
+02. Giuseppe Ottaviani - Ozone (Craig Connelly Remix)
+03. Jordan Suckley and Alex M.O.R.P.H. - Ambush
+04. Woody van Eyden and James Cottle - Caliber-12(   Читать дальше...   )Жанр: TranceПродолжительность: 03:58:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FF2D2F042E4AD0BE28E4C2AA3702135A04E3C67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234579   (569374) от 06.07.2018
+
+VA - Ibiza Trance (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Roger Shah & JES - Star-Crossed
+02.Anske & Victoriya - Love Won't End
+03.Moonsouls & Marjan - Come Home
+04.Fabio XB & Betsie Larkin - Under Your Stars(   Читать дальше...   )Жанр: TranceПродолжительность: 01:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97F273D38AA2285418F61A8848060D6815999C85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1234691   (569369) от 06.07.2018
 
 VA - Ori Uplift & Danny Oh - Uplifting Only 282 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
@@ -6,7 +122,7 @@ VA - Ori Uplift & Danny Oh - Uplifting Only 282 (2018) [MP3|320 Kbps] <Trance,Up
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569369.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Robert Rich & Markus Reuter - Flood Expeditions: The Gatherings, 19 May 2018 (20
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569361.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Sports Music City Edition (2018) [MP3|320 Kbps] <Minimal, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569288.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Ready For Summer 2017 [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569017.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Future Classics Vol.2 (2017) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569004.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Late Night Chillout Vibes (2017) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568979.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Trance Maschine Vol.4 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568967.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Obsession Lounge Vol.10 (Smooth Sounds For More Than) (2017) [MP3|320 Kbps]
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568849.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - York: Planet Chill (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568841.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Trance Energy 2017 (Mixed By ReOrder And Svenson & Gielen) (2017) [FLAC|Los
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568792.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Crystal Castles - Amnesty (I) (2016) [MP3|320 Kbps] <Experimental, Electronic>
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568545.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - My Own Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568353.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Palta & Ti - Palta Og Ti På Den Tolvte Ø (2018) 12th Isle [FLAC|Lossless|WEB-D
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567962.jpg" />
 </div>
 
 
@@ -382,7 +498,7 @@ Daviddance & Francesco Frumento & I Biz - Nextix (2017) [MP3|320 Kbps] <Progress
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567591.jpg" />
 </div>
 
 
@@ -411,7 +527,7 @@ VA - Ori Uplift & Rich Triphonic - Uplifting Only 232 (2017) [MP3|320 Kbps] <Upl
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567475.jpg" />
 </div>
 
 
@@ -440,7 +556,7 @@ VA - Boom Dance (2016) [MP3|320 Kbps] <House, Progressive, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567466.jpg" />
 </div>
 
 
@@ -469,7 +585,7 @@ MRUKS - MRUKS REMIXES (2019) [FLAC|Lossless|WEB-DL|tracks] <Funky, Retrowave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567449.jpg" />
 </div>
 
 
@@ -496,7 +612,7 @@ Com Truise - Persuasion System (2019) [FLAC|Lossless|tracks + .cue] <Electronic,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567445.jpg" />
 </div>
 
 
@@ -525,7 +641,7 @@ Gareth Emery - Metropolis Festival, The Brooklyn Mirage New York, United States 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567358.jpg" />
 </div>
 
 
@@ -554,7 +670,7 @@ Markus Schulz - Global DJ Broadcast World Tour - Canada (2022-06-02) [MP3|320 Kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567350.jpg" />
 </div>
 
 
@@ -583,7 +699,7 @@ VA - Maretimo Sessions: Saxophone Sunset (Smooth Jazz Lounge Music) (2017) [MP3|
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567299.jpg" />
 </div>
 
 
@@ -612,7 +728,7 @@ Korolova - Live @ Karavela Boat Party Lisbon, Portugal (2022-06-03) [MP3|320 Kbp
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567168.jpg" />
 </div>
 
 
@@ -626,122 +742,6 @@ Korolova - Live @ Karavela Boat Party Lisbon, Portugal (2022-06-03) [MP3|320 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA000C1B783BA141FA2BDE9F461F355330387626
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044260   (567093) от 19.08.2016
-
-VA - Best of Melodic Vocal Trance Vol. 3 (2016) [FLAC|Lossless|tracks] <Trance, Vocal Trance, Melodic Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567093.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Aeris & Jo Cartwright – In The Face of AdversityЖанр: Trance, Vocal Trance, Melodic TranceПродолжительность: 02:51:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4DA38D1DFF8EF425E1851354F60097373A795AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529801   (567050) от 31.07.2012
-
-Zedd feat. Matthew Koma - Spectrum EP (2012) [MP3|320 кб/с]<Trance, Electro House, Progressive House, Dubstep>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zedd - Spectrum feat. Matthew Koma (Armin van Buuren Remix)
-02. Zedd feat. Matthew Koma - Spectrum (A-Trak & Clockwork Remix)
-03. Zedd feat. Matthew Koma - Spectrum (Arty Remix)
-04. Zedd feat. Matthew Koma - Spectrum (Deniz Koyu Remix)
-05. Zedd - Spectrum feat. Matthew Koma (Gregori Klosman & Tristan Garner Knights Remix)
-06. Zedd feat. Matthew Koma - Spectrum (Congorock Remix)
-07. Zedd feat. Matthew Koma – Spectrum (Monsta Remix)Жанр: Trance, Electro House, Progressive House, DubstepПродолжительность: 00:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CD53F6B037D4D4E3F292D7900BF3B7FEC6C936C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044325   (566815) от 19.08.2016
-
-Manu Shrine - Discography 12 Releases (2013-2015) [FLAC|Lossless|WEB-DL|tracks] <Future Garage, Ambient, Dubstep, Abstract>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ambient Theme Two (03:50)
- 02. Betrayed (03:32)
- 03. Delusion (03:24)
- 04. Up There (03:44)(   Читать дальше...   )Тип издания: WEBЖанр: Future Garage, Ambient, Bass, Dubstep, UK Garage, Abstract •Продолжительность: 00:46:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB7806C7CE6383EA7736C96AA849AAF7CAF4850A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923011   (566624) от 30.07.2015
-
-VA - Lounge Loungy (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vivian Holmes - Gentleman [03:25]
-02. Jess & Jess - Ventura [05:58]
-03. Double Go - Well & Ness [03:48]
-04. So Phistry - Lounge Me [05:12](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:28:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC4D5686CA548ACFCE3028E4AE0CEA491800331F
 ```
 
 https://mybot314.ru/tekegram_catalog/

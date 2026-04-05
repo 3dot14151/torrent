@@ -1,3 +1,57 @@
+###  Публикация: 1712529   (60969) от 02.04.2024
+
+Final Draft 13 v.13.0.3 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Final Draft — профессиональное программное обеспечение для написания сценариев фильмов, телевизионных шоу и спектаклей.
+Приложение представляет собой многооконный текстовый процессор с массой специализированных возможностей под написание сценариев.
+Для использования утилиты вам совершенно не требуется знать правила оформления сценариев — Final Draft автоматически (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.04.2024Разработчик: © 2024 Cast & Crew Production Software, LLCПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70DD1DC7FAEBB57831F844F0E2407B8B4B2BA437
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712602   (60953) от 03.04.2024
+
+Apeaksoft iOS Unlocker 1.0.56 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экран iPhone заблокирован? Удалите пароль за считанные секунды. iPhone много раз отключался из-за неправильного ввода пароля? Экран iPhone заблокирован из-за разбитого экрана? Не беспокойтесь: Apeaksoft iOS Unlocker безопасно сотрет пароль на iPhone, iPad и iPod и получит доступ к данным вашего iPhone за считанные секунды.Тип издания: macOS SoftwareРелиз состоялся: 07.02.2024Разработчик: © 2024 Apeaksoft StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:934B7D0FEFC03EE469FDCEB36F51FD622E8903BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1712569   (60888) от 03.04.2024
 
 Bigasoft Total Video Converter for Mac 5.8.0 [Multi/Ru]
@@ -6,7 +60,7 @@ Bigasoft Total Video Converter for Mac 5.8.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60888.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Cisdem PDFMaster 6.0.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60886.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ Bigasoft Audio Converter for Mac 5.8.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60872.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ iFastZip - Extract RAR & ZIP & 7Z 8.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52199.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ Movist Pro 2.11.5 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30375.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ ShutterCheck 2.19 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26172.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ VMware Fusion Pro 13.6.1 [En] Build 24319021
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10850.jpg" />
 </div>
 
 
@@ -193,7 +247,7 @@ Apple - Logic Pro 11.2.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10383.jpg" />
 </div>
 
 
@@ -219,7 +273,7 @@ Wondershare PDFelement Pro 12.0.5 (OCR) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8630.jpg" />
 </div>
 
 
@@ -247,7 +301,7 @@ CrossOver 25.1.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4747.jpg" />
 </div>
 
 
@@ -275,7 +329,7 @@ Microsoft NTFS for Mac by Tuxera 2022 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4745.jpg" />
 </div>
 
 
@@ -301,7 +355,7 @@ HCL Lotus Notes 14.0 Fix Pack 2 [En/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4709.jpg" />
 </div>
 
 
@@ -329,7 +383,7 @@ Duplicate File Finder Pro for Mac 8.5 (935) [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4331.jpg" />
 </div>
 
 
@@ -357,7 +411,7 @@ Adobe Photoshop 2025 26.10.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4261.jpg" />
 </div>
 
 
@@ -383,7 +437,7 @@ Topaz Photo AI 4.0.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3040.jpg" />
 </div>
 
 
@@ -412,7 +466,7 @@ GRAPHISOFT ArchiCAD 28.2.2 ARM [Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2548.jpg" />
 </div>
 
 
@@ -438,7 +492,7 @@ Capture One Pro 16.6.6.9 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2257.jpg" />
 </div>
 
 
@@ -466,7 +520,7 @@ iFastZip - Extract RAR & ZIP & 7Z 8.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1605.jpg" />
 </div>
 
 
@@ -492,7 +546,7 @@ DaVinci Resolve Studio 20.2.1 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_844.jpg" />
 </div>
 
 
@@ -518,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_792.jpg" />
 </div>
 
 
@@ -544,7 +598,7 @@ The Unarchiver 4.3.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_754.jpg" />
 </div>
 
 

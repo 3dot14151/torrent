@@ -1,3 +1,29 @@
+###  Публикация: 1046233   (552787) от 26.08.2016
+
+Валентина Крутецкая | Правила успеваемости и режим дня школьника (2016) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552787.jpg" />
+</div>
+
+
+###  Подробнее
+
+сли ты хочешь хорошо учиться в школе и интересно проводить свой досуг, тебе просто необходимо подру­житься со временем, а главное - научиться им управ­лять! Наверное, ты скажешь, что такое под силу лишь магам и волшебникам? Нет! Этому можешь научиться и ты. Нужно только, чтобы тебе очень захотелось до­биться успехов в учёбе и стать сильным, здоровым и выносливым. (   Читать дальше...   )Жанр: ПсихологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DA71E33891B74C2AE6B0FD5B1485D2F111894CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047693   (549070) от 30.08.2016
 
 Элизабет Герхардсен | И больше не дерись! Как избежать ревности между детьми в семье (2016) [FB2]
@@ -6,7 +32,7 @@
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549070.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548005.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547665.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547615.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547607.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547599.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547537.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545233.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540377.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538998.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538991.jpg" />
 </div>
 
 
@@ -302,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538072.jpg" />
 </div>
 
 
@@ -330,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525916.jpg" />
 </div>
 
 
@@ -356,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513364.jpg" />
 </div>
 
 
@@ -382,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513363.jpg" />
 </div>
 
 
@@ -408,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508146.jpg" />
 </div>
 
 
@@ -435,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508044.jpg" />
 </div>
 
 
@@ -461,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507071.jpg" />
 </div>
 
 
@@ -488,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504503.jpg" />
 </div>
 
 
@@ -514,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502396.jpg" />
 </div>
 
 
@@ -541,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502330.jpg" />
 </div>
 
 
@@ -567,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500997.jpg" />
 </div>
 
 
@@ -593,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495275.jpg" />
 </div>
 
 
@@ -620,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495179.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493928.jpg" />
 </div>
 
 
@@ -660,32 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2F85CA801AD54675590AC492A50A470C32FA767
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565582   (492200) от 24.07.2022
-
-М.С. Аромштам, Е. Смирнова | Окошко в детскую [2 книги] (2009-2013) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия в помощь родителям дошкольников. Как решить проблемы малыша? Как «правильно» воспитать ребенка? Книги, написанные специалистами-педагогами, в увлекательной форме отвечают на вопросы, заботящие любого родителя.Жанр: Детская психология, Воспитание детейФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:930F435FCD29093D68FCB9D52A2AF9D2639A08C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

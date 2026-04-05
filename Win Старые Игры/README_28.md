@@ -1,3 +1,55 @@
+###  Публикация: 1585623   (204741) от 26.10.2022
+
+Wolfenstein: Enemy Territory (2003) [En] (1.0RC1) License GOG
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wolfenstein: Enemy Territory - это бесплатный многопользовательский шутер от первого лица о Второй мировой войне. В игре могут участвовать до 32 игроков. Выберите Ось или союзников и сражайтесь на шести картах, основанных на реальных местах сражений. Играйте за один из пяти уникальных классов (инженер, медик, солдат, полевой оперативник и тайный оперативник), работая (   Читать дальше...   )Тип издания: LicenseРазработчик: Splash DamageЖанр: Шутеры, От первого лица, ИсторическаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C718F7CF8DC5B0109289861B047C4E12651BC27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586664   (204709) от 27.10.2022
+
+Railroad Tycoon 3 / Железнодорожный магнат (2003) [Ru] (1.06/dlc) Repack R.G. SteamGames
+
+>>Win Старые Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многотрудный и извилистый железнодорожный путь пронизывает пространство и время: проходит по обеим Америкам, объединяет Европу и Азию, доходит до самой Японии и устремляется в недалёкое будущее с его глобальными катаклизмами, новыми цивилизациями и проектом по озеленению Гренландии.Тип издания: RepackРазработчик: PopTop SoftwareЖанр: trategy (Manage, Busin., Real-time), 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F09F9BD5F75396AE9DBB220C1410B6DE252696E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1586605   (204692) от 27.10.2022
 
 El Matador (2006) [Ru/Multi] (1.1) License GOG
@@ -6,7 +58,7 @@ El Matador (2006) [Ru/Multi] (1.1) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204692.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ The Legend of Kyrandia: Malcolm's Revenge - Book Three (1994) [Multi] (1.0) Lice
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203267.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ The Legend of Kyrandia: Hand of Fate - Book Two (1993) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203228.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Diggles The Myth of Fenris (2001) [Ru/Multi] (2.1.1.10/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202746.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202524.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Victoria II (2010) [Multi] (2.31-2/dlc) License GOG [Civil War Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202484.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Cities in Motion (2011) [Multi] (1.0.22/dlc) License GOG [Collection]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_202021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_202021.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Gary Grigsby's War in the West (2014) [En] (1.02.59/dlc) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201941.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Demise: Rise of the Ku'tan (2000) [En] (1.0r353) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201899.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Crysis 2 (2011) [Ru] (1.9.0.0/dlc) Repack Necros [Limited Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201860.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Warhammer 40,000: Dawn of War Dark Crusade (2006) [Ru] (1.2) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201859.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Urban Chaos (1999) [En] (2.69) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201246.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Gary Grigsby's War in the East (2010) [Multi] (1.11.03/dlc) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201097.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Age of Wonders (1999) [En] (1.36.0053) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200757.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Age of Wonders 2: The Wizard's Throne (2002) [En] (1.20.0.3100) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200756.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Age of Wonders: Shadow Magic (2004) [Ru/En] (1.30.0.2616) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200741.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Outcast 1.1 (1999) [Multi] (18970) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200730.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ DeathKeep (1995) [En] (3.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200541.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Spelljammer: Pirates of Realmspace (1992) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200513.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Warhammer 40,000: Dawn of War Soulstorm (2008) [Ru] (1.2) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_200011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_200011.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Overlord Ultimate Evil Collection (2007-2015) [Ru/Multi] (1.4/1.0/1.0.15.4016/dl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_199944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_199944.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Star Wars TIE Fighter (1994) [En] (1.0/dlc) License GOG [Special Edition]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199777.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Hard Truck: Road to Victory / Дальнобойщик: Путь к победе
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_199748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_199748.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Tropico 3 (2009) [Multi] (1.0/dlc) License GOG [Gold Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198998.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Tropico 3 (2009) [Multi] (1.0/dlc) License GOG [Gold Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7DF6D922AD134164FEB207FADD20EAD2FA83734
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630506   (198990) от 01.05.2023
-
-ArcaniA: Fall of Setarrif (2011) [Multi] (1.1499.0.0) License GOG
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198990.jpg" />
-</div>
-
-
-###  Подробнее
-
-Последнее испытание: ваша судьба решается здесь! На Южные острова вновь упала тень. Кипящий ненавистью загадочный демон сеет повсюду ужас и собирает войска, готовясь напасть на приморский город Сетарриф. Ситуацию ухудшает извержение вулкана в горах недалеко от города. Безымянный герой объединяет силы со своими верными союзниками и храбро выступает навстречу новому (   Читать дальше...   )Тип издания: LicenseРазработчик: Spellbound StudiosЖанр: Экшны, Ролевая играЯзык озвучки: Английский, Немецкий, Испанский, Французский и другиеЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC988B8557F22ED3DF065F009BA70E0283D30E81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631492   (198799) от 06.05.2023
-
-Everlight: Of Magic & Power / Хроники Мелвина. Проклятье эльфов (2008) [En] (1.1) Scene ViTALiTY
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юмористический квест, сюжет которого рассказывает о похождениях Мелвина, подростка, очутившегося в незнакомом волшебном мире. Игра выпущена создателями четвертой и пятой частей Simon the Sorcerer и оформлением и концепцией аналогична им. Без проблем устанавливается и проходится на х64 системах.Тип издания: SceneРазработчик: Silver Style EntertainmentЖанр: Quest, AdventureЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DE36F00BBF81A6DD639E24878FB33E1FC059B30
 ```
 
 https://mybot314.ru/tekegram_catalog/

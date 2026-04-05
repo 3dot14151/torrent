@@ -1,3 +1,31 @@
+###  Публикация: 1567930   (205579) от 05.08.2022
+
+Udemy, Victory 3D, Corazon Bryant | Female Game Character Creation in Blender Complete Worklow (2021) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205579.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе, мы создадим игрового персонажа полностью в Blender.
+Я также покажу вам, как создать сексуальное платье, туфли, ожерелье и другие аксессуары, чтобы наш персонаж был готов к балу.
+Что касается волос, я покажу вам, как создать систему частиц, а затем использовать их для карточек волос. Карточки для волос - очень важная часть процесса создания игры, и на (   Читать дальше...   )Производство: UdemyЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 40:12:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D0A6D14408B1CEF59344AC73547414DBECE5A3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1568021   (205540) от 06.08.2022
 
 Global Digital Space, Алексей Лукацкий | Как обеспечивать кибербезопасность в условиях спецоперации (2022) CamRip [RU]
@@ -6,7 +34,7 @@ Global Digital Space, Алексей Лукацкий | Как обеспечи�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205540.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ The Gnomon Workshop, Nick Reynolds | Creating Props for Games (2017) PCRec [EN, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205480.jpg" />
 </div>
 
 
@@ -61,7 +89,7 @@ The Gnomon Workshop, Kristin Farrensteiner | Creating Creature Hair & Fur Grooms
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205477.jpg" />
 </div>
 
 
@@ -87,7 +115,7 @@ Udemy, Ben Tristem, Sam Pattuzzi | Unreal Engine Blueprint Game Developer: Learn
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205443.jpg" />
 </div>
 
 
@@ -115,7 +143,7 @@ Skill Cup, Максим Ильяхов, Родион Скрябин | Бренд
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205429.jpg" />
 </div>
 
 
@@ -144,7 +172,7 @@ Deutsch Online | Большой грамматический интенсив В
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205395.jpg" />
 </div>
 
 
@@ -173,7 +201,7 @@ Deutsch Online | Большой грамматический интенсив A2
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205393.jpg" />
 </div>
 
 
@@ -202,7 +230,7 @@ Cubebrush, Marc Brunet | Ultimate Career Guide: 3D Artist Part 1-7 (2018) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205383.jpg" />
 </div>
 
 
@@ -228,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205379.jpg" />
 </div>
 
 
@@ -255,7 +283,7 @@ Udemy, Grim Future Studio | Unreal Engine - базовый курс №2. От �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205306.jpg" />
 </div>
 
 
@@ -284,7 +312,7 @@ Udemy, Nexttut, Nikolay Naydenov | Male Character Creation in Zbrush (2019) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205288.jpg" />
 </div>
 
 
@@ -311,7 +339,7 @@ ArchDialog | 99 летних вебинаров для дизайнеров ин
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205156.jpg" />
 </div>
 
 
@@ -340,7 +368,7 @@ Zero To Mastery Academy (ZTM), Daniel Bourke | PyTorch for Deep Learning (2022) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205109.jpg" />
 </div>
 
 
@@ -367,7 +395,7 @@ Udemy, Ali Ncir | Blender 2.8 and Substance Painter - 3D Modeling Game Assets (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204934.jpg" />
 </div>
 
 
@@ -394,7 +422,7 @@ O’Reilly, Valaxy Technologies | DevOps Complete Course (2022) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204927.jpg" />
 </div>
 
 
@@ -422,7 +450,7 @@ Udemy, Jose Moreno | Blender & Substance - Modeling and Texturing Videogame Prop
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204925.jpg" />
 </div>
 
 
@@ -449,7 +477,7 @@ Udemy, Victor Deno | Blender: Ultimate Game Art Creation Guide (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204867.jpg" />
 </div>
 
 
@@ -476,7 +504,7 @@ YouTube, Rachel | Scifi Hardsurface Glove Time-Lapse in Blender 2.9 (2022) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204855.jpg" />
 </div>
 
 
@@ -502,7 +530,7 @@ Gumroad, Rachel | Modeling a Scifi Helmet in Blender 2.8 (2020) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204854.jpg" />
 </div>
 
 
@@ -529,7 +557,7 @@ Udemy, Sime Bugarija | Complete Blender beginner workflow for Cinematic animatio
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204828.jpg" />
 </div>
 
 
@@ -557,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204825.jpg" />
 </div>
 
 
@@ -586,7 +614,7 @@ TutorOnline, Василий Рустамович | Курс по высшей м
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204778.jpg" />
 </div>
 
 
@@ -615,7 +643,7 @@ Skillshare, Harry Jones | Blender 3D for Beginners: Create a 3D Vaporwave Animat
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204768.jpg" />
 </div>
 
 
@@ -642,7 +670,7 @@ Adrian Cantrill | AWS Certified Solutions Architect - Professional (2022) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204764.jpg" />
 </div>
 
 
@@ -670,7 +698,7 @@ Udemy, GameDev.tv Team, Ben Tristem и др. | RPG Core Combat Creator: Learn In
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204654.jpg" />
 </div>
 
 
@@ -682,32 +710,6 @@ In this course we're focusing on the core of any great RPG, giving your players 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC902ECD449B3DFBBE4D6C009AEE94735F5B6EF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601590   (204624) от 01.01.2023
-
-Udemy, MA Applied Linguistics & DELTA, James Castleden | IELTS Step-by-step | MASTERING ALL SKILLS 7+ (2022) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>Иностранные языки (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пошаговая инструкция - это комплексный курс, посвященный совершенствованию ваших навыков аудирования, чтения, письма и разговорной речи для получения отличных результатов на экзамене IELTS. Вы откроете для себя сотни советов и приемов, а также умные, редко используемые методы, которые помогут вам в достижении ваших целей - некоторые студенты поднялись с 6,0 до 8,5 (   Читать дальше...   )Производство: Udemy, MA Applied Linguistics & DELTAЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 73:25:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B48A2F37065EFFE2BEE4E5B9110BC54926DBA01E
 ```
 
 https://mybot314.ru/tekegram_catalog/

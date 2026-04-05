@@ -1,3 +1,216 @@
+###  Публикация: 773337   (166784) от 14.12.2019
+
+Windows Loader 2.2.2 by Daz [En]
+
+>>3
+>>22
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Активатор Microsoft Windows 7 / Vista / 2008 R2 / Server 2012, устанавливает сертификат одной из фирм (по выбору), после чего активирует вашу копию Windows и дает возможность проходить проверку подлинности. Запускать от имени Администратора (желательно из проводника Windows)Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54F4944789A11E2BEFAC9FC576E48B83AEAB988A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672118   (166593) от 30.10.2023
+
+Китай выпускает «убийцу» Windows с открытым кодом
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_166593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Готовится к релизу настольная платформа Orange Pi OS от создателя китайских продвинутых одноплатников Orange Pi. Ее собрали на базе Huawei Harmony OS – китайской альтернативы Android. Orange Pi OS будет конкурировать с Windows 11 и скоро научится работать на х86-совместимых ПК.Windows по-китайски
+Компания Shenzhen Xunlong из Китая, разработчик широко известных одноплатных (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503120   (166553) от 30.10.2023
+
+Частушки ("Частушко-слогательна" игра)
+
+>>3
+>>97
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_166553.jpg" />
+</div>
+
+
+###  Подробнее
+
+ЧастушкиПравила игры
+Задание даётся в виде двустишия (рифма не обязательна). Нужно придумать продолжение, чтобы получился смешной стишок-частушка. Тот, кто первый ответил, даёт новое задание.Пример задания и ответов(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370361   (166366) от 14.12.2020
+
+Sticky Password Premium 8.2.3.43 (промо Comss) [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sticky Password Premium – менеджер паролей, который позволяет хранить ваши учетные данные локально или в облаке, синхронизируя их с компьютерами Windows, Mac, Android-устройствами, iPhone и iPad, гарантируя, что вы можете создавать безопасные пароли и автоматически вводить их, где бы вы ни находились.
+Sticky Password Premium для Windows может осуществлять автоматический (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:876F9F5B3D8B91780B355E82268BEAE0F7CF14F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516110   (166357) от 10.12.2021
+
+Блокировка Tor: что вообще происходит?
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_166357.jpg" />
+</div>
+
+
+###  Подробнее
+
+В последние дни много что было написано про блокировку Tor, но, кажется, что никто не сделал понятного и полного описания происходящего.  Исправляем ситуацию (актуально на 8 декабря 2021).Причина блокировки:
+Формальная причина — исполнение решения суда от 2017 года.Реальная причина —  давление на нецензурируемые каналы информации под предлогом борьбы с наркотиками. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596965   (166334) от 14.12.2022
+
+«Роскосмос» представил мобильное приложение «Цифровая Земля»
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_166334.jpg" />
+</div>
+
+
+###  Подробнее
+
+По сообщению госкорпорации «Роскосмос», завершена разработка бета-версии мобильного приложения «Цифровая Земля». Это приложение позволяет получить доступ к данным дистанционного зондирования Земли (спутниковым снимкам) прямо с портативного устройства.Приложение обеспечивает возможность просматривать снимки земной поверхности, полученные с космических аппаратов отечественной (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516268   (166326) от 10.12.2021
+
+Windows 10 Enterprise LTSC 1809 (x86/x64) by Paxweaver [11.2021] [Ru/En]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка Windows 10 Enterprise LTSC 1809 на основе оригинальных образов MSDN. Удалены и отключены шпионские компоненты и телеметрия. Использовались наработки westlife & Lex6000. Интегрированы обновления на ноябрь 2021 года. Настройки системы, автоматизация, минимализм, вариативность установки и набор удобных инструментов.Язык интерфейса: русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D64DF18BAFD9FBD17F9DB05C74F18A2A7034064
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516256   (166320) от 10.12.2021
+
+ESET NOD32 Antivirus / Internet Security / Smart Security Premium 15.0.21.0 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166320.jpg" />
+</div>
+
+
+###  Подробнее
+
+ESET NOD32 Antivirus 15 – новая версия антивируса с облачными технологиями, обеспечивающая усиленную защиту от сложных угроз. Включает мощный HIPS, контроль устройств, эффективную защиту от фишинга и уязвимостей.
+ESET NOD32 Internet Security 15 – комплексный антивирус и интернет-защита с облачными и проактивными технологиями. Включает фаервол, инструменты для безопасных (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71BD6B4989F36D3BAADC524227263509CA54AE9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1431614   (166319) от 14.12.2020
 
 Windows 7 SP1 х86-x64 by g0dl1ke 20.12.10 [Ru]
@@ -6,7 +219,7 @@ Windows 7 SP1 х86-x64 by g0dl1ke 20.12.10 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166319.jpg" />
 </div>
 
 
@@ -32,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166315.jpg" />
 </div>
 
 
@@ -58,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166314.jpg" />
 </div>
 
 
@@ -84,7 +297,7 @@ Iron Harvest (2020) [Ru/Multi] (1.3.0.2687/dlc) License GOG [Deluxe Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166312.jpg" />
 </div>
 
 
@@ -110,7 +323,7 @@ KRT CLUB ATB 3.1.0.29 RePack v6.21.3 Fix2 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166311.jpg" />
 </div>
 
 
@@ -139,7 +352,7 @@ Windows 10 32in1 (x86/x64) 20H2 + LTSC +/- Office 2019 by SmokieBlahBlah 13.12.2
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166305.jpg" />
 </div>
 
 
@@ -168,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_166299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_166299.jpg" />
 </div>
 
 
@@ -194,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_166191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_166191.jpg" />
 </div>
 
 
@@ -220,7 +433,7 @@ Windows 11 22H2 x64 Rus by OneSmiLe [22621.963]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166168.jpg" />
 </div>
 
 
@@ -249,7 +462,7 @@ Adobe Photoshop 2023 24.1.0.166 RePack by KpoJIuK [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166140.jpg" />
 </div>
 
 
@@ -275,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166138.jpg" />
 </div>
 
 
@@ -301,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_166056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_166056.jpg" />
 </div>
 
 
@@ -327,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_165954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_165954.jpg" />
 </div>
 
 
@@ -353,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165945.jpg" />
 </div>
 
 
@@ -379,7 +592,7 @@ Windows 10 Pro x64 lite 1909 build 18363.535 by Zosma[Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165941.jpg" />
 </div>
 
 
@@ -408,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165935.jpg" />
 </div>
 
 
@@ -434,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_165774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_165774.jpg" />
 </div>
 
 
@@ -460,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_165698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_165698.jpg" />
 </div>
 
 
@@ -471,215 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668833   (165638) от 31.10.2023
-
-Падение дома Ашеров / The Fall of the House of Usher (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) LostFilm, Red Head Sound, RuDub
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация одноимённого рассказа Эдгара Аллана По. Безжалостные брат и сестра Родерик и Мадлен Ашеры превратили свою фармацевтическую компанию Fortunato Pharmaceuticals в империю богатства, привилегий и власти. Внезапно наследники династии Ашеров начинают умирать от рук таинственной женщины из их юности. Постепенно на поверхность выходят ужасающие тайны фамильного (   Читать дальше...   )Производство: США, Intrepid PicturesЖанр: драма, фэнтези, ужасыРежиссер: Майкл Фимоньяри, Майк ФлэнаганАктеры: Брюс Гринвуд, Карл Ламбли, Карла Гуджино, Мэри Макдоннелл, Генри Томас, Рахул Коли, Саманта Слойан, Т’Ниа Миллер, Зак Гилфорд, Уилла ФицджералдПеревод: Многоголосый профессиональный (LostFilm, Red Head Sound, RuDub)Язык озвучки: Русский, Английский, Французский, ИтальянскийСубтитры: Русские (Forced, Full), английские (Full, SDH), французские (Full, SDH) и др.Продолжительность: ~00:55:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFECA94E30FBCE54638A948685874082590FC82E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515926   (165604) от 11.12.2021
-
-Теория о том, что биткойн был создан ЦРУ, получила второе дыхание
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_165604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Директор ЦРУ заявил, что его управление готовит «несколько разных проектов, связанных с криптовалютой».В узком кругу некоторых представителей криптовалютного сообщества уже давно бытует легенда, что создатель биткойна Сатоши Накамото (Satoshi Nakamoto), чья истинная личность неизвестна до сих пор, – это не что иное как ЦРУ или другая спецслужба. На этой неделе данная (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431262   (165566) от 15.12.2020
-
-Аналитики раскрыли, когда Россия откажется от наличных
-
->>3
->>12
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_165566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Переход России на полный безналичный расчет возможен при выполнении двух важных условий. Об этом в интервью «ПолитРоссии» заявил финансовый аналитик Андрей Кочетков.12 декабря 2020 г, власти Швеции объявили о намерении отказаться от использования наличных денежных средств и о старте разработок цифрового аналога национальной валюты – кроны. Министр финансов Пер Болунд (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431603   (165533) от 15.12.2020
-
-Windows 7/10 Pro х86-x64 by g0dl1ke 20.12.10 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стабильная сборка на базе оригинальных русских Windows 7/10 Pro x86-x64 с обновлениями и отключением телеметрии по рекомендациям simplix, в соавторстве с systempЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5917175541A3A64BCEDF39292E334BA5AD18EA55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325492   (165531) от 11.12.2021
-
-Blasphemous (2019) [Ru/Muilti] (4.0.67/dlc) License GOG [Digital Deluxe Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165531.jpg" />
-</div>
-
-
-###  Подробнее
-
-На земли Квстодии и всех ее обитателей пало ужасное проклятье, которое называют просто Чудом. Вам предстоит примерить на себя роль Кающегося — единственного, кто выжил в бойне под названием «Безмолвное горе». Герой попал в ловушку бесконечного цикла смерти и возрождения, и теперь ему предстоит спасти мир от ужасной судьбы, добравшись до причины всех мучений. Исследуйте (   Читать дальше...   )Тип издания: LicenseРазработчик: The Game KitchenЖанр: Экшн, Metroidvania, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76ADA5E74CD9ACE5E1D81144ED5823C92B371159
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515888   (165527) от 11.12.2021
-
-Halo Infinite (2021) [Ru/Multi] (6.10020.17952.0) License CODEX
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165527.jpg" />
-</div>
-
-
-###  Подробнее
-
-Последний луч надежды угас, человечество стоит на краю гибели, и Мастер Чиф готов сразиться с самым опасным врагом в своей жизни. Наденьте броню величайшего героя в истории человечества и отправляйтесь в эпическое путешествие по исполинскому миру-кольцу. Halo Infinite создана для ПК. Она поддерживает расширенные графические параметры, широкоэкранные и сверхширокоэкранные (   Читать дальше...   )Тип издания: LicenseРазработчик: 343 IndustriesЖанр: Action, Adventure, ShooterЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B38C963A663F2F8D405E696580C427335292D0FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 213486   (165513) от 15.12.2020
-
-Во все тяжкие (полный 3 сезон, 13 серий) / Breaking Bad  (2010) DVDRip [LostFilm]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во все тяжкие (Breaking Bad) — американский телесериал о неизлечимо больном учителе химии, занимающимся изготовлением наркотиков (метамфетамин) ради обеспечения будущего своей семьи.
-Учителю химии Уолтеру Уайту исполняется 50, на следующий день он узнаёт, что болен раком. Что делать человеку, которому нечего терять? Где взять деньги на лечение и обеспечение семьи? (   Читать дальше...   )Жанр: Криминальная драмаРежиссер: Адам БернштейнАктеры: Брайан Кренстон, Анна Ганн, АрДжи Митт, Арон Пол, Бетси Брендт, Дин НоррисПеревод: Многоголосый закадровыйПродолжительность: ~00:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEBCC7BF51FBA90AA63D992E94C739958281D8BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431641   (165508) от 15.12.2020
-
-Непосредственно Каха! (2020) WEBRip [H.264/1080p-LQ] [PR]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каха запал на прекрасную Софу, но, чтобы подобраться к её сердцу, ему нужно на своей «копейке» обогнать новенькую BMW Руслана и забить на дружбу с Серго. Что же выберет Каха – любовь или дружбу?Производство: Россия / Видеосервис START, Forever FilmsЖанр: КомедияРежиссер: Виктор ШамировАктеры: Артём Карокозян, Артём Калайджян, Тамара Турава, Данил Иванов, Микаел Погосян, Марина Калецкая, Людмила Артемьева, Нана Муштакова, Милена Цховреба-Агранович, Юлия Гревцова, Вартан Даниелян, Артур ОганесянПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:250DD2951434ABC255166C1FBB2FD7E84FAAAEDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

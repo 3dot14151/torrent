@@ -6,7 +6,7 @@
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843691.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843512.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843315.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843132.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842940.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842926.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842904.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Annihilator - Triple Threat (2017)  BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842829.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842794.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_842684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_842684.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842672.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842289.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842263.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Supermax - Rhythm Of Live (2010) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842116.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841604.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Silvesterkonzert / New Year's Eve Concert (2015) [H.264/1080i-LQ] <сlassical>
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841597.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841497.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841356.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841252.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Europa Plus TOP 40 март (2017) WEB-DL [1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840860.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840695.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840687.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840685.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840684.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839910.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ The Pretty Reckless - Only Love Can Save Me Now (2021) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839819.jpg" />
 </div>
 
 

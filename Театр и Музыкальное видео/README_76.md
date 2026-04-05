@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511742.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511632.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ The Best of... 40 Rock Song! (2015) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511631.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510970.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510784.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509859.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Alex Gaudino & Taboo - I Don't Wanna Dance (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509723.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Maria Lapiedra - Tapame, Tapame (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509720.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Merlin Milles ft. Rene Rodrigezz ft. Sigi Di Collini - Time 2 Wake Up (2012) [H.
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509693.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Alex Ferarri - Bara Bara Bere Bere (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509642.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ The Beatles at Shea Stadium (1965) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508987.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508303.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508079.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Gary Clark Jr. - Rock in Rio USA (2015) WEBRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507170.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ VA - Летний марафон № 186 / Видеоклипы (Самые Та
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506906.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Diplo feat. Lazerdisk Party Sex - Set It Off (2012) [H.264] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506662.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Heaven and Hell - Radio City Music Hall Live! (2011) BDRip 1080p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505415.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505278.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Lady Gaga - Yoü And I  (2011) HDTVRip [1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504452.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Gary Moore - Live at Montreux (2010) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504157.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504152.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Dash Berlin feat. Emma Hewitt - Like Spinning Plates (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503709.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Chris Parker - Symphony (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503400.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ U.D.O. - Navy Metal Night (2014/2015) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503258.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503062.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ U.D.O. - Navy Metal Night (2014/2015) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502318.jpg" />
 </div>
 
 

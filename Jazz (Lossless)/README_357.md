@@ -6,7 +6,7 @@ Paul Brown - So Much To Say (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65692.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Bennie Green - with Art Farmer (1956) 1992, Original Jazz Classics [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65619.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Funk Windows - Funk Tape (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65584.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ TJ Edit - Disco Funk Archive (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65580.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Sunset Jazz Mood (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65577.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Cool Jazz Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65574.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Joe Morello - Morello Standard Time (1994) DMP [FLAC|Lossless|image + .cue] <Coo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65562.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Dj Moy - Free Funk (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65561.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Afro Funk Vol 14 (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65556.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Jazzyness 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul, Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65543.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Afro Funky Mix (Summer 2025) (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65541.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Hank Jones - Lazy Afternoon (1989) Concord [WavPack|Lossless|image + .cue] <Main
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65529.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The Red Norvo Trio - The Savoy Sessions (1951) 1995, Savoy Jazz [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65446.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Morris Nanton Trio - The Original Jazz Performance Of Roberta (1958) 2012, Warne
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65415.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Joe Pass Quartet - Live At The Encore Theatre (1964) 2017, Phono [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65412.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Sam Jones - The Bassist! (1979) 2006, M&I [FLAC|Lossless|tracks + .cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65391.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Red Mitchell - Red Mitchell (1955) 1999, Bethlehem [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65389.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ The Modest Jazz Trio - Good Friday Blues (1960) 2011, Pacific Jazz [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65372.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Carlos Camilo - Levitating (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65327.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Shelly Manne & His Men - Play Peter Gunn (1959) 1997, Original Jazz Classics [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65321.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Frank Potenza - Express Delivery (1989) TBA Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65309.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Frank Potenza - For Joe (2013) Capri Records [FLAC|Lossless|tracks + .cue] <Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65266.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Jazz, Blues, and Cappuccino (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Blu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65183.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Nu Jazz Electronica (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65176.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Horace Silver - Kind Of Silver (1952 - 1965) 10CD, 2010, House Of Jazz [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65168.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - Cooking Dinner Jazz (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65160.jpg" />
 </div>
 
 

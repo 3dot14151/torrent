@@ -1,3 +1,61 @@
+###  Публикация: 1355614   (982294) от 27.01.2020
+
+VA - Workout All Music (Electro House Music Body Groove) (2020) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simon Le Grange - Yuo Mann 06:43
+02. Assian - Smalltalk 05:37
+03. Supernocs - Black Oce 04:33
+04. Supernocs - Abotha 06:07(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:54:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8128A762922F50F56D70E1D247FCB7A8DB25A8FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355560   (982111) от 27.01.2020
+
+Workout Electronica - Workout Music 2020 (2019) [MP3|320 Kbps] <Techno>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982111.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Workout Music 2020 Techno House Electro Bass Motivation Top 100 Hits (2 Hr DJ Mix) [01:59:47]
+2. Mellow Bass Bender, Pt. 1 (138 BPM Techno Trance Motivation DJ Mixed) [4:42]
+3. Commit to Perfection, Pt. 2 (138 BPM Techno Trance Motivation DJ Mixed) [5:04]
+4. Command the Muscle, Pt. 3 (138 BPM Techno Trance Motivation DJ Mixed) [5:14](   Читать дальше...   )Жанр: TechnoПродолжительность: 10:02:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F105FD41418D7102BD9C1BBF6098F73DD5D6144
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972400   (981993) от 06.01.2016
 
 Soulstice - 2 albums (2001-2011) [MP3|320 кб/с] <Trip-Hop, Chillout, Downtempo, Jazzy Lounge>
@@ -6,7 +64,7 @@ Soulstice - 2 albums (2001-2011) [MP3|320 кб/с] <Trip-Hop, Chillout, Downtemp
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981993.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ KCentric - Almost Live At Brassmataz (2013) [MP3|320 кб/с]<Downtempo, Lounge,
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981830.jpg" />
 </div>
 
 
@@ -68,7 +126,7 @@ VA - Jet Set Love Vol.1 (2013) [MP3|320 кб/с]<Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981753.jpg" />
 </div>
 
 
@@ -103,7 +161,7 @@ VA - Erotic Stories: Suite 01 (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981606.jpg" />
 </div>
 
 
@@ -138,7 +196,7 @@ Beat Pharmacy - Wikkid Times + Versions & Remixes (2008-2009) Deep Space Media [
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981153.jpg" />
 </div>
 
 
@@ -167,7 +225,7 @@ The New Division - Hidden Memories (2020) [FLAC|Lossless|WEB-DL|tracks] <Synth, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981105.jpg" />
 </div>
 
 
@@ -196,7 +254,7 @@ VA - Get up with Best Chillout Music (2015) [MP3|320 кб/с] <Downtempo, Chillo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980767.jpg" />
 </div>
 
 
@@ -225,7 +283,7 @@ Bob Sinclar - Born In 69 (2009) [FLAC|Lossless|tracks + .cue] <Hip-House, Euro H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980765.jpg" />
 </div>
 
 
@@ -254,7 +312,7 @@ eilean rec. - Label-Pack 100 Releases (2014-2019) [FLAC|Lossless|tracks+.cue, tr
 >>Label-Packs
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980751.jpg" />
 </div>
 
 
@@ -283,7 +341,7 @@ Jazzra - Soulounge (2009) [MP3|320 кб/с] <Lo-Fi, Nu-Jazz>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980706.jpg" />
 </div>
 
 
@@ -312,7 +370,7 @@ VA - Acoustic Covers Album (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instru
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980680.jpg" />
 </div>
 
 
@@ -341,7 +399,7 @@ Gunter - Pleasureman (2004) 2005 Танцевальный Рай [FLAC|Lossless|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980674.jpg" />
 </div>
 
 
@@ -370,7 +428,7 @@ Pet Shop Boys - Story / 25 Years Of Hits (2009) [FLAC|Lossless|tracks + .cue] <S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980657.jpg" />
 </div>
 
 
@@ -399,7 +457,7 @@ Ed Carlsen - Morning Hour (2019) Moderna Records [FLAC|Lossless|WEB-24Bit|tracks
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980523.jpg" />
 </div>
 
 
@@ -428,7 +486,7 @@ VA - Deep Insane Sensation Vol 1 (2016) [MP3|320 кб/с] <Deep House, Club Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980200.jpg" />
 </div>
 
 
@@ -457,7 +515,7 @@ VA - Viper Presents: Drum & Bass Annual 2016 (2016) [MP3|320 кб/с] <Drum & Ba
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980101.jpg" />
 </div>
 
 
@@ -486,7 +544,7 @@ Jaffa - 2 albums (2000, 2011) [MP3|320 кб/с] <Electronic, Ambient, Jazz>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979211.jpg" />
 </div>
 
 
@@ -515,7 +573,7 @@ Supreme Beings of Leisure - 3 albums (2000-2008) [MP3|318-320 кб/с] <Trip-Hop
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979141.jpg" />
 </div>
 
 
@@ -544,7 +602,7 @@ MRUKS - Last Round (2020) [FLAC|Lossless|WEB-DL|tracks] <Funky, Retrowave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979121.jpg" />
 </div>
 
 
@@ -573,7 +631,7 @@ VA - Chic & Shock (House Music Selection 2020) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979118.jpg" />
 </div>
 
 
@@ -602,7 +660,7 @@ izanagi - projections (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <IDM, Future Garage,
 >>Experimental, Industrial (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979116.jpg" />
 </div>
 
 
@@ -631,7 +689,7 @@ Gabriel & Dresden - Remedy (2020) Anjunabeats [FLAC|Lossless|WEB-DL|tracks] <Pro
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979114.jpg" />
 </div>
 
 
@@ -660,7 +718,7 @@ VA - Lunar Nights Chapter. 1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psy
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979112.jpg" />
 </div>
 
 
@@ -689,7 +747,7 @@ VA - Distant Mountains Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|t
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979111.jpg" />
 </div>
 
 
@@ -703,64 +761,6 @@ VA - Distant Mountains Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E43E233A6AE4E08ADB3ACA629631A3F8A240D907
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356172   (978912) от 30.01.2020
-
-Elysium - Live... & Beyond (2019) [FLAC|Lossless|WEB-DL|tracks] <Goa Trance, Psychill>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Interpretation Of Dreams (Live Version) 11:12
-02. Elysium (Live Version) 10:03
-03. Trancelestial Psychobabas (Live Version) 11:39
-04. Keep It Cool (Live Version) 07:24(   Читать дальше...   )Жанр: Goa Trance, Psychedelic Trance, PsychillПродолжительность: 05:12:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2124B43FC0997C871B1DE61C857212BB81E8F9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356158   (978910) от 30.01.2020
-
-Median Project - Constellation (2019) [FLAC|Lossless|WEB-DL|tracks] <Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978910.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Antidote 09:07
-2. Mission Adept 08:07
-3. It is not Possible 07:58
-4. Infinite Space 08:49(   Читать дальше...   )Жанр: Goa TranceПродолжительность: 01:17:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E06C63026197A6C67A2A94F11F02FE7CB807B8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

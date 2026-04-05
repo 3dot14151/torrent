@@ -6,7 +6,7 @@ Smultron 12.2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174594.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ AYBO 1.17.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174590.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Receipts 1.9.11b2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174587.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Path Finder 10.0b12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174584.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Permute 3 v3.5.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174580.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Texpad 1.8.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174577.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Alfred 4 Powerpack 4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174573.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ PDF Squeezer 4 v4.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174568.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ AYVY 1.8.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174564.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ EverWeb (Standalone) 3.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174556.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Linguist 2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174552.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Athentech Perfectly Clear Complete v3 (St and Plug-in for Lr) 3.11.1.1893 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174550.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ DxO PhotoLab 4 ELITE Edition 4.1.0.46 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174523.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Downie 4 v4.1.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174518.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ MediaHuman Youtube Downloader 3.9.9.50 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174480.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Pixelmator Classic 3.9.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174439.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Adobe Zii 2021 - Universal Patcher 6.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174427.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Rhinoceros 7 v7.1.20343 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174371.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Microsoft Office 2021 for Mac LTSC v.16.78 VL [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174304.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174174.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Codepoint for Mac 1.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174172.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Amadine 1.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174147.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Rocket Typist Pro 3.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174136.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ BetterTouchTool 4.212 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174081.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ DxO FilmPack 7 for Mac v.7.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174022.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Multitouch 1.20.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173981.jpg" />
 </div>
 
 

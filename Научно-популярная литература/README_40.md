@@ -1,31 +1,3 @@
-###  Публикация: 1187141   (281738) от 27.11.2017
-
-Джордан Элленберг | Как не ошибаться. Сила математического мышления (2017) [EPUB, MOBI, PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281738.jpg" />
-</div>
-
-
-###  Подробнее
-
-Суперзвезда от науки (профессор математики и автор статей в New York Times, the Washington Post и Wired) раскрывает внутреннюю красоту и логику, стоящие за нашим миром.
-В школе мы узнаем, что математика - скучный набор правил, который не поддается обсуждению.
-В своей книге Джордан Элленберг показывает, как узок подобный взгляд: математика - это не абстрактные идеи, (   Читать дальше...   )Жанр: Зарубежная образовательная литература, Математика, Прочая образовательная литератураФормат: EPUB, MOBI, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B0EA5BE633BC0B64CE2CFC52E0ACE27D7982863
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 272457   (279043) от 19.12.2010
 
 Н.Непомнящий, А.Низовский | 100 великих кладов [2007] [DJVU]
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279043.jpg" />
 </div>
 
 
@@ -61,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277905.jpg" />
 </div>
 
 
@@ -87,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276076.jpg" />
 </div>
 
 
@@ -113,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275966.jpg" />
 </div>
 
 
@@ -139,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274651.jpg" />
 </div>
 
 
@@ -167,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274543.jpg" />
 </div>
 
 
@@ -193,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273480.jpg" />
 </div>
 
 
@@ -219,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271653.jpg" />
 </div>
 
 
@@ -246,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269089.jpg" />
 </div>
 
 
@@ -274,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268648.jpg" />
 </div>
 
 
@@ -301,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267876.jpg" />
 </div>
 
 
@@ -327,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266946.jpg" />
 </div>
 
 
@@ -355,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266945.jpg" />
 </div>
 
 
@@ -381,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266150.jpg" />
 </div>
 
 
@@ -407,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265313.jpg" />
 </div>
 
 
@@ -433,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264844.jpg" />
 </div>
 
 
@@ -459,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264577.jpg" />
 </div>
 
 
@@ -485,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264243.jpg" />
 </div>
 
 
@@ -512,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264076.jpg" />
 </div>
 
 
@@ -538,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263971.jpg" />
 </div>
 
 
@@ -564,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263339.jpg" />
 </div>
 
 
@@ -590,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263234.jpg" />
 </div>
 
 
@@ -617,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263225.jpg" />
 </div>
 
 
@@ -643,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262566.jpg" />
 </div>
 
 
@@ -669,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262289.jpg" />
 </div>
 
 
@@ -680,6 +652,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B6F5CA72E7BBC3272FFEBA5826684E8BBCEAFDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838693   (261340) от 23.11.2025
+
+Сакина Зейналова | Яды: вокруг и внутри. Путеводитель по самым опасным веществам на планете [2-е издание] (2025) [PDF, EPUB]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Химические вещества. Такие непонятные, незримые, а порой способные нас убить. Мы часто встречаемся с ними в повседневной жизни, но даже не знаем, какую опасность они могут нести для нас. Токсины в еде, зараженная вода, небезопасные вещества в лекарствах и ядовитые соединения даже в воздухе. Какие яды существуют в природе, а какие создал сам человек? Что за вещества (   Читать дальше...   )Жанр: Химия, природа и человек, ЯдыИздательство: ЭксмоФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:751AF2894917CA890146184DEB05D476310CB3DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

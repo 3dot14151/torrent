@@ -1,3 +1,55 @@
+###  Публикация: 1840720   (1047456) от 07.12.2025
+
+Моб Психо 100 / Mobu Saiko Hyaku / Mob Psycho 100 (2019) BDRip [AV1/2160p] [4K, SDR, 10-bit] (сезон 2, серии 1-13 из 13) Force Media [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сигэо Кагэяма по прозвищу «Моб» – школьник, которому тяжело выражать свои чувства. Ещё он могущественный экстрасенс. Моб хочет жить обычной жизнью и подавляет свои сверхъестественные силы, но когда уровень накопленного стресса переваливает за 100%, с ним происходит нечто ужасное. Его окружают экстрасенсы-самозванцы, злые духи, таинственные организации. Что решит (   Читать дальше...   )Производство: Япония / BonesЖанр: аниме, мультфильм, боевик, комедия, фантастикаРежиссер: Юдзуру Татикава, Такэфуми Андзаи, Кацуя СигэхараАктеры: Сэцуо Ито, Такахиро Сакурай, Акио Оцука, Мию Ирино, Ёсицугу Мацуока, Ёсимаса Хосоя, Рюносукэ Ватануки, Сэйитиро Ямасита, Кохэй Амасаки, Даики ХаманоПеревод: Многоголосый профессиональный (Force Media)Язык озвучки: Русский, ЯпонскийСубтитры: русские (forced, full)Продолжительность: ~00:24:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8882965DA8F3BD6C95AB9EB34C9C8214B2EC7CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840721   (1047455) от 07.12.2025
+
+Моб Психо 100 / Mobu Saiko Hyaku / Mob Psycho 100 (2022) BDRip [AV1/2160p] [4K, SDR, 10-bit] (сезон 3, серии 1-12 из 12) Force Media [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Моб вместе с наставником всё так же продолжают ловить злых духов и различного рода нечисть. В этот раз им предстоит встретиться с куда более опасными противниками. Не стоит забывать и о клубе по улучшению физического здоровья, в котором состоит Моб и который получит ещё больше экранного времени.Производство: Япония / BonesЖанр: аниме, мультфильм, боевик, комедия, фантастикаРежиссер: Юдзуру Татикава, Такэфуми Андзаи, Кацуя СигэхараАктеры: Сэцуо Ито, Такахиро Сакурай, Акио Оцука, Мию Ирино, Ёсицугу Мацуока, Ёсимаса Хосоя, Рюносукэ Ватануки, Сэйитиро Ямасита, Кохэй Амасаки, Даики ХаманоПеревод: Дублированный (Force Media)Язык озвучки: Русский, ЯпонскийСубтитры: русские (forced, full)Продолжительность: ~00:24:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41FD02779D1BE4B2A8F1953DAE12DAB2FE443545
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840434   (1047391) от 06.12.2025
 
 Грэвити Фоллс / Gravity Falls (2012-2016) WEB-DLRip [H.265/1080p] (Сезон 1-2, серии 40 из 40)  Кириллица, Сыендук
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047391.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047072.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046547.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046546.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046545.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046544.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046543.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045983.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044892.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044106.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043992.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042378.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042121.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041868.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040466.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040244.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040208.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040202.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038918.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038916.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038391.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037061.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036470.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036267.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DABC683A37E9C5B4DA02658F9FED78F95EEAC4FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 154996   (1035523) от 05.03.2023
-
-Чертёнок / The Imp (2006) DVDRip (сезон 1, серий 65 из 65)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035523.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Добро пожаловать, последователи Тьмы, в мой мегаужасный мир Зла-а-а-а! Теперь вы мои ученики...!" Вам страшно? На самом деле это - забавный сериал о чертенке, который пытается всем делать пакости. Он считает себя хитрым, находчивым и крутым. Но что бы он не замышлял, все получается лишь весело и забавно. И он такой милый...Производство: Великобритания, BRB Internacional S.A., Red Kite Animations, Screen 21, TV3Жанр: Комедия, семейный, мультсериалРежиссер: Вейн Томас, Энди ДжейнсАктеры: Стефен Мэнгэн, Хелен МакАлпайн, Гэвин Митчелл, Джулиан Райнд-ТаттПеревод: Многоголосый закадровый (профессиональный)Продолжительность: 01:35:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8490882848DA00B66D5D10FE330DB01E3CA6CC65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426542   (1035402) от 29.01.2021
-
-Равноденствие оникса / Onyx Equinox (2020) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-12 из 12) NewStation
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Боги ведут войну за будущее человечества. Ацтекский мальчик по имени Изэл оказался втянут в опасную игру. Чтобы спасти человечество, он должен справиться с невыполнимым заданием: закрыть пять врат в подземном мире.Производство: США, CrunchyrollЖанр: Приключения, Фэнтези, Для взрослыхРежиссер: София АлександрПеревод: Многоголосый профессиональный  (NewStation)Субтитры: русские, английские (только первая серия), арабские, португальские, французские, испанские, немецкиеПродолжительность: ~00:24:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:240DC46481A894341174F5ADDFBC427AC4B250E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

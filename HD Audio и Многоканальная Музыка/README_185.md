@@ -1,32 +1,3 @@
-###  Публикация: 1783741   (69667) от 08.03.2025
-
-Deathless Legacy - Damnatio Aeterna (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Damnatio Aeterna
-02 – Miserere
-03 – Get On Your Knees
-04 – Communion(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:57:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5049631C7E44ACCE7AE4405957D6AA4612136BAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784158   (69631) от 09.03.2025
 
 Ros - Salvator (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Gothic Metal, Female Vocal>
@@ -35,7 +6,7 @@ Ros - Salvator (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Gothic Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69631.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Surmachina - Хождение за три моря (2025) [FLAC 24/44.1|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69623.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Gary Numan - Berserker (1984) Extended; Remaster;  2025; BMG [FLAC 24/44.1|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69607.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Kaiser - 2nd Sound (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Stoner Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69601.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Sadist - Something to Pierce (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69597.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Yes - Close to the Edge (1972) Super Deluxe Edition, 2025, Rhino Atlantic [FLAC 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69582.jpg" />
 </div>
 
 
@@ -208,7 +179,7 @@ Livingston - A Hometown Odyssey (2024) The Story Continues, 2025, Big Up Enterta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69577.jpg" />
 </div>
 
 
@@ -237,7 +208,7 @@ Stinking Lizaveta - Slaughterhouse (1997) Remaster, 2025, SRA Records[FLAC 24/96
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69576.jpg" />
 </div>
 
 
@@ -266,7 +237,7 @@ The Wildhearts - Satanic Rites of The Wildhearts (2025) [FLAC 24/44.1|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69568.jpg" />
 </div>
 
 
@@ -295,7 +266,7 @@ Tokimonsta - Eternal Reverie (2025) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Al
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69566.jpg" />
 </div>
 
 
@@ -324,7 +295,7 @@ Leaves' Eyes - Myths of Fate (2024) Orchestral Version, 2025, AFM Records [FLAC 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69565.jpg" />
 </div>
 
 
@@ -353,7 +324,7 @@ Saraya - Gypsy Child (1989) Remastered, 2025, OLD BOY [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69562.jpg" />
 </div>
 
 
@@ -382,7 +353,7 @@ Kayser (Sweden) - Studio Albums (4 releases) (2005-2016) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69556.jpg" />
 </div>
 
 
@@ -411,7 +382,7 @@ Wily Bo Walker - The Rattlin Bone Theatre Show Volume 1 (2025) [FLAC 24/48|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69520.jpg" />
 </div>
 
 
@@ -440,7 +411,7 @@ Yellowjackets - Fasten Up (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz Fusio
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69511.jpg" />
 </div>
 
 
@@ -469,7 +440,7 @@ Warwolf - The Final Battle (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69507.jpg" />
 </div>
 
 
@@ -498,7 +469,7 @@ Cryptosis (ex-Distillator) - Studio Albums (5 releases) (2015-2025) hand made [r
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69506.jpg" />
 </div>
 
 
@@ -527,7 +498,7 @@ David Rose - My Disguise (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69502.jpg" />
 </div>
 
 
@@ -556,7 +527,7 @@ T.G. Copperfield - All In Your Head (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69500.jpg" />
 </div>
 
 
@@ -585,7 +556,7 @@ Visions Of Atlantis - Armada LIVE Over Europe (2025) (Live) [FLAC 24/48|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69495.jpg" />
 </div>
 
 
@@ -614,7 +585,7 @@ David Rose - A Good Catch (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69491.jpg" />
 </div>
 
 
@@ -643,7 +614,7 @@ The Night Flight Orchestra - Give Us The Moon (2025) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69490.jpg" />
 </div>
 
 
@@ -672,7 +643,7 @@ Heldmaschine - Eiszeit (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Neue Deutsc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69488.jpg" />
 </div>
 
 
@@ -701,7 +672,7 @@ Belleville Birds - Merle alors (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Conte
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69486.jpg" />
 </div>
 
 
@@ -730,7 +701,7 @@ The Bob Lanza Blues Band - Breadman's Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69485.jpg" />
 </div>
 
 
@@ -744,6 +715,35 @@ The Bob Lanza Blues Band - Breadman's Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E525AB6248E14244899411657FC2F7E18924EDD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784802   (69481) от 13.03.2025
+
+Surya - Into the Emerald (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Evergreen River (1:28)
+02.  A Blazing Crusade (3:43)
+03.  Through the Stone (4:15)
+04.  Beyond Eyes of Gold (8:56)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD3E323D8CA5A1C18BB6ECD6A5F7A211EE7C9BEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

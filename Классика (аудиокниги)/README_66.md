@@ -1,3 +1,30 @@
+###  Публикация: 284604   (118219) от 11.02.2024
+
+Николай Лесков | Очарованный странник (2007) [MP3, Олег Фёдоров]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118219.jpg" />
+</div>
+
+
+###  Подробнее
+
+Николай Семёнович Лесков (1831–1895) – русский писатель. Его называли самым национальным из писателей России, он вошёл в литературу как величайший знаток духовной и бытовой жизни народа. Он был блестящим автором, имитировавшим язык восемнадцатого века, любившим красочный стиль и умевшим писать и изысканно просто.
+«Очарованный странник» – повесть Н. С. Лескова, написанная (   Читать дальше...   )Жанр: Русская литература классика, повестьИздательство: Вира-М (аудио)Продолжительность: 06:08:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9629C300B87621C0FB13274CAEDF43FA1167AD30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 284600   (118180) от 11.02.2024
 
 Николай Лесков | Овцебык (2008) [MP3, Дмитрий Кинге]
@@ -6,7 +33,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118180.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118118.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118105.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118052.jpg" />
 </div>
 
 
@@ -114,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118028.jpg" />
 </div>
 
 
@@ -141,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118005.jpg" />
 </div>
 
 
@@ -170,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117995.jpg" />
 </div>
 
 
@@ -198,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117953.jpg" />
 </div>
 
 
@@ -226,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117905.jpg" />
 </div>
 
 
@@ -253,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117884.jpg" />
 </div>
 
 
@@ -280,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117883.jpg" />
 </div>
 
 
@@ -308,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117878.jpg" />
 </div>
 
 
@@ -335,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117802.jpg" />
 </div>
 
 
@@ -363,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117778.jpg" />
 </div>
 
 
@@ -390,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117735.jpg" />
 </div>
 
 
@@ -418,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117730.jpg" />
 </div>
 
 
@@ -445,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117666.jpg" />
 </div>
 
 
@@ -473,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117570.jpg" />
 </div>
 
 
@@ -501,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117564.jpg" />
 </div>
 
 
@@ -527,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117547.jpg" />
 </div>
 
 
@@ -554,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117501.jpg" />
 </div>
 
 
@@ -581,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117497.jpg" />
 </div>
 
 
@@ -608,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117491.jpg" />
 </div>
 
 
@@ -636,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117490.jpg" />
 </div>
 
 
@@ -663,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117479.jpg" />
 </div>
 
 
@@ -676,33 +703,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BF390F61F2CF9E501511D50049D6D5A9939D4D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 420916   (117469) от 15.02.2024
-
-Иван Гончаров | Обыкновенная история (2009) [MP3, Алексей Казаков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Русская классика.
-Иван Александрович Гончаров – один из самых ярких и значительных представителей русской литературы XIX века. Литературное наследие Гончарова не слишком обширно. За 45 лет творчества он опубликовал три романа, книгу путевых очерков «Фрегат «Паллада», несколько нравоописательных рассказов, критических статей и мемуары. Роман «Обыкновенная история» (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: МедиаКнигаПродолжительность: 14:55:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B104DA4974E44E38CB32F61D4406E30B79FD0292
 ```
 
 https://mybot314.ru/tekegram_catalog/

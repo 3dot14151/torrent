@@ -1,3 +1,133 @@
+###  Публикация: 1371242   (891472) от 30.03.2020
+
+Барашек Шон: Фермагеддон / A Shaun the Sheep Movie: Farmageddon (2019) BDRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Странные огни над городом предвещают прибытие таинственного гостя из далекой галактики. Очаровательная и озорная Лу-Ла терпит крушение неподалеку от фермы Шона. Инопланетные способности и проказы неугомонной Лу-Лы очаровывают отару, и Шон решает помочь внеземному другу найти потерянный корабль, но он не знает, что зловещее агентство по охоте на инопланетян уже идет (   Читать дальше...   )Производство: Великобритания, Франция, США / Aardman Animations, Amazon Prime Video, Anton, 	Studio CanalЖанр: мультфильм, фантастика, фэнтези, комедия, приключения, семейныйПеревод: Не требуется (нет озвученных диалогов)Субтитры: отсутствуютПродолжительность: 01:26:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DE11287DA26D47DB5B662D39BDC51D86D66DD09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494231   (890859) от 06.09.2021
+
+Клоун Коко. Ложная тревога / False Alarm (1923) WEBRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коко помогает Максу свернуть сигаретку, а потом тушит горящую спичку. Из-за этого пустяка глупенький клоун возомнил себя настоящим пожарным, ну и пустился во все тяжкие...Производство: США, Out of the Inkwell FilmsЖанр: Рисованная анимацияРежиссер: Дэйв ФлейшерПеревод: Немой с интертитрамиСубтитры: Английские интертиры, русские отдельным файломПродолжительность: 00:11:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C13ADD00352758EABCDA63B187348DAB146DD82D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494197   (890696) от 06.09.2021
+
+Сундук войны / Warchest (2021) WEBRip [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бандит-неудачник из гробницы получает больше, чем он ожидал, когда натыкается на военный тайник, содержащий мистическую реликвию.Производство: СШАЖанр: Короткометражный, фэнтезиРежиссер: Gerardo RamirezПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: ОтсутствуютПродолжительность: 00:05:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:447900F60E1DEF473B3BCCE310F2DE8FED0FBA2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494205   (890678) от 06.09.2021
+
+Отверженная / Castaway (2020) WEBRip [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одинокая молодая девушка живет в небе, вдали от пугающего мира внизу. Однажды импровизированное посещение нарушит ее привычки и заставит выпасть из облака.Производство: Франция / ESMAЖанр: Короткометражный, рисованная анимацияРежиссер: Marie Gauthier, Léopoldine Perdrix, Margo Lopez, Vincent Carrette, Rachel Bosc-Bierne, Flore-Anne Victor, Simon FabbriПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: ОтсутствуютПродолжительность: 00:06:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BDE82D713A280C47602883B862A177DDCC77585
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101547   (890561) от 09.02.2017
+
+Однажды в лесу / Once Upon a Forest (1993) DVD5
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лесная школа, в которой, в свободной форме, маленькие пушистики познают мир. Учит их старый, мудрый барсук Корнелиус. Всего в классе учатся 4 ученика — Милая мышка Эбигель, крот Эдгар, ежик Рассел и, самая маленькая из класса, девочка-барсучёнок Мишель. Во время одного из уроков на природе они обнаруживают асфальтовую дорогу и становятся свидетелями аварии грузовика (   Читать дальше...   )Производство: США, ВеликобританияЖанр: ПриключенияРежиссер: Чарльз Гросвенор, Дэвид МикенерПеревод: ДублированныйЯзык субтитров: Английские, русские, украинскиеПродолжительность: 01:07:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95E79FD24E2B8BF53EAAEB30D7C35F6981C862E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1102370   (890555) от 09.02.2017
 
 Барби: Рок-принцесса / Barbie in Rock 'N Royals (2015) BDRip [H.264/1080p]
@@ -6,7 +136,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890555.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890540.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890537.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890307.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890282.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890257.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890208.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_890191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_890191.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890159.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889993.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889807.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889401.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889398.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889280.jpg" />
 </div>
 
 
@@ -371,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889053.jpg" />
 </div>
 
 
@@ -397,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889037.jpg" />
 </div>
 
 
@@ -423,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888968.jpg" />
 </div>
 
 
@@ -449,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888940.jpg" />
 </div>
 
 
@@ -475,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_888568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_888568.jpg" />
 </div>
 
 
@@ -503,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888422.jpg" />
 </div>
 
 
@@ -529,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888374.jpg" />
 </div>
 
 
@@ -542,136 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C815C412E5037B77F73433DBB08C54D77CCBFCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 640157   (888359) от 06.04.2013
-
-Барби: Принцесса и поп-звезда / Barbie: The Princess & The Popstar (2012) DVDRip [H.264]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888359.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мультфильме «Барби: Принцесса и Поп звезда» Барби играет принцессу Тори, которая мечтает оставить свою королевскую жизнь, а жить так, как ее самая любимая Поп звезда Кира. Одновременно, Кира устала от постоянных концертов и образа Поп звезды, она мечтает стать настоящей принцессой! И вот однажды, две девушки знакомятся в волшебной лавке и меняются местами. Однако (   Читать дальше...   )Жанр: Мультфильм, семейныйРежиссер: Изекиль НортонПерсонажи: Принцесса Тори, Поп звезда Кира, Король Фредерик, Нора, Мередит, Ванесса, Принц Лиам и др...Перевод: ДублированныйСубтитры: отсутствуютПродолжительность: 01:12:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CC5B057EA1882528C042D79B30F047319EF1D4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 640146   (888332) от 06.04.2013
-
-Барби в роли Принцессы Острова / Barbie as the Island Princess (2007) DVDRip [H.264]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888332.jpg" />
-</div>
-
-
-###  Подробнее
-
-После кораблекрушения маленькая девочка Роселла оказалась на острове, где она учится говорить и петь в окружении любящих ее зверей: красной панды Саги, павлина Айзала и слоненка Тики. Но после того как принц Антонио обнаруживает их тропический рай, любопытство подталкивает Роселлу к путешествию с принцем в его замок. В то время как она и ее друзья познают цивилизацию, (   Читать дальше...   )Жанр: Мультфильм, семейныйРежиссер: Грег РичардсонПерсонажи: Келли Шеридан (Ro / Rosella, озвучка), Мелисса Лайонс (Rosella, исполнитель песни), Алессандро Джулиани (Prince Antonio, озвучка), Кристофер Газе (Sagi, озвучка), Стив Марвел (Azul / Minister, озвучка), Сьюзэн Роман (Tika, озвучка), Гари Чок (Frazer / Calvin, озвучка), Расселл Робертс (King Peter, озвучка), Патриция Дрэйк (Queen Danielle / Mama Pig, озвучка), Бетс (   Читать дальше...   )Перевод: ДублированныйСубтитры: отсутствуютПродолжительность: 01:24:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5248AEE07F1C6C8BDC561D6561503A7A8E20B51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 763069   (888327) от 04.03.2014
-
-Спасти Землю / Echo Planet (2012) BDRip [1080p] 3D [Вертикальная анаморфная стереопара]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888327.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой американский мальчик, Сэмуэл Джонсон младший, вступил в бойскауты и пропал во время похода. Правда, он сын президента, так что он не может пропасть просто так — и обязательно найдет выход. Сэм провалился сквозь землю и оказался на противоположном конце света- в непроходимых джунглях. Именно там его ожидает страшное известие — из-за того, что люди перестали (   Читать дальше...   )Жанр: МультфильмРежиссер: Компин КемгумнирдПерсонажи: Ноппан Чантасорн, Атхипич Чутиваткаджорнчай, Конгдей Джатуранрасаме, Тходсапол Сирививат, Нуэнгтхида СопхонПеревод: Дублированный (R5)Продолжительность: 01:22:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A19E68B09BD68EE59A962C2F96AF4B5AB21AF64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494677   (887724) от 08.09.2021
-
-Клоун Коко. Гадалка / The Fortune Teller (1923) WEBRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Макс пытается напугать гадалку, пока та гадает Коко на картах. Клоуна преследуют злые духи в мультяшном мире и он панически убегает от них, но сталкивается с проклятием гадалки.Производство: США, Out of the Inkwell FilmsЖанр: Рисованная анимацияРежиссер: Дэйв ФлейшерАктеры: Макс ФлейшерПеревод: Немой с интертитрамиСубтитры: Английские интертиры, русские отдельным файломПродолжительность: 00:07:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92B70C7F71DAC82A01C952940AE9173834688BD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994732   (887644) от 09.03.2016
-
-Лунный флаг / Capture the Flag (2015) BDRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887644.jpg" />
-</div>
-
-
-###  Подробнее
-
-12-летний Майк вместе со своими друзьями пытается спасти Луну от захвата злобным миллиардером Карсоном. Но для этого надо всего лишь… полететь в космос. Удастся ли обыкновенным подросткам пробраться на космическую базу, прилуниться и победить коварного злодея? Для этого понадобится помощь друзей, верной домашней ящерицы и родного деда. Большое космическое приключение, (   Читать дальше...   )Производство: ИспанияЖанр: Мультфильм, комедия, приключенияРежиссер: Энрике ГатоАктеры: Дэни Ровира, Мишель Хеннер, Карме Калвелл, Хавьер Балас, Камилло Гарсия, Тони Мора, Марта Барбара, Фернандо Гарсия Кабрера, Ксавьер Касан, Ориол ТаррагоПеревод: Любительский двухголосыйСубтитры: ОтсутствуютПродолжительность: 01:34:39Реклама: Присутствуют вставки голосовой и текстовой рекламы.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92EFFA58AC5E3B06B2DBEA5F639201BCC233D9D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

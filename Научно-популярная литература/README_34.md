@@ -1,30 +1,3 @@
-###  Публикация: 1252235   (410717) от 04.10.2018
-
-Леонид Подымов | Псевдонаука (2018) [FB2]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга – краткий путеводитель по псевдонауке, мифам и заблуждениям нашего времени. Она поможет ориентироваться в бушующем информационном потоке современности, объяснит, чем наука отличается от мнений, научный метод от лженаучного наукообразия и послужит помощником в выявлении разнообразных сомнительных идей и теорий.
-Для широкого круга читателей.Жанр: Научпоп; НауковедениеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95BCAF6CE53176766351382C27FD556DE181943F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948256   (410696) от 20.10.2015
 
 Антон Первушин | Марсианин. Как выжить на Красной планете (2015) [FB2]
@@ -33,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410696.jpg" />
 </div>
 
 
@@ -59,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410200.jpg" />
 </div>
 
 
@@ -86,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410012.jpg" />
 </div>
 
 
@@ -112,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408429.jpg" />
 </div>
 
 
@@ -138,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408348.jpg" />
 </div>
 
 
@@ -164,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403998.jpg" />
 </div>
 
 
@@ -191,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402208.jpg" />
 </div>
 
 
@@ -219,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402160.jpg" />
 </div>
 
 
@@ -246,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_401762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_401762.jpg" />
 </div>
 
 
@@ -275,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396687.jpg" />
 </div>
 
 
@@ -303,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396493.jpg" />
 </div>
 
 
@@ -330,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395953.jpg" />
 </div>
 
 
@@ -358,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394611.jpg" />
 </div>
 
 
@@ -385,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_391785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_391785.jpg" />
 </div>
 
 
@@ -411,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391025.jpg" />
 </div>
 
 
@@ -439,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387305.jpg" />
 </div>
 
 
@@ -465,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387190.jpg" />
 </div>
 
 
@@ -492,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387100.jpg" />
 </div>
 
 
@@ -518,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387017.jpg" />
 </div>
 
 
@@ -544,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386996.jpg" />
 </div>
 
 
@@ -570,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386964.jpg" />
 </div>
 
 
@@ -598,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386858.jpg" />
 </div>
 
 
@@ -624,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386842.jpg" />
 </div>
 
 
@@ -650,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386713.jpg" />
 </div>
 
 
@@ -676,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386614.jpg" />
 </div>
 
 
@@ -688,6 +661,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C506C01CDF92BE24BC020672ED51C73915D6C85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174736   (384956) от 15.10.2017
+
+Дэвид Эпштейн | Спортивный ген (2017) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384956.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге Дэвид Эпштейн раскрывает тайны спортивной медицины: мутации, природное превосходство, изменения генома, климат и условия, оказывающие влияние на будущих чемпионов. Узнав, как работает ваше тело, его сильные и слабые стороны, вы получите превосходство над противником и многократно повысите шанс на победу.Жанр: Биология, Медицина, СпортФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05FBEDC0AEDFC29632238B8D35148B04C24C912A
 ```
 
 https://mybot314.ru/tekegram_catalog/

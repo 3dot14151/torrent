@@ -1,3 +1,107 @@
+###  Публикация: 1830682   (205620) от 27.10.2025
+
+Милости просим (2025) WEBRip [H.264]
+
+>>Горячие новинки
+>>Отечественные Новинки (SD, DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205620.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семья 12-летнего Фёдора остается без средств к существованию, потому что отец решает всё вложить в отель, который хочет построить на руинах старинного замка, где, согласно городским легендам, обитают привидения. Фёдору предстоит объединить семью ради того, чтобы спасти призраков прошлого, но и не остаться без собственного будущего.Производство: Россия / All Media CompanyЖанр: комедия, семейный, фэнтезиРежиссер: Владимир ЯнковскийАктеры: Алексей Морозов, Ольга Кузьмина, Людмила Артемьева, Андрей Ургант, Сергей Погосян, Кристина Айвазовская, Сергей Фёдоров, Юлия Иванова, Тимофей МотошинЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E38D78C370CABC5AF252E56A4025BCBBE5D38BC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1829129   (199779) от 25.10.2025
+
+Качели (2025) WEBRip [H.264]
+
+>>Горячие новинки
+>>Отечественные Новинки (SD, DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_199779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трое парней случайно встречают старого друга Веню, которого не видели 8 лет. Товарищи отправляются в настоящий отрыв, и веселье заходит слишком далеко. Жёнам и девушкам парней придётся спасать их от проблем и последствий затянувшейся вечеринки.Производство: Россия / ВидеопрокатЖанр: комедияРежиссер: Павел ТимофеевАктеры: Александр Алябьев, Гоша Токаев, Александра Бортич, Александр Карпенко, Риналь Мухаметов, Мария Фомина, Ольга Лерман, Иван Фоминов, Надежда Игошина, Даша КотрелёваЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:15:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:005A7A47678CEFC794734E06C47554E30C50B99A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1828307   (193555) от 24.10.2025
+
+Иван Семёнов. Первый поцелуй (2025) WEBRip
+
+>>Горячие новинки
+>>Отечественные Новинки (SD, DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иван Семёнов под влиянием Танечки из веселого хулигана стал «сыном маминой подруги», а, проще говоря, «душнилой», от которого отвернулись друзья и сама Танечка. К тому же все они нашли себе нового лидера Олега — лучшего сноукаякера Перми. И теперь, чтобы вернуть друзей и свою любимую, Ивану необходимо победить чемпиона по сноукаякингу не только в спортивных соревнованиях, (   Читать дальше...   )Производство: Россия / Gala Production, Проспект МираЖанр: комедияРежиссер: Кирилл СедухинАктеры: Роман Погорелов, Леон Кемстач, Мария Шукшина, Анна Котова, Софья Грузенко, Александр Присмотров-Белов, Константин Костин, Александра Немоляева, Дмитрий Жиров, Илья ИосифовЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:12:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A805EE1D796198E0ED3150E46152ED2E2CFFC502
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827832   (193323) от 23.10.2025
+
+Семейный призрак (2025) WEBRip
+
+>>Горячие новинки
+>>Отечественные Новинки (SD, DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Василий Кирсанов — бывший банковский клерк, а теперь иллюзионист-неудачник, мечтающий устроить шоу «почти как у Копперфильда». Ради сцены он уговаривает жену Светлану продать просторную квартиру и переехать с двумя детьми в тесную однушку. Шоу проваливается, а в новой квартире жить невозможно. В отчаянных поисках решения Кирсанов находит подозрительно выгодное объявление (   Читать дальше...   )Производство: Россия / КиноФирмаЖанр: комедия, фантастика, семейныйРежиссер: Александр БабаевАктеры: Максим Лагашкин, Никита Кологривый, Оксана Акиньшина, Кристина Корбут, Арина Савостьянова, Юлия Сулес, Егор Леонтьев, Ульяна ДонсковаЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:24:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A71227043B7EDB7B0034D521C96440208C9D5450
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1827921   (193314) от 23.10.2025
 
 Семейный призрак (2025) WEBRip [H.264]
@@ -6,7 +110,7 @@
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193314.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150653.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136800.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136688.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136687.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128897.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126111.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64020.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64014.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52077.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_40941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_40941.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14183.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12725.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12696.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10531.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6730.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6389.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3262.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_392.jpg" />
 </div>
 
 

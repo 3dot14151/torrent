@@ -1,3 +1,61 @@
+###  Публикация: 1316662   (505070) от 27.07.2019
+
+Babooshka - На страже Православия (2019) [MP3|320 Kbps] <Punk Rock, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505070.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. На страже Православия
+2. Материнский капитал
+3. Мне всегда 88
+4. Стань скином(   Читать дальше...   )Жанр: Punk Rock, AlternativeПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2F1F228ECE529B9E3297D9D7412EA59FB15AA1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933739   (505061) от 02.09.2015
+
+Amorphis - Under The Red Cloud (2015) Limited Edition [MP3|320 кб/с]<Progressive, Doom, Folk, Melodic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under the Red Cloud
+02. The Four Wise Ones
+03. Bad Blood
+04. The Skull(   Читать дальше...   )Жанр: 01:00:04Продолжительность: Progressive, Doom, Folk, Melodic Metal
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:822DEC915FF74299CAE474C84C2822EE7560ACE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1316746   (505016) от 27.07.2019
 
 Наутилус Помпилиус (Nautilus Pompilius) - Серебряный век (2015) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -6,7 +64,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505016.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Charlie Shred - Charlie Shred (2012) [FLAC|Lossless]<Power Metal/Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504876.jpg" />
 </div>
 
 
@@ -70,7 +128,7 @@ Parkket - Научиться летать (2012) [MP3|320 kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504870.jpg" />
 </div>
 
 
@@ -105,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504801.jpg" />
 </div>
 
 
@@ -140,7 +198,7 @@ Amaran's Plight - Voice in the Light (2007) [FLAC|Lossless]<Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504692.jpg" />
 </div>
 
 
@@ -166,7 +224,7 @@ Ebonmortis - Reconstruction by Force (2007) [FLAC|Lossless|image + .cue] <Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504661.jpg" />
 </div>
 
 
@@ -195,7 +253,7 @@ Brutality - In Mourning (1997) [APE|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504580.jpg" />
 </div>
 
 
@@ -224,7 +282,7 @@ Excruciation - Last Judgement (1987) Reissue, 2017, Dark Symphonies [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504579.jpg" />
 </div>
 
 
@@ -253,7 +311,7 @@ Eerie Heir - Your Face Forgotten, Your Fate Nightmare (2022) [FLAC|Lossless|WEB-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504578.jpg" />
 </div>
 
 
@@ -282,7 +340,7 @@ Golgata - Ur eld och aska (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504576.jpg" />
 </div>
 
 
@@ -311,7 +369,7 @@ Firewolfe - Firewölfe (2011) Remastered, 2022 [FLAC|Lossless|WEB-DL|tracks] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504575.jpg" />
 </div>
 
 
@@ -340,7 +398,7 @@ Dreamforce - Dysphoric Euphoria (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504573.jpg" />
 </div>
 
 
@@ -369,7 +427,7 @@ Riverside - Love, Fear and the Time Machine (2015) [MP3|320 кб/с]<Progressive
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504501.jpg" />
 </div>
 
 
@@ -398,7 +456,7 @@ Creedence Clearwater Revival - The Best Of C.C.R. (Japanese Edition) (1985) [MP3
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504500.jpg" />
 </div>
 
 
@@ -433,7 +491,7 @@ Sinner - Brotherhood (2022) [FLAC 2.0|44,1/24|tracks|WEB-DL] <Heavy Metal>
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504477.jpg" />
 </div>
 
 
@@ -462,7 +520,7 @@ Besatt - Impia Symphonia (2015) EP [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504469.jpg" />
 </div>
 
 
@@ -491,7 +549,7 @@ Anthrax - XL (2022) 40th Anniversary Version [FLAC 2.0|44/24|WEB-DL|tracks] <Thr
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504366.jpg" />
 </div>
 
 
@@ -520,7 +578,7 @@ Thy Art Is Murder - Human Target (2019) [MP3|320 кб/с] <Technical Deathcore, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504224.jpg" />
 </div>
 
 
@@ -549,7 +607,7 @@ the Bloodhound Gang - 22 релиза (1994-2010) [MP3|192-320 кб/с]<Rock/Alt
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504116.jpg" />
 </div>
 
 
@@ -575,7 +633,7 @@ Iron Maiden - The Book of Souls (2015) 2CD [MP3|320 кб/с]<Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504078.jpg" />
 </div>
 
 
@@ -604,7 +662,7 @@ Five Finger Death Punch - Got Your Six (2015) Deluxe Edition [FLAC|tracks+.cue]<
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504012.jpg" />
 </div>
 
 
@@ -633,7 +691,7 @@ Iron Maiden - The Book of Souls (2015) 2CD [FLAC|tracks+.cue]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504007.jpg" />
 </div>
 
 
@@ -662,7 +720,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503970.jpg" />
 </div>
 
 
@@ -691,7 +749,7 @@ Harlott - Detritus Of The Final Age (2020) [FLAC|Lossless|image + .cue] <Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503823.jpg" />
 </div>
 
 
@@ -705,64 +763,6 @@ Harlott - Detritus Of The Final Age (2020) [FLAC|Lossless|image + .cue] <Thrash 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2869D212F3818E8162FDD8C2942EAB005692C798
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563611   (503821) от 15.07.2022
-
-Senses Fail - Hell Is In Your Head (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 The Burial of the Dead [00:03:18]
-02 End of the World_ A Game of Chess  [00:03:56]
-03 The Fire Sermon [00:03:25]
-04 I Am Error [00:03:52](   Читать дальше...   )Жанр: Post-HardcoreПродолжительность: 00:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:891A0D39F0790C2B9A289CDD221465A4D76FA23B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563813   (503816) от 15.07.2022
-
-Black Capricorn - Cult Of Blood (2022) [MP3|320 Kbps] <Psych, Stoner, Doom>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Secret Society of Seven
-02 Worshipping the Bizarre Reverend
-03 Giants of Prama
-04 Godsnake Djamballah(   Читать дальше...   )Жанр: Psych, Stoner, DoomПродолжительность: 00:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:623B454AAEB531083A21D7CE09F9F045EAE9F10E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,159 @@
+###  Публикация: 938176   (837503) от 06.04.2016
+
+PES 2016 / Pro Evolution Soccer 2016 (2015) [Ru/En] (1.04.00/dlc) Repack =nemos=
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837503.jpg" />
+</div>
+
+
+###  Подробнее
+
+PES 2016 / Pro Evolution Soccer 2016 - Удостоенная многих наград игровая серия возвращается в свою 20-ю годовщину с новыми функциями. В игре PES 2016 представлено множество новых и улучшенных функций, которые непременно снова поднимут планку среди всех футбольных игр и позволят сохранить звание «Лучший спортивный симулятор». PES 2016 — официальная видеоигра Лиги (   Читать дальше...   )Тип издания: RepackРазработчик: Konami Computer Entertainment TokyoЖанр: Sport (Soccer), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86905A11EED0EF2266556A4E39B4F050B1738035
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946648   (837502) от 06.04.2016
+
+Ходячие мертвецы / The Walking Dead (2015) WEB-DL [H.264/720p-LQ] (сезон 6, серии 1-16 из 16) LostFilm
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал рассказывает историю жизни семьи шерифа после того, как «зомби» — эпидемия апокалиптических масштабов захлестнула земной шар. Шериф Рик Граймс путешествует со своей семьей и небольшой группой выживших в поисках безопасного места для жизни. Но постоянный страх смерти каждый день приносит тяжелые потери, заставляя героев почувствовать глубины человеческой жестокости. (   Читать дальше...   )Производство: США / American Movie Classics (AMC), Circle of Confusion, Valhalla Motion PicturesЖанр: ужасы, драмаРежиссер: Грег Никотеро, Эрнест Р. Дикерсон, Гай ФерлендАктеры: Эндрю Линкольн, Стивен Ян, Чендлер Риггз, Норман Ридус, Мелисса Сюзанн МакБрайд, Лорен Кохэн, Данай Джекесай Гурира, Сонекуа Мартин-Грин, Эмили Кинни, Аланна Мастерсон и др.Перевод: Многоголосый закадровый, профессиональный - LostFilmПродолжительность: ~00:43:00 серия (01:04:53 первая серия)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:800A5C18A4F5180140D71556477DCD203DA53B56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113569   (837493) от 11.03.2017
+
+Homefront: The Revolution (2016) [Ru/En] (1.078.1055/dlc) Repack R.G. Механики
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837493.jpg" />
+</div>
+
+
+###  Подробнее
+
+Homefront: The Revolution – это шутер от первого лица, в котором вы должны возглавить силы Сопротивления в партизанской войне против превосходящих сил противника. Все ваши действия будут влиять на живой, дышащий открытый мир – ваша ячейка Сопротивления и вы сможете вдохновить угнетённых гражданских на восстание и превратить оккупацию в революцию.Тип издания: RepackРазработчик: Dambuster StudiosЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D59B46CA79400F8A561A6E5CB9AA46A59C871E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113416   (837492) от 11.03.2017
+
+Дьявол во тьме / Devil in the Dark (2017) WEB-DLRip [MVO] [AD]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два брата отправляются в лес прогуляться и поохотиться. Но вскоре получается так, что кто-то или что-то начинает охотиться на нихПроизводство: Канада, Co-Pilot Film ServicesЖанр: Ужасы, ТриллерРежиссер: Тим БраунАктеры: Дэн Пэйн, Робин Данн, Бриана Бакмастер, Дэниэл КадморПеревод: Многоголосый закадровый, профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:22:21Реклама: Присутствуют аудио и видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01D04F27313027FED6F36F2758472163C3F7DEE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113292   (837490) от 11.03.2017
+
+Adobe After Effects CC 2017.1 14.1.0.57 RePack by KpoJIuK (09.03.2017) [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837490.jpg" />
+</div>
+
+
+###  Подробнее
+
+After Effects CC — это ведущая в отрасли программа для создания и компоновки анимированной графики, которую используют многие разработчики визуальных эффектов и анимированной графики. Она предлагает великолепные функции управления, широкий выбор инструментов для творчества, а также возможность интеграции с другими приложениями для постобработки видеоматериалов. Сделайте (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CAD2793737C76D29761D4AB69A1A6065E25D81D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113266   (837487) от 11.03.2017
+
+Кредо убийцы / Assassin's Creed (2016) WEB-DL [H.264/1080p-LQ] [Line]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Благодаря революционным технологиям, позволяющим вызвать в памяти воспоминания прежних поколений, Каллум Линч проживает приключения своего предка Агилара в Испании 15-го века. Каллум узнает, что является потомком членов загадочного тайного общества ассасинов. Накопив невероятные знания и навыки, он вступает в противостояние с могущественной и жестокой организацией (   Читать дальше...   )Производство: Великобритания, Франция, Гонконг, США, Тайвань, Мальта, Канада / Regency Enterprises, Ubisoft, New Regency Pictures, Ubisoft Motion Pictures DMC Film Kennedy/Marshall Company, The RatPac Entertainment, Alpha Pictures, CatchPlay, Monarchy Enterprises S.a.r.l., Helicopter Film, Services Latina PicturesЖанр: Фантастика, Фэнтези, Боевик, ПриключенияРежиссер: Джастин КурзельАктеры: Майкл Фассбендер, Марион Котийяр, Джереми Айронс, Брендан Глисон, Шарлотта Рэмплинг, Майкл Кеннет Уильямс, Дени Меноше, Ариана Лабед, Халид Абдалла, Эсси Дэвис ...Перевод: Дублированный (Line)Субтитры: Русские (Full), Английские (Forced, Full)Продолжительность: 01:56:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F38B8ADB87DDF65D77DCED9CCA557F2A3B9677C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113374   (837484) от 11.03.2017
 
 Мастер и Маргарита (2005) HDTV [H.264/1080i-LQ] (серии 1-12 из 12)
@@ -6,7 +162,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837484.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Adobe Photoshop Lightroom CC (2015.9) v6.9 [Multi+Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837479.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837477.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837324.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_837315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_837315.jpg" />
 </div>
 
 
@@ -137,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_837291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_837291.jpg" />
 </div>
 
 
@@ -163,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837252.jpg" />
 </div>
 
 
@@ -189,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837247.jpg" />
 </div>
 
 
@@ -215,7 +371,7 @@ F-Secure Freedome VPN 2.34.6377 RePack by elchupacabra [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837228.jpg" />
 </div>
 
 
@@ -241,7 +397,7 @@ MultiBoot HDD 2020 29.04.2020 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837225.jpg" />
 </div>
 
 
@@ -267,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837222.jpg" />
 </div>
 
 
@@ -293,7 +449,7 @@ Windows XP Twilight Edition CD 6.1 [Русский]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837142.jpg" />
 </div>
 
 
@@ -319,7 +475,7 @@ Agnitum Outpost Security Suite Pro 7.5 Beta [Русский] M/L
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837141.jpg" />
 </div>
 
 
@@ -345,7 +501,7 @@ Windows XP Twilight Edition DVD 6.1 [Русский]
 >>12
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837137.jpg" />
 </div>
 
 
@@ -371,7 +527,7 @@ P-51: Истребитель драконов / P-51 Dragon Fighter (2014) HDRip
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836794.jpg" />
 </div>
 
 
@@ -397,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836791.jpg" />
 </div>
 
 
@@ -423,7 +579,7 @@ Far Cry 4 (2014) [Ru/Multi] (1.9.0/dlc) Repack R.G. Revenants
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836789.jpg" />
 </div>
 
 
@@ -449,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836475.jpg" />
 </div>
 
 
@@ -475,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836170.jpg" />
 </div>
 
 
@@ -503,7 +659,7 @@ Vivaldi 1.0.435.42 Final [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836144.jpg" />
 </div>
 
 
@@ -514,163 +670,6 @@ Vivaldi 1.0.435.42 Final [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:269A727F35816E2AD656832F64A2BB7174434088
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501107   (835865) от 09.10.2021
-
-Правительство одобрило повышение платы за капремонт на 25% из-за цен на стройматериалы
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_835865.jpg" />
-</div>
-
-
-###  Подробнее
-
-Премьер-министр Михаил Мишустин утвердил постановление, по которому до конца текущего года может изменяться стоимость оказания услуг по капремонту не более чем на 25% из-за подорожания строительных материалов. Документ опубликован на интернет-портале правовой информации.При этом сумма повышения не может превышать объем средств, которые региональный оператор имеет (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501081   (835863) от 09.10.2021
-
-Цены на билеты в кино обновили шестилетний максимум
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_835863.jpg" />
-</div>
-
-
-###  Подробнее
-
-Средняя цена билета в кино по итогам недели с 30 сентября по 6 октября этого года составила 304,8 руб. – рекорд почти за шесть лет, сообщил РБК со ссылкой на базу данных Единой федеральной автоматизированной информационной системы сведений о показах фильмов в кинозалах (ЕАИС).За неделю в кино сходили 5,1 млн человек. Большее число зрителей было зарегистрировано с (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501275   (835861) от 09.10.2021
-
-СМИ: Британии грозит дефицит туалетной бумаги "из-за России"
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_835861.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Британии может возникнуть дефицит туалетной бумаги из-за ситуации с ценами на газ. Об этом пишет портал Daily Mail."Производители серьезно затронуты ростом расходов на производство туалетной бумаги и ее упаковку. Это бьет по доходам и приводит к сокращению выпуска продукции", — приводит издание слова генерального директора Конфедерации бумажной промышленности (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499761   (835844) от 09.10.2021
-
-Игра в кальмара / Ojingeo geim / Squid Game (2021) WEB-DLRip [H.264] (сезон 1, серии 1-9 из 9) HDRezka
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835844.jpg" />
-</div>
-
-
-###  Подробнее
-
-А вы бы согласились за 40 миллионов долларов (45,6 миллиардов вон) поставить свою жизнь на кон? Мы с недоумением, часто с презрением слышим новости о людях, которые совершали дикие поступки ради больших и не очень денег. Но так ли далеко мы ушли от тех, кто готов умереть, если даже работая в офисе мы отдаем огромную часть своей жизни? Ки Хун и Сан У друзья детства. (   Читать дальше...   )Производство: Корея Южная / Netflix, Siren Pictures KoreaЖанр: триллер, драмаРежиссер: Хван Дон-хёкАктеры: Ли Джон-джэ, Пак Хэ-су, О Ён-су, Чон Хо-ён, Хо Сон-тхэ, Анупам Трипати, Ви Ха-джун, Ким Джу-рён, Ли Джи-ха, Кон ЮПеревод: Многоголосый профессиональный (HDrezka Studio)Язык озвучки: РусскийСубтитры: Русские (Forced, Full)Продолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D043437248FE60046EA66A8E3F00FE9926ECBE89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479959   (835843) от 09.10.2021
-
-Win 10 Tweaker 18.1 Portable by XpucT [Multi/Ru]
-
->>3
->>11
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835843.jpg" />
-</div>
-
-
-###  Подробнее
-
-Win 10 Tweaker – это небольшая, но очень мощная программа, позволяющая сделать полную оптимизацию и очистку Windows в несколько кликов. Не пускает пыль в глаза бесполезными настройками, а каждый пункт содержит подробную подсказку-описание. Любое действие выполняется без внешних модулей – средствами только самой программы.Язык интерфейса: Русский, английский, украинский, немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25E302ADC10CF21F89FF80EA0275227EDB40D026
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004499   (835790) от 07.04.2016
-
-Основатель Opera запускает браузер Vivaldi, вложив в него $6 млн
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_835790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлен Vivaldi — браузер в лучших традициях Opera
-В России запустили новый интернет-браузер Vivaldi от основателя компании Opera Software Йона фон Течнера. В его создание он вложил 6 миллионов долларов. Браузер разработан на базе открытой системы Chromium, на которой работают Chrome и "Яндекс.Браузер".Течнер был одним из сооснователей Opera Software (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

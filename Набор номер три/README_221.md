@@ -1,3 +1,167 @@
+###  Публикация: 1521965   (757998) от 07.01.2022
+
+Есть ли разница между 4K и 8K для вашего глаза
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Некоторые современные дорогие модели телевизоров предлагают разрешение 8K UHD, вдвое превышающее предыдущий стандарт 4K. Действительно ли изображение на этих телевизорах 8K в два раза лучше, чем 4K?Стоит ли покупать ультрасовременный телевизор с разрешением 8K?
+ (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215207   (757679) от 26.03.2018
+
+Роскомнадзор добивается блокировки IP-адресов Amazon
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757679.jpg" />
+</div>
+
+
+###  Подробнее
+
+Только так можно окончательно заглушить интернет-рацию, заблокированную в прошлом году. Представители «большой тройки» операторов отказались от комментариев, как и сам РосКомНадзор.Блокировку Zello Роскомнадзор называет «экспериментом». Как гласит письмо, Роскомнадзор проанализировал работу Zello и определил подсети, «которые необходимо заблокировать для эффективной (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215587   (757671) от 26.03.2018
+
+Windows 10 Pro 1709 x86/x64 by kuloymin v12.5 (esd) [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757671.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на официальных образах от MSDN: ru_windows_10_multi-edition_version_1709_updated_dec_2017.
+Удалены некоторые APPX, стандартные темы, отключено несколько компонентов, активирован протокол Samba.
+Очищена папка WinSxS\Backup.
+Очищена папка WinSxS\ManifestCache.(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B414DF84689278B190374BD31C22BC0CBA41859
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215197   (757670) от 26.03.2018
+
+Российский студент выжил на стипендию
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Петербургский студент смог месяц прожить на стипендию в 1572 рубля
+Студент СПбГУ Алексей Зырянов смог прожить месяц на стипендию, потратив на еду 1472 рубля, сообщает «Росбалт». Свой эксперимент Зырянов начал 23 февраля и регулярно отчитывался о его ходе в своем паблике.Алексей Зырянов учится в Санкт-Петербургском государственном университете и получает стипендию (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913393   (757667) от 26.03.2018
+
+Doragon Boru Cho / Dragon Ball Super / Драгонболл Супер [2015, TV, 131] HDTVrip 720p raw
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757667.jpg" />
+</div>
+
+
+###  Подробнее
+
+События происходят спустя несколько лет после победы над Маджин Буу, когда на Земле вновь царит мир.Производство: Toei AnimationЖанр: приключения, комедия, фэнтези, сёнэнРежиссер: Kimitoshi ChiokaЯзык субтитров: Русский (отключаемый), Английский (отключаемый)Продолжительность: 131 серия по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E333BA16FC2CF3E939ABF05D7B5EE07A80EDBBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207663   (757665) от 26.03.2018
+
+Windows 10 Enterprise LTSB 2016 v1607 (x86/x64) by LeX_6000 [18.02.2018] [Ru/En]
+
+>>3
+>>36
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборки основаны на официальных образах Microsoft:
+ru_windows_10_enterprise_2016_ltsb_x86_dvd_9058173
+ru_windows_10_enterprise_2016_ltsb_x64_dvd_9057886
+en_windows_10_enterprise_2016_ltsb_x86_dvd_9060010(   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09FD5202202E10F2FB57B2ABECADF3E7B92E11EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 147501   (757515) от 28.05.2010
 
 Как Я Встретил Вашу Маму / How I Met Your Mother (2009) HDTVRip (сезон 5) [Kuraj-Bambey]
@@ -6,7 +170,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_757515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757515.jpg" />
 </div>
 
 
@@ -32,7 +196,7 @@ Gothic 2 + Gothic 2: Night of the Raven / Готика 2 + Готика 2: Но�
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_757512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757512.jpg" />
 </div>
 
 
@@ -58,7 +222,7 @@ VideoHive - Wedding Roses - 6812257 [AEP]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757391.jpg" />
 </div>
 
 
@@ -86,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757387.jpg" />
 </div>
 
 
@@ -122,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_757169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757169.jpg" />
 </div>
 
 
@@ -148,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_757082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757082.jpg" />
 </div>
 
 
@@ -174,7 +338,7 @@ Adobe Muse CC 2015.1.2.44 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757079.jpg" />
 </div>
 
 
@@ -200,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756957.jpg" />
 </div>
 
 
@@ -226,7 +390,7 @@ Sword Coast Legends (2015) [Ru/Multi] (1.0 u9/dlc) License CODEX
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756953.jpg" />
 </div>
 
 
@@ -252,7 +416,7 @@ Fallout 4: Far Harbor (2016) [Ru/En] (1.5.157) License [DLC]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756952.jpg" />
 </div>
 
 
@@ -278,7 +442,7 @@ Adobe Acrobat Pro DC 2015.016.20039 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756950.jpg" />
 </div>
 
 
@@ -304,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756949.jpg" />
 </div>
 
 
@@ -330,7 +494,7 @@ Human Resource Machine (2015) [Ru/Multi] (1.0.12090) License GOG
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756948.jpg" />
 </div>
 
 
@@ -356,7 +520,7 @@ One Piece / Ван Пис [1999, TV, 1-740 + 13 Movies] DVDRip/HDTVRip/BDRip 480
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756946.jpg" />
 </div>
 
 
@@ -382,7 +546,7 @@ Divinity: Original Sin - Enhanced Edition (2015) [Ru/Multi] (2.0.119.430/dlc) Li
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756944.jpg" />
 </div>
 
 
@@ -408,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_756725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_756725.jpg" />
 </div>
 
 
@@ -434,7 +598,7 @@ Resident Evil / Biohazard HD Remaster (2015) [Ru/Multi] (1.1.0) Repack West4it
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756715.jpg" />
 </div>
 
 
@@ -460,7 +624,7 @@ Age of Empires (2019) [Ru/Multi] (38862) Repack xatab [Definitive Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756713.jpg" />
 </div>
 
 
@@ -486,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>29
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756711.jpg" />
 </div>
 
 
@@ -512,7 +676,7 @@ NVIDIA GeForce Desktop 418.81 WHQL + For Notebooks + DCH [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756571.jpg" />
 </div>
 
 
@@ -523,164 +687,6 @@ NVIDIA GeForce Driver — драйвера для видеокарт произ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4301CBFD60C7011C26036D4E727BE356AAB2CBF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280815   (756435) от 05.02.2019
-
-Обойти блокировку Android-смартфона можно звонком по Skype
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_756435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Недавно обнаруженная уязвимость в Skype для Android может быть использована злоумышленниками для обхода экрана блокировки на смартфонах, работающих под управлением Android. Она позволяет просматривать фотографии, контакты и даже запускать браузер, получая доступ к сайтам с введёнными пользователем паролями.19-летний специалист по безопасности из Косово Флориан Кунушевци (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280567   (756421) от 05.02.2019
-
-Стартовали продажи телефона, который невозможно взломать и прослушать
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_756421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стартовали продажи телефона, который невозможно взломать и прослушать
-Подразделение госкорпорации "Ростех" - концерн "Автоматика" — выпустило в продажу защищенный от прослушки телефон "Круиз-К". Аппарат не будет продаваться физическим лицам, а юридические смогут приобрести от одной штуки.Как рассказали РИА Новости в "Ростехе", (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262286   (756407) от 05.02.2019
-
-Devil May Cry HD Collection (2018) [Ru/Multi] (1.0) Rip R.G. Revenants
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярные стильные экшены Devil May Cry, Devil May Cry 2 и Devil May Cry 3 Special Edition возвращаются в составе особой коллекции! Станьте Данте, величайшим охотником на демонов, и вместе с очаровательными персонажами, среди которых Триш, Леди и Люсия, насладитесь невероятными боевиками в разрешении 1920 x 1080 (FullHD) при 60 кадрах в секунду!Тип издания: RipРазработчик: CapcomЖанр: Action (Slasher), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Испанский и другиеЯзык интерфейса: Русский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2076F95B5B2D81EE59841C785E90CFF41A73A911
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 138965   (756406) от 05.02.2019
-
-Коллекция Педро Альмодовара / Collection of Pedro Almodovar (1980-2009) DVDRip
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный сценарист и режиссёр попадает в страшную автокатастрофу, после которой необратимо слепнет. Он не может больше снимать кино, от него уходит женщина, которая была смыслом его жизни. Вместе со зрением он теряет всё. Смириться с трагедией своей жизни он сможет только спустя 14 лет, открыв душу своему молодому помощнику, которого он полюбил как сына.Жанр: триллер, драмаРежиссер: Педро Альмодовар / Pedro AlmodovarАктеры: Пенелопа Крус, Льюис Омар, Бланка Портильо, Хосе Луис Гомез, Тамар Новас, Рубен Очандиано, Марта Аледо, Агустин Альмодовар, Энрике Апарисио, Юйи БеринголаПеревод: Профессиональный (двухголосый)Продолжительность: 01:59:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C056D483A8159F668654880E0E0747CC737E3F48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280776   (756404) от 05.02.2019
-
-Т-34 (2018) WEBRip [H.264/1080p-LQ]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во времена величайших испытаний человечества, когда от каждого действия зависят жизни любимых, два заклятых врага начнут свое противостояние.
-Оказавшись в плену, вчерашний курсант Ивушкин планирует дерзкий побег. Он собирает свой экипаж и на легендарной «тридцатьчетверке» бросает вызов немецким танковым асам во главе с Ягером. Ради своей любви и Родины он готов идти (   Читать дальше...   )Производство: Россия, АМЕДИА, Марс Медиа ЭнтертейнментЖанр: Драма, Военный, ПриключенияРежиссер: Алексей СидоровАктеры: Александр Петров, Виктор Добронравов, Ирина Старшенбаум, Винценц Кифер, Петр Скворцов, Семен Трескунов, Артем Быстров, Антон Богданов, Василий Уриевский, Василий Буткевич ...Перевод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 02:19:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEF83BC15BA8C715E26AB92CD39C1D91A683D750
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280793   (756402) от 05.02.2019
-
-Ловушка времени / Time Trap (2017) BDRip [H.264/1080p] [PR]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа студентов отправляются в пещеры Техаса, чтобы найти своего любимого преподавателя по археологии, пропавшего без вести некоторое время назад. Ребята уверены, что он нуждается в помощи, а раз спасатели не смогут оперативно выполнить эту работу, то у них не остается выбора. Студенты готовы рисковать собственными жизнями ради спасения своего преподавателя. Кроме (   Читать дальше...   )Производство: США | Filmsmith Productions, Pad Thai Pictures, Rising Phoenix CastingЖанр: Фантастика, боевик, приключенияРежиссер: Mark Dennis, Бен ФостерАктеры: Эндрю Уилсон, Кэссиди Гиффорд, Брианна Хоуи, Рейли МакКлендон, Оливия Драгусевич, Макс Райт, Ганс Марреро, Рич Скидмор, Крис Старджон, Гопал БидариПеревод: Дублированный (iTunes), Многоголосый закадровый (HDRezka Studio)Субтитры: Pусские (Forced), английские (Full)Продолжительность: 01:27:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8553460D02F0901D90696911067C73D2BA4BF776
 ```
 
 https://mybot314.ru/tekegram_catalog/

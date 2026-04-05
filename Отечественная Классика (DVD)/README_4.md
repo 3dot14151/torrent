@@ -6,7 +6,7 @@
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515469.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514362.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511343.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510728.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509641.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_501922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_501922.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498603.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494557.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482620.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480245.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480120.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469440.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462552.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462229.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_455015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_455015.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452834.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446091.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445675.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444373.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_442911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_442911.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441312.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439526.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_438612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_438612.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436894.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432591.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431287.jpg" />
 </div>
 
 

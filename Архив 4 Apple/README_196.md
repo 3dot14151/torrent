@@ -6,7 +6,7 @@ VideoDuke 1.9 (build 271) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791845.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Folder-Factory 5.7.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791844.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Serial Box 06.2020 + SerialSeeker 2.0 (build 44) + iSerial Reader 2.0.23 (build 
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791839.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ ExactScan Pro 20.5.28 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791836.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Blocs 3.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791833.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Backgrounds 7.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791828.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Path Finder 9.3.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791797.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ McAfee Endpoint Security for Mac 10.6.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791790.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Tenorshare iCareFone 6.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791775.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Tenorshare UltData 9.2.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791764.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Dropzone 3.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791702.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ PhotoScape X Pro 2.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791679.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Task Office 6.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791650.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Theine 3.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791649.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Aspect Ratio X 2.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791648.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Project Office Pro 8.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791646.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Lunar Pro for Mac 5.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791644.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Downie 4 v4.3.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791642.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Nevercenter CameraBag Pro 2021.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791641.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Scherlokk - Files finder 4 v4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791640.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791639.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ SyncTime 3.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791637.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ GraphicConverter 11 v11.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791636.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Movavi Screen Capture Pro 5.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791620.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ DrawOutX 2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791595.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ UctoX 2 v2.8.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791593.jpg" />
 </div>
 
 

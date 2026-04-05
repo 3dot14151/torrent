@@ -1,3 +1,57 @@
+###  Публикация: 1660319   (189815) от 12.09.2023
+
+Network Radar 3.0.4 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189815.jpg" />
+</div>
+
+
+###  Подробнее
+
+Network Radar предоставляет Вам информацию о сети к которой подключен ваш Mac . Network Radar показывает устройства, подключенные к вашей локальной сети, компьютер или маршрутизатор, а также их имя, IP и поставщика. Network Radar представляет собой простой в использовании инструмент, который позволит вам получить детальную информацию о сетевых устройствахТип издания: macOS SoftwareРелиз состоялся: 11.09.2023Разработчик: © 2012 - 2022 Daniel WittПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7CEDC3641CCD3FEDF00F60802D9A5D363D7474B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660279   (189813) от 12.09.2023
+
+OmmWriter 1.67 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189813.jpg" />
+</div>
+
+
+###  Подробнее
+
+OmmWriter - скромная попытка вернуть себе то, что технология вырвала у нас сегодня: наша способность концентрироваться.
+OmmWriter - это инструмент, который позволяет снова писать в удовольствие, позволяя пользователям оставаться наедине со своими мыслями; Сконцентрироваться и писать без отвлечения. OmlWriter - это нечто большее, чем текстовый процессор.
+Секрет OmmWriter (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.09.2023Разработчик: © 2023 Herraiz Soto & Co.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77DD48C3FB3D3483CA2DDA78079AE420B6F0511A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1660287   (189802) от 12.09.2023
 
 NXPowerLite Desktop 10 v.10.0.2 [Multi]
@@ -6,7 +60,7 @@ NXPowerLite Desktop 10 v.10.0.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189802.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ AirFoil+Airfoil Satellite 5.11.6 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189794.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ Exposure Software Blow Up 3 v.3.1.6.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189779.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ PDF to Word&Document Converter 6.2.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189688.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ Exposure X7 Bundle v.7.1.8.9 [EN]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189664.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ Cookie 7.0.5 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189428.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ Bookshelf - Library 6.3.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189420.jpg" />
 </div>
 
 
@@ -191,7 +245,7 @@ AirMail Pro 5 v.5.6.9 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189359.jpg" />
 </div>
 
 
@@ -218,7 +272,7 @@ Native Instruments Kontakt 7 v.7.6.0 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189269.jpg" />
 </div>
 
 
@@ -244,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189173.jpg" />
 </div>
 
 
@@ -271,7 +325,7 @@ Microsoft Office 2021 for Mac LTSC v.16.77 VL [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189063.jpg" />
 </div>
 
 
@@ -299,7 +353,7 @@ Adobe Premiere Pro 2023 v.23.6 U2B [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189059.jpg" />
 </div>
 
 
@@ -325,7 +379,7 @@ Squeezer 2.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188983.jpg" />
 </div>
 
 
@@ -352,7 +406,7 @@ Epiphany WorkFlow II 8.1.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188981.jpg" />
 </div>
 
 
@@ -378,7 +432,7 @@ eMail Address Extractor 4.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188976.jpg" />
 </div>
 
 
@@ -405,7 +459,7 @@ SpeakMe 2.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188972.jpg" />
 </div>
 
 
@@ -431,7 +485,7 @@ Focus Matrix Pro – Task Manager 1.6.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188926.jpg" />
 </div>
 
 
@@ -457,7 +511,7 @@ Wipr – Ad and Tracker Blocker 1.46 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188912.jpg" />
 </div>
 
 
@@ -483,7 +537,7 @@ Teorex Inpaint 9.2.3 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188906.jpg" />
 </div>
 
 
@@ -510,7 +564,7 @@ GitKraken Client Enterprise for Mac 9.8.1 Intel/ARM [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188803.jpg" />
 </div>
 
 
@@ -536,7 +590,7 @@ PCalc 4.10.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188591.jpg" />
 </div>
 
 
@@ -563,7 +617,7 @@ File Cabinet Pro 8.5.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188583.jpg" />
 </div>
 
 
@@ -589,7 +643,7 @@ MacX MediaTrans 7.8 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188574.jpg" />
 </div>
 
 
@@ -616,7 +670,7 @@ Cisdem PDF Converter OCR 8.2.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188514.jpg" />
 </div>
 
 
@@ -628,59 +682,6 @@ Cisdem PDF Converter OCR- быстро и аккуратно конвертир�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72DF86884C731CF8B550E99E25036E1E7D399776
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661525   (188331) от 15.09.2023
-
-Maxon Cinema 4D Studio 2024.0.0 [En]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легко изучаемая и чрезвычайно мощная: Cinema 4D является идеальным пакетом для всех художников трёхмерной графики, которые хотят добиваться захватывающих результатов быстро и без проблем. Начинающие, наравне с опытными профессионалами, могут воспользоваться широким набором инструментов и функций Cinema 4D для быстрого достижения потрясающих результатов. Легендарная (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.09.2023Разработчик: © 2023 MAXON Computer GmbHПоддерживаемая ОС: macOS 10.15 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85E2B9066F9F65282600E5768B4527CCE716C28F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339741   (188294) от 15.09.2023
-
-Launchpad Manager Pro 1.0.10 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_188294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Launchpad Manager Pro – многофунциональное приложение для работы с Launchpad. С его помощью Вы с легкостью сможете реорганизовывать, группировать, переименовывать, удалять, перемещать приложения в Launchpad.
-Некоторые программы очень любят поставить за собой еще кучу дополнительного контента (привет, Adobe!), что в итоге приводит к аду в Launchpad. Для борьбы с этим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.09.2019Разработчик: © Attila MiklosiПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A714B71FFB008C091E9BEDB0DF341F669AC15A24
 ```
 
 https://mybot314.ru/tekegram_catalog/

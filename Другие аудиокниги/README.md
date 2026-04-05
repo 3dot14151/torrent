@@ -1,4 +1,56 @@
 https://t.me/izofen
+###  Публикация: 1863438   (1064001) от 
+
+Игорь Губерман | Книга странствий (2012) [MP3, krokik]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор вездесущих «гариков», напротив, чрезвычайно дружит с нецензурным лексиконом, и вряд ли стоит давать читать эту книжицу детям до шестнадцати — хоть им и хорошо знакомы эти слова из суровой повседневной жизни. Игорь Губерман немножко кокетничает, поместив на задней обложке тираду: «Эти сухие и маловыразительные мемуары стоит читать лишь тем, кому любопытен сам (   Читать дальше...   )Жанр: Воспоминания, мемуарыИздательство: Аудиокнига своими рукамиПродолжительность: 14:15:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A76D7024F3C3D4FDBDBC1AF7F71BC2D3E035F793
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863439   (1063996) от 
+
+Игорь Губерман | Гарики из Иерусалима (2013) [MP3, Ольга Москалёва]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игорь Губерман - поэт, писатель и просто интересный человек, автор тех самых знаменитых "гариков". "Гарики из Иерусалима" - четверостишия не только об Израиле, но и о России, не только о евреях, но и о русских; это гарики - о жизни, о мелочах...Жанр: ПоэзияИздательство: Аудиокнига своими рукамиПродолжительность: 09:57:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9EB8B8FCFACAE04693C3AADA9E12D183452F875
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856221   (1058681) от 27.02.2026
 
 Илья Фейнберг | Абрам Петрович Ганнибал - прадед Пушкина (2026) [MP3, Сергей Жуков]
@@ -7,7 +59,7 @@ https://t.me/izofen
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058681.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055610.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054463.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054180.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053545.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053544.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053237.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053170.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053169.jpg" />
 </div>
 
 
@@ -247,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053168.jpg" />
 </div>
 
 
@@ -275,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053134.jpg" />
 </div>
 
 
@@ -301,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053131.jpg" />
 </div>
 
 
@@ -330,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053126.jpg" />
 </div>
 
 
@@ -358,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053122.jpg" />
 </div>
 
 
@@ -385,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053076.jpg" />
 </div>
 
 
@@ -411,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053075.jpg" />
 </div>
 
 
@@ -439,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053074.jpg" />
 </div>
 
 
@@ -467,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053073.jpg" />
 </div>
 
 
@@ -494,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053072.jpg" />
 </div>
 
 
@@ -522,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052871.jpg" />
 </div>
 
 
@@ -548,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052870.jpg" />
 </div>
 
 
@@ -574,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052256.jpg" />
 </div>
 
 
@@ -601,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052042.jpg" />
 </div>
 
 
@@ -628,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052011.jpg" />
 </div>
 
 
@@ -639,58 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC78CA6FE8ABCE3540BD3FA62C43EFAA809CDFA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847106   (1051993) от 10.01.2026
-
-Федор Конюхов | Одиночное повествование. Дневники путешественника (2025) [MP3, Юрий Мироненко]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051993.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждому человеку хотя бы раз в жизни приходится переживать ситуацию, которую можно назвать «на грани выживания» или «между жизнью и смертью». Неоценимой поддержкой и опорой в этом пути преодоления обстоятельств, себя, судьбы к воскрешению и возрождению станет издание «Одиночное повествование» – сборник книг странника-пилигрима, писателя и священника Федора Конюхова. (   Читать дальше...   )Жанр: Биографии, Мемуары, ПутешествияИздательство: ЭксмоПродолжительность: 12:10:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F08800DFFFC7AC95730CFA4E3A5F2B0E1309067
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846669   (1051701) от 08.01.2026
-
-Фицджеральд Фрэнсис Скотт, Сергей Есенин и др. | Сборник радиоспектаклей №20 (1953 - 2006) [MP3, Исполняет театральный коллектив]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свои люди сочтемся - (первоначальные названия «Несостоятельный должник», «Банкрот» и «Банкрут, или Свои люди — сочтёмся») — комедия в 4-х действиях Александра Островского 1849 года. Пьеса имела огромный успех у читателей после публикации в журнале «Москвитянин» в 1850 году. Но постановка была запрещена по указанию Николая I. Цензурный запрет продержался одиннадцать (   Читать дальше...   )Жанр: радиотеатрИздательство: CDCOMФормат: MP3, 320kbpsПродолжительность: 02:06:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92ED640DD090AF35CCFD31407799F1F200C49AE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

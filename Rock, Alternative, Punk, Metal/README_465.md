@@ -1,3 +1,148 @@
+###  Публикация: 911378   (616583) от 23.06.2015
+
+Vangough - Living Madness (2015) [MP3|320 кб/с]<Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Depths of Blighttown (Live)
+02. Afterfall (Live)
+03. Separation (Live)
+04. Infestation (Live)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:41:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8534AD1B7848C97133AE5149BA6172DF6488F12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911369   (616582) от 23.06.2015
+
+My Refuge - A Matter Of Supremacy (2015) [MP3|320 кб/с]<Progressive / Heavy / Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Storm Is Coming
+02. The Cage (Oh Demon in My Eyes)
+03. Calling of the Wind
+04. Endless Night(   Читать дальше...   )Жанр: Progressive / Heavy / Power MetalПродолжительность: 00:48:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC705A74C943BC5F46A531AF010B0A6DE6C4F5AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911225   (616581) от 23.06.2015
+
+Pleuel - Durch die Wand (2015) [MP3|320 кб/с]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Verfolgung Zu Unrecht
+02. Komplettkontrollverlust
+03. Hoffnung
+04. Durch Die Wand(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B324A51B6D8779C09930A33EEBC662749C2174E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911240   (616580) от 23.06.2015
+
+Aeon Rising - Aeon Rising (2015) [MP3|320 кб/с]<Progressive Metal, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Cleansing
+02. Realign
+03. Amenti
+04. The Chain(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 00:38:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18B2E716FE6488F234234B54FFED931DD732C8A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911377   (616579) от 23.06.2015
+
+Soldier - Defiant (2015) [MP3|320 кб/с]<Heavy Metal, NWOBHM>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616579.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Conquistador
+2. Leaving
+3. Kill Or Cure
+4. Concrete Wilderness(   Читать дальше...   )Жанр: Heavy Metal, NWOBHMПродолжительность: 00:43:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E8F94FE597F75CF7AFADE254C8DDF778A9C5B8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911389   (616578) от 23.06.2015
 
 Immanent - Human Reflection (2015) [MP3|320 кб/с]<Progressive Metal>
@@ -6,7 +151,7 @@ Immanent - Human Reflection (2015) [MP3|320 кб/с]<Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616578.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Rosetta - Quintessential Ephemera (2015) Japanese Edition [MP3|320 кб/с]<Post
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616577.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Downfall - A Place In Existence (2015) [MP3|320 кб/с]<Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616576.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Doomraiser - Reverse (Passaggio Inverso) (2015) [MP3|320 кб/с]<Traditional Do
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616574.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Nightshift - Winter Within (2014) [MP3|320 кб/с]<Heavy / Speed Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616572.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Dendera - Pillars Of Creation (2015) [MP3|320 кб/с]<Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616571.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Middle Of The Road - Acceleration (1972) Expanded Edition, 2021, Remaster [FLAC 
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616546.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ The Marlboro Men - It Ain't a Hunting Party Till Something Gets Broken (2022) [F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616537.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Nuclear Storm - Tales from the Depth (2022) [MP3|320 Kbps] <Melodic Death, Black
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616531.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Loudness - Best Of Loudness 8688 (2001) [FLAC|Lossless|image + .cue] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616498.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Oh Mercy - When We Talk About Love (2015) [MP3|320 кб/с]<Indie, Alternative>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616441.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ The Armed - Untitled (2015) [MP3|320 кб/с]<Chaotic Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616440.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Alkenion - Time Machine II (2015) [MP3|320 кб/с]<Progressive / Symphonic Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616437.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ Old Drake - Old Drake (2015) [MP3|320 кб/с]<Heavy Metal, Guitar Instrumental>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616433.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ Sorrowfield - The Great Abduction (2015) [MP3|320 кб/с]<Heavy / Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616431.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ Ducktails - St. Catherine (2015) [MP3|320 кб/с]<Indie, Surf, Chillwave, Psych
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616430.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ Fogg - High Testament (2015) [MP3|320 кб/с]<Psychedelic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616426.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ Billy Joel - 50 Years of the Piano Man (1973) Remaster, 2022, Columbia Records [
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616393.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ Syrym - Syrym (2015) [MP3|320 кб/с]<Hard Rock, Heavy Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616330.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ Gasoline Outlaws - No Rules, No Laws, No Regrets (2015) [MP3|320 кб/с]<Hard R
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616328.jpg" />
 </div>
 
 
@@ -586,7 +731,7 @@ Chabtan - The Kiss Of Coatlicue (2015) [MP3|320 кб/с]<Melodic Death Metal, De
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616326.jpg" />
 </div>
 
 
@@ -600,151 +745,6 @@ Chabtan - The Kiss Of Coatlicue (2015) [MP3|320 кб/с]<Melodic Death Metal, De
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA7E10F5923B95F238F0B7A93502A059C94E60ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911351   (616324) от 23.06.2015
-
-Tikahiri - Son of Sun (2015) [MP3|320 кб/с]<Hard Rock, Rock-n-Roll>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mars
-02. I Will
-03. V8 Car
-04. Chalala to Me(   Читать дальше...   )Жанр: Hard Rock, Rock-n-RollПродолжительность: 00:44:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:997E606EA495CEF6A1D1E6D779C2A01D975CC322
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911357   (616319) от 23.06.2015
-
-Estrella - We Will Go On (2015) [MP3|320 кб/с]<Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here I Am
-02. Wheels Keep Turning
-03. We Will Go On
-04. This Heaven(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80CBAFD8A3154AD4BDA9DD612565D95B75A0CDD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911361   (616315) от 23.06.2015
-
-ZamTrip - King's Game (2015) [MP3|320 кб/с]<Hard Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. King's Game
-02. Back Seat Love Song
-03. Break Me
-04. Dead Man's Story(   Читать дальше...   )Жанр: Hard Rock, Female VocalПродолжительность: 00:35:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:880AF48298B8D9BD648BB22875714E2E9460B4FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911342   (616303) от 23.06.2015
-
-The Prophets Of Addiction - Reunite The Sinners (2015) [MP3|320 кб/с]<Glam Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616303.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. As We Fall
-2. Welcome to the Show
-3. Kings and Queens
-4. Razor’s Edge(   Читать дальше...   )Жанр: Glam Hard RockПродолжительность: 00:34:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DC1073A2E58788157529A820D80CF6BB5F6FDB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146001   (616205) от 28.06.2017
-
-Elton John - Reg Strikes Back (1988) [FLAC|Lossless|image + .cue] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Town Of Plenty (3:38)
-02. A Word In Spanish (4:37)
-03. Mona Lisa And Mad Hatters (Part Two) (4:11)
-04. I Don't Wanna Go On With You Like That (4:33)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D663647DE883530B424ADA5C1CAC99C55E626736
 ```
 
 https://mybot314.ru/tekegram_catalog/

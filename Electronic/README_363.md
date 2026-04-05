@@ -1,3 +1,119 @@
+###  Публикация: 1261382   (301083) от 12.11.2018
+
+Koan - Insidious (2018) [MP3|320 Kbps] <Electronic, Downtempo, Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awakening (Koan Remix) (9:20)
+02. She Doesn't Know to Be Asleep (8:21)
+03. When She Will Recognize Him (7:46)
+04. Memaloose Island (8:27)(   Читать дальше...   )Жанр: Electronic, Downtempo, AmbientПродолжительность: 02:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:888FBB363CF67A6F80C9F50620FDC05870EAD910
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960961   (300926) от 01.12.2015
+
+C.C. Catch - Super 20 (1989) [FLAC|tracks+.cue]<Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summer Kisses (3:51)
+02. Soul Survivor (3:25)
+03. Cause You Are Young (3:30)
+04. Heaven And Hell (3:43)(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:66:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8350A9E78320C331D998607F091FBD5AA3E779A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078445   (300868) от 01.12.2016
+
+VA - Chill The Stress Away Vol. 2 (2016) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andre Kornev - Relaxia (09:11)
+02. Airy Fizz - Sunny Brook (04:03)
+03. Red Richards - Wishing Well (06:49)
+04. Davstr3k - In the Afternoon (08:20)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 04:06:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FB229816DAA241E9D936E52B5D69D2348303ECF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078696   (300861) от 01.12.2016
+
+VA - Lime and Chill: Cocktail Bar Chillout (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maremare - That Beach Is Mine 6:09
+02. Don Gorda Project - Dedicado 5:21
+03. Enrico Donner - Sexy State of Mind 5:37
+04. Dr. Diver - Selfishness 5:20(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:35:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D84BE282D8F002988D3F1F56EF1DAD3BCCF14471
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078198   (300859) от 01.12.2016
 
 VA - Bedtime Zone: The Best Chillout Music To End The Day (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -6,7 +122,7 @@ VA - Bedtime Zone: The Best Chillout Music To End The Day (2016) [MP3|320 Kbps] 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300859.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Chill Out Train (Smooth Lounge And Ambient Music) (2016) [MP3|320 Kbps] <Do
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300704.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Synthesis - 3 Albums (2005-2017) [MP3|320 Kbps] <Electronic, Synth-pop, Spacesyn
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300355.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Laserdance - Trans Space Express (2018) [MP3|320 Kbps] <Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300353.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Ana Roxanne - Because Of A Flower (2020) Kranky [FLAC|Lossless|WEB-DL|tracks] <A
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299797.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Steyoyoke Paradigm, Vol. 01-08 (2017-2020) Steyoyoke Recordings [FLAC|Lossl
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299790.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Treeboga - Circle of Unity (2020) Merkaba Music [FLAC|Lossless|WEB-DL|tracks] <T
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299789.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Injazero Records - Label-Pack 22 releases (2015-2020) [FLAC|Lossless|WEB-DL|trac
 >>Label-Packs
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299644.jpg" />
 </div>
 
 
@@ -235,7 +351,7 @@ KOAN Sound x Culprate x Asa x Gemini x Reso x Sorrow x Opiuo - The Movember Coll
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299541.jpg" />
 </div>
 
 
@@ -264,7 +380,7 @@ Ascent - Deep Blue Sea (2020) Altar Records [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299537.jpg" />
 </div>
 
 
@@ -293,7 +409,7 @@ tokee | Anatoly Grinberg - Discography 20 Releases (2009-2020) DOPE, Raumklang M
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299520.jpg" />
 </div>
 
 
@@ -322,7 +438,7 @@ VA - This Is Chill Out (20 Chill Out, Lounge For Relaxing) (2017) [MP3|320 Kbps]
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299435.jpg" />
 </div>
 
 
@@ -351,7 +467,7 @@ VA - Chilling Process Vol.04 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299434.jpg" />
 </div>
 
 
@@ -380,7 +496,7 @@ Unknown Reality - Discography 51 Releases (2013-2020) [FLAC|Lossless|WEB-DL|trac
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299092.jpg" />
 </div>
 
 
@@ -406,7 +522,7 @@ Kruder & Dorfmeister - Discography 18 Releases (1993-2020) Studio !K7, G-Stone [
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299074.jpg" />
 </div>
 
 
@@ -435,7 +551,7 @@ VA - Winter Wonderland Lounge, Vol. 1 - Music for the Most Romantic Season (2012
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298923.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Scatman John - Take Your Time (1999) [FLAC|tracks+.cue]<Euro House, Jazzdance, D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298912.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ F-Act - Detuned World (2018) Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298875.jpg" />
 </div>
 
 
@@ -526,7 +642,7 @@ Lane 8 - Little by Little (Remixed) (2018) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298867.jpg" />
 </div>
 
 
@@ -555,7 +671,7 @@ Yotto - Hyperfall (Remixed) (2019) Anjunadeep [FLAC|Lossless|WEB-DL|tracks] <Pro
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298844.jpg" />
 </div>
 
 
@@ -584,7 +700,7 @@ VA - Abora 200 Timeless Favorites (Mixed By Ori Uplift) (2019) [MP3|320 Kbps] <U
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298831.jpg" />
 </div>
 
 
@@ -613,7 +729,7 @@ VA - Interchill Records presents: Compilations Collection - 25 Releases (1997-20
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298829.jpg" />
 </div>
 
 
@@ -627,122 +743,6 @@ VA - Interchill Records presents: Compilations Collection - 25 Releases (1997-20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9206E509BD8F0BC0EBA46EB01A93A1D7A9116F69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184725   (298787) от 18.11.2017
-
-En:peg Digital (Enpeg) - Label-Pack (a digital division of n5MD) (2004-2017) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Experimental, Downtempo, Abstract, Leftfield, Glitch>
-
->>Electronic
->>Label-Packs
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Obvious (03:08)
- 02. Honesty, Please! (03:18)
- 03. Meet by the Dock (04:18)
- 04. On Thursdays (04:28)(   Читать дальше...   )Тип издания: WEBЖанр: IDM/AmbientПродолжительность: 00:18:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1E9FCB9803A55A70FA349D0A3A226DBA83C9C48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261352   (298767) от 13.11.2018
-
-VA - There Is Soul In My House - Purple Music All Stars Vol.17 (2018) [MP3|320 Kbps] <Funky, Soulful, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jamie Lewis - Cookys 11 (The Divas Talk) (07:45)
-02. Karl8 - Higher (Karl8 & Andrea Monta Mix) (05:04)
-03. Marc Cotterell - Give Me Strength (07:15)
-04. Alex Ander - I'll Be There (Jamie Lewis Re-Styled Mix) (09:40)(   Читать дальше...   )Жанр: Funky, Soulful, HouseПродолжительность: 02:22:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8058825873754650E49FD596BDBDD50B0F898E99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261970   (298766) от 13.11.2018
-
-VA - Ori Uplift - Uplifting Only 300 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2013 TOTY #2: Kelly Andrew - The Incursion (Epic Orchestral Trance Mix)
-02. 2013 TOTY #2: Sergey Nevone & Simon O'Shine - Apprehension
-03. 2013 TOTY #1: SoundLift - Freedom
-04. 2017 TOP VOCAL #1: RAM & Arctic Moon with Stine Grove - A Billion Stars Above(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:59:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEB4DAEFB0FBCD2BCF9A45EE36C0B4349925FC85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261972   (298760) от 13.11.2018
-
-VA - 1​+​1​=​X (2018) Erased Tapes Records [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Contemporary, Tech House, Minimal>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Qasim Naqvi – Brutal Moderna (04:19)
-02. A Winged Victory For The Sullen – Long May It Sustain (04:20)
-03. Rival Consoles – Ritual Song (05:10)
-04. Nils Frahm – Frau Dehlholm (03:06)(   Читать дальше...   )Жанр: Modern Classical, Contemporary, Tech House, MinimalПродолжительность: 01:48:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E87DDAE03CDE15878C53E1B74BEC7888E6C8142
 ```
 
 https://mybot314.ru/tekegram_catalog/

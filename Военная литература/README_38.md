@@ -1,136 +1,3 @@
-###  Публикация: 708671   (428757) от 09.10.2013
-
-Главное Артиллерийское Управление Красной Армии | Японский ручной пулемет обр. 1922 г. (1942) [DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая Памятка по обращению с японским ручным пулеметом обр. 1922 г (Тип 11) предназначена для изучения устройства материальной части и правил боевой эксплуатации.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79D57421FC4106A5C2A364EFFCEAC6942031C15E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164511   (428145) от 15.09.2017
-
-Книжная серия | «Вся правда о войне» [6 книг] (2013-2015) [FB2, EPUB]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428145.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Вся правда о войне» - документальные книги о Великой Отечественной войне.
-В книгах критически рассматриваются некоторые устойчивые мифы, вошедшие не только в мемуарную, но и в современную научную литературу.Жанр: Военная историяФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F70905034697AB278E98162BBD09671CCD8F672B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164465   (428009) от 15.09.2017
-
-Книжная серия | «Военные тайны ХХ века» [141 книга] (1999-2016) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428009.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Военные тайны ХХ века» - лучшая военная серия издательского дома «Вече», отражает все грани военных конфликтов жестокого и кровавого ХХ века.
-Основное место в серии занимают книги, посвященные Первой мировой и Великой Отечественной войне.
-Серия  объединяет документально-художественную литературу о военных тайнах, секретах, загадках.Жанр: Военная историяФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2128F2613CC9352C3DC45B4A35A2ACB840EE8D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324249   (427336) от 08.09.2019
-
-Алексей Волынец | Деревянные пушки Китая. Россия и Китай – между союзом и конфликтом  (2017) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чем «опиумные войны» англичан в Поднебесной были похожи на Крымскую войну? Почему русские без единого выстрела вернулись на потерянный Амур и отчего за Приморье пришлось сражаться не с китайцами, а с Англией? Зачем русские гвардейцы учили маньчжурских солдат и почему китайские «казаки» Синьцзяна съели русских пленных? Как Китай влиял на постройку Транссиба и Владивостокской (   Читать дальше...   )Жанр: Военное дело, Документальная литература, ИсторияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97AD78F6C81107EDE914505D3EAB8F1A447A51ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946308   (427303) от 13.10.2015
-
-Геннадий Лукьянов | Накануне 22 июня. Был ли готов Советский Союз к войне? (2015) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Г. В. Лукьянова посвящена анализу ситуации, сложившейся накануне 22 июня 1941 г., пониманию нацистской верхушкой характера предстоящей войны и оценке тех мер, которые были предприняты советскими руководителями на основании имеющейся у них обширной военно-политической информации по подготовке к фашистской агрессии. Значительное внимание автор уделяет вопросам (   Читать дальше...   )Жанр: ИсторияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D546033D225236C39C6C0A030474A0EEAAFA4BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1250181   (426757) от 27.09.2018
 
 Книжная серия | Спецназ. Вежливые люди [8 книг] (2014-2015) [FB2]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426757.jpg" />
 </div>
 
 
@@ -167,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426283.jpg" />
 </div>
 
 
@@ -194,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425067.jpg" />
 </div>
 
 
@@ -221,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424654.jpg" />
 </div>
 
 
@@ -247,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424440.jpg" />
 </div>
 
 
@@ -274,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424271.jpg" />
 </div>
 
 
@@ -302,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424095.jpg" />
 </div>
 
 
@@ -328,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_424000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_424000.jpg" />
 </div>
 
 
@@ -358,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423908.jpg" />
 </div>
 
 
@@ -384,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423790.jpg" />
 </div>
 
 
@@ -410,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423122.jpg" />
 </div>
 
 
@@ -436,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_421882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_421882.jpg" />
 </div>
 
 
@@ -471,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_421881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_421881.jpg" />
 </div>
 
 
@@ -497,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419606.jpg" />
 </div>
 
 
@@ -523,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419215.jpg" />
 </div>
 
 
@@ -550,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418255.jpg" />
 </div>
 
 
@@ -576,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417909.jpg" />
 </div>
 
 
@@ -602,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417906.jpg" />
 </div>
 
 
@@ -628,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_417390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_417390.jpg" />
 </div>
 
 
@@ -655,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417353.jpg" />
 </div>
 
 
@@ -681,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415832.jpg" />
 </div>
 
 
@@ -694,6 +561,141 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FBC15B41C094C6A4E8FBCD8C59E17914EC384C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412636   (415462) от 30.09.2020
+
+Книжная серия | История казачества [28 книг] (2006-2014) [PDF, DJVU, FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия «История казачества» расскажет читателям о жизни российского казачества. Авторами книг являются известные казачьи историки-эмигранты и наши современники. Каждая книга серии — увлекательный рассказ о подвигах и героях казачества, о быте и традициях Тихого Дона, Вольной Кубани, Грозного Терека и других казачьих областей.Жанр: История, Военная историяФормат: PDF, DJVU, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE890E7DE7DC2A0BCA6772DB20F4935BE1CA2B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 558666   (414401) от 10.10.2012
+
+М.Морозов, К.Кулагин | «Щуки». Легенды Советского подводного флота [2008] [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подводные лодки типа «Щ», или «щуки», как называли их моряки, были самыми многочисленными представителями класса средних субмарин РККФ в 1930-е годы. Именно они вынесли на себе основную тяжесть борьбы на морских коммуникациях в первые годы Великой Отечественной войны. И именно они, несмотря на свою весьма далекую до совершенства конструкцию, стали самыми результативными подлодками нашего флота.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:999F78D382F96968E4BC1A6B6E801D512A20C114
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948272   (413634) от 19.10.2015
+
+Андрей Паршев, Виктор Степаков | Не там и не тогда. Когда началась и где закончилась Вторая мировая? (2015) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Принято считать, что Вторая мировая война началась с нападения Германии на Польшу 1 сентября 1939 года, а закончилась 2 сентября 1945 после сокрушительного поражения японской армии.
+
+Так написано во всех учебниках истории, так говорится в исторических справочниках и Википедии. Но как все было на самом деле?
+(   Читать дальше...   )Жанр: Военное дело, история войнФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8749EEE16C45EBA4AB74E61ED6C40CC2B869F1EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301783   (413154) от 01.10.2020
+
+Книжная серия | Военные тайны XX века [197 книг] (1999-2019) [FB2, PDF, DJVU]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413154.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Военные тайны XX века" - серия документально-публицистических книг, рассказывающих о наиболее загадочных и драматических событиях и явлениях бурного XX века. В рамках серии публикуются мемуары, исторические исследования и сборники очерков, авторами которых являются писатели и политики, журналисты и военные.
+
+Главная задача серии - освещение таких тем и (   Читать дальше...   )Жанр: История, Военная историяФормат: FB2, PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:906713DC0EDCBA0A0433CADA4445226AE9757A7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168033   (412466) от 22.09.2017
+
+Виталий Правдивцев | Тайные технологии. Биосферное и геосферное оружие. Книга 1 (2012) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412466.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возможности ионосферного (и климатического) оружия колоссальны и превосходят все, что создано человечеством до сих пор в области вооружений. Им можно поражать целые страны и континенты, воздействовать на глобальную экономику, геологические (тектонические) процессы и даже на человеческий разум. Оно требует от ученых разработки принципиально новых средств защиты и (   Читать дальше...   )Жанр: Военное дело. ОружиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEA6BB214AD1A1D8C7292F45932D7B571F9817D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

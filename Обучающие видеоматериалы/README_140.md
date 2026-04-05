@@ -1,3 +1,31 @@
+###  Публикация: 935617   (498177) от 09.09.2015
+
+Ольга Меньшикова | Стильная фотосессия (2015) PCRec [H.264]
+
+>>Обучающие видеоматериалы
+>>Фотография и Видео (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основные секреты создания стильных фотосессий и анализ работ известных западных фотографов, стильной фотографии.
+
+На курсе поэтапно раскрываются основные секреты каждого шага фотосессии от разработки концепции, раскадровки, кастинга, света и композиции до роли цвета, линии и фактуры в кадре. Принципы построения фотосессии от концепции до раскадровки и воплощения. (   Читать дальше...   )Жанр: ФотоПродолжительность: 4:10:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5A0565AE4DA1A3B34014B5D206DA8DF1E866B6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564997   (497423) от 21.07.2022
 
 Stellar Works | Game Ready Ar-15 Weapon Course (2021) PCRec [EN]
@@ -6,7 +34,7 @@ Stellar Works | Game Ready Ar-15 Weapon Course (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497423.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497153.jpg" />
 </div>
 
 
@@ -61,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496869.jpg" />
 </div>
 
 
@@ -91,7 +119,7 @@ EC-Council, Bred W. Beatty | The Computer Hacking Forensic Investigator (CHFI) (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496564.jpg" />
 </div>
 
 
@@ -117,7 +145,7 @@ GoFingerstyle, Максим Ярушкин | Блюз на акустике (202
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496481.jpg" />
 </div>
 
 
@@ -146,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496038.jpg" />
 </div>
 
 
@@ -175,7 +203,7 @@ Pluralsight.com | Python Fundamentals (2013) PCRec [H.264] [RU/EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495359.jpg" />
 </div>
 
 
@@ -203,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495341.jpg" />
 </div>
 
 
@@ -229,7 +257,7 @@ Simon Payne | Creature Creators Handbook Volume 2 Part A-B (2012) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495168.jpg" />
 </div>
 
 
@@ -255,7 +283,7 @@ Simon Payne | Creature Creators Handbook Volume 2 Part D (2012) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495058.jpg" />
 </div>
 
 
@@ -281,7 +309,7 @@ PiterPy | Конференция PiterPy Online (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494919.jpg" />
 </div>
 
 
@@ -310,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494717.jpg" />
 </div>
 
 
@@ -338,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494629.jpg" />
 </div>
 
 
@@ -364,7 +392,7 @@ Epic Games, Sjoerd de Jong | Post Processing Essentials (2018) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494562.jpg" />
 </div>
 
 
@@ -390,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493614.jpg" />
 </div>
 
 
@@ -419,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493604.jpg" />
 </div>
 
 
@@ -448,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492864.jpg" />
 </div>
 
 
@@ -475,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492785.jpg" />
 </div>
 
 
@@ -501,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492778.jpg" />
 </div>
 
 
@@ -528,7 +556,7 @@ Epic Games, Zak Parrish | UE4 Performance and Profiling (2017) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492321.jpg" />
 </div>
 
 
@@ -554,7 +582,7 @@ Fireship.io | Firestore Security Course (2020) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492315.jpg" />
 </div>
 
 
@@ -583,7 +611,7 @@ Fireship.io | Firestore Data Modeling Course (2019) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492310.jpg" />
 </div>
 
 
@@ -609,7 +637,7 @@ CG Forge, Tyler Bay | Quaternions & Matrices (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492195.jpg" />
 </div>
 
 
@@ -635,7 +663,7 @@ Anthony DiLuglio | The Art of Strength (2006) DVDRip [H.264/1080p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492071.jpg" />
 </div>
 
 
@@ -662,7 +690,7 @@ KNP University | Подборка курсов KNP University (2010-2018) PCRec 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491096.jpg" />
 </div>
 
 
@@ -673,35 +701,6 @@ KNP University | Подборка курсов KNP University (2010-2018) PCRec 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5F5DEE14BF688C4CE510B751804CBA6B251BF57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404738   (491018) от 26.08.2020
-
-Beyond Code | Настольные приложения с Electron / Desktop apps with Electron (2020) PCRec [En]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Узнайте, как создавать, публиковать и распространять настольные приложения с помощью HTML, JavaScript и CSS.
-Создавайте настольные приложения с помощью веб-технологий.
-Этот курс научит вас использовать имеющиеся у вас знания об инструментах, таких как VueJS, React, TailwindCSS и NodeJS, для создания кроссплатформенных настольных приложений.
-Даже если вы новичок, (   Читать дальше...   )Жанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 03:14:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A53A8308454D74F31EE6DC2DDF6C03D28A4AA13A
 ```
 
 https://mybot314.ru/tekegram_catalog/

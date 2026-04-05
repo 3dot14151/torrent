@@ -1,3 +1,119 @@
+###  Публикация: 1422939   (306156) от 10.11.2020
+
+Shakti - Psychedelic Experience (2016) [MP3|320 Kbps] <Psychedelic Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brightlight - What Are You Looking For (8:15)
+02. Dr Hoffman - My Problem Child (6:01)
+03. Ganesha - Waiting For The Sun (6:20)
+04. Ganesha - Space love (5:22)(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 01:05:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18104D4889F6AC938112BF6449BD57BD8FCCBD84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422894   (306139) от 10.11.2020
+
+Workout Music Tv - Pilates & Yoga 2020 Session [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here Waiting - Pilates Version 90 Bpm (4:00)
+02. I'll Be Over You - Pilates Version 90 Bpm (3:36)
+03. Perfect - Pilates Version 90 Bpm (4:36)
+04. In The Air Tonight - Pilates Version 90 Bpm (4:02)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:59:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C30ED1C2ADC889D3FEE5E04E459A6242E5032CE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261298   (305657) от 10.11.2018
+
+VA - Markus Schulz & Fisherman - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Markus Schulz:
+01. Markus Schulz featuring Nikki Flores - We Are the Light (Live from Transmission in Prague)
+02. Yoel Lewis - Commando (World Premiere)
+03. Somna featuring Michele C - Love Your Scars Away (Dave Neven Remix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:00:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6A697AC1B688BD75ABB0C07D9A90BA3D9749199
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261201   (305647) от 10.11.2018
+
+VA - 50 Ultimate House Tracks: Workout Edition (2018) [MP3|320 Kbps] <House, Funky, Groove, Future-House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rinaldo Montezz & Pepper Mashay - Radioactive (Radio Edit)
+02. Alexdoparis - House Beat (Radio Mix)
+03. Grande Vue - Work Your Body 2.15 (Radio Mix)
+04. DJ Ricky da Dragon - How 2 Love U (Grande Vue Radio Mix) (feat. Fatty Blanco)(   Читать дальше...   )Жанр: House, Funky, Groove, Future-HouseПродолжительность: 04:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33A1C51D8B254380A06E199762A4B0EA72842E05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261383   (305641) от 10.11.2018
 
 Havantepe - Robo Owl EP (2018) Luck Of Access [FLAC|Lossless|tracks|Vinyl] <Deep House, Electro>
@@ -6,7 +122,7 @@ Havantepe - Robo Owl EP (2018) Luck Of Access [FLAC|Lossless|tracks|Vinyl] <Deep
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305641.jpg" />
 </div>
 
 
@@ -34,7 +150,7 @@ VA - Pure Chill & Ambient Vol.02 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305630.jpg" />
 </div>
 
 
@@ -63,7 +179,7 @@ VA - ọrun VA004 (orun VA004) (2019) End Of Perception [FLAC|Lossless|WEB-DL|tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305616.jpg" />
 </div>
 
 
@@ -92,7 +208,7 @@ Pavel Khvaleev feat Lia - Losing Battles (2018) [FLAC|Lossless|WEB-DL|tracks] <T
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305577.jpg" />
 </div>
 
 
@@ -119,7 +235,7 @@ VA - A State Of Trance Classics Vol.13 (The Full Unmixed Versions)(2018) [MP3|32
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305570.jpg" />
 </div>
 
 
@@ -148,7 +264,7 @@ VA - Chilling Process Vol.03 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305537.jpg" />
 </div>
 
 
@@ -177,7 +293,7 @@ Those Attractive Magnets - ElectroMagnetic Pulse (2010) LP, Compilation, Limited
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305532.jpg" />
 </div>
 
 
@@ -206,7 +322,7 @@ Lemna - Retrocausality: A Posteriori (2019) Horo [FLAC|Lossless|WEB-DL|tracks] <
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305526.jpg" />
 </div>
 
 
@@ -235,7 +351,7 @@ Fourtimeszero - Shaping Lifeforms (2019) Natural Expressions [FLAC|Lossless|Cass
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305525.jpg" />
 </div>
 
 
@@ -264,7 +380,7 @@ VA - Future City Records Compilation Vol. II (2013) [FLAC|Lossless|WEB-DL|tracks
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305520.jpg" />
 </div>
 
 
@@ -293,7 +409,7 @@ VA - Future Waves Vol. II (2017) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Retrow
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305518.jpg" />
 </div>
 
 
@@ -322,7 +438,7 @@ VA - Future City Records Compilation Vol. III (2013) [FLAC|Lossless|WEB-DL|track
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305517.jpg" />
 </div>
 
 
@@ -351,7 +467,7 @@ VA - Future City Records Compilation Vol. V (2014) [FLAC|Lossless|WEB-DL|tracks]
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305516.jpg" />
 </div>
 
 
@@ -380,7 +496,7 @@ VA - Future City Records Compilation Vol. VII (2015) [FLAC|Lossless|WEB-DL|track
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305512.jpg" />
 </div>
 
 
@@ -409,7 +525,7 @@ VA - Future City Records Compilation Vol. VIII (2015) [FLAC|Lossless|WEB-DL|trac
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305510.jpg" />
 </div>
 
 
@@ -438,7 +554,7 @@ VA - Richard Durand - The Air We Breathe (2018) [FLAC|Lossless|WEB-DL|tracks] <T
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305450.jpg" />
 </div>
 
 
@@ -467,7 +583,7 @@ Music Instructor - Electric City (Maxi-Single) (1999) [FLAC|tracks+.cue]<House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305447.jpg" />
 </div>
 
 
@@ -496,7 +612,7 @@ VA - Future City Records Compilation Vol. VI (2014) [FLAC|Lossless|WEB-DL|tracks
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305405.jpg" />
 </div>
 
 
@@ -525,7 +641,7 @@ VA - Future City Records Compilation Vol. IV (2013) [FLAC|Lossless|WEB-DL|tracks
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305404.jpg" />
 </div>
 
 
@@ -554,7 +670,7 @@ VA - Future City Records Compilation Vol. IX (2015) [FLAC|Lossless|WEB-DL|tracks
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305402.jpg" />
 </div>
 
 
@@ -583,7 +699,7 @@ VA - Future City Records Compilation Vol. X (2016) [FLAC|Lossless|WEB-DL|tracks]
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305401.jpg" />
 </div>
 
 
@@ -612,7 +728,7 @@ Floating Points - Crush (2019) [FLAC|Lossless|tracks + .cue] <Ambient, Breaks, I
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305399.jpg" />
 </div>
 
 
@@ -626,122 +742,6 @@ Floating Points - Crush (2019) [FLAC|Lossless|tracks + .cue] <Ambient, Breaks, I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FE0416371ACBFF79F3BB3C04B0B25DB43DF44D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333197   (305397) от 24.10.2019
-
-Satellite & Atom Cristal - Satellite & Atom Cristal (1983) [MP3|320 Kbps] <Electronic, Electro, Synth-pop, Ambient>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Discotillons (4:39)
-02. Boulevard Circulaire (4:20)
-03. Le Manoir Du Chat Noir (3:01)
-04. 15 Aout A Puteaux (2:45)(   Читать дальше...   )Жанр: Electronic, Electro, Synth-pop, AmbientПродолжительность: 00:42:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CC6F02C767FF6A58E5E509B68C8E540905CAA06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077830   (305113) от 29.11.2016
-
-VA - Amsterdam Chillout Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrea Castello - Stint - Chillout Extended Mix (05:51)
-02. Taylor Befun - Temptation Crises (03:33)
-03. Flight74 - Piano Relaxation (03:17)
-04. Angelic Wellness Spirit - Essences (03:47)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:19:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24E07E6C2E731B400376DA365A4A73C32121C2CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077556   (305109) от 29.11.2016
-
-VA - Entspannst Du Dich Vol.2: Beautiful Chill Out Selection (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Placid Larry - Memories of Us 4:28
-02. Alex Cortiz - Room 505 5:56
-03. Marcus Koch - Summerland 5:11
-04. Solar Kid - The Daydreamer 5:44(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:19:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9025933788A8E4B690E5F05F3DD8387B78FA122
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077865   (305104) от 29.11.2016
-
-VA - Deep into the Vibe Vol.6 (2016) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. PulpTalks - After so Long 3:49
-02. Juanma Llopis - Maoh 8:09
-03. Lorenzo Navarro - People On Top (Black Loops Remix) 6:21
-04. Stemi - Piano S 6:56(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:13:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8B5B818369ECD6B6D79724DC10107AA74A80978
 ```
 
 https://mybot314.ru/tekegram_catalog/

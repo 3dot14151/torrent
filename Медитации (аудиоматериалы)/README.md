@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1862576   (1063319) от 
+
+Колин Мёрфи | Как мы стареем (2026) [MP3, Нона Трояновская]
+
+>>Обучающие аудиоматериалы
+>>Медитации (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063319.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире, одержимом идеей вечной молодости, биолог Колин Мёрфи предлагает честный и реалистичный взгляд на науку о старении. Без розовых очков и спекуляций она рассказывает, какие механизмы лежат в основе процесса, куда движутся исследования и как отличить научно обоснованные практики от научно-фантастических обещаний, сохраняя здоровый оптимизм. Наше информационное (   Читать дальше...   )Жанр: Биологические исследования, Биология и химия, ГеронтологияИздательство: CorpusПродолжительность: 20:22:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D27D59AF0AB34DD6F2CDC63A5C24966AF65232C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860886   (1062223) от 
 
 Мария Панова | Эпилепсия – оставаться в сознании. Истории о том, какой разной бывает болезнь (2025) [MP3, Ирина Левчук]
@@ -7,7 +33,7 @@ https://t.me/izofen
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062223.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055573.jpg" />
 </div>
 
 
@@ -64,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055396.jpg" />
 </div>
 
 
@@ -90,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048946.jpg" />
 </div>
 
 
@@ -117,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048924.jpg" />
 </div>
 
 
@@ -143,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046672.jpg" />
 </div>
 
 
@@ -170,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043127.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042835.jpg" />
 </div>
 
 
@@ -224,7 +250,7 @@ Kelly Howell | Brain Sync - Повышенное сосредоточение (H
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938191.jpg" />
 </div>
 
 
@@ -253,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866864.jpg" />
 </div>
 
 
@@ -279,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849719.jpg" />
 </div>
 
 
@@ -305,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849577.jpg" />
 </div>
 
 
@@ -331,7 +357,7 @@ Nikosho | Сеанс обучающей релаксации (2001) [FLAC]
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847913.jpg" />
 </div>
 
 
@@ -359,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835637.jpg" />
 </div>
 
 
@@ -385,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832620.jpg" />
 </div>
 
 
@@ -411,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811048.jpg" />
 </div>
 
 
@@ -437,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794277.jpg" />
 </div>
 
 
@@ -463,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790614.jpg" />
 </div>
 
 
@@ -491,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_744979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_744979.jpg" />
 </div>
 
 
@@ -519,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584903.jpg" />
 </div>
 
 
@@ -545,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581691.jpg" />
 </div>
 
 
@@ -571,7 +597,7 @@ FlammenQuelle - The Moon Rabbit / Способ приведения к равн�
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579067.jpg" />
 </div>
 
 
@@ -600,7 +626,7 @@ iAwake Technologies | Цифровая эйфория специальное и�
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463870.jpg" />
 </div>
 
 
@@ -628,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427201.jpg" />
 </div>
 
 
@@ -654,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308132.jpg" />
 </div>
 
 
@@ -666,34 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10CA5DAC8B9F349A5884BC963295CCBB8DB7AECA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260550   (306734) от 09.11.2018
-
-Андрей Ракицкий | Гипноз для снижения веса по методу GSI (5 сеансов, похудение) (2018) [MP3]
-
->>Обучающие аудиоматериалы
->>Медитации (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Воздействуя на глубинные настройки работы вашего организма, мы активизируем созданные самой природой процессы интенсивного использования жировой ткани. Организм начнет работать так, как это бывает в кризисных ситуациях, связанных с вынужденным ограничением или лишением пищи. Это обеспечит быстрое и физиологичное снижение веса без эффекта его обратного набора.
-
-Каждый (   Читать дальше...   )Жанр: Гипнотическая сессияПродолжительность: 2:18:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B70D51D02A65AA1A4E3F4F688A001791759010B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

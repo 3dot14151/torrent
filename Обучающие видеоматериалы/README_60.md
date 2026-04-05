@@ -1,3 +1,30 @@
+###  Публикация: 1451650   (1002710) от 08.08.2021
+
+Podlodka Crew | Podlodka iOS Crew [Сезон 1-5] (2020-2021) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002710.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Podlodka iOS Crew. Сезон 1. "Архитектура" и "Инженерные практики"
+32 часа сессий на темы "Архитектура" и "Инженерные практики". Двухнедельное мероприятие от команды Podlodka: ежедневные интерактивные сессии в Zoom по актуальным вопросам QA-индустрии, нон-стоп общение с экспертами и звёздами индустрии.Производство: Podlodka iOS CrewЖанр: ПрограммированиеПродолжительность: 146:33:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:104071A751B0542B36FAADAA5D636C6B37D0EBFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1488052   (1002487) от 09.08.2021
 
 Daniel Krafft | 200+ Helpful Blender 3D Hacks in Under 1 Hour (2020) PCRec [RU, EN]
@@ -6,7 +33,7 @@ Daniel Krafft | 200+ Helpful Blender 3D Hacks in Under 1 Hour (2020) PCRec [RU, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002487.jpg" />
 </div>
 
 
@@ -34,7 +61,7 @@ RealLife English | Английский по сериалу «Друзья» / F
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002441.jpg" />
 </div>
 
 
@@ -62,7 +89,7 @@ Gumroad, Yu Cheng Hong | Armour tutorial (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002279.jpg" />
 </div>
 
 
@@ -91,7 +118,7 @@ Agesandra, Александра Попова | Большой вокальный
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002237.jpg" />
 </div>
 
 
@@ -120,7 +147,7 @@ Schoolism, Alex Woo | Gesture Drawing (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002214.jpg" />
 </div>
 
 
@@ -147,7 +174,7 @@ ArtNest, Вера Величко | Игровой арт (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002206.jpg" />
 </div>
 
 
@@ -173,7 +200,7 @@ Stepik, Алексей Голобурдин | Основы компьютерн�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002195.jpg" />
 </div>
 
 
@@ -202,7 +229,7 @@ Udemy.com | Adobe Illustrator Advanced Vector Artwork (2019) PCRec [H.264/720p-L
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002131.jpg" />
 </div>
 
 
@@ -228,7 +255,7 @@ Hourences.com, Sjoerd De Jong | The Solus project: Level Introduction (2014) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002031.jpg" />
 </div>
 
 
@@ -254,7 +281,7 @@ Hourences.com, Sjoerd De Jong | The Solus Project: Blueprint Introduction (2014)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002029.jpg" />
 </div>
 
 
@@ -282,7 +309,7 @@ MP4FM, Garrett Fry | Camera Projection Boot Camp Part 2 (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002020.jpg" />
 </div>
 
 
@@ -308,7 +335,7 @@ Udemy, Helen Kapatsa | Ускоренный курс PyTorch (2021) PCRec [AD]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001977.jpg" />
 </div>
 
 
@@ -334,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001976.jpg" />
 </div>
 
 
@@ -361,7 +388,7 @@ Proko, Stan Prokopenko | Anatomy of the Human Body: Legs (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001973.jpg" />
 </div>
 
 
@@ -387,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001972.jpg" />
 </div>
 
 
@@ -415,7 +442,7 @@ Udemy, Andrei Dumitrescu, Crystal Mind Academy | Master Python Programming: The 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001935.jpg" />
 </div>
 
 
@@ -442,7 +469,7 @@ ITVDN, Евгений Мыца | Android User Interface (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001698.jpg" />
 </div>
 
 
@@ -470,7 +497,7 @@ Udemy, Pete Jepson | Blender Cyberpunk in Unity HDRP (2020) PCRec [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001697.jpg" />
 </div>
 
 
@@ -497,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001673.jpg" />
 </div>
 
 
@@ -526,7 +553,7 @@ Side FX, Marc Tucker | Houdini 15 Masterclass Material Stylesheets (2016) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001439.jpg" />
 </div>
 
 
@@ -554,7 +581,7 @@ Side FX, Jeff Wagner | Houdini 15 Masterclass Loops (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001436.jpg" />
 </div>
 
 
@@ -580,7 +607,7 @@ CG Academy, Borislav Petrov “Bobo” | MaxScript Fundamentalis 1-2 Advanced (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001431.jpg" />
 </div>
 
 
@@ -606,7 +633,7 @@ Side FX, Andreas Glad | Flowmaps Houdini for games (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001430.jpg" />
 </div>
 
 
@@ -632,7 +659,7 @@ Side FX, Andreas Glad | Curvesweeper Houdini for games (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001426.jpg" />
 </div>
 
 
@@ -658,7 +685,7 @@ Side FX, Jeff Wagner | Geometry Workflows in Houdini 16 (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001423.jpg" />
 </div>
 
 
@@ -672,32 +699,6 @@ Side FX, Jeff Wagner | Geometry Workflows in Houdini 16 (2017) PCRec [En, Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E8AC5441E9F05670FF507ACC1C4775B90BA41E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488758   (1001422) от 13.08.2021
-
-Side FX, Kai Stavginski | Houdini 16.5 Masterclass Fur & Hair Grooming Toolset (2017) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот мастер-класc покажет вам новые функции управления поведением волос и шерсти в Houdini 16.5. Сначала я покажу функции по отдельности, а затем использую их все вместе на примере проекта с мокрой шерстью. Шерсть будет вести себя в соответствии со скоростью из FLIP симуляции. Также вы увидите работу со связыванием атрибутов в симуляции и изменения генерации шерсти (   Читать дальше...   )Производство: Side FXЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FED7E757D9BDB2076067A7969B0CF159234768F
 ```
 
 https://mybot314.ru/tekegram_catalog/

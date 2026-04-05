@@ -1,3 +1,29 @@
+###  Публикация: 795455   (689627) от 12.06.2014
+
+Спящая красавица / Sleeping Beauty (2014) BDRip [1080p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прекрасному принцу придётся сразиться с ордами бессмертных монстров и злой королевой, чтобы освободить заколдованную принцессу, спящую вечным сном.Жанр: Фэнтези, ПриключенияРежиссер: Каспер Ван ДинАктеры: Грэйс Ван Дин, Финн Джонс, Оливия д’Або, Кэтрин Оксенберг, Каспер Ван Дин, Эдвард Льюис Френч, Майя Ван Дин, Селеста Ван Дин, Клайв СойерПеревод: ОтсутствуетПродолжительность: 01:28:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45858A1B564655BC8ADCA8B32ECC676994DCEB93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 795441   (689525) от 12.06.2014
 
 Спящая красавица / Sleeping Beauty (2014) BDRip  [720p] [EN]
@@ -6,7 +32,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689525.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686670.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686310.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685959.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685545.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685528.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684575.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684359.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684358.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682643.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682591.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682053.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681763.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678738.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678443.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678311.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678306.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677776.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677570.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677549.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676187.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676113.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675647.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ Kingsman: Секретная служба / Kingsman: The Secret Service  (2014)
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675023.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674366.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B4341E6C9CB8CE7D106F5D7790FFC304CC64FC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536468   (674308) от 12.03.2022
-
-Человек-паук: Нет пути домой / Spider-Man: No Way Home (2021) BDRip [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь и репутация Питера Паркера оказываются под угрозой, поскольку Мистерио раскрыл всему миру тайну личности Человека-паука. Пытаясь исправить ситуацию, Питер обращается за помощью к Стивену Стрэнджу, но вскоре всё становится намного опаснее.Производство: США / Columbia Pictures, Marvel Studios, Pascal PicturesЖанр: фантастика, боевик, приключенияРежиссер: Джон УоттсАктеры: Том Холланд, Зендея, Мариса Томей, Бенедикт Камбербэтч, Энгаури Райс, Дж.К. Симмонс, Альфред Молина, Джейми Фокс, Мартин Старр, Джейкоб БаталонПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английские (Full, SDH)Продолжительность: 02:28:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A36987287DEF7E2728BEE84EB05A8E7FBC7907D
 ```
 
 https://mybot314.ru/tekegram_catalog/

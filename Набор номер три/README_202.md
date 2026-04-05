@@ -1,3 +1,159 @@
+###  Публикация: 1208661   (779417) от 25.02.2018
+
+Тор: Рагнарёк/ Thor: Ragnarok (2017) BDRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вернувшись в Асгард в поисках таинственного врага, ведущего охоту на Камни Бесконечности, Тор обнаруживает, что действия его брата Локи, захватившего трон Асгарда, привели к приближению наиболее страшного события — Рагнарёка. По легенде это ознаменует последнюю битву Асгарда, последствием которой станет его полное уничтожение. В попытке предотвратить это событие (   Читать дальше...   )Производство: США / Marvel Entertainment, Marvel Studios, Walt Disney PicturesЖанр: Фантастика, фэнтези, боевик, комедия, приключенияРежиссер: Тайка ВайтитиАктеры: Крис Хемсворт, Том Хиддлстон, Кейт Бланшетт, Идрис Эльба, Джефф Голдблюм, Тесса Томпсон, Карл Урбан, Марк Руффало, Энтони Хопкинс, Бенедикт КамбербэтчПеревод: Дублированный (iTunes)Субтитры: Русские, английскиеПродолжительность: 02:10:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3B91C4C7B09A31A95DA7A8C9D5B95592EBB94A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209059   (779413) от 25.02.2018
+
+7 хранителей гробницы / 7 Guardians of the Tomb (2018) WEB-DLRip [MVO] [AD]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключенческий фильм ужасов Хранители гробницы с элементами боевика был снят Китаем совместно с Российскими актерами. Сюжет фильма повествует о компании археологов, которым предстоит отправится в самое опасное место на земле. Они пытаются разыскать своего пропавшего друга и для этого спускаются в древние подземелья. Но вот вместо друга, они там находят разумный (   Читать дальше...   )Производство: Китай, Австралия, Россия, Таиланд / Nest Holdings, Sleeping Otters ProductionsЖанр: Боевик, приключения, ужасыРежиссер: Брайан О'МэллиАктеры: Бинбин Ли, Келлан Латс, У Чунь, Келси Грэммер, Стэф Доусон, Ясмин Кассим, Тим Драксл, Шэйн Джейкобсон, Райан Джонсон, Джейсон ЧонгПеревод: Любительский (многоголосый закадровый)Субтитры: ОтсутствуютПродолжительность: 01:29:02Реклама: Присутствуют вставки текстовой рекламы!
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3582450DEB86D6D99B09D25359963DB05F53E8AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208781   (779410) от 25.02.2018
+
+Windows 7 SP1 (x86/x64) 13in1 +/- Office 2016 by SmokieBlahBlah 23.02.18 [Ru/En]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779410.jpg" />
+</div>
+
+
+###  Подробнее
+
+13 редакций Windows 7 (русские и английские) с IE 11, важными и рекомендуемыми обновлениями по февраль 2018 (кроме нежелательных) и интегрированными системными библиотеками +13 таких же редакций со встроенным MS Office 2016 Pro Plus VL х86 (можно выбрать, ставить ли Office. Галочка перед началом установки, см. 1-й скриншот). Язык офиса зависит от выбранного языка (   Читать дальше...   )Язык интерфейса: Русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AE3C4149435AF111C2EBFB8D5186C72CF28425C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207835   (779409) от 25.02.2018
+
+Карп отмороженный (2017) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Елена Михайловна скромно живёт на пенсии в провинциальном городке. Неожиданно для себя она узнаёт о смертельном диагнозе, который может в любой момент оборвать её жизнь. Чтобы лишний раз не тревожить любимого, но постоянно занятого сына, работающего в большом городе бизнес-тренером, и избавить его от потенциальных забот, Елена Михайловна берет дело в свои руки и (   Читать дальше...   )Производство: Россия / ООО "КиноКластер"Жанр: Комедия, ДрамаРежиссер: Владимир КоттАктеры: Марина Неёлова, Алиса Фрейндлих, Евгений Миронов, Сергей Пускепалис, Александр Баширов, Наталья Суркова, Татьяна Рассказова, Антон Шпиньков, Артем Лещик, Анна ЕкатерининскаяПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:39:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01E66278F29DA6330BAFFEDB42FE366A70B5748B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209356   (779313) от 26.02.2018
+
+Win 10 Tweaker 7.0 Portable by XpucT [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779313.jpg" />
+</div>
+
+
+###  Подробнее
+
+Win 10 Tweaker — это небольшая, но очень мощная программа, позволяющая сделать полную оптимизацию и очистку Windows в несколько кликов. Не пускает пыль в глаза бесполезными настройками, а каждый пункт содержит подробную подсказку-описание. Любое действие выполняется без внешних модулей, средствами самой программы и возможностями Windows, поэтому антивирусы не ругаются (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5AF0D3019FB37814D79FABE066C3D1844D2FA8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209139   (779310) от 26.02.2018
+
+Легенда о Коловрате (2017) BDRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779310.jpg" />
+</div>
+
+
+###  Подробнее
+
+XIII век. Русь раздроблена и вот-вот падет на колени перед ханом Золотой Орды Батыем. Испепеляя города и заливая русские земли кровью, захватчики не встречают серьезного сопротивления, и лишь один воин бросает им вызов. Молодой рязанский витязь Евпатий Коловрат возглавляет отряд смельчаков, чтобы отомстить за свою любовь и за свою родину. Его отвага поразит даже (   Читать дальше...   )Производство: Россия / Централ ПартнершипЖанр: история, боевик, фэнтезиРежиссер: Джаник Файзиев, Иван ШурховецкийАктеры: Илья Малаков, Полина Чернышова, Алексей Серебряков, Александр Ильин мл., Игорь Савочкин, Тимофей Трибунцев, Александр Цой, Юлия Хлынина, Андрей Бурковский, Виктор ПроскуринПеревод: Не требуется (Русский, Лицензия BD GER)Субтитры: ОтсутствуютПродолжительность: 01:57:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:673F670AE7A1578306E69FF60B35978D370F0AD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207902   (779305) от 26.02.2018
 
 Вероника Полякова | Супер Illustrator (2018) PCRec
@@ -6,7 +162,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779305.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ DiRT 4 (2017) [Multi] (1.8/dlc) Repack =nemos=
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779303.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779302.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779211.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779177.jpg" />
 </div>
 
 
@@ -137,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779161.jpg" />
 </div>
 
 
@@ -163,7 +319,7 @@ Final Fantasy XV (2018) [Ru/Multi] (Build 1130472) Repack =nemos= [Windows Editi
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779158.jpg" />
 </div>
 
 
@@ -189,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779059.jpg" />
 </div>
 
 
@@ -215,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779038.jpg" />
 </div>
 
 
@@ -241,7 +397,7 @@ Nokia воскресила телефон из "Матрицы"
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779032.jpg" />
 </div>
 
 
@@ -267,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779024.jpg" />
 </div>
 
 
@@ -295,7 +451,7 @@ Tuxera NTFS 2018 [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779023.jpg" />
 </div>
 
 
@@ -321,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778922.jpg" />
 </div>
 
 
@@ -347,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778912.jpg" />
 </div>
 
 
@@ -374,7 +530,7 @@ Watch Dogs 2 (2016) [Ru/Multi] (1.017.189.2/dlc) Repack xatab [Digital Deluxe Ed
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778881.jpg" />
 </div>
 
 
@@ -400,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778879.jpg" />
 </div>
 
 
@@ -426,7 +582,7 @@ Watch Dogs 2 (2016) [Ru/Multi] (1.017.189.2/dlc) Repack =nemos= [Digital Deluxe 
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778878.jpg" />
 </div>
 
 
@@ -452,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778756.jpg" />
 </div>
 
 
@@ -478,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778743.jpg" />
 </div>
 
 
@@ -504,7 +660,7 @@ CyberGhost VPN 6.5.0.3180 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778741.jpg" />
 </div>
 
 
@@ -515,163 +671,6 @@ CyberGhost VPN позволяет просматривать веб-страни
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:009E7879F8AA36798ECB89AB615195BD26BD4A58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207806   (778739) от 02.03.2018
-
-Кровавая барыня (2017) SATRip [H.264] (сезон 1, серии 1-16 из 16)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778739.jpg" />
-</div>
-
-
-###  Подробнее
-
-XVIII век. Российская империя. Начало царствования Екатерины II.Рассказ о судьбе печально известной русской помещицы Дарьи Салтыковой, прозванной в народе «Салтычихой».«Салтычиха» вошла в историю как одна из самых жестоких убийц.Производство: Россия / киностудия "Маркес" / кинокомпания "Русское"Жанр: историяРежиссер: Егор АнашкинАктеры: Юлия Снигирь, Марта Тимофеева, Федор Лавров, Сергей Шеховцов, Александр Никольский, Николай Лунин, Марина Дианова, Александр Соколовский, Сергей Шаталов, Мария Дубина и др.Продолжительность: ~00:52:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ED25E56D7697B180A2320B9F38C34FAE1778F21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210107   (778737) от 02.03.2018
-
-AAct 3.8.5 Portable [Ru/En]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778737.jpg" />
-</div>
-
-
-###  Подробнее
-
-AAct - KMS-активатор для операционных систем Windows VL редакций: Vista, 7, 8, 8.1, 10, Server 2008, 2008 R2, 2012, 2012 R2 а также Office 2010, 2013, 2016. Возможна активация Office 2010 VL на Windows XP. Программа написана с применением оригинальных технологий и реализует другую, отличную от обычной, идеологию конструирования подобных программных средств. Программе (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2448FDB9CE4F5587541673A96977B59350AC69FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096743   (778736) от 02.03.2018
-
-Watch Dogs 2 (2016) [Ru/Multi] (1.017.189.2/dlc) Repack Other s [Digital Deluxe Edition]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Талантливый хакер Маркус объединяется с хакерской группой DedSec, чтобы противостоять системе глобального контроля ctOS 2.0, которую криминал использует, чтобы отслеживать и манипулировать жизнью горожан.Тип издания: RepackРазработчик: UbisoftЖанр: Action (Shooter), 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EE43CECD6B634D082A25F62E4051E8BE54AFE2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158210   (778733) от 02.03.2018
-
-DiRT 4 (2017) [Multi] (1.8/dlc) Repack xatab
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778733.jpg" />
-</div>
-
-
-###  Подробнее
-
-DiRT 4 игроков ожидает новый революционный режим Your Stage, в котором вы сможете создать бесконечное количество уникальных трасс, нажатием одной кнопки - достаточно выбрать локации и характеристики маршрута, и игровой движок сделает все за вас - создаст уникальный уровень по вашим параметрам.Тип издания: RepackРазработчик: CodemastersЖанр: Racing (Cars), Simulator, 3DЯзык озвучки: Английский, Немецкий и другиеЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C76E87EFA3C96B31951499ABDCDC4D6588D5910A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210267   (778732) от 02.03.2018
-
-Webformyself | PHP-Мастер. От теории до собственной CMS интернет-магазина (2018) [unpacked]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пройдите этот курс, построив собственную кастомную CMS для интернет-магазина. Вы новичок в PHP, опытный разработчик или просто интересуетесь возможностями языка? Этот курс будет полезен всем без исключения.Производство: Андрей КудлайЖанр: Программирование, PHPФормат: unpackedПродолжительность: 53:11:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E229BE2B1CDF8CFC2C2182335A9BEAD723776279
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210025   (778731) от 02.03.2018
-
-Navitel / Навител: Официальные карты релиза Q1 2018 [Ru/Multi]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пользователям Навител Навигатор доступно обновление карт все страны релиза Q1 2018.
-В карты всех стран включена жилая и промышленная инфраструктура городов и населенных пунктов с адресным поиском, подробная дорожная сеть, включающая все улицы и дороги с учетом направленности движения, развязок, кругового движения и прочей навигационно-значимой информацииПоддерживаемая ОС: Android / Windows Phone / iOS / BlackBerryЯзык интерфейса: Мульти / РусскийФормат: nm7
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75D966CDC420B914FBAC7194B4022D8C888C870A
 ```
 
 https://mybot314.ru/tekegram_catalog/

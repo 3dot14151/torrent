@@ -1,134 +1,3 @@
-###  Публикация: 588982   (148516) от 15.12.2012
-
-Д.Л. Волковский | Собрание арифметических упражнений для гимназий и реальных училищ [1907] [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Собрание арифметических упражнений для гимназий и реальных училищ. Курсы приготовительного, первого и второго классов. Одобрено в качестве учебного пособия для средних учебных заведений и рекомендовано в число обязательных пособий для кадетских корпусов.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8398F73FC874A8B79CC11DC21056FF81ABF0D60C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 739314   (148491) от 27.12.2013
-
-Е. Кабо | Питание русского рабочего до и после войны (1926) [DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Питание пролетариата в СССР после победы пролетарской революции, являясь одним из чувствительнейших показателей растущего благосостояния страны, представит, несомненно, громадный интерес для всех наших социологов и экономистов. Судя по этому показателю, наш пролетариат уже к концу 1924 года превзошел и в количественном, и в качественном отношении все довоенные нормы (   Читать дальше...   )Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BAA1EB25D615473E52611A0BF09238156E6DCD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347606   (148289) от 24.12.2019
-
-Дэвид Кристиан | Большая история. С чего все начиналось и что будет дальше (2018) [FB2]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148289.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большая история – новое исследовательское направление, в рамках которого изучается единый преемственный процесс развития Вселенной – с момента Большого взрыва до настоящего времени.
-Междисциплинарный проект The Big History Project был основан Биллом Гейтсом и Дэвидом Кристианом с целью разработки целостного курса истории космоса, Земли, жизни и человечества и преподавания (   Читать дальше...   )Жанр: Научно-популярная литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4109FB264F3640B4646EA81D0EF2367EC7A2146E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968680   (148253) от 26.12.2015
-
-А.Р. Гайдук и др. | Теория автоматического управления в примерах и задачах с решениями в Matlab (2011) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148253.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии приведены методики решения всех типов рассматриваемых примеров и задач, а также задачи для самостоятельного решения по дисциплине «Теория автоматического управления». Материал пособия охватывает следующие разделы: основные математические методы теории управления, решение дифференциальных и разностных уравнений и систем; математические модели непрерывных (   Читать дальше...   )Жанр: АвтоматикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B415C98D7350AE545B21657B29BA2B6BD5D8C8F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519504   (148231) от 24.12.2021
-
-Мерлин Шелдрейк | Запутанная жизнь. Как грибы меняют мир, наше сознание и наше будущее (2021) [FB2]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Под словом «гриб» мы обыкновенно имеем в виду плодовое тело гриба, хотя оно по сути то же, что яблоко на дереве. Большинство грибов живут тайной – подземной – жизнью, и они составляют «разношерстную» группу организмов, которая поддерживает почти все прочие живые системы. Это ключ к пониманию планеты, на которой мы живем, а также наших чувств, мыслей и поведения. (   Читать дальше...   )Жанр: Научно-популярная литератураПеревод: Ольга ОльховскаяФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95D6E87E717751FB7D0E495511320D4CB079A012
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 589611   (148170) от 15.12.2012
 
 Е. Янке, Ф. Эмде, Ф. Лёш | Специальные функции [1964] [DJVU]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148170.jpg" />
 </div>
 
 
@@ -164,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148145.jpg" />
 </div>
 
 
@@ -190,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148088.jpg" />
 </div>
 
 
@@ -219,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148049.jpg" />
 </div>
 
 
@@ -252,7 +121,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148037.jpg" />
 </div>
 
 
@@ -279,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148000.jpg" />
 </div>
 
 
@@ -305,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147985.jpg" />
 </div>
 
 
@@ -331,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147845.jpg" />
 </div>
 
 
@@ -357,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147840.jpg" />
 </div>
 
 
@@ -383,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147773.jpg" />
 </div>
 
 
@@ -409,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147732.jpg" />
 </div>
 
 
@@ -438,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147696.jpg" />
 </div>
 
 
@@ -464,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147682.jpg" />
 </div>
 
 
@@ -492,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147672.jpg" />
 </div>
 
 
@@ -519,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147669.jpg" />
 </div>
 
 
@@ -545,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147658.jpg" />
 </div>
 
 
@@ -571,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147654.jpg" />
 </div>
 
 
@@ -597,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147613.jpg" />
 </div>
 
 
@@ -623,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147597.jpg" />
 </div>
 
 
@@ -649,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147593.jpg" />
 </div>
 
 
@@ -676,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147563.jpg" />
 </div>
 
 
@@ -687,6 +556,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D58661FFCD2F7AC357B8EC9D07AE7115295A84D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434863   (147561) от 26.12.2020
+
+Роберт Ф. Шмидт и др. | Физиология человека с основами патофизиологии [В 2-х томах] [2-е издание] (2021) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почему возникает жажда? Почему мы должны спать? Почему без дыхания мы не проживем и пяти минут? В этой, ставшей для многих настольной, книге вы узнаете, как «работает» человеческий организм. В ней раскрывается множество тем, в частности физиология клеточного дыхания, работы головного мозга, сердца и почек. Студенты найдут здесь все, что необходимо для учебы. Авторы, (   Читать дальше...   )Жанр: Анатомия и физиология, Учебники и пособия для вузовПеревод: А.Ю. Головина, Д.И. Земледельцев, К.Л. ТарасовФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:392B939C172BF2BCC6ECEE684EF51E3199BD8672
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969254   (147523) от 27.12.2015
+
+Константин Романенко | Борьба и победы Иосифа Сталина. Тайны «Завещания Ленина» (2007) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скрупулезно сопоставляя известные факты и новые документы, автор аргументированно разрушает устоявшиеся мифы, более полувека искажавшие личность И. В. Сталина. В книге исследуются и вскрываются мотивы и действительные причины его поступков и решений. Такой подход позволил впервые в историографии раскрыть историю происхождения политического имени вождя.Жанр: Биографии и МемуарыФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A44ED582AABF1DDA5844D35CF69A803A14C5D4FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969424   (147424) от 27.12.2015
+
+В.И. Коломин | Механика (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дана минимальная теория, составляющая фундаментальное ядро физических знаний, включающее главные содержательные линии фундаментального физического образования: предметную, мировоззренческую и методологическую, которые являются основными ориентирами в формировании профессиональной компетентности будущего специалиста.
+Большое количество задач различной сложности с (   Читать дальше...   )Жанр: ФизикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B492B296C17BF7BE8F0687F7075D37176D0C5F7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969555   (147401) от 27.12.2015
+
+С. Дробязко | Вторая Мировая война 1939-1945 (2006) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена центральному событию военной истории ХХ века. Она включает краткие сведения о вооруженных силах всех стран - участниц войны, описания ключевых кампаний и операций на разных театрах военных действий от Атлантики до Тихого океана, а также биографии наиболее выдающихся военачальников противоборствующих сторон.
+Издание содержит множество великолепных (   Читать дальше...   )Жанр: Военная исторяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA065A1523B3FE71078E1DDCE1F7C13919C54B34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435050   (147362) от 26.12.2020
+
+Н.М. Брель, Н.А. Пославская | Английский язык. Базовый курс (2021) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник имеет ярко выраженную практическую и коммуникативную направленность и позволяет в короткие сроки набрать необходимый для полноценного общения и дальнейшего изучения английского языка объем грамматики и лексики. Все главы основного курса сюжетно связаны между собой, что поможет избежать монотонности при изучении учебного материала. Соответствует ФГОС СПО последнего (   Читать дальше...   )Жанр: Иностранный языкФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BB0C7011749A36CD48D5832651B34D0C6720D17
 ```
 
 https://mybot314.ru/tekegram_catalog/
